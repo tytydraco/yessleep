@@ -1,0 +1,17 @@
+ 
+
+Japan is a country with a lot of horror "legends". There are simply weaving stories, but there is also something mysterious and inexplicable that makes people believe and fear. And here is such a story, about a station named “Kisaragi”…
+
+In Japan, there is a forum network called “2ch”, and a girl named Hasumi is a user on this forum. In 2004, Hasumi boarded an 11 p.m. night train. The train runs for 20 minutes without stopping. This is a completely unusual condition, Hasumi said that normally this train owned by her still frequented will stop after 7-8 minutes. While on the train, Hasumi posted a thread on "2ch" to talk about the strange thing. A few people online on the forum responded to Hasumi's thread and her request to go to the cockpit to check it out. The girl did, but unusually she did not receive any reply from the cockpit.
+
+Then the train went through a very strange tunnel and stopped between the nights at "Kisaragi Station" - a stop that doesn't exist anywhere in Japan.Hasumi, out of fear, kept talking to people online in the forum thread. Through her bewildered account, there was no one at the station, the place was completely empty, even the surrounding area was in a similar situation, and even, she cannot determine my current location on the phone's locator.
+
+Hasumi called her family and asked them to report it to the police, but even the police thought it was a prank call because the place "Kisaragi Station" didn't exist at all.As the night grew darker, Hasumi continued to comment back and forth with the people on the 2ch forum. At 2 a.m., she reported that she had just heard a sound like a bell and a Taiko (a type of Japanese drum) nearby, and that she also caught sight of the silhouette of a man with only one leg.
+
+Everyone on "2ch" immediately panicked and stated that this was completely wrong, advising Hasumi to quickly go through the tunnel and find a way out of the train station. After Hasumi leaves the tunnel, she runs into a kind-hearted stranger who offers to take her.Ignoring everyone's warnings on "2ch", Hasumi got into the stranger's car and posted another post at 3:44 am, "We just went straight up the mountain. I can't imagine having anywhere to park on it anymore. He never said anything. I will find a way to run away.” And that was her last post.After that, despite the chaos on the forum, Hasumi didn't post anything. No one knows the fate of that unfortunate girl...
+
+Recently, a Twitter user named “Murao blabla” had a similar experience, along with an attached image of the train station. This person said that he had boarded the train from Kanto and, after passing through Chiba, he realized he was at a strange train station: the time in this station is 1 hour faster than the time on the Internet. And on that same night there were more than 5 sizable earthquakes in Kanto but he didn't feel anything, even his GPS stopped working.
+
+Fortunately, this man successfully exited “Kisaragi Station” and found his way to a supermarket. After seeing the train station disappear from sight. When he checked the ticket again, there was no proof that he got off at the station named "Kisaragi".
+
+Until now, the station “Kisaragi” remains a chilling mystery that no one can explain. It doesn't exist, but there are people who have experienced it, in a strange and incomprehensible way. “Kisaragi Station” has since then remained a talked-about story and has become a terror to late-night train commuters in Japan.
