@@ -1,0 +1,32 @@
+name: yessleep
+
+on:
+  schedule:
+    - cron:  '0 */1 * * *'
+  workflow_dispatch:
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+
+    steps:
+      - uses: actions/checkout@v2
+      
+      - name: Environmental Variables
+        env:
+          REDDIT_ID: ${{ secrets.REDDIT_ID }}
+          REDDIT_SECRET: ${{ secrets.REDDIT_SECRET }}
+    
+      - name: Install modules
+        run: pip install praw
+
+      - name: Execute
+        run: python main.py
+        
+      - name: Push
+        run: |
+          git config --global user.email "yessleep@github-action-yessleep.com"
+          git config --global user.name "yessleep-github-action"
+          git add .
+          git commit -sam "Updated r/nosleep stories" || true
+          git push || true
