@@ -176,6 +176,8 @@ Besides.  There’s something about the one girl that caught my attention.  The 
 
 I… I think I’ve found the campus’s version of Kate.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/utk5iw/how_to_survive_college_i_admit_i_had_to_google/)
+
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
