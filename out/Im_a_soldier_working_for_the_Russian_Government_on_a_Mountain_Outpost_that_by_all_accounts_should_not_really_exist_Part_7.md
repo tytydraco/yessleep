@@ -322,7 +322,7 @@ She tells us the story of the Drevlian, and of Olga of Kiev. The woman in the pa
 
 &#x200B;
 
-The Drevlian were, so she says, an ancient race of people who lived in what is now western Russia, over a thousand years ago. Vaguely Slavic in ethnicity, with their own customs, stories, aspirations and anthems. Elena believes the song we hear across the mountains at night to be the song of the Drevlian people.
+The Drevlian were, so she says, an ancient race of people who lived in what is now eastern Europe, over a thousand years ago. Vaguely Slavic in ethnicity, with their own customs, stories, aspirations and anthems. Elena believes the song we hear across the mountains at night to be the song of the Drevlian people.
 
 A man named Oleg of the Rus’ led the dominant nation in the region at the time, and the Drevlians, - amongst the other tribes and peoples of Eastern Europe, - were expected to pay tribute and swear to him their loyalty. An oath of service, in exchange for Oleg’s defenses.
 
@@ -330,9 +330,9 @@ Upon Oleg’s death, however, the Drevlian lords changed their minds. At a midni
 
 Oleg’s successor was a man named Igor. Igor of Kiev. A man who made many mistakes, a man misguided… But a good man all the same. A man who did his best by his people.
 
-Igor, unsure how to approach the Drevlians, initially sent an armed force up to their capital to demand what he was owed, and was met with indignation and verbal hostility, and he returned with a meagre tribute, far less than what was promised. Than what was *owed.*
+Igor, unsure how to approach the Drevlians, initially sent an armed force to their capital to demand what he was owed, and was met with indignation and verbal hostility, and he returned with a meagre tribute, far less than what was promised. Than what was *owed.*
 
-Not wanting to escalate matters any further, Igor for his second attempt travelled north to the wintry home of the Drevlians himself, to speak to their leaders personally and to fix what he hoped was little more than a frayed thread of diplomacy.
+Not wanting to escalate matters any further, Igor for his second attempt travelled to the wintry home of the Drevlians himself, to speak to their leaders personally and to fix what he hoped was little more than a frayed thread of diplomacy.
 
 Elena pauses for a moment as she reaches this part. She swallows and rubs her throat.
 
@@ -372,7 +372,7 @@ It was only then that the Drevlians began to see.
 
 &#x200B;
 
-Rus’ reinforcements from the south pushed north, and one by one the cities of the Drevlian were razed.
+Rus’ reinforcements circled around and pushed their enemy easy, and one by one the cities of the Drevlian were razed.
 
 Every plea, every desperate request for peace and for surrender were met was little more than wind. Olga never ceased. She never stopped. Onwards, she marched with her soldiers. Driving the Drevlian ever back.
 
@@ -398,11 +398,11 @@ Then when the sun set that day, the sulphur was set alight, and the birds were r
 
 The orange of the glow was said to shine in Olga’s eyes as the sky began to sparkle with a hundred thousand embers.
 
-The birds did as Olga knew they would. They returned to their homes, to their nests, in the rafters and rooves of the houses and buildings of the Drevlians… and all at once the wood began to burst into flame. The city was a burning wreck within the hour, and there was nothing its inhabitants could do but run. To flee to the east.
+The birds did as Olga knew they would. They returned to their homes, to their nests, in the rafters and rooves of the houses and buildings of the Drevlians… and all at once the wood began to burst into flame. The city was a burning wreck within the hour, and there was nothing its inhabitants could do but run. To flee yet further still.
 
 &#x200B;
 
-They were chased by Olga’s soldiers. For hundreds of miles, east, across the wastes.
+They were chased by Olga’s soldiers. For hundreds and hundreds of miles east, way across the wastes.
 
 And there, at the base of the Ural mountains when they could go no further, they banded together, the Drevlians, for one desperate final stand. They were the men still standing, they were women, they were children, they were elderly… They were not warriors or fighters. But they still numbered over a hundred-thousand. And in those final hours they all felt the end, and they all prepared to fight as only one backed into a corner truly can. They still had their hope.
 
