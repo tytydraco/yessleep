@@ -83,3 +83,5 @@ I feel a little bit better, i mean, i feel bad for how much of a bitch David mus
 I take myself back upstairs and close my bedroom door, i curl up in bed absolutely exhausted and ready to fall asleep when i hear the breeze coming from and open window..I don't remember opening my window? I sit up to go and close it..
 
 *A loud knock comes from inside my closet. I knew i felt like i was being watched last night..*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/utxdzd/the_man_across_the_street_part_two/?utm_source=share&utm_medium=web2x&context=3)
