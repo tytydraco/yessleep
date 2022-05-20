@@ -1,0 +1,25 @@
+The story I’m about to tell you happened a few months ago. It still chills me to the bone. Never would I have thought something like this would happen to me. But yet, it did. 
+
+I turned on the TV and walked into the kitchen. The microwave started beeping, meaning my bag of popcorn was done cooking. I took it out, grabbed the butter from the counter, and poured it on. The butter sizzled down through the kernels to the bottom of the bag. I went over to the couch and sat down. The TV was turned to a breaking news report.
+
+“Hundreds of dogs from all around Ukiah, New Mexico seem to have suddenly gone missing. The Nevada Department of Conservation and Natural Resources says that they are looking into why these disappearances are occurring. More on this at 12…” said the newscaster. 
+
+I threw my bowl of uneaten popcorn in the trash and decided to go to bed. It was getting pretty late and I had a meeting early in the morning. I went upstairs and into my room. My dog Laika, a large golden retriever, was laying on the ground. She looked up at me with sad doggy eyes, before dropping her head back down onto the carpet. 
+
+“Hey buddy,” I said. “What’s the matter?”
+
+Of course, my dog just laid there aimlessly, staring at the wall. I shrugged and went into the bathroom to get ready for bed. I hopped in a quick shower, brushed my teeth, and climbed in bed. Staring up at the ceiling, I emptied my mind and drifted off to sleep.
+
+*Boom. Boom. Boom.*
+
+The loud pounding on the door jolted me awake. I shot upright and looked over at the clock. 3:33 AM. 
+
+“God damnit,” I muttered as I pulled the covers off me. I looked over at the floor where Laika was laying only to see it was now vacant. I sighed and walked out the open door into the hallway. It was dark, and not because there were no lights on. Something felt off. The air felt thicker, no, heavier, than normal. I rounded the corner to the stairs when I was abruptly hit with this awful smell. It smelled like rotten meat. I pulled my shirt up over my face and covered my nose, but I could still smell it. I walked down the stairs and looked around for Laika, but she was nowhere to be seen. Confused, I walked over to open the large, front door. Just as I was about to open it, something stopped me. I felt a chill run from the back of my neck all the way down my spine. I shuddered, and opened the door. 
+
+There was nobody there. I looked around my empty front yard. Then, I stepped out and scanned the tree-line in the back of the yard. There was nothing out there. Slowly, I closed the front door and stepped back inside. As I turned around, I was surprised to see Laika suddenly standing at the door. I leaned down to pet her but stopped.
+
+There was something off about her. I couldn’t tell what it was at first, but then I started to notice. Her ears were standing straight up, which she never does. Drool and slobber poured from her open mouth, which revealed her jagged pointed teeth, which appeared sharper than normal. I looked at her eyes. Something wasn’t right about them. They looked dark and empty but most noticeably, they looked...human.
+
+She began to bark and I stepped back. Tripping, I fell onto the ground and scurried backwards. Her bark echoed through the house. It sounded off, almost as if it was her bark but at the same time, there was a deeper sound to it as well. Something not natural. Something demonic. Suddenly her head snapped sharply left and she looked at me. She looked right at me with those black, lifeless eyes. Then, just as soon as she appeared, Laika was gone. She stood up, looked at the door, then back at me, before wandering down the hall towards the kitchen. Terrified, I ran upstairs and closed the door. I walked past Laika, now laying on the floor of my room, and got back in bed to go to sleep. It wasn’t until I had just started to drift off to sleep when I realized I had seen Laika go down the hall, not into my room. Whatever I had seen downstairs was not my dog. It was something else entirely. 
+
+Flash forward 6 months. One of my clients, a Dr. Ashkii Dighin, who was a Native American man from the local Navajo tribe, came into my work one Monday afternoon. Before we had started talking business, I had him introduce himself to me and tell me a few stories about himself. One of the stories he told caught my attention. He told a story about an encounter he had with a tribal creature known as a skinwalker. He said that these creatures, skinwalkers, were evil creatures summoned by Navajo witches that had the ability to transform into any animal they pleased. He also described the awful, wretched order that they give off. I was shocked. Now, positive that I had an encounter with a skinwalker that one, fateful night, I jumped back from my desk, running to the bathroom. I had no clue what to do. Until this point I had been told my whole life that monsters aren't real. Now, I know that’s just not true. Monsters are real. All you have to do is know where to look.

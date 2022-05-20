@@ -1,0 +1,17 @@
+Hey I’m making this post to reach out for some help or advice. I don’t know what the fuck has been going on these last few days, but my life is completely changing and I have no idea what to do.
+
+I woke up to my alarm at 6:00 am to get ready for school. I brush my teeth, take a shower and do what any ordinary 16 year old does before heading to school. I get done at around 6:30 am and walk out to get my dad to drop me off to school.  My dads normally sipping coffee and watching the news at this time but I walk out to absolute silence. It was super out of the ordinary. My dad is a big morning person and not seeing him was super weird to me. I check his room and there is no sign of him anywhere. I proceed to try to call him to see where the fuck he’s at. I call him only for it to go straight to voice mail. I have no clue what to do at this point. I would call my mom but I haven’t seen her in 8 years and she’s been a deadbeat ever since I was little. Not having a ride or anyone to call I sit and hope my dad is getting breakfast or maybe at the gym. I go back to get some more sleep. I wake up at 12:30 pm and panic because 6 hours have passed and I’ve already missed half my classes. I call my dad 10 more times just for him to not answer. I begin panicking at this point and call my aunt. She didn’t answer.  With no one else to call I proceed to take the whole day off and try to calm myself down. My dad is really the only person I have and I begin thinking the worse. 
+
+It’s 6 pm now. My dad has been missing for the whole day. No text back, no calls, no sign of him anywhere. At this point I really wanted to call the cops but at the same time, it wasn’t really an emergency because he normally gets off work at 8 pm and I don’t wanna waste the officers time. 
+
+9:30 pm is when I finally see my dad in the driveway in his Honda Civic. A huge wave of relief flowed through my body. I open the door and run out to him to give him a huge hug. It’s always been me and my dad and just seeing the person I love the most gave me a huge wave of relief.  
+
+“Where have you been dad! I didn’t go to school and I was worried sick!”
+
+He responds with two words
+
+“I’m sorry.”
+
+Now it may not seem creepy or weird. But there was something so fucking sinister the way he said those two words. His blank fucking face and those fucking eyes. His eyes looked so fixed on me. His eyes had no expression. Just a blank fucking stare. I was so uncomfortable. The stare and his face.Oh my fuckinh god his face. The only thing I can relate his face to is in the video obey the walrus. The blank fuckinh stare. Please if you have the time watch obey the walrus and skip to the end when you could see the women’s facial expression. That’s the only way I can explain this. 
+
+We go inside and I go to my room. I have no clue why I did this but I lock the door. I felt terrified. I felt as if he was a home intruder. His presence is different. I feel like I need to defend myself.  I know it’s my dad but at the same time tho, that person or that thing is not my fucking dad. No way In hell that is my fuckinh dad. I just know it.  I’m chilling on my phone right now writing this story locked in my room. What do I do?

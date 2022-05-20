@@ -1,0 +1,15 @@
+I’ve been having trouble sleeping lately. Its a toss up between spring allergies through the open window and just a general restlessness. I’m usually semi-awake tossing in and out of sleep between 2-4am hoping the melatonin kicks in. During those hours a light sense of dread sets in and I can’t quite put my finger on why. 
+
+Maybe I’m just getting used to this new house and I feel out of place. There are creaks around here that stand out despite my boyfriend’s constant reminding that it’s a house built in 1927. It’s to be expected. My two cats seem to be on high alert around these hours that I’m half awake. They’re always at the window staring intently at the train station platform across the street. If you pet one of them while they’re staring it’s like they’ve been spooked out of a trance. 
+
+Last night, I was slightly more conscious than normal due to a train screeching to a halt at the station. Because I have my windows closed in the winter, I’ve managed to sleep through the trains’ comings and goings. But now that they’re open, I would stir during every passing. I counted how many trains pass in the 2 hours I’m awake. Four. One every half hour.
+
+The train’s brakes were nails on a chalkboard, sending an unwelcome shiver down my spine. I got out of my bed and joined my cats at the window. It felt like something was innately wrong with this train. There was a faint fog emanating from it, slightly obscuring my view into the windows. It was stopped at the station for nearly 3 minutes when they usually pass on within 30 seconds (if they even stop at all). 
+
+After the screeching halt came a profound silence. You would have thought you went inexplicably deaf. Typically, every time a train opened its doors it would ring twice and say “Brookside” in a very clear ai-like voice. I waited. There was no one standing on the platform and the doors hadn’t opened to let anyone off yet.
+
+Then suddenly, the platform’s loud speaker cut through the silence with an ear-splitting tone that made me involuntarily wince. When the two rings sounded, I waited on bated breath for the announcement. After a long pause of static, there was a low breath, a brewing laugh, then an insidious voice said “Run.” But I was frozen.
+
+The doors opened, my eyes fervently scanned each one. I couldn’t move from the window, tranced like the cats by my side. After what felt like an eternity, a black mass stepped out of the last car. I could barely see him in the dim lighting of the moon. He walked with almost floating steps like a shadow with weight. Once he stepped into the lone streetlamp’s weak light, I could see he had no features, no face. Just endless darkness exuding a feeling of despair and hopelessness. A black hole you’d fall into and never crawl out.
+
+He crossed the street and walked just out of sight. Relief washed over me. I felt my muscles start to loosen. Then I heard a knock on my door.

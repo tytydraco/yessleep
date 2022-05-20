@@ -1,0 +1,53 @@
+***Not long after the first Coyote Hollow story suddenly appeared in my email, I got another email from another address about the exact same place.***
+
+If there's one thing about the South that no other area of the country can lay claim to, it's the food. Whether it's classics like fried chicken and collard greens or more exotic fare like frog's legs and gator steak, you can bet that you will never ever try food like you will below the Mason/Dixon line.
+
+The Chattahoochee BBQ was by far the most popular place in Coyote Hollow. BBQ was just the main option. Everything from oven-baked macaroni and cheese to black-eyed peas to lima beans. For dessert, you had a lot of great options including chocolate cake, red velvet cake, or banana pudding, but the most popular by far was the pride of Georgia: that sweet peach cobbler.
+
+The only problem with the Chattahoochee BBQ was its owner. Miss Foster was a great businesswoman but I'll be damned if she wasn't the meanest thing on two legs in the entire town. It seemed like every little thing set her off, and it was a fine day if she only ever yelled at three people. It was fitting, because everybody hated Miss Foster just as much as she hated everybody else, especially the poor souls that had to work under her at the BBQ.
+
+Anybody who's ever worked in food service will tell you the hardest thing by far is trying to maintain a facade of friendliness and geniality when all you really want to do is throw a fresh, hot plate of what have you into the face of the customer or your boss. The women who worked at the Chattahoochee probably had the hardest job of all.
+
+It's people like Miss Foster who make people need the concept of Hell. We need the idea of eternal punishment to deal with those people who never seem to get their comeuppance for the horrible things they do. Miss Foster would go off on her employees for no reason. Running low on sweet potato casserole? You go back in the kitchen and get yelled at. Didn't make a fresh batch of sweet tea several hours before the last batch was at half capacity? Back to the kitchen to get yelled at. Messed up a customer's order? You guessed it.
+
+And I'm talking about drill sergeant level yelling sessions that would reduce her workers to tears. Nobody every saw it, but they could hear it. So many times people stepped in and tried to calm her down and so many times people were fired on the spot.
+
+One of those poor souls was a young girl named Jennifer. Jennifer had lived in Coyote Hollow all her life and was content with the small town. She was a nice girl. Maybe a bit too sensitive for the real world, but a nice girl. She seemed to maintain that childlike innocent look at the world, seeing the good in everyone. She was also a looker of note, if I'm honest. She managed to become the heart and soul of the crew at the Chattahoochee. For a bit, it seemed like they finally had a counter to Miss Foster's cruelty.
+
+People like Miss Foster live to take advantage of people like Jennifer. Others like to justify it, saying it's just the order of things. The lioness doesn't think twice of going after the gazelle, right? No reason someone like Miss Foster should show basic human decency and compassion to people because she's toughening them up, right? Well, Miss Foster ended up toughening Jennifer right up into the ICU of the local hospital.
+
+The truth is people like Jennifer are never as invulnerable as they seem. Most of the time, they're the ones hurting the most, and unfortunately Jennifer was hanging by a thread at the time. She and her boyfriend of two years had split after he admitted to cheating on her and Miss Foster never missed a chance to remind her of it. After Jennifer finally reached the end of her patience and called Miss Foster out, she was promptly fired. That night she went home and swallowed enough pills to bring her to the edge of death. Thankfully, the doctors in the ICU were quick enough to save her life, but I can tell you it was closer than anyone ever would've wanted it to be.
+
+It was the final straw for the other girls at the Chattahoochee. For nearly a year Jennifer had given them the strength to carry on and when they heard about what had happened, they decided that Miss Foster had been allowed to get away with her bullshit for far too long.
+
+Miss Foster wasn't the type to close the place herself. She usually left it to the two people who had gotten on her nerves the most during the past week. One night, Miss Foster got a call that Becky Ferber, who'd been scheduled to close all week alongside long-term Chattahoochee waitress Lynn Coyle, had had an accident and they needed her to come up to handle the situation. Of course, it took quite of bit of convincing. Miss Foster wasn't the kind of woman to bother with what she saw as other people's problems, but in the end she figured the girls couldn't handle the situation without her, so she made her way to her restaurant and went in.
+
+The first thing Miss Foster tried was to hit the light switch, but the restaurant stayed dark. She figured one of the girls had hit a power line or something. She was much more concerned with the cost of replacing the line than the safety of the girl who may have been electrocuted or worse.
+
+As I'm sure you've guessed, the lights were off for a reason. Miss Foster didn't know it but there were several pairs of eyes watching her in all that darkness, all with the same purpose boiling in the minds behind them. Miss Foster never knew it was coming. One second she was trying to get through her dining room, the next a shape was coming out of the dark, and the next afterwards she was on the ground, a good crack on her jaw having knocked her out cold.
+
+She came to tied to a chair in the kitchen, and there before her stood all of the other girls who worked at the Chattahoochee. Now, in this sort of situation, people usually fall into one of two groups: one realizes the immediate danger they're in and attempts to bargain or beg their way out of the predicament. The other is consumed by their own arrogance, doesn't at all understand the immediate danger and tries to throw out empty threats. Three guesses as to which group Miss Foster belonged in.
+
+The sweaty sock in her mouth and the tape on top of it made a muffle of the threats, and the Chattahoochee girls alternated between bemused smiles and chuckles. Nobody would've blamed them, I guess. It is kind of funny how someone like Miss Foster could still think she had the upper hand in this situation. I like to think she had that delusion in her head right up until the girls dipped her hand in boiling cooking oil. The sweaty sock and tape made a muffle of her screaming as well.
+
+I'm not sure if they took her hand out of the boiling oil before they brought out the meat cleaver, but in the end it doesn't really matter. The girls took turns with that meat cleaver, taking Miss Foster's other hand and starting from her fingertips. Once her fingers were gone, the girls did the same thing with her toes. Like most industrial kitchens in the country, they had a butane cooking torch of which they made good use. They didn't want Miss Foster dying of blood loss just yet.
+
+The secret to any good Southern dish outside of the seasoning is the tenderizing. Too many places leave this step out, and it's a damn shame. You can't enjoy a good whole rib or porterhouse when it feels like rubber and that restaurant was stocked with a good number of tenderizing hammers. The Chattahoochee girls knew this, so they spent a good two hours tenderizing Miss Foster. Well, to THEM is was a good two hours. Heaven knows how long it felt for Miss Foster herself.
+
+Techniques in slaughterhouses have become much more sophisticated as time's gone on. It used to be they'd stun the steers, tie them up while they was under, cut their throats and let 'em bleed out and when the bleeding was done, they'd get to work on chopping 'em up. Of course nowadays it's a lot less medieval. Unfortunately for Miss Foster, the Chattahoochee kitchen didn't have a captive bolt pistol, so the girls had to do it the old fashioned way.
+
+They worked long into the morning making sure the kitchen was cleaned up right. Not a single clue as to what had gone on in there during the previous night. More than once the girls made some quip about how Miss Foster would want it that way and good laughs were had by all. After they'd cleaned up the place real nice, they got to work making sure nothing could be pegged on them.
+
+It was a lovely cloudless day when young Kyle Thatcher decided to take his daddy's Sea-Doo for a spin on the Chattahoochee. He was skimming along some of the more shallow areas of the river when he nearly killed himself hitting something hard just underneath the waters. After cursing up a storm, he looked over the side of the Sea-Doo and was shocked to see what looked like a rearview mirror bobbing and then sinking into the water next to him.
+
+911 was called and they dragged Miss Foster's car out of the river in no time flat. They spent quite some time trying to figure out what had happened, but eventually the trail ran cold. Nobody had seen anything. If the entire truth was told, nobody in Coyote Hollow gave half of a damn what had become of Miss Foster. The only good thing any of them could say about her was that she was now gone.
+
+After the doctors had determined she was fit enough to do so, Jennifer was released from the hospital. Her family came and picked her up, taking her to her favorite restaurant in Macon to celebrate her new lease on life. All the other girls from the BBQ were there to surprise her, and they made sure Jennifer knew just how much she meant to them. They didn't want to risk her ever trying something like that again.
+
+Eventually the Chattahoochee re-opened under new management. GOOD management this time. For a while, they offered what they decided to call "Miss Foster's Famous BBQ," but eventually they decided the name was in bad taste, so they changed it. The business boomed like you wouldn't believe; especially the new formula they had for the pulled pork sandwiches. People couldn't get enough of it.
+
+One day a couple of the girls went into the back room to get more meat for the sandwiches. Supplies were dwindling and soon they'd have to make their first call in a while to their regular supplier.
+
+They exchanged a knowing smile as they removed a tell-tale fingernail from the meat.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/un6yoj/tales_from_coyote_hollow_part_3/)

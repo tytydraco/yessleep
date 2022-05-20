@@ -1,0 +1,27 @@
+This story happened in the fall of 2009 when I was in my senior year of high school. I grew up in a small suburb in Utah, and had played football my entire life. As a senior, I was the captain of the team, and our stadium was near the center of town. When this all started, we were playing our second home game on a cloudy Saturday evening, and we were doing pretty good. 
+
+I had scored both of our team’s touchdowns up to that point, and we had held the other team scoreless. Midway through the 3rd quarter, one of the kids on the other team started throwing punches at me and cursing at me. I ignored it and walked away, but the referee still kicked us both out of the game, much to the dismay of our head coach, who I’ll call Coach Joe for this story. 
+
+After I got ejected, Coach Joe reluctantly sent me back to the locker room, so I started the long walk under the stands to our locker room, but when I got there, the door was wide open. This was unusual, since Coach Joe usually locked it when we went out on the field. I wasnt really concerned though. 
+
+After about an hour, the rest of the team got back to the locker room after the game. We blew out our opponents, 27-6. We celebrated for a while, then everyone left except for me and the 2 other captains, Ryan and Mason. 
+
+While we were cleaning up, Coach Joe called me into his office to tell me he thought my ejection was a bad call, and he was proud of me for walking away from the kid. After he finished, I asked him if he locked the door after halftime, and explained that it was open when I went back. He was confused, but we both kinda blew it off. 
+
+Anyway, fast forward to Wednesday. All week, there had been an increased police presence and search helicopters everywhere 24/7 because a young girl from the town next to ours had been missing since Saturday night. Meanwhile, before practice that day, the locker room smelled pretty bad. Same thing the next day as well. We all figured it was just our sweaty clothes making it smell. Thats almost always the reason it smells in locker rooms. 
+
+After our Friday night game that week, Coach Joe told us to take home all of our stuff and wash it, and that he was having someone come to the stadium to fumigate the locker room as he did once a month. So we took everything home, but the smell was still there when we went to practice the next morning. Again, we were able to put up with it for a little bit, but eventually it just got to be too much and every inch of the locker room smelled like a sewer. It was so bad that about 10 of my teammates had gotten sick from it, along with 3 of the assistant coaches, so we decided to move to the opponent locker room, which smelled like perfume after being in our regular locker room. 
+
+That week, we had another home game, and we were in what was usually the guest locker room while our opponents were behind the snack shack. We lost this game, 17-3. Coach Joe told us we were off for the weekend, but that he wanted me, Ryan, and Mason to help him find the smell in the locker room the next day. So we met him there at around 5 in the afternoon and started looking. We looked for about an hour and we had searched the whole locker room at this point with no source of the horrible smell to be found. There was nowhere left to look except for in the ceiling. 
+
+We didn’t think it could be there, but Coach Joe had me check as a last ditch effort. Mason grabbed me the ladder from the team closet that the night janitor uses to get up into the ceiling when he has to, and I climbed up. I moved one of the tiles out of the way so I could get up there, and then I shined a flashlight around for a little bit when I saw a small, black bag within arm’s reach. Then I remembered the whole thing about that missing girl, how she went missing the same day of that game, the door being open, and everything came together. I was already starting to feel pretty sick being in there with the smell, but upon seeing it and making my realization, I was more nauseous that I even knew was possible. 
+
+“What is it?” Coach Joe asked. 
+
+I reached for the black bag, and watched as Ryan fainted and Coach Joe threw up right there in front of me as I pulled it out. I climbed down and we opened the bag as calmly as we could. What I saw when I pulled it open is forever imprinted in my mind. 
+
+When I opened the bag, I saw the decapitated head of the girl, with its now messy hair and blackish-red skin. Her eyes, bloody and sunken into her eye sockets, seemed to be staring into my soul. I dropped the bag and ran, and upon seeing what I saw, they were right behind me. 
+
+When we got it together, we called the police and an ambulance for Ryan, since he was passed out. The police confirmed that the head belonged to the missing girl, and the rest of her body was never found, though it was probably either buried somewhere or destroyed. A couple weeks later, they arrested a 28 year old man that confessed to killing her as well as other things that are too disgusting to mention. 
+
+How he was able to sneak around so well while the game was going on is beyond me, but I can’t imagine the fear and the pain that girl probably experienced in the last few hours of her life. And we were joking around about the possibility of there being a body in the locker room. But little did we know we were right. Its been years since then, and its still hard to comprehend that there was a human head decomposing above us in that locker room for 2 weeks.

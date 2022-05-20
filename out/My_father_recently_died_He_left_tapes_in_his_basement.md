@@ -1,0 +1,31 @@
+I was sitting on my couch watching the news when I got a call saying my father was in the hospital. I rushed down and when I got there my dad looked horrible, I got down next to him and he whispered in my ear "Go down in the basement and destroy the tapes do what I didn't have the strength to do".
+
+After he said that he took his final breath and died, I couldn't hold back my tears my own father was dead the man who took care of me and helped me through my mother's death. His funeral was quite no one spoke to each other I just sat there in silence not speaking a word to anyone. 
+
+After the funeral I went to his house to see what to do with his stuff and while I was there I remembered what he told me to do to tapes in the basement. I went down there and in the back was a box labeled tapes I brought it up and pulled one of the tapes out labeled Jeffy's fun house. I looked up what it was and all it said was that it was a kids show that never got picked up and the studio shut down immediately afterwards.
+
+I don't know how my dad would have gotten ahold of these tapes then and why he would of needed me to destroy them, I played the first tape labeled pilot. It started off with showing a colorful house and a guy appeared who looked 6'3 and white a tuxedo and a top hat he waived to the crowed and immediately said "Hello everyone and welcome to my fun house" which was followed by clapping from the crowed it seemed normal and the whole time he did goofy things and even brought a kid up.
+
+After it ended I didn't see why my dad wanted it destroyed nothing seemed off, I then put in the second tape with was labeled getting over your fears. It played and this time it showed a boy standing next to Jeffy he was smiling and Jeffy said "Hello everyone today were gonna be learning to get over our fears". The boy then said he was scared of snakes so Jeffy pulled a snake out of box and put the snake around himself and told the boy the snake wouldn't bite.
+
+And that it was friendly and that he should pet it the kid slowly put out his hand to pet the snake and the moment he touched the snake it bit his hand. The kid screamed in pain, I was completely caught off guard and while that happened Jeffy started to laugh and then put his hand in the box and pulled more snakes out and through them on the kid. They all started biting the kid as he screamed in pain and the crowd started to clap and afterwards Jeffy said "Well see you next time folks" and the video ended.
+
+I sat there in complete shock not knowing what to say I just saw a kid but buy a bunch of snakes while people just clapped. If it was a joke it was a sick fucking joke that was for sure, I took the tapes and through them out in the trash and went home after that experience.
+
+That night I was sleeping but in my dream I appeared on a stage and there was no audience but I heard clapping as they started cheering for Jeffy to appear and when he finally did he came up to me and opened his mouth wide revealing long shards of teeth. I then heard my dad scream saying burn the damn tapes before it's to late, I woke up in a sweat I looked over it was 3:20am I then heard a knock at the door. 
+
+I wondered who could want me at this hour I went and when I opened the door no one was there but when I looked down there was a tape labeled hide and seek. I was confused who would leave this for me I pulled out my vhs and put it in, darkness that's all I saw until I saw Jeffy appear "Hi everyone' he yelled I jumped in shock. 
+
+"Today folks me and Timmy are going to be playing hide and seek" a little kid then appeared he then started to count to 10 as Timmy ran and hid but Jeffy then proceeded to pulled a chainsaw out and said "Ready or not hear I come". I was terrified, he then went looking for Timmy and when he found him he laughed and started to cut the kid up blood went everywhere.
+
+I ran upstairs to my bathroom and vomited what the fuck did I just see I went back downstairs and tried to retrieve the tape but it was gone. Where the fuck did it go I searched for it everywhere but I couldn't find it anywhere so I eventually gave up what was going on did those videos are getting to my head.
+
+I sat down as thoughts rushed through my head how did that tape find me why are they killing kids and why did my dad have those tapes in the first place. I decided to do research on the company that made those tapes and found out that the owner of the company was Jeffy Richard and him and his partner Dave Clemson wanted to make a kid show. I was shocked that was my father Dave Clemson why did my father help create this, I went on reading it said Jeffy dressed himself up and was the main character but the show never got aired and no tapes were found and after going out of business Jeffy committed suicide shooting himself.
+
+It then showed a picture of Jeffy and my father standing in front of the studio and it was the same guy from the videos. Why would my father work with this guy was he apart of those murders, I went back to see if I could find those tapes but they were gone but I did find one still in the basement I must have not seen it. The tape had no name so I brought it back to my place to see if I could find anything on it.
+
+I put it in and the music started playing as Jeffy appeared in a basement a tear rolled down his eye he smiled and said "Hi there person on the other side of the screen" so I knew he was talking to me and not the audience. He then continued "I know who you are your father told you about me wanting you to destroy my tapes my hard work all gone". 
+
+I was shocked he knew who I was he then proceeded to show a clip of him and my father arguing over the show my father threatened to call the cops but he ran off grabbed a gun and shot himself. Then it switched back he smiled and said if I burned those tapes it wouldn't be over those kids are his.
+
+He said he would keep murdering he then said "And of you try to stop me just wait" a video proceeded to play showing me kill the kids. I don't know how he did other blackmailed me and now I don't know what to do destroy the tapes and end up in prison for something I didn't do or leave them.

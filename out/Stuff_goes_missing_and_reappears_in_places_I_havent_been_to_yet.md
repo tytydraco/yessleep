@@ -1,0 +1,19 @@
+So disclaimer, I have posted about this story before in another reddit thread but it resulted in people calling me schizophrenic which 🙄. The only reason this instance stands out is that, unlike all the other times, I wasn't alone.
+
+Background:  I have the tendency to lose things the second they are out of my hand. I know this might be seen as an *oh its not that special people lose things all the time* but I'm talking about every day. If the object doesn't stand out the second I put it down I won't find it or remember it even exists for hours. I have left my phone in a fridge and a plate on the table for hours and forget about it until I start looking for it.  You will see the relevance in this later. I also have a tendency to wander away mid-conversation because I remember something and if I don't do it the thought will play on loop and I can't concentrate on literally anything else unless I do it.
+
+So this moment starts with me hours into my conversation with my friends, which is two other girls. We have not left the living room in hours and currently I am on the floor by the couch spinning my phone in my hand and shoving it and taking it out between the couch cushions. I remember putting it behind me, in a spot where, while I didn't think about it at the time would be out of view for all three of us. Then while later after that, I think to check my phone. I check in the spot I last remember putting it in,  which is below the sofa arm and my friends know the drill. Like I said I lose things all the time. They call my phone. Nothing. They tear apart the couch since I was shoving it between couch cushions, nothing. They check under the couch,nothing.
+
+Then we get up and look all over the house, in my room, the kitchen, the living room, the bathroom everywhere. During all this it starts to freak them out, I'm not phased yet because yeah this happens to me a lot. It's only this bad when I'm alone though, which whatever right?
+
+This time though my friends swear to me "No this is weird. We were right here the whole time, I saw you playing with your phone and you have not left the living room in hours. At all. Actually, this is the first time you've stayed in one place without leaving." Now I'm starting to freak out because no they're right I don't know how long it's been but when we first started talking the sun was still up and now it's late enough into the night for the sprinklers to go off. Usually, I can barely last half an hour before I need to do something, to be able to concentrate on the conversation.
+
+I get the thought to look in my car because other than the house that is the last place I've been. I don't expect to find it there because it was still afternoon when I last was in my car. And when we get to the car and I open the door, my phone is right there, perfectly placed as if I had forgotten it.
+
+We went into the house freaked out a bit because every single one of us were swearing no one got up. No one left the living room not even to use the bathroom. So how the hell did it get in a locked fucking car? 
+
+I told them. This kind of stuff happens to me all the time but I never think much of it because yeah I lose things so much.  There have been times though where it's like right now but I'm always alone when it gets that bad so I usually shrug it off. After I say that it gets dead quiet and we never mention it again. It was way too late to be experiencing and talking about weird shit like this.
+
+But it's been bugging me. I know it's such a small thing, but I've always had moments like this for as long as I could remember. The only difference now is I was around people. So how many times was me losing things for days and hours really my fault?  I know it's most likely to fuck with me because it's never anything malicious or life-threatening but it is annoying as hell.
+
+Any ideas reddit? I've kind of googled but honestly how do I google all that?

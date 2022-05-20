@@ -1,0 +1,27 @@
+ This story is from college and it’s always a surprise that I’m alive to anyone who hears this story. My name is Alec and I’m 29 now. This all happened in college when I was about 23 and my friend, Oliver, was 22. This took place in our Sophomore year, however, we 
+
+had known each other since Freshman year. This needs a bit of backstory otherwise it makes no sense how this happened.
+
+I met Oliver in one of my Marine Biology courses Freshman year. I lived on campus as did he and we shared a dorm, but despite that, I didn’t know him until class. The first thing that year was to get a lab buddy and I got put with Oliver. He wasn’t quiet but definitely not boastful either. He went to parties and what-not, but he cleaned our room when he had time and he did dishes so he was alright in my book. He and I grew close over the year, but once the year was over things changed quite a bit. Now if you don’t know, during summer break they normally kick you out of the dorms unless you have some pressing reason to stay so I went on a trip back to Ireland to visit family and Oliver went home as well. By now you’ve noticed that I haven’t said where Oliver lived or where the campus is and that comes with reasoning. I can’t. I have been asked not to mention him too much at all by the administration. 
+
+When we came back the following year he flipped a switch. We got our same dorm and stayed there as well. Within the first week, I knew something was not right. He seemed on edge all the time and not laid back like he had been the previous year. I questioned him about it, but I was shot down instantly by him bombarding me with about 20 excuses. I chose not to pry. He and I still talked every day for a few months and still remained close. One night, however, he invited me to a party. It was off-campus at someone's house and everyone was going so I figured it would be chill. We got there and he was recognized by many people, all of which were asking him for pills. Something he failed to mention to me way earlier was that he had been selling some pills for all year at this point. I don’t participate in that stuff and definitely didn’t back then either. Hell, I barely drank anything back then either. 
+
+These two decisions to not drink or take pills saved my life that same night. About 2-3 hours into the party I was exhausted and decided I was heading back home. I went to look for him and I couldn’t find him anywhere. I searched a few rooms before coming to one room that was at the end of a hallway and the furthest from the front door. I went to turn the handle and it was locked. Whatever, right? Owners probably put everything of value in there so it won’t get broken by rowdy 20-year-olds drunk on Smirnoff and high on Xanax. I just stepped back from the door for a moment then turned to walk away. As I turned I saw blood on the ground right outside the door. I guess I should’ve mentioned this way earlier but I am actually a homicide detective now. I dropped the whole “Marine Biology thing” once this happened. But anyway, it wasn’t just a few drops of blood or even a puddle, no it was drag marks. I didn’t want to cause a panic so I just stepped outside. We are in a pretty big town so no it wasn’t from skinning a deer or something else. I called the cops from down the block and when they did show up everyone still lost their minds. Most people ran down the road to get away from the cops. I just stood next to the cops explaining what happened and everything else. I stood back while 2 cops went in and another 2 stayed outside with me. After a moment I saw the cops walk back out, and they looked terrified. I overheard the radio and they called for 4 coroners’ vans. I was confused for a while and had no clue what was going on. I was finally put into the back of a cop car and taken down to the station where I was questioned until morning. 
+
+When I went back home all of Oliver's stuff was gone. Tv, clothes, books, computer, everything was just wiped from the room. I was asked to return 4 days later to the police station where they brought me into a room. They showed me a picture of Oliver and asked who he was. I explained that he was my roommate and close friend. I added that he is the one who dragged me to the party. The 2 cops asking me questions stood in silence for a moment just staring at me looking baffled. It was explained to me that Oliver owned the house we went to, and he is the one who was housing the bodies. The bodies of his mother, father, and two brothers. I broke down as they showed me the photos of the crime scene and how they had been there a little over a week. Finally, after I settled back down they pulled one more thing out. It was a journal, it was completely black with white pages and they flipped it to one page in particular. The page went something like this:
+
+\-Mom
+
+\-Dad
+
+\-Jacob
+
+\-Marcus
+
+\-Alec
+
+\-Meghan
+
+My name was there. It was explained to me that this was his “hit-list” essentially. Meghan was his girlfriend for a while. I still don’t know why I was put on the list. However, as I’m writing this I am on a plane to a prison in the middle of nowhere. Oliver was prosecuted and tried. He was found guilty of every count they gave to him. He is on death row and his execution is next week. I’m hoping he will speak with me and I can finally find out why my name was on that list.
+
+\-Alec

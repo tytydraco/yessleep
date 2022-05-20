@@ -1,0 +1,23 @@
+5/1/2022
+
+All names have been changed to protect privacy
+
+I work the grave shift in the Memory Care department of an Assisted Living Facility. This means I work with elderly residents with Alzheimer's and/or Dementia as part janitor, part bus boy, and part Pericare assistant. I've worked here for two weeks, and while most of the job is quite boring, the interactions I have with the residents are rarely so. 
+
+One of our bed-bound residents, #15, called to me as I was walking my rounds down the hall. I walked into her dark room and sat on the chair by her bed and asked her what was wrong as she had a concerned look on her face. She replied "I'm very scared. I don't like this. Daniel was right next to me. I don't like this at all."
+
+It's important to remember that you don't argue with these residents. It's the end of their life and their brain is finally giving, it's best to just agree with whatever they're saying and keep them comfortable. A time when I don't follow this, however, is when what they are imagining is frightful or bothering them. So, very calmly and with a gentle smile, I told her it was only she and I in the room and she was safe. She seemed to be looking through me, not at me, and was still almost shaking with fear. What she said next sent shivers down my spine, as I had in fact not scoured the dark room as I had walked in, "Who is that behind you? Is that Daniel?"
+
+Now I don't specifically believe in anything supernatural, but I don't exactly disbelieve either, and the way she spoke those words with such fear in her voice and the dark room suddenly feeling less empty than I had previously thought made my blood run cold. I managed to turn my head, feeling foolish for how fear had so suddenly gripped me based on the dream of a dementia patient, and sure enough, there was nobody there. I turned back to her, still barely able to see her face with how dark the room was, and I again calmly told her there is nobody behind me and it's just her and I in the room. She looked on the verge of crying, like she was trying to hold it all in for fear of being heard, but finally she gasped out a terrified whisper to me, grasping my hand as tightly as her weak hands could.
+
+"There's somebody on the floor."
+
+At that moment, I heard the bathroom door on the opposite side of the room gently bump against the wall. If my blood ran cold before, it could have put liquid nitrogen to shame now. My mouth was dry and my eyes began to water as she kept squeezing my hand, silently imploring me to do something, anything about the person on the floor of her room. I could almost hear a ringing in my ears as I stood to check the bathroom, every horror story I had ever read or heard playing through my mind, convincing myself I was about to have some sort of encounter, get spooked by a ghost, possessed by a demon, stabbed by an intruder, attacked by a rabid animal, something. On the surface I felt dumb for being so scared, but something inside me was just screaming to run. Everything about the situation felt wrong, like a waking nightmare. What little light spilled into the room only stretched the hostile shadows as I worked up the courage to take a step forward. The dark void of the bathroom in front of me loomed, promising answers I could not possibly want.
+
+And then, my coworker stepped into the room and turned on the light. #15 and I both squeezed our eyes shut from the painful but welcome intrusion of the fluorescent bulbs, and the carefree call of my coworker's voice to the resident calmed us both. Feeling more human and grounded in reality, I nearly ran to the bathroom and switched on the light, finding nothing within. 
+
+For the moment, we were safe and my coworker agreed to sit with #15 until she fell asleep. I don't know what I'd call what happened, as it could have just as easily been an encounter with an air conditioner turning on with impeccable timing as anything supernatural, but I can't explain the way I felt. Fear gripped me. I wanted to run from my resident's room, not looking back, a foreign feeling as for the two and a half years I've worked in this field I've been fiercely protective of my residents and clients. Who knows what would have happened if I had checked the bathroom before my coworker came? Frankly I don't want to, but I do know I'll be checking in on #15 a little more often now; how would you feel if you saw things in the night, every night, and could literally not move your body away? Hardly able to even turn your head from whatever is scaring you? 
+
+Have any of you had similar experiences?
+
+Edit: Spelling

@@ -1,0 +1,45 @@
+Great Aunt Rita had always been a little different, so it was to no one's surprise that she died in such an strange way. It was two months ago that my grandma called the police to check on her. Grandma had been calling Rita for days with no answer. That was unusual. Rita lie alone in the backwoods of Kentucky. She never married, never had children. Her older sister, my grandma, was her only true connection to the outside world.
+
+Rita was a creature of habit. Every morning she would wake up early to take her Border Collie, Barbie, on nature walks through the woods. Afterwards, she would come home to make breakfast and work in her gardens. She spent her evenings on the phone with Grandma and reading books.
+
+The police confirmed what Grandma had feared. Aunt Rita was found dead in her own bed. The officer on the scene said he couldn't get the image out of his head. He said her eyes were wide open, and her cheeks were tear-stained. She was lying on her side facing the middle of the bed, and her hands were clinched as if she were begging. Her dog, Barbie, was sitting motionless in the corner facing the wall. That poor dog must have been sitting there for days. If any of the officers made a move towards her or Rita she would immediately start growling and whimpering. Something scared her senseless. Barbie had to be put down.
+
+The coroner ruled out any chance of foul play. The only explanation he could provide is that her heart simply stopped beating. Her doctor was dumbfounded, as she was given a clean bill of health just a few months prior.
+
+Since I lived the closest to Kentucky, I inherited the task of cleaning out Rita's house. The whole thing seemed strange to me considering I barely knew the woman. It had been 19 years since I last saw her. I was 12 years old and my sister and I were playing in the woods behind her house. We were both big into *Goosebumps* at the time, so we were pretending like we could see and talk to ghosts. Before I knew it our Great Aunt Rita was running full tilt towards us, screaming bloody murder, “You're inviting demons onto the property! You're destroying the balance with the supernatural! We're all in grave danger because to you STUPID kids!”
+
+My mother found both her kids crying in the bathroom, hiding behind the shower curtain. We never visited Great Aunt Rita again.
+
+I had never seen someone own so many books in my life. Every wall in every room was covered in bookcases that were completely full. There was no television, no computer, only books. What's more, they were all perfectly categorized. She had action, fantasy, world history, mythology, science.... whatever you could imagine. I found a first edition of *The Shining*. I even found a section of cheap drug store romance novels.
+
+Most of the books were covered in dust. They looked like they hadn't been touched in years. I had already called the local mission to come get the furniture, so I figured I should box up all of the books and donate them to the local library. While packing up the books I found in her room, I noticed there was one out of place beside her bed. The book was called *Unlocking the Supernatural Realm* by Dr. Barbara Collaros. It had a strange symbol on the front that looked like a five-pointed star in the middle of a sun. For some unknown reason I put the book in my coat pocket and continued packing.
+
+It took me nearly three days to get that old house cleaned out, and I was thankful to be finished. I couldn't quite put my finger on it, but at times the air seemed heavy and the lights in the house seemed weak. I couldn't help feeling like I wasn't alone there.
+
+Once I got back home to West Virginia I pretty well forgot about Great Aunt Rita and her old house. That was until a few weeks later when I put on my jacket and found that book in my pocket. I had forgotten that I even brought it back with me. Later that night I decided to thumb through the worn down book to see if I could figure out what made it so special to Rita.
+
+The book described different kinds of demons and angels. It talked about places on Earth that were hotbeds for supernatural activities. It talked about people who had the gift to communicate with them. All of this stuff seemed pretty silly to me, and I was just about to toss the old book when I noticed she had earmarked a chapter. It was titled “Seeing the Sleepwatchers.”
+
+I had never heard of something called a ‘sleepwatcher’ so I guess it kind of piqued my interest and I started reading. According to Dr. Collaros, the sleepwatchers are present around every one of us at night while we are sleeping. Now I don't claim to be an expert or anything, but she described them as some type of creature that never completely came to be. They exist in the supernatural but they long to be human, and that's why they watch us as while we sleep. If a person were to interact with one, they would be granting it access to the person's being. She said you could see one yourself just by lying completely still in your bed for at least 20 minutes with your eyes closed. Open and close your eyes twice, and the third time you open your eyes to will see your sleepwatcher.
+
+I'm not much for science-fiction so I figured that was enough for me. I had too much other stuff to do around the house to sit around reading, anyway. That night, however, I was in bed and couldn't sleep. I just kept thinking about that stupid book, and some weird spirit thing watching me while I slept. I felt like I was going crazy for even entertaining the thought, but I figured I should just try to see one. Once I tried and it didn't work I could finally put the whole thing to rest and get some sleep.
+
+Feeling like a complete fool, I laid really still with my eyes closed and counting the seconds. If I was going to do this, I was going to do this right. After what seemed like hours, twenty minutes finally passed. I slowly opened my eyes and closed them again. Once again, I cautiously raised my eyelids only to bring them back to rest. I took a couple seconds to consider how ridiculous this was before opening my eyes the last time when... OH GOD!
+
+I couldn’t believe what I was seeing. It was standing in front of my window with its back to me. It had the shape of a man, but somehow didn't seem to be held together. It was the color of light. To be more specific, it was the color of all of the light that previously surrounded me. Everything else was now pitch black, as this creature had absorbed all of the light. I saw it slowly begin to turn towards me when I closed my eyes again. I didn't open them again until the sun came up.
+
+I didn't sleep at all that night. I just laid there wondering if it was watching me. I wondered if it knew I wasn't really asleep. I called the office and told them I was sick. I was in no shape to go to work. I tried to convince myself it was a dream, or that it was just my imagination. But I knew what I saw.
+
+That night I laid down in my bed completely exhausted and scared to death. My body was aching for sleep but I needed to see the sleepwatcher one more time. I forced myself to stay awake for twenty minutes and opened my eyes. Close. Open. Close. Open... it's here.
+
+There it was, standing in the same spot as before. Only this time it was facing me. I looked to its face. It's mouth hung slightly open and blackness swirled as a whirlpool inside. Where there should have been eyes, there was an unexplainable mist. They looked like storm clouds but I knew it could see me with them. The moment I looked we locked into a stare the creature instantly appeared inches from my face, and I could feel all of my warmth leave my body. With a voice that sounded like a combination of a whisper, a scream, and rushing waters the sleepwatcher said to me, “I see you.”
+
+I blacked out. I don't know if it was from the fear, the fatigue, or a combination of both but I didn't wake up until almost midday. As soon as I was able to gather myself, I hit the internet. I needed to know more about Dr. Collaros and the sleepwatchers.
+
+Others had seen them, too. They described them to look like mine. No one really had more information, except that they didn't think we should talk to them. None of the others had made eye contact with a sleepwatcher.
+
+I moved on to researching Dr. Collaros. Barbara Collaros died in 1998. She was found in her bed with her eyes wide open. Her heart had inexplicably stopped beating.
+
+This was too much for me. I decided that I wanted nothing more to do with sleepwatchers, Barbara Collaros, or Great Aunt Rita. I was never going to look for one again.
+
+That night I took sleeping pills to ensure I fell asleep within twenty minutes. As soon as I turned off the light and rested my head on my pillow, I felt something lie down beside me. Suddenly my entire body was cold. I didn't dare open my eyes. Then I heard its voice, “I saw you. Speak to me. I will never leave.”

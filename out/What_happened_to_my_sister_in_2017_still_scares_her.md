@@ -1,0 +1,21 @@
+Before I tell you this story I will be saying in the point of view of my sister, because it will make it easier to understand what happened.
+
+Ok here’s the start:
+
+A few years ago, 2017 I think, I was taking our family dog, Spencer, to our towns local forest. Before you think the forest was a horror zone it was relatively small and parts of it was owned by a water company and another was a protected zone with parts of it just for animals. It was mostly surrounded by sheep fields which is common in the English countryside. These weren’t places that screamed “Serial killer body dumping ground” or “Ghosts of children wandering the forest.” It was a very safe place, unless you do something stupid and fall of a ledge that could brake one of your limbs.
+
+When I was walking the forest at summer around noon (or early afternoon) I noticed something on ground. It looked like a old photo or film reel. Then I noticed on the ground from another point a box, some toys and a old campfire. I went down due to my curiosity and looked in the box. I got really bad feeling, because it was filled with toddler clothes and film/photo reel tapes. I couldn’t see what was on them even if I wanted to. I also saw what I can only guess is a sort of shrine, since it had clothes and burnt out candles. My dog started to cry, I don’t know if it was due to the creepy clothing or due to him being tired (he was a old dog at 11). 
+
+So I left and went back home, nothing happened for about a week, the box disappeared and a just carried on. However, a week after finding it I found something that terrified me to my core. From my house to the forest I found film tape on the hedges in front of the houses. It terrified me, I was tempted to go to the forest to see but it felt to horror movie stupid to do. I told my parents but they didn’t think those were connected since they thought I was exaggerating (which I had done in the past). It just terrified me finding that. 
+
+In 2021, I think during spring, my brother, boyfriend and I went on a walk and followed the same route I took in 2017. I completely forgot about that event until I reached the point where I saw the box in 2017. I told the story to the other two but both thought I was lying, I was dedicated to find proof so I ran down the hill to find the old campfire . I did find some burnt old wood, but that wasn’t enough. That was until I found something that looked like a noose. 
+
+My brother saw it too but my boyfriend didn’t until he came down aswell. My boyfriend thought it looked more like a swing where you’d put your foot in the noose bit and swing, which was possible since it was quite low to hang yourself with. But then my brother said that in Cambodia during a mass genocide there was a tree that soldiers would hang toddlers from it and would be bashed by guns. 
+
+He said it could have been a noose for a child, if I was telling the truth. Even though it could be a huge coincidence that a noose like rope was near a campfire that We decided to return home and nothing else happened. Well to me anyway, my brother went back there.
+
+Ok I am the brother in real life, HydroGammer, and I returned walking there and recorded it (but I can’t find the recording) and went to see if the noose was still there. It was and I avoided touching it ‘cause I didn’t want to get cursed and I moved on. Then I saw birds suddenly fly away from a row of bushes and I thought I saw someone hiding badly in the bushes (however, in the recording no one is there).
+
+Even though I don’t 100% trust my sister’s story it is a scary thought that just less than a mile away from my house there is a possible noose where someone could have took children, took their clothes (possibly pictures) and hanged them and was getting ready to burn the evidence when my sister arrived and saw a box of clothes. 
+
+Just in a small town in the English Countryside. Of course this could be a completely coincidental and exaggerated story, however because it isn’t happening here doesn’t mean it isn’t happening somewhere else.

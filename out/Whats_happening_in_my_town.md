@@ -1,0 +1,15 @@
+I am stuck in my house right now, and there’s no escape, no retreat. The army and the police left us, and these, these screams haunt me… this all happened 2 days ago. I was walking back home from school and saw people rushing to their cars and hightailing it out of there. At the time, I was with my two friends, Jack and Jerome, and we’ve been friends for years and years. As we walked back wondering what’s going on, light rain started to tap our hoods of our jackets.
+
+We walked a little bit faster back home and got inside, by then the rain turned into hail as it batters my roof. Our teenage selves walked upstairs and I turned on my computer, ready to hook my brain on the internet, only to realize, there is no internet. I checked my phone and so did my friends, no service. 
+
+My parents were gone for the week and we started to freak out. I recommend to my friends to just stay at my place till the hail stops and they both agreed. We talked about video games and prom, knowing that we wouldn’t have a date and to just not go. Our conversation was interrupted by screaming from our neighbors, and from something else… 
+
+We ran to the windows and saw it, my friend fainted and my other friend start to puke. It was 7ft tall and was hunched over, it had horns and no facial features except a nose and ear holes. I ducked down as not to be seen by the devil outside my house. *knock* *knock* *knock*, “he-hey man could you let me in p-p-please” we froze, the shadow revealed that it was that thing outside. We slowly walked to the stairs until the thing stopped asking, and starting banging.
+
+It screamed and started to run into the door, my friends and I ran to my room and locked the door. We were all crying and didn’t know what to do. Eventually, it stopped but the rain never did, it became nighttime and we tried to sleep. At around 12:00 AM we heard the things climbing on our roof and screaming, it was hellish and was extremely low pitched. 
+
+We woke up to tapping on our bedroom door. My friends and I all saw the showdown beneath the door. It was 3 creatures waiting for us to move or open the door. We opened the window and bolted outside. We made it to a house that was a few blocks down and rested inside. “I’m not sure if I can keep up anymore” Jerome said, “we can make it through, as long as we can get into a working car” Jack said. That’s our plan, getting into a car and driving off. 
+
+It became nighttime and we set foot for a car. After quietly talking to one and another, we found a old Chevy and got inside. We all nodded and Jack started to hot wire the car. It turned on and the engine blared across my whole town, activating those monsters and they started screaming. We started to pull out of the 7/11 parking lot until something hit the left side of our car. 
+
+The thing broke the window and tried grabbing Jack but failing, and went the right side and ripped the door open. It snatched Jerome and we couldn’t do anything about it. We passed the exit and felt relief wash over. We entered the next city and couldn’t find anyone, and instead we found “them”.

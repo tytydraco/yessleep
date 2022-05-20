@@ -1,0 +1,61 @@
+I hated my goddamn job.
+
+That was probably where this entire thing started. I was a high school teacher in New Orleans and broke as fuck due to having a shitton of debt and poverty wages. For years and years, I wanted out. I hated my students, and the sooner I could get rid of them and retire, the better.
+
+One fine day, I read an article in the newspaper. 'Police bust local organ trafficking ring, arrest 20', the headlines read. As I read the article, intrigued, I had a sudden stroke of inspiration. With this method, I could retire comfortably with much more money than I would ever need. You see, every year, the school I taught at brings the students on a 3-day long international learning journey to Rio de Janeiro, to do charity and all that. It's something of a tradition, and the students came back safe and sound without so much as a scratch on them. Well, I was about to change that.
+
+One fine day, I read an article in the newspaper. 'Police bust local organ trafficking ring, arrest 20', the headlines read. The article was kinda meh until I saw some eye-watering sums of money listed. $1 million for a heart? Wow, those people really were making bank. An intrusive thought wormed its way into my head. What if I worked with such a group? I could be rich beyond my dreams! For the next few days, whenever I had some spare time, my mind ruminated over this possibility. Eventually, the beginnings of an idea floated in my brain.
+
+You see, every year, the school I taught at brings the students on a 3-day long international learning journey to Rio de Janeiro, to do charity and all that. It's something of a tradition, and the students came back safe and sound without so much as a scratch on them. Well, I was about to change that. My genius idea was to accompany the students on the trip, lead them into a trap and get them kidnapped and their organs sold, in exchange for a handsome fee. Yes, I know that's wrong and all. No, I didn't care much back then. I didn't see any problem in leading the little shits to their death, so long as I could profit from it.
+
+First things first, I went to meet my brother. You see, my brother was a gang member who had shady connections from all over the world. To get this plan going I had to meet him and talk to someone. After walking through some seriously seedy hoods, I reached his place, knocked on the door and walked in.
+
+"Listen, Rick, you have any contacts in Brazil? Particularly in Rio?", I asked, after exchanging the typical pleasantries.
+
+"I have a few contacts there I could put you through. But why do you need one?", he asked.
+
+When I detailed my plan, he opened his eyes wide and said, "Sure, I get why you're doing this, but if you're caught you'll be in for decades. You sure you thought about it?".
+
+"Yes, I've thought about it.", I replied impatiently. What did he take me for? A fool? I knew the risks, and I knew how to be safe too.
+
+"Right then, I'll talk to someone who does these things. Be here this same time tomorrow.", he replied, after which I left and drove back home.
+
+The next day, as soon as I returned home from my job I changed my clothes and drove to his place. As it turned out, he didn't trust me with communicating with his partner through my own devices, in case someone tracked it after the crime, and instead insisted that I use his secure, encrypted laptop. His Brazillian partner was a rotund, balding man in his forties called 'Carlos', to who Rick had apparently introduced me. Once I outlined my rudimentary idea and laid out the itinerary of the students' trip, we hammered down the nitty-gritty details of this operation.
+
+"On the second day, bus goes to highlands. Is that right?", he asked.
+
+"Yes, that's where we're heading.", I replied.
+
+"Okay, then this is our plan. Along route in hills, I put fake police at road to stop bus. When everybody distracted, my men come and kill the adults and gas the kids. We take you and the kids and go base. Then, we bring you to our place in city.", he said in broken English. Finding it to be a pretty sound plan, I agreed and we began discussing the minute details. Including my payment.
+
+"We give you 5 million real. Paper money.", he said. I frowned as I didn't want to leave much of a trace of this entire operation. Sure, paper money was somewhat untraceable, but it wasn't worth the risk of being found and seized. Eventually, I managed to negotiate it down to a mix of Monero and real. Ending the negotiations, I closed the laptop and left.
+
+I drove home with a wide smile on my face. Finally, I was going to retire and have some fun. I was even going to get rid of these irritating kids for good! What more could I ask for? The next day, I headed back to my brothers' to continue discussing the plans, where we discussed how to keep in touch. Eventually, we planned to keep in touch with a burner phone, which I would destroy before leaving the city to get a new one in Rio. We also arranged for one of his guys to deliver me my very own secure laptop, which I could use to collect payment and plan things, among other uses.
+
+After what I was about to do, I knew that this would be the last time I was seeing Rick. Not one for a teary farewell, I turned around and said, "Alright Rick, we probably won't see each other again. So, bye and good luck in life!". "Alright, good luck! Don't get caught!", he responded as I left.
+
+The month leading up to the big day, I simply could not wait. I could barely sleep from anticipation and anxiety, and only the thought of finally leaving kept me going through one month of drudgery. The days before I was slated to leave, I took one last look at my dingy apartment, and began systematically destroying any evidence of me planning anything. Remember, I was to look like a fellow victim, and there wasn't supposed to be anything which could implicate me, or worse, track me. I also made a last phone call to my brother, with all the normal stuff one might talk about rather than anything suspicious. Just in case they somehow tracked something during the investigation. I knew that he, too, was removing any traces of his involvement.
+
+The day I boarded the plane, I was over the moon. Of course, it was not at the thought of a fun vacation or whatnot, but rather at the fortunes I was going to amass! When I landed, the first thing I did was to buy myself a new burner phone with a new SIM, to contact Carlos and the team. I met with one of his guys at the back of the school hostel we were staying in and received the laptop complete with a fake receipt and all. That day, I could barely sit still as we carried out the onboarding. All the things we were showing were going to be useless anyway, seeing that they were going to die before doing anything...
+
+The next day, as planned, I, the other two teachers and all the students were taking a bus up to a town in the highlands, where we were to help the local school. The bus ride was one and a half hours each way, and perfect for this kind of plan. I mentally rubbed my hands together in glee as I saw the 'policeman' come out from his post to stop the bus. The other two immediately began discussing nervously. "What is he here for? What if he wants a bribe?", they whispered.
+
+Oh, if only they knew.
+
+The policeman entered the bus. As the other two teachers shuffled towards him, he shot them as well as the bus driver in quick succession before screaming 'Hands up! Don't try anything funny!'. As we planned, I pretended to panic and raise my hands in fear. All the kids screamed in fear and panicked at their fate, but none of them dared to move a muscle. Perfect. As promised, a bunch of other men stormed in and gassed the bus, and I fell unconscious like the kids.
+
+Hours later, I woke up in a bed in what must have been the place where the organ traffickers did their dirty deeds. One of Carlos's underlings was stationed at the door and told me to freshen up and meet Carlos in the room down the hallway. After washing my face, I walked down the hall and heard some of the students I delivered here struggling while their organs were being cut out. In one of the rooms, I saw an absolute shitton of organs categorised and put in ice! Hearts, livers, kidneys, eyes, intestines and much, much more. I smirked in delight, knowing that I must have made the cartel millions.
+
+"I sent money. As you said. We bring you to house later.", he grunted. As he said, I was blindfolded and then driven to a decently-sized two-bedroom apartment in a shady part of Rio. Upon reaching my new home, I opened my laptop and looked, and lo and behold, all my crypto payment was there! I also got some of my paper money delivered there. Next, I searched up the news, and this kidnapping had apparently become a huge issue in my old home, As expected, I was stated as one of the victims, as we left no evidence of my deeds behind. I laughed maniacally at the tearful parents sobbing and whimpering about their kids and begging for their safe return. Their tears were like nectar to me. Now I was filthy rich and the little shits were gone!
+
+And what, you think that after living here for years like a king, I would divulge all of this to you? No, I'm telling you this because of my subsequent downfall. I suppose this is reasonable payback, for all the things I did.
+
+I suppose it started with the lingering feeling of being constantly watched and followed. It was like something was out to get me, watching me for every second of my life. With this, came a feeling of paranoia. I was already careful and guarded as it was, but I suddenly began to suspect everything and everyone was out to get me, and could never feel safe even in the privacy of my own home. Even in my sleeping hours, I experienced horrifying nightmares that would leave me unable to sleep for the rest of the night. Eventually, I even stopped going out altogether, unable to do more than wallow in fear, misery and paranoia in my own home.
+
+The final blow to my peace of mind, if any existed in the first place, was when I looked in the mirror one fine morning. The reflection was a horrifying, grotesque version of myself with no eyes, tongue, and a giant hole in my body! I screamed and fell backwards in shock and terror, unable to even think of anything more than getting away. In fear, I didn't sleep for three nights straight, instead choosing to stay up with bloodshot eyes in fear of something happening to me.
+
+And, well, something did happen. Just an hour ago in the middle of the night, I heard a sudden thud in the nearby room, terrifying the daylights out of me. A few minutes later, I hesitantly, slowly, walked over to the next room clenching a knife in my hand, my heartbeat roaring in my ears. When I went there, what I saw shocked me! It was a grotesque mess of muscles, bones, eyes, brains, and more, leaving a trail of red slime wherever it dragged itself along. But worse than that, it's screaming... its bloodcurdling screams were absolutely horrific. As soon as it saw me, it did not hesitate to charge at me and pounce on me. As much as I screamed and resisted against it, there was nothing I could do as it slammed me against the floor again and again.
+
+Once it saw that I was down, it began to rip into my body. In intense agony, I screamed as my skin and body were torn up and my organs were ripped from me in quick succession. No matter how much I whimpered and begged for it to stop, it relentlessly tore up anything of value I had in me. Fully conscious and unable to die, I felt the full effects of what it was doing to me. My bladder, lungs, kidneys, everything was tortured and mangled. In the end, I was left worse than roadkill, but still fully alive and awake to feel everything. Before leaving, it whispered one thing in my ear, in a voice that sounded like nails grating on chalk. 'I am the Disemboweler. And I punish the evil."
+
+And here I lie brutalised. But for the things I did, maybe I deserve it. Maybe I deserve to be reminded that nothing is without its effects, that everything comes with a consequence attached to it, even if in the name of 'The Disemboweler'. And damn, did I pay the price.

@@ -1,0 +1,31 @@
+
+
+I love being an Archaeologist, I really do, after struggling through minimum wage kitchen and retail work it was truly a dream come true to get my first job in archaeology last year. 
+
+My first job was working for a national commercial company in England. Going from working in a cramped attic pub kitchen to travelling the country excavating Roman farms and Anglo Saxon cemeteries was truly a life changing experience and for once i was looking forward to going to work. 
+
+But some things that were buried in the past should remain buried, i know that now, let this story be a warning to those who go out searching for our past, somethings were forgotten for a reason. 
+
+It all started late last year, after spending half a year working away, i got a job working for a local archaeology company so i could stay at home with my girlfriend, the office is 5 minutes walk from my house everything seemed perfect. 
+
+My first project was a site just outside the city, a Roman / late Iron age site and a rather special one at that. The finds and the shape of the site indicated a temple or at very least a shrine which for a relatively inexperienced archaeologist was exciting and for the first 6 weeks work carried on as normal but my desicion to excavate one large pit changed everything. 
+
+The pit lay just south of the main temple comolex and on first view there really wasn't anything out of the ordinary, it was just a large circular pit, but once i began digging i started to uncover deer antlers... not just one or 2 but almost 10 (i say almost 10 as one was just the part of an antler), again a little strange but nothing extraordinary, but what was was a ring of antlers placed at the bottom with a pile of copper coins laying in the middle. 
+
+After the standard archaeological recording and taking photos it was time to bag up the antlers and move them into temporary storage. Now the temporary storage on site was a shipping container used to store tools and finds until they are picked up and moved to to the company archives, this was when it all began. 
+
+It was a cold december friday afternoon when i placed the bagged antlers into the container and after packing up the rest of my tools and saying goodbye to everyone i went home for the weekend not thinking much of it. Arriving to work on monday and after opening the container i was greeted by a spilt bag of antlers lying on the floor. At the time i didn't think much of it you wouldn't would you? I assumed that i just had left the bag on top of the pile and it had slipped off over the weekend, so i just picked it up and put it by the finds box. 
+
+2 weeks went by and the site drew to a close, as it was close to Christmas there was no new site starting up until the new year so me and my colleagues on the site went to spend the week before Christmas working in the archives. The building that houses the archives is an old run down building in a industrial estate and with very poor heating a very creepy building at the best of times, but sitting in a room cleaning skeletons and other finds with a toothbrush really adds to the asthetic. 
+
+It was the last day before the christmas break and the vast majority of the finds had been cleaned boxed and were ready to be taken down to the archive however, one bag remained...the bag of antlers. 
+
+Now i had completely put out of my mind the thought of the bag of antlers spilled out on the container floor, but i was amazed by how well preserved the antlers were after being cleaned of dirt even after being in the ground for 2000 years but never the less they were cleaned placed in a box, labelled then i took them down into the archives and placed onto a shelf. 
+
+Once this was done it was almost time to go home for christmas, it was already dark out by this point and the lighting in the archive really isn't the best, after all it is an old building, me and my 4 colleagues (all in our 20s) decided the best use of the remaining time we had on shift would be to turn all the lights off in the archives and hide between the shelves basically a game of hide and seek(mature i know). 
+
+So one of my colleagues flicked off the lights and we all began to hide. All i could see was the silhouette of the shelves in the dull green light being emitted from the emergency exit signs. One after the other i could here the screams of laughter as people were caught leaving only me left, well so i thought... i began to slowly slide between the shelves making my way to the light switch with the intention of switching them on and scaring everybody. After 5 minutes of shuffling quietly to the switches something caught the corner of my eye. My first thing that sprung to my mind was "shit they found me" but to my suprise the shape didn't move it just stood there against the back drop of the green light highlighting its silhouette, it was tall, almost 7ft by my reckoning with 2 large objects petruding from its skull, the objects... antlers. 
+
+I stood there stunned for what seemed like an eternity, before i managed to muster enough strength to scramble towards the lightswitch and turn the lights on as soon as i did the figure vanished into thin air. I rushed over to where it stood with renewed energy, almost angry that my mind was playing tricks on me, thats where i saw something that shocked me to my core a box placed in the centre of the aisle between the shelves where the figure had stood. I recognised the handwriting on the box, it was mine and what was written on the box...antlers. 
+
+I got out of there that day without telling anyone what i saw, they must of seen i was spooked, if they did they said nothing. Through out the christmas break i had constant nightmares of being locked in the dark archives with the figure stalking me between the shelves, i still try to rationally explain what i saw, luckily after the christmas break i was back out on site, i haven't been to the archives since and i don't plan to. Me and my girlfriend are moving away in a couple months and i will need to find myself a new job, i love being a Archaeologist, i really do but after this experience i've been constantly looking over my shoulder worrying should i continue being one? Or should i look for a new career?

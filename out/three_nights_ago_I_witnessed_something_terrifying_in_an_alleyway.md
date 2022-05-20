@@ -1,0 +1,31 @@
+I live in a moderately sized city for being in the middle of Iowa and every night while walking home from work I have to walk through the (mostly) abandoned area of the city. Usually, I dont encounter any issues, other than the few homeless people that stop me to beg for money or drugs. I am very aware how dangerous areas like this could be, but if I were to go around it, my walk would be nearly half an hour longer than if I just went through it. I am usually very exhausted after a long day of work at Starbucks (before any of you say Starbucks isn't hard work, yes it is-but were not here to discuss that right now) and all I want is to get home as fast as I can and get right into bed. 
+
+Now, last night I didn't see anyone around when I started nearing this area and usually I'll see a homeless person or two sitting on the ground or pacing around and no one was anywhere to be seen. I made a note of how odd this was and started walking quicker than my usual brisk walk that I do when I go through that area. I kept on for a few minutes like this, the air was still and it was dead silent. I was getting super creeped out by this as there is always at least a little bit of noise- animals, the breeze, people talking or humming- and this put me on high alert. 
+
+I started walking even faster, almost jogging, when I heard it. Fast footsteps-urgent ones. This immediately sent me into panic and I started sprinting. I was dodging garbage and old furniture and other obstacles left and right for what felt like an eternity. I was so scared that I clumsily tripped over a tipped over shopping cart and fell flat on my face. The running footsteps got closer and I scrambled under a nearby car to hide. 
+
+I tried my best to hold my breath and be a silent as possible so I wouldn't be found by whoever I assumed was chasing me all this way. Then I heard a screech. That's the only way I could describe this noise. It wasn't human. It was shrill and animalistic.  From my hiding place under the broken down car I could see someone- a man- run into the alleyway that I was in and lean up against a wall, also trying to hide. That was when I realized I wasn't being chased by this man, he was being chased by someone- or something- else. I believe he was trying to hide from them, or it, by ducking into this alley and hoping it would just run past. 
+
+I watched in horror as it leaned around the corner and grabbed him. I wasn't able to get a good view of it but I could see a long-fingered and boney hand reach out and grab his shoulder and whisk him away. The hand was pure white-aside from the visible grime that I could see even from this far away, and it had the longest and sharpest fingernails I had ever seen. They were more like claws, I think. 
+
+I heard the man scream, the most gut wrenching and blood curdling scream I had ever heard and then a loud thud on concrete, followed by some kind of scraping noise. 
+
+I laid there, stunned for what felt like another eternity and tried to collect my thoughts. I thought that maybe I was having a nightmare. Then, the creature dragged the man's unconscious body further into the alley to where I had a perfect view of everything taking place. 
+
+The creature was long and skinny and white. It was like a human, only not. From what I could see in the moonlight, it had a face with sunken in and black eyes and a mouth that hung agape unnaturally, like how a snake can unhinge its jaws. The creature had long stringy, jet black hair that hung in front of its face as it hunched over the man. It was covered in dirt and blood and it moved so fast.
+
+ It was like watching a horror movie, and I couldn't look away as the creature took its claws and started gutting the man. I watched as it dug out some flesh and organs and started shoveling handful after handful into its mouth. The sounds that the whole scene made were unforgettably horrific. It was a mixure of huffing and wheezing, along with sloshing and gurgling and other indescribable noises. 
+
+When I was finally able to squeeze my eyes closed all I saw was replays of what I had just witnessed in my mind. My heart was pounding so hard in my chest I was worried that the creature would be able to hear it from twenty or so feet away.
+
+I laid there, under the car with my eyes squeezed shut for a very, very long time. Until I realized that the sounds has stopped. I was scared to open my eyes, in case the creature had found me and would be waiting right in front of my hiding place, waiting for me to open my eyes and notice it. 
+
+When I finally gained the strength to open my eyes I did not see the creature. I saw a pile of red mush on the ground where the creature had been devouring that man previously. I didn't have much of an opening to see any of my surroundings so I had no idea where the creature had gone. 
+
+I wanted nothing more than to get the hell out  of there as fast as I possibly could but I realized that I could be found by that thing and have the same fate as that poor man. I waited under that car, completely still and silent until daylight, freaking out for hours about how I was going to get out of there, and when I did, what I was going to do about witnessing this horrible, horrible nightmare. 
+
+When it was thoroughly bright outside I finally pulled myself out from under the car and got onto my feet. I didn't waste any time looking over at what used to be that man, laying on the concrete, and sprinted the entire two or so miles home. 
+
+When I got there, I threw up over and over again in the toilet. I didn't sleep. I still haven't slept. It's been 3 days now and I haven't been to work, haven't ate, haven't slept and I don't know what to do. All I can see and all I can think about is what I saw. It's eating me alive, just like what happened to that man, only from the inside out. I cant live like this, and I don't know if I can ever forget about this happening. Who do I talk to about this? The police? Area 51? Would anyone believe me? I wouldn't believe me, stuff like this isn't real. But it is real. And I saw it happen right in front of me. 
+
+I think im going to try to sleep now, it's after 3 am again and I don't know if I can even finish writing this without fainting. I hope I don't dream about this if I'm able to sleep tonight.

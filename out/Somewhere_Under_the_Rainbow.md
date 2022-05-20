@@ -1,0 +1,27 @@
+They always tell you that when you reach the end of the rainbow there is a pot of gold. This could be a good thing or a bad thing depending on the lore. Well, I'm here to tell you it is neither good nor are there little green leprechauns guarding their treasure.
+
+The rain had been pounding for three days straight. Loud thunder reverberated from the nearby mountains with each bolt of lightning. Thankfully I worked from home and had enough food to last me until the storm broke so I didn't have to venture out in it. The night it was supposed to let up I figured hell it's Friday, I've been cooped up, and the fish will probably be biting fantastic in the morning, so I'd wake up early and take a trip down to my secret fishing hole.
+
+It was a little after 4 am when I reached my favourite place on earth. It was about an hour before sunrise and there was only mist remaining from the storm. I was pretty lucky with my catches, I got a couple of really nice 5-7 pound largemouth bass and even a nice size pike. To top everything off when the sun began to rise the most vivid rainbow I had ever seen materialized right over the lake ending a little past the tree line to my left. 
+
+I figured that I could set up my phone in a tree to capture myself basking in the glow of colours. I've seen those pictures and videos of all the people standing under the end of the rainbow and always thought they were real, after what I experienced I now believe they all must be photoshopped. 
+
+I trudged through the brush until a grunting noise alerted me that something was there. I tiptoed slowly trying to catch a glimpse of what it was. My sense of childhood wonder thought it just might be a leprechaun but, no little green man that awaited me. In a clearing under the magnificent gleam of the end of the rainbow sat the most awe-inspiring apple tree. The tree was as if it was the muse for every childhood drawing. Broad deep brown trunk, massive limbed branches, thick luscious green leaves, and bright red apples peering out as if to say hello to a new day. What luck, a nice juicy apple was as good as a pot of gold in my mind. So, I went climbing to snag one myself and enjoy its deliciousness. 
+
+Not only was it such a beautiful tree but the grooves in the trunk and the perfectly placed branches seemed to be made to climb up to sample its delicacies. I climbed the 20ft reaching its foliage noticing the perfectly shaped fruit a mere lean away. Reaching out I grabbed the apple plucking it from its life source and made my descent down. A fruit as beautiful as this deserved to be eaten leaning against its maker. 
+
+Snuggling up, nestling myself into the roots I took a bite. The apple was the perfect balance between sweetness and tart sliding down my throat as if I had just drank a glass of juice. I tore into another bite with haste unable to help myself from the sweet delicacy. I devoured the fruit as if I had gone savage, so transfixed I did not notice the groans coming from behind me.
+
+The tree scraped against my back as I finished its offspring. I glanced back thinking maybe I was falling into a deep slumber like Snow White eating the Evil Queen's gift. It was not me that was slumping over but the tree itself that was rising. Jutting out of the earth were two long solid roots fashioning legs. I scrambled back dazed by the sight before my eyes. One of its newly made legs tendrils shot out grabbing me by the ankle and lifting me up. I dangled upside-down with nothing to grab onto to free myself. A face formed where I had climbed moments before, fluttering its newly made eyes and cracking its jaw. 
+
+"You climb my face, Use me as your climbing toy, and steal my young and devour it, for that I shall return the favour" the gruff voice of the tree bellowed.
+
+With that, he threw me to the ground knocking all the air from my lungs. I gasped for air as his giant leg came down slowly pressing on my face. My nose cracked under the pressure gushing wet liquid down my face to the ground. Sticks poked my face but thankfully avoided my eyes, not that they were of any use because they were welled up with tears from the pain and shock. 
+
+After the tree felt I had had enough it lifted its limb before grabbing me with his branch. It wound up chucking me against a tree, intense pain erupted as my arm shattered. Without reprieve, the branch grabbed me again in time for the tree to once again speak, "Now I will delight myself in a delicious treat".
+
+It began lowering me towards its now gaping mouth and all I could do was stare up in the basking of the sun enjoying the ill-fated rainbow. I couldn't even enjoy that last little bit of peace because as my lower half entered the tree a cloud passed over the sun severing the vibrant colours. I closed my eyes as the last of the colours faded knowing this was the end.
+
+A jolt of pain reverberated through my back, I was once again on the ground. I opened my eyes looking around but the tree was gone. The rain started to cascade on me as a new storm approached. Getting my bearings I got up backing out of the space where the mighty tree once stood. No dirt or grass was out of place, there was nothing to show where the tree once stood.
+
+I raced back to my car as fast as my broken body could move, leaving my fishing gear and heading home to clear my head. As I arrive and begin to hobble into the door, sitting on my stoop was one perfect delicious red apple.

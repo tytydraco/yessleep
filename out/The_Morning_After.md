@@ -1,0 +1,14 @@
+Recovering from the mixed hangover of alcohol and regrets of last night, I half-heartedly called him. A part of me was hoping that he'd miss the call. But he didn't. He never did. That's what enraged me more, that he constantly provided me with opportunities to be dependent on him. He always laughed it off whenever I said this, but I knew him inside out. Or maybe I didn't. He never told me anything about what went on with his life, but fascinatingly, he knew the exact amount of crispiness I preferred in my breakfast toast. Or the shade of pink that I detested.  
+ 
+
+I found him already sitting in the outdoor dining area of the café. It always amazed me as to how he was always the first one to reach. Not that I was unaware of the virtue that punctuality is, but he was always before time, even if it meant reaching a minute ahead of me. Not to forget, he always knew when I arrived. Even when he was deeply engrossed in reading The Shining, the only book that he carried everywhere with him, he somehow always looked up at the door the moment I walked inside - be it a café, a bar, or his tiny, but neat penthouse apartment. He sensed my entry this time as well, and met me with a smug smile, as if to point out the fact that I was "late" yet again.  
+ 
+
+As I sighed and sat across him, he signaled for the waiter to come, but even before the waiter could hand us over the menu cards, he smiled and asked for an omelet with "a lot of black pepper powder but no onion" sprinkled on it for himself, and a "super strong" black coffee for me, knowing full well how much I hated it, but how it was the only instant cure to my hangover. He looked at me and smirked; I frowned.
+
+"How many?", he asked in his borderline baritone voice. If I didn't detest him as much, I could have fallen for him just for his voice. "Five.", I sighed again. "Whoa, you're on a roll, Eve! You do know that 5 men is a lot for a single night, don't you?" "And you do know that I work for you Victor, don't you?" Another smirk. "So, did you have fun?", he winked. That sly son of a bitch. "You know I wouldn't have ever worked for you if it weren't for the money." "Well, sugar, you needed the money, and I needed someone who looked pretty to do the job. Men ALWAYS fall for the pretty ones, because they think with..." "Sir, your omelet. The coffee will take a few more minutes to get perfectly brewed." Fucking luck.
+
+He dug into the egg like it was the first time he'd ever eaten it. "For how long do I have to do this, Vic? For how long do I need to kill strangers and scoop out their eyes? Do you even know how much it creeps me out? You are lucky that I haven't chickened out. Yet."  
+
+
+He stopped eating and looked me dead in the eyes. Then smiled. "Honey, just till we gather enough eyes for me to offer to Satan."

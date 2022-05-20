@@ -1,0 +1,13 @@
+The world is a terrifying place. No, I am not talking about war, famine  or serial killers. I am talking about true terror; the things that hide under your bed, skulking in the shadows, waiting till they can take your last breath. That is the true cruelty of the world. My name is Sophia Blanch and I am known as a “protector” of earth, and of the human race; to keep peace between all worlds.
+
+The protectors are a race whose sole purpose is quite literally protection I suppose, the clue being in the name and all. I am not entirely sure how long we have been around, but this has been a part of my family for generations. To the normal person my life is anything but, to me however, its as normal as working a nine to five in an office building. 
+
+My first encounter was at the age of twelve when I was unaware of the world my parents saw (16 was the age of initiation) which unbeknownst to me would be one of the worst days of my life; my parents were always the protective type, but I never knew why. One day on a bitter October afternoon my father and I were walking through the woods near our house enjoying the beautiful fresh air, my mother god knows where, when suddenly all the sound got sucked out of the world, no sounds of nature all I could hear was my own suddenly shaky breath. 
+
+A blood curdling scream piercing the silence so immediate it made me jump out of my skin. My father breaking into a run realising it was the scream of my mother. All my nerves screamed at me to run home and hide, instead I did the opposite. Running behind my father towards the horrific noise, trees scratching my skin and battering me in the face, until I reached a clearing so quick that I almost fell face first onto the hard ground.
+
+With the sunlight almost gone I could barely make out the scene before me. My mothers face looked strange; terror in her eyes, but also some type of peace?  Her body completely drowned with deep, red blood, complexion white as a sheet. Her stomach was ripped open knelt in front of her open crevice was a man? A monster?... Shaking, I stepped backwards cracking a twig in the process, this creature’s head whipped up faster than lightening, huge black voids stared back at me, piercing into every inch of my brain. 
+
+The teeth were the scariest of seen; sharp and long covered in blood and my mothers’ viscera. The body on it was obscure, looking just like a humans but somehow wrong, too gaunt too miss matched. How can such things exist??? That was the last question I asked myself before I was grabbed from behind so suddenly and my whole world snuffed out like a candle turning everything to complete darkness. That is when my world changed forever. Did good things still exist? Was it all a dream?
+
+To be continued….

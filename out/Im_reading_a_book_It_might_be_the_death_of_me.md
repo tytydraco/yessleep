@@ -1,0 +1,21 @@
+I just got off of work and wanted to go home and relax maybe get a glass of wine and read a book. When I got home I grabbed my bottle of red wine and poured myself a glass I then went over to my book shelf to grab a book to read.
+
+Looking through i wondered what I would read today a romance novel or a horror story, I decided horror so I looked through and I found one but I never remembered buying this one. It was called "Little Did She Know"  it had no picture on the front just plane black, I decided to read it wondering what it was about.
+
+I sat down on my couch with my wine in my hand and the book in my other and opened it up it started off with "The woman sat on her couch exhausted from work with a glass of wine and a book". I was shocked the person the book was describing was me but it couldn't be so I decided that I should continue reading.
+
+"The woman was confused but went on, little did she know a man was outside her house watching her" I could see that this story was gonna turn into a intruder break in where the girl would have to survive. I went back to reading the story "As the woman kept reading the man got closer to the window eyeing his victim down knowing tonight he would have another". I knew the woman must of been blind for not knowing that someone had been looking at her through the window I literally just wanted to tell her he was outside but it was just a story.
+
+I took another sip of wine and went back to reading "The woman took a sip of her wine and went back to reading not knowing the man outside he pulled a knife out of his jacket and was about to start scraping it across her window". That's when I heard scraping across my window I froze and slowly looked up and there he was, the man was wearing a skeleton mask and had a black hoodie on holding a knife as he scraped it across my window. 
+
+I screamed and ran locking myself in my bedroom, I then pulled my phone out of my pocket but then realized it was dead. I knew I was screwed, I realized I was still holding the book in my hand realizing everything it said came true I read mot of it. "The woman realizing the book was about went back to reading it she had know other options due to her phone being dead" I then heard my window smash from the living room and realized he got in.
+
+I then went back to reading"the woman was scared knowing the guy got in thinking the book might have something to help her". I then heard footsteps walking around and someone yell "Come out and play" I was at this point shitting myself knowing that I might die, if I died this way due to reading a book I then remembered my mother always telling me to get my nose out of my books and enjoy life.
+
+If I survived I was gonna due what my mother wanted me to do I looked back at the book and started to read "The man got closer to the door" I heard footsteps getting closer. "The woman knew the man was getting closer she hoped she had something to defend herself with" I that point I remembered I had a gun stashed away in here under my bed I got down on my knees looking under my bed.
+
+I then heard the man start slamming on my door "Open the god damn door now" the slamming got louder, I then found the case it was in I pulled it out and then pulled the gun out and loaded it. All of a sudden the man started to break the door he was breaking a hole in it I read the book "as the man was about to break in the woman knew what she had to due". I looked over and aimed the gun and yelled "I have a fucking gun so stay back" he laughed.
+
+He then broke a hole in the door and looked through I opened fire shooting him in the the forehead he went backwards, I started to cry I actually did it I shot a man. I got up and went over to make sure he was dead I opened the door and there he was laying lifeless. His mask had blood running down it with a hole in the forehead I thought I was gonna puke, I had to try and get ahold of myself to Make sure I didn't.
+
+I went back over to the book and picked it up and continued reading and what I read sent a chill down my spine "The woman killed the man and went back to reading but little did she know there was another in her house ready to slit her throat" I dropped the book.

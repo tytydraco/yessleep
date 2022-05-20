@@ -1,0 +1,36 @@
+I live in a city in upstate New York. I walk to my shitty gas station job every night, and home every morning, occasionally I'm lucky enough to see the sun rise before I pass out in bed in my tiny apartment. That's been my routine for years, but yesterday something weird happened while I was walking home. There was no one else on the street, which is pretty typical at 4 AM, and just after I left the gas station I heard a soft thump behind me. Startled, I spun around, only to see a small leather book resting on the sidewalk, and as expected, no one else in sight. Now as I've established my life is pretty boring, and I'm a curious sort, so I picked up the mysterious book and flipped it open to a random page. I discovered pretty quickly that it was a journal, and decided to bring it home with me, at best I could maybe get it back to its owner, or at least nose my way through someone else's business. 
+
+But let me tell you the thing was pretty batshit. I'm starting to think it was just someone's creative writing project, or even a prank. Maybe someone saw me walking alone and threw it off a roof or out of a window and it hadn't just magically appeared like I stupidly thought. But I wanted to share it with someone and this seems like a good place to do it, maybe it'll sound familiar to one of you guys.
+
+April 12th, 2009
+
+It was April fools day. I honestly thought everyone was messing with me at first but if they were they're incredibly dedicated to the prank. Because I haven't seen another living being since. I woke up April first, and went to the gas station for a pack of smokes and a breakfast sandwich on my way to work. Didn't think anything weird was going on until I pulled open the door to find... no one. The store was empty, shelves were stocked, food was cooked, but no one was around. I waited for a few minutes, before I figured they must have had some kind of emergency, there was usually just the one kid on duty that time of day so if he left the place would be empty. I shrugged, grabbed the stuff I wanted and left the money on the counter. 
+
+A few minutes later and I was waiting for the bus to take me the rest of the way to my job, I worked at an insurance company before all this. Only the bus would never come, neither would any of the other people I usually chatted with while I waited. No crazy Marvin the construction worker, no updates from Darcy about her nasty divorce, I even almost missed the wave of college gossip from that sorority type, what was her name... Kayla? I guess it doesn't matter, after a while I gave up and called work to tell them I would be late, no one answered. Then I started walking, it was about 5 miles to work. I don't know why it took me so long to notice the complete lack of traffic, and the near total silence. I was within a few miles of the thru-way, how was there no road noise? Hell there weren't even any birds, just nothing but the occasional rustle of leaves in the breeze.
+
+You can probably already tell what happened the rest of that first day. My confusion turned to panic when I found work just as empty as everywhere else. I tried to call family, friends, hell I even tried local businesses, just desperate to hear another human beings voice. There was nothing. It's stayed that way ever since. Every day I wake up, I go to that gas station, the food is still there, it's not rotten or anything, I don't know who's making it but at least I wont starve. Maybe writing in this thing can help me keep my sanity. I wonder if anyone in my building had an xbox or something, I was never much for that kind of thing but I'm damn bored, and the power's still on, may as well try.
+
+April 13th, 2009
+
+It took me a bit to realize it, but the sun isn't moving. It's like perpetual dusk outside. My watch still works so I can still track time but it's another thing to add to the list of weird shit going on. I stole the master keys from the main office and broke into a few other apartments in my building, all empty of course but I actually found an xbox 360. It wouldn't turn on though, just had a flashing red ring around the power button. Guess I'll watch Lord of the Rings again.
+
+April 20th 2009
+
+I can't stay here anymore or I'm gonna lose my damn mind, I'm gonna hit the magic gas station one more time to stock up on supplies then I'm getting out of here. Some of my neighbors drove, I found a set of keys to a Toyota in one of their apartments. I'll just hit the panic button to figure out which one it is. I never learned to drive but how hard can it be? I'll update when I stop for a rest.
+
+Update: Panic button was a bad idea, something heard it. I barely heard the first honk when the screaming started. Piercing and hollow at the same time, I had to cover my ears and dropped the keys in my panic. I'm hiding in the gas station right now. I heard something, something big, running towards my apartment building. But it sounded strange, the footsteps were heavy but sharp sounding, like someone strapped dinner plates to their feet. Does that make sense? It probably doesn't. 
+
+April 21st, 2009
+
+
+It's hard enough to sleep on a gas station floor under normal circumstances. At first the sound of the distant car alarm was the problem, but then came rending metal and shattering glass, the silence that followed was momentary. Then came the screaming again, then crying. Like the wailing of a neglected infant. I don't know what possessed me to do it, but I chanced a look outside. It was distant, but unmistakable. A porcelain doll, standing at least 15 feet tall, wearing the remains of what must have once been a frilly dress, knotted, ragged hair clung in pieces to a half bald white scalp, it shambled dumbly, almost aimlessly, then it's head snapped in my direction with an audible crack, even at distance. Half its face was gone, revealing a hollow black interior, one lifeless black eye gazed in my direction. My breath caught in my throat and I ducked back behind the counter. It hadn't seen me, I know it hadn't. But it's getting closer, slowly, over the course of hours it's been making its way down the street. The smell hit not long ago, like rotting meat someone tried to cover up with a flowery perfume.
+
+My watch says it's about 4 AM, I'm certain the thing knows where I am, the clacking footsteps stopped right outside the station an hour ago and it hasn't budged since. The smell is enough to make my eyes water. I'm just going to hunker down here and try and wait it out, maybe it'll get bored.
+
+
+April 22nd, 2009
+
+It's been 24 hours, it's still out there. I need food and water, I need to piss. I can't go anywhere that isn't behind this fucking counter. I'm getting desperate, and the thing seemed slow, I mean it took hours just to meander down the street right? How fast can it be? I'm gonna make a run for my apartment building, I remember where I found another set of car keys, I just have to find the car and get out fast. Wish me luck, I'll update soon.
+
+
+And that's it, back to me here in 2022, that's all the guy wrote. Like I said, pretty sure someone is just messing with me. Though, I'm just now noticing how quiet it is outside, and the sun seems awful low for this time of day. Maybe I just need to get back to sleep, it's probably just the journal creeping me out haha.

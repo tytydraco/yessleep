@@ -1,0 +1,23 @@
+Hey ! This is my first post on reddit and I think I will talk a bit on this website. Anyway, I'm french so maybe my english can be a bit bad but this won't bother a lot. (This account isn't a throwaway account.)
+
+Something happened on my birthday, the 24 august 2021, and sometimes I remember of it and I think "where can I talk about this ? This is something pretty weird so maybe some people could listen to this story etc." so I created a reddit account just for that. Anyway, let's get straight to the point:
+
+This was in the night between the 23 and the 24 august 2021, I woke up in the night for no reason and, like I always do when this arrive, I look at the ceiling for like 15 minutes and I go back to sleep peacefully. But this time, I heard strange sounds next to me. U have to know that, when I'm in bed in my bedroom, there's my desk at my left and my door at my right (and walls in front and behind me); the sounds came from my left.
+
+My eyes were really tired and it was very dark in my bedroom but I could still see something behind my desk chair. It was like a blurry black silhouette of a man with a round hat (I took some photos, I will explain why later). This terrified me, but I decided to continue looking bold and I stared him until I thought this was just a hallucination and decided to go back to sleep. But some seconds after, I started to hear like breathing noises coming from the silhouette. I directly opened my eyes and turned my head towards him. He was a lot closer than before, between my desk chair and me. I was more and more stressed and just looking at him made it hard for me to breathe correctly. And I knew it was completely absurd and that I shouldn't do that in this kind of situations, but I took a picture of the silhouette... (see picture 1)
+
+I didn't want to look at the picture I just took because the thing could possibly keep getting closer to me if I looked away, so I continued to stare him. For long minutes, he did'nt move an inch and my eyes were getting more and more tired. I decided to hide under my blanket et start to sleep. I closed my eyes and I heard a harder breathe around me. Even if I thought this were my last moments, I just took my head out of my bed and saw his eyes. He was a lot closer than before again. This time, too, I took my smartphone and took a photo. (see picture 2)
+
+I know nobody should do that in this kind of situation (I already said that), but if I did that, it was because I'm not the kind of people who search for help when I'm in danger. And moreover, I was (and I am still) in a depression so one of my problems was not just to die, but to die at this moment, without having the time to say goodbye to my relatives. So maybe you can understand me, I love taking risks and I don't really care of my life itself.
+
+After taking the photo, I knew that keeping staring at him changed nothing. The only thing that could really change the situation according to me was to go back to sleep with my headphones, under my blanket. I continued to think this was an hallucination even if the thing made noise, so I thought it could leave while I was sleeping.
+
+I did manage to sleep. This took time and I was still a little axious, but I managed to. When I woke up, I went to look for the photos I had taken in my gallery and I found my 2 photos. This wasn't a nightmare if the photos are here and, most of all, the thing was on them. He was completely real and I actually managed to take pictures of him. The only problem was: we can't really see the eyes of the thingy, so I went to photoshop and change photo brightness and contrast. Now we can see his eyes on the 2nd photo. (see picture 3)
+
+I spoke about this story to some friends who didn't really find any explanation for it. They have never experienced this and I don't know anyone who has. I'm alright on this day, still just a little disturbed of this story, but even if for a short period of time I had some difficulties to sleep, I got back to the routine and I managed to sleep like before. I'm not an example to take, if ever something like that happens to you, don't do like me and call for help. And most of all take care of yourself and of your relatives :)
+
+Picture 1: [https://imgur.com/ELJQIIi](https://imgur.com/ELJQIIi)Picture 2: [https://imgur.com/8dWNtQG](https://imgur.com/8dWNtQG)Picture 3: [https://imgur.com/kFLs7ZO](https://imgur.com/kFLs7ZO)
+
+&#x200B;
+
+Read after the story : >!Yes, this is a fiction. We're in r/nosleep so don't be angry if this is entirely fictionnal please. This is the first story I post on reddit so be indulgent :)!<

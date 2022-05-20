@@ -1,0 +1,71 @@
+ When I was 16, I went through the most dramatic and influential change of my life. No, I'm not talking about puberty; this isn't going to be some educational story about the changes you're gonna experience as you reach your adolescence. When I was 16, I somehow became connected with hundreds, maybe thousands of other people throughout the world. I have no idea how I can explain this in a way that is truly ever going to make sense to someone who is not a part of it, but I'll do my best.  
+
+Imagine you are a single computer. You are connected to the internet, which is basically the world. You can explore and engage with the world to your heart's content, but everyone goes and does their own thing. Some people play games, others go on social media, and some research information. There are so many things you can choose to be doing, and that choice is what makes you an individual.  
+
+Now imagine that you're on suddenly connected to a network, like in a school or a business. You will have some sort of program that is intended to allow easy and constant communication with everyone who is also linked to this network, and it gives you notifications that let you know what is going on with all the different people, normally when they want the entire group to know something. 
+
+That's kind of how my brain works. I'm connected to all these other people, and we are constantly sharing our emotions and feelings with one another, which in turn influences how we choose to behave. It's always in emotions, never in voices, which allows us to experience events the exact same way as the person communicating it. Like, I remember when someone had a baby and they shared with us the joy they felt the first time they picked the child up. We felt how humbled they were by the idea of clutching something so small, so helpless. It was such a magical experience, it almost made me want to go and have a child right then and there. Almost. 
+
+And yes, there are times it has gone off the rails in the past. I know that once there was this thought that working a job was complete waste of your life, and this thought filtered through our consciousness. The more it was felt by people, the more it continued to gain momentum. A lot of us ended up quitting our jobs. Keep in mind, we were not forced to do this – I, for example, did not quit my job – but the problem is that this whole thing works on the power of suggestion. Those that listened and promoted this thought were really burnt out with their current careers and, by the end of the mental discussion, they just couldn't stand going back for even a single day. They were just so demoralised by the compacting of feeling upon feeling. Even I, who was happy with my current employment, found it difficult for a solid week to find the motivation while this was happening. I ended up needing to take a few sick days just to protect my mental health. And after all was said and done, so many of those that had followed the peer pressure were now panicking because they no longer had work, yet they still had mortgages to pay and families to support; they couldn't afford to be unemployed. So yeah, there's the potential for things to go wrong, and a lot of us learned our lesson to try and repress a lot of our aggressive or depressive thoughts. It also seems like we learned to talk more in emails, I guess, if I continue the analogy. Communication became more deliberate. I guess we have the ability to control what we put out, but we don't really have the same control over what comes in. I guess that's still kind of like a messaging service when you think about, at least a simple one. 
+
+Most of the time it's actually really nice to be connected like this; I know that there is always someone, normally dozens of someones, who are not just able, but happy to listen to my problems. When I was at college, I remember  all but failing one of my subjects. I was seriously contemplating flunking out, just giving up on the whole thing and living the life constantly working in retail. It seemed simple, and there seemed to be those that are happy with that, so why not me? But when I put that thought out there to my connections, I felt encouragement. I was met with this absolute tidal wave of support which washed over me and told me not to simply throw it all in and walk away. Pick myself up, learn from my mistakes and figure out how I could do better. I don't think I've ever studied or worked so hard in nearly my entire life as I did the next week. 
+
+&#x200B;
+
+I refer to it as a Hive Mind, my Hive Mind. Come to think of it, I probably should have started with that, it probably would have helped get most of the information across easily, but you still need some added explanation, just so you know exactly how the communication works precisely. 
+
+&#x200B;
+
+&#x200B;
+
+I write this now because... something went wrong. I'm going to do my best to articulate what it was, but this is something I can't even fully comprehend, even with my unique experiences. 
+
+&#x200B;
+
+Last week, I was working on an essay, one of my final ones. I am currently only a couple of months away from graduating with my B.A. in Art History and, at the time, I was writing an essay on the impacts of theology and philosophy on the evolution of Western art styles. I was sitting at the computer trying to read through some academic articles I had sourced, but my mind kept drifting off into the Hive. A spark of joy, relationships, long-term – it seemed like someone had proposed, and it was accepted, that's so lovely. A pang of disappointment, financial, cars – someone was just in a vehicle collision that was their fault, but I noted there was no fear of mortality, so likely no one was seriously injured, that's lucky.  
+
+I had been working for a couple of hours straight by this point, so I thought I deserved a little relaxation. I let my mind continue to wander deeper. Excitement, nature, holiday – someone was going camping.  Then, I found something in the collective, something subtle. It felt like... I still don't know what it felt like. A kind of current, or passage? Whatever it was, it was moving, constantly. It made it impossible to focus on with enough precision to actually understand it. What I was able to discern was that it was long, or large; it is difficult to describe something that is purely mental, but it was expansive, as if every person was individually thinking about this concept. 
+
+I tried to put a message out to everyone else, see if any of them were able to notice it too, but I don't think anyone could get what I was saying. I mean yeah, it definitely would have been confusing. How would that thought have been interpreted – big, hidden, confusion in relation to the Hive Mind. No one would have been able to figure out what I was talking about. Some people I'm pretty sure thought I was new and offered my some consolation, some welcoming feelings, but no one seemed to reply anything about some giant force in our collective headspace. At least, no one let on in any way that they understood. Even if they had, they would have been faced with the same predicament of how to communicate it. 
+
+Instead of looking to others for help, I decided I would turn inward. I tried something new, something I had never undertaken before, but thought it was worth attempting. I tried to let my own consciousness slip away let it be replaced by the Hive. Let it be my mind. I went to my bed and lay down. I closed my eyes and focused on letting my body relax. I tried to remove all external stimuli: the sounds of birds chirping, the softness of the bed underneath, the red glow of my eyelids. All of it I put away into the recesses of my consciousness and just focused on the throng of minds I was connected to. It was... chaotic, to say the least; I could hear every feeling, every minor pang that everyone tried to keep to themselves. Things that I normally would not experience were now surrounding and closing in on me. I was being crowded in on by a discordance of other people's minds. I guess we aren't as good at keeping things to ourselves as I thought, and we are somewhat able to keep out the intrusion. 
+
+I tried to focus, go deeper, look behind this crowded nonsense. Deeper, beneath the fear; beneath the joy; beneath the anger, frustration and excitement. Below everything. Down in the depths where the great mass lay, a chain that ran through all of us. No, ran beyond all of us. What... what was this thing. I could feel the energy of it. The sensation was no longer purely mental. This thing, whatever it was, was tangible, yet somehow also intangible. It was real, but only in the imagination. I could see it, feel it and hear it, but only within the confines of my mind. 
+
+It looked upon me. It had no eyes, no way for me to comprehend this concept, but I knew it was looking at me. I could feel its insight gaze upon me and I was in awe and so afraid. I tried to withdraw, to go back to my regular consciousness, back to the real world, but I was trapped. Somehow my mind, all of my focus and attention, was being forcibly held. 
+
+It spoke to me. I felt the voice within my mind. I cannot describe the sensation of someone else's voice in your mind. To hear words imagined just as you would but entirely out of your control is such an alien happening.  
+
+"You are of my young. You are not meant to see me". There was no tone, no stress, no pace. It was as if the words existed in an instant then were gone. Almost like, once they were said, I had always known them. 
+
+"What are you?" I felt so weak and pitiful actually speaking to this thing, using words in the sequence and method they were designed. This thing was so obviously beyond the concept of human language. 
+
+"I am beyond your understanding. I am eternal in all meanings of the word: I am perpetual, I am boundless, I am undying. I am without any end you could understand". 
+
+I could feel that what it said was true. All I was capable of perceiving was its size, yet that was enough to bring me to my knees at the thought of how insignificant I was in comparison, and I merely visualised a fraction of a fraction. I had to force myself to put all my angst aside and continue questioning the thing, "Why are you here, why are we connected to you?" 
+
+I felt the pause, contemplating how best to word its answer, before it responded, "I wish to make my return, to take back control of this world from those who have usurped me. To escape from my exile. You are my servants; you are but a single weapon that I wield to help me achieve this goal. You will answer my call when I summon you." 
+
+I felt the all too human touch of defiance as it called me a 'servant' and retorted before I even thoughts about what I was saying, and what I was saying it to, "And what if I refuse?" 
+
+I could feel its control over me, however it was doing so, tighten. It was a somehow painful experience. The words came to be as they always had, but somehow there was a malice that they carried, an actual feeling of desired pain and misery, "You will be discarded." 
+
+I opened my eyes. I was not in my room anymore. I was in the kitchen. I could not see for the sun had gone down during my mental journey, but I could feel the cold tiles under my feet and hear the gentle buzzing of the refrigerator. I also felt the cold, sterile edge of a knife against my neck, held by my very own hand. I shrieked and dropped the knife, it landing with a clanging that further solidified cleared the fog in my head and returned my consciousness to the world around me. I was one final show of the control and domination this thing had over me, at least, I thought it was the last. I cried. I began to comprehend my own futileness in the world. I was just so small and pathetic. 
+
+Then I felt the screams. Screams of anger, of fury. Screams that ripped through my mind and shattered my perceptions. All I could feel was pure and raw emotions, so loud and forceful that it was utterly debilitating. Only once the feeling subsided, and I instead felt horror, an expanding realisation of what had been done, that the actions committed by all those that I was connected were understood. They had killed. They had killed friends, family, random people, whoever was closest to them at the time and I had been forced to feel it. Every moment of bloody execution and the righteousness that each person had temporarily felt were stabbed into my mind.  
+
+Why? Why did it do this? We were meant to be its servants, yet we were all just made useless on a whim. Now we were all criminals, murderers, doomed to spend the rest of our time on this Earth incarcerated, on the run, or exacting our own punishment for a crime out of our control. Except for me, who was instead left with the knowledge that all of these ruined lives were only destroyed because I had sought out the being beneath it all. If I hadn't, who knows how long it would have all lasted? 
+
+And that was it, wasn't it? Who knows how long? This being was endless. It had no need to hurry or rush. It could easily just throw us all away and start anew. What was a human lifespan to a creature that had existed long than humans had walked the Earth? That is what it meant when it said I would be discarded: it was not a threat, it was its final judgment, it didn't even need time to decide. Even in the slightest of significances it had given us, we were still nothing. 
+
+&#x200B;
+
+And now I am cut off from all my friends, from my Hive Mind. I am a lone individual, a single grain of sand in an ever shifting desert. No purpose, never noticed. And I am terrified, terrified beyond comprehension. Not because I have lost all those who I had relied upon. Not because there is some great and endless beast that wishes to gain control of our world once again. Not because this could all happen again, with even more lives on the line. 
+
+&#x200B;
+
+I am so afeared because, whatever that thing was, immortal and omnipotent as it was, was in exile, usurped by another. 
+
+&#x200B;
+
+What had exiled it?
