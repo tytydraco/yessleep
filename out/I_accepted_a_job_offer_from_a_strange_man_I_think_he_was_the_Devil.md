@@ -18,7 +18,7 @@ A tall, lean man stood before me, dressed in a crisp suit. His skin was unusuall
 
 "Are you a priest?" he asked, looking over my dessert-stained shirt and clerical collar.
 
-"Not a Catholic one," I muttered. "I mean, that is to say, if you need anything I'd be happy to pray with-"
+"Not a Catholic one," I mumbled. "I mean, that is to say, if you need anything I'd be happy to pray with-"
 
 "But you *are* a clergyman, yes? What denomination, may I ask, my good fellow?"
 
