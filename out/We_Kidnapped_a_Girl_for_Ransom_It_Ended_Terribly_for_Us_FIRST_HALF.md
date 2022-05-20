@@ -8,7 +8,7 @@ He had some clout in the prison and my association with him almost singlehandedl
 
 Right before he got out, he told me if I ever needed work once I got sprung, he could set me up with a job through his "employer." He gave me his number.
 
-I finished my sentence six months later and the first thing I did was give Mitch a call. I didn't really have anything else going for me. My family had washed their hands of me long ago, I had no friends, and with a tenth-grade education and no real skills or training, the only line of work I was really qualified for was of the kind that entailed cleaning deep fryers, washing cars, or cleaning out gutters for minimum wage.
+I finished my sentence six months later and the first thing I did was give Mitch a call. I didn't really have anything else going for me. My family had washed their hands of me long before, I had no friends, and with a tenth-grade education and no real skills or training, the only line of work I was really qualified for was of the kind that entailed cleaning deep fryers, washing cars, or cleaning out gutters for minimum wage.
 
 Mitch picked me up outside the prison, driving a new Dodge Challenger that looked like he had just driven it off the dealership lot. He greeted me with a hug, like an old friend, then drove me through the city to a warehouse near the docks.
 
@@ -270,7 +270,7 @@ Mitch ended the call, then got out of the car, taking the girl's phone and purse
 
 "Well, that's that," he said, getting back in the driver's seat. "The hard part's over. Now we just gotta wait."
 
-We drove West, out of the country and into the suburbs, then through a city. On the outskirts of the city Mitch turned onto the interstate and gradually the gas stations, fast food joints and strip mall fell away, replaced one again with open country, barren and desolate on this gray, late-fall afternoon. After about an hour, Mitch got off the interstate onto another highway and open farm land gave way to increasing thick wilderness. The sun began to set and nightfall descended. Mitch switched on his headlights. We drove for about twenty minutes, then Mitch pulled onto a small, unpaved dirt road running directly through the woods.
+We drove West, out of the country and into the suburbs, then through a city. On the outskirts of the city Mitch turned onto the interstate and gradually the gas stations, fast food joints and strip mall fell away, replaced one again with open country, barren and desolate on this gray, late-fall afternoon. After about an hour, Mitch got off the interstate onto another highway and open farm land gave way to increasing thick wilderness. The sun began to set and nightfall descended. Mitch switched on his headlights. We drove for about twenty minutes, then Mitch pulled onto an unpaved dirt road running directly through the woods.
 
 Our destination was a small cabin five miles from the nearest town, out in the middle of nowhere where no one would give us any trouble. Mitch had rented the place a week ago for a month, paying cash and using a fake name. He had gotten the place cheap because it had a pretty fucked-up past -- a few years before, some dumb kids had come up there to celebrate their high school graduation, only one of them had gone nuts and murdered his friends before disposing of the bodies and taking off. He had left some bizarre journal or something explaining that some blood-thirsty monster had killed his friends and had him trapped in the cabin. None of the bodies had ever been found, and the killer was still at large.
 
