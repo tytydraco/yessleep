@@ -426,7 +426,7 @@ I woke up before I could.
 
 &#x200B;
 
-In July, two months after Mitch died, Nick Carter hung himself in the woods outside of town.
+In July, two months after Cayden died, Nick Carter hung himself in the woods outside of town.
 
 &#x200B;
 
