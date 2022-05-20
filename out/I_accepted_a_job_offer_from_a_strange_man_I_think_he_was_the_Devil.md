@@ -4,8 +4,7 @@ That was five months ago. I'd been warned that clergy positions were in short su
 
 The bishop had been sending periodic emails to check in on me (but I was delaying longer and longer in my replies). Now that I was in the city she suggested we do lunch and talk about my situation further. She was sympathetic; told me she was going to reach out to some contacts the next state over for me. "But Dave..." she told me seriously. "I think it's time you considered a call in another part of the country. It's not unusual for new ordinands to have to move around. I knew you had your heart set on staying in New England, and I know with your... past you'd rather not have to relocate again, but..."
 
-I felt dismal, more than I thought I would. And here I was, a grown man, making a fuss over something so trivial. In a way I guess I'd never really grown up, not after-  
-
+I felt dismal, more than I thought I would. And here I was, a grown man, making a fuss over something so trivial. In a way I guess I'd never really grown up, not after-
 
 "Dave," the bishop's voice was softer now. Crap, was I that easy to read? She must regret ever allowing an emotional basketcase like me into a position like this. How had I even passed my psych eval? Was I that good at lying to people, even a trained psychiatrist? Wait, no, now I was contradicting myself. Crap, crap, cra-
 
@@ -13,7 +12,7 @@ I felt dismal, more than I thought I would. And here I was, a grown man, making 
 
 She paid the check for the both of us and gave my shoulder a supportive squeeze, saying she was late for a charity thing. I hung around in the diner after and ordered a slice of apple pie - a la mode. It wasn't like I had anywhere else to be.
 
-"Excuse me." The voice came from right next to my left ear. I jumped and dropped a forkful of sticky apple filling onto my clergy shirt. I cursed and looked for a napkin dispenser, only to realize the tables didn't have individual napkin holders. I looked up, feeling my face burning.
+"Excuse me." The voice came from right next to my left ear. I jumped and dropped a forkful of gooey apple filling onto my clergy shirt. I cursed and looked for a napkin dispenser, only to realize the tables didn't have individual napkin holders. I looked up, feeling my face burning.
 
 A tall, lean man stood before me, dressed in a crisp suit. His skin was unusually pale for summer, and his eyes were a very bright green. He looked out of place in a downtown diner.
 
@@ -33,11 +32,9 @@ His bright eyes lit up. "Is that so? Why, what unexpected luck! One could almost
 
 "Um, well, actually..." What was this guy's game? Maybe it was the anxiety talking, but there was something - No, don't screw this up, Dave.
 
-"Forgive me - I haven't introduced myself," he said with a smile that looked disarmingly genuine, almost fatherly. "Lester Flynch. I'm from a little town an hour's drive away. I happen to serve on the vestry of my church there, and as it happens, our last rector has just - moved on, on very short notice."  
+"Forgive me - I haven't introduced myself," he said with a smile that looked disarmingly genuine, almost fatherly. "Lester Flynch. I'm from a little town an hour's drive away. I happen to serve on the vestry of my church there, and as it happens, our last rector has just - moved on, on very short notice."
 
-
-Was he saying what I thought he was saying?  
-
+Was he saying what I thought he was saying?
 
 "We had hoped to put out advertisements in the usual channels, ask the diocese to keep their eyes out - The usual rot. But here I find myself face to face with a newly ordained priest! Why, it really is exceptional luck."
 
@@ -55,4 +52,4 @@ I nodded. Maybe things were looking up. Maybe I'd gotten all bent out of shape o
 
 Or maybe, though I didn't know it at the time, I was making the worst mistake of my life.
 
-(To be Continued)
+**To be Continued...**
