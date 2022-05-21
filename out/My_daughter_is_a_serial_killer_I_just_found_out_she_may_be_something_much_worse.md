@@ -28,7 +28,7 @@ We were asked to try to get more information out of her. The police said that th
 
 They also wanted to know how she did it. 
 
-The guilt of what our child had done to other people’s children made us go more than our love for our daughter. It felt like some small way of atonement, finding out what we could and helping in some small way.
+The guilt of what our child had done to other people’s children made us go more than our love for our daughter. It felt like some small way of atonement, finding out what we could and helping in some way.
 
 Not that anything could make amends for giving birth to a monster.
 

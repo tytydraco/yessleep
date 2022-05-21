@@ -148,7 +148,7 @@ A couple blocks up I spotted a big white van parked outside a boarded-up pizza p
 
 I apprehensively approached them. They looked at me. None of them were the two guys who had broken into my apartment and taken me to meet The Russian, but they seemed to know who I was without being told.
 
-One of them, a muscular, broad-shouldered blonde man in his late thirties who looked like an ex-football player, stepped up to me and introduced himself as Mitch. Later, I found out he was one of The Russian's top enforcers and had been tasked with accompanying me on my first delivery to make sure everything went without a hitch.
+One of them, a muscular, broad-shouldered blond man in his late thirties who looked like an ex-football player, stepped up to me and introduced himself as Mitch. Later, I found out he was one of The Russian's top enforcers and had been tasked with accompanying me on my first delivery to make sure everything went without a hitch.
 
 Mitch told me the "shipment" was ready to be picked up, then opened the driver-side door and motioned for me to get in, and told the other two men to get in the back, which they did. I got into the driver's seat and Mitch got in the passenger side and shut his door. "Think you can handle this?" he asked me, indicating the van.
 
@@ -156,7 +156,7 @@ Mitch told me the "shipment" was ready to be picked up, then opened the driver-s
 
 "Good." He told me a nearby address and instructed me to drive there. It was a long-abandoned delicatessen. Mitch directed me around the side and down a narrow, trash-strewn alleyway, telling me to back up to the rear door and stop.
 
-"Stay here," Mitch ordered me, then hopped out and went around the van, opening the rear. I waited, assuming they were loading the Russian's mystery cargo. I tried to get a look in the rearview mirror, but there was only about three feet of space between the back of the van and the rear of the delicatessen. I couldn't see much. About twenty minutes later, Mitch came around and got back in the passenger seat. "Done," he told me. 
+"Stay here," Mitch ordered me, then hopped out and went around the van, opening the rear. I waited, assuming they were loading the Russian's mystery cargo. I tried to get a look in the rearview mirror, but there was only about three feet of space between the back of the van and the rear of the delicatessen. I couldn't see much. About twenty minutes later, Mitch came around and got back in the passenger seat. "Done," he told me.
 
 I heard a sound coming from the rear of the van: sobbing. Someone was back there, crying. I only heard it for a second or two before one of the two men in back pulled the door shut behind them.
 
