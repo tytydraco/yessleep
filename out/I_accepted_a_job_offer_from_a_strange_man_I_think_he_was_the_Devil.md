@@ -52,4 +52,4 @@ I nodded. Maybe things were looking up. Maybe I'd gotten all bent out of shape o
 
 Or maybe, though I didn't know it at the time, I was making the worst mistake of my life.
 
-**To be Continued...**
+[Part 2](https://www.reddit.com/r/nosleep/comments/uukmi6/when_driving_watch_out_for_the_wildlife/)

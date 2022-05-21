@@ -4,25 +4,25 @@ Growing up, I would always take packed lunches to school. From an early age, my 
 
 &#x200B;
 
-However, it was because of this affliction that I was able to avoid a brush with death. During my sophomore year, a group of students foolishly chose to mess with the dark arts. I overheard them discussing it during lunch one day. They believed it would help them improve their grades so they wouldn’t be grounded.  Our report cards were due soon so I guess they were desperate. 
+However, it was because of this affliction that I was able to avoid a brush with death. During my sophomore year, a group of students foolishly chose to mess with the dark arts. I overheard them discussing it during lunch one day. They believed it would help them improve their grades so they wouldn’t be grounded.  Our report cards were due soon so I guess they were desperate.
 
 &#x200B;
 
 &#x200B;
 
-I of course dismissed this as nothing more than a bunch of nonsense. Looking back, I really wish I tried to talk them out of it because it would’ve prevented a whole mess of trouble. A couple weeks later, it was a special occasion for me, my birthday. I decided to treat myself by packing some cheesecake into my lunch bag. Along with it was pizza, string cheese, and Gogurt. 
+I of course dismissed this as nothing more than a bunch of nonsense. Looking back, I really wish I tried to talk them out of it because it would’ve prevented a whole mess of trouble. A couple weeks later, it was a special occasion for me, my birthday. I decided to treat myself by packing some cheesecake into my lunch bag. Along with it was pizza, string cheese, and Gogurt.
 
 &#x200B;
 
 &#x200B;
 
-I enjoyed it all while reading Return Of The King. Then I remembered I forgot to take my Lactaid tablets.  I would always have some with me in case of any dairy-related emergencies. They helped prevent my digestion issues. While turning the page of my book, I reached into my lunchbox, pulling out the box of tablets. 
+I enjoyed it all while reading Return Of The King. Then I remembered I forgot to take my Lactaid tablets.  I would always have some with me in case of any dairy-related emergencies. They helped prevent my digestion issues. While turning the page of my book, I reached into my lunchbox, pulling out the box of tablets.
 
 &#x200B;
 
 &#x200B;
 
-I turned it over, expecting to hear the sound of a pack falling on the table. When I didn’t, I stared at the box and shook harder. Nothing fell out. Panicking, I  turned it over, poking my finger inside of it in a desperate attempt to find even a single tablet.  I even tore it open, but part of me knew it was hopeless. A storm was about to begin brewing inside my stomach and there was only one place I could be to wait it out. 
+I turned it over, expecting to hear the sound of a pack falling on the table. When I didn’t, I stared at the box and shook harder. Nothing fell out. Panicking, I  turned it over, poking my finger inside of it in a desperate attempt to find even a single tablet.  I even tore it open, but part of me knew it was hopeless. A storm was about to begin brewing inside my stomach and there was only one place I could be to wait it out.
 
 &#x200B;
 
@@ -52,13 +52,13 @@ Part of me knew this wouldn’t be the case. It was a known fact among the schoo
 
 &#x200B;
 
-She was setting test sheets on everyone’s desks. Somehow I completely forgot that we were taking a test today.  I groaned, already feeling my stomach bubble as I sat down. There was no way in hell I was going to last until the next class. I figured there couldn’t be any harm in at least asking. 
+She was setting test sheets on everyone’s desks. Somehow I completely forgot that we were taking a test today.  I groaned, already feeling my stomach bubble as I sat down. There was no way in hell I was going to last until the next class. I figured there couldn’t be any harm in at least asking.
 
 &#x200B;
 
 &#x200B;
 
-Despite me pointing out this was the first time I was asking this of her, she said no. I tried to plead, but she told me if I kept pushing, she’d write me up.  Dejected. I did my best to keep it all in so to speak. The discomfort was intense. Thankfully, luck found me in the form of Ms. Weaver being called away by the principal. 
+Despite me pointing out this was the first time I was asking this of her, she said no. I tried to plead, but she told me if I kept pushing, she’d write me up.  Dejected. I did my best to keep it all in so to speak. The discomfort was intense. Thankfully, luck found me in the form of Ms. Weaver being called away by the principal.
 
 &#x200B;
 
@@ -76,7 +76,7 @@ Before I could enter, someone sild in front of me, blocking access to the entran
 
 &#x200B;
 
-“Well. Well. Well.” 
+“Well. Well. Well.”
 
 &#x200B;
 
@@ -190,7 +190,7 @@ I sat up, listening closer. It was a loud guttural sound. My school was located 
 
 &#x200B;
 
-The noise came again only not alone. I felt my heart thump steadily quicker as I heard the other sound, screaming. It wasn’t just one person. It had to be an entire class. This was followed by two distinct noises. 
+The noise came again only not alone. I felt my heart thump steadily quicker as I heard the other sound, screaming. It wasn’t just one person. It had to be an entire class. This was followed by two distinct noises.
 
 &#x200B;
 
@@ -248,7 +248,7 @@ As an aside, that phrase has never made sense to me. I mean, who else’s eyes w
 
 &#x200B;
 
-“It was Ms.Weaver. I don’t know what’s wrong with her. She was attacking everyone. I saw her lift two students like they were nothing and throw them at the wall.”
+“It was Ms. Weaver. I don’t know what’s wrong with her. She was attacking everyone. I saw her lift two students like they were nothing and throw them at the wall.”
 
 &#x200B;
 
@@ -302,7 +302,7 @@ At that moment, Seth sneezed. That was good news for me and quite the opposite f
 
 &#x200B;
 
-“No, please,” was all he had time to scream out before Ms.Weaver broke into his stall.
+“No, please,” was all he had time to scream out before Ms. Weaver broke into his stall.
 
 &#x200B;
 
@@ -338,7 +338,7 @@ Several of the cops gagged upon seeing Seth’s corpse. Then again I may have al
 
 &#x200B;
 
-“Is anyone else in there?” 
+“Is anyone else in there?”
 
 &#x200B;
 
@@ -351,6 +351,8 @@ Several of the cops gagged upon seeing Seth’s corpse. Then again I may have al
 &#x200B;
 
 “The blood?”
+
+&#x200B;
 
 “No, the other smell.”
 
