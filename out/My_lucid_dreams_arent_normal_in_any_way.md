@@ -1,0 +1,14 @@
+I’ve been an avid lucid dreamer since my middle school days. I would try various methods to enter the dreamworld until I eventually stopped and the dreams stopped coming. That was until 2 weeks ago. I sprinted through the woods, panicking for a reason unknown to me. The calls of crows around me were about to burst my eardrums as my heartbeat increased rapidly. Around halfway through my attempt of fleeing from these cries, it clicked in my head: I was dreaming.
+
+I tried as best as I could to teleport myself out of there, but I couldn’t. I tried everything to escape, but I couldn’t. All I could do was keep running. I ran until I collapsed into an unusual valley. Crows around me screeched, and I covered my ears as turned around to where the calls were coming from. Silence. Complete silence. I cautiously took my hands off of my ears and looked around. I was standing in a pit of wood chips, a children’s playground in front of me. There was a wooden fence around it, and the grounds were decorated with garden equipment though there was no garden. The sky was overcast, engulfing half of the scene with a shadow. 
+
+I stared with amazement, wondering how it even got there as a voice from behind me nearly gave me a heart attack. “Salutations.” I whipped around, backing up and stumbling. “Grey heavens-who are you?” An unknown person narrowed their eyes. The person had brown, slicked back hair with dark circles under their eyes and an urgent look on their face. They looked in their early thirties, with furrowed eyebrows and rough skin. They said nothing more, just grabbed my hand and started dragging me along with them. I flinched and recoiled my hand. 
+“Where are you taking me?”
+“It’s a surprise. I promise you’re safe.”
+I observed them, noticing something strange. “What’s that on your hand?”
+
+Something seemed to flash in their eyes. “There’s nothing on my hand.” I reached toward them and pulled their arm towards me. Everything seemed to stop in that moment. There was a symbol on their hand, two circles with the top overlapping the bottom. A line was crossed through it, another line from the bottom circle overlapping the top. It seemed to engrave into my mind at that very moment, my eyes unable to look away. They quickly pulled their hand away and stared at me.
+
+“You’re not real,” I whispered as I backed up. “You’re not real, you’re not real.” I repeated it over and over. Over and over, until the crows started screeching again. Over and over, until my voice blended into the birds. Dark figures of them surrounded me, inching towards the person. They looked terrified. “It’s too late for you.”
+
+Ever since then, crows are everywhere. Whenever I look out the window. Whenever I go outside. But the most unnerving thing? Whenever I close my eyes, I see myself. I see myself in the middle of a dark room, surrounded by candles and crow statues. And whenever I close my eyes, I always see that god-forsaken symbol.

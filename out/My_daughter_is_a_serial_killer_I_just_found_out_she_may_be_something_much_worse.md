@@ -136,7 +136,7 @@ It was there in the third journal. The last words of a Ancient Goddess that was 
 
 As I spoke the words aloud, recognising now that they were not in a language no one understand but a language no human was supposed to understand, I saw them change slowly into English.
 
-*For every one of us you kill. We will take a thousand of you in return. Our vengeance will speak in your blood.*
+*For every one of us you kill. We will take a thousand of you in return. Our vengeance will speak through your own blood.*
 
 But the thing that made my blood run cold were the words Fiona had not said. The words that were below the ones I had just read.
 
