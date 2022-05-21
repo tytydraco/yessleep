@@ -75,3 +75,5 @@ I set the package down on the kitchen table and went to find a pair of scissors.
 I opened the package to see Erica's head.
 
 [X](https://www.reddit.com/r/WarZoneSeries/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/uu568i/my_daughter_was_attacked_on_facetime_again/)

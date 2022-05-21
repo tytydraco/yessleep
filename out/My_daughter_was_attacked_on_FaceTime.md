@@ -113,3 +113,5 @@ She had a puzzled reaction on her face, and walked back over to the man. She pus
 [n](https://www.reddit.com/r/WarZoneSeries/)
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/uoz90f/my_daughter_was_attacked_on_facetime_part_2/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/uu568i/my_daughter_was_attacked_on_facetime_again/)
