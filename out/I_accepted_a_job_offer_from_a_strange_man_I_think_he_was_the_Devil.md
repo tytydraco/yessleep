@@ -30,7 +30,7 @@ His bright eyes lit up. "Is that so? Why, what unexpected luck! One could almost
 
 "I happen to be in town on... business, and- Well, no, no. I'm sure a fine young man like yourself already has a secure parish position."
 
-"Um, well, actually..." What was this guy's game? Maybe it was the anxiety talking, but there was something - No, don't screw this up, Dave.
+"Um, well, actually..." What was this guy's angle? Maybe it was the anxiety talking, but there was something - No, don't screw this up, Dave.
 
 "Forgive me - I haven't introduced myself," he said with a smile that looked disarmingly genuine, almost fatherly. "Lester Flynch. I'm from a little town an hour's drive away. I happen to serve on the vestry of my church there, and as it happens, our last rector has just - moved on, on very short notice."
 
