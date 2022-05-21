@@ -122,7 +122,7 @@ My heart was going to explode.
 
 I didn’t stop running until I pounded on my front door. 
 
-It felt like I was at my front door in seconds, even tho I ran home from a 15 minute bike walk…
+It felt like I was at my front door in seconds, even tho I ran all the way home from a 15 minute bike ride. 
 
 I made it out somehow. 
 I think I must have blocked it all out because I just remember finding Aaron and then being home, pounding on my front door shaking, begging my moms to call the cops and lock the doors…
