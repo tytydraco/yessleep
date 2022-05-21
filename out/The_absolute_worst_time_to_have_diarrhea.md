@@ -1,0 +1,65 @@
+It was one of those do-or-die situations. We’ve all had them. The night’s air is cool and your eyes suddenly spring to life. I don’t know if it was the take-out I scarfed down before bed or the three cups of coffee that got me through the day, but I absolutely had to go. All my senses were heightened, god you’d have thought I was being hunted in the forest.
+
+Even the fabric of my blanket scraping against my knees as I threw them off of me was enough to churn my stomach. My body still waking up was at odds with the urgency that my stomach urged for. Heavy and non-responsive limbs slowly waking up.
+
+My feet hit the chilled floor, microscopic spikes ran through my body. A concert of bubbling erupted from my abdomen. Holding onto the bedpost I leaned over and waited for the wailing gurgles to stop. Sitting there for a moment staring at the moonbeam peaking through my window, I listened to the growl. 
+
+Eventually, it stopped and I felt as though I could finally move again but I needed to be swift. I couldn’t muster the strength needed to beat out too many more of those attempted assaults on my clean underwear. A few heavy breaths were all I needed before I began to approach my bedroom door.
+
+As my fingers clasped around the cool metal handle I thought it odd, I didn't remember closing the door. I live alone and rarely ever close my bedroom door because, why would I? The thought was vanquished by a soft gurgling and a clenched sphincter. The knob turned and I felt the stale air of my hallway slip past me. The smell almost made me release my bowels right there and then. It was like the air had been stagnant for ages.
+
+The foul odor invaded my senses and nearly made me recoil back into my room. A pungent advance like my door was the entrance to a sarcophagus. My room wouldn’t do though, the bathroom was just down the hall. I’d inspect whatever was causing the smell after reaching the safety of porcelain. With my fingers on the doorframe, I pulled myself through the gateway.
+
+The air was hot, it would have been more concerning if it wasn’t in such a dire situation. Suddenly just as I was going to make my break for the bathroom I was hit by another wave. Quickly assessing the feeling I determined that I needed to be as still as I could. I was going to make it if I tried moving during this onslaught. Once again I stood there, doubled over listening to the popping coming from my stomach. 
+
+Like an engine failing to turn over my gut growled and moaned, a warning siren letting the rest of my body know the anguish it was about to go through. I could already feel cold beads of sweat forming on my forehead and under my fingertips. With one hand on my stomach, I could practically feel the adjustments being made inside of me. In the dark and silent house, the gurgling was uncomfortably audible. Even with no one around to perceive it I was feeling embarrassed about it.
+
+Though my concern only truly kicked in when the growling continued, the feeling in my stomach had settled. The popping of gas bubbles inside me had ceased, I could move again and have survived the second wave but the noise persisted. The low growling hum echoed through the hall. That sound wasn’t coming from me. It was like an old dog trying to ward off unwelcome guests. A growl made with a throat full of sand. 
+
+I stood, listening to the noise thinking at first maybe it was my fridge or some other appliance kicking on but it sounded far too organic. It was hard to tell at first but the closer I listened the more I could discern the direction of the noise. The growl was bouncing around the empty hall but it was coming from the direction I was meant to be headed towards. Over by the bathroom. 
+
+Turning my head towards the source of the noise I peered down the hallway. It seemed to stretch on for longer than I remember like my perspective had shifted to make the journey to the bathroom seem impossible. Further still, as my eyes adjusted to the darkness within that hallway, I was able to make out a figure. At first, it was just a blob amongst the shade but more and more the details of the thing causing that growl were revealed to me. 
+
+Without thinking of the consequence my body reactivity let out something of a gasp. Immediately I assumed someone had broken into my house and I was preparing to run but my room was at the end of the hall. I started to turn around thinking that my window was going to be the best option. Few issues though. I live in an apartment complex, on the fourth floor and even if I was on the ground floor, the churning in my gut was only getting stronger. I wasn’t going to make it.
+
+Looking back down the hall I could see that the figure was just standing there, facing away from me growling away. I thought of dogs when they look at a corner like something we can’t see is there. The figure's posture was slumped and loose, it appeared like I imagined I did when I was barreling over myself. I could tell by the shape of the shadow that its skin or whatever it was wearing was torn and ragged. Strips of… something was hanging off of it like rags.
+
+I took a step towards the figure and more importantly the bathroom. Thankfully the hallways were carpeted without hardwood primed for creaking. The figure didn’t react to my advance so I took another step. It’s silly, stupid I know but the bathroom was halfway between us, if I could just make it and drop my business off I would be able to handle the situation much better. Slowly and carefully I took one step after another, I could feel the strands of the carpet slipping in between my toes. 
+
+Another wave was coming on, I could feel the beginnings of it. I pleaded with my body, bargaining for just a few extra seconds. Though I felt as if the thudding of my heart was going to cause more stirring than anything. As I closed in on the creature more of its details were revealed, and the weight of it all settled in with each step. Whatever was in my hallways was an approximation of a human. Something similar but not quite there.
+
+Every detail was just off enough that my brain was picking up on it. Like the feeling of being watched, a consciousness outside of yourself. I had to keep going though. Even as I looked over its arms which were just a little too long. Or that its legs seemed to be articulated at two separate points. Two knees on each leg, both bending in the opposite direction. That it’s groaning looked to be rattling its entire body. Or was the shaking of its body causing the noise?
+
+I was worried once I got close enough the thing would hear the thudding in my chest or the popping in my gut. I was right there when the third wave hit me. It was intense, something I feared I might not be strong enough to subdue. My knees started to buckle as my behind tightened up. My entire body tensed. Face scrunched and fist closed. Like a kid trying to move things with his mind, I concentrated everything I had on not releasing the pressure below. 
+
+I thought of deep-sea divers and mountain climbers and for just a moment my empathy reached a peak. So close, through the wave I tried to shuffle my feet across the carpet, lord knows I didn't have the affordance to lift my feet. My breathing was the hardest to control. Caught between panic breath caused by the intruder and the smooth shallow breathing needed to keep my linens clean.
+
+It wasn’t until my feet slipped over the cold tiles that I began to feel relief. The creature was close but I had managed to slip into the bathroom without alerting it. Or at least if it had heard me it didn’t care about me. Carefully once more I pushed the bathroom's wooden door into its frame until I heard the soft click of security. Then I pressed the small metal button ensuring the door was locked. 
+
+I had made it but the wave I was feeling still wracked my body. Quickly I stepped over to the toilet. It was glorious, I had made it. Never has it looked so beautiful. My boxers slipped from my waist and listlessly dropped resting on my bare feet. My butt made its fateful connection and the wave became a tsunami. Every bit of what I had to offer the toilet, was released. Like a sacrifice to the gods, I filled the bowl. 
+
+Grotesque applause filled the atmosphere. A horrid and unyielding bout of flatulence erupted, louder than anything I'd ever produced before. The rumbling filled the bathroom as my insides exploded, expelling at such great force I could hear the Pollock-Esque smattering tainting the pure white I sat on. Even the water failed to deafen the noise, instead, the sound of rocks hitting a lake joined the concert. 
+
+The only thing I could do was watch the bathroom door, knowing that thing was out there, hearing every bit of the natural disaster unfolding around me. Because of me. My eyes might’ve rolled into the back of my head if it weren’t for the fear of maintaining my focus. Somehow, despite the cacophony of noises, I still made out the scratching on the other side of the door. A long and intentional drag of nails against the wooden door.
+
+Fingertips gripping my knees, holding on for dear like I heard the dragging get louder and louder like it was slowly clawing its way through the door. “Is this really how I die?” I thought to myself. I thought about what people would say, what would be written on the reports. I pictured the police coming across my body, limp and naked on the bathroom floor with god knows what injuries.
+
+Would the thing rip me to pieces? Slowly picking me apart until the last bit of my life slipped from my fingers. Would I even have time to flush the toilet? For a moment I spoke with God, begging him to at least let me die with a clean toilet bowl. The scratching picked up, faster and faster that thing created a cavern in the door. 
+
+Every time I thought my body had pushed enough out another clump would arrive at the station and I would struggle once more. A stinging sensation got stronger between my buttcheeks as the effort expended became too much for such soft tissue to handle. My hand reached for the toilet paper.
+
+I wiped away what I could. The mess of brown and amber drifting into the toilet water. I could feel it, I was almost done. I didn’t know how I was going to handle what was on the other side of the door but I would be better equipped. Just as my body seemed empty of the worrisome gurgling causing feces, the door gave in. With my anus clean and my finger on the handle ready to flush, the monster broke through.
+
+It wasn’t its nails that it had been scratching the door with. Rather the thing’s hands were so stripped of flesh that the bones on its fingers were exposed. I could see slivers of wood still stuck to the white. The monster started pressing its face into the hole it had just created, burnt and loosely hanging on flesh snagged onto the jagged bits of wood. With the skin pulling taut I could see pockets of red and white underneath. Muscles that barely functioned as such and bones holding the thing together though just barely. 
+
+I had nowhere to go as it pressed further, just me the monster, and my obliterated toilet, an intimate affair. Seizing up I just watched the thing reaching an arm through, shaky and ripped to bits it reached for me. Swinging its arm at me like it was trying to swat a fly out of the air, pressing further into the room tearing at the flesh more. If the thing had moved in any further surely the entirety of its skin would fall off like a nightgown. 
+
+Instead though, as I peered into the eyes that rolled like marbles in their sockets, ready to pop out at a moment's notice, it halted. Though anything resembling a nose that it might have once had was stripped bare, I could see two small openings where it would have been. These small holes contracted and released, the thing was smelling the air. The thing’s head quickly jerked to the side as it continued smelling the bathroom.
+
+Its arm started to retreat, slowly as if it was thinking something over. I could hear a groaning get stuck in the monster’s throat like it was choking on something. The rattling emerged again as its body started shaking. A soft eep of air slipped out of its mouth. It sounded like someone screaming from under a mound of dirt. The thing retreated from the door as it screamed. 
+
+Shortly after the frame of the intruder was gone and I listened to it shuffling through my house. It opened my front door and walked about. Like it was some house guest giving me the Irish goodbye. I sat there, my heart returning to a normal beating. Just stupefied. Part of me wants to believe what I produced in the toilet smelled similar to the odor the creature had. So it considered me as its own or something. 
+
+Though I know in my heart. I had taken a poop so nasty and foul that the aroma contained in my bathroom was enough to repel whatever ancient beast had made its way into my home. With the toilet water swirling, I remained to stare at the door considering how in the world I was going to explain the damages to my landlord. And through it all, the most unbelievable part?
+
+Toilet didn’t even clog up.
