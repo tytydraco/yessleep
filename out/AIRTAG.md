@@ -9,9 +9,14 @@ It was 10:30 pm when my best friend Aaron texted me
 **give me an hour** 10:32
 
 I showered, and got a backpack ready. 
-Almost midnight is a pretty late time to be playing AirTag tag, a game me and Aaron made up when Apple AirTag came out. 
+Almost midnight is a pretty late time to be playing AirTag tag, but I’ve been very stressed lately with my senior year of high school…
 
-You have 1 hour to hide the AirTag, and is usually somewhere scary or disgusting. The part that makes it hard is that you need to hide it in plain sight, so it’s hard to know where it is in the room. 
+What could one game hurt?
+Plus I hadn’t heard from Aaron in almost a week since we both got into an argument about which one of us would make a move on Stacy at her party this weekend. 
+
+AirTag tag is a game me and Aaron made up when Apple AirTag came out.
+
+You have 1 hour to hide the AirTag, and with Aaron it’s usually somewhere scary or disgusting. The part that makes it hard is that you need to hide it in plain sight, so it’s hard to know where it is in the room. 
 
 Aaron is the Champ at this game, he usually picks a nasty area like a dumpster of a seafood restaurant, seedy back alleys, and once even the dumpster behind a hospital.
 
@@ -36,7 +41,7 @@ Fuck it.
 I sped through the trees as fast as possible. 
 I’m Afraid of the dark, sue me. 
 
-When I got to the clearing and it said I was 7 minutes away still… and I was right  outside the (broken) gates of an old, giant, medical looking building. 
+When I got to the clearing and it said I was 7 minutes away still… and I was right  outside the (broken) gates of an old, giant, medical looking building. I’d be worried it’s another dumpster dive if it weren’t so creepy and abandoned…
 
 **I don’t know Aaron this place is super creepy** 12:24
 
@@ -83,10 +88,19 @@ I turned the flashlight on my phone on, and I made my way through the hallway, i
 I was so close to the AirTag. 
 Less that 2 feet. I was in an office, it smelled in here so bad. Probably water damage. 
 
-I noticed the chair was facing away from the desk, out the window. 
+I started looking on shelves, filing cabinets, floor, dang why is he so good at this it’s so hard to look when you’re scared!
+I made my way to the desk, didn’t see any tag, but I was less than a foot away at the desk.
+
+That’s when I noticed the chair was facing away from the desk, facing the window. 
 I walked around the desk to check in the chair, I realized I was stepping in something sticky?
-I looked in the chair and I saw something in it. 
-I aimed my flashlight and saw Aaron’s body, from the torso up. 
+
+I was going to look down but I got distracted when I noticed something was in the chair…
+
+I aimed my flashlight and saw Aaron’s body, from the torso up….
+
+He was pale, blow flies swarming around him, crawling on his face and around the organs that were spilling out of him and onto the chair…
+
+The smell was Aaron. 
 
 The light from my flashlight was bouncing off of the metal from the AirTag sticking out of his slightly open mouth. 
 
