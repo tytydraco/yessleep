@@ -54,7 +54,7 @@ We quickly washed up and sat at the table.
 
 “Ooh, spooky!” My dad remarked, amused
 
-“Did they talk about… the Needle Man?” He asked as if he was telling a campfire story.
+“Did they talk about… [the Needle Man](https://www.reddit.com/r/nosleep/comments/utdzwd/the_needle_man_followed_me_home_last_night_i/)?” He asked as if he was telling a campfire story.
 
 My mom shot him a dirty look.
 
