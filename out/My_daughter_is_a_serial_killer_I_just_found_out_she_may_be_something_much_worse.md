@@ -48,7 +48,7 @@ Anger began to bubble up inside me. What the hell was wrong with Fiona? I had re
 
 Fiona sat back smiling and tossed her blonde hair over her shoulder. 
 
-“Oh Dad, it doesn’t matter. Don’t you remember why it doesn’t matter? You should.”
+“Oh Dad, it doesn’t matter. You can’t stop us. No matter how much you try.”
 
 I couldn’t understand what she was talking about. “Fiona.” My patience was wearing extremely thin, “What are you talking about?”
 
@@ -68,7 +68,7 @@ I shifted uneasily in my seat.
 
 “I-I really-“
 
-“They don’t like it when you lie.”
+“We don’t like it when you lie.”
 
 “I-“ I stammered and then fell silent. I didn’t know what kind of game she was playing.
 
@@ -118,7 +118,7 @@ So they began to live amongst us to adapt to their mortality. Less powerful. Les
 
 That we were servants of God doing his bidding.
 
-My family carried this tradition on for years. All the way till my father was born and refused to train in the ways of his father. My father killed his father when he was only a teenager. He was trying to protect a girl who would later become his wife. My mother.
+My family carried this tradition on for years - finding what was left of the Ancient Ones and decimating them. All the way till my father was born and refused to train in the ways of his father. My father killed his father when he was only a teenager. He was trying to protect a girl who would later become his wife. My mother.
 
 He kept the journals. He kept them to tell me of the history he was ashamed of, to tell me that I must never go down this route. I had read them years ago and shuddered at the amount of lives my family had stolen. 
 
