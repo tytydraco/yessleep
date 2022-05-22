@@ -28,7 +28,7 @@ So yeah, I’m not exactly stunned when I see something out of the ordinary.
 
 *Still!* I hear you say. *Shouldn’t you have been a little bit frightened?!*
 
-Well, here’s one more story for you. When I was eleven my family moved into a new house. There were only two bedrooms, and my parents were in the master. I *begged* them not to make me sleep in the other one. Want to know why?
+Well, here’s one more story for you: when I was eleven my family moved into a new house. There were only two bedrooms, and my parents were in the master. I *begged* them not to make me sleep in the other one. Want to know why?
 
 Plastered to the ceiling right above my bed was this emaciated, naked old man. He looked at least seventy or eighty with mad-scientist hair and a scraggily beard. His face was fixed in a permanent scream, eyes wide and mouth open, with no sound. He didn’t move at all, just lay there, rag-dolled on the ceiling.
 
@@ -52,7 +52,7 @@ I was lying in bed and as usual, Spikey was on his patrol. I was on the verge of
 
 It immediately made the hairs on my arms stand on end. It was low and thick, like a drumbeat. But mixed in was a higher pitch, almost like… singing.
 
-I told myself it was just the house’s wiring acting up and was going to doze off when I heard something else, a deep growl.
+I told myself it was just the apartment's wiring acting up and was going to doze off when I heard something else, a deep growl.
 
 I glanced up and saw Spikey standing in the middle of the room, right at the edge of his territory. His spines were all raised, like the hackles on a dog, and he held his body low, in a defensive posture. The growl was heavy, more scared than angry. His eyes were fixed directly on the closet doors.
 

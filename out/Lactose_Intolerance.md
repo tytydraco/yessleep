@@ -178,7 +178,7 @@ Soon, he was in front of my stall and hammering furiously on it.
 
 &#x200B;
 
-Eventually, he went away, cursing under his breath. Anyone who’s seen the movie Dumb and Dumber would have a pretty good idea of what the next few minutes were like for me. Now sweating from the ordeal, I made a mental note to always make sure I always have Lactaid tablets on me. I wrinkled my nose at the smell and wiped some sweat off my forehead. I was actually starting to nod off when I heard a concerning noise from outside the bathroom.
+Eventually, he went away, cursing under his breath. Anyone who’s seen the movie Dumb and Dumber would have a pretty good idea of what the next few minutes were like for me. Now sweating from the ordeal, I made a mental note to always make sure I have Lactaid tablets on me. I wrinkled my nose at the smell and wiped some sweat off my forehead. I was actually starting to nod off when I heard a concerning noise from outside the bathroom.
 
 &#x200B;
 
