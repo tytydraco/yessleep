@@ -206,3 +206,5 @@ Brian emerged from the darkness, battered and covered in cuts and slashes just l
 'There's no way in hell I'm falling for that one again' I thought, just as Liam was shoved to the ground in an instant,
 
 Less than a second later, I felt burning fingers begin to slither around my neck from behind.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/uroj8d/theres_an_old_bell_tower_near_my_house_it_is/?utm_medium=android_app&utm_source=share)

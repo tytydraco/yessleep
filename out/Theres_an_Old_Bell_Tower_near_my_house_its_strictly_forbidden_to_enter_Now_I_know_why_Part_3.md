@@ -229,3 +229,7 @@ Liam was lying at the top of the stairs.
 'That's not me! Run' He cried.
 
 He was dragged away from our sight, just as the bells began to toll midnight.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/uo0yd5/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/uroj8d/theres_an_old_bell_tower_near_my_house_it_is/?utm_medium=android_app&utm_source=share)
