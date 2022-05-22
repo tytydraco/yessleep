@@ -1,4 +1,4 @@
-[part 1](https://www.reddit.com/r/nosleep/comments/unyxrz/i_can_hear_music_coming_from_people/)
+[First](https://www.reddit.com/r/nosleep/comments/unyxrz/i_can_hear_music_coming_from_people/) Current [Next](https://www.reddit.com/r/nosleep/comments/uvhfsg/i_once_heard_music_coming_from_people_now_the/)
 
 I have never been good with crowds. The music that comes from them are usually a jumbled mess. It doesn't often make sense. They pierce through one another and drown out the really lovely ones. It's why I generally avoid places where people gather.
 

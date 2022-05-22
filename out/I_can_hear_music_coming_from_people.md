@@ -1,4 +1,6 @@
-[part 2](https://www.reddit.com/r/nosleep/comments/uoxjek/i_can_hear_music_coming_from_people_2/)
+[part 2](https://www.reddit.com/r/nosleep/comments/uoxjek/i_can_hear_music_coming_from_people_2/) 
+
+[part 3](https://www.reddit.com/r/nosleep/comments/uvhfsg/i_once_heard_music_coming_from_people_now_the/)
 
 It has always been difficult for me to pay attention. I am usually humming along. To the music that I hear. Every place that I go to sounds different. Every person that I talk to too. And sometimes the music changes.
 
