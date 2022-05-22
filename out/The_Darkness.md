@@ -1,0 +1,13 @@
+I was young the first time it happened. Probably not even  10 (I’m 30 now) and I hadn’t been living in Alabama long just recently having moved from Texas after my grandmother passed away. She always talked about my light and how “special” I was but I never really believed her until it started. 
+
+I had been outside the first time I remember hearing someone calling my name. It was haunting and evil. I remember moving  and a tree branch falling right where I had been standing. Shortly after that experience I began to see “shadow people.” Black blobs in the coroners of my eyesight, always just out of view. Always calling to me, always lurking in the shadows. Then came the demonic presence. Haunting me. Trying to attack me but always failing. I was a fighter and not so easy to just give into the evil. Even in my sleep they would come for me. I’d wake up bruised and scratched, screaming for God to save me. In church they would linger, always calling to me. I’d tell me mom and she’d said to make sure I never answered to their call. Sinister and dark, evil and impure. Satan himself trying to tempt me into his darkness, but I stayed strong. Then I just started having weird encounters. Hearing walking/scraping in my house, knocking, seeing weird apparitions. It was getting more intense. 
+
+ I fought and fought some more. Years later and they still try to trick me, they’ll call my name and are always lurking just outside my vision. Still as sinister as ever.
+
+Thieves don’t come to rob empty houses, so what do they want from me? What do they seek to try to steal from me? What is it about me that attracts them?
+
+It gets worse at night still…especially between 2-4 am. I can hear the whispers. Feel their evil presence. It’s enough to make my stomach turn. My anxiety rises and I almost begin to panic but then I remember to whom I belong. Then I remember that I have no reason to fear but still they taunt me. My soul is what they are seeking, my light and my goodness. It has to be but I am not so easily turned. I often find myself telling them that I am not theirs, that I don’t belong to them but it’s never ending. That battle between dark and light, evil and good. It always lingers, just behind us or just beyond our vision. 
+
+No matter how much I fight they lurk. Watching me, waiting on me to fail, waiting on one moment of weakness to swoop in and take advantage of that vulnerability. Never turn your back to them or let your guard down. 
+
+They are the darkness, the ones who lurk at night. The monster under your bed. The bogey man. Never underestimate them and never second guess yourself when they are around. They’ll do whatever they can to snatch you up. They are always lurking and watching. Always.

@@ -158,13 +158,15 @@ Without even thinking about it, I brought my knee up, hitting his crotch, and ma
 
 &#x200B;
 
-“I’ll have you suspended for that,” he scrambled after me while getting back to his feet.
+“I’ll have you suspended for that,” he screamed at me while getting back to his feet.
 
 &#x200B;
 
 &#x200B;
 
 Soon, he was in front of my stall and hammering furiously on it.
+
+&#x200B;
 
 &#x200B;
 
@@ -287,6 +289,8 @@ I perked my ears and they were met with the sound of skittering. I’ve seen eno
 &#x200B;
 
 Ms. Weaver came crawling into the bathroom. We waited with bated breath, hoping she’d go away.
+
+&#x200B;
 
 &#x200B;
 

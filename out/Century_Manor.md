@@ -1,0 +1,30 @@
+I grew up in a large city for most of my life, although where I lived wasn’t really the city when I was born, it was right in the border of country land and my city’s beginning streets. 
+
+Brief info on my city’s history, it’s one of the first to be erected when settlers first came here and has a lot of building well over 300 years old. One of these many buildings is the old insane asylum (or what was left of it) the only part of this building that was left was the massive mansion part that sat on the edge of an escarpment, it originally was the staffs living quarters when the facility was first erected in the 1700s, but as the city grew at the time they needed more space for patients and was turned into the highest security level building on the grounds. 
+
+It was meant to hold the criminally insane, the murders, serial killers, and was rumoured to house a satanic cult that was arrested for sacrificing children and eating them in the late 1700s. Many years later there was a fire in this part of the insane asylum around the early 1800s, the city’s fire brigade and Volunteers from the surrounding area rushed to douse to inferno that was blazing abnormally hot And fast. 
+
+As the people and fire brigades approach the raging fire they could hear screams of pain, laughter of the most wicked kind and see some of the other less dangerous patients staring in awe as if hypnotized by the flames, and so in rushed the firefighters 
+To save as many patients as possible.
+
+One by one they retrieved patients and carried them out on their shoulders clearing each floor on the way up through the mansion, the most criminally insane and dangerous of the patients were housed on the top floor of the four story building, and as the firefighters approach the final floor they can’t help but feel fear and anxiety not from the fire above them that seems to remain exclusively on the top floor, but from the animals that they would have to face when they opened the massive steel doors separating the stairwell to the blazing fourth floor.
+
+The firefighters eventually returned from attempting to free the last floor of patients but they were empty handed and when asked where the patients were they just stood there. Utterly shell shocked by what they had just witnessed. One man just kept whispering “why would they do that” over and over again to himself. Onlookers persisted that the firefighters tell them what happened, one man finally broke the stunned silence among the men and simply said “they’re all gone.” And proceeded to tell everyone that as they reached the top floor they could see down the hallway through the smoke they watched as one patient after another leapt into the flames laughing and giggling maniacally. 
+
+They tried to stop some patients by grabbing them by the arm or leg and dragging them away from the fire but one after another they too broke free and leapt into the fire. The men finally decided they had to abandon the patients to save themselves.
+
+The fire was eventually extinguished and investigators went into the building and up to the fourth floor, they began searching the charred floor for the cause of the fire and as they searched they were surprised to see that there was no trace of any human remains, no bones, no blood, no nothing. 
+
+They made they’re way into the most burned part of the fourth floor where the fire was believed to have started, and was concluded that the fire started in room 4f but mysteriously it seemed to have begun with no real explanation how, the room belonged to one of the rumoured cult leaders and had no curtains, no bed sheets or anything that was flammable in any way, it appeared as though the flames had appeared out of no where.
+
+Despite the mysterious circumstances the investigation was labeled an accident and the fourth floor was walled off and the facility continued as usual for 150 more years before closing officially and became abandoned in the late sixties. 
+
+Through those years up until it’s closure staff continued to experience what they described as faint laughing or sounds running coming from the fourth floor. But the most unsettling story came from a nurse in the 1920s. It begins with the nurse making her rounds at the end of a late night shift, she searched every room on the third floor and made her way to the stairwell that used to go from the ground floor to the fourth, she began making her way down the stairs illuminated by candle light at the time when she heard the infamous laughter echo through the dimly lit stairwell, the nurse, terrified, slowly looked around and saw… nothing. And again the laughter echoed, this time it was as if it was right beside her.
+
+The nurse paralyzed by fear slowly looked around again, this time she looked up the dark stairwell all the way up to the old landing of the fourth floor and staring back at her was a set of glowing yellow eyes with a blackness behind them that couldn’t be described as anything but a void but burned with a yellow deep and hypnotizing like fire. 
+
+The laughed echoed one last time but rang inside the nurses head like nails on a chalk board. And she quickly left running as fast as she could and would never return to work at the asylum again. Fast forward 100 years after the incident with the nurse me and two of my buddies plan on breaking into the remaining mansion that sits on the edge of of the escarpment that houses the infamous fourth floor. 
+
+We planned it for 3:00am on September 18th of 2021 and we spent two weeks leading up to the date scoping out security and trying to find a way in, since the place has been boarded up and sealed shut at every entrance for at least 20 years, we finally find a small hole that lead into the basement of this mansion and so we waited until for the day to come and finally crawled our way into Century manor. 
+
+Part two on the way.
