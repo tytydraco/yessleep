@@ -1,9 +1,35 @@
-This happened over the span of 4 years time stamps will be there in order from first in counter to most recent 
+This story takes place when I was 11 in a camp sight in the middle of the woods near a beach
 
- 9years old First ever time seeing it. Me and my cousin Alex were having a sleep over at my house and it started out like normal. He arrived and we went and rode the dirt bike in the woods since we lived in the county and nobody minded. Went and started mudding until it started to get slightly dark then we headed back. We put the dirt bike up and ate then we decided to sleep out side and all that jazz you know child hood fun. At a bought 1-2 AM we saw something in the woods start to cross the yard slowly and we thought it was a dog. We were wronger than ever before then I said be quiet and Alex said ok. We had said this so quiet I don’t know how it heard us but it slowly looked at us moon shining on it’s pale skin I had lent both iced this before. The moon had shown right on it. We ran cold the thing slowly stood on it’s disproportionate body it stood up and it was  taller than anything I’d ever seen and it had long arms almost reaching its knees. It’s skin was tight on it’s body and it had something in its hand I looked closer and I saw a chain I was cramping my pants at this point (not literally I was just scared) then it started off running in to the woods but the chain was pulling something. It was large ish. We ran in side and we’re terrified the next day we found out the next door nabours dog was missing. 
+   When I was 11 my cousin Alex and his family had invited me to camping with them.  Me being and outdoorsy 11 year old I was obliged and packed up asap. 
 
-Almost one year later 10 years old  means Alex had went camping with his step dad and we’re pretty excited his dad was an ex service member so we weren’t scared  his whole family went . 2 sisters older and mom .  We played guns in the woods all day and then set up a tent and went to the camp fire. We ate and then we heard it a loud crack smash !! We all shot up and Paul the step dad went to check it out he came back 3 sec later and grabbed his gun .  Went in to the woods and was walking around while this thing ran around and screeched then he came back and said let’s. Get some rest now and we all went to our tents and went to sleep . 2-3 AM me and Alex woke up to a bunch of scratching on our tent and we were silent we grabbed our knives and heard it shifting around this continues to happen for a little while. When we got up in the morning we saw a disturbance in the pine straw and it was like it was a trail then it went off into the woods and then we lost it. 
+   We reached the camp sight and it was a very small patch of clear brush that nobody was on and we were excited. We setup our tents and started playing Vietnam war ( a fun game we made up). We were playing in the woods and got called to eat lunch so we ran but I dropped my to gun ( this is important later) we ate and then we started playing with the pellet rifles and shooting skets and bugs. 
 
-13 years old I was at my dads and it was night time I let the dog out and was standing outside he lives in bofu (middle of no where) I watched it trout around and so it’s thing boom the dog stops dead in it’s tracks. Now I’ve never heard this dog bark before ever. It loses its mind barking and freaking out then I saw it move from a burn pile that was put out it moved toward us Lankey and tall I said oh shit  and opened the door and we ream inside locked the door and I went to the bathroom to hide for a few minutes. 
+   After this I looked in the woods and saw something large and skinny dart into the log in the woods. This caught me off guard but I kept playing thinking it was Paul ( Alexs step dad) so we kept shooting bugs and soon it was dinner. We put the guns away and ate.
 
-Three months later at the same place I saw the first one at this time I was 6 houses down at my grandmaws. Me and Alex were fishing and vaping at the creek that her yard backed up to it was 3AM and we saw it across the creek it was barle visible across the creek but thare it was looking at us think we were cool vaping. Then the moon came through a cloud and we saw what was hiding in the woods the skin was pale and tight it’s eyes were like black holes and nose was gone in place were two holes tho mouth was grinning ear to ear quit literly then it moved and it was in the shadows again then we looked at each other and I took a picture on Snapchat ( really dark but flashed enough to see it a little ) boom it started running and this woods was thick and a hurricane came through 3 years ago so it was really messsed up but it made toot to the log in a matted of seconds and we ran it came after us all while shrieking we made it to the house in a nic of time to we closed the door on it and it smacked against it we locked it and went in the room to recoop. The next day we checked on the spot to get our stuff and went to check out the part where the thing chased us at the woods was so thick I couldent even make it through we turned around and went home shook.
+  Whilst sitting at the camp fire at prolly like 11-12 pm we heard a large (crack boom) in the woods. Then mr Paul stood up and said
+
+Stay here and don’t move a muscle 
+
+Being the adventurous little kids we we’re didint listen and went to the woods 
+
+Mr Paul yelled at us as he grabbed his gun and said stay by the fire!
+
+We ran to the fire and watched 
+
+ Mr Paul was a ex marine and was big like 6.3 and buff kinda big he went into the woods and we heard shouting and yelling then a horrifying screech echoed out. He came back a few minutes later and we went to bed. 
+
+ Me and Alex went to lay down in our tent and mr Paul and his mom and sister went to the other tent 
+
+  I woke up at 3 Am to scratching and movement outside the tent I woke Alex and he said shh we got the knives out and looking back idk why that’s not gonna do anything. 
+
+ It circled our tent for an hour or that’s what it felt like whilst touching it and poking it i thing it was trying to find us. But then it stoped and we heard loud heavy foot steps going toward the woods. 
+ 
+ It left and we breathed a sigh of relief 
+
+ We went back to sleep and got up the the next day. We looked out side the tent and there was a trail in the pine straw around the tent. So we went to look where it went and it disappeared soon after. We started to pack up and I had to go get the toy gun. 
+
+I went into to woods to find the toy gun and I saw it hunched over by the gun it’s skin was pale and way to tight on it. It’s arms were lanky and disproportionate to its body and had something on its head like horns. It saw me. 
+
+It screeched and ran toward me .I screamed and ran to the camp sigh and we packed up and left imedently after. 
+
+I don’t know what I saw but that day. But that screech still lingers in my head like I can still hear it. Like I wants me to go back.

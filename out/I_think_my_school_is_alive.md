@@ -1,0 +1,16 @@
+My school is very weird, the way it’s built is like a maze and it’s hard to navigate it. The teachers act like a robot, they know the in’s and out’s of the school and they navigate it perfectly. The rules of the school was very strict and weird too like if looking into the principal office is a suspension, but if you get sent to the “principal office” you just go to the classroom that lays deep in the school but the weirdest part is class “82122” but our school only has 120 classrooms (yes that’s how weird our school is) 
+
+The class “82122”  is the heart of the school but it’s nowhere near the middle, the teachers call it the heart of the school since it “fuels” our school and keeps it “alive” all the students suspect that it’s a office, the power source, or the teacher lounge. But I think it is literally the “heart” of the school.
+
+
+The “heart” of the school makes a sound similar to a heart beating pattern, and the lights peaking from under the door is ether red or pitch black. The principal always reminds everyone through the announcements speaker every Tuesday on lunch “all students who look into the class 82122 will be expelled immediately” and he says it in a creepy tone.
+
+My older brother wanted to work at my school, but right before he signed the papers he saw on the paper “when signing this paper you will have to make a small blood donation to brugada charity” he is really scared of donating blood to anything really but I have never heard of the name “brugada charity” so I Google it and it auto corrects it to “brugada syndrome” which is a type of heart disease and you might be thinking “it might be a charity for the disease” but do you see what is going on here?
+
+So I’ve come to the fact that my school is alive, and I am going to be breaking into the school over the weekends and finally uncover the mystery.
+
+Edit: It is true, but since I broke in to the school I can’t show any pictures, evidence, and proof that my school is alive since I know someone will alert me to the cops that I broke into a school because of a true rumour.
+
+I grabbed my hammer, ski mask, camera, flashlight, and a knife for protection, I walked to my school and broke into the school from a window, it took me like 10 min just to get to the class. this was it, I started hammering through the door and it opened, a room with a big red heart, it smelled like death. There was blood and flesh covering all of the walls I snapped a couple of pictures but I noticed something off from the school that I later forget.
+
+Since I am a bit curious I checked the principal office and i couldn’t believe it, every single teacher just standing in a big empty room, then they all stared at me with a scary look, and they started chasing me at full speed, I am really athletic and I out-ran them by a lot and escaped into the darkness outside, I got to my house went ti my bed where I am shaking from what just happened, I know I escaped without any consequences because of my ski mask but I never want to go to my school ever again but I have tomorrow. Wish me good luck.
