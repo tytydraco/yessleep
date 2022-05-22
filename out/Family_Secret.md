@@ -1,0 +1,29 @@
+   My life has always been strange. I was kept away from the world growing up because I would always scare the people around me with weird stories and drawings that I made up. My parents parents told me that because I was to young to remember any of it, I don't know why I would even do that. Anyway I'm 18 now and I haven't done anything suspicious so far but even now my parents won't let me get a job.
+
+   They even refused 'take your child to work day' for reasons like "you know we work the night shift sweetie" and "you're a growing young lady so you need to get all the rest you can" even tho I'm older now and becoming mature. I know what you're thinking "that doesn't sound weird, most kids make up weird stories" and yes that's true, but let me explain... we live in a big two story farm house with a double car garage, a basement, and an achor of farmland in the countryside near a highway and down a long dirt path with a large shed and fire pit just behind the house.
+
+   Now, this is just a small farm that we run and it doesn't bring in any profit. We grow our own food and keep animals to tend to, raise, breed and ultimately consume, so this definitely isn't where the money is coming from.
+
+   And they NEVER let me in the shed and they have it under heavy security, like multiple locks and a key pad. And I know what's in there, it's a butcher shop and a bone grinder, because we use all of the animal, we use the grinded up bones for fertilizer, so my question is why have it under such heavy security and why avoid questions about it. Well I started to get sick and tired of they're mystery bullshit, so I was gonna find out after they left for work.
+
+   I looked in every single nook and cranny of my house and eventually found their keys (I'm betting they were spare keys) and password up in the attic in between the walls. That night I was going to put all my questions to ease... Or so I thought, I went into my secret tree house to calm my nerves, I made that tree house as a kid, and jeez I hadn't been there in a long time. I found some old drawings of mine, just stupids scribbles of weird animals, but seeing them again after such a long time was weird, they looked well planned out and seemed familiar to me. I know "how does this fit in here" well you'll see.
+
+   I left the tree house and slowly made my way to the shed, as I went to unlock the door I could hear muffled screams. I know those screams didn't come from any animal we have because I make sure to put them to sleep before they get put in there. Shit, I thought of backing out but I was to close now.
+
+   I went into the greenhouse and screamed because the first thing I saw was A MAN TIED UP AGAINST OUR BONE GRINDER, he was naked and had cuts all over his body and his genitals were replaced with stitches and next to him were HUMAN SKULLS. He was crying out in pain and all I did was run out of that shed as quickly as possible, I closed the door tight and made sure to lock it.
+
+   I thought I was gonna vomit all my organs out, I was shaking so badly and I had just wished that it was all a bad dream and that I would wake up soon. Sadly that wasn't the case, my parents are fucking murders and I'm now a witness, I made sure to put the keys  and password back, I was so glad they weren't gonna be home for a couple more hours. I just sat there for a while taking it all in and then went up to my room like nothing even happened and hoped to god they don't find out I know.
+
+   Hours went by and eventually my parents were home, hearing that front door open almost gave me a heart attack, but none the less I went down stairs and greeted my parents. It was the usual exchange of hugs, hellos and them asking what I did today, I lied and said that I was just up in my room playing video games.
+
+   That night was excruciatingly painful, I sat under my covers in immense fear going over scenarios in my head like "what if I fucked up some how and didn't close the door right" and "what if they go to check on their keys and memorized the exact location". I felt like I was going insane, but soon enough my heavy eye's closed and I and somehow I slept well that night, too bad the family secret would be confirmed by my parents mouth this lovely weekend night.
+
+   We were all sitting on the couch finishing up a movie at 3am because my parents have the weekend off, they turned off the tv and stood up, they looked at me with kind eyes and told me to follow them outside, I did as they said trying to hid the fact that I was trembling.
+
+   We get outside and they tell me to go get some burning wood, I do as they say and come back with a bundle of wood. What I saw when I came back made my heart drop, my parents stood next to each other with large and sharp crooked smiles, blood dripping from the corner of their mouths. Their arms and legs were long, twisted and broken looking, their eyes were as black as coal and it felt like they were staring rignt through me.
+
+   "I was definitely going crazy" I thought to myself, I felt like I was having a heart attack, I couldn't handle this so I started running and I mean FAST. I really couldn't understand how I was going so fast, my mouth felt weird and stretched like I was smiling, next thing I know I could see everything in front of me like I had suddenly gained night vision.
+
+   My heart was racing so much I could feel it in my head, next thing I knew I blacked out and woke up with my parents standing above me, they looked normal again, I asked them what was going on and they told me everything.
+
+   So, posting this is very risky but here it goes, my parents and I are all skin walkers. We live this wonderful life because my parents are proud skin walkers and want me to join the "family business", I refused them and now I'm hiding in a secret location where they hopefully won't be able to find me.
