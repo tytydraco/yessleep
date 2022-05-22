@@ -26,7 +26,7 @@ I’ve seen other things too though. One time, when I was on vacation at Cannon 
 
 So yeah, I’m not exactly stunned when I see something out of the ordinary.
 
-*Still!* I hear you say. *Shouldn’t you have been a little bit frightened?!*
+*Still!* I hear you say, s*houldn’t you have been a little bit frightened?!*
 
 Well, here’s one more story for you: when I was eleven my family moved into a new house. There were only two bedrooms, and my parents were in the master. I *begged* them not to make me sleep in the other one. Want to know why?
 
@@ -38,7 +38,7 @@ That’s why I wasn’t going to let some little monster rob me of a good night�
 
 The next five days I went about my routine like normal. I moved the rest of my stuff into the apartment and unpacked it. I settled myself in. I never saw the creature during the daylight, it stayed hidden away. I figured it for nocturnal.
 
-Around the same time every night, I’d hear it creep out from under the bed. I’d watch as it paced around the room, idly sniffing at the new additions to the space. It seemed indifferent to my presence—not surprising, all the things I see are. That’s why I’ve never been too afraid of them, they always ignore me. It’s like they inhabit a different realm of existence, separate from us. I’ve seen real people walk right through them
+Around the same time every night, I’d hear it creep out from under the bed. I’d watch as it paced around the room, idly sniffing at the new additions to the space. It seemed indifferent to my presence—not surprising, all the things I see are. That’s why I’ve never been too afraid of them, they always ignore me. It’s like they inhabit a different realm of existence, separate from us. I’ve seen real people walk right through them.
 
 I came to find the creature’s presence sort of comforting. I conceptualized him as a guard dog, watching out for me while I slept. I even gave him a name: “Spikey.”
 
@@ -64,7 +64,7 @@ I got into bed that night and drifted off.
 
 I was awoken suddenly by Spikey’s growling. This time he wasn’t at the boundary, the noise was coming from directly beneath me, under the bed.
 
-Once again, I heard the low hum accompanied by the high-pitched singing. This time though, it was accompanied by another sound. The sound of closet doors squeaking open.
+Once again, I heard the low hum and the high-pitched singing. This time though, it was accompanied by another sound. The sound of closet doors squeaking open.
 
 Now I felt genuinely afraid. My heart drummed in my chest. I’m not sure if it fully registered in my brain in the moment, but the fact that the doors opened could only mean one thing: whatever was behind them could interact with the real world.
 

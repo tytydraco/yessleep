@@ -1,6 +1,6 @@
 This all happened about twenty five years ago, back when I was still in preschool. Psychologist said now was as good a time as any to share. The acuity has well and truly passed by now, she reckons, “...so, Brennan, get it out there,” she said. Find someone who’ll listen.
 
-I was a sleepwalker as a kid. A “somnambulant” as the doctors called it. Common enough, but mine was more enterprising than average. This one time, for instance – and this is very much a mild example – I wandered up and back the length of the house with my eyes half open, and apparently mistook the bedroom for the bathroom, and Dad barely made it in time before I pissed on the head of my sister Susie. 
+I was a sleepwalker as a kid. A “somnambulant” as the doctors called it. Common enough, but mine was more enterprising than average. This one time, for instance – and this is a mild example – I wandered up and back the length of the house with my eyes half open, and apparently mistook the bedroom for the bathroom, and Dad barely made it in time before I pissed on the head of my sister Susie. 
 
 My parents thought it was hilarious and relished a retelling of the story, but for several weeks the sleep therapist kept asking in one way or another if I had any ill feeling towards her. 
 
