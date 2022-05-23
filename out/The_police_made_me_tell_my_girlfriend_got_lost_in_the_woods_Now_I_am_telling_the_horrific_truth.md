@@ -52,7 +52,7 @@ As I reached out for the key, I noticed a bag of salt on the floor behind the de
 
 &#x200B;
 
-Once back in his room, I made quick work of the vodka, and vice versa, as I soon passed out drunk on the bed. While I slept the rain intensified. I woke up when lightning hit just outside the motel. I woke up drenched in sweat, the room was hot, musty, and humid. As I stumbled to the bathroom to take painkillers for my throbbing headache, I noticed there was salt on the window ledges and at the doorstep. Someone had been in my room while I was passed out drunk for this stupid superstition.
+Once back in my room, I made quick work of the vodka, and vice versa, as I soon passed out drunk on the bed. While I slept the rain intensified. I woke up when lightning hit just outside the motel. I woke up drenched in sweat, the room was hot, musty, and humid. As I stumbled to the bathroom to take painkillers for my throbbing headache, I noticed there was salt on the window ledges and at the doorstep. Someone had been in my room while I was passed out drunk for this stupid superstition.
 
 “That asshole!” I said to myself as I remembered the bald man who had been following me. When checking my pockets if he had stolen anything, I noticed my car key and wallet were gone, the only thing left in his pocket was the piece of paper with the phone number sheriff McGill had given me, and the spare room key.
 
