@@ -8,11 +8,11 @@ Some nights I still wake up in terror from nightmares of what she did.
 
 The strangest thing about all this was that Fiona was a tiny little thing. The police were utterly flummoxed as to how she had managed to do any of this. Worse still, they couldn’t figure out just how she had killed these people. The cuts were so clean. Like a surgeon’s hand. But there was nothing in the world that could have made these cuts. No scalpel or knife.
 
-All their organs had been removed and then they had been neatly stitched back up again. When they opened the stitches up, they found the insides of the victims had been tattooed with hundred of lines in a language no one could decipher.
+All their organs had been removed and then they had been neatly stitched back up again. When they opened the stitches up, they found the insides of the victims had been tattooed with hundreds of lines in a language no one could decipher.
 
 My daughter is not a medical professional. She is not a tattoo artist. She only speaks two languages. English and Spanish.
 
-We avoided the press but that didn’t mean the articles wouldn’t be written. And the articles came. Articles where they questioned what kind of childhood she had. What kind of parents we were.  They dug through everything about our family and were probably disappointed to find that we were your run of the mill, all American family, so they made so made things up through speculation. Perhaps we were too boring. Perhaps the normalcy was the problem.
+We avoided the press but that didn’t mean the articles wouldn’t be written. And the articles came. Articles where they questioned what kind of childhood she had. What kind of parents we were.  They dug through everything about our family and were probably disappointed to find that we were your run of the mill, all American family, so they made things up through speculation. Perhaps we were too boring. Perhaps the normalcy was the problem.
 
 Or perhaps we were just very good at covering our tracks.
 

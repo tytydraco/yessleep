@@ -68,7 +68,7 @@ In the corner of the screen, a timer counted down from one hour.
 
 Mary's body looked around the chamber. Mary's avatar looked around the field of flowers. And then...
 
-Out of the field, a little girl came running. I recognized her quite away as Mary's daughter Elaine, a little girl of 7 with short blondeish hair and big brown eyes. She was smiling so wide, and as soon as Mary saw her, she clapped both hands to her mouth.
+Out of the field, a little girl came running. I recognized her right away as Mary's daughter Elaine, a little girl of 7 with short blondeish hair and big brown eyes. She was smiling so wide, and as soon as Mary saw her, she clapped both hands to her mouth.
 
 "Hi, Mommy!" Elaine's avatar cried, throwing her arms out for a hug.
 
