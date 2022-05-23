@@ -1,0 +1,21 @@
+I work at a Mall and everytime I use the bathroom I make sure I always have my pepper spray on me. Your probably wondering why and here's the full story on it, When I was 9 my mom would take me shopping with her and I would always like to explore around the mall mostly with how big it was for 9 year old me.
+
+This time was no different my mom said we were going to the mall and I got excited, I would quickly get my shoes on and rush out the door before my mom would have a chance to get ready. When we eventually got there my heart would fill up with so much joy, looking up at it seeing how big it was I would always imagine myself at the top of it like I was the king of the world. 
+
+When we got in I would run ahead and my mom would have to call me back she would tell me everytime that I had to stay with her or a stranger would take me. I would never really pay attention because 9 year old me like to explore the mall due to not really having friends so the mall was a special place for me, while walking around I would like to go on the horse ride and my mom would give me a quarter to go on it. 
+
+I found the horse and begged my mom for a quarter and like always she gave me one, I ran over to the ride and got on and put my quarter in as it went back and forth, I would always imagine I was riding a real horse I even named the horse Sally. It eventually stopped and I got sad seeing it was over that was until a man came up to me and held out a quarter, I looked up and he was a tall man with a black beard and he smelled weird he smiled and I saw his yellow teeth.
+
+"Would you like another quarter" I didn't say anything because I was a scared "You seem like a nice boy" I then heard my mom call my name so I ran back to her and far away from him. I did hear him tell out something "If you still want that quarter you know where to find me" I got to my mom but I decided not to tell her about the man.
+
+After awhile of walking I had to pee and told my mom so she took me to the nearest bathroom, when we got there I went in as she stood outside, I went in and it gave off this awful smell like something had died I walked over to the urinal and when I got there and went I heard the stall door open. I thought nothing of it until I turned around and saw the man from earlier standing there he smiled and walked up to me and asked me if I wanted that quarter now.
+
+I shook my head his smile disappeared, but he told me he had a lot in the bathroom stall and if I came with him I could have as many as I wanted. I told him I didn't want any quarters but he didn't stop there "Well I have candy, don't you want candy" ? I know it sounds dumb but keep in mind I was a child.
+
+I walked over with him to the stall I didn't see any candy but he insisted it was in there I just had to go in there and I would see it. He had one hand in his pocket like he was trying to grab something in there, that was until I heard my mom call me and I was about to run out until the man grabbed me by my arm "Where do you think your going you little brat".
+
+My mom then came into the bathroom and saw the man had ahold of me "What the hell are you doing with my son" the man through me into the wall and ran out of the bathroom, my mom asked if I was alright and I told her yes afterwards she told a worker what happened and they brought us to security. The guy doing cameras told my mom the man went in the bathroom 15 minutes before I came in and said he would call security to go find the man.
+
+My mom thanked him later security found the man hiding in the back of the mall I didn't know what happened to the man until years later, my mom told me he had a knife on him and he was planning on killing me. I remembered how he had his hand in his pocket realizing he had a knife on him which terrified me even to this day knowing I almost died.
+
+I am know 20 years old and I am certainly working at a Mall and everytime I go to work I always have my pepper spray on me, especially when I go to the bathroom you can never be too safe out there.
