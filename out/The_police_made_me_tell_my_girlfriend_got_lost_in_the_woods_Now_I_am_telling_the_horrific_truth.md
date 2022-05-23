@@ -2,7 +2,7 @@ A day had gone by without me having heard from Abby, I returned to the police st
 
 I noticed a bald man with a scar on his left cheek standing outside the police station, staring at me as I entered the building.
 
-I found myself once again sitting opposite of sheriff McGill in his rather small office. before the sheriff appeared presentable, however now I clearly smelled alcohol on his breath, the mug that said world’s best father was now being used as an ashtray, the sheriff had been smoking quite a lot judging from the amount in cigarette buds in the mug.
+I found myself once again sitting opposite of sheriff McGill in his rather small office. before the sheriff appeared presentable, however now I clearly smelled alcohol on his breath, the mug that said world’s best father was now being used as an ashtray, the sheriff had been smoking quite a lot judging from the amount in cigarette butts in the mug.
 
 “So, still no word from Amy?” McGill said while pinching the space between his eyes.
 
