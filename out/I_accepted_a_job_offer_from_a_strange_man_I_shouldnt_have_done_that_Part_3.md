@@ -71,3 +71,5 @@ Or tried to. It turns out the man was stronger than a chronically online 29 year
 He yelled in shock, grabbing my arm with a strength that made me wince.
 
 I didn’t notice in the heat of the moment that we were getting closer to the edge of the precipice. His eyes flitted over my shoulder. In that second I realized just how far he was willing to go. He slammed into me with his full body strength, and the two of us tumbled off the edge.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/uw6ed9/i_accepted_a_job_offer_from_a_strange_man_i/)
