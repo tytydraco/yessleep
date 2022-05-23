@@ -6,7 +6,7 @@ Not this one. The story from the first time it happened is exactly how it is tol
 
 I’m not going to print it here word for word. Probably plagiarism or something. I’ll just give you my abbreviated version.
 
-On March 3, 1876, it rained chunks of meat in Olympia Springs, Kentucky for a little less than five minutes. The witness considered to be the most reliable was a woman identified only as Mrs. Crouch. She reported sitting on her porch making soap just before noon when the meat began to fall onto her front yard. 
+On March 3, 1876, it rained chunks of meat in Olympia Springs, Kentucky for a little less than five minutes. The witness considered to be the most reliable was a woman identified only as Mrs. Crouch. She reported sitting on her porch making soap just before noon when the meat began to fall onto her front yard.
 
 Fearing it to be a sign from God, she waited for the deluge of flesh to stop before traveling to her neighbors to see if it had affected the entire area. As she walked she could see that the shreds of meat had fallen over all of Olympia Springs. Her neighbors wandered through their yard gazing in fear and wonder at the pieces of viscera and muscle covering the town.
 
@@ -28,9 +28,9 @@ It used to seem like a pretty cushy gig until recent events. You are only schedu
 
 When the disgusting downpour gets going it’s all hands on deck. All twenty-one of us report for cleanup duty immediately.
 
-It doesn’t fall on a set schedule. Like I said, about three times a month. Could be day or night. Sometimes it would dump down four or five times a month. 
+It doesn’t fall on a set schedule. Like I said, about three times a month. Could be day or night. Sometimes it would dump down four or five times a month.
 
-If it starts on your shift there is a paint-chipped red button, Old Red, fixed to the brick wall of the annex. As soon as the meat starts to fall you punch it. Sirens that take your mind to World War 2 air raid warnings burst across the town. When the siren is on, every citizen in town knows to head indoors immediately, no questions asked. 
+If it starts on your shift there is a paint-chipped red button, Old Red, fixed to the brick wall of the annex. As soon as the meat starts to fall you punch it. Sirens that take your mind to World War 2 air raid warnings burst across the town. When the siren is on, every citizen in town knows to head indoors immediately, no questions asked.
 
 If you’re taking a stroll through a neighborhood far from home when the alarm sounds, you walk to the first available home, knock on the door, and the owner is going to let you inside. Been that way since I was a kid. Longer than that I’m sure.
 
@@ -48,7 +48,7 @@ Smelled like he was just storing the stuff down there.
 
 I had done the job for over fifteen years with no complaints. My time was largely my own and the fellas I worked with were good company. Everything was smooth sailing until Thomas Jordan on our crew screwed the pooch and swallowed some of that ungodly shit.
 
-The day it happened I was on watch behind the annex. Thumbing through an old paperback ate up most of my days on duty. My eyes were getting heavy and I was about to drift off into a midafternoon nap when I heard a wet *plop* on the metal roof above me. 
+The day it happened I was on watch behind the annex. Thumbing through an old paperback ate up most of my days on duty. My eyes were getting heavy and I was about to drift off into a midafternoon nap when I heard a wet *plop* on the metal roof above me.
 
 A red piece of gristle slid down onto the concrete in front of me and I reached over my shoulder and slapped Old Red. As the sirens lazily blasted into life I tossed the paperback into the chair and headed inside to gear up. My walkie chattered as the other crewmen signaled their acknowledgment.
 
@@ -94,7 +94,7 @@ The line remained silent.
 
 “Yeah,” he finally responded. “Got some of that meat in my mouth today. My stomach’s been in knots ever since.”
 
-I scrunched my brow in confusion. He had gotten some of that garbage in his mouth? 
+I scrunched my brow in confusion. He had gotten some of that garbage in his mouth?
 
 “Were you wearin’ your gear?” I asked.
 
@@ -138,13 +138,13 @@ The combined effort of four mean and two gurneys was enough to haul him out of t
 
 “Where are they takin’ him?” I asked one of the EMTs.
 
-“County General,” one responded. 
+“County General,” one responded.
 
 “I’ll meet you there,” I barked and started running toward my truck.
 
 “No,” he responded. “Mayor says for you to go home. Could be another rain.”
 
-I froze in my tracks. 
+I froze in my tracks.
 
 “What the hell do you mean the mayor told me to go home?”
 
@@ -163,5 +163,7 @@ Olympia Springs Primitive Church sat ahead of me on my way and I could see the o
 The men slid the sheet-covered gurneys into the chute.
 
 I drove past the church and pulled off behind a storage rental unit. My heart was in my throat and I could feel my pulse in my ears. Those bastards hadn’t taken Thomas to the hospital. They tossed him like garbage into that piss and blood-smelling hellhole.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/uw88p8/flesh_rains_from_the_sky_on_olympia_springs_part_2/)
 
 [GT14](https://www.reddit.com/r/gtripp14/)
