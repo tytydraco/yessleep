@@ -10,9 +10,9 @@ Recently, however, things have changed. And I’ve begun to wonder just how irra
 
 I’m no longer certain of when it all began, but if I had to pinpoint a specific moment, it would be four weeks ago. The first time I heard their song.
 
-It was around quarter to ten. I had resigned myself to bed over an hour before as I had an early morning the next day, yet sleep eluded me. As I lay restless in bed, I started to get that creeping feeling again that there was something outside my window. As usual, I shook it off, thinking it was just my brain playing a cruel trick on me knowing full well that I needed a good night’s rest. 
+It was around quarter to ten. I had resigned myself to bed over an hour before as I had an early morning the next day, yet sleep eluded me. As I lay restless in bed, I started to get that creeping feeling again that there was something outside my window. As usual, I shook it off, thinking it was just my brain playing a cruel trick on me knowing full well that I needed a good night’s rest.
 
-But then, I heard it. Out in the street, someone was *singing*. Not just someone. A whole group. Difficult to tell without seeing them, but there seemed to be at least half a dozen different voices. I couldn’t make out what they were singing. The song sounded like gospel, but the lyrics were in a language I couldn’t comprehend. It didn’t sound like any language I was familiar with. 
+But then, I heard it. Out in the street, someone was *singing*. Not just someone. A whole group. Difficult to tell without seeing them, but there seemed to be at least half a dozen different voices. I couldn’t make out what they were singing. The song sounded like gospel, but the lyrics were in a language I couldn’t comprehend. It didn’t sound like any language I was familiar with.
 
 Looking back now, it’s strange. I don’t remember feeling scared at all that night. Perhaps it was due to my confusion. My attempts to rationalize why these people would be out singing so late at night distracted me from fear. I remember thinking that it was probably a group of drunk college kids messing around. After all, I live in a college town and not too far from the campus, so it seemed plausible. They likely got a bit lost on their way back to the dorms after a night out and lacked the inhibition not to bother my neighbors and I as we tried to sleep.
 
@@ -24,7 +24,7 @@ I continued to listen to the strange song, tracking the voices as they combed up
 
 &#x200B;
 
-It wasn’t until a few days later that I finally managed to bring up the strange event with one of my neighbors. Mrs. Everly was a twig of a woman. The top of her head only rose to my chest, and in her old age, she was hardly anything but skin and bones. I happened to run into her doing some yard work as I returned from my evening jog. 
+It wasn’t until a few days later that I finally managed to bring up the strange event with one of my neighbors. Mrs. Everly was a twig of a woman. The top of her head only rose to my chest, and in her old age, she was hardly anything but skin and bones. I happened to run into her doing some yard work as I returned from my evening jog.
 
 After a bit of friendly small talk, I finally asked her about the singing the other night. She pursed her lips and her brow furled as she tried to determine what I was talking about. I clarified, even though I didn’t think it was necessary. How often does a group of carolers show up at night in the middle of spring? But even as I explained further, it was clear Mrs. Everly had no clue what I was talking about. She must have been asleep already, we reasoned, and left it at that.
 
@@ -76,19 +76,19 @@ Isolation crept over me as I realized there was no one to turn to. The song was 
 
 I took hold of the curtains and threw them open. A chill coursed through my body as I stared at the sight just beyond the thin glass of my window.
 
-The singers were right there. Any closer and they would have been pressed up against the glass. At first, I couldn’t make out any of their features through their veils, but as I focused harder, I began to see. 
+The singers were right there. Any closer and they would have been pressed up against the glass. At first, I couldn’t make out any of their features through their veils, but as I focused harder, I began to see.
 
-Their skin was red and crusted like land in a drought. Strands of skin had begun to peel away around the creases on their faces. They were hairless, down to even their eyelashes. But their eyes, they were the most inhuman trait of all. There was no white in them; instead, they were encompassed by smoldering black tissue like smoldering coals.
+Their skin was red and crusted like land in a drought. Strands of skin had begun to peel away around the creases on their faces. They were hairless, down to even their eyelashes. But their eyes, they were the most inhuman trait of all. There was no white in them; instead, they were encompassed by smoldering black tissue like burning coals.
 
 They continued to sing their twisted chorus with mouths so dry I wondered how they possibly could, and as they did, I could feel the song burrowing deeper into me. As its words reached the deepest depths of my mind I suddenly realized that I could understand them. Those words which had previously eluded me now resonated deep within my mind.
 
 And I realized that their song was beautiful.
 
-Their song told a story, but not of the past. They sang of days to come. Days when the night will leave us and there will only be day. The sun, then, will take its rightful place as God. The clouds will vanish and its rays will shine down on us with renewed intensity. Those who refuse to accept our new savior will be judged, enveloped by a tornado of heat a burned away a layer at a time until all that remains is ash.
+Their song told a story, but not of the past. They sang of days to come. Days when the night will leave us and there will only be day. The sun, then, will take its rightful place as God. The clouds will vanish and its rays will shine down on us with renewed intensity. Those who refuse to accept our new savior will be judged, enveloped by a tornado of heat and burned away a layer at a time until all that remains is ash.
 
-With the clouds gone, there will be no rain. The plants will die as the earth dries up, and we who remain will be left in a haze of dust that cuts away at the skin when the wind blows. Life on this planet will be hell, but for those that can endure the suffering—that can prove themselves worthy—it will be brief. 
+With the clouds gone, there will be no rain. The plants will die as the earth dries up, and we who remain will be left in a haze of dust that cuts away at the skin when the wind blows. Life on this planet will be hell, but for those that can endure the suffering—that can prove themselves worthy—it will be brief.
 
-When the time comes, the fires of the sun will stretch down to the earth in slithering, tendril form. One by one, those of us that remain will be wrapped in its embrace and pulled away from this dying planet. It is nothing to fear. We are simply being chosen. We will become part of the sun, fueling it as it grows to consume more and more of our solar system. In a way, we will live on its flaming belly as it swallows worlds.
+When the time comes, the fires of the sun will stretch down to the earth in slithering, tendril form. One by one, those of us that remain will be wrapped in its embrace and pulled away from this dying planet. It is nothing to fear. We are simply being chosen. We will become part of the sun, fueling it as it grows to consume more and more of our solar system. In a way, we will live on in its flaming belly as it swallows worlds.
 
 &#x200B;
 
