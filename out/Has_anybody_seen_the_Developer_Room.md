@@ -2,7 +2,7 @@ I need help. I need to find a door. If anybody has seen a strange door, please g
 
 I'm not much for exercising, really. I've tried going to the gym but I never really liked it; too many people, and they all seem so much fitter than me, it was all a bit intimidating. But I do enjoy running. Perhaps I don't run as often as I should, but I try to go for 5k about twice a week.
 
-So a couple of weeks ago I got home from my coffee shop job around 6:30, put on my running gear, and headed out. Now I should note that I don't take anything with me when I run, except what I have to; my front door key, and a smart watch with GPS to track my route, but no camera.
+So a few days ago I got home from my coffee shop job around 6:30, put on my running gear, and headed out. Now I should note that I don't take anything with me when I run, except what I have to; my front door key, and a smart watch with GPS to track my route, but no camera.
 
 About half way through my run, I reach an underpass. I've run this route plenty of times before and know it well. But this time, something was different. The light just seemed slightly off, perhaps. I would have thought nothing of it, and forgotten it in seconds, if it weren't for what happened next.
 
