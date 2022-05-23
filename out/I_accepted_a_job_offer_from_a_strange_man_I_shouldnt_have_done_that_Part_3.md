@@ -8,7 +8,7 @@ I sighed and picked a direction. Time to take a walk.
 
 I hadn’t gone far when I heard the sound of a vehicle approaching, and a rusted old pickup truck slowed to pull over next to me. It was hard to pin down the driver’s age – his face was framed by an unkempt beard streaked with gray. He studied me for a long moment through sunken eyes. I couldn’t blame the guy for staring. My forehead had to be covered in blood. Wait, so was the front of my shirt. How had I not noticed that before? I groaned inwardly. My dry cleaning costs were really going up these past couple days.
 
-Finally he tipped the rim of his ball cap. “Padre.”
+Finally he tipped the brim of his ball cap. “Padre.”
 
 “Uh – Hi. Um, I’m looking to get to Castle Rock. Could I ask you for directions? I’ve gotten a little turned around…” I chuckled nervously.
 
@@ -40,13 +40,13 @@ He let out a grim chuckle. “What do you take me for, boy? This ain’t about m
 
 “Th-then…?”
 
-For just the barest flicker of a second – so brief and imperceptive that I wasn’t sure if I’d imagined it – his eyes seemed to soften ever so slightly.
+For just the barest flicker of a second – so brief and imperceptible that I wasn’t sure if I’d imagined it – his eyes seemed to soften ever so slightly.
 
 “It’s better this way.”
 
 The words had barely left his mouth when I shoved his arm, causing the bullet to fire into the ceiling of the cab. He cursed loudly. I fumbled with the door as he readied another shot. By some miracle, even though I was at near point-blank range, the bullet whistled past my ear – grazing it – and went through the glass of the window. I felt blood trickling down my cheek, but the extra moment was all I needed. I grabbed the handle of Luna’s carrier and jumped out of the cab. What the hell was this?! I didn’t have time to pick a direction – I ran. I remembered reading online how if you ever got shot at, you should weave around to minimize your chances of being hit, instead of going in a straight line. I didn’t expect to ever have to actually use that knowledge. Another bullet sped past me. Luna was yowling in fear.
 
-I crashed through the thicket into the woods, running through the underbrush. 
+I crashed through the thicket into the woods, running through the underbrush.
 
 “Come on, Pastor,” I could hear the man call out from behind me. “Don’t make this harder than it needs to be.”
 
