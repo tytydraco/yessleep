@@ -1,6 +1,6 @@
 [First](https://www.reddit.com/r/nosleep/comments/unyxrz/i_can_hear_music_coming_from_people/) [Previous](https://www.reddit.com/r/nosleep/comments/uoxjek/i_can_hear_music_coming_from_people_2/) Current
 
-My dog Sally is a Siberian Husky, if anyone knows about the breed they're known for being escape artists, and when there's an opportunity...their hearts say, "Soar." I remember the first time she got lost, it was on the first night we brought her home. Back then her tail only played a few sounds, it was a triangle ringing all day and rain drops falling on the roof during the night.
+My dog Sally is a Siberian Husky, if anyone knows about the breed, they're known for being escape artists, and when there's an opportunity...their hearts say, "Soar." I remember the first time she got lost, it was on the first night we brought her home. Back then her tail only played a few sounds, it was a triangle ringing all day and rain drops falling on the roof during the night.
 
 I woke up after I realized the absence of her sound. I figured she was exploring the house, but when I went downstairs to get some water I realized I couldn't hear her anywhere. I didn't need the music to know what the sinking feeling in my stomach meant. Sally was gone.
 
@@ -48,7 +48,7 @@ They brought K9s with them. I was glad they didn't expect me to walk that field 
 
 When they walked toward him, the man didn't even try to run. Instead, he began to cry. His tears drawing clean lines down his ashen face was the last thing I remembered seeing that night before I fell asleep. It was the first good night I had in over a week.
 
-A few days later we would be told that the dismembered girl matched the lock of hair found in the other lot. That the man they apprehended on the scene had previously been a suspect when the girl was reported missing. The police friend of my mom's told us that they hadn't released it to the public yet, but the man they took into custody was the violin girl's brother.
+A few days later we would be told that the dismembered girl's DNA matched the lock of hair found in the other lot. That the man they apprehended on the scene had previously been a suspect when the girl was reported missing. The police friend of my mom's told us that they hadn't released it to the public yet, but the man they took into custody was the violin girl's brother.
 
 The officer also asked me if I would be willing to come down to the station some time. That there were other pictures he wanted me to look at. And some evidence bags. I don't know if I can do it, but I do want to help, now that the music is back.
 

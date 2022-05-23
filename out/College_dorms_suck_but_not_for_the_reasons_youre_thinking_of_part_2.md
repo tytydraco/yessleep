@@ -67,3 +67,5 @@ The blue flower had stopped chasing its own tendril and came closer to us. It fl
 I held my can of spray paint behind my back. If Curtis saw anything suspicious there, he didn't say so. Stephanie was slowly reaching into the wardrobe. Maybe she had another can in there. The paint in my can was the same as one of our school colors. Fighting carnivorous flowers with spray paint would be a strange way of showing our school spirit, but not the weirdest thing that had happened this evening.
 
 The blue flower raised itself up and positioned itself between me and Curtis and the flowers. It made a sound that was a little like a growl. The red and yellow flowers growled back as Curtis stroked their tubes. "Eat," he said. The flowers [lunged](https://www.reddit.com/user/_Cu_Chulainn17).
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/uvmu8d/college_dorms_suck_but_not_for_the_reasons_youre/)

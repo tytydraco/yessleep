@@ -87,3 +87,5 @@ We were only about ten feet from the window when something broke through it. It 
 The flower started slithering towards us. It was the size of a really big dog. As crazy as it sounds, I decided not to run. Whatever this giant carnivorous plant wanted, it was more than just to eat us. I [hoped](https://www.reddit.com/user/_Cu_Chulainn17).
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/uq679h/college_dorms_suck_but_not_for_the_reasons_youre/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/uvmu8d/college_dorms_suck_but_not_for_the_reasons_youre/)
