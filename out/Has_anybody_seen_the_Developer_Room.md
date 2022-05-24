@@ -34,7 +34,7 @@ I pushed the next door and saw the concrete alleyway. I dropped my shoe to mark 
 
 I got home, microwaved a lasgne, and suddenly my exhaustion caught up with me. I went to bed at 9, though my body felt like it was closer to 2 in the morning.
 
-My boyfriend Steven is a nurse, and was on the night shift that day. When my alarm went off in the morning he was sleeping next to me. Steven isn't the best when woken up, but still I shook his shoulder gently. He opened a pair of grumpy eyes and I ran my mouth of to him. I don't think I even paused for breath for about two minutes.
+My boyfriend Steven is a nurse, and was on the night shift that day. When my alarm went off in the morning he was sleeping next to me. Steven isn't the best when woken up, but still I shook his shoulder gently. He opened a pair of grumpy eyes and I ran my mouth off to him. I don't think I even paused for breath for about two minutes.
 
 When I let him get a word in, Steven assumed it had all been a dream. And honestly? So did I, kind of. It all felt so real, but he was probably right. He must be right. I got ready for work and let Steven go back to sleep. And for the rest of the day, things were pretty normal.
 
@@ -42,7 +42,7 @@ I was closing up that day, and got out around 7, after sunset. As I left it occu
 
 This time I took my shoes off right away, and left one at the exit. I counted the doors; there were 112. I had a notebook and pen with me, so I decided to map the place out, methodically working my way around the lobby.
 
-I tried the doors I'd entered the day before. They were the same, so at least something made sense here. Clothing, Beverages, Furniture, Technology, Zoo. I spent a bit of time in the Zoo, filming the animals barely moving, and took hundreds of photos. Then I moved on.
+I tried the doors I'd entered the day before. They were the same, so at least something made sense here. Clothing, Beverages, Furniture, Technology, Rocks, Zoo. I spent a bit of time in the Zoo, filming the animals barely moving, and took hundreds of photos. Then I moved on.
 
 The next was the Arboretum. Thousands upon thousands of plants, from scraggly grass all the way up to enormous trees. I remember thinking it was odd that they apparently didn't need ground; they just sprouted up from the floor. The floor was the same in the whole place, some kind of smooth surface, a bit like stone, and tinged orange from the light that somehow bathed every room.
 
