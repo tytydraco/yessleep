@@ -1,10 +1,10 @@
-[part 2](https://www.reddit.com/r/nosleep/comments/uoxjek/i_can_hear_music_coming_from_people_2/) 
+[part 2](https://www.reddit.com/r/nosleep/comments/uoxjek/i_can_hear_music_coming_from_people_2/)
 
 [part 3](https://www.reddit.com/r/nosleep/comments/uvhfsg/i_once_heard_music_coming_from_people_now_the/)
 
 It has always been difficult for me to pay attention. I am usually humming along. To the music that I hear. Every place that I go to sounds different. Every person that I talk to too. And sometimes the music changes.
 
-My teacher usually sounds like elevator music, except for when the class is being noisy. Then her melody becomes brassy and harsh like a trombone. My mom's tempo is always upbeat, it reminds me of drums. A bunch of drums, vibrating softly in succession. And my dog, Sally, hers is quick and often rushed, with her tail conducting her tune right behind her like an orchestra.
+My teacher usually sounds like elevator music, except for when the class is being noisy. Then her melody becomes brassy and harsh like a trumpet. My mom's tempo is always upbeat, it reminds me of drums. A bunch of drums, vibrating softly in succession. And my dog, Sally, hers is quick and often rushed, with her tail conducting her tune right behind her like an orchestra.
 
 I think I have always been able to hear these sounds because there are videos of me when I was a baby and I can see my foot tapping or my hand waving. I used to think that it was normal until one day my friend and I were walking home from school. She was running ahead and her usual song stopped playing. Instead an ominous sound starts crawling its way into my ear.
 
