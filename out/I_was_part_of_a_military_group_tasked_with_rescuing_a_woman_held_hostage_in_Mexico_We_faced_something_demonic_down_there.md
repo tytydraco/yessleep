@@ -168,7 +168,7 @@ The smell of sweat and exhaust bombarded us when we went into the chopper. The p
 
 My boots landed on the floor’s ringlets and pipes locked for stretchers and extra seats. I buckled up. The open back cargo area held our weaponry. 
 
-We were all carrying USB .45 Tactical handguns with threaded barrels and suppressors. Our primary weapon of choice was the M14 SOCOM or AK-47 T’s. In the incident of a firefight, we would be able to reload by stripping the combatant’s bodies of ammunition. It as the same as what the cartel carried. Our body armor was Class III A plates made of carbon fiber. Bow Fang radio’s were on our belts alongside our holsters. We carried four grenades each. I had a WWII era Ka-Bar. Some of the others carried SOG Seal Pup blades and bench made knives. 
+We were all carrying USB .45 Tactical handguns with threaded barrels and suppressors. Our primary weapon of choice was the M14 SOCOM or AK-47 T’s. In the incident of a firefight, we would be able to reload by stripping the combatant’s bodies of ammunition. It was the same as what the cartel carried. Our body armor was Class III A plates made of carbon fiber. Bow Fang radio’s were on our belts alongside our holsters. We carried four grenades each. I had a WWII era Ka-Bar. Some of the others carried SOG Seal Pup blades and bench made knives. 
 
 In the back of the chopper were six old Soviet Rocket Propelled Grenade launchers. There were also mounts, multi-tools, and attachable advanced optical combat gun sights (ACOGS). I donned bracers which kept my blades secure and within easy reach beneath the long sleeves of my top. 
 
@@ -302,7 +302,7 @@ We let the Scorpion go after Dryden administered aid to him in the form of a tou
 
 “We’re about to see if it’s real or not,” I said. I reloaded my AK-47.
 
-\-
+\*
 
 We sat in the back of the black hawk, flying through the air in a direction using the map's coordinates.
 
@@ -414,7 +414,7 @@ Dryden stared at the SEAL. “I don’t see how these men could have had blood r
 
 Dryden nodded, and we went into the temple. 
 
-\*
+*
 
 There was a long corridor with a floor made of stone blocks. The first few walls were heaps of ancient mortar. Once we were in a larger area with hung torches which lit the way, we walked on hollow ground.
 
