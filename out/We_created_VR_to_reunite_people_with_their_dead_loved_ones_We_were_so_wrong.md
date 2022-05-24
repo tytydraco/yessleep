@@ -28,7 +28,7 @@ My mom pinched the bridge of her nose between her thumb and forefinger and sighe
 
 "For god's sake, Molly, her son died! How can you be so dense?" She slammed her hands on the kitchen table, pushed herself away from it, and left me there stunned speechless. I had always been somewhat of a difficult child, but my mother never spoke to me this way.
 
-As an adult I now realize why she reacted the way she did. It was a complicated question, I was a dumb kid, and she could probably only think of the immeasurable pain I had caused this poor woman at the park -- after the unthinkable suffering she'd already been through. And maybe, possibly, she was wondering what it would be like to lose me too and end up on that park bench feeding the birds, watching all the other children play in ways that her son never could again.
+As an adult I now realize why she reacted the way she did. It was a complicated question, I was a dumb kid, and she could probably only think of the immeasurable pain I had caused this poor woman at the park -- after the unthinkable suffering she'd already been through. And maybe, possibly, she was wondering what it would be like to lose me too and end up on that park bench feeding the birds, watching all the other children play in ways that her own child never could again.
 
 That story stuck with me. I've been fortunate enough not to lose anyone in my life -- not yet, anyway. By the grace of a God I don't believe in, my aunts and uncles are alive, my parents are alive, my grandparents are even still hanging on. In my 35 years I have never even attended a single funeral. So the idea of death, losing someone forever, it's always hung over me.
 
@@ -62,7 +62,7 @@ Before me on the screen was a blinking green button that read "START." My heart 
 
 "Here we go, boys," I said, and clicked the mouse, hitting the start button.
 
-The screens suddenly switched on, displaying a huge field of beautiful pink tulips, something like you'd see in the Netherlands. The sky was an almost unnatural shade of blue -- I immediately made a note on my notepad, writing that the saturation of colors needed to be toned down. The clouds were huge and white and puffy, and those though didn't look quite right either, I didn't note that. Clouds didn't always look totally natural, and almost looked better when they didn't.
+The screens suddenly switched on, displaying a huge field of beautiful pink tulips, something like you'd see in the Netherlands. The sky was an almost unnatural shade of blue -- I immediately made a note on my notepad, writing that the saturation of colors needed to be toned down. The clouds were huge and white and puffy, and though those didn't look quite right either, I didn't note that. Clouds didn't always look totally natural, and almost looked better when they didn't.
 
 In the corner of the screen, a timer counted down from one hour.
 
@@ -118,13 +118,15 @@ Edward looked away from me. Trevor swallowed, then looked me straight in the eye
 
 "What the fuck do you mean monetize? What do you mean keep coming back?!" I reached for the microphone button but Trevor stopped me.
 
-"The company wants to turn this into a business. If they get closure on the first session they won't be repeat customers. We need them to want to come back."
+"The company wants to turn this into a business, Molly. If they get closure on the first session they won't be repeat customers. We need them to want to come back."
 
 "I never agreed to this!" I exclaimed, and Edward muttered, "Yeah, you weren't in those meetings."
 
 In the chamber, Mary was hugging desperately at the air.
 
 "No, baby, I won't leave, don't worry, I won't leave!"
+
+“I don’t want to die again, Mommy,” Elaine whimpered. Now they were both crying.
 
 "Get her out of there," I said, reaching for another button, and when Trevor tried to stop me again I shoved him away with a surprising amount of strength. I hit the kill switch.
 
