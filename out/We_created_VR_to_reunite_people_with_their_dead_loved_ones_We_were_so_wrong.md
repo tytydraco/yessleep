@@ -82,7 +82,7 @@ It didn't seem to matter. Mary mimed a hug and Elaine's avatar embraced hers war
 
 Elaine's avatar smiled and pulled back from the hug. There was the first disconnect I saw; she pulled back but Mary was still embracing her because she couldn't feel the withdrawal. But it didn't last long as she looked up at her daughter's avatar, still smiling, tears streaming down her neck even with the helmet stopping most of them at her cheeks.
 
-"I missed you," she said, and Trevor put a hand on my shoulder.
+"I missed you," Elaine's avatar said, and Trevor put a hand on my shoulder.
 
 "We did it," he murmured, but I shushed him.
 

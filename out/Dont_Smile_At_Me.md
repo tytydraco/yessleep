@@ -1,4 +1,4 @@
- There's this girl at my high school, she... she was perfect. Her deep blue eyes always had an innocent glint to them, and her lips always curled upwards in a beautiful smile; she always helped anyone in need. When she walks, she walks as if the earth will crumble if she presses against it any harder.
+There's this girl at my high school, she... she was perfect. Her deep blue eyes always had an innocent glint to them, and her lips always curled upwards in a beautiful smile; she always helped anyone in need. When she walks, she walks as if the earth will crumble if she presses against it any harder.
 
 I loved her; I wanted to fess it up, but I don't think she was even aware of my existence, and I've led a miserable life since my parent's separation when I was nine. My mom was negligent and introduced me to drugs. I'm sober now, but I feel withdrawal symptoms now and then.
 
@@ -30,7 +30,7 @@ I quite literally froze. I couldn't speak for a second until I gathered myself a
 
 I felt a wave of shock as she left. My spine went cold, and I was getting chills. I was anxious to meet her, and when I finally did, she asked me out? Of all people, me? It seemed too good to be true.
 
-That night when I returned to my room and started replaying the scene, my reptilian brain kicked in. Something told me not to meet her. That it would be my last night alive if I went to that dinner. Maybe it was my guilty conscience about stalking her for two years straight and the fear that she might be aware of it, the fear of being called a weirdo. 
+That night when I returned to my room and started replaying the scene, my reptilian brain kicked in. Something told me not to meet her. That it would be my last night alive if I went to that dinner. Maybe it was my guilty conscience about stalking her for two years straight and the fear that she might be aware of it, the fear of being called a weirdo.
 
 The thoughts were too obtrusive, I couldn't handle all this. I felt a sudden sense of withdrawal that I could've suppressed under normal conditions but I didn't have the willpower to do so. I know I shouldn't have, but I snorted a teenth of morphine to calm my nerves. Or two. Well, I admit, I lost count of how much, but by then thoughts eased, and I slowly started to drowse.
 
@@ -130,13 +130,13 @@ I went back to the living room to read the phrase I had to tell:
 
 'You pay for happiness with your smile'
 
-That was a long time ago. Everyone from my town forgot me. I took on a new identity and moved to a big city. Everything she said was true. Couldn't kill myself, didn't have to eat, and I couldn't stop smiling. 
+That was a long time ago. Everyone from my town forgot me. I took on a new identity and moved to a big city. Everything she said was true. Couldn't kill myself, didn't have to eat, and I couldn't stop smiling.
 
 It physically hurts me to smile, but she forgot to tell me that I can't sleep, but now I'm questioning whether it's because of the curse or because of my guilt. There's a large number of people 'worshippers' around my house now. They don't behave like themselves, they slowly lose themselves, but I always try to be patient with them.
 
 It turns out that my victim causes me to look differently, If my victim likes a girl, I'll morph into a girl, and I have no control over it. I can trap one person at a time, and I've noticed that people are starting to like me. It would have been a dream come true for my former self, but I despise every second of living like this.
 
-I've trapped 97 people until now. Ninety-seven people faded out of existence. I kept writing their names and clicking photos of them, but the evidence always found a way to disappear. Photos get deleted, and the books where I write their names are lost, my memory of them vague.
+I've trapped 87 people until now. Eighty-seven people faded out of existence. I kept writing their names and clicking photos of them, but the evidence always found a way to disappear. Photos get deleted, and the books where I write their names are lost, my memory of them vague.
 
 I couldn't bear to deal with this secret all by myself, so I turned to Reddit in order to share this with people. So if you ever find yourself with a person who seems to love you and care about you, with their eyes reaching the depths of your soul telling you that it's okay and they understand you, remember that you might as well be talking with me. You'll never know, not until it's too late.
 
