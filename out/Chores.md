@@ -16,7 +16,7 @@ When you mix this devil's debris with time, the product is something that no man
 
 The viscous liquid that oozed from the pipe as I begrudgingly wrenched off the lock nut seemed like it was on the verge of sentience. I likely saved the world by ending its misery before it could reach the next stage of evolution.
 
-Once everything was disconnected, I pulled out the main mass of muck much like a yeoman draws his final bow from his quiver as he defends his land from those that would encroach upon his peaceful life. I thought to send a picture of the sludge that emptied into the bucket, but I feared it violated the Geneva Convention.
+Once everything was disconnected, I pulled out the main mass of muck much like a yeoman draws his final arrow from his quiver as he defends his land from those that would encroach upon his peaceful life. I thought to send a picture of the sludge that emptied into the bucket, but I feared it violated the Geneva Convention.
 
 Somehow I managed to contain the sporadic sputtering in the cabinet and was able to catch 98% of the afterbirth in either the bucket or the towel I had placed underneath.
 
