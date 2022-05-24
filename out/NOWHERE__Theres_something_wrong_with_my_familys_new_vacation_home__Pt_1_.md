@@ -4,14 +4,12 @@ When I was about 12, there was something that happened to my family and me. 
 My dad was getting a promotion from his job, and to this day, I actually don't remember what his job was at that time. I remember one day coming back from school and my mom was excited and so was my little brother Jack who was no less than 7. My dad explained that he was getting a higher position at his job and that he would be bringing extra money from that moment on and to celebrate, we were going away for a road trip. 
 
 
-I was excited. I've been on a road trip. I remember passing through sandy deserts and music playing on the radio. Jack was sitting next to me, playing with his Buzz Lightyear action figure. 
+I was excited. I've never been on a road trip before. I remember passing through sandy deserts and music playing on the radio. Jack was sitting next to me, playing with his Buzz Lightyear action figure. 
 
 
 We were on the road for about 4 hours, and throughout the ride to our vacation location, we only stopped once at a gas station to use the bathroom and pick up snacks.
 
-I was the first one to step out of the bathroom while everyone else was taking their time. And just as I was about to get back in the car, something caught my eye. Through the car - door
-
-window, and through the other door window, right on the other side of the road where there was nothing but the desert, I saw someone. 
+I was the first one to step out of the bathroom while everyone else was taking their time. And just as I was about to get back in the car, there was something caught my eye. Through the car - door window, and through the other door window, right on the other side of the road where there was nothing but the sandy desert, I saw someone. 
 
 
 The door window where my brother Jack was sitting was sort of dirty due to him touching the glass which made it difficult to see the features of whoever was there. But I was about to make out 3 things:
@@ -31,9 +29,9 @@ We got back on the road. I never told my parents what I saw. But it is most like
 
 It turned out that my dad had bought a vacation home.
 
-A house, where around its area of land was mostly dirt. The house’s woods that formed it, had a reddish - orange color, showing that it has been standing there for a long time now. 
+A house, where around its area of land was mostly dirt and sand.  The house’s wood that formed it, had a reddish - orange color, showing that it has been standing there for a long time now. 
 
-When we got inside, I was surprised to see that most of the flooring and walls were renewed with fresh wooden floors and clean wallpapers. 
+When we got inside, I was surprised to see that most of the flooring and walls were renewed with fresh wooden floors and clean wallpapers.
 
 
 We settled in.
@@ -44,7 +42,7 @@ My dad explained to us that we were going to stay for about a week and then we w
 There were bunk beds in the room Jack and I were sleeping in, as my parents room was across the hall from ours. That night, I slept on the bottom bunk, and Jack slept on the opposite above me. 
 
 
-And to this day, I still remember the time of every event it showed up.
+And to this day, I still remember the time of every event 'it' showed up.
 
 
 1:39am. 
