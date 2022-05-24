@@ -1,0 +1,33 @@
+The weird side of YouTube, everyone's been there at least once. You start off with something normal, a trending video, try not to laugh compilations, some DIY tutorial. Then you click on a video in your recommendations, then another and another until you end up somewhere completely unrecognizable watching a video that makes you question the sanity of the person who made it. Well, that's where my story starts.
+
+&#x200B;
+
+I was around 10 years old when I saw it, Mister Teddy wants to die. The thumbnail was black, pitch black and it was about three minutes long. I don't know what possessed me to click on it, the thumbnail obviously wasn't interesting nor was the name very appealing, but still, it caught my attention. Actually, it more than caught my attention, I almost felt like it was drawing me in, daring me to watch. I felt mesmerized by the deep black rectangle and was instantly glued to the screen the second the video started playing.
+
+&#x200B;
+
+The video showed a small white room that had a clear tarp neatly duct taped to the back wall with more tarp spread out covering the entire floor. It had a wooden chair in the center of the room that appeared to have what looked like splattered red paint to my innocent 10 year old mind stained on it. For the first 15 seconds nothing happened, the room sat empty like a still frame. A sense of dread and fear slowly crept in, it only got worse when a man came from behind the camera. This man, he looked.. wrong. There was something otherworldly and almost demonic about him. His skin was pale, unnaturally pale, and had a grayish tint. You could see every vein in his body bulging out, they were dark blue, almost black. He was bald and like the rest of his body, you could see the dark veins decorating his head. His eyes look like two black holes, ready to engulf everything around them as they push against the barely noticeable white corners and his mouth.. it would've seemed normal if it wasn't for that smirk. I don't know how else to describe it, it just looked inhuman. 
+
+&#x200B;
+
+I was so caught off by his appearance that I almost missed the surgical cart he pushed in front of him. It was filled with various tools and medical supplies, knives, and other sharp objects. He rolls the cart beside the chair and the screen goes black. For a moment I thought the video was over even though it had two minutes left .. I wish I had just clicked off then, what happened next still makes my stomach turn. A man now filled the once empty chair, he looked malnourished and had dirty clothes, knotted up hair, and long bags under his eyes. He looked like hell. His hands were tied behind his back and he had a gray strip of duct tape covering his mouth, with an eerie, abnormally wide cartoon-like smile drawn on with a sharpie. The drawn on smile had the same inhuman look the black eyed man's smirk had.
+
+&#x200B;
+
+A deep voice echoed through my laptop's speakers, the black eyed man turned towards the camera, I couldn't help staring at his mouth as it unnaturally morphed with each word. "Hi there, Macy, I know you've been watching". It felt like my heart was dropped from the top of a skyscraper. I wanted to slam the laptop shut right then but I couldn't. I froze in place, terrified. The man keeps talking as he shifts through the objects in the cart, "This is mister Teddy, mister Teddy wants to die" "Macy, do you want to choose how mister Teddy dies??" He spoke as if he was talking to a toddler, sounded almost gentle and kind, yet unnerving at the same time.
+
+&#x200B;
+
+"No, this isn't real" the words quietly fell from my mouth. "Mister Teddy will die again and you will choose how he dies" He turned to face the camera, there was a pistol in his left hand and a large kitchen knife in the other. "I'll make it easy, just two choices, raise your right hand for the knife and left for the gun"
+
+&#x200B;
+
+I sat there in horror as the guy in the chair or mister Teddy or whoever the fuck this poor soul is looked up, I think he could see me. His eyes screamed help as if 10 year old me could do anything through a screen. He sure as hell didn't look like he wanted to die. Then something caught my eye, a red glowing dot coming from the top of my computer. My laptop camera was on. Panic rushed through me like a jolt of electricity, without thinking I quickly threw the palm of my right hand into the camera blocking the view of whoever was accessing it.
+
+&#x200B;
+
+ "Thank you", my eyes darted back to the screen as the black eyed man plunged the knife into the guy's chest. I tried exiting the video but it was like my entire computer screen froze except the video. I ripped the charger out of the wall. Not that it made a difference the battery was at 50% and the computer wasn't going to run out of charge anytime soon. I tried to hold down the power button hoping it would shut off the computer but it did nothing, the carnage was still visible. Eventually, I gave up trying to turn it off and just slammed it shut, throwing my 5th grade science book on top for good measures. I think it goes without saying but I didn't sleep very well that night. It was days before I had the courage to open my laptop back up. I almost expected to find the video still up and that man staring at me with a bloody corpse tied to a chair but it wasn't there. In fact, it was like nothing ever happened, I even checked my YouTube and chrome history, nothing. No sign of the video anywhere. I chalked it up to a nightmare, told myself that I was dreaming despite the fact I didn't sleep at all that night.
+
+&#x200B;
+
+Since then I've tried my best to suppress it, forget it ever happened and it worked.. until recently. I've started seeing the black eyed man again, not in any videos but in my dreams or more like nightmares. Started off a few times a month, then it became every week, and now it's every day. I haven't been sleeping well either. I've been seeing the light on my laptop camera come on so I had to tape it up. Yesterday, I swear I saw him in the reflection of my computer screen. I feel like I'm going crazy and to top it all off someone sent me an invite to a private discord server named Mister Teddy doesn't want to die with the message, "others have seen the video too and we can help". I don't know what to do, this whole thing feels like a sick joke. Maybe it is, what the fuck kind of name is Mister Teddy anyways? I just want some answers, something to make me feel less crazy so if others have seen it too, they're worth talking to, right?
