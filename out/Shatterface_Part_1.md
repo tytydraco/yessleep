@@ -164,4 +164,6 @@ She was gone after I blinked and I wasn't sure if my tired mind wasn't just play
 
 \-To be continued-
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/uwu0q9/shatterface_part_2/)
+
 [X](https://www.reddit.com/r/LadyOfHellWrites/)

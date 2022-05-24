@@ -58,10 +58,9 @@ Not this time.
 
 Presently, what was left of him lay across my knee, and I was running my fingers through his hair, through the vines and tendrils wrapped around his skull. My fingers would pause on his face, tracing hollow sockets which had been his eyes, now glimmering something inhuman, something slithering behind irises. Connor’s body wasn’t quite dead, but it wasn’t alive either. It hummed with electrical energy—every so often his fingers twitched, forming a fist before going limp once more. 
 
-There was something coating his flesh, a goo-like substance, like the thing which had crawled out of his ear. It reminded me a little of the fluid surrounding a baby in the mom’s womb. When the update had been 68%, Connor was as good as dead 71 to 80, he was still comatose, his body jolting once in a while. But edging towards 100, I could sense that he, or at least the thing that had taken over him, the thing wriggling under his skin and spider webbing in his brain, was starting to wake up.
+There was something coating his flesh, a goo-like substance, like the thing which had crawled out of his ear. It reminded me a little of the fluid surrounding a baby in the mom’s womb. When the update had been 68%, Connor was as good as dead and 71 to 80, he was still comatose, his body jolting once in a while. But edging towards 100, I could sense that he, or at least the thing that had taken over him, the thing wriggling under his skin and spider webbing in his brain, was starting to wake up.
 
 I should have felt something. The pain of losing him, the anger that he’d been taken away in the first place. 
-
 
 I didn’t, though. I just felt kind of numb. 
 
@@ -117,9 +116,7 @@ What a strange feeling to have.
 
 The girl continued to narrate in a low voice, “On Monday, he ate through one apple.”
 
-Her words seeped into me. 
-
-They felt so warm—so right.
+Her words seeped into me. .
 
 So familiar. 
 
@@ -211,9 +208,9 @@ She only responded with a laugh, leading me down to the second-floor staircase b
 
 Before I glimpsed the body curled up on the third step from the bottom. I recognised the head of scruffy curls automatically. Jasper Mycroft was like the others, curled into the foetal position, his head buried in his knees. He might have looked peaceful if it wasn’t for the tendrils suffocating his head.
 
- Before I could stop myself I was moving further down the staircase, my hands shaking. When I looked around for the girl, she had vanished out of existence—leaving just me and him. Kneeling in front of him, I reached out and prodded his arm which was wet with something, the same substance coating Connor. He was covered in it, and when I investigated further, the same stuff was coming out of his ears and nose and mouth, oozing from every orifice.
+ Before I could stop myself I was moving further down the staircase, my hands shaking. 
 
-I nudged him, and when he didn’t move, I shoved him hard enough to send him toppling down the last few steps. Still, he was nothing but a tangle of limbs. I checked for breathing but only got a heartbeat. Though when I leaned closer, risking pressing my ear to his chest, I felt something move. Not him, not his body. It was under his skin, writhing under his flesh.
+When I looked around for the girl, she had vanished out of existence—leaving just me and him. Kneeling in front of Jasper, I reached out and prodded his arm which was wet with something, the same substance coating Connor. He was covered in it, and when I investigated further, the same stuff was coming out of his ears and nose and mouth, oozing from every orifice. I nudged him, and when he didn’t move, I shoved him hard enough to send him toppling down the last few steps. Still, he was nothing but a tangle of limbs. I checked for breathing but only got a heartbeat. Though when I leaned closer, risking pressing my ear to his chest, I felt something move. Not him, not his body. It was under his skin, writhing under his flesh.
 
 “What did I tell you?”
 
@@ -227,7 +224,7 @@ Her words sunk in and shivers slipped down my spine.
 
 "Ironic, right?” The girl slumped down next to me with a heavy sigh.
 
- “The symbol of humanity being as much of a monster as the original Spindle subjects who were quite literally created to be the embodiment of hopelessness. It’s no wonder what he saw pushed him over the edge and sent him round the bend.”
+ “The symbol of humanity being as much of a monster as the original Spindle subjects who were quite literally created to be the embodiment of hopelessness. It’s no surprise what he saw pushed him over the edge and sent him round the bend.”
 
 "What did he do?” 
 
@@ -245,7 +242,9 @@ Gritting my teeth, I started to scratch at my flesh—scratching and scratching 
 
 Jasper’s, and more worryingly, eighteen other kids in our class. Before we could get everything we needed, Mycroft caught the three of us and we were grilled for two hours before he was pulled away for something business-related. We managed to get out, agreeing on not risking getting again, but then what? 
 
-I’d gone over it enough times in my head to drive me crazy. After we got out of the office, everything blurred into one foggy, confusing mess. I couldn’t remember the walk home or what I did that night. All I knew was that I’d woken up with the sudden overwhelming urge to bleach my hands. They were filthy, I couldn’t stop thinking about it—like a mantra.
+I’d gone over it enough times in my head to drive me crazy. After we got out of the office, everything blurred into one foggy, confusing mess. I couldn’t remember the walk home or what I did that night. 
+
+All I knew was that I’d woken up with the sudden overwhelming urge to bleach my hands. They were filthy, I couldn’t stop thinking about it—like a mantra.
 
 My fingernails felt like they were caked in something, something I’d never get out. 
 
@@ -273,7 +272,7 @@ Joey groaned, rolling onto his stomach. “Up your butt! Come on, I see this as 
 
 “You’re both insufferable.” I mumbled, frowning at the sky, at strange coloured clouds colliding with the sunset, as the boys voices collapsed into white noise in my head. 
 
-After that, the memory came to an abrupt stop, fog taking over. Beyond lying on warm tarmac and staring at the sky, I had do idea what happened next. 
+After that, the memory came to an abrupt stop, fog taking over. Beyond lying on warm tarmac and staring at the sky, I had noidea what happened next. 
 
 “Mara?”
 
@@ -305,11 +304,11 @@ Instead of telling Luna that, though, I pasted on a smile, despite the fact that
 
 Luna nodded, leaning against my locker and tipping her head back with a sigh.
 
-“Have you seen Connor and Joe anywhere? They weren’t in class.” 
+“Have you seen Connor and Joey anywhere? They weren’t in class.” 
 
 I could feel my breath getting heavier. “You—you haven’t seen them?”
 
-Luna shook her head. “No. I mean, it’s pretty hard to miss Joey’s scarlet mane.”
+Luna shook her head. “No. I mean, it’s pretty hard to miss Joey’s scarlet mane. He's practically glowing."
 
 Her words were barely registering in my head. 
 
@@ -335,7 +334,7 @@ I couldn’t resist a smile. “How did you know?”
 
 I cocked a brow. “I don’t have Snapchat.”
 
-“Connor does.” Luna said.  “I know you want answers. So do I. I mean, do you think I’m going to sit back and let that creep turn my friends into empty husks? But breaking into people’s houses will get you hurt, or brainwashed, or whatever weird crap Mycroft does. We all saw what he did to Jasper, right?”
+“Connor does.” Luna said. "Mara, I know you want answers. So do I. I mean, do you think I’m going to sit back and let that creep turn my friends into empty husks? But breaking into people’s houses will get you hurt, or brainwashed, or whatever weird crap Mycroft does. We all saw what he did to Jasper, right?”
 
 The knot in my gut started to untangle when she grabbed my hands. “I don’t want you to end up like him,” Luna whispered. “So, we’re going to get out of here, okay? Call it—a road trip. Me, you, Connor and Joey. If we can find Rory and Jasper, we’ll bring them too. We can’t drive so we’ll take the train, or maybe a bus, and we’ll go to someone who will actually listen to us. Adults, Mara.” Luna squeezed my hands tighter. “We need adults who aren’t our parents who brush off what we say as delusional rambling and over-active imaginations. We need to get out of town and talk to, I don't know, the CIA?”
 
@@ -355,7 +354,7 @@ That weight was back, pushing hard on my chest.
 
 As much as I wanted to agree with her, I wasn’t going to risk losing Luna too.
 
-“No, I’ll go, and you stay here.” stepped back from her, even when it hurt to push her away. “I’m not pulling you into this. You said it yourself, right? Mycroft is dangerous. He screwed with Jasper’s head, and I don’t even know what he’s done to Rory. But it’s bad. It’s like, really bad.”
+“No, I’ll go, and you stay here.” I stepped back from her, even when it hurt to push her away. “I’m not pulling you into this. You said it yourself, right? Mycroft is dangerous. He screwed with Jasper’s head, and I don’t even know what he’s done to Rory. But it’s bad. It’s like, really bad.”
 
 Luna’s eyes flashed with hurt, her lip curling.
 
@@ -444,7 +443,7 @@ The downstairs kitchen was empty when I slipped through the gap in the window, w
 
 It took all my upper body strength to get in.
 
- I didn’t check upstairs this time—or the office. Because when I straightened up and drank in my surroundings, I was greeted to a door I’d never seen before. Well, Jasper had referred to it as the basement when we were little. It was vastly different from the design of the Mycroft home, sticking out between the rustic modern interior of the Mycroft home. It was a large metal slab, a door, which, when I got closer, seemed to operate on a computerised panel. To my surprise, though, the door was wide open. Almost like it knew I'd been coming. 
+ I didn’t check upstairs this time—or the office. Because when I straightened up and drank in my surroundings, I was greeted to a door I’d never seen before. Well, Jasper had referred to it as the basement when we were little. It was vastly different from the usual design of the kictchen, sticking out between the rustic modern interior of the Mycroft home. It was a large metal slab, a door, which, when I got closer, seemed to operate on a computerised panel. To my surprise, though, the door was wide open. Almost like it knew I'd been coming. 
 
 I started towards it, my breath in my throat. 
 
@@ -476,7 +475,7 @@ He let out another loud laugh, and the lights above flickered. “Let’s play H
 
 I gave up on his restraints, searching for something to cut the velcro straps. “Hangman?”
 
-“Yeah!” Connor’s head tipped back and he giggled. I followed his gaze and glimpsed a shadow hanging over the two of us. No, not a shadow. It was a body
+“Yeah!” Connor’s head tipped back and he giggled. I followed his gaze and glimpsed a shadow hanging over the two of us. No, not a shadow. It was a body. 
 
 "Get it?" Connor giggled. "Hang...man!"
 
@@ -510,9 +509,9 @@ The boy nodded eagerly. “Yes! We all fall down! All fall down! All fall down! 
 
 The moment the words slipped from his lips, the body of Connor’s father dropped to the ground with a meaty sounding smack on marble, and Connor burst into manic giggles, still clinging to my wrist.
 
- His fingernails cut in, sharp and cutting, and I had to bite back a squeak. “Connor!” When I pulled at his wrist, his eyes held no life, nothing to suggest he was looking at me, taking me in. All I saw were pitch dark pupil's staring into something dark, something terrifying; a void only he could see. 
+ His fingernails dug in, sharp and cutting, and I had to bite back a squeak. “Connor!” When I pulled at his wrist, his eyes held no life, nothing to suggest he was looking at me, taking me in. All I saw were pitch dark pupil's staring into something dark, something terrifying; a void only he could see. 
 
-“Mara, at your young she of fourteen, do you understand the concept of a criminal offence?”
+“Mara, at your young of fourteen, do you understand the concept of a criminal offence?”
 
 When I twisted around, Harvey Mycroft was standing in the doorway. He raised his hand in a wave and then gestured to Connor’s dad in a crumpled heap.
 
