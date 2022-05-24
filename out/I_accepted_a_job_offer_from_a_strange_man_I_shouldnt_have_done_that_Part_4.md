@@ -40,7 +40,7 @@ She fell quiet then, and I let out a breath, picking up the carrier. We had both
 
 Luna let out a hiss. I looked at her with surprise. In her nine years of life, I’d never heard this cat do anything like that. Sure, she could be skittish around strangers, but she was always the “flight before fight” type. Flynch bent down to peer into the carrier, smiling at her. “Why, hello there, little cat.”
 
-Elspeth shrank into the back of the carrier and let out a low – What’s the word? That kind of low “mrrow” that cats make when they’re about to fight?
+Luna shrank into the back of the carrier and let out a low – What’s the word? That kind of low “mrrow” that cats make when they’re about to fight?
 
 Before I could comment, he stood back up again. “Well, I certainly didn’t expect you to be taking the scenic route into town!”
 
