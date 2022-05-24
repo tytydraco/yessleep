@@ -163,3 +163,5 @@ I drove down the street and parked in a gas station a few blocks away.  I had a 
 As I read this article, it felt as if my head was floating underwater.  Sarah hadn’t stopped at the truck stop and it now seemed as if her reach was even further than it was three years ago.  Robert Sullivan, Bob as I knew him, lived ten miles away on the other side of town.
 
 There, sitting in the gas station parking lot with the newspaper sitting across my lap and steering wheel, I began to cry.
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/uwuw1g/my_daughter_who_went_missing_three_years_ago_just/)
