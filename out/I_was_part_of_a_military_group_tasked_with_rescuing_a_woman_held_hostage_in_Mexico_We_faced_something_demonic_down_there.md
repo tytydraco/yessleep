@@ -1,4 +1,4 @@
- It’s an old superstition amongst veterans that your last mission is the unluckiest. I am prone to believe it. When I reread the following excerpts from my journal it is evident. The completion of my most lucrative but bloodiest outing was uncanny. 
+ It’s an old superstition amongst veterans that your last mission is the unluckiest. I believe it. When I reread the following excerpts from my journal it is evident. The completion of my most lucrative but bloodiest outing was uncanny. 
 
 I have changed all the names. 
 
