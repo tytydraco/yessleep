@@ -182,9 +182,9 @@ Before I could say anything else, a familiar voice rang out from behind me.
 
 When I turned around, it was my colleague; Andrea.
 
-“What’s going on? You were out there for a bit longer, had us worried.”
+“What’s going on? You were out there a bit longer than expected, had us worried.”
 
-I was gone for a far damn longer time than just “a bit longer”. But not wanting to sound like a lunatic, I made up an excuse.
+I was gone for a far damn longer time than just “a bit longer than expected”. But not wanting to sound like a lunatic, I made up an excuse.
 
 “Got a bit lost, I’m fine though.”
 
@@ -195,5 +195,3 @@ It’s been almost a year since this all happened. I’ve kept it to myself unti
 An entire ecosystem that just “materializes” out of nowhere, coming and going in random intervals. What’s more, all those early accounts and writings, we’re they have been more than just wild fiction? Was there some grain of truth to them?
 
 My encounter then – It’s not exactly a memory I cherish, having nearly met my end. At the same time though, I’ve been meaning to return. I don’t know but, part of me simply wants the answers to the questions raised back then, to know how all of this was hidden from science for so long. Such, is my fascination with the unknown.
-
-&#x200B;
