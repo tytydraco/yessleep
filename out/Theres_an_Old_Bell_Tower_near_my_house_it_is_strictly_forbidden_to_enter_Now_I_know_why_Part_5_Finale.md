@@ -274,7 +274,7 @@ I rolled my eyes.
 
 'Your friend Brian's on the phone, he said you've left some stuff at his house' she mumbled, looking around my room as she was handing me the receiver.
 
-'Thanks' I said, shopping her out of my room.with my hand.
+'Thanks' I said, shooing her out of my room with my hand.
 
 I put the phone to my ear, 'what's up, Brian?' 
 
