@@ -1,4 +1,4 @@
-There is Gacy's clown palette, right? Someone puts it on, they start hearing voices. It's said that the two people who tried it last, a young intern and an officer having an affair, both died. One that same night with a gun shot to the head and the other later in an institution from refusing to eat. Then there's the infamous 1911 that can be heard clicking in its bag of blood on the shelf, still trying to cock itself. There are others aren't there, mostly bagged and stored in police custody, with some evidence rooms packed with more haunted gilt than Ed and Lorraine Warren's museum, never seeing the light of day until they're shown in one of those straight to TV documentaries.
+There is Gacy's clown palette, right? Someone puts it on, they start hearing voices. It's said that the two people who tried it on last, a young intern and an officer having an affair, both died. One that same night with a gun shot to the head and the other later in an institution from refusing to eat. Then there's the infamous 1911 that can be heard clicking in its bag of blood on the shelf, still trying to cock itself. There are others aren't there, mostly bagged and stored in police custody, with some evidence rooms packed with more haunted gilt than Ed and Lorraine Warren's museum, never seeing the light of day until they're shown in one of those straight to TV documentaries.
 
 Cursed things created in the last 100 years, because, it's not as if evil sleeps. Not as if in the absence of God in the past millennium means that the Devil is gone. If anything, it means the present reign is now. And what happened to my family was any other page in these uncertain times.
 
@@ -12,7 +12,7 @@ Mother brushed my hair away from my face and said, "You love the wrong person tw
 
 "Then I shall never fall for love," I answered jubilantly. "For love seems painful."
 
-Mother smiled and looked into my eyes, "If love is pain. Then come here let me hurt you," as she drew me close. That was the day that dad left. He had run off with his secretary while I was at school, taking anything that wasn't bolted down except for the twins and I. It was also the day that Mother started speaking into the cookie jar.
+Mother smiled and looked into my eyes, "If love is pain. Then come here let me hurt you," as she drew me close. That afternoon, my father abandoned us. He had run off with his secretary while I was at school, taking anything that wasn't bolted down except for the twins and I. It was also the day that Mother started speaking into the cookie jar.
 
 It hadn't always started life as a cookie jar. I don't know what it had been before but I had a feeling that it was much older than it looked. The thing was made of thick clay that was fire burnt. Its belly was round and could have been a pot at one point. It was deep too, enough for a child's forearm to disappear beneath the rim. The pale orange lid didn't match at all, it seems to have been added later. The jar had sat above the shelf near the fridge so that the twins wouldn't be able to reach it. As they were always scraping the bottom for chocolate chip cookies, and according to Mother were beginning to resemble tiny cherubs.
 
@@ -20,17 +20,17 @@ I had come home that day, unaware of the scene that I would be walking into. I o
 
 Back then, our neighbor, Old John, came running out to the pasture. Nearly sinking into a hole himself before he was able to kneel next to his beloved companion. He took one look at the mangled leg and brushed the horse's hair, "You'll never be able to run again." I feel as if the horse understood him because it started crying. Later, Billy Braxton from school told me that horses are too dumb to cry. That water only leaves their eyes to clear debris. And that I was stupid for believing such a thing. The old man too, for not putting the beast down.
 
-That sound was once again clear as day in my ears as I walked toward the kitchen. The pictures on the wall shuddering in their frames as I passed. I could see myself in one of them, juddering, making both of our lower lips tremble.
+That sound was once again clear as day in my ears as I walked toward the kitchen. The pictures on the wall shuddering in their frames as I passed. I could see a picture myself in one of them, juddering, making both of our lower lips tremble.
 
 When I stepped into the room, the twins huddled around my knees.  I could feel their tiny bodies shivering as I watched Mother pound the cleaver into the butcher's block, missing several times and sinking the blade into the wooden countertop.
 
-She was whispering and cleaving, waving the steel in the air at times as she pulled her arm back and dropped it down like a hammer.
+She was whispering and cleaving, waving the steel in the air at times when she pulled her arm back and dropped it down like a hammer.
 
 "Stop."
 
-She looked up. Her eyes swirling in anger for the disruption. And in that moment I wanted to flee. To drag the twins with me if I must, but my feet felt nailed to the floor. Her stare chiseling me stone cold, unable to speak another word.
+She looked up. Her eyes swirling in anger for the disruption. And in that moment I wanted to flee. To drag the twins with me if I must, but her stare chiseling me stone cold, unable to speak another word.
 
-In a blink that look disappeared from her face, and I could once again recognize the woman in front of me. Though I couldn't shake what I had witnessed. Who was the woman that had been staring at me earlier, and who was this woman now? Which one was real? Which one was fake? Or were they both real?
+In a blink, that look disappeared from her face, and I could once again recognize the woman in front of me. Though I couldn't shake what I had witnessed. Who was the woman that had been staring at me earlier, and who was this woman now? Which one was real? Which one was fake? Or were they both real?
 
 Mother's look softened, "Come on," as she reached for the cookie jar on the shelf, and turned it over. The chocolate chips rained from the mouth and onto the table. "Take one," she beckoned. The twins ran toward her, their fears forgotten for they were young and resilient.
 
@@ -44,9 +44,9 @@ She stroked Joe's hair, "I know love. That's why we'll only swear into the jar. 
 
 "I can curse?" Susie piqued as she took a bite out of a cookie. The other cookies in front of her, each with a single bite taken out.
 
-"You can say anything you want into the jar. Watch." Mother lowered her head into the hole, disappearing her nose and eyes below the rim until her entire face was sealed tightly against it. Her chest heaved as she screamed into it. But all we heard was the 'woh woh woh' vibrations of the clay kicking against the counter. It reminded me of whales being recorded underwater.
+"You can say anything you want into the jar. Watch." Mother lowered her head into the hole, disappearing her nose and eyes below the rim until her entire face was sealed tightly against it. Her chest heaved as she screamed into it. But all I heard was the 'woh woh woh' vibrations of the clay kicking against the counter. It reminded me of whales being recorded underwater.
 
-After several seconds, Mother put both hands on either side of the jar and pulled it away which caused a large suctioning noise that made Joe laugh. When her face reappeared, I could see the rim marked welt, still crimson around her face. She stared back at us with her eyes wide with renewed elation, "See? I feel much better. And it wasn't horrible, was it?"
+After several seconds, Mother put both hands on either side of the jar and pulled it away which caused a large suctioning noise that made Joe laugh. When her face reappeared, I could see the rim marked welt, still crimson around her face. She stared back at us with her eyes wide and renewed elation, "See? I feel much better. And it wasn't horrible, was it?"
 
 Joe and Susie shook their heads.
 
@@ -56,7 +56,7 @@ Joe and Susie shook their heads.
 
 Mother turned to look at me, and I shook my head a little.
 
-"Good," she smiled. Putting the lid back and putting the jar back onto the top shelf in the corner.
+"Good," she smiled. Putting the lid on and putting the jar back onto the top shelf in the corner.
 
 From that time on, mother would take the jar down and scream into it instead of showing us her anger. And after she had done so, she seemed all better. There were even times when I would see her sitting at the dining table, the jar opened, its lid rolling back and forth from the tip of her fingers as she spoke to it like an old friend. Telling it of our misdeeds or moments of our lives, and even some of our secrets.
 
@@ -96,7 +96,7 @@ As the nights wore on and Mr. Braxton's drinking got worse, the swearing jar spe
 
 Mr. Braxton let her go and stumbled backward, laughing, "That's something you're right about."
 
-At those words, Mother started throwing things at him. I scurried back upstairs when a pot flew past me and crashed into the hall. I could hear them struggling for a bit and the deafening boom of the fridge falling flat on its face before an inaudible wail emerged into a full on siren. It was so mind numbingly loud that I had to cover my ears, the twins were crying when I closed my eyes. My heart drummed in my chest, beating itself as if trying to escape out of my throat and away from this noise when it began to sound like crinkled parchment before it stopped. Dropping dead silence unto our house. Completely gone. Even the walls stopped shaking.
+At those words, Mother started throwing things at him. I scurried back upstairs when a pot flew past me and crashed into the hall. I could hear them struggling for a bit and the deafening boom of the fridge falling flat on its face before an inaudible wail emerged into a full on siren. It was so mind numbingly loud that I had to cover my ears, the twins were crying when I closed my eyes. My heart drummed in my chest, beating itself as if trying to escape out of my throat and away from this noise when it began to sound like crinkled parchment being pummeled in the kitchen before it suddenly stopped. The noise dropping dead silence unto our house. Completely gone. Even the walls stopped shaking.
 
 When I found the courage to walk downstairs, mother was on the kitchen floor. Every cabinet and drawer was thrown open, all of their contents strewn on the ground or stuck in the walls. Mother's dress was ripped on one side and the jar sat between her legs. I watched as she got up and righted one of the shelves and placed the swearing jar back in its place. The jar looked the same as it always had, except for one key difference. The lid on top of it was now beet red.
 
@@ -164,14 +164,18 @@ The house shook heavily, cracking the ceiling above me, sending dust below. I fe
 
 My hair licking the air when I looked up to see Billy's head completely inside the jar. I could tell he was screaming by the way his chest was heaving. The veins on the side of his neck turning green and blue as they thickened with blood. His body twitched as his feet flailed against the ground. I could see Mother's silhouette behind him, holding the jar as she watched.
 
-The mad gleam in her ' shining as Billy's shoulder were tucked square against the lip, causing the suctioning to subdue for a blink. And then the crunching began. It was unlike anything I have ever heard before. At first his collar bone collapsed, and then his chest. I could hear his bones breaking as his tendons pulled and pushed their way down his torso toward his feet as he was sucked inside the jar. His skin stretching like an overfilled garbage bag, I saw a piece of his skull travel to where his stomach had been, its edges straining against the skin, screaming as his insides ballooned to his foot. Then the entire thing squeezed down in a popping noise, and made a pallid pink lid that sat on top of the swearing jar.
+The mad gleam in her ' shining as Billy's shoulders were tucked square against the lip, causing the suctioning to subdue for a blink. And then the crunching began. It was unlike anything I have ever heard before. At first his collar bone collapsed, and then his chest. I could hear his bones breaking as his tendons pulled and pushed their way down his torso toward his feet as he was sucked inside the jar. His skin stretching like an overfilled garbage bag, I saw a piece of his skull travel to where his stomach had been, its edges straining against the skin, screaming as his insides ballooned to his foot. Then the entire thing squeezed down in a popping noise, and made a pallid pink lid that sat on top of the swearing jar.
 
-I screamed and ran up the stairs as Mother called after me, "Can you come into the kitchen," she said. "There's something I want you to look at."
+I ran up the stairs as Mother called after me, "Can you come into the kitchen," she said. "There's something I want you to look at."
 
-I locked myself in the twins bedroom and hid in their closet, watching the scraping of her feet as she paced awkwardly outside. Banging on the wood from time to time before her footsteps disappeared. I waited until morning as Susie began to stir, before opening the door. For the next few days Mother sat in the kitchen, never moving, the pieces of the jar on the table. It was broken to pieces. Eventually the Sheriff and his Deputy came to the house and took her in as a suspect of Mr. Braxton's disappearance, and later Billy's when he wasn't found.
+I locked myself in the twins bedroom and hid in their closet, watching the scraping of Mother's feet as she paced awkwardly outside. Banging on the wood from time to time before her footsteps disappeared. I waited until morning as Susie began to stir, before opening the door. For the next few days Mother sat in the kitchen, never moving, the jar on the table. It was broken to pieces. Eventually the Sheriff and his Deputy came to the house and took her in as a suspect for Mr. Braxton's disappearance, and later Billy's when he wasn't found.
 
-When I knew the counts against her wouldn't stick, I asked Old John to dig near our house where we found the finger. And sure enough, he uncovered a body. It was my father.
+When I knew the counts against her wouldn't stick, I asked Old John to dig near our house where we found the finger. And sure enough, he uncovered a body. It was my father's.
 
 That happened more than 40 years ago and I had long put it behind me. But when I was watching the local news today, it featured a traveling artist that had come to town, they were known for restoring antiques. One of the techniques they employed was 'Kintsugi', a Japanese method of pottery repair that involved the use of gold as a bonding agent. It wouldn't have been a big deal if I didn't recognize the woman in line, holding pieces of a broken jar in a plastic bag. An eerie smile plastered on her face as she turned and looked straight into the camera.
 
-My phone vibrated, it was a text message from Joe, "Did you know they let her out?"
+My phone vibrated as a text message from Joe appeared, "Did you know they let her out?"
+
+&#x200B;
+
+[S](https://www.reddit.com/r/CornerCornea/comments/u6rx8n/subscribe/)
