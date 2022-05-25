@@ -192,7 +192,7 @@ And finally, it clicked. 
 
 It was *him*.
 
-The things on the list weren’t her rules - they were him. There were no knives because he kept them away from her. She was the one trapped in here.
+The things on the list weren’t her rules - they were his. There were no knives because he kept them away from her. She was the one trapped in here.
 
 But why didn’t she tell me while my father was at work?
 
