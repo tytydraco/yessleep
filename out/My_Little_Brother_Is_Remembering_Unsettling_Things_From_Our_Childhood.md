@@ -1,4 +1,4 @@
-So, quick note, this is a true story to the best of my recollection and it kinda gives me chills to think about so I figured I would post it. Something happened today that made me think about this and it’s nagging at me so I had to write it down.
+So, quick note, this is a story that I remember to the best of my recollection and it kinda gives me chills to think about so I figured I would post it. Something happened today that made me think about this and it’s nagging at me so I had to write it down.
 
 When I was maybe 7 or 8, my little brother was 5; old enough to be coherent but still innocent and naive. For the sake of anonymity, I’ll call him David.
 
