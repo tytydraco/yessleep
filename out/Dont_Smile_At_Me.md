@@ -10,7 +10,7 @@ But I noticed some other things that were other weird; for instance, her neighbo
 
 I don't think that I've seen her parents or guardians in the two years I've been following her. Also, every one of her 'worshippers' seems desperate to be with her. From the day I saw her, I couldn't resist her charisma. After all she was funny, sensitive, and amiable, what's not to like in that? But I think I got too carried away.
 
-I've gathered her interests, hobbies, favorite films and music and practically forced myself to like them. She watches documentaries and listens to classical music. I really liked some of the music she listens to; I like Rachmaninoff and Beethoven, but I wasn't too fond of Mozart's vibe. After two years, I've finally gathered the courage to ask her out.
+I've gathered her interests, hobbies, favorite films and music and practically forced myself to like them. She watches documentaries and she's got a thing with paintings of the more obscure artists; I like Rachmaninoff and Beethoven's art, but I wasn't too fond of Mozart's vibe. After two years, I've finally gathered the courage to ask her out.
 
 It was Biology, the only subject I did poorly at. The professor always speaks in a monotone with a few sharp changes in tone now and then. Whenever I'm in his class, I feel like I'm in a trance, the kind of feeling you get when you're in an elevator, but compounded. It's at the edge of  deep sleep, but then suddenly you're jolted awake. I was so deep in my reverie that I didn't notice that the professor had walked out.
 
