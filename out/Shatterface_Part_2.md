@@ -146,4 +146,6 @@ Despite there being no other incident until I arrived at home, I couldn't stop s
 
 \- To be continued -
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/uxkgy7/shatterface_part_3/)
+
 [X](https://www.reddit.com/r/LadyOfHellWrites/)
