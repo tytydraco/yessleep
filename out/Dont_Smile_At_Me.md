@@ -128,7 +128,7 @@ I went to the bathroom and looked at myself in the mirror. I wasn't myself. My b
 
 I went back to the living room to read the phrase I had to tell:
 
-'You pay for happiness with your smile'
+'You shall have to pay for happiness with your smile'
 
 That was a long time ago. Everyone from my town forgot me. I took on a new identity and moved to a big city. Everything she said was true. Couldn't kill myself, didn't have to eat, and I couldn't stop smiling.
 
