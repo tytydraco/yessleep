@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/uxq95m/grandma_always_said_never_go_where_the_briars/)
+
 I was sent to a small town in Idaho for a summer when I was 15 to live with my Grandma on her farm because my mom was “sick.” I knew she wasn’t really sick. I knew it was the drugs again, and I knew I wouldn’t have a good time there. 
 
 My Grandma was pushing 80 physically but might as well have been 180 mentally. She was so senile she was incapable of almost anything other than immediately cleaning the litter box as soon as her cat used it and going to the grocery store each afternoon and making pork chops for dinner. 
@@ -78,8 +80,6 @@ I took in the sight for a few moments and then walked over to the window that ov
 
 That night was different. I could see a small fire somewhere in the briars, illuminating the patch and faintly outline dark figures standing just outside of the briars on the side closest to the farm, their heads looking up in my direction. 
 
-I closed the blinds. 
-
-&#x200B;
+I closed the blinds.
 
 I didn’t sleep that night.
