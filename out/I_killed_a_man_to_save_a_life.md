@@ -1,0 +1,15 @@
+SA warning
+
+I know this sounds crazy coming from a 17 year old teenager but it’s true and it oddly enough doesn’t phase me because I know that I did the right thing
+
+For context I have a close friend group and we do the stupid shit that most teenagers do but I stopped doing it after I almost fell off of a 2 story building and now my role is the Uber driver.
+
+The place we live in isn’t as big as a city but it’s bigger than a town. There are some shady things that happen around here and I know how to protect myself as I have mastered 3 martial arts but I tend to stray away from weapons. So the day is a normal weekend night me and my friends are out driving around doing stupid shit like ding dong ditching and playing man hunt. I am so grateful that we missed the window for free alcohol and weed because I know I would’ve died if I had drank or smoked. Like I said I stopped but I was getting the urge to do it for fun and I told myself one else in a while.
+
+There is this girl that we know but she isn’t like a part of our friend group but we respect each other. I was running as fast as I could and I can run and have a high stamina so I ran for about a mile and a half then stopped behind a couple of these houses that were still being built. I hid in the unfinished bathroom of one of the houses then I heard crying. 
+
+I knew it wasn’t one of my friends as the girls of the group were in the car with my other 2 male friends and we had 8 of us hiding including me. I decide to poke my head out and see what’s going on and I’m horrified to see the girl being held by the hand bruised up and she’s with 3 guys who are laughing at her and told her to shut up. I knew something was going on so I decided to keep looking. I then saw one of the guys take his pants off and tell the other 2 to hold her while they undress her. He starts to penetrate her and I don’t know what happened but something snapped in me. I jumped out  hit the dude in the balls. While he was on the ground I disarmed the other 2 and they ran. I picked the other dude up punched him kicked him took a metal pole and started to beat him with it. I stopped to check his heartbeat and he was still breathing. I go to the girl who’s crying and ask her if she’s ok. She starts to hug me and I almost started to cry until she yelled look out .
+
+I roll over with her and see 1 of the other 2 guys try to shoot me. I lunged at him got the gun out of his and beat him with it. I then got a wood board with nails on it and stabbed it into his neck. I don’t know why but I needed him to suffer more so I took it out of his neck and started to choke him out but with my nails digging into his neck I start to work my way into his windpipe and I grab it and crush it. I knew he was dead and I kicked the other guy and left with the girl.
+
+I never told anyone and she promised me she wouldn’t tell anyone either. So other guy who I didn’t kill, let’s not meet
