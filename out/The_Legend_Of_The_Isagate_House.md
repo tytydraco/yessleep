@@ -76,4 +76,4 @@ I didn't tell anyone about it, and Mr. Larsen kept his word of going away as soo
 
 The town made a huge fuss about it. People started coming up with weird theories and have avoided Isagate ever since. All the property there remains as it was three years ago. I still feel a sense of warmth when I look at the statue, but a lot of the townsfolk say that they feel scared around her.
 
-But the one thing that's unsettling about all this is that the boy was never found. His parents searched for him for months to no avail. He just disappeared. Sometimes, when I go near the mansion, I could swear that I still hear his muffled screams.
+But the one thing that's unsettling about all this is that the boy was never found. His parents searched for him for months to no avail. He just disappeared. Sometimes, when I go near the mansion, I could swear that I still hear his shrill screams.
