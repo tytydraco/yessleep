@@ -1,0 +1,15 @@
+October 1st - Face 274
+
+October brought a specific kind of aura to Cobble Row. I had been fearing the beginning of this month ever since I moved here, to be completely honest, but I didn’t imagine the very first night would spook me so much. The street was dead silent. This wasn’t entirely unusual, but something about tonight was…deafening…almost. My ears began to ring at several points from the lack of sound, I had to stick my finger in them and wiggle it around for temporary relief. It was like the storefronts swallowed any noises that hit them, I couldn’t even hear my own footsteps. I walked the length of the street and saw nothing. Confused, I turned around to look back. Still seeing nothing, I shrugged and began strolling back the way I came. I tried so hard to focus on the sound of my footsteps, but the street remained entirely silent. Upon reaching the other side of the street again I contemplated just going home. However, I turned back one last time and saw tonight's Face. At least, I assumed thats what it was. About 100 yards or so away from me there was a single, red balloon floating about three feet off the ground. Still with no sound, it silently floated there, gently bobbing up and down. I cautiously approached it, careful that I didn’t walk to quickly, but the balloon just stayed where it was.
+
+About 10 yards away I could see something on it…words. Well, one word, to be exact. It looked hastily scribbled as if a child had written it. Written in black across the red face of the balloon was: “Curious?”
+
+I should have taken that as a warning to get the hell out of there, but I didn’t.
+
+I continued to approach the balloon slowly, my steps becoming smaller and smaller until I was shuffling. Eventually I was a foot away, and the balloon did nothing. It just stared back at me with that simple question. 
+
+I was. I was very curious.
+
+Against my better judgement I slowly reached out and poked the string with my index finger, but nothing happened. I decided to test the limits and grabbed the string with my hand, which I immediately regretted. The string stuck to my hand like it was covered in some kind of super-glue and long, spider-like legs began to emerge from inside the balloon. I began to panic and the balloon slowly started rising. I was terrified, but strangely impressed. The rising balloon almost pulled me right off the ground, and I had to wrestle to keep myself anchored on the cobblestone. I fought against the tug of the balloon for a few second before finally freeing my hand from the string, and found myself being quite drained of energy afterwards. I massaged my hand and watched as the spider legs slowly receded back into the ballon and it sunk back down to its starting position, before turning its question away from me and floating back down the street. It bobbed as it did so, almost like it was laughing.
+
+I turned to head home, relieved that I was okay, but left with a new, and more troubling, question in my mind: I am a full grown man and I had fight with all my power to free myself…what if I had been a child?
