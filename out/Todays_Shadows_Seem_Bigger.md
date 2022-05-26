@@ -20,7 +20,7 @@ Cole explained that he was great at talking to people and could “talk the devi
 
 More often than not after finding the person Cole would decide to let them live because he called himself “paranoid and meticulous, always guessing and second guessing a perfect plan”.
 
-Since the murders were spread out nationwide and none of his victims had any connection to the others catching him proved difficult. Cole admitted that he was never arrested or questioned for what he described to me as his “hobby”.
+Since the murders were spread out nationwide and none of his victims had any connection to the others catching him proved difficult. Cole told me that he was never arrested or questioned for what he described to me as his “hobby”.
 
 It was at this point that Cole demanded that I grab a pen and paper and jot down his tale. Who was I to say no? Even though he had his hands on the table there was still a shotgun in his lap. I didn’t want to bet that it wasn't loaded or that I was faster. The safe bet was just to write the story he was telling me.
 
