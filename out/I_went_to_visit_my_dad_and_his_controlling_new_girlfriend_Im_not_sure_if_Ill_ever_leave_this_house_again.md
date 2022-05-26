@@ -14,7 +14,7 @@ Jana is closer to my age than his. She is gorgeous, as he always wanted, flawles
 
 Jana cooks five-star meals and makes sure every spot in the house is always spotless. She takes care of our overgrown garden and scares away children that try to play pranks. 
 
-The question is, what does he see in him?
+The question is, what does she see in him?
 
 Look, despite his odd views of love, my dad's a nice guy, the quiet type, always in his own head but not really deserving of a live-in maid that fulfills all his dreams. The one thing people might admire about him is his job but he does some shady stuff with it too.
 
