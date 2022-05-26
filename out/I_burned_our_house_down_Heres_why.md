@@ -18,11 +18,11 @@ Her dress, the same one she had been wearing that day, was soaking wet, as was h
 
 wondered if it had been her. While I thought this, she nodded. For the next two weeks I kept seeing her in reflective surfaces, and I was overjoyed, though she could not speak.
 
-After the locksmith finally opened up the basement door, My dad and I walked down the old creaking stairs. The basement was pitch black, without any source of light. But with some flashlights we gazed upon the massive hoard of junk left behind by previous residents of this house. 
+After the locksmith finally opened up the basement door, My dad and I walked down the old creaking stairs. The basement was pitch black, without any source of light. But with some flashlights we gazed upon the massive hoard of junk left behind by previous residents of this house.
 
 Among them was a great big old mirror in which I saw Abby, as I had gotten used to by now. She seemed different though, her usual somewhat sad expression was now replaced with one of joy and the biggest smile I have ever seen. Neither my dad or my mom, who came in after us, seemed to be able to see her.
 
-As sleep was eluding me later that night the gentle knocking soon returned and I made my way to the door once again, this time it did not seize as I approached. and when I opened the door, Abby stood there. I fell to my knees while crying and hugged my dead sister, her body was so cold and wet.
+As sleep was eluding me later that night the gentle knocking soon returned and I made my way to the door once again, this time it did not cease as I approached. and when I opened the door, Abby stood there. I fell to my knees while crying and hugged my dead sister, her body was so cold and wet.
 
 For a long time all I could say was her name over and over again, when I somewhat regained my senses I asked her if she needed to warm up. She said she did not feel the cold. It was her voice, just as I remembered it. Exactly as I remembered it. Moments later she was gone and all that had remained was a wet puddle where she had stood.
 
