@@ -198,4 +198,6 @@ Kylie looked just as scared as I felt at the moment, but she nodded anyways. Her
 
 \- To be continued -
 
+[Final Part](https://www.reddit.com/r/nosleep/comments/uyb147/shatterface_final/)
+
 [X](https://www.reddit.com/r/LadyOfHellWrites/)
