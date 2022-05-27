@@ -1,12 +1,16 @@
-I met a girl called Chloe on Hinge. Hinge is another dating app, but one that I’ve had success with in the past. We spent a day by the seaside trying to figure each other out. My ice cream melted and it ran down my finger, which I hate. She ate hers quickly, her tongue licking the rolling beads on the side of the cone. We walked past the arcade, and she pulled me in smiling. Apparently, we weren’t truly at the seaside if we didn’t play the ‘Coin Pusher’ machine. We tried coin after coin with no luck.
+I met a girl called Chloe on Hinge. Hinge is another dating app, but one that I’ve had success with in the past. We spent a day by the seaside trying to figure each other out. My ice cream melted and it ran down my finger, which I hate. She ate hers quickly, her tongue licking the rolling beads on the side of the cone. We walked past the arcade, and she pulled me in smiling. Apparently, we weren’t truly at the seaside if we didn’t play the ‘Coin Pusher’ machine. We tried coin after coin but the rolling text only gave one answer:
+
+"BETTER LUCK
+
+NEXT TIME"
 
 “You know these things are rigged”, I said.
 
 “I know but it’s always worth giving it a go”, she replied.
 
-The other arcade machines amused us for a short time, and out of nowhere I said, “I’m enjoying being by myself at the moment. I know that sounds weird out of the blue, but I just don’t know if I want anything right now”.
+The other arcade machines amused us for a short time, and out of nowhere I said, “I’m enjoying being by myself at the moment. I know that this sounds weird out of the blue, but I just don’t know if I want anything right now”.
 
-And I wasn’t sure what possessed me to say it. She seemed fun and certainly wasn’t someone I’d want to cut a date short on.
+And I wasn’t sure what possessed me to say it. She seemed fun and certainly wasn’t someone I’d want to cut a date short on. I thought perhaps it was my subconscious. Or maybe it was something else?
 
 “Oh okay, ummm”, her face was motionless for a bit. “Look don’t worry about it”, she said cracking a grin. Maybe she respected that I had some sort of genuine reason.
 
@@ -38,7 +42,7 @@ I stuttered, “no honestly its…”. But he pressed it into my hands with a tw
 
 “I can’t see the details on it myself because, because me eyes are no good any m o r e ”, the last few words trailed off as if he was about to cry. I looked up to see he had completely gone. The pier was empty. I walked around the arcade’s perimeter to look for the old man but couldn’t find him.
 
-When I made my way back to the front of the arcade, I realised how late it was. The ghost of the sun was floating in the clouds, painting everything red: the waves, the pier’s floor, and cutting red wedges on the interior of the arcade. When I looked inside there was a deep emptiness. It was like visiting a school after hours, the silent echoes of chatter, music and laughter still there. In my mind’s eye there were holograms of people milling around on the games. I noticed that the old man never fully closed the front door so he probably went inside to lock the inner doors or check things before he left. Although I’m not much of a risk taker, I’ll admit that I was curious to wander around the empty arcade at night.
+When I made my way back to the front of the arcade, I realised how late it was. The ghost of the sun was floating in the clouds, painting everything red: the waves, the pier’s floor, and cutting red wedges on the interior of the arcade. When I looked inside there was a deep emptiness, it was like visiting a school after hours. The chatter, music and laughter still echoing silently. In my mind’s eye there were holograms of people milling around on the games. I noticed that the old man never fully closed the front door so he probably went inside to lock the inner doors or check things before he left. Although I’m not much of a risk taker, I’ll admit that I was curious to wander around the empty arcade at night.
 
 There was a glumness hanging in the air. I started pressing some arcade machine buttons for my own enjoyment. I padded around for a bit and noticed a glowing light out of nowhere. The ‘Coin Pusher’ machine had been turned on. I looked around for any sign of the old man. Perhaps he’d switched it on by accident while fumbling around at the back. Its metal tray moved back and forth like sea waves. Its green, red and yellow lights splashed across my face. “INSERT COIN”. “INSERT COIN”, it commanded. I looked at the coin in my hand. The one that had literally been thrust upon me just now. I wouldn’t miss it particularly, if anything, I figured it would be a fun little memento to end my day. So, I put it in.
 
