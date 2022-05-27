@@ -1,8 +1,8 @@
 My cat started talking to me and the things it says scares me.
 
-Hey nosleep, I've got kind of a weird issue. My cat has started talking to me and the things it's saying are really starting to wear on me. It's been about three weeks now. It all started after my last breakup. 
+Hey nosleep, I've got kind of a weird issue. My cat has started talking to me and the things it's saying are really starting to wear on me. It all started after my last breakup. 
 
-\--- 
+-- 
 
 "She never loved you, you know"
 
