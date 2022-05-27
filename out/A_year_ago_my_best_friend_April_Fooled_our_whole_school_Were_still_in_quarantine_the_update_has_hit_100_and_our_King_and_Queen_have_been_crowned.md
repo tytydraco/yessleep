@@ -280,7 +280,7 @@ I stopped trying to cry out, my eyes flickering, taking in invisible shapes and 
 
 Her wide eyes. Terror. Pain. She was screaming at me, begging me to— begging me to stop. But I was already smiling. Something shattered inside of me for the second time, though this time it was different. It was feral and animistic and hollow, replacing agony and denial with the seeds of joy— happiness, and hysteria. The fragile binding around my brain snapped, and I was released to whatever clouded my mind, whatever was trying to pull me into the dark.
 
-I let it drag me down, down, down, my gaze stuck to the screen. When Jasper finally let her go, after puncturing her gut, gore spilling out in glimmering, beautiful red, he let her go, her body hitting the ground.  But I wasn’t crying anymore. My hands were in my hair and I was pulling, wrenching at my scalp, swallowing cries on my tongue— cries of joy. Glee.
+I let it drag me down, down, down, my gaze stuck to the screen. When Jasper finally let her go, after puncturing her gut, gore spilling out in glimmering, beautiful red, he let her fall, her body hitting the ground.  But I wasn’t crying anymore. My hands were in my hair and I was pulling, wrenching at my scalp, swallowing cries on my tongue— cries of joy. Glee.
 
 Mycroft knelt in front of me, cradling my face and wiping at non-existent tears. His smile was wide, eyes glinting.  They matched mine, and that only made me smile wider. The man patted me roughly on the shoulder. “That’s more like it.”
 
