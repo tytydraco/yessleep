@@ -60,11 +60,11 @@ Surmising that the woman had reacted to her environment, I ran out the door and 
 
 For the past several hours I have been locked in my study. I have boarded up the windows and lined the door frame with linen. Without actual evidence, I now suspect that we have modified our immune system to such a degree that any sign of irregularities will be seen by my body as sickness; in much the same way that some people gag when they see or hear others vomit; my body could possibly be attacking perfectly healthy cells when triggered by the sound of a sneeze or a cough.
 
-I need to keep myself isolated in case someone with a weaker immunity enacts my body's own responses. If I could prevent outside interaction until I found the modification or modifications that had caused this, then perhaps I could reverse it. Or possibly modify it to be less deadly.
+I need to keep myself isolated in case someone with a weaker immunity enacts my body's own responses. If I could prevent outside interaction until I discover which modification(s) caused this, then perhaps I could reverse it. Or possibly modify it to be less deadly.
 
 The only problem being, I can now hear the scratching by my door, followed by quiet mewling. I closed my eyes and tried not to imagine my cat  outside, her back arched, with her mouth open, gagging on a hairball, but I couldn't help it.
 
-And suddenly, I felt an itch on my neck.
+And suddenly, I feel an itch on my neck.
 
 &#x200B;
 

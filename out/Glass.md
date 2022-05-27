@@ -24,7 +24,7 @@ My attention whipped to another thing buzzing along in the dark, as loud as an a
 
 It must’ve been attracted to the light.
 
-Abruptly the buzzing was cut off, and right after was a loud, damp squishiness. There was a chomping that came to me as noisily as if it were in my own mouth. It vibrated from the glass into my bones.
+Abruptly the buzzing was cut off, and right after came a loud, damp squishiness. There was a chomping that came to me as noisily as if it were in my own mouth. It vibrated from the glass into my bones.
 
 About a minute passed. Then the thing *sticking to the glass* was on the move again. It had gotten so close that I could hear the stick and unstick, probably of its feet. The sound was nauseating, as if my vertigo weren’t enough.
 
@@ -44,7 +44,7 @@ And then I was here.
 
 Now I was waiting. I waited motionless for hundreds or thousands of heartbeats or so until—
 
-Facing my direction, the frog-thing’s weird mouth opened. Not all of it, just the central spiral. Something wet, pink, and round showed. I wondered how far its tongue could stretch. That creature must’ve been at least 200 yards away sticking to the glass, but it really was *big*.
+Facing my direction, the frog-thing’s weird mouth opened slightly. Something wet, pink, and round showed. I wondered how far its tongue could stretch. That creature must’ve been at least 200 yards away sticking to the glass, but it really was *big*.
 
 I kept reminding myself that the ledge of wood I was on along the lower exterior of that bizarre kitchen door window was enough room. As long as I leaned backward against the glass, I wouldn’t pitch forward, I told myself.
 
