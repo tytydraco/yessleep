@@ -48,7 +48,7 @@ Curtis blinked. "No," he said. "Nothing that vulgar. It's a spell. I draw a circ
 
 "No," I said. "This is insane. You're fucking insane. I'm not giving you anything."
 
-Roland gripped my hands tightly. He had a strong grip. "It's easier if I don't have to force you, but the ritual will work either way." He was about to continue when the blue flower lunged at the remaining yellow flower. It had propped the door open with its own body and sat watching us talk for the last minute or two. I could not tell how much it had understood.
+Curtis gripped my hands tightly. He had a strong grip. "It's easier if I don't have to force you, but the ritual will work either way." He was about to continue when the blue flower lunged at the remaining yellow flower. It had propped the door open with its own body and sat watching us talk for the last minute or two. I could not tell how much it had understood.
 
 "No," said Curtis as the flowers wrestled. The blue flower was bigger but it couldn't seem to catch the yellow one's stem with its tube the way it had with the last one. "Break it up, guys," said Curtis, but the flowers ignored him. He tried to pull them apart with his hands. His back was to me, so I laced my fingers together and clubbed him on the back of the head with both of my hands.
 
