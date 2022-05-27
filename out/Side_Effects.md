@@ -54,17 +54,17 @@ His face had ballooned to double its size. I could see the veins on the side of 
 
 Dumbfounded, I turned to ask Mrs. Chen what had happened. She screamed at me to help. Again, I asked her politely what had happened. She turns to me angrily and shouts that she doesn't know. That they were talking and suddenly he started turning red. I watched as she cried, her fingers wiping away the mucus running down her nose.
 
-I looked around the room and realized that the air was covered in dust. Due to a modification to the hair growth in our cilias, both Dr. Chen and I were unaffected. But for the average person it could cause an allergic reaction.
+I looked around the room and realized that the air was covered in dust. Due to a cilia modification, both Dr. Chen and I were unaffected. But for the average person it could cause an allergic reaction.
 
 Before the woman could so much as sneeze I ran out the door and drove home.
 
-For the past several hours I have been locked in my study. I have boarded up the windows and lined the door frame with linen. Without actual evidence, I now suspect that we have modified our immune system to such a degree that any sign of irregularities was seen as a sickness. Our bodies would act accordingly and attack at perfectly healthy cells.
+For the past several hours I have been locked in my study. I have boarded up the windows and lined the door frame with linen. Without actual evidence, I now suspect that we have modified our immune system to such a degree that any sign of irregularities will seen by my body as sickness. It will invoke my modified immune system and act accordingly, possibly attacking perfectly healthy cells.
 
-Which is why even the sound of a cough or a sneeze would act as a trigger.
+Possibly causing the sound of a cough or a sneeze to act as a trigger.
 
 I would need to isolate myself in case someone else with a weaker immunity enacts my body's own responses. If I could hole myself up until I found the modification or modifications that had caused this, then perhaps I could reverse it. Or modify it to be less deadly.
 
-My thoughts hadn't even finished when I hear the scratching at my door followed by quiet mewling. I closed my eyes and tried not to imagine my cat outside, her back arched, with her mouth open, gagging on a hairball, but I couldn't help it.
+The only problem being, I can hear scratching by my door, followed by quiet mewling. I closed my eyes and tried not to imagine my cat outside, her back arched, with her mouth open, gagging on a hairball, but I couldn't help it.
 
 And suddenly, I felt an itch on my neck.
 
