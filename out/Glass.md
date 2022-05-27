@@ -66,7 +66,7 @@ Something slapped next to me, hard, out of nowhere. I shook in place, screaming,
 
 I shuffled like mad closer to the crack. It was big, because the window I was edging along was massive, but I didn’t know at first if I could fit into it.
 
-That would only be a temporary escape, if it *was* big enough, but anything seemed better than letting myself be eaten by that frog-thing.
+That would only be a temporary escape, if it *was* big enough, but anything seemed better than letting myself be eaten by that frog creature.
 
 I tried first an arm. Success. Then my shoulder, success, but my torso got stuck in the crack.
 
@@ -78,7 +78,7 @@ I’d been getting ready to wait out my death sentence, but immediately I fell b
 
 It’s the kind of experience that I’ll never get past. It should not have happened. Oh, I’d like nothing more than to pretend it was me falling and hitting my head. The problem with that is the injuries. Medical records don’t lie.
 
-I’ve been reading a lot about parallel universes and dimensions and such. I’m postulating here, but I wonder if some chemical in the glass—or maybe a cleaning agent used on it—charged that gigantic kitchen door window somehow, making a portal. Maybe you had to be *inside* the glass to access it. I wonder about that concussive rifle noise I thought I heard while approaching the light. Sometimes it reminds me of a glacier breaking, though I’d never heard such a thing before, or of a gigantic piece of glass cracking as it touched our world.
+I’ve been reading a lot about parallel universes and such. I’m postulating here, but I wonder if some chemical in the glass—or maybe a cleaning agent used on it—charged that gigantic kitchen door window somehow, making a portal. Maybe you had to be *inside* the glass to access it. I wonder about that concussive rifle noise I thought I heard while approaching the light. Sometimes it reminds me of a glacier breaking, though I’d never heard such a thing before, or of a gigantic piece of glass cracking as it touched our world.
 
 [R](https://www.reddit.com/r/Rick_the_Intern/)
 
