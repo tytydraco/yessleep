@@ -1,4 +1,4 @@
-My work involved gene editing, and my contemporaries frequented various fields of STEM. We had all known each other through several projects or by reputation. However, it weren't until Project Atlas, losing its funding, did we finally come together.
+My work involves gene editing, and my contemporaries frequented various fields of STEM. We had all known each other through several projects or by reputation. However, it weren't until Project Atlas, losing its funding, did we finally come together.
 
 Dr. Josiah Joon had been granted the antigen involved with the failed vaccine as part of his severance. Atlas's original purpose was to combat the seasonal flu. It had showed no negative side effects during our animal and human phased trials, other than affecting mucus viscosity in the sinuses; which all it really did was thicken up the snot.
 

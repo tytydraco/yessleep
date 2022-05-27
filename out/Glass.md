@@ -4,7 +4,7 @@ Behind me, glass.
 
 It was like I’d gone outside a window of a skyscraper and was out on the ledge. I thought maybe it was one of those buildings where the exteriors were practically all glass.
 
-My mind raced. I tried to remember if I’d been at a party and drunk something I shouldn’t have.
+My mind raced. I tried to remember if I’d been at a party and taken something I shouldn’t have.
 
 The ground, far, far below—it was too dark, too expansive, to be a city street. What appeared to be concrete, but not concrete at all, stretched far and wide. Off in the distant fuzz of shadows and greater dark, there was something like a gigantic railing.
 
@@ -24,7 +24,7 @@ My attention whipped to another thing buzzing along in the dark, as loud as an a
 
 It must’ve been attracted to the light.
 
-Abruptly the buzzing was cut off by a loud, damp squishiness. There was a chomping that came to me as noisily as if it were in my own mouth. It vibrated from the glass into my bones.
+Abruptly the buzzing was cut off, and right after was a loud, damp squishiness. There was a chomping that came to me as noisily as if it were in my own mouth. It vibrated from the glass into my bones.
 
 About a minute passed. Then the thing *sticking to the glass* was on the move again. It had gotten so close that I could hear the stick and unstick, probably of its feet. The sound was nauseating, as if my vertigo weren’t enough.
 
@@ -78,7 +78,7 @@ I’d been getting ready to wait out my death sentence, but immediately I fell b
 
 It’s the kind of experience that I’ll never get past. It should not have happened. Oh, I’d like nothing more than to pretend it was me falling and hitting my head. The problem with that is the injuries. Medical records don’t lie.
 
-I’ve been reading a lot about parallel universes and dimensions and such. I’m postulating here, but I wonder if some chemical in the glass—or maybe a cleaning agent used on it—charged that gigantic kitchen door window somehow, making a portal. Maybe you had to be *inside* the glass to access it. I wonder about that concussive rifle noise I thought I heard while approaching the light. Sometimes it reminds me of a glacier breaking, though I’d never heard such a thing before, or of a gigantic piece of glass shifting and cracking as it touched our world.
+I’ve been reading a lot about parallel universes and dimensions and such. I’m postulating here, but I wonder if some chemical in the glass—or maybe a cleaning agent used on it—charged that gigantic kitchen door window somehow, making a portal. Maybe you had to be *inside* the glass to access it. I wonder about that concussive rifle noise I thought I heard while approaching the light. Sometimes it reminds me of a glacier breaking, though I’d never heard such a thing before, or of a gigantic piece of glass cracking as it touched our world.
 
 [R](https://www.reddit.com/r/Rick_the_Intern/)
 
