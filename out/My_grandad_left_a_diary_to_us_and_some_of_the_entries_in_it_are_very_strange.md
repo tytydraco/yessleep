@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/uyvzf9/my_grandad_left_a_diary_to_us_and_some_of_the/)
+
 *For context, we just inherited my grandad’s old house in Indianapolis. I drove Susie the and kids down as a family outing to check it out and I wound up going off on my own. I was up rooting around in the attic, searching through an old trunk of my grandad’s personal effects, ‘cause you know, old people have cool stuff sometimes. Right at the bottom I found this old diary. At first I was like “So what a diary.” But then I started going through it and a couple of the entries he put in here are honestly freaking WILD. I felt like I had to post it here because … well, its just too weird to keep to myself. Hope you enjoy it.*
 
 July 2nd, 1928 —
