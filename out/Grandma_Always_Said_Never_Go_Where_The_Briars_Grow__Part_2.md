@@ -1,5 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/uwd66d/grandma_always_said_never_go_where_the_briars/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/uz3wly/grandma_always_said_never_go_where_the_briars/)
+
 My eyes never left the briars after that day. Whenever I rode my bike, I always had a look out of the corner of my eye at the dark tangle of sticker bushes. 
 
 Two things. 1. I was scared shitless about the boys in the briars and what happened that day I went in there. 2.I wanted that girl who came and stole my bike to come out again. 
@@ -156,7 +158,7 @@ So did Hannah apparently. She grabbed my hand and started leading me through the
 
 I have no idea how Hannah led us through the trails in the briars. It was so dark I couldn’t see anything, just followed her lead. 
 
-I could tell we were being followed - I could hear heavy breathing and pounding footsteps behind us. *They weren’t far away.* 
+I could tell we were being followed - I could hear heavy breathing and pounding footsteps behind us. *They weren’t far away.*
 
 We reached the edge of the briars in a breathless flash. 
 

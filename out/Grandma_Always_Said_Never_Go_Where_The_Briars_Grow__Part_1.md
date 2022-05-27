@@ -1,4 +1,6 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/uxq95m/grandma_always_said_never_go_where_the_briars/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/uxq95m/grandma_always_said_never_go_where_the_briars/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/uz3wly/grandma_always_said_never_go_where_the_briars/)
 
 I was sent to a small town in Idaho for a summer when I was 15 to live with my Grandma on her farm because my mom was “sick.” I knew she wasn’t really sick. I knew it was the drugs again, and I knew I wouldn’t have a good time there. 
 
