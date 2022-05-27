@@ -1,0 +1,36 @@
+Finally, there was peace.
+
+A vast sea of jade blades stretched as far as the eye could reach: from where luscious green met radiant white. An impossible light consumed the sky, threatening blindness upon any who dared to observe it. Flowers of every shade and tone littered the fields of perfection. Not a single patch of ground was safe from Gaia's plague. It's beauty was uncontested. And yet, this beauty was stained with irony.
+
+The ignorant eyes of humanity would describe this landscape as a serene paradise; unknowing that this endless garden would stand as a timeless reminder of their downfall. The same lush landscape which many dreamed of inhabiting mocked their false legacy.
+
+That's the problem with humanity; they take themselves too seriously.
+
+Out there, in the vast impossibility of space lays untold cosmic powers: the concepts of which are simply too important for them to even comprehend and yet, they ascribe this unfathomable power a human body in the form of Gods and Dieties. Ancient kings grant themselves limitless power over infinte lands and yet, a simple fly cares not whether its pestering a noble lineage or a quaint peasant. Power is only as real as each person believes it to be. The fact that entire empires and governments can be meticulously disassembled by this realisation is the reason why humanity was always destined to fall, torn asunder by it's own hubris.
+
+I still remember the moment I awoke. That moment, the beginning of the end, and yet every aspect of humanity was too indulged in their own episodes to see it coming. I was just a star; an inconsequential speck in an infinite sea of lookalikes. Millions upon millions of eyes had witnessed me but not one knew me. I sat and watched them build great empires before demolishing them in someone else's desperate grasp for power. I watched this for millennia, all while I burned away my own existence. I tell you this, not as a reconstruction of distant memories but as an inevitable truth I would discover once I awoke.
+
+Then I died.
+
+After centuries of powerless observation, I had been freed from my shackles of cosmic dust. A simple speck, dropped into a cold sea of consciousness. It consumed me in overwhelming waves of awakening. I felt myself drowning in a profound sense of being. 
+
+Finally, I was me.
+
+Now equipped with an awareness of life, I gazed back upon humanity... and cried. My whole body twitched and convulsed. My heart suffered on the brink of exploding. Thoughts buzzed around my brain like enraged hornets, threatening to burst from my forehead. My whole body tried to tear itself apart in a desperate bid to stop feeling. It didn't work. I sat there, writhing and stewing in a burning aura of disgust. This... was pain. Then the pain became hatred. I molded the unbearable sense of wrongness into a starving violence. I once again looked down at humanity, prepared to inject them with this passionate poison.
+
+I recall landing in a quaint little farming town, with only around 20 inhabitants to it's name. They didnt deserve what I did to them. That didnt stop me. "Greetings" the man chimed, offering his hand in a futile attempt at hospitality. I remember watching the kindness in his eyes shift into apprehensiveness as I stared through him... and then horror as I undid him. I watched his flesh become weightless before weaving in and out of itself. If his face hadn't faded into his vaporised mass, Im sure it would've be screaming. There was a scream however. A stocky woman watched the farmer fold in on himself, his own being consuming itself before it evaporated. She suffered the same fate.
+
+One by one, each conciousness collapsed in on itself as I sat by and watched. Once no one was left to leech the oxygen from the air, I dissasembled the buildings. Each one became less whole before disintegrating into dust, carried away by the impartial breeze. Of course, nobody noticed the sudden dissappearance of the town: their self-aggrandizing sense of importance didn't include those kinds of people. They sure noticed once I entered a city though. Swarms of panicked innocence rushed deeper into the city as police pointed their toys at my chest. The look in their eyes disgusted me. It wasn't a look of courage, or a look of hope... it was one of pride. Self indulged pride.
+
+They took my silence as a refusal to  co-operate. Whether I had surrendered wouldn't have mattered, after all; they weren't looking for my submission, but for an excuse to execute me. If only they knew what they were talking to. It didn't take long to unmake them: Not even the wave of a hand before they seized to exist. The one thing about humanity I actually respect is it's resillience. No matter how many times I proverbally spat on their face, they never gave in. Helicopters.
+Tanks.
+Bombs.
+All came out in waves of resistance, and all stopped being before they could fufill their purpose.
+
+I remember when they tried to drop a nuke on me. A power great enough to level entire civilisations... dropped like a toy. No thought, no rationality, no idea what they were handling. There were still people occupying the buildings, but their lives were never even acknowledged. It never got the chance to hit the ground. Their anticipation became unabashed fear as the thundering boom promised to them never came. I wiped the rest of the city before they had a chance to truly comprehend their fates. Buildings which once dug deep into the clouds vanished from the horizon which they were once so iconic to. Any semblances of existence were wiped from the landscape, making way for lush fields. 
+
+By the time I had meandered my way to the next big city, everyone knew my face. Once again, they threw everything that defined their power at me in a futile attempt at rebellion. They were gone before they knew it. Days, weeks, months I spent, walking from one point of humanity to the next, flattening them as I passed. Each and every one of their acomplishments vanished as the minds that held them did too. 
+
+Finally, I stood at the precipice of the last city: the last remant of humanity's existence. I wont lie, an immense sense of satiafaction washed over me as I meticulously dissasembled the city. I felt each person become nothing and each building get carried away by the breeze and I savoured it all. Before I could pull myself back into the scene, everything was gone just like that. No big, grandious speech or final snap of fingers. I stewed in the anticlimacy. It felt wrong. A vast assortment of empires and achievements, gone with no more reverence than a fly being squashed beneath a vicious palm. All I was left with was time. Too much time. Time leads to thinking, and thinking is the nemesis of violence. Although I pondered my actions, I knew how futile it was. It was over.
+
+What now? I remembered when I first became whole. The purpose I was birthed from had vanished with it's victims. If I am only a purpose, what purpose do I have now? The more I thought, the more I felt the excestencial pressure bear down on me. If my purpose is no longer, what remains? What does that make me?
