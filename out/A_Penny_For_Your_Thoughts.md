@@ -32,7 +32,7 @@ I decided to sit on the pier and watch the sunset. I didn't realise how much tim
 
 He wasn’t threatening and no one else was around, so I walked over and saw what was in his hand. It was a coin, brass coloured with a square hole in the middle.
 
-“Have you seen anything like it? Where do you suppose it’s from?”,
+“Have you seen anything like it? Where do you suppose it’s from?”, he asked somewhat rhetorically.
 
 “Er… not sure…”, I replied vaguely.
 
@@ -40,7 +40,7 @@ He wasn’t threatening and no one else was around, so I walked over and saw wha
 
 I stuttered, “no honestly its…”. But he pressed it into my hands with a two-handed shake. I felt like he meant well so I just went along with it. Wanting to examine the coin, I opened my hand.
 
-“I can’t see the details on it myself because, because me eyes are no good any m o r e ”, the last few words trailed off as if he was about to cry. I looked up to see he had completely gone. The pier was empty. I walked around the arcade’s perimeter to look for the old man but couldn’t find him.
+“I can’t see the details on it myself because, because me eyes are no good any m o r e ”, the last few words trailed off as if the old man was about to cry. I looked up to see he had completely gone. The pier was empty. I walked around the arcade’s perimeter to look for the old man but couldn’t find him.
 
 When I made my way back to the front of the arcade, I realised how late it was. The ghost of the sun was floating in the clouds, painting everything red: the waves, the pier’s floor, and cutting red wedges on the interior of the arcade. When I looked inside there was a deep emptiness, it was like visiting a school after hours. The chatter, music and laughter still echoing silently. In my mind’s eye there were holograms of people milling around on the games. I noticed that the old man never fully closed the front door so he probably went inside to lock the inner doors or check things before he left. Although I’m not much of a risk taker, I’ll admit that I was curious to wander around the empty arcade at night.
 
@@ -80,7 +80,7 @@ I ran to the entrance like a bull in a China shop. I frantically pushed on the f
 
 “No no no no. HELP! HEELP!”, I yelled, “OI, OLD MAN, I’m in here. HELP!”
 
-I saw him through the perforated metal and I was shaking with adrenaline. When he turned around briefly he just waved at me and proceeded to leave. After sitting at the door restlessly; wailing, begging and cursing, I tried to let the adrenaline wear off. What on earth? There was something wrong. Seriously wrong. Eventually, I got up like an injured zombie. I scanned the room and the dusty haze was illuminated by this peculiar red sunset.
+I saw him through the perforated metal and I was shaking with adrenaline. When he turned around briefly he just waved at me and proceeded to leave. After sitting at the door restlessly; wailing, begging and cursing, I tried to let the adrenaline wear off. What on earth? There was something wrong. Seriously wrong. Eventually, I got up like an zombie and I scanned the room. There was a lot of dusty haze illuminated by this peculiar red sunset.
 
 “We’re alooooone now”, said a cheery childlike voice.
 
