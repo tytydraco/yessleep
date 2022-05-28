@@ -124,6 +124,10 @@ She smiled.
 
 “Charles Delora,” she said in that impossibly low voice, “I need you for [something very important](https://www.reddit.com/r/ByfelsDisciple/).”
 
+--------
+
+[Important](https://redd.it/uzmvzl)
+
 --------------
 
 [Open your eyes](https://www.reddit.com/r/thedemoncollection/)
