@@ -1,6 +1,6 @@
-A call, that if I’m honest with myself, I initially thought was going to make an amusing story that I could tell my husband over dinner.  After all, sleepwalking isn’t a real emergency, right..?  
+A call, that if I’m honest with myself, I initially thought was going to make an amusing story that I could tell my husband over dinner.  After all, sleepwalking isn’t a real emergency, right..?
 
-Below I’ve copied and pasted the transcription of the call.  
+Below I’ve copied and pasted the transcription of the call.
 
 \>>9-1-1 call.  Recorded: 12:01PM.
 
@@ -28,8 +28,7 @@ Below I’ve copied and pasted the transcription of the call.
 
 “Yes, and hard.  Never… NEVER in all our time together has he ever done this.  The man, he’s an accountant.  He’s practically a pacifist.”
 
-“Okay, ma’am, I don’t fully understand what is happening, but just to be safe, I’m going to send someone to assist you.  Where is your husband now?”  
-
+“Okay, ma’am, I don’t fully understand what is happening, but just to be safe, I’m going to send someone to assist you.  Where is your husband now?”
 
 “I – I don’t know.  After he hit me, he just – he just walked off and I just – I didn’t know what to do so I called his doctor but he wasn’t in and so I called you.  Here, let me see if I can find him.  Joe!  Joe, can you hear me?’”
 
@@ -55,7 +54,7 @@ Below I’ve copied and pasted the transcription of the call.
 
 \>>End of call.
 
-Less than two seconds after the call went dead, I called Maggie back.  My training, I suppose, took over even as my heart went racing out of control and all the saliva in my mouth fled to God only knows where.  
+Less than two seconds after the call went dead, I called Maggie back.  My training, I suppose, took over even as my heart went racing out of control and all the saliva in my mouth fled to God only knows where.
 
 Feeling powerless, I prayed – I might have even spoken out loud – “Maggie, pick up.  Please.”
 
@@ -67,9 +66,9 @@ Less than ten minutes later, police arrived at Maggie and Joe Ellis’s house, f
 
 Given what had happened, given that my face was white as a sheet, my hands trembling with fright (fright, also shame), given all that, my supervisor, David, volunteered to drive me home.  I told him no.  I might have even said something idiotic like this not being my first rodeo, trying to pretend my stomach wasn’t spinning cartwheels.  Looking back, I don’t know what the hell I was thinking.  Maybe I was trying to feign bravery and take back control.  Whatever the reason, I told myself, “Just take another call.  Move on and forget.  Move on and just help whoever calls next.
 
-It took less a minute until the next call came in, but because we work in rotation, it didn’t come to my station but instead to Marissa Carmichael, my best friend at work and my role model for pretty much everything – husband, children, work life balance – Marissa had it all figured out.  
+It took less a minute until the next call came in, but because we work in rotation, it didn’t come to my station but instead to Marissa Carmichael, my best friend at work and my role model for pretty much everything – husband, children, work life balance – Marissa had it all figured out.
 
-She always joked that the key to life was to make as many mistakes as possible, preferably when you’re still young.  Marissa swore that to truly learn, first you had to fail.  Marissa had experience at failing, having been kicked out of school when she was sixteen after getting knocked up by an abusive piece of shit who was at least 10 years older.  Later she’d lose the baby after getting pushed down the stairs, her swollen belly smacking hard against the slab tile floor.  Hitting literal rock bottom, Marissa, long story short, picked herself up, she buried her unborn child, got her GED and joined the Navy, returning years later to Greenville a changed woman.  
+She always joked that the key to life was to make as many mistakes as possible, preferably when you’re still young.  Marissa swore that to truly learn, first you had to fail.  Marissa had experience at failing, having been kicked out of school when she was sixteen after getting knocked up by an abusive piece of shit who was at least 10 years older.  Later she’d lose the baby after getting pushed down the stairs, her swollen belly smacking hard against the slab tile floor.  Hitting literal rock bottom, Marissa, long story short, picked herself up, she buried her unborn child, got her GED and joined the Navy, returning years later to Greenville a changed woman.
 
 First thing she did when she got back to town was bait her abusive piece of shit ex into a fight where he threw the first punch and she threw the last.  I tell you Marissa was my hero.  Not just unflappable, but invulnerable.
 
@@ -77,7 +76,7 @@ Or so I thought.
 
 The call came from the local hospital, St. Francis Memorial, which in itself, yeah, maybe that should have raised alarm bells, I mean considering that a hospital has their own security and obviously no one is better equipped to handle a medical emergency.
 
-Below is that 911 call. 
+Below is that 911 call.
 
 \>>9-1-1 call.  Time: 12:06PM.
 
@@ -87,7 +86,7 @@ Below is that 911 call.
 
 “Sharon, I hear you.  I will dispatch police right away.  But first, what exactly do you mean “down”?”
 
-“Stabbed.  Dead.  I don’t know.  It was a patient.  She was asleep, then she just got up.  She took out her IV and just started wandering.  I tried to stop herself myself, but… I couldn’t.  It was – it was like she wasn’t even there.  Like she was sleepwalking.  So I had security try to bring her back and, oh god… she stabbed him.  Stabbed him with her own IV.  Oh Jesus, oh god, there’s another one.”
+“Stabbed.  Dead.  I don’t know.  It was a patient.  She was asleep, then she just got up.  She took out her catheter and just started wandering.  I tried to stop herself myself, but… I couldn’t.  It was – it was like she wasn’t even there.  Like she was sleepwalking.  So I had security try to bring her back and, oh god… she stabbed him.  Stabbed him with a damn 14 gauge piercing needle.  Oh Jesus, oh god, there’s another one.”
 
 “Sharon, another what?”
 
@@ -111,13 +110,13 @@ Now Greenville is not a large town by any stretch of the imagination.  In total 
 
 My hope is whoever reads this will be compassionate and not judge any of us too harshly for not putting two and two together sooner, but in our defense, none of us could believe what was happening.  Seemingly normal people from all walks of life, all of them residents of Greenville, were falling asleep, most taking a casual mid-afternoon nap, only to wake up minutes later changed, eyes milky white, and with an unquenchably thirst for violence.
 
-\-- I have to go.  
+\-- I have to go.
 
 I can hear someone… something outside scratching at the door -- also my eyes are so heavy – I have to stand.  I have to do something.  If I sit any more, I’ll sleep.
 
 So far it’s been 36 hours since that first call.  12 hours since I last heard from my husband and close to 48 hours since I last slept.
 
-I don’t know what is causing this.  I don’t know if it’s viral or bacterial – I just don’t know.  Nobody does.  It’s like a sickness, one that doesn’t have a name or a genesis or whatever, but the symptoms are clear.  
+I don’t know what is causing this.  I don’t know if it’s viral or bacterial – I just don’t know.  Nobody does.  It’s like a sickness, one that doesn’t have a name or a genesis or whatever, but the symptoms are clear.
 
 All I can do is try to stay awake just a little longer, one hour, one minute at a time.  And just hope somehow, someone, somewhere can please, please make this waking nightmare stop.
 
@@ -129,13 +128,13 @@ After I check the windows and the doors, I think I’m going to go take a cold s
 
 With luck, I’ll find the strength to keep writing.
 
-I know this might sound cowardly, but the truth is there is a part of me that just wants to close my eyes.  A part of me that is ready to give up and accept my fate for doing the unthinkable.  For abandoning my post.  
+I know this might sound cowardly, but the truth is there is a part of me that just wants to close my eyes.  A part of me that is ready to give up and accept my fate for doing the unthinkable.  For abandoning my post.
 
 That’s right, I did -- I abandoned my terminal.  I ran out on my co-workers and left calls unanswered when I was needed most.  When my town needed me.
 
-But I didn’t have a choice, I HAD TO LEAVE.  
+But I didn’t have a choice, I HAD TO LEAVE.
 
-It took longer than maybe it should’ve to accept that this wasn’t just some dream.  But the pathology was crystal clear.  You sleep, you change, you kill.  
+It took longer than maybe it should’ve to accept that this wasn’t just some dream.  But the pathology was crystal clear.  You sleep, you change, you kill.
 
 And that’s when this thought washed over me, flooding every synapse of my brain, until all rational function was gone and all that was left was dread.
 
