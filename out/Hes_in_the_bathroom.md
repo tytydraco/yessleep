@@ -10,7 +10,7 @@ I found the horse and begged my mom for a quarter and like always she gave me on
 
 After awhile of walking I had to pee and told my mom so she took me to the nearest bathroom, when we got there I went in as she stood outside, I went in and it gave off this awful smell like something had died I walked over to the urinal and when I got there and went I heard the stall door open. I thought nothing of it until I turned around and saw the man from earlier standing there he smiled and walked up to me and asked me if I wanted that quarter now.
 
-I shook my head his smile disappeared, but he told me he had a lot in the bathroom stall and if I came with him I could have as many as I wanted. I told him I didn't want any quarters but he didn't stop there "Well I have candy, don't you want candy" ? I know it sounds dumb but keep in mind I was a child.
+I shook my head his smile disappeared, but he told me he had a lot in the bathroom stall and if I came with him I could have as many as I wanted. I told him I didn't want any quarters but he didn't stop there "Well I have candy, don't you want candy?" I know it sounds dumb but keep in mind I was a child.
 
 I walked over with him to the stall I didn't see any candy but he insisted it was in there I just had to go in there and I would see it. He had one hand in his pocket like he was trying to grab something in there, that was until I heard my mom call me and I was about to run out until the man grabbed me by my arm "Where do you think your going you little brat".
 

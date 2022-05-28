@@ -190,7 +190,7 @@ There was a flash of anger in her eyes as one half of the bickering couple shuff
 
 "Can I ask why you think I'm... a vampire?" I was almost embarrassed to say it.
 
-"I don't think, I know. I sense it. I'm from a long-line of vampire hunters. We have a sense for it. I have to say though, I actually wasn't expecting to bump into one your kind so easily tonight. My parents are hunters too, no one has heard from them in weeks. The last we heard they were in this area following a lead. So I came to investigate. Now I've found you, it's looking a little bit *too* coincidental. The world works in mysterious ways."
+"I don't think, I know. I'm from a long-line of vampire hunters. We have a sense for it. I have to say though, I actually wasn't expecting to bump into one your kind so easily tonight. My parents are hunters too, no one has heard from them in weeks. The last we heard they were in this area following a lead. So I came to investigate. Now I've found you, it's looking a little bit *too* coincidental. The world works in mysterious ways."
 
 I looked at her, pleading. 
 
