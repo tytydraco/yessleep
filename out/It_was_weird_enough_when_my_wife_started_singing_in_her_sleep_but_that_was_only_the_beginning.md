@@ -122,7 +122,7 @@ My wife had always been a sound sleeper. She never snored, talked in her sleep, 
 
  "Make her whole," I said, readying myself to force the blade down into her chest, allowing her blood to flow freely into the waiting mouth of the goddess beneath the concrete slab. 
 
- The haunting tune still echoed from the box above my wife's head, echoing against the ancient walls surrounding us. Jennifer gave me another nod, signifying the time had come. We smiled warmly to one another as I thrust the dagger downwards with all my might and passion. 
+ The haunting tune still echoed from the box above my wife's head, resonating against the ancient walls surrounding us. Jennifer gave me another nod, signifying the time had come. We smiled warmly to one another as I thrust the dagger downwards with all my might and passion. 
 
 •
 
