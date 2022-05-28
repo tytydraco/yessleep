@@ -1,8 +1,10 @@
 [**Part 1**](https://www.reddit.com/r/nosleep/comments/u7wb67/the_clubbing_incubus_part_1/)
 
+[**Part 3**](https://www.reddit.com/r/nosleep/comments/uzxzuq/the_clubbing_incubus_part_3/)
+
 &#x200B;
 
-Saturday night. I’d barricaded myself against his impending attack in the toilets of Copper White. 
+Saturday night. I’d barricaded myself against his impending attack in the toilets of Copper White.
 
 Just then, the maniac laugh came. He was here. And ready.
 
@@ -10,7 +12,7 @@ Just then, the maniac laugh came. He was here. And ready.
 
 And with that, the oh-so-familiar red mass burst through the doors, taking down most of the wall with it.
 
-Shit. This was it. 
+Shit. This was it.
 
 Did I stand a chance? Well, not really.
 
@@ -48,9 +50,9 @@ Just then, JP’s phone rang. God’s Plan blared out across the pub to more dis
 
 The two words any true lad dreaded.
 
-“Yesssssssss fellaaaaaa”, AJ beckoned as he strolled into the Old Barrel, hand in hand with Random Girl #69420. In the other he clasped a full pitcher of Strawberry Mojito. 
+“Yesssssssss fellaaaaaa”, AJ beckoned as he strolled into the Old Barrel, hand in hand with Random Girl #69420. In the other he clasped a full pitcher of Strawberry Mojito.
 
-“Fuck me, we ain’t seen each other since the game, how you wankstains been?” AJ burst into laughter at his own insult, as JP and his bird followed. 
+“Fuck me, we ain’t seen each other since the game, how you wankstains been?” AJ burst into laughter at his own insult, as JP and his bird followed.
 
 The next hour dragged on. In that time, AJ had downed three whole pitchers in the time it had took JP’s bird to drink half of her J20. The guy was a fucking machine.
 
@@ -68,13 +70,13 @@ Meanwhile, across the bar, AJ snorted a sachet he’d procured from…
 
 HIM.
 
-Holy shit. The guy with the hood from before. Shit was about to go down. 
+Holy shit. The guy with the hood from before. Shit was about to go down.
 
 On some sort of illegal high, AJ shoved the DJ away from his gear and grabbed the mic.
 
 “LET’S GET THIS FUCKING PARTY STARTED CUNTS”.
 
-I knew what was about to come but couldn’t escape. 
+I knew what was about to come but couldn’t escape.
 
 It was too late though. He’d spotted me by the doors and got the wrong idea.
 
@@ -110,6 +112,6 @@ I staggered to my feet but apparently that wasn’t fast enough for him.
 
 I felt so sorry for JP. He’d never wanted any part in this, but AJ had authority over him now too. Even more so than me. It was like he lacked any sort of free will. I had to get to the bottom of this, once and for all.
 
-We jumped in the taxi. 
+We jumped in the taxi.
 
 **“WYET FUCKING WHYSTLE!!!!!! DRIVE ON YOUTH”**

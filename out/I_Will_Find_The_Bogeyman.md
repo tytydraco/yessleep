@@ -28,7 +28,7 @@ I hesitate, wondering if I should call the cops, but when my son shouts "Dad, he
 
 I then begin to crawl after the thing that took my son, ignoring the pain of the jagged walls of the cave tearing up my body. I crawl for what feels like hours, and then turn off my phone to preserve it's energy while I continue on.
 
-I've been crawling for maybe days. I got hungry and tried to eat some of the moss growing from the cave walls, it's tasteless but edible, so at least I won't die. Water also occasionally drips from cracks in the walls.
+I've been crawling for maybe days. I got hungry and tried to eat some of the moss growing from the cave walls, it's tasteless but edible, so at least I won't die. Water that I can drink also occasionally drips from cracks in the walls.
 
 Sometimes I imagine I hear my son calling to me, but I can't be certain it's really him or if I'm mishearing something else. It feels like I've been crawling for weeks now, my body hurts.
 
