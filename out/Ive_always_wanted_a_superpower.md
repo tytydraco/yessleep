@@ -2,15 +2,18 @@ When I was a little kid, I used to read comics about superheroes, Flash, Aquaman
 
 I suppose how deep the reasons truly were doesn't matter now, but as I was mindlessly scrolling through Tumblr, while pretending to work, I stumbled upon something that piqued my interest.
 
-It was a sponsored post, a cheaply done nightmare even a hobby graphic designer would cringe about. Still, it piqued my interest with its bright pink lettering.  “Get your dream superpower today!”, it said, giving a link and a typical “click here!”
+It was a sponsored post, a cheaply done nightmare even a hobby graphic designer would cringe about. Still, it piqued my interest with its bright pink lettering.  “Get your dream superpower today!”, it said, giving a link and a typical “click here!”
 
-Basically it looked like a standard example of spam, like something that might be used on a lecture about Internet safety. Still I was itching to click the link. In all fairness, it didn't even look like a REAL attempt at scamming me, badly done as it was. The background looked like it was screenshotted straight from Google images and the fonts were badly mismatched. Seeing as this was Tumblr, and with the new blaze sponsoring posts didn't cost all that much anymore, I wondered if it was simply a joke I was missing out on. That would make sense,  a rickroll maybe. Seeing as I was bored to tears, I decided to click the link. So what if I ended up catching a virus, this was my bosses computer and I was pretty sure the bustard was gonna fire me soon anyway, so why not. My finger hovered over the mouse for a split second, before I clicked the link. What can I say, I never had especially good impulse control. The link led me to a website which looked just as badly done, if not even worse. Off purple text, on a bright acid green background, burning my poor eyes.
+Basically it looked like a standard example of spam, like something that might be used on a lecture about Internet safety. Still I was itching to click the link. In all fairness, it didn't even look like a REAL attempt at scamming me, badly done as it was. The background looked like it was screenshotted straight from Google images and the fonts were badly mismatched. Seeing as this was Tumblr, and with the new blaze sponsoring posts didn't cost all that much anymore, I wondered if it was simply a joke I was missing out on. 
+
+That would make sense,  a rickroll maybe. Seeing as I was bored to tears, I decided to click the link. So what if I ended up catching a virus, this was my bosses computer and I was pretty sure the bustard was gonna fire me soon anyway, so why not. My finger hovered over the mouse for a split second, before I clicked the link. What can I say, I never had especially good impulse control. The link led me to a website which looked just as badly done, if not even worse. Off purple text, on a bright acid green background, burning my poor eyes.
 
 “Which superpower do you want?”
-
 At this point I was pretty sure that I had stumbled across some middle schooler's first programming project, and even if graphic design definitely wasn't their passion, (or alternately if it was, their programming dreams were doomed) I still decided to play along.
 
-I mean if they had gone through all the trouble of having their awfully done project sponsored they must be proud of it, so I thought the least I could do was give their website some interaction. I clicked the screen, wondering if they had even managed to program a textbox, but indeed! As I clicked, a small window popped up. I thought about the question for a moment. Which superpower did I want? Super strength? No, that's a boring answer. Everyone would want that. Flight was even worse. Then I suddenly had an idea. I always thought that being able to walk through walls would be pretty cool. Just walking through closed doors like a ghost, no one being able to keep you locked in – or out! Not a boring and cliché answer either. But theoretically, what would be the limit of such an ability? Would I be stopped if there was a shelf after a wall, not being able to pass through non-wall? So I typed in a more general “I'd like to be able to phase through things, lol” and pressed enter. Absolutely nothing happened.
+I mean if they had gone through all the trouble of having their awfully done project sponsored they must be proud of it, so I thought the least I could do was give their website some interaction. I clicked the screen, wondering if they had even managed to program a textbox, but indeed! As I clicked, a small window popped up. I thought about the question for a moment. Which superpower did I want? Super strength? No, that's a boring answer. Everyone would want that. Flight was even worse. Then I suddenly had an idea. 
+
+I always thought that being able to walk through walls would be pretty cool. Just walking through closed doors like a ghost, no one being able to keep you locked in – or out! Not a boring and cliché answer either. But theoretically, what would be the limit of such an ability? Would I be stopped if there was a shelf after a wall, not being able to pass through non-wall? So I typed in a more general “I'd like to be able to phase through things, lol” and pressed enter. Absolutely nothing happened.
 
 Sort of disappointed, but not having expected anything else, I closed the tab and went back to pretending to work.
 
@@ -19,17 +22,15 @@ If only that had been all.
 But it hadn't, because as I was scrolling on my phone in bed late at night, it fell into my face. Not all that unusual, I know. The thing was, I hadn't let go of it. It had just slipped through my fingers in the most literal sense of the words. Right through my hand, through my wrist, as if neither of them were there at all.
 
 Shrugging the pain off, I stared at my fingers in shock, which looked completely normal.
-
 As I reached for my phone again, nothing happened. It just stayed in my hand, like it was supposed to, considering physics and all that.
+ Maybe my eyes had played a trick on me? 
 
- Maybe my eyes had played a trick on me? Sighing, I put my phone away, having decided that it was probably time to sleep if I started to see things that weren’t real. But although I had quickly disregarded my experience as a hallucination of my sleep deprived brain, I found myself fantasizing about heroic deeds and superhero suit designs until I drifted off to sleep.
-
+Sighing, I put my phone away, having decided that it was probably time to sleep if I started to see things that weren’t real. But although I had quickly disregarded my experience as a hallucination of my sleep deprived brain, I found myself fantasizing about heroic deeds and superhero suit designs until I drifted off to sleep.
 The next day at work, a miracle happened. I was actually able to be productive and get some work done! It felt like the exciting new daydream I had lost myself in the evening before. Carried me through the day effortlessly. I didn’t truly believe it of course, not really. But it was wonderful to imagine that the clickbait had been real magic, that I was… worthy somehow. That I had gotten a superpower because I was destined for greater things than this mundane life. Meaningless to say, I wasn’t completely there mentally, but the monotonous tasks went all the better, if I could let my thoughts roam freely, to imagined adventures, epic fights.
 
 Lost in thoughts as I was, I didn’t notice immediately as my fingers took longer to press down the keys on my keyboard. What was happening only succeeded in ripping me out of my heroic reveries, as I began physically feeling the impact of the computer keys on my knuckles. Looking down, I saw that I was INDEED pressing the keys with my knuckles, as the rest of my fingers disappeared straight into the keyboard. Now, as you might imagine, I had mixed feelings about this. The first one was screaming and sending the keyboard crashing to the floor in absolute panic. The second reaction was staring at my fingers in horror, deciding that it was all a hallucination and screaming again as I went to pick up the keyboard and finding my fingers cleanly slipping through it.
 
 Then, I sat there for a few minutes, stunned to silence. This trance was only broken as my boss came waltzing in, demanding to know why I thought it necessary to throw around his “highly modern” technical equipment. I stammered something about “spiders”, hiding my hands, and he begrudgingly left, muttering something about “women and their irrational fears”. Misogynistic guys always were easy to wrap around the finger. Tell them an excuse that feeds into their stereotypes and they’ll eat it right up.
-
 After this rude little intervention, I was left alone to continue my emotional rollercoaster in relative peace.
 
 After short consideration, I just took my stuff (not an easy job) and left. I asked my coworker to cover for me if my absence should be noticed, and, seeing the state of disarray I was in, she immediately promised.
@@ -49,7 +50,6 @@ To be clear, I didn’t check at the time, and I don’t really have the opportu
 Right, yes, back to the story. Sorry that I keep getting distracted.
 
 Anyway, as I got home, I dropped my bags to the ground, kicked the door shut and sat down on the floor cross-legged. I closed my eyes, and concentrated on my fingers, on my hands.
-
 I felt absolutely nothing unusual. I kept on concentrating for a while, until I got bored and decided to do something else, as this clearly wasn’t working.
 
 I tried to get up, and only then did it hit me: I couldn’t use my hands to get up. And if I didn’t manage to control this phenomenon, I couldn’t use my hands for anything else either.
@@ -65,7 +65,6 @@ I woke up because my head and neck hurt. The first thing I saw as I opened my ey
 Anyways, I was staring directly into its bulging, veiny dog eyes, I could just barely suppress a scream. Maybe it was the sleepiness or, maybe it was that there was definitely too much blood in the upper half of my body, as I could hear it roaring in my ears, but it took me a few seconds to register what was going on. Until I registered the fact that I seemed to be floating roughly eight feet over my down stairs neighbors scratched up hardwood floor.
 
 No, I realized, I wasn’t floating, I could feel my own hardwood floor on my hips and legs, aching from all the pressure that was being put on them.
-
 Then I remembered what had happened the day before.
 
 “Well, shit.” Was all I could muster.
@@ -74,7 +73,7 @@ A bad idea really, not just completely and utterly useless, but also the last st
 
 Immediately, I pulled my arm up and out of reach, but I knew in a few seconds Mister Monroe would come check on his “precious little darling”, as he called the revolting thing. And if he saw me dangling through his ceiling he would either call the cops or have a heart attack right then and there.
 
-So I strained to get up through the floor, but it felt borderline impossible without the use of arms. Finally I managed to  roll half over, and with a lot of luck and possibly permanent strain to my basically nonexistent abs, my head disappeared back up through the ceiling just before being spotted.
+So I strained to get up through the floor, but it felt borderline impossible without the use of arms. Finally I managed to  roll half over, and with a lot of luck and possibly permanent strain to my basically nonexistent abs, my head disappeared back up through the ceiling just before being spotted.
 
 I sat there for a few seconds, still trying to make sense what had just happened. My neck hurt, and I could already feel a terrible migraine forming for sleeping with my head just hanging down.
 
@@ -90,7 +89,9 @@ I didn’t fell anything but a slight change of temperature as I reached further
 
 Then I threw up, through my arm, through strands of my long hair and right onto the grass.
 
-I’m in my apartment now. Only my legs are still “physical”, and I’m fucking terrified. If there is a way to stop this, then I don’t know it. And I’m running out of time and options. I’ve managed to get my socks off somehow, and although I was terrified to trip during that attempt, I managed to get my phone off the low couch desk and onto the floor, right side up. And although I had to type with my feet and my phone shut me out multiple times for typing in the password wrong, I finally managed to get access and open this page. Thankfully my phone has a speech to text option, or I would have been totally fucked.
+I’m in my apartment now. Only my legs are still “physical”, and I’m fucking terrified. If there is a way to stop this, then I don’t know it. And I’m running out of time and options. I’ve managed to get my socks off somehow, and although I was terrified to trip during that attempt, I managed to get my phone off the low couch desk and onto the floor, right side up. 
+
+And although I had to type with my feet and my phone shut me out multiple times for typing in the password wrong, I finally managed to get access and open this page. Thankfully my phone has a speech to text option, or I would have been totally fucked.
 
 During the time it took me to tell this story, this thing that is happening has started affecting my ankles too.
 
@@ -103,15 +104,10 @@ What would kill me first? The shock? The thirst? Or would I survive long enough 
 I don’t want to know. I really, really don’t want to know. Although I really hope that it will be the first option, at least it would be over quickly.
 
 I wish I could put a bullet in my head so I wouldn’t have to witness what will soon happen to me. But even if I had one, I couldn’t hold on to it, and the bullet would pass right through me anyway.
+Ironic, isn’t it? I’m invincible to guns right now, knifes too if they don’t aim at my feet. 
 
-Ironic, isn’t it? I’m invincible to guns right now, knifes too if they don’t aim at my feet. I’m basically a superhero. And no one except the people reading this is ever going to know. I’ll just be another missing person case to them.
-
+I’m basically a superhero. And no one except the people reading this are ever going to know. I’ll just be another missing person case to them.
 I really need to hit “post” now, if I still want it to actually work. Gotta get my story out there I suppose, even though it cant save me.
 
-You know, I always thought these stories on here were fiction. Just a place for weirdos to waste some time, reading bad horror stories. I’m not so sure anymore… tbh, I still think most of them are fake, but if I had read about what is happening to me right now, I’d have dismissed that too.
-
-But this is the only place I could spontaneously think of that won’t dismiss my story immediately.
-
-And even if you do, you might still think twice before clicking it. 
-
-That’s all I ask for.
+How about some last words? Hah. I kinda want to say something poetic, but I can’t think of anything. So I suppose I’ll leave it at this: 
+If you find this link, don’t click it! I don’t know if it was mostly bad wording on my part, or if it purposefully twists your wishes into a nightmare. But I never want to find out what it could do with yours.
