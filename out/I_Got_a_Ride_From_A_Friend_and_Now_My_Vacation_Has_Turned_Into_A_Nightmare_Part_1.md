@@ -1,5 +1,3 @@
- 
-
 The visit started as well as it could have. I woke up while the train was still moving, with the warm spring sun beaming onto my face, and a cool bead of sweat running down my forehead. As we came to a stop, and the other passengers began to stir, I found myself almost glued to my seat. It wasn’t idle laziness, an affliction of comfort, that kept me there, but rather an altogether familiar problem.
 
 &#x200B;
@@ -60,7 +58,7 @@ As he pointed from where we were on the platform we began to make our way throug
 
 &#x200B;
 
-“Fair enough pal. We’ll just have to make up for lost time now won’t we?” 
+“Fair enough pal. We’ll just have to make up for lost time now won’t we?”
 
 &#x200B;
 
@@ -140,8 +138,7 @@ As I spoke he looked, with only his drying eyes, and replied.
 
 &#x200B;
 
-“Oh……It’s you….I was wondering when you’d come back.”  
-His voice strained, as if the cords were calcified with disuse, and I feared that they might snap under the strain of his words, so I filled the space with my own.
+“Oh……It’s you….I was wondering when you’d come back.”His voice strained, as if the cords were calcified with disuse, and I feared that they might snap under the strain of his words, so I filled the space with my own.
 
 &#x200B;
 
@@ -149,8 +146,7 @@ His voice strained, as if the cords were calcified with disuse, and I feared tha
 
 &#x200B;
 
-“Better? I’m fine….You’re blocking the T.V…. You need to move!”  
-He lifted an arm to push me out of the way, and as he did I could hear the sounds of rupturing skin, followed by a smell even more potent than that which had followed the mildew. Coagulated blood ran down his under arm and as he began to push I thought I could hear the bones in his hand begin to crack. I pulled away before I could let that happen. He wasn’t going to break himself against me.
+“Better? I’m fine….You’re blocking the T.V…. You need to move!”He lifted an arm to push me out of the way, and as he did I could hear the sounds of rupturing skin, followed by a smell even more potent than that which had followed the mildew. Coagulated blood ran down his under arm and as he began to push I thought I could hear the bones in his hand begin to crack. I pulled away before I could let that happen. He wasn’t going to break himself against me.
 
 &#x200B;
 
@@ -247,3 +243,5 @@ Nobody answered.
 &#x200B;
 
 For the following fifteen minutes I dialed the numbers of every friend, every family member, coworker, and business that I knew. Nobody answered and now I’ve turned to the internet in hopes that maybe someone on here can help me out of this horrible situation. I’ve tried multiple sites, but for whatever reason this seems to be the only one I can access. With any luck I’ll be out of this scenario soon and my next post will be filled with good news. Until then, I’ll be here, stuck in a car, with my friend turned captor.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/uzwovy/i_got_a_ride_from_a_friend_and_now_my_vacation/)
