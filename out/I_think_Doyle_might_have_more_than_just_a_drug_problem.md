@@ -289,3 +289,99 @@ I stifled a condescending laugh in an attempt to avoid upsetting him.
 “What was your name by the way?”
 
 “Tracy”
+
+ 
+
+Tracy and I soon became friends after that. At first, I wanted to keep him around in case he found any important info on the Needle Man that could help with the case. Despite my initial agenda, I soon began to enjoy his company too; I found his eccentric personality endearing. 
+
+Many times, Tracy, Jenna, and I would hang out at the school  library. We would do homework, while he researched any leads that might point us towards the Needle Man’s identity. Pat would always be invited, but seemed uncomfortable with Tracy’s obsession and would usually avoid meeting up with us when he was around. I understood and never tried to force them to be friends.
+
+“Why would you want to inject someone with Heroin?” Tracy asked out loud, deep in thought as he rifled through his binders full of notes.
+
+Jenna and I both looked up from our homework. He was louder than he thought.
+
+“What makes you think there’s a reason behind it?” Jenna asked, as she lowered her book. “It could have been a random string of attacks, right?”
+
+“That doesn’t really make sense, the attacks are too calculated.” I admitted. “There could even be multiple Needle Men. The police did report an accomplice”
+
+Tracy nodded “He is far too precise. Smart enough to avoid police presence for months now. He obviously put a lot of thought into these attacks, I mean a gun that shoots needles?! It would take an engineer to put something like that together.”
+
+“Yeah, good point,” Jenna agreed. “And if that is the case-”
+
+“There is no way his victims were random” Tracy finished
+
+“Did Percy have any enemies? Did he owe anyone money or something?”
+
+“Well he was a stoner with a college student salary, so probably.”
+
+Jenna added “But I don’t think a drug dealer is going to give out more drugs to someone who couldn’t even pay for the last load. There is nothing they would get out of that.”
+
+I agreed, “And the amount of people talking about this now…I can't imagine a drug dealer would want that kind of attention”
+
+“Whatever the motive is, I’ll find out when I track him down.” 
+
+I stared at him for a few seconds. The eyes behind those thick glasses showed no hesitation.
+
+“I don't know if I can change your mind but *please* be careful” 
+
+Jenna also nodded quickly in agreement.
+
+“Guys don’t worry about me, I’m not just going to stand there and let him stab me”
+
+He stood up to display his matching jacket and pants.
+
+“This material is similar to kevlar, when I look for the Needle Man, I am going to be almost covered head to toe in this.”
+
+Winter came and went with no other reported attacks. Somehow, the case still remained unsolved. Doyle Law Enforcement seemed to be completely useless as well.All they seemed to be able to do was harass and intimidate people in some vain attempt to create a facade of control or competency. In reality, Tracy was making more headway on the case by himself than the entire force.
+
+On the night of April 15th, Tracy claimed he finally found where the Needle man was.
+
+“I think I know where he is hiding” Tracy said to me at the same Tatte we were at when we found out about Rebecca.
+
+Tracy had a frantic tone as he pulled out and unfolded a large map of Doyle. It was difficult to see past all of the scribbles and drawings he had added.
+
+This time, Pat happened to be studying with us as well.
+
+“Look Tracy, I feel like it’s going to be dangerous to go out looking for him. At least call the police or someone. Let them know the info you found and they could do something.” Pat pleaded with him with visible shock as color left his face.
+
+“Yeah, Tracy. I know what you’ve been through, but this is a stupid fucking idea. You getting killed is not going to help us…It’s not going to help Percy either”
+
+“I just want to know why he did it,” Tracy replied in a choked voice. I need a chance to talk to him myself...and after that” Tracy lifted up his armored shirt to flash a silver 9mm handgun. 
+
+I backed up slightly in shock. 
+
+“Tracy, this is not how you-”
+
+“So, here is where I think he’s located” Tracy cut us off to start showing us his map.
+
+“I can’t do this right now man, I need to head home” Pat said nervously. I didn’t stop him.
+
+Tracy nodded politely as he left and then continued “Okay so this is where West Ridge High School is. And directly south, we have my old apartment. Where Percy was attacked.”
+
+I nodded silently, beginning to understand the pattern. 
+
+“Okay, so he attacked Rebecca from the North and camera footage showed him retreating south in the direction of Percy’s apartment.”
+
+“Yeah?”
+
+“And he chased Percy down from the direction of the high school, right? Well, since the police presence was heavy around my apartment that night, he probably retreated north, right?”
+
+“So you think he might be hiding somewhere between your old place and the high school?”
+
+“Exactly!” Tracy confirmed in an excited voice.
+
+“Where do you think he is hiding then? The small college neighborhood over there?”
+
+“Yes. The Grischa neighborhood.  And I am going to look for him now. You can join me if you want.”
+
+I thought about it deeply for a minute. “Sorry Tracy, I just don’t think it’s safe. Is there *anything* I could do to convince you to stay?” I asked one last time.
+
+Tracy shook his head, his conviction holding firm. I gave him a hug. “If you need any help, I am going to call the police and send them to you okay?”
+
+“Sounds good, thank you Christian” 
+
+I heard the clink of metal as Tracy opened the door to the coffee shop. And disappeared into the night.
+
+Tracy went missing that night.
+
+&#x200B;

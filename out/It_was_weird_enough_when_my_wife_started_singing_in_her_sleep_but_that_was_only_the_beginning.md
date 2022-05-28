@@ -130,7 +130,7 @@ My wife had always been a sound sleeper. She never snored, talked in her sleep, 
 
  I could recall everything in vivid detail; the song that captured my mind and senses, the seemingly endless trip to the ancient boneyard, and even the glee I felt as I thrust the dagger downwards. I still couldn't figure out if it was my own will or something else that guided the blade away from Jenn and into the simple wooden box, but as soon as the impact silenced that hypnotic melody for good, both my wife and I snapped out of whatever trance had taken hold of us. 
 
- We were both shaken up from the whole experience, and I still can't believe that I came so close to impaling the woman I loved, but I can only hope this whole ordeal is over now. When we finally went back into our home, cleaned ourselves up, and got some food on our empty stomachs, we did a lot of talking. 
+ We were both shaken up from the whole experience, and I still can't believe that I came so close to impaling the woman I love, but I can only hope this whole ordeal is over now. When we finally went back into our home, cleaned ourselves up, and got some food on our empty stomachs, we did a lot of talking. 
 
  It would seem the music box had been delivered to the house about a week ago, with no return address on the package. Jenn just assumed it was some sort of gift for one reason or another, but as soon as she cranked that key for the first time, it set its seeds in her mind. Though she wasn't fully aware of it, her sleeping mind could not escape the spell it weaved; a spell that took hold of me when I heard its song as well. 
 
