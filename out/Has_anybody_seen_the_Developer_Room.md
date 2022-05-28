@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/uziywr/has_anybody_seen_the_developer_room_part_2/)
+
 I need help. I need to find a door. If anybody has seen a strange door, please get in contact with me. Something terrible has happened, and it all started when I found a door where there shouldn't have been one, when out for a run.
 
 I'm not much for exercising, really. I've tried going to the gym but I never really liked it; too many people, and they all seem so much fitter than me, it was all a bit intimidating. But I do enjoy running. Perhaps I don't run as often as I should, but I try to go for 5k about twice a week.
