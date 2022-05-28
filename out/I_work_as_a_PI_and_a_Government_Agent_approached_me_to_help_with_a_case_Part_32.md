@@ -1,4 +1,6 @@
-(First: https://redd.it/s648js Previous: https://redd.it/ur1hmw)
+(First: https://redd.it/s648js Previous: 
+https://redd.it/ur1hmw
+Next: https://redd.it/uw5tx9)
 
 It took a while for them to come back. The one they brought wasn’t going to laugh, but I didn’t want to see them alone and with a bad ankle. My hand twitched wanting to pull my gun. On top of the slope looking down through a deer skull, stood the creature I saw last night. We look at each other in silence. The Flutter Shades unaware of why bringing him might be a bad idea. As the tall thin False Wendigo started down the slope, my body acted on its own and backed up. My ankle burning with pain. He stopped in front of me, looking down. In the light, I could see him clearly. The ribs showing through nearly transparent white skin. A mess of dark hair spilled from under the deer skull. From how he wore the skull, I could see his chin and mouth. The skin on his face appearing as if it was scarred and no lips to speak of. So many sharp teeth exposed in a grim frown. 
 
