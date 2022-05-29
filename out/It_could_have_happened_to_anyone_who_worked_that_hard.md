@@ -6,8 +6,22 @@ But I knew, unless I came out of the closet, and traded in my anonymity, if I tr
 
 Edward de Vere.  It says, Dev here.  I’m Dev0n Maher.  Just a kid that like to dribble a basketball, play poker, and be a normal kid.  My favorite alias, Emily Maher, from the All Souls Trilogy.  Just a lesbian witch who gets to grow old with the one she loves.  Kathy Maher was my teacher in 2nd grand, and Devon - her grandkid.  I always had my eye on names that could pass as both male/female.  But to be honest, I wanted one that was undoubtedly feminine.  That’s why I chose Aya as my real name, the one I skate with.  But if you listen to Meek Mill, you can hear how much it means to me, when I said — ”I do this shit for Kathy.“
 
-I’m just trying to make you proud.  For 3 decades, that’s meant holding it down, keeping my mouth on lock.  Not telling a single soul.  Just living a normal life, struggling just to get by.  Made maybe $7k.  Yet now I know I need to stand up, tell the truth.  I’m Ludacris.  DMX.  Aaliyah.  My next book, the first one I will ever have anything to do with the publishing aspect of it, instead of simply writing and allowing it to get published via Python through Anonymous Content, making wishes and watching them come true… NeXt I’m Gunna write The Big Ticket.  I made the commercial aspect of the internet.  I wrote .com.  Tbh, I named the web in the first place.  Www. was my idea... it stands for Wobby Woodward’s Whirl.  I had a speech impediment and couldn’t pronounce my R’s.  I may have not touched the wires together to create it, but it came from my idea.  I wanted a place that the whole world would come together and communicate, learn, share ideas and inventions, play video games primarily…. That was how I’ve always dreamed the world would solve it’s problems in the future.  Video games.  I felt Counter-Strike could be the most important game in the world, because I pictured the whole world falling in love with it, and playing it against each other.  I dreamed that places like Brazil and Sweden in particular would fall in love with it, that it’d become a part of their culture.  My names The Underground.  I made Need For Speed.  Twitch.  Nelly.  Dawn.  Sean Don.  Don Dada.  Dom.  #freeDom.
+I’m just trying to make you proud.  For 3 decades, that’s meant holding it down, keeping my mouth on lock.  Not telling a single soul.  Just living a normal life, struggling just to get by.  Made maybe $7k.  Yet now I know I need to stand up, tell the truth.  I’m Ludacris.  DMX.  Aaliyah.  My next book, the first one I will ever have anything to do with the publishing aspect of it, instead of simply writing and allowing it to get published via Python through Anonymous Content, making wishes and watching them come true… NeXt I’m Gunna write The Big Ticket.  I made the commercial aspect of the internet.  I wrote .com.  Tbh, I named the web in the first place.  Www. was my idea... it stands for Wobby Woodward’s Whirl.  I had a speech impediment and couldn’t pronounce my R’s.  I may have not touched the wires together to create it, but it came from my idea.  I wanted a place that the whole world would come together and communicate, learn, share ideas and inventions, play video games primarily…. That was how I’ve always dreamed the world would solve it’s problems in the future.  Video games.  I felt Counter-Strike could be the most important game in the world, because I pictured the whole world falling in love with it, and playing it against each other.  I dreamed that places like Brazil and Sweden in particular would fall in love with it, that it’d become a part of their culture.  I‘m Art3mis, the girl who made clans in the first place. The best FPS player you’ve never heard of. \[FaZe\]
 
-u/AoC Bruce  Spring  me.  Finally,  I  feel  iv  done  Enough.  AoC  will  come  Rescue  Me   in  the  middle  of  the  night.  I  made  Foster  kids  a  thing.  Its  all  Best  Buddies,  Big  Brother,  Anonymous.  RezQ  pups.  Pup  Dawg  on  JamN94.5  has  my  soul.  Its  all  the  Dawg  #,  from  Fresno  to  Lil‘  Bow  Wow  in  Tokyo  Drift.
+exe3cute
+
+executor
+
+exe
+
+XeQtR
+
+Madame Execut!oNeR.
+
+My names The Underground.  I made Need For Speed.  Twitch.  Nelly.  Dawn.  Sean Don.  Don Dada.  Dom.  #freeDom.
+
+u/AoC Bruce  Spring  me.  I‘’m  Elton.  Robin.  Hi,  Future  kids.  Finally,  I  feel  iv  done  Enough.  AoC  will  come  Rescue  Me   in  the  middle  of  the  night.  I  made  Foster  kids  a  thing.  I‘m Kali  LinuX-
+
+Its  all  Best  Buddies,  Big  Brother,  Anonymous.  RezQ  pups.  Pup  Dawg  on  JamN94.5  has  my  soul.  Its  all  the  Dawg  #,  from  Fresno  to  Lil‘  Bow  Wow  in  Tokyo  Drift.
 
 \-Moufy.
