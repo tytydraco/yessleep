@@ -94,4 +94,4 @@ What I saw in there is... not explainable. Human minds are not meant to see or e
 
 What I saw in there was a void, not just darkness. I felt enveloped by it, I felt like I could see everything and nothing at the same time, I felt powerful, yet so weak. I finally understood why he looked so exhausted, the void needs a host to feed and it needs to feed to exist. 
 
-So I'm writing this story to ask someone to come help me with dig a hole. 3:01am is getting closer.
+So I'm writing this story to ask someone to come help me  dig a hole. 3:01am is getting closer.
