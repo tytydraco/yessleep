@@ -12,7 +12,9 @@ Mother brushed my hair away from my face and said, "You love the wrong person tw
 
 "Then I shall never fall for love," I answered jubilantly. "For love seems painful."
 
-Mother smiled and looked into my eyes, "If love is pain. Then come here let me hurt you," as she drew me close. That afternoon, my father abandoned us. He had run off with his secretary while I was at school, taking anything that wasn't bolted down except for the twins and I. It was also the day that Mother started speaking into the cookie jar.
+Mother smiled and looked into my eyes, "If love is pain. Then come here let me hurt you," as she drew me close. 
+
+That afternoon, my father abandoned us. He had run off with his secretary while I was at school, taking anything that wasn't bolted down except for the twins and I. It was also the day that Mother started speaking into the cookie jar.
 
 It hadn't always started life as a cookie jar. I don't know what it had been before but I had a feeling that it was much older than it looked. The thing was made of thick clay that was fire burnt. Its belly was round and could have been a pot at one point. It was deep too, enough for a child's forearm to disappear beneath the rim. The pale orange lid didn't match at all, it seems to have been added later. The jar had sat above the shelf near the fridge so that the twins wouldn't be able to reach it. As they were always scraping the bottom for chocolate chip cookies, and according to Mother were beginning to resemble tiny cherubs.
 
@@ -28,7 +30,7 @@ She was whispering and cleaving, waving the steel in the air at times when she p
 
 "Stop."
 
-She looked up. Her eyes swirling in anger for the disruption. And in that moment I wanted to flee. To drag the twins with me if I must, but her stare chiseling me stone cold, unable to speak another word.
+She looked up. Her eyes swirling in anger for the disruption. And in that moment I wanted to flee. To drag the twins with me if I must, but her stare chiseled me stone cold, unable to speak another word.
 
 In a blink, that look disappeared from her face, and I could once again recognize the woman in front of me. Though I couldn't shake what I had witnessed. Who was the woman that had been staring at me earlier, and who was this woman now? Which one was real? Which one was fake? Or were they both real?
 
@@ -62,13 +64,13 @@ From that time on, mother would take the jar down and scream into it instead of 
 
 That changed one Spring when Mother started leaving the house midmorning. She seemed happier, and the jar was seen less often on the dining table.
 
-We lived in a small town so word spread quickly that Billy's dad, Mr. Braxton and Mother had been spotted entering the local theater during the matinee during various days of the working week.
+We lived in a small town so word spread quickly that Billy's dad, Mr. Braxton and Mother had been spotted entering the local theater during the matinee on various days of the working week.
 
 Five months later they got married before the baby started showing. I never got to meet my little sister. She had come prematurely and didn't make it. Mother named her Cornelia, and buried her in the yard next to the cherry tree.
 
-This seemed particularly hard on Mr. Braxton, who had lost his first wife during the birth of their second child. He turned to the bottle and spent many late nights out at the edge of town, leaving his son, Billy, with us. The twins didn't seem to mind Billy too much, but I couldn't get a single sentence in with that crude lad. He was always shouting and hammering away whenever we spoke so I had nearly given up making peace, instead, I threw the nastiness right back at him.
+This seemed particularly hard on Mr. Braxton, who had lost his first wife during the birth of their second child. He turned to the bottle and spent many late nights out at the edge of town, leaving his son, Billy, with us. The twins didn't seem to mind Billy too much, but I couldn't get a single sentence in with that crude lad. He was always shouting and hammering away whenever we spoke, so I had nearly given up making peace, instead, I threw the nastiness right back at him.
 
-As the nights wore on and Mr. Braxton's drinking got worse, the swearing jar spent more time on the dining table. Then one day, Mr. Braxton came home early, his clothes reeked of alcohol as he stumbled inside. His face a bloody red from the alcohol, as he dropped a glass onto the floor. It shattered into pieces. I gathered the twins up the stairs before they cut their toes. We huddled near the banister as we strained our ears below.
+As the nights wore on and Mr. Braxton's drinking got worse, the swearing jar spent more time on the dining table. Then one day, Mr. Braxton came home early, his clothes reeked of alcohol as he stumbled inside. His face a bloody red from the alcohol, as he dropped a glass onto the floor. It shattered to pieces. I gathered the twins up the stairs before they cut their toes. We huddled near the banister as we strained our ears below.
 
 "I told you it wasn't me," he slurred.
 
@@ -96,9 +98,11 @@ As the nights wore on and Mr. Braxton's drinking got worse, the swearing jar spe
 
 Mr. Braxton let her go and stumbled backward, laughing, "That's something you're right about."
 
-At those words, Mother started throwing things at him. I scurried back upstairs when a pot flew past me and crashed into the hall. I could hear them struggling for a bit and the deafening boom of the fridge falling flat on its face before an inaudible wail emerged into a full on siren. It was so mind numbingly loud that I had to cover my ears, the twins were crying when I closed my eyes. My heart drummed in my chest, beating itself as if trying to escape out of my throat and away from this noise when it began to sound like crinkled parchment being pummeled in the kitchen before it suddenly stopped. The noise dropping dead silence unto our house. Completely gone. Even the walls stopped shaking.
+At those words, Mother started throwing things at him.
 
-When I found the courage to walk downstairs, mother was on the kitchen floor. Every cabinet and drawer was thrown open, all of their contents strewn on the ground or stuck in the walls. Mother's dress was ripped on one side and the jar sat between her legs. I watched as she got up and righted one of the shelves and placed the swearing jar back in its place. The jar looked the same as it always had, except for one key difference. The lid on top of it was now beet red.
+I scurried back upstairs when a pot flew past me and crashed into the hall. I could hear them struggling for a bit and the deafening boom of the fridge falling flat on its face before an inaudible wail emerged into a full on siren. It was so mind numbingly loud that I had to cover my ears, the twins were crying when I closed my eyes. My heart drummed in my chest, beating itself as if trying to escape out of my throat and away from this noise when it began to sound like crinkled parchment being pummeled in the kitchen before it suddenly stopped. The noise dropping dead silence unto our house. Completely gone. Even the walls stopped shaking.
+
+When I found the courage to walk downstairs, mother was on the kitchen floor. Every cabinet and drawer was thrown open, all of their contents were  strewn on the ground or stuck in the walls. Mother's dress was ripped on one side and the jar sat between her legs. I watched as she got up and righted one of the shelves and placed the swearing jar back in its place. The jar looked the same as it always had, except for one key difference. The lid on top of it was now beet red.
 
 Locals would later report to the Sheriff that they did perhaps see a man drunkenly stumble toward the creek where Bill often hung out with the other high schoolers. A quarry workers said he saw several men throughout the day wading through the shallow waters; one of those men even looked as if he was searching for something as night fell.
 
@@ -132,7 +136,7 @@ Mother smiled, "I'll get you six oranges."
 
 "Tangerines," she quoted back.
 
-I watched as she took Joe with her. He was never out of her sight these days. Whenever she left the house, he would accompany her. Other than school, he was chained to her side. I watched as the two of them disappeared.
+I watched as Mother took Joe with her. He was never out of her sight these days. Whenever she left the house, he would accompany her. Other than school, he was chained to her side. I watched as the two of them disappeared.
 
 "I'm bored," Susie spoke from behind me. I nearly jumped out of my skin. I had been skittish for several weeks now, feeling like eggshells beneath me.
 
@@ -142,7 +146,9 @@ She smiled and nodded.
 
 We got out to the yard and played tag for a bit, but that is only so much fun for two people. So we eventually started picking through the grass for any loose objects left over from the Civil War. Old John had once found arrowheads at the corner of his lot.
 
-I was searching through the field when I saw a gopher appear, I was reminded of the gnarled leg of the horse, but I screamed because of the finger clenched between its two yellow stained front teeth. The disconnected joint was blue and rotten, the sinew falling off the bone but the gnarled fingernail had continued to grow even after death. It twisted vividly backwards, seemingly curling at me to come closer. I watched as the gopher disappeared with the finger back into its hole.
+I was searching through the field when I saw a gopher appear.
+
+I was reminded of the gnarled leg of the horse, but I screamed because of the finger clenched between its two yellow stained front teeth. The disconnected joint was blue and rotten, the sinew falling off the bone, yet the gnarled fingernail had continued to grow even after death. It twisted vividly backwards, seemingly curling at me to come closer. I watched as the gopher disappeared with the finger back into its hole.
 
 "Did you see that?"
 
@@ -154,21 +160,31 @@ I shook my head.
 
 "You saw it. I know you saw it." He took off his cap and wiped his brow. "That was a man's finger, weren't it?"
 
-In two days everyone in town seemed to have heard about the finger. We couldn't leave our property without getting dirty looks. Mother waved it away and loudly quoted James 1:26. But it wouldn't be 2 days later when I was woken during midnight.
+In two days everyone in town seemed to have heard about the finger. We couldn't leave our property without getting dirty looks. Mother waved it away and loudly quoted James 1:26.
+
+It wouldn't be 2 days later when I was woken during midnight, that I realized how far word had spread.
 
 The screen door croaked loudly as it opened. I could hear the heavy boot steps fall as they headed toward the kitchen. I could hear Mother's voice...and then Billy's. They were yelling by the time I rubbed the sleep out of my eyes.
 
-I got downstairs and looked into the kitchen as the yelling stopped. Mother was standing with her back against the fridge, her hands wrapped around the swearing jar. She had a nasty look on her face as she lifted the lid.
+I got downstairs and looked into the kitchen as the yelling stopped. Mother was standing with her back against the fridge, her hands wrapped around the swearing jar. She had a nasty look on her face as she broke the red lid, and letting it crumble into the jar.
 
 The house shook heavily, cracking the ceiling above me, sending dust below. I felt a pull come from my chest, it was like the drain at the bottom of a large pool. The frames on the wall tilted toward the kitchen, and I could see my horrified reflection in the glass as I screamed, but even that was eaten by the void. The walls clattered and utensils flew out of drawers as I grabbed the railing on the stairs.
 
-My hair licking the air when I looked up to see Billy's head completely inside the jar. I could tell he was screaming by the way his chest was heaving. The veins on the side of his neck turning green and blue as they thickened with blood. His body twitched as his feet flailed against the ground. I could see Mother's silhouette behind him, holding the jar as she watched.
+My hair licking the air when I looked up to see Billy's head completely inside the jar. I could tell he was screaming by the way his chest was heaving. The veins on the side of his neck turning green and blue as they thickened with blood. His feet flailed pitifully against the ground. I could see Mother's silhouette behind him, holding the jar as she watched.
 
-The mad gleam in her ' shining as Billy's shoulders were tucked square against the lip, causing the suctioning to subdue for a blink. And then the crunching began. It was unlike anything I have ever heard before. At first his collar bone collapsed, and then his chest. I could hear his bones breaking as his tendons pulled and pushed their way down his torso toward his feet as he was sucked inside the jar. His skin stretching like an overfilled garbage bag, I saw a piece of his skull travel to where his stomach had been, its edges straining against the skin, screaming as his insides ballooned to his foot. Then the entire thing squeezed down in a popping noise, and made a pallid pink lid that sat on top of the swearing jar.
+The mad gleam in her eye, shining as Billy's shoulders were tucked square against the lip, causing the suctioning to subdue for a blink.
+
+And then the crunching began.
+
+It was unlike anything I have ever heard before. At first his collar bone collapsed, and then his chest. I could hear his bones breaking as his tendons pulled and pushed their way down his torso toward his feet as he was sucked inside the jar. His skin stretching like an overfilled garbage bag, I saw a piece of his skull travel to where his stomach had been, its edges straining against the skin, screaming as his insides ballooned to his foot. Then the entire thing squeezed down in a popping noise, and made a pallid pink lid that sat on top of the swearing jar.
 
 I ran up the stairs as Mother called after me, "Can you come into the kitchen," she said. "There's something I want you to look at."
 
-I locked myself in the twins bedroom and hid in their closet, watching the scraping of Mother's feet as she paced awkwardly outside. Banging on the wood from time to time before her footsteps disappeared. I waited until morning as Susie began to stir, before opening the door. For the next few days Mother sat in the kitchen, never moving, the jar on the table. It was broken to pieces. Eventually the Sheriff and his Deputy came to the house and took her in as a suspect for Mr. Braxton's disappearance, and later Billy's when he wasn't found.
+I locked myself in the twins bedroom and hid in their closet, watching the scraping of Mother's feet as she paced awkwardly outside. Banging on the wood from time to time before her footsteps disappeared.
+
+I waited until morning as Susie began to stir, before opening the door. For the next few days Mother sat in the kitchen, never moving, the jar on the table. It was broken to pieces.
+
+Eventually the Sheriff and his Deputy came to the house and took her in as a suspect for Mr. Braxton's disappearance, and later Billy's when he wasn't found.
 
 When I knew the counts against her wouldn't stick, I asked Old John to dig near our house where we found the finger. And sure enough, he uncovered a body. It was my father's.
 
