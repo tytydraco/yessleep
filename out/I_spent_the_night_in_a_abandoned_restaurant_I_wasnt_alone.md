@@ -10,7 +10,7 @@ I called him but he didn't answer I was pretty confused was he gonna prank me or
 
 I pulled my phone out and turned on the flashlight to see, I saw a few cobwebs and dust everywhere from being left untouched for how long. I dusted off a chair and table and sat down and pulled out a soda from my bag to drink and decided to text my friend saying I was here. I then something fall in the background I was startled by it and decided to check it out having my light on to see.
 
-I was in the back and saw a frying pan laying on the ground I picked it and put it back, I heard something move around I spun around it came from behind the pans. I slowly walked over with my light on the pile of pans I slowly moved them and a rat came running out. I dropped to the ground scared and dropped my phone, I picked it back up and dusted myself off realizing it was just a rat calmed me down.
+I was in the back and saw a frying pan laying on the ground I picked it and put it back, I heard something move around I spun around it came from behind the pans. I slowly walked over with my light on the pile of pans I slowly moved them and a rat came running out. I dropped to the ground terrified, Phone flying out of my hand, I picked myself up and grabbed my phone, seeing it was just a rat calmed me down.
 
 I went back out and sat down and checked my phone and Paul didn't reply back to me, I called him trying to get ahold of him one last time and then heard ringing and that's when I realized the ringing was coming from inside the restaurant. I dropped my phone in shock if  it's coming from in here that means Paul is here so he was pranking me.
 
