@@ -74,7 +74,7 @@ He lit up a cigarette and Mark’s father started to back away, hands raised. Hi
 
 His voice cut off by the creature moving so fast none of us could see it. One second his father stood there, then the next he was being dragged behind the couch and out of sight. A horrible scream came that soon turned in a garbling noise. Kandi no longer could hold in her tears. She started crying getting the smoking man’s attention. His eyes widened when he finally saw us. He crushed the cigarette into the carpet.  
 
-Mark snapped to attention first. He started to drag Kandi down the hallway with me. We needed to get the hell out of there. When we all turned, we thought we could make it before the man caught up. Then, just as quickly as the monster appeared before, it stood in front of us. Long arms reaching towards the three screaming and frightened children. We struggled and trashed trying to get free as he scooped us up to bring into the living room.  
+Mark snapped to attention first. He started to drag Kandi down the hallway with me. We needed to get the hell out of there. When we all turned, we thought we could make it before the man caught up. Then, just as quickly as the monster appeared before, it stood in front of us. Long arms reaching towards the three screaming and frightened children. We struggled and thrashed trying to get free as he scooped us up to bring into the living room.  
 
 Instead of killing us, he placed us all in front of his employer. Kandi almost in a screaming fit, but too scared to go all out. I shook, unable to calm myself down let alone another person. Mark however, bravely stood between the man and his sister. 
 
