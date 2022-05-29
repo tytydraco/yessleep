@@ -20,29 +20,29 @@ It took me a week to muster the courage, but I drove out there one evening in Se
 
 When I saw the same orange trees and wealthy estate again, it was as though nothing had changed. No spider mites or root rots had taken down the almost forty year old evergreens. It was all untouched by the flow of time. It looked like a well-maintained portraiture plucked from my memory.
 
-I stood on the beach in the exact same spot and looked out over the water. A few new houses were across the way, but it was otherwise identical to my remembrance. There were even some cars with young couples parked along the nearest a dirt path.
+I stood on the beach in the exact same spot and looked out over the water. A few new houses were across the way, but it was otherwise identical to my remembrance. There were even some cars with young couples parked along the nearest dirt path.
 
 For a minute or two things were peaceful. I possessed a sense of restorative calmness. I sat down and meditated there. I read a book on my Kindle app until the sun lowered.
 
 A black GMC Sierra truck rolled off the highway and hit an orange tree.
 
-They all fell on the vehicle’s roof as the driver tumbled out of the driver’s side. He had a bloodied face. He spit out some of his own teeth as he collapsed.
+They all fell on the vehicle’s roof as the driver tumbled out of the driver’s side. He had a bloodied face. He spit out teeth as he collapsed.
 
 His face squashed one of the oranges upon impact before he passed out.
 
 I neared the accident. An empty bottle of Maker’s Mark had tumbled out with him.
 
-I pulled out my phone to notify the police or paramedics when a woman shouted behind me. I turned around and saw a young couple who had gotten out of their vehicle.
+I grabbed my phone to notify the police or paramedics when a woman shouted behind me. I turned around and saw a young couple who had gotten out of their vehicle.
 
 “You slept with Rebecca?” the lady said as she raised something in her hand. Moonlight made the sterling silver glint. It was a pistol.
 
-“No,” he said as he backed away. “Your friends are lying. That manipulative, prissy - "
+“No,” he said as he backed away. “Your friend is lying. That manipulative, prissy - "
 
-Before he could finish his sentence, she squeezed the trigger. He fell with a loud scream.
+Before he could finish his sentence she squeezed the trigger. He fell with a loud scream.
 
-I ran. A second shot rang out behind me as I fled past a couple of native sweetbay magnolia’s. The scent of swampland greeted me the further out I went. The resonance of further rounds released continued to echo from the area I escaped.
+I ran. A second shot rang out behind me as I fled past a couple of native sweetbay magnolia’s. The scent of swampland greeted me the further out I went. The resonance of further rounds released continued to echo while I escaped.
 
-With a heaving pant, I attempted to jump over a marshy patch and landed on a stick. It rolled beneath my sneaker and caused me to fall flat on my back. I banged my head and saw stars for a few seconds.
+I attempted to jump over a marshy patch and landed on a stick. It rolled beneath my sneaker and caused me to fall flat on my back. I banged my head and saw stars for a few seconds.
 
 I tried to remind myself how I had gotten quite a distance away.
 
@@ -50,7 +50,9 @@ I reached into my pocket to call for someone. I found out I must have dropped my
 
 I looked around. A fog settled. Red maples glowed through the murk. It was quiet. I saw someone out of the corner of my eye.
 
-She seemed seven feet tall. Her body was translucent with billowing robes of white which adorned her figure. Her clothes seemed old and moth-bitten. Her shoes were like a ballerina’s. Around her neck was a chain with an odd symbol attached I had never seen before, almost a geometrical one. Her hair was wild, grey and black in equal measure, and it went down to her hips. It took me a while to register what I was even seeing. It was an overwhelming sight. When she graced near me her head raised and she locked onto my eyes. Her expression changed and her mouth opened wide. Her teeth were not a human’s but akin to a predator’s in the wild. She raised her arms out to either side like she wanted to engulf me and drag me somewhere. She dissipated into the ether. A shriek erupted around me, to the point where I had to cup my ears to block out the piercing wail. A scent of stagnant water became inescapable. I was so disgusted I started to run again to get away from the odor.
+She seemed seven feet tall. Her body was translucent with billowing robes of white which adorned her figure. Her clothes seemed old and moth-bitten. Her shoes were like a ballerina’s. Around her neck was a chain with an odd symbol attached I had never seen before, almost a geometrical one. Her hair was wild, grey and black in equal measure, and it went down to her hips. It took me a while to register what I was even seeing. It was an overwhelming sight. When she graced near me her head raised and she locked onto my eyes. Her expression changed and her mouth opened wide. Her teeth were not a humans but akin to a predators in the wild. She raised her arms out to either side like she wanted to engulf me and drag me somewhere. She dissipated into the ether. 
+
+A shriek erupted around me, to the point where I had to cup my ears to block out the piercing wail. A scent of stagnant water became inescapable. I was so disgusted I started to run again to get away from the odor.
 
 I found the highway after another hour of aimless wandering. For the first time in my adult life, I stuck out my thumb and hitchhiked. Someone was kind enough to pick me up, an off-duty veterinarian who had completed a long day at the office.
 
@@ -74,9 +76,9 @@ When our session ended, I told her she could keep the painting. She did not unde
 
 I did further research on the mansion near the lover’s lane. I used a mixture of genealogy websites and historical essays to find out as much as I could.
 
-The family who owned the place had brought the witch from her home in the southwestern Europe. She served them as a medical healer. She started out as a friend of theirs. The man of the house had malicious and depraved intentions for her. She tried to get away from them in the night. At that point it was too late. She could not go back to her homeland since he kept her imprisoned in the subterranean part of the property. He forced her to cast incantations in to maintain his wealth and vanquish any competition. Her curse on the orange trees were her form of revenge in the afterlife. Although what the documents reveal is tentative at best, I knew it to be true.
+The family who owned the place had brought the witch from her home in southwestern Europe. She served them as a medical healer. She started out as a friend of theirs. The man of the house had malicious and depraved intentions for her. She tried to get away from them in the night. At that point it was too late. She could not go back to her homeland since he kept her imprisoned in the subterranean part of the property. He forced her to cast incantations to maintain his wealth and vanquish any competition. Her curse on the orange trees were her form of everlasting revenge. Although what the documents reveal is tentative at best, I knew it to be true.
 
-Especially since I had seen as a result of those oranges falling. The hex is not fiction.
+Especially since I have seen the results of those oranges falling. The hex is not fiction.
 
 I have read that real estate development will soon destroy the grove. What will happen to those construction workers worries me.
 
