@@ -1,0 +1,12 @@
+ its a story that my cousin told me recently and he believes what he encountered could have been a demon or a jinn( by the way i live in iran )
+So he was 8 years old by that time and his dad bought a cabin for his family to enjoy the summer. the cabin was built on top of a mountain and there was a river next to it,by that time there wasn't a road to drive by a car so they had to walk to the cabin. my cousin and his parents with he's grandpa and grandma and 2 of his aunt wanted to check the cabin out, so they brought  the items and cloths neccessary and walk to the cabin and it took them 5 HOURS to get there, when they finally arrived it was 11 p.m and they were exhausted, they throw away the stuff and they all went to sleep (another thing that i like to mention is that the cabins door wasn't a modern door bc the build process was still ongoing but they had an iron metal like door to the job,and it had a lock to it that you can open by a key
+
+And another important thing is that the metal like door,had a lot of marks and small holes on it and you could see the outside if you wanted to)
+
+As i was saying they went to sleep an hour goes by and suddenly they all wake up by a loud knocking but it wasn't just a knocking it was like someone or something was punching the door the get it open, every one were terrified and they didn't know what to do the punches were shaking the whole cabin and it felt like its was going to break the door down,it kept punching and knocking till his dad and his grandpa ran to the door to get it open and his aunts and his mom were crying bc of fear,when his grandpa wanted to open the door he first looked threw the holes and to his horror there wasn't anyone at the door it was very dark but you could at least see an outline of something but he didn't see anything as if it was no one at the door. when my cousin saw his grandpa and others scared he started crying but the knocking wouldn't stop it just kept going and something was continously pounding at the door, when his granma suddenly started reading a sore of quran she red it for 7 or 10 min but the pounding wouldn't stop when finally after 15 min the knocking and the punching stopped.
+
+The next day they packed there stuff and left.
+
+That was my cousins story he still visit the cabin on summer or winter but he didn't had any incidents like this occurring
+
+I think it may just ben a animal hitting the door and they couldn't see it bc of the darkness or it was a real ghost or demon 
