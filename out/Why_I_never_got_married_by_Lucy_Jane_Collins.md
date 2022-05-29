@@ -162,7 +162,7 @@ The woman walked into the stream, the water level was no higher than her visible
 
 "Help me Lucy!"
 
-It was pure desperation and fear. I couldn't take my eyes away as the woman forced JD's head underwater. She turned to me with empty eyes that somehow saw everything. With her free hand, she simply pointed to the direction of the trees. \*Go\*.
+It was pure desperation and fear. I couldn't take my eyes away as the woman forced JD's head underwater. She turned to me with empty eyes that somehow saw everything. With her free hand, she simply pointed to the direction of the trees. *Go*.
 
 I scrambled to my feet, leaving all my belongings. I ran through the trees, twigs scratching my feet. I ran through the field. When I saw the convertible I kept running. I ran through the leaves that speckled the road. My feet ached, my throat burned, my hand bled, but I kept running. I wouldn't stop running until I found help.
 
