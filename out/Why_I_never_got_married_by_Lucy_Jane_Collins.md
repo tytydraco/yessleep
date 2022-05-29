@@ -146,7 +146,7 @@ There was movement to my right, from the direction of the trees. My eyes glanced
 
 It was a woman. Or at least what once was a woman, now skeletal in appearance. Patches of matted dirty hair clung to an almost bald scalp. Dried skin split in various places to reveal the bones beneath. Her cheekbones were prominent, eye sockets empty. Her lips were missing entirely, there was nothing to cover the teeth. A stained checked dress hung from her body in rags.
 
-Her thin arms reached out as it etched closer, bony fingers outstretched. As darkness began to cloud my vision I had just enough time to notice something; her left hand was missing a finger.
+Her thin arms reached out as she etched closer, bony fingers outstretched. As darkness began to cloud my vision I had just enough time to notice something; her left hand was missing a finger.
 
 JD's hands were suddenly gone and I involuntarily threw my own to my neck as I caught a breath. I felt wetness run down my chest as my hand refused to stop bleeding. I sat up, breathing heavily. Then I heard the screams.
 

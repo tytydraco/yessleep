@@ -1,0 +1,25 @@
+So I've lived in this neighbourhood for almost 8 years now. It's quite quiet, only about 50 houses here so everyone kind of knows each other to some extent. We're about 10 minutes drive from the next neighbourhood so we're pretty isolated. Anyway my house is the first house on the street. The house opposite from mine used to have a family of 3. A father, mother and their daughter who was only 6 years old. Well, one day they disappeared. No trace to where they could have went they just vanished from thin air
+
+. The house was put up for sale and this new couple moved in. The man was tall maybe 6 foot 3 inches if I had to guess. He had long messy black hair and a pretty average build for a guy of that height.
+
+ The woman on the other hand was much more well kept. Her hair was short, maybe about shoulder length, red hair, she was much shorter than the guy maybe only reaching up to his chest. I watched them for a few days as they moved all of their stuff in, I didn't want to go bother them I wanted to give them some time to move into their new house and get settled before meeting everyone.
+
+ So about a week later me and my roommate who I've been best friends with for most of my life went over to introduce ourselves. We saw their truck was parked in the driveway so we knew one of them must've been home.
+
+ We knocked on the door and waited. No answer. We Decided they must've been tired and we just went back across to our house but something told me to just glance back over, I really wish I hadn't. As I looked over my shoulder and up at one of the windows I saw what I can assume to be the man. Just standing staring at us. This only lasted a couple of seconds as he must've realised that I noticed him he ducked away from the window.
+
+ Regardless we went home and tried again the next day. This time we heard some crashing from inside the house and some very faint mumbling. Footsteps approached the door and the man opened it but only enough that we could just see a small bit of his face. Now this is where things get weird and i think it's worth mentioning that my friend is mixed race. His father was originally from Africa and his mother was born here in America, so he had slightly darker skin than others, clearly this new neighbour was a big time racist because he took one look at my friend and under his breathe he mumbled 
+
+"Your kind don't belong here" 
+
+I was outraged and started having a go at him saying he can't just move in here and start treating other residents like this. He slammed the door and marched away. Me and my friend left to go home. I was woken up in the middle of the night to shouting from the new neighbours. I opened my window and looked over. The woman appeared to be doing most of the shouting. I looked around and the house next to theirs must have been awoken too because they were also looked out of their windows. 
+
+The shouting stopped. Just stopped out of nowhere there was nothing to suggest why it just went dead silent. My roommate left the next day for work... he never came back. Police were called, his work was obviously called but the most information we have is he left this house, drove off but never arrived at work.
+
+ This is where my suspicions started to circle my head. See the neighbours left in their truck only about 5 minutes after my friend, of course I mentioned this to the police but they couldn't really find any evidence to support the fact they did this, but they returned not even 10 minutes later. A week of the shouting during the night continued and only a few nights ago is where this all happened.
+
+ I was laying in bed, this is about 2 am. And I was messaging my friends phone just on the off chance he might respond and come home so all of this would be over. I can't describe the horror I felt when I heard a phone vibrating from inside my closet. In sync to all the messages I was sending to my friends phone.
+
+ I decided to call the phone and sure enough my friends ringtone went off. I got up out of bed and slowly walked over to the closet and put my ear against it. Shivers ran down my spine when I heard the breaths of someone inside my closet. I pulled the door open and was met with the face of my neighbour towering over me. I screamed at him to get out of my house and he ran at me. I panicked I mean what would you do in this situation?
+
+We fell to the ground and he was trying to strangle me. I managed to escape from him and ran outside screaming for someone to call the police. The police arrived and the man was still inside my house just sitting on the floor mumbling to himself. He was arrested and ended up confessing to the murder of my friend. He and the woman were both arrested and are currently behind bars. The house is still up for sale. But no one has moved in yet. All of this happened about a month ago. Everythings been silent. Until last night, I got a message from a completely random number. It was a picture of my house.
