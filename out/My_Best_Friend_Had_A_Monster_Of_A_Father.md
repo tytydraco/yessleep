@@ -1,4 +1,4 @@
-A childhood friend of mine had a terrible start in life. He lived a block away. It wasn’t the best area in the city. Somehow my parents made it work and kept me away from trouble, but his didn’t have the same consideration. When he went to school; his clothing always a bit dirty and he had such a bad attitude none of the teachers wanted to deal with it. Instead, they just sent him out in the hallway or detention.  
+A childhood friend of mine had a terrible start in life. He lived a block away. It wasn’t the best area in the city. Somehow my parents made it work and kept me away from trouble, but his didn’t have the same consideration. When he went to school; his clothing were always a bit dirty and he had such a bad attitude none of the teachers wanted to deal with it. Instead, they just sent him out in the hallway or detention.  
 
 Markus, but everyone called him Mark, started to become avoided by everyone but myself and his little sister. We bonded over something stupid back in first grade and no matter what happened never strayed too far from each other. I knew about his home life which was something most people either wasn’t aware of, or didn’t care to learn. His mother a kind person when she stayed awake and not on whatever she was currently addicted too. His father wasn’t home very often. When he did come home, there was hell to pay. Mark would take his sister over to my place whenever his father stayed around. 
 
@@ -24,7 +24,7 @@ In the very least I could talk him into staying at my place again. I wanted to s
 
 “Listen, Kandi won’t leave without her bunny. If she has a meltdown, it's all over but she’s always well behaved with you.” 
 
-That explained why he called me over. Reaching down, he helped me climb into his window. We listened for his father knowing if we were caught, we both would be beaten. Kandi, his little sister a little over five already had a tear stained face. She hurried over and hugged my arm feeling safer with another person there.  
+That explained why he called me over. Reaching down, he helped me climb into his window. We listened for his father knowing if we were caught, we both would be beaten. Kandi, his little sister a little over five, already had a tear stained face. She hurried over and hugged my arm feeling safer with another person there.  
 
 “Where is her bunny?” I asked.  
 
