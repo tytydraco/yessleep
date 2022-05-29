@@ -230,7 +230,7 @@ Ava was so happy. “The fairies are with us now!” she kept saying, running ov
 
 The wet *plop* of soggy corn flakes hitting the table.
 
-Other than some messes, though, Katie and I had an easy Sunday. Ava sat in the kitchen for hours at a time, trying to lure the fairies out of their home, while we caught up on work and sat on our phones.
+But the day went well, as we added little accessories to the indoor fairy home, went out to lunch, and played some board games.
 
 It was that night that things went south.
 

@@ -88,7 +88,7 @@ I faintly hear the *ding!* of the Executive Elevator as it arrives on the Twenty
 
 I wait for it.
 
-Voices cry out in unison: "Happy birthday, Dan!" followed them singing "Happy Birthday to You."
+Voices cry out in unison: "Happy birthday, Dan!" followed by them singing "Happy Birthday to You."
 
 I go to the lunch room doorway and peer in. They're crowded around the Executive Director, who stands over his cake, beaming. When they finish singing they break out in applause. It looks like most of the bigwigs from the Accounting and Legal Departments are gathered, along with the Twenty-seventh Floor Office Manager, Rochelle. She begins to cut the cake and serve out slices on paper plates. None of them seem to notice that the center of the cake has a slightly reddish-brown tint. I watch as they begin to eat.
 
@@ -98,7 +98,7 @@ It's 4 P.M. and my last day has ended. I push my cleaning cart back to the servi
 
 Forty years. Forty-fucking-*years* I spent working in this building. Working for *them*. Cleaning up their messes and dumping their trash and mopping their floors and scrubbing their toilets. And not a *single one* of them said farewell or gave me a retirement gift or even a lousy fucking card. Not even a fucking cake. They didn't even notice me leaving. Hell, they never noticed I was there to begin with. To them I was just one of the nameless, faceless, unwashed, unlettered masses who exist merely to serve.
 
-I dump the trash in the Dumpster out back, then wheel my cleaning cart back to the Custodian's Room for the last time. Then I limp into my small changing room and remove my gray coveralls for the last time. Before I switch back into my regular clothes, I regard myself for a moment in the mirror. A sixty-seven-year-old man with thinning white hair and a face aged and worn by a lifetime of hard, thankless work. And what did I have to show for it? A tiny pension that would barely cover my phone bill, let alone my rent. Thank God for Social Security.
+I dump the trash in the Dumpster out back, then wheel my cleaning cart back to the Custodian's Room for the last time. Then I limp into my small changing room and remove my gray coveralls for the last time. Before I switch back into my regular clothes, I regard myself for a moment in the mirror. A sixty-seven-year-old man with thinning white hair and a face aged and worn by a lifetime of hard, thankless work. And what did I have to show for it? A tiny pension that would barely cover my electric bill, let alone my rent. Thank God for Social Security.
 
 Of course, none of that matters, anyway. I don't have that many years left to enjoy my retirement.
 
