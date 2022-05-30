@@ -38,4 +38,4 @@ They said the room is still there, no signs of the first two people.
 
 I'm hoping we're able to find the missing people soon. Something about this room is starting to give me the creeps. I will update soon.
 
-&#x200B;
+[Days 7 - 12](https://www.reddit.com/r/nosleep/comments/v1brnh/20_days_without_rations_part_2/)
