@@ -4,7 +4,7 @@ I'm not well.
 
 My leg is not well.
 
-But… It's not infected. I'm not a doctor though, so I can't be entirely sure. There doesn't appear to be any discoloration and it doesn't… smell. I know those are usually common signs of gout or whatever sort of debilitating illness one could acquire from such an injury.
+But… It's not infected. I'm not a doctor though, so I can't be entirely sure. There doesn't appear to be any discoloration and it doesn't… smell. I know those are usually common signs of gangrene or whatever sort of debilitating illness one could acquire from such an injury.
 
 Aside from that; it's been a hellish few days. Unrelenting disturbances, horrid manifestations and that man. His height has allowed him to tower over most of the shelves and his ability to lean has granted him access to my blocked off section.
 
