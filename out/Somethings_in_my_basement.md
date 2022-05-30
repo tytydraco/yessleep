@@ -1,4 +1,4 @@
-There's something in my basement. I'm fourteen years old, and as long as I can remember there's been something in my basement. Every day before school my mother would give me a plate of raw chicken (or whatever raw meat we had on hand) and tell me to walk down the stairs to the basement, open the door and set the plate down...then slam the door and run back upstairs. 
+There's something in my basement. I'm sixteen years old, and as long as I can remember there's been something in my basement. Every day before school my mother would give me a plate of raw chicken (or whatever raw meat we had on hand) and tell me to walk down the stairs to the basement, open the door and set the plate down...then slam the door and run back upstairs. 
 
 I honestly always figured we had a dog or something, but I never understood why I wasnt allowed to play with it. Whenever my friends would talk about their household pets they never said anything about locking them in a basement. 
 
@@ -36,7 +36,7 @@ Nothing? That can't be right.
 
 My eyes adjust a bit to the darkness, and I see something. A dog? It almost looks like it could be...
 
-But my hopes were quickly crushed as it stood up, it's head scraping against the ceiling. It was breathing heavily, like it hadn't seen a human being in years. Surely it hadn't. As it made it's way closer I could see that it's skin was rotting and peeling off it's arms and legs.
+But my hopes were quickly crushed as it stood up, it's head scraping against the ceiling. It was breathing heavily, like it hadn't seen a human being in years. Surely it hadn't. The knife I had in my hand fell to the floor, I was shaking too hard to keep any grip on it. And as it made it's way closer I could see that it's skin was rotting and peeling off it's arms and legs. 
 
 
 I didn't wanna stay to see the rest, so I bolted up the stairs and out the door, running to my neighbors house. I pounded on the door but I got no answer. I checked under the rug and in their plant for a key, but I didn't find one.
