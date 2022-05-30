@@ -80,7 +80,7 @@ I ran to the entrance like a bull in a China shop. I frantically pushed on the f
 
 “No no no no. HELP! HEELP!”, I yelled, “OI, OLD MAN, I’m in here. HELP!”
 
-I saw him through the perforated metal and I was shaking with adrenaline. When he turned around briefly he just waved at me and proceeded to leave. After sitting at the door restlessly; wailing, begging and cursing, I tried to let the adrenaline wear off. What on earth? There was something wrong. Seriously wrong. Eventually, I got up like an zombie and I scanned the room. There was a lot of dusty haze illuminated by this peculiar red sunset.
+I saw him through the perforated metal and I was shaking with adrenaline. When he turned around briefly he just waved at me and proceeded to leave. After sitting at the door restlessly; wailing, begging and cursing, I tried to let the adrenaline wear off. What on earth? There was something wrong. Seriously wrong. Eventually, I got up like an aching zombie and I scanned the room. There was a lot of dusty haze illuminated by this peculiar red sunset.
 
 “We’re alooooone now”, said a cheery childlike voice.
 
