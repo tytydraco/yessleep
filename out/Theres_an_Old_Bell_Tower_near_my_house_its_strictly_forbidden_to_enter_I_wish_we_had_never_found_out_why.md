@@ -136,7 +136,7 @@ Shawn saying that today hit me hard, I couldn't decide if he was just being a pr
 
 Too many questions in my head, I started feeling sick again thinking about everything, I just wanted to get home and lie down.
 
-I got home and went straight to my room, I put some Pink Floyd on and lay on my bed, it was only mid afternoon but my brain was tired, playing over everything in my head, sorting my thoughts out, it was mentally draining.
+When I eventually got home, I went straight to my room, I put some Pink Floyd on and lay on my bed, it was only mid afternoon but my brain was tired, playing over everything in my head, sorting my thoughts out, it was mentally draining.
 
 It wasn't long before I drifted off and fell asleep.
 

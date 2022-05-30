@@ -28,7 +28,7 @@ I peered down the waist thin space between the two vehicles and realized that my
 
 I walked over to the passenger side and opened the door, throwing my purse, my backpack, and the stack of books into the back. Then I clambered inside, crab walking over the center console before collapsing into the driver's seat.
 
-I started the car and immediately the sensors beeped into my ear. I looked at the console and saw all the arrows blaring a deep red to my left. I winced and stupidly muttered, "My dog stepped on a bee," as I slowly started backing out, making sure my mirror wouldn't hit the other car.
+I started the car and immediately the sensors beeped into my ear. I looked at the console and saw all the arrows blaring a deep red to my left. I winced as I slowly started backed out, making sure my mirror wouldn't hit the other car.
 
 I hear another beep and see a wispy white figure appear on my screen. I nearly screamed as I slammed on the brakes and turned around.
 
