@@ -4,7 +4,7 @@ I loved torturing people. Well, not physically but mentally. It was fun to watch
 
 I tricked people for a living and it did work; I got very rich. They say that cheaters never win; I'm living proof that cheaters only lose if they get caught.
 
-Now, many people don't really know what a psychopath means, and generally assume that a psychopath is someone who is lonely, unlikable, and has a lust for killing and blood. That's entirely true. I've been a really people person; I'm likable, and I'd go as far as to say that I'm charismatic.
+Now, many people don't really know what a psychopath means, and generally assume that a psychopath is someone who is lonely, unlikable, and has a lust for killing and blood. That's not entirely true. I've been a really people person; I'm likable, and I'd go as far as to say that I'm charismatic.
 
 People love having me around, and that has probably helped in my 'business'. I lie a lot, even if it doesn't benefit me, I lie to make myself look more interesting to others.
 
@@ -18,7 +18,7 @@ She thanked me for the 'transaction' and left. Marlowe and I left our temporaril
 
 We returned with a sizable profit, and normally we would've laughed and partied lavishly, but it was late and we parted our ways.
 
-I was on the way to my apartment when I decided to take a small detour as soon as I realized that I was being followed. I didn't really feel afraid as I don't really feel scared of anything, really.I was pretty strong. I've had my fair share of dealing with physical people, which is not that uncommon in my line of work.
+I was on the way to my apartment when I decided to take a small detour as soon as I realized that I was being followed. I didn't really feel afraid as I don't really feel scared of anything, really. I was pretty strong. I've had my fair share of dealing with physical people, which is not that uncommon in my line of work.
 
 He kept following me for a long time and by now I'm lost. Something told me that he wasn't going to stop, so I slowed down my gait and sure enough he approached me. I always had an easy time knowing how others felt and what their intentions were, and I could tell that he wasn't going to harm me physically, which was a huge relief. But I didn't let my guard down.
 
@@ -28,7 +28,7 @@ I faced him. He stared right through my soul, which sent a chill through my spin
 
 I'll make you a deal. I will make you a normal person for three days, in return for my silence. I won't tell anyone about your crimes."
 
-It was impossible because I'm legally dead and I never used my real identity. He's probably from a drug testing company with a really good identification system or something? I have no idea. I was curious if it'd work because I'd always wondered how it'd be to feel something and be normal.
+It was impossible because I'm legally dead (missing, assumed dead) and I never used my real identity. He's probably from a drug testing company with a really good identification system or something? I have no idea. I was curious if it'd work because I'd always wondered how it'd be to feel something and be normal.
 
 "So..?"
 
@@ -74,9 +74,9 @@ Marlowe called me, but I ignored her. I didn't want to live like that anymore. I
 
 I felt guilty for doing those things, I was so cruel and ruthless, and if you think that I'm worthy of redemption, you're wrong; me feeling sorry for what I did couldn't erase the damage I'd caused. I saw Elise sleeping quietly; the poor thing cried herself to sleep.
 
-I felt a maternal instinct towards her, wanting to protect her from anything that would ever happen to her. It was evening by then, and Lee-Lee woke up. We decided to go for a walk; there was a park nearby where she used to play. We both spent some time together. She was such a sweet kid. She was very soft-spoken and understanding that I felt proud of her.
+I felt a maternal instinct towards her, wanting to protect her from anything that would ever happen to her. It was evening by then, and Lee-Lee woke up. We decided to go for a walk; there was a park nearby where she used to play. We both spent some time together. She was such a sweet kid. She was very soft-spoken and understanding; that I felt really proud of her.
 
-As soon as she was done playing, I took her to my neighbor, Agatha, who was a sweet old lady. Her grandchildren came over to her place today and I quickly explained everything and she was more than happy to look over Elise for a while. I had some things to settle.
+As soon as she was done playing, I took her to my neighbor, Agatha, who was a sweet old lady. Her grandchildren came over to her place for a few days and I quickly explained everything and she was more than happy to look over Elise for a while. I had some things to settle.
 
 I kept a log of my victims and I wanted to confess to them, starting with that old lady. I tracked her down. She was in a cemetery, in a black dress; I never noticed how tired and sad she looked and how young she was. Beneath her white hair, she was very beautiful. She sat on a bench and buried her face in her hands.
 
@@ -86,7 +86,7 @@ I couldn't possibly tell anything, and I wanted to leave, but I couldn't. I sat 
 
 You are a good person.. I can tell you that, you can change your ways. Keep that money with yourself as you probably need it way more than I do. I won't tell anyone about this, darling. I believe that you can do it, find yourself something you'll love, and do it. Believe me, it will work wonders in your life," she said.
 
-I couldn't believe that someone could be this kind. I came there expecting to be shamed and scolded. I never knew that humanity was this beautiful. I couldn't keep her money with me, and I pleaded with her to take her money, for the sake of my own remorse. We hugged each other and left.
+I couldn't believe that someone could be this kind; I came there expecting to be shamed and scolded. I never knew that humanity was this beautiful. I couldn't keep her money with me, and I pleaded with her to take her money, for the sake of my own remorse. We hugged each other and left.
 
 I came back to see Lee-Lee playing with the other kids, happy and in her own world. I realized that it was the first time I saw her smile. She was very pretty when she smiled.
 
@@ -98,13 +98,17 @@ I spent the next day getting to know her better and she was a really good and un
 
 I started to dread it. I wanted to search for that man and ask him to help me stay this way forever. I didn't want to lose my Elise; I didn't want to trick people again. I don't.... I planned out everything; I'd ask Agatha to babysit Lee-Lee and I'd start searching for him. I checked the internet, but as I'd expected I found nothing useful.
 
-It was dawn by the time I finally shut down my computer. Lee-Lee woke up and hugged me, and I kissed her on her forehead. "Good morning kiddo. Want some butter and toast for breakfast?"She nodded and went on to get herself ready. We both ate and I sent her to Agatha for a while. She was pretty understanding and told me that it was okay. I spent the whole day searching for him, but to no avail.
+It was dawn by the time I finally shut down my computer. Lee-Lee woke up and hugged me, and I kissed her on her forehead.
+
+"Good morning kiddo. Want some butter and toast for breakfast?"
+
+She nodded and went on to get herself ready. We both ate and I sent her to Agatha for a while. She was pretty understanding and told me that it was okay. I spent the whole day searching for him, but to no avail.
 
 I didn't want to be that way again. If my real self returns, then it will cause a lot more damage. I didn't have any other choice. I had to kill myself.
 
-The first thing that came to my mind was Elise... How will that kid go through this all over again? I want to stay with her, but I can't. This has to be done. It was 5 in the evening. I wrote my will, I left all my possessions to Elise, and I donated a substantial amount to charity.
+The first thing that came to my mind was Elise... How will that kid go through this all over again? I want to stay with her, but I can't. This has to be done. It was 5 in the evening. I wrote my will, I left all my possessions to Elise, and I left a substantial amount to charity.
 
-I can't let Lee-Lee look at my dead body in the apartment, nor could I face her now, even if I desperately want to. I drove to the ocean. I left my car unlocked and I went towards the ocean in a trance like state.
+I can't let Lee-Lee look at my dead body in the apartment, nor could I face her now, even if I desperately want to. I drove to the ocean. I left my car unlocked and I went towards the ocean, spellbound.
 
 The sensation of grainy sand underneath my toes and the gentle wind that swept my hair seemed like it pleaded me to stop. I looked back at the vast city, and a sudden realization stuck with me: I wasted my whole life.
 
