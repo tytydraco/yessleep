@@ -88,7 +88,7 @@ I nodded enthusiastically.
 
 He beamed, taking the ring from the cushioned holder as I excitedly removed the glove from my left hand. He placed it on my ring finger. It fit perfectly.
 
-I held out my hand and spread my fingers, the diamond glinting as it caught the sun. It looked so right, like it had been missing all along. I threw her arms around JD and we embraced each other, kissing passionately.
+I held out my hand and spread my fingers, the diamond glinting as it caught the sun. It looked so right, like it had been missing all along. I threw my arms around JD and we embraced each other, kissing passionately.
 
 When I was telling my granddaughter I skipped a few details, but that's the moment we gave ourselves to each other for the first time. It was my first time with anybody, I was so nervous. But he was gentle and tender, that's all I'll say about that.
 

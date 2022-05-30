@@ -1,5 +1,9 @@
 [Part 3](https://www.reddit.com/r/nosleep/comments/uvghea/i_accepted_a_job_offer_from_a_strange_man_i/)
 
+I'm safe now as I'm typing this, in a car en route to... Well, I'm getting ahead of myself. I'm sorry for the gap. I needed a little bit to process what happened after my tussle with that gun-toting driver. Getting my thoughts together... and my words. God, I'm talking like this was a lifetime ago - it feels like it - but it can only have been - what, 20 minutes tops?
+
+\~\*\~\*\~\*\~
+
 I opened my eyes and found myself staring into the cold dirt. I peeled myself off the ground with a groan, looking back up at the cliffside. It was a sheer 30 foot drop, at least. It was incredible I hadn’t broken anything.
 
 A gurgling sound caused me to whirl around. “Jesus Christ…” I mouthed.

@@ -1,5 +1,11 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/uukmi6/when_driving_watch_out_for_the_wildlife/)
 
+Things aren't going to plan here. I'm... alive, I suppose, as you can tell since I'm writing this after the fact. I wish that wasn't the only good news I had. My car's still totaled, I've been chased half a mile by what was either a type of wildlife that shouldn't exist here, or a figment of my imagination - and then after all that...
+
+...Here I am complaining when I got off easy. I must sound like such a selfish jerk, considering what just happened a little bit ago.
+
+\~\*\~\*\~\*\~\*\~\*\~
+
 I stood on the opposite bank of the creek, the mist still drifting through the clearing. My heart was still pounding, and I was half afraid that *thing* from the highway would come back for me. I had been trying for a good five minutes to return Lester’s call and ask if he could come pick me up. Number not found. I could see a dirt road up ahead on the edge of my visibility, running horizontally past. Was the town left or right from here? I hefted my bag over my shoulder, taking a minute to see how Luna was doing. She seemed more relaxed now, sitting in the “catloaf” position in her carrier and dozing with half-shut eyes. She still didn’t seem to be acknowledging me as much as usual. I hoped she wasn’t upset with me. I do enough to upset humans without adding pets to the list.
 
 I sighed and picked a direction. Time to take a walk.
