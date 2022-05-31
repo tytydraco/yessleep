@@ -291,3 +291,7 @@ I looked at the photo I just threw on the floor, his eyes were still trained on 
 'Danny, did you hear me?' Brian asked sounding agitated.
 
 'I think I know where he is!' I replied.
+
+.
+
+[2022](https://www.reddit.com/r/nosleep/comments/v10257/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
