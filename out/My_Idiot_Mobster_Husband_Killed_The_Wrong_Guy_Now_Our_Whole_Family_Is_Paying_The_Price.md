@@ -1,6 +1,6 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/uvxtlv/my_tenyearold_wont_stop_playing_with_teddy_bears/)
 
-&#x200B;
+[Part 3](https://www.reddit.com/r/nosleep/comments/v1o186/my_son_and_i_are_stranded_in_the_desertand_the/)
 
 When my husband saw the man in the purple suit, he spit his pastrami sandwich all over my fake Chanel purse.
 

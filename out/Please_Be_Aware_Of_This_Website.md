@@ -1,0 +1,13 @@
+This is kind of a long story but I need to warn people about this curse and website. I was browsing the internet on my Windows computer, I was bored and seeking something scary or thrilling to do. I stumbled upon an Iceberg video on YouTube called, “Scariest Japanese Websites Iceberg”. The video was about 2 and a half hours long but I watched the whole video. Near the end he mentioned a website which I will not name.
+
+He started explaining how it was a cursed website and if you visit it a lady in blue and white will follow you. I of course didn’t believe it because who would? I visited the website and it asked for a bunch of information, some of it being a little too personal. They asked for my name, height, weight, and location. It was weird so I tried exiting, but the page had fullscreened and I tried Alt+F4 and it did close.
+
+But then it opened back up in another tab but photos of me. Moments later I heard doors in my house being kicked open, I was then greeted to a woman in blue and white. But she was standing far away from me, like the farthest she could stand back. After that day she has been standing at least 50 yards away from me, only I can see her. Every Friday she moves at least an inch closer, a while ago she was 50 yards away.
+
+Now, she is 10 yards away. I am afraid of what the woman will do next. I cannot sleep because of her presence, I can barely even work because of her. I do not know what will happen if she does reach me. I still curse that YouTuber for making me go through this Hell.
+
+I really wish she would just end me already instead of slowly approaching me. I hope you guys don’t think I’m crazy or an attention seeker. What I am going through is real, please do not try to find the website or the Iceberg. Please, if you do find it, do not tell anybody the name of the video or the website. If anybody is going through this or know somebody going through this please get in contact with me and maybe we can stop it.
+
+The worse part about this is I cannot tell anybody I know about this. They will think I’m crazy and will throw me in a mental asylum. She constantly whispers things to me such as, “nobody will ever believe you”, and “time is almost up”. She is teasing me and knows that nobody will believe me. You guys probably don’t even believe me so maybe I won’t even post this.
+
+You probably think I’m a huge liar or a schizophrenic. I am not a schizophrenic, I already thought of that possibility and went to a doctor. I will update you guys if anything good happens. If I don’t update, you probably know what happened already.
