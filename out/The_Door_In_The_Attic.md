@@ -1,5 +1,3 @@
- 
-
 I  had a part time job of house sitting during my senior year of high  school. It was an okay gig to start for as young as I was. I could charge what I felt like (although my price was always reasonable), and I  would receive free food and amenities for a time. A typical length of time for house sitting would be anywhere from a night to a couple of days.
 
 While I stayed  at my client’s home, it would give me time to finish schoolwork, do  cleaning, laundry, and have the occasional pet sitting (I would not do  kids. At all). More often than not, I would be house sitting in one of  the more upper middle-class neighborhoods in town. They usually paid the best. Thanks to the money I saved up, I was able to pay off my first  semester of community college.
@@ -19,6 +17,8 @@ I  had to double take just to make sure my mind wasn’t making up sounds. It wo
 I had gone to the  closet to grab a broom and walked up to the attic. It had to be rats,  maybe? But this sounded too large to a rodent. And these weren’t quick,  sporadic bursts. These scratched sounded larger, more deliberate. Not  like the sound of tiny claws at all. More like fingernails.
 
 By the time that idea popped in my head, I was already in the attic. It  was almost pitch black in there. I reached for my phone to get some kind  of light, and I searched the area. There were boxes my clients had  stored up here. I found other trinkets up there that I wasn’t sure belonged to them. Curtain rods that may have been gold imitation but  long since rusted out. There was also an open trunk filled with old  clothes and photos. Most of the pictures were of a young girl, early  1900s. Looked to be around my age. I wondered what this would be doing  there when the scratching continued behind me. I turned around and was  facing a door in the wall. Breaking all rules of every horror film ever,  I went to the door to investigate.
+
+While I approached, I felt the air grow cold and the hairs on the back of my neck stand straight up. My heart beat was doubling its pace. I was so afraid of approaching the door, but curiosity had gotten the best of me.
 
 I began to smell something awful, too. Like a mix of rancid feces and  decay together. It got stronger as I approached the door. The scratching  was replaced by something another sound. What I could hear this time  was labored breathing, as if someone were dying in there. I grabbed the  doorknob, only to find that it was locked. I jiggled it a little bit,  and there was a loud banging coming from the other side, followed by a  woman’s scream from inside. The scratches returned again in full force  as whoever was in there was trying to escape. I dropped my phone and the  broom and ran out of the attic. I blindly ran down the stairs and out  of the house. I stayed in my own home the rest of the night.
 
