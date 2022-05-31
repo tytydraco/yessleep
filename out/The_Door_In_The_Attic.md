@@ -1,0 +1,31 @@
+ 
+
+I  had a part time job of house sitting during my senior year of high  school. It was an okay gig to start for as young as I was. I could charge what I felt like (although my price was always reasonable), and I  would receive free food and amenities for a time. A typical length of time for house sitting would be anywhere from a night to a couple of days.
+
+While I stayed  at my client’s home, it would give me time to finish schoolwork, do  cleaning, laundry, and have the occasional pet sitting (I would not do  kids. At all). More often than not, I would be house sitting in one of  the more upper middle-class neighborhoods in town. They usually paid the best. Thanks to the money I saved up, I was able to pay off my first  semester of community college.
+
+The  last house I sat for was like a dream home. It was a refurbished Victorian style building in the nicer neighborhood that I frequented for  jobs. I had seen it standing unoccupied for a while, wondering if  anyone would ever purchase it. My clients had purchased two months before, and it was already looking livelier than it was. The couple who bought the house were also the nicest people I had ever met. The husband  was the general manager of a car dealership, while the wife was a local  news reporter. They had just been called on a family emergency on a  Wednesday night, and they called for me on such short notice, but they  needed someone to watch over things through the end of the week. They  even offered to double my usual pay rate. So I packed up and went right over.
+
+In addition to watching the house, I was also looking after their Pomeranian, Princess. She wasn’t any trouble.
+
+They  left later that afternoon, and I busied myself with homework. Walking  Princess. Simple chores around the house. The first couple of nights  passed by without incident, but I would notice that Princess would sit by the stairs, looking upwards toward the attic. No matter how many times I called her, she wouldn’t respond, and  she’d stay there until she was done looking at whatever it was, she’d  sense up there.
+
+*Weird dog,* I thought.
+
+On that Friday night, I was in the living room, binge  watching reality TV and Princess was sitting by the same spot she had  been since I got there. She’d been sitting there for a couple of hours already. I had turned off my shows and decided to go to sleep when  something caught my attention. It was a distinct, unmistakable sound in an otherwise quiet house. What I thought was hearing was the scratching of wood, coming from upstairs.
+
+I  had to double take just to make sure my mind wasn’t making up sounds. It wouldn’t be the first time that had happened to me. But there it was, coming from the floor above me. The sounds of long, drawn  out scratches from upstairs. The sound had caused Princess to whimper and scamper off to another room. All the while, sound got louder and was quickening.
+
+I had gone to the  closet to grab a broom and walked up to the attic. It had to be rats,  maybe? But this sounded too large to a rodent. And these weren’t quick,  sporadic bursts. These scratched sounded larger, more deliberate. Not  like the sound of tiny claws at all. More like fingernails.
+
+By the time that idea popped in my head, I was already in the attic. It  was almost pitch black in there. I reached for my phone to get some kind  of light, and I searched the area. There were boxes my clients had  stored up here. I found other trinkets up there that I wasn’t sure belonged to them. Curtain rods that may have been gold imitation but  long since rusted out. There was also an open trunk filled with old  clothes and photos. Most of the pictures were of a young girl, early  1900s. Looked to be around my age. I wondered what this would be doing  there when the scratching continued behind me. I turned around and was  facing a door in the wall. Breaking all rules of every horror film ever,  I went to the door to investigate.
+
+I began to smell something awful, too. Like a mix of rancid feces and  decay together. It got stronger as I approached the door. The scratching  was replaced by something another sound. What I could hear this time  was labored breathing, as if someone were dying in there. I grabbed the  doorknob, only to find that it was locked. I jiggled it a little bit,  and there was a loud banging coming from the other side, followed by a  woman’s scream from inside. The scratches returned again in full force  as whoever was in there was trying to escape. I dropped my phone and the  broom and ran out of the attic. I blindly ran down the stairs and out  of the house. I stayed in my own home the rest of the night.
+
+I told my parents what I saw, and Dad went with me back to the house to  investigate. When we went up to the attic, and there was nothing there.  No sounds. No foul stench. And, mostly importantly, no door. The only  thing I noticed that was different was the rug covering the floorboards.  I didn’t remember seeing that before.
+
+I didn’t stay in the house during the weekend. I watched Princess and did  everything else, but I didn’t sleep there. When my clients came back, I  told them what I saw and heard. They were, of course, skeptical. They  thought I was on something, and I never sat for them again. In fact, it  was the end of my house-sitting gig.
+
+I had finally gone to college and stayed home with my parents. I worked  on campus which gave me benefits. Today, my parents had gotten a call  from my last clients that I sat for. They called to apologize for  thinking I was a drug user for the longest time. They had just begun  working on the attic recently, starting with removing the rug on the  floor.
+
+Beneath the fabric, there  were scratch marks carved in the wood and bits of dried flesh and  fingernails attached to the floor. As if someone was trying to claw  their way out.
