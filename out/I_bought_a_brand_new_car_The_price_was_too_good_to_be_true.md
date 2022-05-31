@@ -14,7 +14,7 @@ After our transaction my dad looked at me and beamed, "Shit, we could have proba
 
 \*
 
-I've always had an older car up until now. Cloth seats, hand rolled windows, and an engine that worked on prayer. That it was weird when I began worrying about my car. Having previously letting nature's car wash clean my vehicle, I found myself doing it by hand on Saturdays. I even used an easy nanowax to preserve the paint. And always going the extra mile to park it far away from other cars as possible.
+I've always had an older car up until now. Cloth seats, hand rolled windows, and an engine that worked on prayer. Which made it weird when I began worrying about my car. Having previously letting nature's car wash clean my vehicle, I found myself doing it by hand on Saturdays. I even used an easy nanowax to preserve the paint. And always going the extra mile to park it far away from other cars as possible.
 
 It was on one such night that I had parked really far away, and was walking alone back to the lot, in the dark, that I began to question my life choices, "Why can't you just be normal? Park like a normal person does. Why'd you have to park the car as if you were hiding it? Dummy..."
 

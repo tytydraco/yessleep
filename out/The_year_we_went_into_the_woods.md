@@ -1,0 +1,15 @@
+Don’t go in the woods after dark. That’s the refrain that runs through every child’s head, echoing like the tolling of a bell. Of course, a simple lesson like that doesn’t sway the mind of a child, instead, the forbidden becomes twice as alluring. And so, every now and then, whispers and giggles can be heard from the edge of the forest, children daring each other to take the first step, to prove the adults wrong - nothing is dangerous about the woods. 
+
+It would always be the same time of year - the end of summer, I think, when the trees were still thick and green, for the most part, but the forest was dark and foreboding. I remember the year when my friends and I had reached our rebellious stage, and decided that the great question of the woods needed to be answered. We chose to go at midnight - where would be the fun, otherwise? - and that particular summer night was hot and moonless, no sound breaking the eerie silence of the dark. 
+
+I hung back, because even then I was full of fancy, and I believed deeply in the notion of the supernatural - hidden creatures that lurk in shadows and feed on innocent and reckless children such as ourselves. As it happens, my fear likely saved me from a mysterious unknown fate - because the next morning, I woke safe in my bed, having bowed out at the last minute and run all the way home as if the devil himself snapped at my heels. My comrades, however, were less lucky - they had vanished without a trace. The police searched every inch of that forest during the day, bringing in drones, dogs, and every other resource available, but they never found those kids - they had vanished, plain and simple, gone without a trace as if they’d never existed at all. 
+
+But it was one of those things that everyone accepted, but rarely acknowledged- children who enter the woods at night never come out. And children keep going into the woods - each believing they would be the one to survive. Every time, the police used every resource possible to try and find them, hounded by town officials and grief-stricken parents, but to no avail. 
+
+I guess eventually our town sort of accepted the deaths as something of a sacrifice - because on the days after a death the woods always seemed lighter, safer somehow, as if some kind of creature had been fed and satiated. Everything would be quiet for another year, the parents would move away, and peace would be resolved as the letters carved into countless gravestones began to lose their definition.
+
+It keeps happening, I don't know why, because you would think the town would put a fence around the woods or something, right? Or that everyone would leave? Hell, if I have children, I'm abandoning this town the second I can. Why stay and risk losing your child, when you could settle somewhere safe and woodless?
+
+People get stuck here, I guess. They just hope and pray, and repeat the familiar refrain as much as they can. 
+
+Don’t go in the woods at night.

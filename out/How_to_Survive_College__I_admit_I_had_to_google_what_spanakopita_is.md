@@ -1,10 +1,10 @@
-Sorry I didn’t reply to everyone’s messages on [the last post](https://www.reddit.com/r/nosleep/comments/um8rtr/how_to_survive_college_the_real_monsters_are_the/).  I was like “I feel so guilty for not spending every waking moment studying” and then my brain was *also* like “but don’t you feel guilty for not replying to people” and anyway I guess my stress coping mechanism is to do only one of the things stressing me out and then binge watch anime to bury the guilt of not doing the other thing.  I did read them all, though.  I always do, I promise.  
+Sorry I didn’t reply to everyone’s messages on [the last post](https://www.reddit.com/r/nosleep/comments/um8rtr/how_to_survive_college_the_real_monsters_are_the/).  I was like “I feel so guilty for not spending every waking moment studying” and then my brain was *also* like “but don’t you feel guilty for not replying to people” and anyway I guess my stress coping mechanism is to do only one of the things stressing me out and then binge watch anime to bury the guilt of not doing the other thing.  I did read them all, though.  I always do, I promise.
 
 (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 I talked to the professor I trust about Cassie’s situation with her asshole professor.  He tried to be helpful, but there wasn’t a lot we could do it sounded like.  Cassie could make a complaint and the school could do some things based on that, such as place an observer in the classroom.  I thought that sounded like a terrible idea.  Like yes, we’re putting someone in here to observe you which obviously means one of your remaining eight students - whose grades you’re holding hostage - ratted you out.
 
-It was nice to talk to my professor though.  It’s weird because all through school teachers were these unapproachable \~\*\~*adults*\~\*\~ and now I’m an adult and the dynamic has changed.  I can just have a conversation with the professor like I would a normal person.  It’s wild.  
+It was nice to talk to my professor though.  It’s weird because all through school teachers were these unapproachable \~\*\~*adults*\~\*\~ and now I’m an adult and the dynamic has changed.  I can just have a conversation with the professor like I would a normal person.  It’s wild.
 
 After we got done talking about my friend’s dilemma and he gave his suggestions, he also asked how I was doing here at the university.  He’d noticed that I’d struggled quite a bit at the start of class.  I struggled in all my classes just because I had so much catching up to do.
 
@@ -20,15 +20,15 @@ I sat there, speechless, for a moment.  I’ve thought about all these things be
 
 It was the first time someone had said to me ‘what you’re doing is hard’ in a way that made me feel they were right.  That this *is* hard and that I *do* have reason to struggle with it.  There’s a lot of relief in realizing that this weight you’ve shouldered isn’t imaginary.  I’m not weak.  It really is a lot to carry.
 
-After my sister got married, I inherited the role of the eldest.  Mom was at the store a lot so I was at home, trying to take care of my younger siblings and also make sure my own schoolwork got done.  Mom always said she didn’t want to make us spend all our time working at the store, especially since I worked on the campgrounds during the summer, but there was still a lot to do at home.  Cooking, cleaning, laundry, helping my younger siblings with their homework.  I have this mental image of myself as the tough, reliable one that can get things done.  
+After my sister got married, I inherited the role of the eldest.  Mom was at the store a lot so I was at home, trying to take care of my younger siblings and also make sure my own schoolwork got done.  Mom always said she didn’t want to make us spend all our time working at the store, especially since I worked on the campgrounds during the summer, but there was still a lot to do at home.  Cooking, cleaning, laundry, helping my younger siblings with their homework.  I have this mental image of myself as the tough, reliable one that can get things done.
 
-I don’t feel that way, though.  It’s just a show I’m putting on so that no one else in the family has to worry about how things are going to get taken care of.  I feel like ever since my older sister left, I’ve been pouring myself out and trying to pretend that the pitcher will never run dry.    
+I don’t feel that way, though.  It’s just a show I’m putting on so that no one else in the family has to worry about how things are going to get taken care of.  I feel like ever since my older sister left, I’ve been pouring myself out and trying to pretend that the pitcher will never run dry.
 
 I think going to college is the first selfish thing I’ve done.
 
 Is the first semester this hard for everyone else?
 
-I didn’t say any of this to my professor.  He asked how I was doing and said it sounded like things were hard for me.  He didn’t need my life story.  I said instead that it *was* hard, but I was getting by.  My grades were improving, though perhaps not as quickly as I was hoping for.  I had a plan, though, I hastily added before he could say anything about the tutoring center.  
+I didn’t say any of this to my professor.  He asked how I was doing and said it sounded like things were hard for me.  He didn’t need my life story.  I said instead that it *was* hard, but I was getting by.  My grades were improving, though perhaps not as quickly as I was hoping for.  I had a plan, though, I hastily added before he could say anything about the tutoring center.
 
 Then, because I felt I could trust him, I changed the subject to something else I was desperately wanting to know more about.
 
@@ -88,7 +88,7 @@ Maybe she’d know.  It was worth a try.
 
 “We need the library to flood!” She stood up excitedly.  “I’ve been wanting to see it!.  C’mon, let’s go walk around.  I think you need to get away from other people for that to happen.”
 
-I glanced around.  There *were* other students nearby.  Reluctantly, I shut my laptop and put it in my backpack.  She might actually be on to something.  
+I glanced around.  There *were* other students nearby.  Reluctantly, I shut my laptop and put it in my backpack.  She might actually be on to something.
 
 I’m starting to understand why Kate had no tolerance for… anyone, really.  The club president - whose name is Maria - chattered incessantly about things I didn’t care about and things that I honestly think I had no business knowing.  I made a mental note to never tell Maria anything personal, not unless I wanted it spread to every stranger that walked across her path.  Finally, she veered into talking about the inhuman, which was a welcome change from hearing about her roommate’s STD test.
 
@@ -193,6 +193,8 @@ I’ll let her do the talking at the next meeting.  They’ll believe her, after
 The library ghost is angered when people put themselves at risk of drowning.  He is still here, bound to his eternal duty of taking people to safety, and it enrages him when people disregard his help.
 
 Even if it’s to save someone else.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/v1fmdi/how_to_survive_college_i_cant_do_this/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
