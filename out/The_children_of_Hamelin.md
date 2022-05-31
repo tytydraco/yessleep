@@ -124,7 +124,7 @@ The base of the rock was covered in ground. Had centuries of growth hidden the r
 
 It was hard and slow work, but after four hours the scene was starting to look more like my sketch. And then my trowel hit something solid. There was a large stone, something I hadn't seen in my dream. With a little annoyance I pulled ground from the stone, planning to dig it out and haul it away, until I saw something that changed everything. There were words carved into it, weathered, but still mostly legible.
 
->!IN M\_MOR\_A AET\_RNA!<
+>**IN M\_MOR\_A AET\_RNA**
 
 In Memoria Aeterna. "In Memory Eternal."
 
@@ -217,3 +217,7 @@ It must be placated. It must be fed.
 I've bought some new clothes, all in green. There's a park near the eastern end of town where a few kids like to play late in the evening. And as I wait for the next full moon, thinking back to the number of skeletons in that cave, I find myself asking:
 
 How many people, over the last seven hundred years, have taken on this task?
+
+[A sketch of the Piper from the notebook](https://www.dropbox.com/s/0fyxkfervqwxwq6/)
+
+[Hamelin as imagined in 1284](https://www.dropbox.com/s/6dcc510me7d2gro/)
