@@ -174,7 +174,7 @@ Detective O’Hara closed his notebook and slid it into his shirt pocket. He rub
 
 I sat in silence.
 
-“I do not know that any of the remains belong to your wife but her disappearance lines up with the discovery of the bodies.” 
+“I do not know that any of the remains belong to your wife but her disappearance lines up with the discovery of the bodies.”
 
 “Can I go to the morgue and try to identify her?” I asked. Warm tears had started gathering in my eyes.
 
