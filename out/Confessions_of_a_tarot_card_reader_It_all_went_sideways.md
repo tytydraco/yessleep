@@ -8,7 +8,7 @@ It's not a very big place, my new home, but nestled on the very outskirts of it 
 
 I slammed my breaks to avoid running him over and came to a stop smack dab in front of the driveway.  The access point was so cluttered with overgrown weeds it's any wonder I even saw it then.  The dog stopped when it was a few feet down the driveway and turned to look at me.  I was ready to drive away, thinking nothing more of it other than it being a terribly close call, when I found myself turning down the driveway.
 
-*Something* was controlling me, and it wasn't me.
+\*Something\* was controlling me, and it wasn't me.
 
 I tried to pump the breaks but my foot stayed stuck to the accelerator.  My car bounced gently down the dirt driveway with the dog leading the way and me stuck in my own body.
 
@@ -68,10 +68,10 @@ I was bleeding and shaken, but pleased to discover that my urge to get to my fee
 
 "I'll be fine.  Let's just go."
 
-We did just that.  As quickly as we could.  When we got to my car and drove away without anything stopping us.  Once we got back to Oceanview proper, however, we were lost.  We couldn't go to my house or Cecily's, and her shop was out of the question.  Anywhere it seemed we might be able to go also seemed to be a place where Roj might find us.  
+We did just that.  As quickly as we could.  When we got to my car and drove away without anything stopping us.  Once we got back to Oceanview proper, however, we were lost.  We couldn't go to my house or Cecily's, and her shop was out of the question.  Anywhere it seemed we might be able to go also seemed to be a place where Roj might find us.
 
 Cecily said we should just drive and figure things out from there.  So I did, and we drove for a good hour before finding a place to stop for gas.  We're at a roadside hotel for the time being and while I still don't feel particularly safe, at least I'm with Cecily.  She set up protections for us and said they'll hold for the time being, but that we need to get additional supplies in the morning.
 
-I'll update more when I can, dear friends, and hope that tomorrow brings the answers Cecily doesn't quite seem willing to give me tonight.
+[I'll update when I can](https://www.reddit.com/r/nosleep/comments/v1u5x8/confessions_of_a_tarot_card_reader_blaze_of_glory/), dear friends, and hope that tomorrow brings the answers Cecily doesn't quite seem willing to give me tonight.
 
 [f](https://www.reddit.com/r/forehveree/comments/t16wl6/about_me/)
