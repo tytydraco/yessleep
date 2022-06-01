@@ -155,7 +155,7 @@ I follow down the long and dark hallway. I take more left and rights than I thou
 
 One of the masked figures approaches my direction. It passes by and shuts the door. Puts a chair under the handle so no one else can enter nor exit..Through its masked face I hear a familiar voice that I clearly recognize say to me..
 
-"Hello Jimmy, my boy...We have been waiting for you..The fun may finally begin...."
+"Hello Jimmy...We have been waiting for you..The fun may finally begin...."
 
 
 
