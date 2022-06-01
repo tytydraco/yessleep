@@ -28,7 +28,7 @@ I opened the direct message and quickly responded.
 
 “Miss you ;)”
 
-I was typing out to respond when a bright flash filled my car, singing my eyes. I cried out and covered my eyes for a couple of seconds. I looked up…and there he was. Shutter…
+I was typing out to respond when a bright flash filled my car, stinging my eyes. I cried out and covered my eyes for a couple of seconds. I looked up…and there he was. Shutter…
 
 A young, hobo looking man. He would be handsome if we wasn’t covered in mud and…horrible lacerations dripping gore. His long, blond hair was soaked with blood from his scalp being adorned with a biblical crown of thorns.  Jesus Christ those wounds were disgusting. Basically the left half of his face was falling out of his head from a huge gash.
 

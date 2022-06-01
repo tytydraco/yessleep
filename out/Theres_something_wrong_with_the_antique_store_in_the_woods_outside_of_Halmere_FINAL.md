@@ -282,6 +282,4 @@ I’m not sure if this will be my final post, but it’s over for now.
 
 If I can leave with just a few parting words, it’s that there *was* something wrong with the antique store in the woods outside of Halmere. And it was me.
 
-Thanks for reading.
-
 [PREVIOUS](https://www.reddit.com/r/nosleep/comments/uudyl0/theres_something_wrong_with_the_antique_store_in/) |
