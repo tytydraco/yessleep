@@ -8,6 +8,8 @@ After several weeks of failed attempts to contact him, I went to the flat to inv
 
 This line is the earliest surviving record in the town chronicles of Hamelin, a town in Lower Saxony, Germany, in 1384. 130 children were taken from Hamelin by the Pied Piper in 1284. This myth has been fictionalised many times, notably by the Brothers Grimm in the 19th century; but unlike most myths, this one is based in verifiable fact. Nobody knows what happened to the children, although there has been plenty of speculation; but those children most definitely disappeared, never to return.
 
+[Hamelin as imagined in 1284](https://www.dropbox.com/s/6dcc510me7d2gro/)
+
 So when you discover that your Masters degree in European Folklore Studies is exactly zero use in getting an actual job, and the insurance company you've been working at for fifteen years succumbs to the pandemic and makes most of the accounting team, including yourself, redundant - what else are you going to do? Obviously you have no choice but to pack your bags, sell your flat, move to Saxony, and solve the mystery of the disappearance of the children of Hamelin.
 
 In late 2020 I managed to rent a flat near the centre of Hamelin. Most Germans speak reasonable English, which is fortunate as I do not speak reasonable German. These days I can get by, but back then most of my conversation included a lot of hand gestures and rifling through an English-German dictionary. I settled down and started to explore the town.
@@ -86,6 +88,8 @@ Then the piper danced, randomly it seemed to me, up the hill towards my tent. Wh
 
 Then I woke up.
 
+[A sketch of the Piper from the notebook](https://www.dropbox.com/s/0fyxkfervqwxwq6/)
+
 **19 March 2021**
 
 I'd planned to start early today, but it took me over an hour to shake the nightmare. I was completely unrested from my sleep. I looked for footsteps around my camp, finding none but my own, and even checked the Moon phase. It was a crescent moon. The previous night's events had indeed been nothing but a dream, and after my third cup of coffee I felt ready to start my search.
@@ -134,9 +138,11 @@ This was it! I'd found the cave. Not only that - I had the list, all the names o
 
 By the evening I had cleared the last of the ground covering the area, and the rock matched my sketch, even down to the hard-packed path leading up to it. But there was no sign of a cave entrance. The rock was smoothly weathered, and brought to mind the West Door of Moria. I pushed and prodded the rock for nearly an hour, long past sunset, before deciding to continue in the light of morning. It was a dark night, and I stumbled a few times on the way back to the tent, before heating up a canned stew and settling down.
 
+[A sketch of the rock face from the notebook](https://www.dropbox.com/s/0ma4kh06lx6gs6v/)
+
 I woke to silence, the light of the full moon filling my tent. I pulled on my green tights, green jacket, and green shoes, and donned my green hat. I stepped outside and brought my silver pipe from the folds of my jacket, and started to play.
 
-All night I danced under the moon, across the hill and through the fields. All night I played my pipe, and the music filled the air. Animals calmed as I neared them, and followed, enchanted by my pipe. Many hours passed until the night came close to ending, and I danced to the east, down the hill, towards the door. My tune sped up, the rock opened for me, and I danced inside to darkness.
+All night I danced under the moon, across the hill and through the fields. All night I played my pipe, and the music filled the air. Animals calmed as I neared them, and followed, enchanted by my pipe. Many hours passed until the night came close to ending, and I danced to the west, down the hill, towards the door. My tune sped up, the rock opened for me, and I danced inside to darkness.
 
 I woke up.
 
@@ -150,7 +156,7 @@ But first I headed to the rock. It was just as it had been yesterday, and I took
 
 I slept well that night, undisturbed by strange dreams, and when I woke the next day I was ready to review what I had learned so far.
 
-Three extremely vivid dreams all took place in the full moon. The translated primary source of the disappearance said this occurred on 20 August 1284, and I checked the moon's phase for that date. It was a half-moon, and I was disappointed to find my suspicions disproved - until I remembered that back then, they used the Julian calendar. Accounting for the change in calendar, that date had indeed been a full moon.
+Three extremely vivid dreams all took place in the full moon. The translated primary source for the disappearance said this occurred on 20 August 1284, and I checked the moon's phase for that date. It was a half-moon, and I was disappointed to find my suspicions disproved - until I remembered that back then, they used the Julian calendar. Accounting for the change in calendar, that date had indeed been a full moon.
 
 The next full moon was on 28 March, six days away. Over the next few days I wrote all I had learned in detail, being careful to cite all my sources. I searched online for any pictures of the rock I'd found, but it seemed nobody else had taken an interest in it. If you didn't know the history, it's a rather boring rock. I gathered some more equipment, kept an eye on the weather forecast, and waited.
 
@@ -202,7 +208,7 @@ Moonlight filtered through the door just enough for me to make out the cave beyo
 
 It was bones. A human skeleton, about four feet tall, lying on the floor of the cave. I approached another; this one was similar, but smaller, with fragments of rotted fabric that must once have been clothes. There were too many skeletons to count precisely, but I made an estimate - it was more than 130. A lot more.
 
-Adrenaline pumped through my body, and my senses were heightened. I fancied I heard breathing, a slow breathing that wasn't my own, coming from deeper in the cave. Was somebody alive down here? As I walked towards the sound, suddenly two red lights shone from the dark. A low growling came from the eyes, and I heard something heavy shifting its weight.
+Adrenaline pumped through my body, and my senses were heightened. I fancied I heard breathing, a slow breathing that wasn't my own, coming from deeper in the cave. Was somebody alive down here? As I walked towards the sound, suddenly two red lights shone from the dark. A low growling came from below the eyes, and I heard something heavy shifting its weight.
 
 I turned and ran, stumbling twice but not quite falling. I leapt over the memorial stone at the entrance and turned to see what was behind me.
 
@@ -217,7 +223,3 @@ It must be placated. It must be fed.
 I've bought some new clothes, all in green. There's a park near the eastern end of town where a few kids like to play late in the evening. And as I wait for the next full moon, thinking back to the number of skeletons in that cave, I find myself asking:
 
 How many people, over the last seven hundred years, have taken on this task?
-
-[A sketch of the Piper from the notebook](https://www.dropbox.com/s/0fyxkfervqwxwq6/)
-
-[Hamelin as imagined in 1284](https://www.dropbox.com/s/6dcc510me7d2gro/)
