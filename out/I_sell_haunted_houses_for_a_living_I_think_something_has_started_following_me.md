@@ -204,4 +204,4 @@ But what solidified it into solid fear was the voice which rose from the empty p
 
 The voice that had terrified me last night and had made my blood curdle. 
 
-“*He thinks you’re so pretty and he like to add you to his collection.*”
+“*He thinks you’re so pretty and he would like to add you to his collection.*”
