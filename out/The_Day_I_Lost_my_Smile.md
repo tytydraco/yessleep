@@ -161,7 +161,3 @@ I'm chatting with one of my co-workers on WhatsApp about a birthday party gig he
 &#x200B;
 
 I knew the place at a glance.
-
-&#x200B;
-
-(EDIT: I created this account fresh this morning to try and get someone to believe my side of the story. My co-workers are on Reddit a bunch and let me know about needing 10 karma to reply to comments. If you comment and I don't say anything I'm not ignoring you, just building my karma up at the moment)

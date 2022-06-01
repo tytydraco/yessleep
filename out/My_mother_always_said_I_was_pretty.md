@@ -8,7 +8,7 @@ She owned a big house that she lived in by herself. After my dad left her to sta
 
 * * *
 
-She invited me over and I couldn’t refuse again. It isn’t that I didn’t want to see my own mother, it was just that her presence was.. off. She didn’t seem like a mother, she almost seemed like a college friend that drank too much. 
+She invited me over and I couldn’t refuse again. It isn’t that I didn’t want to see my own mother, it was just that her presence was… off. She didn’t seem like a mother, she almost seemed like a college friend that drank too much. 
 
 Her house was beautiful and secluded without another house for miles. When I asked her why she lived so far from civilization, she joked that it was so that no one would be able to hear my screaming. 
 
