@@ -1,5 +1,3 @@
- 
-
 It didn’t make sense, the way he was standing there. Just on the other side of the automatic doors, like some kind of cardboard cutout. Standing there waiting, that fuckin’ smile, toothy and wide and unexplainably unrealistic. Eyes an extreme contrast of black and white, looking at me through the glass–
 
 “Uh, helloooo?” The guy at the register snapped, startling me.
@@ -30,11 +28,11 @@ I leaned over the counter, watching the tall gentleman leave. The automatic door
 
 I looked away, pretending he wasn’t there. I scanned the aisles, looking for someone else, someone who could assure me I wasn’t crazy. I could see two, and I found comfort in the fact I wasn’t alone. In the liquor aisle, a bearded man with a ponytail and sunglasses was browsing the whiskey. Two aisles down was my manager, Katherine, who was straightening things up before she left for the night. I tried to motion for her to come over, but she wasn’t paying attention.
 
-Outside, the cartoon man watched, unmoving. 
+Outside, the cartoon man watched, unmoving.
 
 I looked at the monitor on the counter that displayed the live camera feeds. One view pointed at me, standing behind the counter. Another was at the pharmacy, which was currently closed. The view showed the counter and the dark delivery window. The third view was the liquor aisle, where the bearded man had made his selection. Lastly was the front entrance, where the cartoon man stood. Although on the screen, his toothy face was turned toward the camera.
 
-I looked outside to see he hadn’t moved at all, he was somehow watching both at once. 
+I looked outside to see he hadn’t moved at all, he was somehow watching both at once.
 
 “What’s the word,” Said the bearded man, putting a bottle of Woodford Reserve on the counter. He ran a hand over his ponytail and pointed at my nametag, “Cool name, like the Disney movie. With the lions.”
 
@@ -54,7 +52,7 @@ The cartoon man hadn’t moved, his blown-up eyes still glued to me.
 
 I rubbed my eyes, a desperate attempt to make him disappear. But the strange cartoon man remained, still watching me through the glass.
 
-“I’m fine. Must be my imagination, I guess.” I sighed. 
+“I’m fine. Must be my imagination, I guess.” I sighed.
 
 The man paid for his booze and left, approaching the cartoon stalker as he left. I watched him go, and he made a point to look around outside before shrugging and leaving.
 
@@ -98,14 +96,18 @@ By the time a mustached man came in to buy Guinness, I had stopped asking people
 
 The cartoon man was gone.
 
-A moment later, I heard a crash from the back of the store. 
+A moment later, I heard a crash from the back of the store.
 
-I checked the monitor, to see the delivery window busted, the distorted cartoon man rapidly moving out of frame. I could hear his footsteps, running down the aisles fast and growing louder as they approached. I whipped around to look, just in time to see him duck behind a row out of sight. 
+I checked the monitor, to see the delivery window busted, the distorted cartoon man rapidly moving out of frame. I could hear his footsteps, running down the aisles fast and growing louder as they approached. I whipped around to look, just in time to see him duck behind a row out of sight.
 
 He had gotten inside. I could hear him back there, pacing back and forth.
 
-The automatic doors opened, and a couple walked in holding hands. 
+The automatic doors opened, and a couple walked in holding hands.
 
-The footsteps stopped. 
+The footsteps stopped.
 
 I don’t know what they’re looking for, but I hope it takes them a while to find it.
+
+&#x200B;
+
+[\--AHS](https://www.reddit.com/r/HawaiianShirtFiction/)
