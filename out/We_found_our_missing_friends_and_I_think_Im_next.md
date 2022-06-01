@@ -34,4 +34,4 @@ I can't help but feel like I'm next.
 
 If I can, I will post an update tomorrow at some point.
 
-[Update (#1)](https://www.reddit.com/r/nosleep/comments/v24fcq/we_found_our_missing_friends_and_i_think_im_next/)
+[Update (#1)](https://www.reddit.com/r/nosleep/comments/v25pgb/we_found_our_missing_friends_and_i_think_im_next/)

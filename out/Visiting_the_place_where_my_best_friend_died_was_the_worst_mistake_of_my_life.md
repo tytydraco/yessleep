@@ -26,13 +26,13 @@ For a minute or two things were peaceful. I possessed a sense of restorative cal
 
 A black GMC Sierra truck rolled off the highway and hit an orange tree.
 
-They all fell on the vehicle’s roof as the driver tumbled out of the driver’s side. He had a bloodied face. He spit out teeth as he collapsed.
+They all fell on the vehicle’s roof as the driver tumbled out. He had a bloodied face. He spit out teeth as he collapsed.
 
 His face squashed one of the oranges upon impact before he passed out.
 
-I neared the accident. An empty bottle of Maker’s Mark had tumbled out with him.
+I neared the accident. An empty bottle of Maker’s Mark had rolled out with him.
 
-I grabbed my phone to notify the police or paramedics when a woman shouted behind me. I turned around and saw a young couple who had gotten out of their vehicle.
+I grabbed my phone to notify the police or paramedics when a woman shouted behind me. I turned around and saw a couple who had gotten out of their vehicle.
 
 “You slept with Rebecca?” the lady said as she raised something in her hand. Moonlight made the sterling silver glint. It was a pistol.
 
@@ -43,8 +43,6 @@ Before he could finish his sentence she squeezed the trigger. He fell with a lou
 I ran. A second shot rang out behind me as I fled past a couple of native sweetbay magnolia’s. The scent of swampland greeted me the further out I went. The resonance of further rounds released continued to echo while I escaped.
 
 I attempted to jump over a marshy patch and landed on a stick. It rolled beneath my sneaker and caused me to fall flat on my back. I banged my head and saw stars for a few seconds.
-
-I tried to remind myself how I had gotten quite a distance away.
 
 I reached into my pocket to call for someone. I found out I must have dropped my device in the middle of the sprint.
 
@@ -78,7 +76,7 @@ I did further research on the mansion near the lover’s lane. I used a mixture 
 
 The family who owned the place had brought the witch from her home in southwestern Europe. She served them as a medical healer. She started out as a friend of theirs. The man of the house had malicious and depraved intentions for her. She tried to get away from them in the night. At that point it was too late. She could not go back to her homeland since he kept her imprisoned in the subterranean part of the property. He forced her to cast incantations to maintain his wealth and vanquish any competition. Her curse on the orange trees were her form of everlasting revenge. Although what the documents reveal is tentative at best, I knew it to be true.
 
-Especially since I have seen the results of those oranges falling. The hex is not fiction.
+Especially since I have seen the results of those oranges falling. The hex is not fictional.
 
 I have read that real estate development will soon destroy the grove. What will happen to those construction workers worries me.
 
