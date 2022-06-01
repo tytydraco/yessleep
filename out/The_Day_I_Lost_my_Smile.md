@@ -72,7 +72,7 @@ They were all stuffed. Taxidermized.
 
 &#x200B;
 
-Where the animals in the living room showed an expert's touch, even I could admit that, the same could not be said of the children. Bits of stuffing fell from the bodies of some while others looked like they'd been torn apart and sewn back together by some alien species with little idea of anatomy or biology. Some seemed intact, their skin stitched shut with thick black thread, but even their skin hung off of them in flaps.
+Where the animals in the living room showed an expert's touch, even I could admit that, the same could not be said of the children. Bits of stuffing fell from the bodies of some while others looked like they'd been torn apart and sewn back together by some alien species with little idea of anatomy or biology. Some seemed intact, their skin stitched shut with thick black thread, but even their skin hung loose in flaps.
 
 Some futile attempt had clearly been made to preserve them, but in spite of it each body existed in a state of decomposition more gruesome and advanced than the last. Their faces were sunken into skulls, flesh had rotted away leaving bone visible beneath. Eyes lay open wide, mouths agape with teeth glistening white against decaying gums, lips stretched into permanent and sickening smiles. Their clothes were decayed, moth-eaten and ragged, stained yellowish-grey with mould. The windows of the conservatory space were all wide open and yet the cloying stench of death and decay lingered in the air like a thick fog, forcing me to hold my breath lest I choke.
 
@@ -161,3 +161,7 @@ I'm chatting with one of my co-workers on WhatsApp about a birthday party gig he
 &#x200B;
 
 I knew the place at a glance.
+
+&#x200B;
+
+(EDIT: I created this account fresh this morning to try and get someone to believe my side of the story. My co-workers are on Reddit a bunch and let me know about needing 10 karma to reply to comments. If you comment and I don't say anything I'm not ignoring you, just building my karma up at the moment)
