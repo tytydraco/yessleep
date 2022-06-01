@@ -8,7 +8,7 @@ Inside the mailbox was the usual assortment of spam and advertisements. Great. M
 
 Grabbing a pocket knife out of my jacket, I carefully peeled the seal off the envelope. Seemed like a shame to break it. Inside was a standard A4 paper folded twice to fit in the envelope. The contents of the paper appeared to be a shoddy advertisement for a housing development project called Shelby's Retreat. Another one of those all-too-common garden home suburban projects. The ad had an amateurish picture of a happy family in front of home. It honestly looked like it had been clipped out of a magazine. The letter read, in sloppy, weak handwriting, "We welcome you to Shelby's Retreat! We offer brand new, affordable, quality homes that are perfect for first time buyers or those looking to make their pension go further! Act quickly, houses are selling fast and you won't want to miss this opportunity!"
 
-Below this was a date and time written for an open house: today at 1pm. 1366 Waverly Drive was the address for the showing. I did not see an agent to contact about this viewing, but at the bottom of the page "Shelby Real Estate Co." was watermarked. The whole note had me intrigued. Why go through the trouble of adding a wax seal and making the letter look fancy when the contents were so.....unprofessional?  Perhaps I was overthinking it. Anyone can buy wax and get a little stamp these days. The note was amateur quality through-and-through then. Though the unconventional nature of it did make me want to open it. So perhaps it was very effective marketing after-all? I chuckled a little thinking of some poor intern at Shelby Real Estate's offices having to play 4D chess with this advertising campaign.
+Below this was a date and time written for an open house: today at 1pm. 1366 Waverly Drive was the address for the showing. I did not see an agent to contact about this viewing, but at the bottom of the page "Shelby Real Estate Co." was watermarked. The whole note had me intrigued. Why go through the trouble of adding a wax seal and making the letter look fancy when the contents were so.....unprofessional? Perhaps I was overthinking it. Anyone can buy wax and get a little stamp these days. The note was amateur quality through-and-through then. Though the unconventional nature of it did make me want to open it. So perhaps it was very effective marketing after-all? I chuckled a little thinking of some poor intern at Shelby Real Estate's offices having to play 4D chess with this advertising campaign.
 
 I discarded the note and envelope with the rest of the trash and proceeded to have a completely uneventful commute to my station. Once at my desk, I began looking through the reports for the day. Several immediately caught my eye. People had been reporting receiving "creepy, unwanted mail" in their mailbox. One report included a picture and, as I had begun to suspect, the envelope they received had the same black wax seal on it. The contents of their letter was different from mine. Seemed like the letter was trying to invite them to a birthday party. It had the same crappy graphics that were clearly pasted from a magazine. There was also a date and time, which was illegible, but I was able to barely make out the address: 1366 Waverly Street. Other detectives in the force probably wrote these reports off as some prank by kids, but my gut told me that there was something more...sinister to this.
 
@@ -32,8 +32,6 @@ The inside of the house looked...impossible. It was much larger than the outside
 
 I did not go back. I could not go back. There was something compelling me to look at the altar on the stair landing. Step by step, I walked up until the altar's contents came into view. It was another letter with an identical envelope to the one I and so many others had received. I did not take time to carefully open this one. I hastily ripped its contents out. Unfolding the paper, I saw a message in rather fancy cursive writing:
 
-&#x200B;
-
 *In this house full of dread*
 
 *Not many are willing to tread*
@@ -42,15 +40,9 @@ I did not go back. I could not go back. There was something compelling me to loo
 
 *Giving me my daily bread*
 
-&#x200B;
-
 "All this for some high school poetry!?" I shrieked out in anger. My voice bounced off the far walls and ceiling of the foyer. I threw the paper on the ground in frustration and stood there breathing heavily. Once the echoes of my anger had subsided, the only sound to be heard was the whispering of the wind and the plip-plopping of rain outside. The rain seemed to get louder. And louder. And louder still. Until it was no longer rain. It was the sound of heavy boot steps coming from the stairs beside me. I could not make out much in the darkness, but each step was getting louder and louder. Like a body being slammed to ground with each step of some unseen being's gait. I pulled out my gun and pointed it into the darkness.
 
-&#x200B;
-
 "I'm Officer Rogers, a member of the Shelby Police. Lay down on the ground and identify yourself!"
-
-&#x200B;
 
 There was no noticeable change in the rhythm of footsteps. They continued until suddenly I saw it. Two feet wearing a familiar set of shoes entered the dim candlelight of the staircase. As they slowly shuffled down the stair case, their torso was revealed and, in two more steps, I saw its grotesque face. Only, it was my face. And my body. Except my eyes were not my eyes. They had been replaced by two of the black, waxy seals as seen on the envelopes. They were halfway melting, with the resulting black drip giving the beast a weepy appearance. It raised its hand and from its index finger grew a long, curved blade. It was probably half a meter in length. Its steel glowing a pale orange from the candlelight and casting a long, serpent-like shadow on the wall.
 
@@ -66,7 +58,7 @@ I fished the car keys out of my pocket. I was about to stick them in the ignitio
 
 I looked to my badge. It has always been my saviour. My soothing ritual. "Albert Rogers Officer" I repeat over and over, but the heaviness I feel in my chest is no longer bearable. My only hope is the house. It just \*has\* to be. I quickly discard the badge and explode out the car and towards the house. Ripping the doors open and slamming them shut behind me. My chest eases. I can breathe again. I look out the window. There is no sign of my earlier assailants.
 
-Taking a few moments to breath and let it all sink in, I realize that there is nothing more for me to do than read that expecting letter. Thump, thump, thump. I drag my feet up the stairs, mimicking the menacing mimic who had assaulted me minutes earlier. I put a heavy hand on the altar and, with the other, picked up the envelope. This time I opened it with diligent care. Inside I found a set of rules and directives:
+Taking a few moments to breath and let it all sink in, I realized that there is nothing more for me to do than read that expecting letter. Thump, thump, thump. I drag my feet up the stairs, mimicking the menacing mimic who had assaulted me minutes earlier. I put a heavy hand on the altar and, with the other, picked up the envelope. This time I opened it with diligent care. Inside I found a set of rules and directives:
 
 *Come to me, sweet lamb*
 
@@ -78,10 +70,12 @@ Taking a few moments to breath and let it all sink in, I realize that there is n
 
 *Bring me another to the dreary home of 1368*
 
-So, here I am a week later. I am but a shadow of my former self. Every night at midnight my red-eyed doppelgänger  takes another piece of me. I grow older. My body and heart grow more frail. I've tried hiding, but it always finds me. I've tried going outside, but I am only strong enough to get to the mailbox before the hallucinations begin and I start wheezing. I wish I took that rope from 1364. It would have given me great assistance in getting to and from the mailbox.
+It's been three days since I've read that directive. In that short time, I have become a shadow of my former self. Every night at midnight my red-eyed doppelgänger takes another piece of me. My body grows more frail with each feeding and my skin is starting to dry and flake off. I've tried hiding, but it always finds me eventually. In desperation I asked it what would happen if I chose to rot away, and it simply responded that it knows how to ration and that my suffering would last a very, very long time.
 
-But I believe I have figured out how this curse operates. In order to free myself, I just need to invite another to the neighbouring house. Have this evil spirit, beast, or whatever take them instead of me. That's how the being gets fresh food. I once asked what would happen if I simply choose to rot away, and the being responded that they know how to ration. I could live my whole lifetime in this agony. I have tried to end myself, but every time I try to do so, I get these strong feelings of hope. Praying that one day a stray car will pass by and maybe, just maybe, someone will wander into the house at 1368 and pick up that letter.
+I've tried going outside, but I am only strong enough to get to the mailbox before the hallucinations begin and I start wheezing. I have a strong feeling that if someone were to drive by and rescue me, the wheezing would not stop. I do not know what would happen if I were to invite a guest to stay with me, but I shudder at the thought of my shadow feasting on them as well.
 
-I have now resigned myself to send letters, much like the one I am writing now, to curious individuals. I'm not like the host of 1364. I do not want to trick you. I am writing my full account so that you know what you are in for. So come on all you paranormal investigators, puzzle solvers, and wannabe Witchers...
+Outside of the feedings and my fruitless escape attempts on foot, I've been spending the last three days thinking about that directive. It is clear that my tormentor needs fresh meat, and inviting one person to the neighboring house will release its hold on me. That's why the host of 1364 sent so many letters. His desperate attempts at freedom, exchanging his life for mine. But there are two big differences between me and 1364: I've got morals. And a phone.
+
+You see, despite all of the feedings, the anguish, the despair, I've managed to hold on to my sense of justice. There's no way I could reach out to someone knowing full well the trap that lies in their wait. This has led me to where I am now: writing a full report of my experience and scattering it to the internet with not but a scant few hours left on my phone's battery. If there's anyone in the world crazy enough to visit 1368, I'll find them online. So, come on all you paranormal investigators, puzzle solvers, and wannabe Witchers...
 
 Won't you be my neighbour?
