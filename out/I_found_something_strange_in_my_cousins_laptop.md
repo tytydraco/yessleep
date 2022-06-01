@@ -46,7 +46,7 @@ When I finally wrote down few sentences in the word document, I clicked Save (cu
 
 This kinda made me feel sad.
 
-Eric is only 16 and he has to write a Eulogy for his entire family. It kinda made me feel sad.
+Eric is only 16 and he has to write a Eulogy for his entire family.
 
 Anyways I started reading,
 
