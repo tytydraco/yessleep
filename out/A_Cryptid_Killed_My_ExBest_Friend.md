@@ -1263,3 +1263,11 @@ Jake mentioned it was the footage of his camera inside the pet store during that
 &#x200B;
 
 Jake couldn’t, but it has to die for what it did. I’m not sure where to start though with that. I’m open to suggestions and I could definitely use some. However, I’ll be doing some research in the meantime. I’m terrified beyond belief of this thing, but it needs to pay for what it did. Hopefully, I’ll be able to [put](https://www.reddit.com/r/StoriesFromRose/) it [down.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/v2zbxt/a\_cryptid\_killed\_my\_exbest\_friend\_part\_2/](https://www.reddit.com/r/nosleep/comments/v2zbxt/a_cryptid_killed_my_exbest_friend_part_2/) It's claimed far more than I thought.)
+
+&#x200B;
