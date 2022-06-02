@@ -1,0 +1,19 @@
+When I was a kid, I grew up in the rural areas of North Dakota, I lived in a big family and we had this odd game called the "No talking" game, It was honestly a simple game with two rules.
+
+Rule 1: The game starts when the Eldest member of the house (Which in this case is father) announces (To everyone), "Everybody quiet you gullets and start this task", the game lasts until the end of the month and only the Eldest is allowed to talk.
+
+Rule 2: When the game has started there is no Talking, Writing, signing or any other form of communication allowed until the end of the month.
+
+Now of course there was three clauses to these rules and they're the following, the "Lifeline clause", this clause states that if your words can save someone's life in one sentence, you can use them. the next clause is called the "Speak up clause", this states that your allowed to use your words if your telling on someone for speaking and nothing more. finally there was the "Sabotage clause", this states that if you were caught doing direct sabotage to someone you get "Double penalty".
+
+How this game was won is a little complicated, every time you spoke you got a "Penalty", if you did some incoherent babbling you got a "Quarter penalty", whoever got the most "Penalties" at the end of the month had to sit in the "Quiet room" an hour for every "Penalty" they got, all I know about this room is that it changes people, I never lost a game.
+
+I played my first game when I was 8 years old, that's how old you have to be to play, I had three other siblings, my older brother Martin who was 10, my older sister Bree who was 12 and my eldest sister Jane, who was 17, before we started the game me and Martin made our own special clause between us and we called it "Don't squeal", this unofficial clause stated that if we were away from everybody else we could talk, but we'd have to start our sentences with "Don't squeal", if you messed up you had to choose between Three punches on the arm or they'd tell.
+
+The moment the game started Jane immediately though of something, she went on the piano and started playing the instrumental to "Don't stop, believing", Bree hummed the first note when she realized her mistake, Father looked at her and said softly "That's a quarter penalty sweetie and no, that wasn't sabotage, that was your own damn fault", I never heard Father talk like that but I thought it was kind of funny, afterward not much happened that day.
+
+The next week me and Martin were walking in the forest and were throwing Pinecones at each other, of course we were following the "Don't squeal" clause until I threw a stick a Martin's foot on accident, Martin yelled "Aw fart" and then covered his mouth really fast, I quickly replied with "Don't squeal, lets make a deal", Martin said "Don't squeal, three punches", I of course punch Martin as hard as I could in the arm three times and we went home.
+
+On the second week me and Martin were wondering how to trick Jane into getting more "Penalties", she already had one because Father caught her talking to the dog, we knew about the "Sabotage clause" so Scaring, hurting, blackmail and offers wouldn't slide, we knew she thinks out loud though, if we can get her to think out loud, we'd win, so what we'd do in let her pick up a bowl from the counter, then we'd replace it with an identical one, we did this about 4 times until she muttered "What the hell",  it was Bree that hear her say that, she promptly used Clause 2 and now Jane had two "Penalties".
+
+At the end of the month Jane was sentenced to two hours to the "Quiet room", after two hours passed she didn't speak, in fact she didn't speak for another two years, every time I ask here what happened in there she either ignores me and doesn't say anything or tells me to "Lose and find out for yourself", all I can say is that was enough motivation for me to never lose.
