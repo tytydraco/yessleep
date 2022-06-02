@@ -38,7 +38,7 @@ I was in my toolshed when Ricky called, near 1 a.m., so my wife and kids were as
 
 —
 
-You wouldn’t guess how hard it is on the spirit, how deep the fear, to know that if you make one small mistake in you life, one small offense, everything you love can be taken from you.
+You wouldn’t guess how hard it is on the spirit, how deep the fear, to know that if you make one small mistake in your life, one small offense, everything you love can be taken from you.
 
 On that night Ricky called me about the roadkill he'd hit, I’d been up late building furniture in my shed. I'd been doing that awhile now to bring in some extra cash. Ricky and I had once been partners, before doing some time together at Livesay Correctional Institution about five years earlier for some bad things I’d rather not discuss. But the result was that even when folks were begging people to come back to work, they never wanted a felon like me.
 
@@ -92,7 +92,7 @@ I dragged it out by the legs but had to stop a few times to catch my breath. Bef
 
 The night was quiet, breathing around me.
 
-I felt as if I were being watched by a thousand eyes. 
+I felt as if I were being watched by a thousand eyes.
 
 I told myself I was just feeding my family. Doing what I had to do. Risking it for them.
 

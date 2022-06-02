@@ -1,4 +1,4 @@
-If you're planning to go on a vacation soon, please read this story. We made a mistake of trying to be adventurous and it cost more than we thought it ever would. My name is Liam, I'm 18 years old. I worked part time jobs ever since I got into highschool to be able to afford a vacation before going to college. 
+If you're planning to go on a vacation soon, please read this story. We made a mistake of trying to be adventurous and it cost more than we thought it ever would. My name is Liam, I'm 18 years old. I worked part time jobs ever since I got into high school to be able to afford a vacation before going to college. 
 
 The reason I wanted to do this was because, once I left for college, I'd be either stuck in my room studying, or going to low budget college parties, neither of which sounded great. Three of my best friends from high school also had the same idea. 
 
@@ -28,7 +28,7 @@ Seth was against the idea at first, saying how we should respect the dead and no
 
 We rented a car, bought some booze, fire starting kit and a survival knife in case anything attacked us. As the evening came we started making our way to the forest. The drive took about 40 minutes so it wasn't too bad, we had a lot to talk about. 
 
-We got there as is started getting dark and we quickly made a fire and set up our tents in which we were going to sleep. 
+We got there as it started getting dark and we quickly made a fire and set up our tents in which we were going to sleep. 
 
 Next couple of hours we spent talking and drinking and generally having fun. We shared scary stories we came upon in our life and soon the time came for us to go to bed. 
 
