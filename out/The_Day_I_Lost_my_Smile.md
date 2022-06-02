@@ -48,7 +48,7 @@ With the woman gone I found myself alone in the living room, flanked by a tablea
 
 Again my mind wandered back to Beth. If she were there she would have been cracking joke after joke, booping all the mounted heads and telling them to behave themselves. She was effortlessly funny like that.
 
-Trying to distract myself I took my phone out, quickly tapping out my passcode. After a quick check of Twitter (nothing) and Instagram (nothing interesting), I put it away and glanced back up. For a split second I could have sworn I saw the woman's head peeking out from the doorway but when I blinked she was gone. Maybe I was just on edge and imagining things. I must have been, because a moment later she called me, her voice distant. Straightening my skirt as I stood up, I left the room.
+Trying to distract myself I took my phone out, quickly tapping out my passcode. After a quick check of Twitter (nothing) and Instagram (nothing interesting), I put it away and glanced back up. For a split second I could have sworn I saw the woman's head peeking out from the doorway but when I blinked she was gone. Maybe I was just on edge and imagining things. I must have been, because a moment later she called me, her voice distant. Fidgeting with my dress as I stood up, I left the room.
 
 &#x200B;
 
