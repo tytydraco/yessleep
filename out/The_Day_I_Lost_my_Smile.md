@@ -161,3 +161,7 @@ I'm chatting with one of my co-workers on WhatsApp about a birthday party gig he
 &#x200B;
 
 I knew the place at a glance.
+
+&#x200B;
+
+EDIT: So... I reported this to the police. I don't know why I didn't before, thanks u/Mariahissleepy. Guess I needed the knowledge that this madness didn't end with me to get my ass in gear and do it. Co-worker's still unconvinced that going to that house would be the worst mistake of his life. Ugh.
