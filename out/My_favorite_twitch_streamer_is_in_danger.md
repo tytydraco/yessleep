@@ -1,3 +1,12 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/v2v7ia/my_favorite_twitch_streamer_is_in_danger_part_2)
+
+
+
+
+
+
+
+
 I always have everything planned out. Even if she finds me in her closet, I have a tranquilizer that'll knock her out for enough time to put everything back in order, make her think she fell asleep in her chair, and forget what happened.
 
 

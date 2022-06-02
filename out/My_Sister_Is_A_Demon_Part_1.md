@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/v2viwc/my_sister_is_a_demon_part_2/)
+
+&#x200B;
+
 My sister is an actual fucking demon. These are the series of events that have occurred that have led me to believe so.
 
 &#x200B;
