@@ -167,3 +167,5 @@ Those old bells tolled midnight once again.
 My phone lit up from the other side of the room.
 
 Brian was calling me.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/v43pfu/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
