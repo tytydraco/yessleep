@@ -188,7 +188,7 @@ I looked straight ahead out the windshield.
 
 My grip on the handgun tightened.
 
-“Well, shoot," the deputy said a moment later, reappearing at the window. “I see you've got something in your truck under that tarp, huh?"
+“Well, shoot," the deputy said a moment later, reappearing at the window. “I see you've got something in your truck bed under that tarp, huh?"
 
 I closed my eyes, breathing in the smell of the woods that had surrounded me.
 
@@ -230,7 +230,7 @@ My own father was a good man. As a child, I learned from him how to dress and bu
 
 I remembered this as I dressed the roadkill in my toolshed that night, after arriving back home from the wooded roads.
 
-My father stopped talking to me when I was 16 years old. By the time I’d been incarcerated for the first time, he was dead of a heart attack. He would not have approved of me using the skills he’d shown me the way I was using them tonight, on this mangled cadaver from the side of the road.
+My father stopped talking to me when I was 16 years old. By the time I’d been incarcerated for the first time, he was dead of a heart attack. He would not have approved of me using the skills he’d shown me the way I was using them tonight, on this mangled roadkill dragged out of the woods.
 
 But I was never a good hunter.
 

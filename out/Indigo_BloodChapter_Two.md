@@ -1,5 +1,8 @@
 [Previous Chapter](https://www.reddit.com/r/nosleep/comments/ttuzqi/indigo_bloodchapter_one/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
+[Next Chapter](https://www.reddit.com/r/nosleep/comments/v3omoz/indigo_bloodchapter_three/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+
 The trip to my new home--well, “old”, technically--was uneventful, thankfully. I arrived at the old home of my grandfather for the first time since before his coma. Before I drove there, his lawyer, a man by the name of Carlos Ramirez, gave me two envelopes left by my grandfather, not to be opened until I came of age. He said that one held a set of keys to the estate, the other contained information on my inheritance. Something was a bit strange about Mr. Ramirez, though. I didn't “hear” any thoughts escaping his mind, not even when I broke my rule and tried to subtly reach him. In fact, it felt like I was being barred from his mind. He didn’t make any outward reaction, but on the way out, I did hear a voice in my mind say, *Read the letter before you open the chest in the attic.*
 
 I didn't reply, mostly because I was surprised by hearing someone talk directly into my mind since the attack by the lady in the green dress (my grandmother). It wasn’t nearly as invasive, though; as cryptic as his instructions were, it just felt like the words had entered my mind as easily as mail through a door’s mail slot. 
