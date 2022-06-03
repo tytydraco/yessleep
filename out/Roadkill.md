@@ -12,7 +12,7 @@ I asked Ricky how long he figured the roadkill had been there.
 
 “Because I’m coming back from the Dice and figured I’d not test my luck by adding another crime on top of that,” Ricky said.
 
-“The Dice” was The Dice Roll, the pub across town by the river, which meant Ricky was out on a drunk again, driving the backroads. A big cadaver in his truck bed might draw some unwanted attention, especially with the Department of Transformation's laws against harvesting roadkill. Shot or run over, it made no difference. This time of year, no matter what kind of cadaver you had in your truck bed, it would land you on the wrong side of the law.
+“The Dice” was The Dice Roll, the pub across town by the river, which meant Ricky was out on a drunk again, driving the backroads. A big cadaver in his truck bed might draw some unwanted attention, especially with the Department of Transportation's laws against harvesting roadkill. Shot or run over, it made no difference. This time of year, no matter what kind of cadaver you had in your truck bed, it would land you on the wrong side of the law.
 
 “Rest of my truck is banged all to hell anyway, this sucker was so big,” Ricky said. “Cracked my whole damn windshield.”
 
