@@ -1,0 +1,46 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/ukjaxd/the_creature_of_bo%C3%B6tes_void/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/usn3ps/a_dark_cloud_in_space_part_2/)
+
+The next time I worked up the courage to venture out on my private spaceship it was to Europa, the sixth closest to Jupiter of all its 80 moons. Its surface is made of silicate rock and water ice
+crust. It's a little smaller than earth's moon and, due to its smoothness, it's been hypothesized that under its ice lies a liquid water ocean. It's quite a bit closer to us than Saturn, as well; rather
+than four hours, my spaceship's gravity drive takes two-and-a-half to get there.
+
+My ship's computer has the ability to compute orbital velocity for you, and in autopilot I came to orbit Europa. I shut off the gravity drive and got up from my seat, pulling up a trapdoor to reveal a glass floor allowing you to see the surface of the planet or moon you're orbiting below.
+
+There are strange, brown patterns and fissures in Europa's crust lines and trenches run randomly through the ice. I was in awe staring down at the beautiful orb, but not two minutes past when I saw movement down on the surface - an exploding pillar of steam launched into Europa's thin oxygen atmosphere. The cloud carried far over the small frigid moon. I was mesmerized watching it go so high in the air that it felt like I could reach out and touch it from the glass floor.
+
+But there was fresh activity emerging as I whizzed by from orbit; new brown lines were appearing on the pale, ice blue surface. They were expanding radially from a single point. What is that? What's going on?
+
+My ship's alarm started blaring, catching me off guard. I got up and ran to the dash to find out what was wrong. Apparently, Europa was closer than it should have been - we were being pulled out of orbit towards the moon's surface. I began the sequence to turn the gravity drive back on, but it usually took several minutes. I could see the moon coming closer and closer to us; those brown lines continued to expand along its surface. I was panicking now, but all I could do was wait.
+
+Flames licked over the windshield as I descended into the atmosphere. Sixty seconds until a collision, the computer told me - 45 seconds; 30 seconds; finally, the gravity drive came online! I pulled upward hard and instantly blacked out.
+
+I awoke what I think was a couple hours later on the surface of Europa; the blood must have rushed from my head when I pulled up too quickly. Looks like I crashed anyway. There was some damage to the hull of the ship, but it should still be operational. The gravity drive had also overheated warned a flashing light on the dash. I had a headache and my whole body was sore but I'd been strapped into my chair with my seat belt in and it looks like it was designed for safety - it wrapped around much of my body and protected me from much of the impact.
+
+What do I do now, I thought to myself, staring at the front windshield onto the thick ice field and gazing up to see Jupiter's awesome visage looming in the sky. It was so immense it really took up most of the windshield from my view - a filter of pale blue coated it.
+
+As light refracted through Europa's atmosphere, I turned on the electronic systems of the ship and brought up vital diagnostic measurements from the ship's surroundings, It was designed, after all, to land on foreign worlds, although the atmosphere was thin. Eighty percent of it was oxygen; earth's atmosphere was much thicker, but it was only twenty one percent oxygen.
+According to the computer, I should be able to breathe just fine. The temperature was minus ten degrees Celsius and it was quite humid but there was little wind well that'll be cold but not too bad, I thought to myself, having grown up in Ontario.
+
+I popped the ship's hood to let the gravity drive cool down faster and I got it in my head that I could accelerate this cooling process if I went down to Europa's surface and collected some ice. I donned a winter jacket and nervously opened the double doors of the spacecraft. Whoa! This was my first time setting foot on a celestial body with this little gravity - I was able to bound so much higher with each step. In fact, I didn't have a choice; I tried shuffling my feet instead, which allowed me to walk along the moon's surface a little more efficiently.
+
+The ice all around the ship was very thick and compact, luckily; otherwise it would have gone through. Looking behind the ship, I could see a long skid mark in the ice where the ship had slid for quite a while after crash landing, but perhaps near the site of first impact I'd be able to find some ice that had chipped off. The air was a little hard to breathe, but after five minutes I'd gotten used to it.
+
+Suddenly, a deep rumbling appeared from under the ice about 500 meters to my right; a cryogyzer shot into the sky. Cold mist from the explosion broke across my face and I remained still for a moment, frozen in place. The ice over there must be thin or partially broken, I reasoned, as I changed course to make my way over to the site of the cryogeyser. I hadn't even closed half the distance when sure enough the ice became a lot thinner; I could hear the vast ocean just on the other side of it as I bent down to pick up some pieces, folding the pouch of my coat to collect them. Somehow there were waves under it and I could hear them lapping at the bottom of the floor. I stood on looking through. I could see bubbles moving along under the surface and I could hear... what is that? I wondered. The same rumbling from the depths picked up again and the ice all around me cracked deeply. I turned to flee and fell through; the icy water was a shock to the body and for a moment I couldn't remember where I was. I forced my eyes open to look for a route back to the surface and there was a meter of water over my head.
+
+The water was surprisingly clear - maybe the clearest water I'd ever seen - and I took two
+seconds to look around, but as I gazed down, a second wave of disorientation hit. What I saw seemed incomprehensible at first. The water was so clear that I could see all the way through the moon to the ice on the other side. It seemed that the ice on the surface of Europa did not allow light to pass through from the inside, but from the outside the interior was well lit.
+
+Something was wrong with this water. The diameter of this moon was 3100 kilometers and yet these water molecules had aligned perfectly. Even more alarming than the clarity of the water was Europa's core - the core looked like a ball of ice that had formed out of billions of small cube-like structures. I had heard of this type of ice before; it's called i7. It's a solid material that water forms due to pressure rather than to temperature, and within the solid core of Europa I thought I could make out a face - just a faint outline as though a thin sheet had been pulled over a skull. It was so far away, yet it felt so close as I was alone with it.
+
+It and I were the only things in this giant sphere of water. In a panic I turned to swim towards the surface. Just then, there was another bellow and the water rumbled and bubbled around me. I could tell now that it was coming from the core, so close to the ice on the surface that a current formed and pulled me deeper in towards the howling core.
+
+Does that thing have a consciousness, I wondered? As if to answer my question, the cubes of water in the core rearranged, rotated, and the perfect lattice of the interior waters shifted. They became murky and I couldn't see a thing, not even my hands. Whatever that thing in the core of the moon was, it seemed it controlled Europa in its entirety. When my ship fell out of the sky it must have been because the core moved closer; the unexpected change in gravity pulled me in.
+
+I was running out of breath and, in a panic I whirled, thrashing my arms about in a circular motion. Luckily, it was just enough to pull myself out of the current. I found a strength I didn't know I had - heart pounding hard in my head as I swam back out to the surface and hoisted myself up. The bellowing beneath me grew louder and louder, and I could see those brown mineral lines forming in the thick ice as I sprinted to my ship.
+
+The core was coming closer - it seemed it couldn't control what was outside the ice, so all around me the cracking grew deeper and geysers spouted off into the air. I made it to my ship, opened the airlock, and got it closed just in time. The ice beneath crumbled and it was tossed into the ocean. The ship had fallen on its side and, disoriented, I climbed into the hallway outside the airlock. Luckily, the ship was designed for subnautical voyages, as well, and this may have been just what the gravity drive needed to cool off.
+
+I climbed into the pilot's seat, strapped myself in, and flicked on the high beams. The face in the core was visible for a split second before its structure rotated and made the water murky. It seemed it could venture only so far from the center of the moon, as closer to the surface with less pressure it would fall apart.
+
+With the gravity drive fired up, I lifted the ship out of the broken ice, flew into the atmosphere and back to earth, heart still pounding in my head.
