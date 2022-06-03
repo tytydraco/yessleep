@@ -26,7 +26,7 @@ After I finally was free from my liquid burden, I opened the door. I felt someth
 
 There it was, the subtle difference – every single patron was now staring at me, frozen otherwise. Their bodies hadn’t moved at all, but everyone now looked at me, without blinking, some had their necks almost contorted so they could stare at me.
 
-Actually not everyone was staring, one thin teenage girl in a plaid jacket was sitting at the milkshake bar staring forward. It was Geena... I didn’t see her there before when I ran to the bathroom, had she been here the whole time?
+Actually, not everyone was staring at me, one thin teenage girl in a plaid jacket was sitting at the milkshake bar staring forward. It was Geena... I didn’t see her there before when I ran to the bathroom, had she been here the whole time?
 
 I walked up to her, looked over my shoulder and noticed that everyone had silently shifted in the time I had taken my eyes off them, they were staring at me again, in my new location.
 
