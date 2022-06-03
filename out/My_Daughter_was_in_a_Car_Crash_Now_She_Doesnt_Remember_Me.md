@@ -146,7 +146,7 @@ You could hear a pin drop inside that stuffy hospital room. We all felt it.
 
 Daphne’s big blue eyes were chilling. It was like staring into the eyes of a stranger. Or worse, a demon.
 
-Something was wrong. Someone else was lying in plaster, covered in sores and bruises. This couldn't be my little girl. This wasn’t Tara.
+Something was wrong. Someone else was lying in plaster, covered in sores and bruises. This couldn't be my little girl. This wasn’t Daphne.
 
 Finally, my daughter spoke. Her words, like a switchblade knife, spilled my guts and entrails across the floor. A part of me died right then and there.
 
