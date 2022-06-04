@@ -18,7 +18,7 @@ Public information does not include: Make/Model of vehicle with description and 
  
 If you are interested to upgrade your plan, please respond “Upgrade”. I will provide you a phone number to contact in order to proceed. 
 
-If you would like to explore our Live Wire and Tapping services, please respond “LWT”. I will provide you a phone number to contact in order proceed. 
+If you would like to explore our Live Feed and or Wire Tapping services, please respond “LFWT”. I will provide you a phone number to contact in order proceed. 
 
 
 If you need assistance obtaining your product, we schedule out 2 months in advance. 
@@ -43,11 +43,11 @@ RA-Products-LW.tor”
 
 This is what was on the screen when I opened and unlocked my husbands laptop. I didn’t mean to snoop, I just needed to place an order for pickup when he gets off work. He doesn’t like to grocery shop..
 
-He responded, “LWT”. 
+He responded, “LFWT”. 
 
 
 I’m 7 months pregnant, on bed rest per doctors order. 
-Why would he need to “LWT” my stuff? He has an in home security system that goes straight to his phone.. He also manages our cellular plan, and my location is always on. 
+Why would he need to “LFWT” my stuff? He has an in home security system that goes straight to his phone.. He also manages our cellular plan, and my location is always on. 
 
 He must be worried about my safety, he’s always been so considerate. Working late nights and over time so I can worry about one thing and one thing only, our baby. 
 
