@@ -27,7 +27,7 @@ Please respond “Assistance”. I will provide you a phone number to contact in
 
 Do not text any numbers provided. 
 Do not share any numbers provided. 
-Should you decide to change or upgrade you service, refer back to this email. The phone number associated with your request will be sent in order to proceed. 
+Should you decide to change or upgrade your service, refer back to this email. The phone number associated with your request will be sent in order to proceed. 
 
 Prices and payment will be discussed during this call. 
 Please have the information ready to identify your product. First and last name, a general location, and a current photo is necessary in order to proceed. 
@@ -39,7 +39,9 @@ I look forward in doing business with you,
 
 Joe 
 
-RA-Products-LW.tor”
+RA-Products-LW.tor
+
+remainanonymousproducts@darkmail.tor “ 
 
 This is what was on the screen when I opened and unlocked my husbands laptop. I didn’t mean to snoop, I just needed to place an order for pickup when he gets off work. He doesn’t like to grocery shop..
 
