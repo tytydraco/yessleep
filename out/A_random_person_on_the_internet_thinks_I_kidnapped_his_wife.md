@@ -1,4 +1,4 @@
-[Disclaimer, I did not abandon my current series. I just felt like posting an old side project while working on the next part]
+
 
 
 A stranger on the internet thinks I kidnapped his wife. This man, who I'll call Stan to keep him anonymous, is a man who needs serious psychological help. Despite everything that's transpired, I don't wish him any pain. His own self induced misery seems painful enough.
