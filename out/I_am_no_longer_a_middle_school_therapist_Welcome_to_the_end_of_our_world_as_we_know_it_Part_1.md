@@ -1,10 +1,10 @@
-The previous post: [My penultimate day](https://www.reddit.com/r/nosleep/comments/v0hoex/i_got_a_job_as_a_middle_school_therapist_i/)  
+The previous post: [My penultimate day](https://www.reddit.com/r/nosleep/comments/v0hoex/i_got_a_job_as_a_middle_school_therapist_i/)
 
 &#x200B;
 
 3/9/22
 
-I’m sorry it’s been so long since my last post, I haven’t had a chance to write out an account for my last day at Jacksonville Middle. I’m finally across the border now, though, so I think I’m safe for the time being. I’m lucky this motel had internet. 
+I’m sorry it’s been so long since my last post, I haven’t had a chance to write out an account for my last day at Jacksonville Middle. I’m finally across the border now, though, so I think I’m safe for the time being. I’m lucky this motel had internet.
 
 Anyways, we’ll get to that presently. Welcome to my record of Karabasan’s ascension. If you haven’t been following along, I’d recommend [starting at the beginning.](https://www.reddit.com/r/nosleep/comments/spndia/i_got_a_job_as_a_middle_school_therapist_the/)
 
@@ -12,11 +12,11 @@ Anyways, we’ll get to that presently. Welcome to my record of Karabasan’s as
 
 **“Thomas!”** Karabasan exclaimed as I settled into my now familiar chair, floating in the endless void. **“What a lovely surprise! I was beginning to think you’d found a way to evade me after all, and I must say, I would’ve been very impressed.”**
 
-“Yeah, yeah,” I grumbled. This was the tricky part, now, not revealing that we knew. I had hoped the demon had disappeared from my head for good, presumably busy with his plans for world domination, but I had hoped in vain. “I’ve missed you too, buddy.” 
+“Yeah, yeah,” I grumbled. This was the tricky part, now, not revealing that we knew. I had hoped the demon had disappeared from my head for good, presumably busy with his plans for world domination, but I had hoped in vain. “I’ve missed you too, buddy.”
 
 **“Where have you been?”** Karabasan asked, leaning forward, apparently greatly interested in my excursions.
 
-“The catacombs,” I grunted, picking up the steaming cup of tea from the end table and sniffing it. It smelled vaguely chamomile-ish. Fitting, I supposed, for a dream demon. I set it back down. 
+“The catacombs,” I grunted, picking up the steaming cup of tea from the end table and sniffing it. It smelled vaguely chamomile-ish. Fitting, I supposed, for a dream demon. I set it back down.
 
 **“The catacombs!”** Karabasan grinned. **“Find anything… interesting… down there?”**
 
@@ -34,7 +34,7 @@ Karabasan smirked. **“Whoops. Caught me. Yes, you reek of the third realm. How
 
 *The night before his ascension,* I thought. *Makes sense, I suppose.* “Oh, yes, I’m well aware. What is it you come to gloat about, then? Your vague threats of doom and tyranny?”
 
-The smile stretched wider, and for a second, I caught a glimpse of the shifting, shadowy, grinning creature he truly was. **“Oh, no, Thomas. No no no no no, you’ve got it all backwards. I’m not here to gloat about my ascendance, which is tomorrow, by the way. But… you already know that, don’t you?”** 
+The smile stretched wider, and for a second, I caught a glimpse of the shifting, shadowy, grinning creature he truly was. **“Oh, no, Thomas. No no no no no, you’ve got it all backwards. I’m not here to gloat about my ascendance, which is tomorrow, by the way. But… you already know that, don’t you?”**
 
 I gave a start. *What? How?* “Ummm… what?”
 
@@ -46,7 +46,7 @@ I gave a start. *What? How?* “Ummm… what?”
 
 “No…” I said, horrified of the implication. He *had* been reading my memories! “You’ve been reading my thoughts all along, haven’t you? You’ve just been using me! I was just another one of your agents!”
 
-**“Correct, my boy,”** Karabasan took a noisy slurp of tea. **“And a wonderfully effective one, I might add. Though I can only look into your thoughts here. In fact, if it wasn’t for you, I would’ve had no idea of your neat little plan to stop me,”** He chuckled, flinging the cup of tea off the edge of the platform. It fell downwards into the starry void, and I watched it grow smaller and smaller until it was out of sight. **“In fact, it might have even worked, if only you had listened to Wayne when he told you not to use my name. What did you think you were doing, throwing it around like that? Was it an act of defiance, like using Voldemort’s in those beloved Harry Potter books of yours?”** He leaned forward. **“As you ought to remember, saying his name only got them caught in the end, didn’t it?”** 
+**“Correct, my boy,”** Karabasan took a noisy slurp of tea. **“And a wonderfully effective one, I might add. Though I can only look into your thoughts here. In fact, if it wasn’t for you, I would’ve had no idea of your neat little plan to stop me,”** He chuckled, flinging the cup of tea off the edge of the platform. It fell downwards into the starry void, and I watched it grow smaller and smaller until it was out of sight. **“In fact, it might have even worked, if only you had listened to Wayne when he told you not to use my name. What did you think you were doing, throwing it around like that? Was it an act of defiance, like using Voldemort’s in those beloved Harry Potter books of yours?”** He leaned forward. **“As you ought to remember, saying his name only got them caught in the end, didn’t it?”**
 
 My face had grown progressively paler throughout his spiel until it almost matched his. It was over. I’d blown it. Wayne was in terrible danger. We all were. The terrible reality of what I’d done was setting in.
 
@@ -78,13 +78,13 @@ Oh, God. What had I done?
 
 &#x200B;
 
-I didn’t get any more sleep. I couldn’t. I paced my room, my mind racing. What was his plan? Destroy the HVAC unit? That seemed like the most obvious move. But what about Wayne? Might he try to ambush him and destroy the gas? Doubtful, especially since his last failed attempt to take Wayne out of the picture was so fresh in our minds. Perhaps Gadson was already at the school, tearing apart the only device that could save us all, and here I was, sitting uselessly in my room. Finally, I got around and dressed after two hours of worrying and trying in vain to get back in touch with Wayne. He must’ve had his phone on silent. 
+I didn’t get any more sleep. I couldn’t. I paced my room, my mind racing. What was his plan? Destroy the HVAC unit? That seemed like the most obvious move. But what about Wayne? Might he try to ambush him and destroy the gas? Doubtful, especially since his last failed attempt to take Wayne out of the picture was so fresh in our minds. Perhaps Gadson was already at the school, tearing apart the only device that could save us all, and here I was, sitting uselessly in my room. Finally, I got around and dressed after two hours of worrying and trying in vain to get back in touch with Wayne. He must’ve had his phone on silent.
 
-Eventually the sun peeked over the horizon. My clock showed 6:32. I jumped up from my chair, my clothes rumpled. I had started to nod off. I grabbed a notepad and pen and started composing a note to my parents, who were presently sleeping downstairs, unaware that the world was about to irrevocably change. In hastily written scrawl, I briefly explained the situation and asked them to trust me and leave town, to get in their car and drive as far away as possible. I taped it to their door, guzzled some orange juice, grabbed a granola bar, and rushed out the door. It was nearly 7. I might be late.  
+Eventually the sun peeked over the horizon. My clock showed 6:32. I jumped up from my chair, my clothes rumpled. I had started to nod off. I grabbed a notepad and pen and started composing a note to my parents, who were presently sleeping downstairs, unaware that the world was about to irrevocably change. In hastily written scrawl, I briefly explained the situation and asked them to trust me and leave town, to get in their car and drive as far away as possible. I taped it to their door, guzzled some orange juice, grabbed a granola bar, and rushed out the door. It was nearly 7. I might be late.
 
-I tore out of the driveway and then proceeded to engage in some of the most reckless driving I’d done since my teenage years, screeching to a halt in my usual parking spot at a little less than a quarter past. I jumped from the car, running inside, and nearly threw my office door off its hinges in my haste. Sitting on my desk was the snub nosed, sleek black gun that Wayne had used so effectively against Gadson last weekend, along with a small sticky note on how to operate it. I grabbed the gun, scanned the note, and sprinted down the stairs to the HVAC unit. 
+I tore out of the driveway and then proceeded to engage in some of the most reckless driving I’d done since my teenage years, screeching to a halt in my usual parking spot at a little less than a quarter past. I jumped from the car, running inside, and nearly threw my office door off its hinges in my haste. Sitting on my desk was the snub nosed, sleek black gun that Wayne had used so effectively against Gadson last weekend, along with a small sticky note on how to operate it. I grabbed the gun, scanned the note, and sprinted down the stairs to the HVAC unit.
 
-I skidded to a stop outside the maintenance closet, which, thankfully, was undisturbed. Gadson was nowhere in sight, and there weren’t any obvious signs of forced entry on the doors. I found a vent and put my hand to it, breathing a sigh of relief when I felt cool air against my skin, telling me the A/C still worked. Leaning against the basement wall, I fished my phone out of my pocket and sent out a mass email to all the students I had appointments with today, cancelling our meetings, citing ‘organizing my records’ as the reason why. 
+I skidded to a stop outside the maintenance closet, which, thankfully, was undisturbed. Gadson was nowhere in sight, and there weren’t any obvious signs of forced entry on the doors. I found a vent and put my hand to it, breathing a sigh of relief when I felt cool air against my skin, telling me the A/C still worked. Leaning against the basement wall, I fished my phone out of my pocket and sent out a mass email to all the students I had appointments with today, cancelling our meetings, citing ‘organizing my records’ as the reason why.
 
 The clock ticked closer to the start of school. I stood guard over the double doors, clutching my gun in trembling hands, expecting Gadson to pop into view at any second. The bell signifying the start of school rang, and a few minutes later Jacob tromped down the stairs, sword in hand.
 
@@ -118,11 +118,11 @@ Jacob ran a hand through his hair. “Any *other* important bombshells you want 
 
 We stood there, waiting, watching for any sign of our enemy.
 
-The hours passed slowly. Above us, there was the usual shuffling of feet as students changed class periods. 
+The hours passed slowly. Above us, there was the usual shuffling of feet as students changed class periods.
 
 Lunch came and went. We ate our prepacked lunches. I had a sandwich. Jacob had some pasta. Still there was no sign of Gadson. Neither did we receive any word from Wayne.
 
-“Where is he?” Jacob growled. “He said he’d have the cannisters by noon! At the latest!” He glared hard at the clock on the wall, which showed us it was a quarter past 1. “It’s been over an hour! What’s happened to him?” 
+“Where is he?” Jacob growled. “He said he’d have the cannisters by noon! At the latest!” He glared hard at the clock on the wall, which showed us it was a quarter past 1. “It’s been over an hour! What’s happened to him?”
 
 I had a sudden realization that stopped me cold. “What if Karabasan wasn’t using Gadson to go after the HVAC?”
 
@@ -132,7 +132,7 @@ I spoke slowly, my eyes wide as I processed the implications of my worries. “W
 
 “No…” Jacob breathed. “Oh, no… Maybe Wayne did get there in time, but Gadson’s killed him! You have the gun that he used to fight him off in the first place! Wayne’s defenseless!”
 
-My phone rang. It was Wayne. 
+My phone rang. It was Wayne.
 
 “Wayne!” I exclaimed, picking it up in record time. “Where are you? What happened?”
 
@@ -154,13 +154,13 @@ He hung up.
 
 We took the stairs and snuck through the nurses’ office to the back exit. Luckily no one spotted us, and the nurse was in her office on the phone. Blinking in the sunlight after being huddled in the dim basement for half the day, we took up positions by the door and waited. Our view was relatively limited by the school building itself, which stretched out to the left and obscured the main road.
 
-Not fifteen minutes later, the sound of screeching tires reached our ears, followed by the roaring of some inhuman creature and a harsh crackle of electricity. Wayne’s truck skidded into view as he drifted into the parking lot behind the school, half leaning out the window, firing one of his strange lightning guns at an unseen enemy. He gunned the truck, roaring towards us before screeching to a halt. Wayne jumped out, running to the back and throwing the tail gate down. 
+Not fifteen minutes later, the sound of screeching tires reached our ears, followed by the roaring of some inhuman creature and a harsh crackle of electricity. Wayne’s truck skidded into view as he drifted into the parking lot behind the school, half leaning out the window, firing one of his strange lightning guns at an unseen enemy. He gunned the truck, roaring towards us before screeching to a halt. Wayne jumped out, running to the back and throwing the tail gate down.
 
 “Don’t just stand there!” He yelled at us. “Grab a cannister and take it down!”
 
 Gadson rounded the corner. He was utterly monstrous now, more of a hound from hell than a human. He sprinted on all fours, his legs gangly and bristling with dark spines, his hands and feet transformed into spindly claws. His face was gaunt and pale, with jagged teeth protruding from his snarling mouth. Spines erupted from his scalp and down his back, the longest reaching over a foot.
 
-Wayne fired, a beam of lightning arcing across the parking lot and slamming into Gadson, knocking him back. “Go!” He ordered. “I’ll hold him off!” 
+Wayne fired, a beam of lightning arcing across the parking lot and slamming into Gadson, knocking him back. “Go!” He ordered. “I’ll hold him off!”
 
 Startled into movement, me and Jacob rushed forward and grabbed one of the two cannisters. They were fairly heavy, so it took both of us to carry one. We shuffled back inside, through the nurse’s office and down the stairs as fast as we could without falling. Gingerly setting it down outside the closet, we turned to go get the second when Wayne burst through the doors at the end of the hall, the second cannister under his arm. He sprinted down the hall towards. Heavy footfalls behind him told us Gadson was still in pursuit. Wayne skidded to a stop in front of use, heaving the cannister down and fumbling with the keys on his belt.
 
@@ -168,7 +168,7 @@ Startled into movement, me and Jacob rushed forward and grabbed one of the two c
 
 I nodded, hoisting my gun and leveling it at the double doors at the end of the hall. All sounds had ceased, other than Wayne hooking the gas cannister up. I waited.
 
-The set of double doors to the left of us blew off their hinges, and Gadson crashed through, swiping at me with a claw. It caught my arm, knocking the gun from my grasp and sending me flying to the floor. My arm stung; I felt blood seep into my shirt. I groaned, my head ringing from the impact. 
+The set of double doors to the left of us blew off their hinges, and Gadson crashed through, swiping at me with a claw. It caught my arm, knocking the gun from my grasp and sending me flying to the floor. My arm stung; I felt blood seep into my shirt. I groaned, my head ringing from the impact.
 
 Wayne cursed, jumping back to avoid another of Gadson’s wild strikes, which tore through a few hoses attached to the HVAC unit. Jacob stepped in, swinging his sword in a hard downward arc and shearing through Gadson’s outstretched hand. He jumped back, hissing, and was blown back by a bolt of electricity from Wayne’s gun, which he had unstrapped from his back. Gadson shrieked at us, jaw unhinged, before dashing away, blood dripping from the stump of his arm. He smashed through the doors at the end of the hall and disappeared.
 
@@ -188,7 +188,7 @@ Jacob frowned. “2:00, but the entire school will file in at 1:55. And the pare
 
 Wayne grimaced. “We can make it. I’ll be right back.” He disappeared up the stairs.
 
-I took a few steps and retrieved my fallen weapon. When I straightened back up, my head felt woozy. 
+I took a few steps and retrieved my fallen weapon. When I straightened back up, my head felt woozy.
 
 “You sure you’re all right?” Jacob asked. “You’re pretty pale.”
 
@@ -200,11 +200,11 @@ I took a few steps and retrieved my fallen weapon. When I straightened back up, 
 
 “The nurse,” Jacob responded. We emerged on the first floor to dead silence and crossed to the nurse’s office. No one was around.
 
-“No one heard us?” I asked. My head spun. 
+“No one heard us?” I asked. My head spun.
 
 “Everyone’s half dead and half asleep, remember?” Jacob said wryly. He knocked on the office door, and the nurse answered a second later. “Hey, Mrs. Roberts. Uh, could you take a look at Mr. O’Keen?” He gestured to me.
 
-Mrs. Roberts gasped when she saw my arm. “My goodness, what happened to you?” She bustled us in and closed the door behind us, pulling up my sleeve. Four long gashes scored my forearm. “What happened? Was this a wild animal?” She got up and began rummaging through a cabinet. 
+Mrs. Roberts gasped when she saw my arm. “My goodness, what happened to you?” She bustled us in and closed the door behind us, pulling up my sleeve. Four long gashes scored my forearm. “What happened? Was this a wild animal?” She got up and began rummaging through a cabinet.
 
 “Not exactly,” Jacob said. “It was, uh, old business.”
 
@@ -214,13 +214,13 @@ Mrs. Roberts stopped and gave Jacob a hard look. “You didn’t drag the poor t
 
 “Yeah, she knows,” Jacob told me. “I mean, who else could we trust to fix us up when something went awry?”
 
-“I had thought that the death of Mr. Richardson would’ve deterred you,” The nurse said, grabbing a bandage and some antiseptic. She poured the medicine on a sterile cloth and dabbed at my wounds. It stung and smarted. I grimaced from the pain. 
+“I had thought that the death of Mr. Richardson would’ve deterred you,” The nurse said, grabbing a bandage and some antiseptic. She poured the medicine on a sterile cloth and dabbed at my wounds. It stung and smarted. I grimaced from the pain.
 
 “Not as long as the others are in danger,” Jacob sighed.
 
-Mrs. Roberts gave him a disapproving sniff, wrapping my arm tightly with a white bandage. “That should do it,” She stepped back. “Try to avoid using that arm for a few days, alright? And let me know if it gets infected.” 
+Mrs. Roberts gave him a disapproving sniff, wrapping my arm tightly with a white bandage. “That should do it,” She stepped back. “Try to avoid using that arm for a few days, alright? And let me know if it gets infected.”
 
-“Yes, ma’am,” I said. 
+“Yes, ma’am,” I said.
 
 “And that means no dragging him along to any haunted bathrooms or anything,” The nurse glared at Jacob. “I know how you are. He needs to rest.”
 
@@ -242,9 +242,9 @@ After a few seconds, wiping our eyes, we calmed down. “Well,” I said, smilin
 
 “Yeah, and speaking of that…” I began. Since the danger had passed, I figured I should admit to my mistakes now.
 
-“Hey, you said there was smelling salts in that mixture, right?” Jacob asked suddenly. 
+“Hey, you said there was smelling salts in that mixture, right?” Jacob asked suddenly.
 
-“Yes, why?” 
+“Yes, why?”
 
 “Shouldn’t we, you know, have started smelling it by now?”
 
@@ -264,7 +264,7 @@ Cackling laughter sounded from the end of the hall. **“Oh, this is priceless,�
 
 Wayne roared, and harsh lightning shot down the hall, knocking Gadson’s monstrous form back.
 
-“We’ve got to do something!” Jacob turned to me, sword in hand. 
+“We’ve got to do something!” Jacob turned to me, sword in hand.
 
 “Come on,” I said, sprinting for the stairs. “Show me where the auditorium is!”
 
@@ -276,7 +276,7 @@ We ran through the halls of the school, every classroom door open, the seats emp
 
 There was a single kid on stage, an eighth grader, who had the job of narrating the whole thing.
 
-“Welcome, everyone!” He was saying. “Welcome to the seventh annual Jacksonville Middle Talent Show! I’ll be your host, Jeremy—” He broke off, seeing us dash across the stage. “Who’s this? Some more contestants?” 
+“Welcome, everyone!” He was saying. “Welcome to the seventh annual Jacksonville Middle Talent Show! I’ll be your host, Jeremy—” He broke off, seeing us dash across the stage. “Who’s this? Some more contestants?”
 
 I grabbed the kid’s microphone out of his hand, ignoring his cries of protest, and turned to the listless audience. Most of the kids were already in their seats, staring blankly at the stage. Parents lined the walls, and some sat in metal folding chairs in the back. They, too, shared the student’s tired, sagging faces.
 
@@ -288,10 +288,12 @@ There was a sound like a crack of thunder, and reality split, a gaping hole open
 
 “No…” I breathed. We were too late. The demon was here.
 
-A sardonic grin stretched wide in the void, two blazing white eyes blinking open. 
+A sardonic grin stretched wide in the void, two blazing white eyes blinking open.
 
 Then the screams began.
 
 &#x200B;
 
 [X](https://www.reddit.com/r/the_mysterium/comments/suq2cc/chronicles_of_jacksonville_middle_school/)
+
+The next post: [Sanctuary](https://www.reddit.com/r/nosleep/comments/v4mshy/i_am_no_longer_a_middle_school_therapist_welcome/)
