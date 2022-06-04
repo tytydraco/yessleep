@@ -17,7 +17,7 @@ But there’s this guy my manager calls Cherry, and I mean it’s not like he’
 
 7- after some time Cherry will come back out without the box. Don’t ask where the box went or what was in the box.
 
-8- Cherry is aloud to sit on the counter at anytime before or after you give him the e box.
+8- Cherry is aloud to sit on the counter at anytime before or after you give him the box.
 
 And that’s about it of the list other then the overly stained paper and unreadable smudged writing on the back. Please tell me if you guys would like more because I have a lot more to tell, and I will be answering any questions you guys have. Oh and I will be posting a story later if you guys want more!
 [ps please give me feedback, I want to try to make sure it’s readable!]
