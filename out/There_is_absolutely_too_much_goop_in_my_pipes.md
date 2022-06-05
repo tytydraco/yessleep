@@ -1,0 +1,13 @@
+ So I’ve been having a rather disturbing problem lately. But nevermind that. I’ll tell you how I’ve been.
+
+I live alone in an apartment out in a lonely little town. No one comes here to solicit or bother me in any way, I don’t even get junk mail anymore. It’s just me and my games, my books , and my projects. I like it that way. Which is why I’m starting to get so fuming mad all of a sudden!
+
+Someone has been fucking with my shit. I double washed my dishes, as I normally do every afternoon when I noticed this green substance overflowing from my kitchen drain. A foul stench, with bits of orange and off white. Sticky and slimy in my fingers. I didn’t make this. 
+
+I could hear the groaning of my sinks pipes buckling under the pressure of the goop. This was much more than just a sink problem. My ceiling started turning that ghastly goopy color. Tiny drips formed and plopped right onto my god damn shoes. I swear, the goop in the sink formed a ghoulish hand which held me in place while more goop poured onto my khaki shorts. Now that wasn’t that big of a deal, all plumbing has its nasty moments. But what happened next is *really* gonna piss you off.
+
+So I tasted the goop. It was absolutely vile. No goop I have *ever* put in my mouth has ever tasted anything like this before. Horrific. I wretched and gagged and spit it onto my kitchen floor. It tasted like a mix of raw chicken and my half-brothers day old feces. This was *wrong.* This was otherworldly in origin. This was intentional.
+
+I immediately thought. “Who the fuck put this here?”, and I was right to. I don’t understand how anyone else could do something so horrible to someone. I wouldn’t do this to you, dear reader. I’d like to think you wouldn’t do it to me either. So why would someone offload their goop into my sink? I mind my own business. I don’t take from or bother anyone. Who was it? Was it you? It wasn’t me. Maybe it was your family? Maybe it was your children.
+
+So I’m having a bit of a predicament that I need help with. I really don’t want any judgment here, I understand that I’m not really like a lot of other people and thats fine. But this all really happened and I know what I saw, so I don’t wanna hear a peep from any reddit naysayers. I’ve gone to Home Depot (my favorite store) and gotten the fertilizer, nails, wiring, and pipes that I need, but I still don’t know who put the goop there. I have a good reason to believe it was my upstairs neighbors' kids, so thats my working theory right now. Could also be the fault of my landlord. I’m sure i’ll figure out who to deal with first but maybe you have some idea? Any help would be appreciated. I can’t really be having any more goop problems to be honest.
