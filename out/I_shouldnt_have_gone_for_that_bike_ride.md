@@ -4,7 +4,7 @@ It's watching me. Right now.  Outside of the window.
 Even with the blinds shut, I know it's there. It had peeked inside while they were open. When it isn't around I can see it in my head because it's something you can't just forget about. It's too awful. 
 
 
-I live in a nice town called Ferndale, Michigan that has a lot of construction and real estate arising in the community, and the other day I decided to go for a late night bike ride. The dinner I made for me and my dog was wonderful and I had gotten a particularly large amount of laundry done which is rare for me, so I was in sort of a cheerful mood. The kind that makes you play out your impulses, mine just so happened to be riding my bike a little after midnight. 
+I live in a nice town called Ferndale that has a lot of construction and real estate arising in the community, and the other day I decided to go for a late night bike ride. The dinner I made for me and my dog was wonderful and I had gotten a particularly large amount of laundry done which is rare for me, so I was in sort of a cheerful mood. The kind that makes you play out your impulses, mine just so happened to be riding my bike a little after midnight. 
 
 
 I've been really stressed from work lately. My bills are catching up and I'm working overtime to pay for it. The weather is clearing up too and I have wanted to be outside as much as possible lately. I haven't even been able to walk my dog too much because of work. By the weekend, I'm too tired to move, having been basically locked indoors from work and go home to sleep. This past week I took off work one day and was able to take Scythe for his awaited walk. When the sun set, I still had a huge spike of energy and remembered that I still had a joint my co-worker gave me. 

@@ -1,7 +1,7 @@
 The last time I went for a doctor's visit was when my carpal tunnel started acting up. It's acting up right now. But when I went to the appointment I was expecting to walk out of there with a prescription for painkillers and a doctor's note to take the day off from work. Instead, I am now trapped in a hospital, sitting at a computer covered head to toe in blood and filth with barely any hope left.
 
 
-I live in a small town called Westport in Ohio. It's one of those towns where you literally pass it after driving past an exit of the highway. It's that small. You'll probably go to look it up and won't find it either. There's something going on. I should have paid more attention to the broadcasts and news. I should have paid attention that people were fleeing the state and even the country. I didn't know until I looked up the amount of people in the U.S. getting passports and getting the hell out of dodge in 2022. I've been seeing a lot of nondescript vans and vehicles coming and going lately after the fact. 
+I live in a small town called [REDACTED] in Ohio. It's one of those towns where you literally pass it after driving past an exit of the highway. It's that small. You'll probably go to look it up and won't find it either. There's something going on. I should have paid more attention to the broadcasts and news. I should have paid attention that people were fleeing the state and even the country. I didn't know until I looked up the amount of people in the U.S. getting passports and getting the hell out of dodge in 2022. I've been seeing a lot of nondescript vans and vehicles coming and going lately after the fact. 
 
 
 It isn't a stretch to say that I think what is happening to my town and the people here is connected. It may be happening in other places as well. 
@@ -19,13 +19,13 @@ I walked in to see the usual two or three people in seats looking off in space a
 "Yeah. It's pretty bad." I said. 
 
 
-I turned and sat down in the waiting room once I was finished. When one of the patients was called, I remember hearing something strange coming from the hallways outside the room. The building we were in was a small general hospital with about 24 to 30 rooms, give or take. The sounds were audible cries, with something else. They seemed to be coming from a woman, so I figured it had to be another section like the maternal ward or an examination room with procedures being performed and someone was crying out and male doctor maybe calling for help?
+I turned and sat down in the waiting room once I was finished. When one of the patients was called, I remember hearing something strange coming from the hallways outside the room. The building we were in was a small general hospital with about 24 to 30 rooms on each floor, give or take. The sounds were audible cries, with something else. They seemed to be coming from a woman, so I figured it had to be another section like the maternal ward or an examination room with procedures being performed and someone was crying out and male doctor maybe calling for help?
 
 
 Brushing this off, I stared at the chair in front of me and began to experience a sinking feeling in my chest that something wasn't quite right. Usually when I get uncomfortable, it's because there's a sort of "disturbance in the force" that I experience, and I felt it then. Hard.
 
 
-I looked over to Linda and she was on the phone speaking quietly into the receiver. The desk had one of those transparent plastic covers, aside from the fingerprints and markings, that was recently put up due to the Covid-19 outbreak. It was a little funky to see clearly, but we locked eyes for a moment and her expression was grim, with her dark eyes now wide and a look of fear washed over her. She hung up the phone a moment later and looked down at the desk.
+I looked over to Linda and she was on her cell phone speaking quietly into the receiver. The desk had one of those transparent plastic covers, aside from the fingerprints and markings, that was recently put up due to the Covid-19 outbreak. It was a little funky to see clearly, but we locked eyes for a moment and her expression was grim, with her dark eyes now wide and a look of fear washed over her. She hung up the phone, put it back in her purse and looked down at the desk. 
 
 
 At that moment, the cries became louder. I realized they were coming from the backroom of the doctor's office instead. The cries came closer and closer until the waiting door flew open and an elderly woman with tears flowing down her face came through the door. She was doing this.. half laugh, half cry thing while smiling. She walked while doing this and slightly jerked her body and approached Linda. 
@@ -56,7 +56,7 @@ That's when it hit me, but it was already too late. As I was already in the room
 His smile faded slightly. Mouth twitching as the features eased. 
 
 
-"What, this?" He replied. "Oh this is help. This is salvation." He started giggling. Something this guy never does. I was trying to inch towards the door as his eyes peered into me like a watchful owl. 
+"What, this?" He replied. "Oh this is help. This is salvation." He started giggling. Something this guy never does. I was trying to inch towards the door as his eyes peered into me like a watchful owl. 
 
 
 "I'm good buddy, I'm just gonna go now." I was making my way closer to the sink that was mere feet from the door.
@@ -125,7 +125,7 @@ Another scream rang out in the hospital and this time, it was even louder. "Lock
 "Do you not realize the only way anyone is getting in or out anywhere is through that door?" She looked at me then back down at the bodies. 
 
 
-Loud bangs on the doors from inside the office broke the wall of thought and Linda got up and aimed the gun at the doors behind her. She screamed as the same woman that led me to the appointment rushed at Linda with a scalpel. She screamed and fired a shot but the woman crashed into her and the bullet hit the wall. I retracted and the gun flew out of her hand and bounced off the desk. I ran to jump over it and help but I couldn't get there in time.
+Loud bangs on the doors from inside the office broke the wall of thought and Linda sprang up and aimed the gun at the doors behind her. She screamed as the same woman that led me to the appointment rushed at Linda with a scalpel. She screamed and fired a shot but the woman crashed into her and the bullet hit the wall. I retracted and the gun flew out of her hand and bounced off the desk. I ran to jump over it and help but I couldn't get there in time.
 
 
 What I saw next will linger in my thoughts forever. As I sprung over, the woman from before was laughing hysterically while bashing Lindas stomach with the scalpel and when she was unable to move the woman began scooping into Lindas stomach, pulling out several organs and intestines. 
@@ -146,7 +146,7 @@ There were minimal options here. The most important being to get the hell out of
 "911 what's the location and nature of your emergency?" The woman dispatcher asked. 
 
 
-"MacGregor General Hospital, there's something going on. People are dying! You need to send officers over now!"
+"[REDACTED] General Hospital, there's something going on. People are dying! You need to send officers over now!"
 
 
 "Sir, I need you to tell me exactly what's going on. Are you injured?" 
@@ -245,10 +245,13 @@ It worked well, because he was gripping his neck and doing the hysterical laugh/
 That confirmed everything. That syringe has something in it that is turning the people into violent psychotic animals. Just what the hell is happening here? The man was bleeding out and walking towards me with hands stretched out like a goddamn zombie. I had to put the guy out of his misery at this point and picked the gun up. 
 
 
-"It's our salvation from the pain we go through. There is no god. The New Dawn is upon us." He told me. I had no idea what he meant. The gun was trained on his head and I fired. I just shuddered and turned away, running to the lobby. In my panic, I remember my hearing was sort of distorted with this sort of ring and my vision was hazy.  As I got to the front desk, my mind adjusted and I nearly collapsed when I saw the state the lobby was in.
+"It's our salvation from the pain we go through. There is no god. The New Dawn is upon us." He told me. 
 
 
-There were dozens, if not more dead bodies on the ground, drooping over chairs and tables. Some flayed open. All discarded and torn apart.
+I had no idea what he meant. The gun was trained on his head and I fired. At this point, blood had to be all over me. I just shuddered and turned away, running to the lobby. In my panic, I remember my hearing was sort of distorted with this sort of ring and my vision was hazy.  As I got to the front desk, my mind adjusted and I nearly collapsed when I saw the state the lobby was in.
+
+
+There were dozens, if not more dead bodies on the ground, drooping over chairs and tables. Some flayed open. Some even had bullet wounds. All discarded and dead. I couldn't imagine one of these deranged people with a gun!
 
 
 I didn't have anything else in my gut to throw up. I just stared, slack jawed and horrified. I noticed on the ground the school's gym teacher from a county over that has family here. That elderly woman from before had her arm torn off and one of her legs twisted. Others just.. my god. 
@@ -257,7 +260,7 @@ I didn't have anything else in my gut to throw up. I just stared, slack jawed an
 I had to get to the front door and get out of this hell. I couldn't help but look at the corpses and tremble as I grabbed the door handle. Before that, I noticed how dark it was inside despite the lighting. That's when it hit me. I couldn't see anything outside the glass doors, but was instead met with black. I swung the unlocked door open and put my hands on this metal wall blocking the way out. A thick dark metal sheet was covering the way out.
 
 
-Are you kidding me? Was all I could think. I had not one solid clue as to why this was happening. Other than the strange clear liquid that was being dispersed here and apparently causing mass hysteria among the whole building, I had no idea. 
+Are you kidding me? What about the police? Was all I could think. I had not one solid clue as to why this was happening. Other than the strange clear liquid that was being dispersed here and apparently causing mass hysteria among the whole building, I had no idea. 
 
 
 That also got me thinking. If the medical staff were reacting to the injection, then that meant they were using the substance themselves. Upon realizing this, I heard more yelling in the distance. 
@@ -314,7 +317,7 @@ But that's not all. 
 After mulling over my options and concluding that there weren't any left, I stared at the dead man before me. I noticed something. A logo. Some kind of crest on his shoulder pad. If I had a camera here I'd have uploaded it with this post but I'm running out of time and the connection here is still somehow intact. I've posted all over social media trying to tell my story. 
 
 
-Back to the logo now. It was a shield, with a sun emblazoned behind shining over the shield that housed what looked like a planet and trees. I looked over at the bag the man had. There were papers inside. I moved the body to the side and a submachine gun fell out of his side compartment. To be precise, a silenced MAC-10. He even had a grenade. What kind of security is this? 
+Back to the logo now. It was a shield, with a sun emblazoned behind shining over the shield that housed what looked like a planet and trees. I looked over at the bag the man had. There were papers inside. I moved the body to the side and a submachine gun fell out of his side compartment. To be precise, a silenced MAC-10. He even had a grenade. What kind of security is this? For all intents and purposes, yes, I know how to operate these kinds of firearms and I checked the magazine to see if there were any bullets and it was empty. He probably had to gun down some people to get here.
 
 
 It was then, I realized who this person was. There was no security hired to guard here at the hospital. There was no help. This was all supposed to happen. The helicopters, the metal wall blocking the door. I rushed to the papers and went through the ones that weren't covered with blood. Two stuck out. It was a letter of official response to a new drug trial called Nutroxalyne-10. 
@@ -332,7 +335,7 @@ The papers were to be collected by the "agencies" security detail after the drug
 So, if there were any problems, then security would have to step in earlier rather than later when the trial was over. There was a list of towns small enough to use as testing grounds. There was a demographic chart showing the towns and villages that were "less desirable" and had "little impact" on society as a whole. These towns were specifically chosen to be either saved by this drug, or wiped off the map from the subsequent failure of the trial. States like Virginia, Ohio, Pennsylvania, Missouri, Oklahoma and Arizona. This man was trying to grab the papers and probably destroy any evidence and kill anyone who was or wasn't affected by the drug. 
 
 
-This probably all sounds unverifiable and downright impossible but you can think what you want. This is happening and the only thing you can maybe do is listen to my story and be warned. Don't go to any small hospitals and get treated. Stay local or stay indoors. I don't know how else to warn you.
+This probably all sounds unverifiable and downright impossible but you can think what you want. This is happening and the only thing you can maybe do is listen to my story and be warned. Don't go to any small hospitals and get treated. Stay local or stay indoors. I don't know how else to warn you. I pulled out the pack of cigarettes the doctor had and I lit one up to calm my nerves. Blood accidentally got on my lips and I wiped it off with my hand.
 
 
 So, here I am. It's been a whole day and it's morning. I don't know what else I could possibly do. I've just been sitting here at this desk for hours. The sun rose hours ago. All of this happened yesterday. And now I am posting this story to tell you about 'Nutroxalyne-10' and the 'New Dawn Administration'. I am on the hospital company computer about to click 'post' and either jump out of a window, or maybe get to roof access and jump off the building. There's no more bullets left and I just can't go on anymore. 
