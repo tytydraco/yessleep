@@ -1,0 +1,18 @@
+In this life where everything is in a flow, there is a flow of souls, too.
+It took me like 22 years to figure it out. All this time, I thought it was just a mood change. My excuse was sometimes the seasons and sometimes the little things that bring memories. But, in reality, it was something much deeper than I thought: Every morning I wake up with a new soul in my body.
+
+Let me explain. When I woke up about a week ago, I had a special interest in flowers during the day. I was so interested that I started researching flowers deeply. I even got a favorite flower, it was a "Lily of the Valley". However, the next day, I didn't have the same interest as before and I even felt this flower as burden. It may seem like you want something so badly and then lose interest. So, was I always be this childish? Sometimes I question this, too.
+
+The next day, I had an interest in furniture. I was taking my children to school and when we came across a furniture maker's carpenter and I smelled the smell of wood, just a smell, it made me so excited that I thought maybe this job is my dream job. Since I didn't have time that day, I promised myself that I would make a wooden decor at the weekend. But when weekend came, as you can imagine, I wasn't in the mood.
+
+My S/O and children were used to this behavior of mine. I have never talked about this anyone before, even with my S/O. Several times I suspected it was a personality disorder, but, no it wasn't. It was just like a feeling inside of me. A feeling that pulls me in...
+
+Then in the morning, I was thinking like a philosopher as I woke up. My science focused self was overwhelmed with abstract concepts. These thoughts were just pulling me to the deeper. I remember my S/O and children worrying so much about me, since it was the first time I never left the room. However, I was so felt lost in thoughts that I didn't care about my family. I had planned to spend the night without sleeping. But, hearing thin scratchy voices in my ear, as if something in my ear was being repaired, I lay my head on the table and I fell asleep...
+
+Was it 5 seconds or was it 5 minutes? How long had I just fallen asleep? Or, how long have I been adrift? When I open my eyes, and looked around, I couldn't accept something inside me. It was the first time I felt anything like this, first and quite strange. But deep inside, I knew the answer. I did not find my body strange, yes, my body was mine, but something that fell inside me was incompatible. I should have slept, but I was awake. I couldn't deny all the informations. My soul didn't belong to me, and I really felt it. Somewhere inside me, I just couldn't accept the knowledge of my previous soul goes and a new soul enters my body every night, since the beginning. Every night on Earth, all previous soul exits and a new soul enters in every body. For the first time, that night, I felt deeply that everything was in flow. How can I forget that night? Knowing that I don't have a soul of my own, a soul that only mine... I've felt cheated from the beginning of my life. But, I also kind of learned why I felt different every day.
+
+After a few days, this morning, I'm leaving the room for the first time, as if I finally understand and accept something. Of course, I have another impulsive feeling for this... But if there is one thing I really want deeply, it is that I hope my S/O and children are well hidden. Today, I must have borrowed the soul of a murderer that likes to write memories and feelings down, because, I'm dying to wipe someone off the face of the Earth.
+
+
+
+06/06/2022
