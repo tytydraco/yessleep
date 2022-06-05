@@ -2,7 +2,7 @@
 
 I’ve noticed you may have some specific interests, and I’d like to offer my services.
 
-You can call me Joe,
+You can call me Damien,
 
 At Anonymous Products and Live Feed, we can assist you in acquiring the proper tools, techniques, and information in order to obtain your products while remaining anonymous. 
 
@@ -14,7 +14,7 @@ Public information: Date of birth, marital status, phone number, email, home add
 
 If you are interested, please respond “Public”. I will provide you a phone number to contact in order to proceed.   
 
-Public information does not include: Make/Model of vehicle with description and plate number, accessibility information to home or apartment, other occupants residing with your product, social security number, daily route which is obtained by observing the daily patterns of your desired product and the use of a vehicle tracker over the span of no less than two weeks.
+Public information does not include: Make/Model of vehicle with description and plate number, infiltration information to home or apartment, other occupants residing with your product, social security number, daily route which is obtained by observing the daily patterns of your desired product and the use of a vehicle tracker over the span of no less than two weeks.
  
 If you are interested to upgrade your plan, please respond “Upgrade”. I will provide you a phone number to contact in order to proceed. 
 
@@ -37,7 +37,7 @@ This is to maintain anonymity on your behalf.
 
 I look forward in doing business with you, 
 
-Joe 
+Damien
 
 RA-Products-LW.tor
 
