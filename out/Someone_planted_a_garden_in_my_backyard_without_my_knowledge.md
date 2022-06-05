@@ -2,11 +2,9 @@ Both my husband and I had been caught up in work projects for the past months. S
 
 There had been some tension in our marriage, separate rooms and spaces as we worked from home and avoided our issues. It was easier for me to go straight outside, without a word to him, and have a look at this so-called garden myself. Because our daughter is nine, my first impulse was imagining what her mind might produce or overexaggerate. Maybe, I reasoned to myself, she had tried planting seeds or relocating shrubs.
 
-Once I stepped out onto our back porch, though, it became apparent that there was a sizable chunk of growth back there. I inched down the patio stairs. I first glanced under the porch, holding my breath and my cell tight.
+Once I stepped out onto our back porch, though, it became apparent that there was a sizable chunk of growth back there.
 
-No one was under the porch.
-
-As for the supposed garden, it was blocked off with hedges. There was an entrance.  The entrance was circular, made of bent branches and twigs. Vines and mosses twined around and hung from it.
+It was blocked off with hedges. There was an entrance.  The entrance was circular, made of bent branches and twigs. Vines and mosses twined around and hung from it.
 
 I could not see far. Not without entering. As the threshold was only a little above waist height, I would have to get down on my hands and knees to gain access. I did go around the “garden” first, to get an idea of its scope, but because it backed up against our fence and seemed to stretch beyond that, down into the woods, I couldn’t get a real sense of its extent.
 
@@ -86,7 +84,7 @@ I didn’t have any pepper spray or anything, and I didn’t want to be crawling
 
 But I *did not* feel safe as I got down on my hands and knees in the backyard and finally crawled into the entrance of that garden.
 
-If I half-closed my eyes, it might seem like I was clambering though one of those playhouse tunnels at fast food restaurants. But the light that seeped through the strangled vegetation, it infused flowers, highlighting them. Many different kinds were entangled. There were also herbs growing, and I smelled about a hundred scents strangling each other as I crawled. If this thing was a garden, it was avant-garde. Maybe not new from the looks of it, but certainly experimental. In my mind, I started calling it “avant gard-en” for some good ole self-levity. I don’t know how whoever planted it kept those species from taking each other’s light, space, and nutrients, how they didn’t all kill each other in that embrace.
+If I half-closed my eyes, it might seem like I was clambering though one of those playhouse tunnels at fast food restaurants. But the light that seeped through the strangled vegetation, it infused flowers, highlighting them. Many different kinds were entangled. There were also herbs growing, and I smelled about a hundred scents strangling each other as I crawled. There were alcoves with things like cucumbers and strawberries somehow growing in the dim light. They were shrunken and sickly-looking. They seemed to spring from the walls rather than the soil.  If this thing was a garden, it was avant-garde. Maybe not new from the looks of it, but certainly experimental. In my mind, I started calling it “avant gard-en” for some good ole self-levity. I don’t know how whoever planted it kept those species from taking each other’s light, space, and nutrients, how they didn’t all kill each other in that embrace.
 
 It was crawl all the way, and there were many forks. I just kept taking right turns so as not to lose track. I was planning to at some point map out the whole thing, if it was possible. Maybe, once I was out again, I’d start by figuring out what expert I needed to truly investigate the garden.
 
@@ -114,9 +112,9 @@ In the head of the gnome that was facing me, there was a jagged hole in the uppe
 
 “Well, let’s give it a try,” I said.
 
-My heart ran in jagged lines away from my chest. I forced myself to look away from the gnomes. I kept remembering I had to put to bed all my fears. My family depended on it. I held my breath and waited until I saw stars.
+I forced myself to look away from the gnomes. I kept remembering I had to put to bed all my fears. My family depended on it. I held my breath until I saw stars.
 
-When I turned my head back around and looked again, with my cellphone held out like a weapon, something was crawling out of the gnome’s cracked face.
+When I turned my head back around and peered again, with my cellphone held out like a weapon, something was crawling out of the gnome’s cracked face.
 
 I screamed, backing into the garden tunnel I’d come from in reverse.
 
@@ -128,11 +126,11 @@ It slipped and squirmed along the ground, leaving a trail of goop behind. Its he
 
 I fumbled with my cellphone as I tried to scoot back on my rear at the same time. Doing both made me drop the phone.
 
-I screamed as it wriggled over my shoes. Digging in my pockets, I produced the lighter and hairspray bottle.
+I screamed as it wriggled over my shoes. Digging in my pockets, I produced the lighter and hairspray.
 
 “Back off!” I yelled.
 
-I felt its weight, hard and slimy, pressing against my body as it explored towards my face. Its mouth salivated, as toothless as a baby’s. I noticed a single hair jutting from its right ear.
+I felt its weight, supple and slimy, pressing against my body as it explored towards my face. Its mouth salivated, as toothless as a baby’s. I noticed a single hair jutting from its right ear.
 
 I put hairspray and fire together. A jet bloomed out and scorched its face.
 
@@ -140,7 +138,7 @@ When it screamed, it was more like a man than an infant.
 
 Fire caught on the surrounding vegetation, quickly spreading.
 
-I turned around, and I crawled, making lefts all the way. The fire must’ve spread in another direction. Otherwise, I might’ve have died in there.
+I turned around, and I crawled, making lefts all the way. The fire must’ve spread in another direction. Otherwise, I might’ve died in there.
 
 The screaming I heard behind me was pretty bad; it mingled with the whistling I’d heard before, creating a new song.
 
@@ -156,7 +154,7 @@ Then I opened the door.
 
 “Michael?” I said.
 
-He was sitting at his desk, papers stacked all around. His head was tilted back in his chair and there was a hole at the top. An eye winked out at me.
+He was at his desk, papers stacked all around. His head was tilted back in his chair and there was a hole at the top. An eye winked out at me.
 
 I shut his door, fumbled for the key above the frame, and locked it. I shoved a towel under the door and, with Sadie’s help, slid a bookcase from my room up against it.
 

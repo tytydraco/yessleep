@@ -91,6 +91,6 @@ But here’s the thing: the only thing I’m addicted to is gambling. Never even
 
 I think Mr. and Mrs. P will probably know better than me what to do, though. They told me their house had a security camera on it, and Mr. P was able to use his app to view me being on the porch for an hour before it shorted out. I *really* hope the shorting out was because of their camera running out of battery and not anything else, though.
 
-Honestly, I’m gonna use this as a diary of sorts. I don’t sincerely think anyone will even see this on here, but no harm ever came from a Hail Mary, I guess. I’ll add an update when I see Mr. and Mrs. P, though.
+Honestly, I’m gonna use this as a diary of sorts. I don’t sincerely think anyone will even see this on here, but no harm ever came from a Hail Mary, I guess. I’ll [add an update](https://www.reddit.com/r/nosleep/comments/v521x0/boxes_keep_on_showing_up_at_my_doorstep_and/?utm_source=share&utm_medium=web2x&context=3) when I see Mr. and Mrs. P, though.
 
 Toodles ig

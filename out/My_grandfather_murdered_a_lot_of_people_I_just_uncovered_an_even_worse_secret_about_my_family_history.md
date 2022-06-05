@@ -42,7 +42,7 @@ William Ronald Harrow.
 
 That was my grandfather’s name. My heart began to thud against my chest and my hands shook as I turned the page. 
 
-Written in what I had a horrible suspicion was  dried blood was a name and a date. Gregory Sanders - 12th June 1981. What followed after the name was the most graphically detailed description of murder I had ever read. The thrill the killer took in severing this man’s hands first. The joy he felt in pulling out his vocal cords. How long he kept his victim alive. The torture, my God, the torture.
+Written in what I had a horrible suspicion was  dried blood was a name and a date. Gregory Sanders - 12th June 1981. What followed after the name was the most graphically detailed description of murder I had ever read. The thrill the killer took in severing this man’s hands first. The joy he felt in pulling out his vocal cords. How long he kept his victim alive. The torture, my God, the *pain* he subjected that poor man to.
 
 I turned the page. Another name, another incredibly graphic death.
 
