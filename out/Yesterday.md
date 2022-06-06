@@ -1,6 +1,6 @@
 **8:31 AM**
 
-When I turned around and pressed the lock button on my keychain, I saw someone I shouldn’t have. It was right before work when I was in the parking lot. Clock-in time was thirty minutes ago, so I was in a hurry. They were sitting in the passenger seat of my car.  I jogged back, briefcase slapping against my legs, and yanked open the door.
+When I turned around and pressed the lock button on my keychain, I saw someone I shouldn’t have. They were sitting in the passenger seat of my car. It was right before work when I was in the parking lot. Clock-in time was thirty minutes ago, so I was in a hurry.  I jogged back, briefcase slapping against my legs, and yanked open the door.
 
 No one was there.
 

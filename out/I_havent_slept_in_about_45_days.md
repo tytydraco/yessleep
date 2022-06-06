@@ -33,3 +33,5 @@ That's when I saw the entity for the first time. I don't know what I was expecti
 I looked at her, her face was twisted in an expression of pure pain and horror, and then I saw it. The entity's hands were no longer caressing her belly. They were now inside it, as if it wasn't human skin, flesh, and bones, rather water that they had penetrated. My wife looked at me, her eyes begging me to help, but I did nothing. I kept staring to and from her belly and the entity, hoping for help myself.
 
 And then, it yanked my baby out. My beautiful baby boy was now in the arms of this creature, and I could do nothing. I could do nothing except stare at horror while my wife lay in a pool of blood, crying the most dreadful cries I have ever heard. By the time my family came up to my room, it was too late. The entity was gone, and so was our baby. All that was left was a grisly scar on my wife's belly, and bloody footprints from our bed to one of the walls.
+
+[Recent update of our lives](https://www.reddit.com/r/nosleep/comments/v64mh9/my_wife_has_been_feeling_weirdly_hungry_these_days/?utm_medium=android_app&utm_source=share).

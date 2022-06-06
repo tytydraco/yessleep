@@ -1,0 +1,33 @@
+I know. I know. The title sounds impossible but it did and I want to share it with you. I only have a short window of time to explain what happened, not only that but to warn you. No matter how stupid or uninterested you may be take this warning to heart or you'll end up like me 
+
+  I should start from the beginning. Now the way these things start is by you know having those obsessions with books or animals or stories that you've heard. But that's not how it started for me. It actually started with painting surprisingly. I love the paint mostly scenery. I wasn't any good in drawing animals I couldn't quite get the faces right,But that didn't stop me from trying. I was an advanced art class as I had passed up all the other ones with my exceeding performance In all the others. The day came when my professor said that we needed to paint a picture of our worst fears. Now I'm one of those people who aren't afraid of the natural world spiders, bugs ,snakes nothing really popped out at me. But what did scare me was the supernatural world you know the land of the ghosts and the unwanted  and wondering spirits demons even. So I went digging.
+
+   I don't remember what website it was or was even reading about but what came up was dreamwalkers. I looked at a few pictures and thought hmm they're easy to paint. so I picked one out and well started working. It was only when I began to close down my computer when I saw some of the text written at the bottom of the picture. The lines read " If seen in your dreams run away from that location.  Now this may seem like a cowardice move on your part but you these spirits are only found to the places that they've died. If you do not move you can suffer serious consequences such as sleep paralysis  And in the imaginable nightmares that can leave many scarred or in mental hospitals. If you have seen any of these lurking in the corner of your vision or in your dreams call your local priest or shaman." 
+
+ What horse shit. Even now that I here I can tell you that's not how that works. However that's not what I thought at the time. So like any dumb unsupervised kid I went down the rabbit hole.
+
+ After that I was never the same. I'd stay up all night long looking up  Ancient monsters that used our dreams against us. It was all harmless until the day that it wasn't. I had went to my grandparents place and they had an old bookstore down the street so me being me I went to check it out.
+
+When I got inside I was hit with an uncomfortable feeling. Like I was being watched and/or warned to leave. I didn't want to though. I had one goal and I was sticking to it no matter what. I wish I didn't do that.
+ 
+I walked up to the front desk. Surprisingly there was someone there. It was an old woman with graying hair, wearing an oversized sweater. She smiled and asked if I needed a card. I said yes and blah blah blah.
+
+ When I returned with the books that I wanted I noticed a change in her  Demeanor. She rocked back and forth on her heels. She was sweating and even mumbling. I kept hearing her say. "I locked it away. How is it back? Can I it be here for someone?" That was all I could make out of it. Safe to say I grabbed my books and ran home.
+
+ That night I couldn't sleep. The old lady's words bounced in my head. I laid there trying to silence that damn crazy mind of mine. I sat there and sat there. I gave up 30 minutes in and sat up. However when I did I didn't feel the pull of my body weight coming with me. I looked down to see me. No really. Me! I was laying there, breathing. I looked down at my hands and shirt. I didn't look different. I decided to go look around I must just be having a lucid dream. 
+
+ I just walked around like it was nothing. Walking through things and seeing what stuff looked like in the dead of night. I stopped by my parents door. I wondered if I an see them. Sense well it was MY dream. I opened the door much to my surprise when I was able to just walk through everything else in the house. And just as I thought there they were sleeping so peaceful. I was about to exit when I saw something. There was an image on my mom's fore head. I took a closer look. It was like a small tape playing out on her head. I didn't know it at the time but what I was seeing was her dream.
+
+ A beeping sound pulled me form my night time adventure. I pinched myself to see if it was real. It was. 
+
+ I spent the next days sleeping whenever I could. Not only could I enter that 'place" at night but in the day to. I could see people in real time! What bothered me was my shadow. It followed me everywhere I went like my "real" or did but I felt like I wasn't mine. Luke it was someone else's or something totally different in general. I avoided staring at it. 
+
+ I fre more weeks passed. I continued this what I imagine now as strange behavior. This eventually led to a fight. I had dropped out of school focusing on my new found ability and seeing what secrets laid hidden. My mom didn't like that. She snapped at me yelling at me for being lazy and not wanting to do anything. I got annoyed I tried to explain but she laughed at me. She.....laughed.....that night I did something different. I wanted revenge. I went into their room. Instead of looking at the dream I tapped it. I was immediately transported into the dream. I was in a forest now with mom sitting under a tree,reading. I felt rage boil up to the surface. I thought of a beast running out of those woods and killing her! She didn't deserve to be happy! Not after what she did. She pushed away her only child! I mean imagine what we could have done! How this could have beneficial to us. I was so mad that the reacted. It crumbled around me. As the angry hit.
+
+ What happened next I will never forget. What sound left me......was not right.i didn't have time to think. I charged. She screamed as I tore her apart.
+
+ What I did next was even more so dumb. I did it every night. Every time she fell asleep. Days passed I didn't realize that my "special ability" was getting stronger and expanding on new ways. I could now tell when my  Desired target fell asleep. I didn't notice that I was fading. When I was awake I was numb all the time. When I was "asleep" I saw less and less of myself. Shadows danced wherever I looked. Voices  Lolled  me to do more extreme things.
+
+ And now....I'm going to disappear.....the voices whisper this to me....they talk about what I can do. I have til sunset. I don't wanna leave but my shadow coos to me. Telling me "it's alright you have already done it" 
+
+ The sun is lowering. To those who read this. If you have an ability in the world unknown don't abuse it. Don't be tempted by anger. Goodbye and God help anyone who doesn't listen.
