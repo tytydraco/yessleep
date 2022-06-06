@@ -1,5 +1,7 @@
 [Previous Chapter](https://www.reddit.com/r/nosleep/comments/uoyfn7/indigo_bloodchapter_two/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
+[Next Chapter](https://www.reddit.com/r/nosleep/comments/v65m30/indigo_bloodchapter_four/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
 Damn it, damn it, shitshitshit. The blood’s dripping everywhere, my fingers are trembling. Fuck, why did I do this?! Why did I...
 
 Okay, okay, I need to collect myself. I need to write this down. Maybe I can make more sense of it that way. 
