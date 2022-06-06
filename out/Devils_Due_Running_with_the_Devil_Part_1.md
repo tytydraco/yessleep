@@ -245,3 +245,6 @@ Come Home, Michael
  As soon as I let myself fall upon the plush mattress, I realized how exhausted I was; both mentally and physically. I allowed the weight of potentially losing Brandon to consume me for a moment. I attempted to keep the moans that accompanied the tears silent when I let them loose, but once they kicked in, I couldn't even hope to contain them. I pounded my fists against the soft mattress while trying my hardest not to scream out from the pain in my chest. 
 
  After some time, I managed to convince myself to settle back down, but I would not accept this loss; not without a fight. Even if the powers behind that building could strip Grant of his gifts, I still had faith that we could find a way to bring our friend home. With that very conviction in the back of my mind, I allowed the throbbing in my chest to dissipate. What tomorrow may hold; well, surely it couldn't be any worse than what this day had presented us with. That was my hope, anyway. Of course, things are never that simple.
+
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/v68vyp/devils_due_running_with_the_devil_part_2/?utm_medium=android_app&utm_source=share)
