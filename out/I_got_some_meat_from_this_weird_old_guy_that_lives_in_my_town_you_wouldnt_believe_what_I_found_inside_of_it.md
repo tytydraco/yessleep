@@ -24,4 +24,4 @@ Then I realized Rick must have known about that thing when he gave it to me, I t
 
 I don’t know what to do, it’s growing really fast, and I don’t know who to talk to about it or if I even should, after Rick warned me not to. I am going to lock it in a suitcase for tonight and hopefully I can find Rick tomorrow and sort all this shit out.
 
-[part 2](https://www.reddit.com/r/nosleep/comments/v68p70/i_got_some_meat_from_this_weird_old_guy_that/)
+&#x200B;

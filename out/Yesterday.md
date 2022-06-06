@@ -16,7 +16,7 @@ I nearly got in a wreck on the way to the hospital. One step ahead of Karma, *on
 
 I pulled out my cell to read the news to her, the news that was ahead of her by several years.
 
-**11:30 AM**
+**11:32 AM**
 
 The beeping intensified. She was no longer stable. Nurses rolled her out in a hurry. I remained behind reading headlines to the empty room.
 
@@ -36,7 +36,7 @@ The walls of my apartment creaked, as though they were compressing or expanding.
 
 It approached from a potted plant that was suddenly rotted to black tatters. It was a fake plant that should not decay like that, as though it had been brought to life, like Pinocchio become a real boy, just to murder it.
 
-The outline of that figure hurt my eyes like a bright, harsh beam, but like radiation not quite on the visible spectrum. The sound of its voice ripped me a new eardrum, though it was little more than a whisper.
+The outline of that figure hurt my eyes like a bright, harsh beam, but like radiation barely on the visible spectrum. The sound of its voice ripped me a new eardrum, though it was little more than a whisper.
 
 “The same deal as before stands,” it said. “You can take her place. You can take her place and all this will end.”
 
@@ -50,15 +50,15 @@ A frown-smile showed, and needly curved teeth showed. “Just say the word.” T
 
 **3:33 PM**
 
-I woke up on the futon to things scrabbling across the apartment. They were on the walls. They were scraping across the floor towards the couch. I saw large, wet white eyes absent pupil or iris. Eyes watching me. Hungry, laughing eyes. Rotted pieces of flesh fell where they crawled. Plops of muscle, strands of innards. I heard something come up onto the futon. Breathing raggedly, I glanced down towards my feet. Its skeleton was exposed, and it was so far gone you could never tell *wha*t it had been (it was always that way by the time they got close). It suddenly giggled and cried at the same time. It scratched at my pants cuff, made a noise, and went inside. It felt oily as it slid over my hair and skin, scratching against the fabric.
+I woke up on the futon to things scrabbling across the apartment. They were on the walls. They were scraping across the floor towards the couch. I saw large, wet white eyes absent pupil or iris. Eyes watching me. Hungry, laughing eyes. Rotted pieces of flesh fell where they crawled. Plops of muscle, strands of innards. I heard something come up onto the futon. Breathing raggedly, I glanced down towards my feet. Its skeleton was exposed, and it was so far gone you could never tell *wha*t it had been (it was always that way by the time they got close). It suddenly giggled and cried at the same time.
 
 **5:11 PM**
 
-I went to a bar to drink myself into a stupor. I picked a fight to get hurt. That might make me feel less guilty, less selfish, although I knew deep down it had nothing to with her, only to do with myself.
+I went to a bar to drink myself into a stupor. I picked a fight to get hurt. Maybe it was to feel less guilty, less selfish, although I knew deep down it had nothing to with her, only to do with myself.
 
 I’d had enough to drink that night we’d gotten into the accident. In fact, it had been an argument that had led me to that bar.
 
-And then had come the phone call. No one else available. Her water had broken. The baby, little Sylvie, was early. Oh, God, why then? She’d asked me if I was drinking again, and I’d lied through my teeth, teeth that felt like needles in my mouth.
+And then had come the phone call. No one else available. Her water had broken. The baby, little Sylvie, was early. She’d asked me if I was drinking again, and I’d lied through my teeth, teeth that felt like needles in my mouth.
 
 *Yesterday*, there was no call and no fight. Someone set me down gently next to the curb. I heard them hailing a cab.
 
@@ -66,9 +66,9 @@ And then had come the phone call. No one else available. Her water had broken. T
 
 **11:11 PM**
 
-I was in bed. Someone had taken off my socks and shoes, like she used to do for me while weathering my worst years before I’d gotten sober. She’d done too much for me, put up with too much.
+I was in bed. Someone had taken off my shoes and socks, like she used to do for me while weathering my worst years before I’d gotten sober. She’d done too much for me, put up with too much.
 
-*Just say the word*. The whisper is deafening. *Just . . . say it.*
+*Just say the word*. The whisper was deafening. *Just . . . say it.*
 
 &#x200B;
 
