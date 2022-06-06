@@ -1,0 +1,15 @@
+[Previous Chapter](https://www.reddit.com/r/nosleep/comments/v3omoz/indigo_bloodchapter_three/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+Well, I’ve learned quite a bit, maybe a bit more than I would have liked. Apparently, those “shards” of memories were a lot bigger than I thought they were. Those five people were part of this group called “the Weavers”. Well, “group” is the wrong word. They’re all linked together as a sort of hive mind, forming different parts of one enormous “network” using many different bodies. If it's confusing, you’re not alone, because I had trouble understanding it too. That said, it does explain several things. For one, it explains why they all reacted to my probe at the same time. Two, it explains why Robert had little-to-no reaction to losing his hand: physical things don’t bother them, but attacks on the mind are different. 
+
+Three, the “stitching” they mentioned is essentially them adding people to their ranks. And four, my grandmother tried to murder every last one of them after they killed my aunt, her daughter. 
+
+And my grandfather? Well, she had become unhinged and thought that he was in league with them after she found the book, thinking that he was somehow responsible for the “network” existing in the first place. She tried to destroy it, but he put her into a sort of psychically-induced coma, or a “stasis”, more accurately. From what I’ve gathered, the Weavers seem to worship some ancient race of beings that supposedly created a subtle “link” among all humans. What these creatures are or if they existed, I can’t say, but they seem to think so, and they also seem to think that the key to truly linking everyone together is through the “collective unconscious.” I’m not sure who here has read Jung, but I’d suggest Googling it. The gist is that they want, as I said, to bring everyone together as one mind. What this would accomplish is beyond me, but I shudder to imagine such a life. It makes me wonder: has this been done before? I mean, look at the cults of the world, how their leaders seemed to brainwash followers so easily, how the people seemed to be so willing to obey, and how broken some of the survivors behaved even after they got away with their lives. And my grandfather had said that there were famous people who were Indigos. What if these people were part of weaker “networks”? 
+
+There's one more piece of information, though, that troubles me. Based on the intertwined memories and thoughts of these people, my grandfather was as much a thorn in their side as my grandmother. Thing is, he wasn't always that way because he fought them. 
+
+He used to lead them. 
+
+I should emphasize the word “used”; when they thought of him, I could feel nothing but waves of boiling hate and resentment, as well as “hear” numerous variations of “traitor” being used to refer to him. 
+
+That's the extent of my knowledge thus far, and I almost wish I’d never learned it. Maybe somehow I can learn more, but I have more pressing concerns. See, earlier tonight, I thought I saw a flash of green fabric out of the corner of my eye. When I turned, of course, there was nothing.
