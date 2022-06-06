@@ -1,0 +1,13 @@
+I'm an ordinary girl, I'm 18 years old, I haven't had a boyfriend yet, because I'm very modest. I was born in the south of Ukraine in Odessa. I had a normal life before the start of the war, but everything has changed since February 24. I started hearing voices in my head...
+
+The first time it happened was a week after the invasion. At night I woke up from a strange whisper and realized that this whisper sounded in my head. It was a very pleasant voice, but it quickly stopped, and I thought I was just dreaming or something like that. 
+
+The second time it was repeated on Easter day. I was walking home from church in the evening. Yes, I love going to church, especially lately, and asking God to save my Ukraine. Suddenly there was a strong wind, and I saw a light in the middle of the sky. It was a very bright iridescent light. Suddenly this voice called me again, but after a second everything stopped, and this light disappeared. It scared me, I was wary, but I decided not to tell anyone about it. For a whole month everything was calm, but just a few days ago it happened again. 
+
+I was out for a walk when that strange wind blew again, and this time I heard that voice very clearly. He told me, "Go to Kiev, ask Zelensky to give you an army of the Armed Forces in command. You must lift the siege of Mariupol, save your country and put Zelensky on the second term of government." 
+
+I was stunned by this, I could not move from surprise. I'm an ordinary girl, I don't understand anything about artillery and military skills. Mariupol has been under siege for 3 months. What can I do? Ukraine is divided, as there are Donetsk and Lugansk republics. Ukrainians who are for Russia live there. But I think Zelensky is a genuine legitimate president. I want to help my ruler to hold his solemn second inauguration ceremony.  
+
+So that you do not say that I am crazy, I will say that I underwent a thorough medical examination by a psychiatrist, and the doctor concluded that I am completely mentally healthy. These voices are not coming from me. This is what the higher powers want. 
+
+I arranged with my brother and a neighbor that we go together to the mayor of Odessa. I will tell him about these voices and ask him to give me security so that I can get to Kiev. If I manage to persuade Zelensky to give me an army, then I will cut my hair short, change into men's clothes, and also ask him to prepare military ammunition, weapons, a tank and a battle flag for me. But first I will write a letter to Putin and ask him to leave in peace. But if he doesn't agree, then.... I have to save my country. May God help me in this!
