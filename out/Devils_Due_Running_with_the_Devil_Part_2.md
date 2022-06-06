@@ -1,10 +1,7 @@
- 
+ [Part 1](https://www.reddit.com/r/nosleep/comments/v5i6yx/devils_due_running_with_the_devil_part_1/?utm_medium=android_app&utm_source=share)
 
-\[Part 1\]([https://www.reddit.com/r/nosleep/comments/v5i6yx/devils\_due\_running\_with\_the\_devil\_part\_1/?utm\_medium=android\_app&utm\_source=share](https://www.reddit.com/r/nosleep/comments/v5i6yx/devils_due_running_with_the_devil_part_1/?utm_medium=android_app&utm_source=share))
 
-Part 2
-
-  Uninvited guests and a brief interlude
+Part 2: Uninvited guests and a brief interlude
 
 The chaos of the previous day's events was still fresh in my mind when I finally opened my eyes the following early afternoon. I had grown so content with my life, that I had almost forgotten how much these things can take their toll. My heart throbbed with the fear of whether or not we would be able to bring our friend home, and I felt little drive to pull myself free from the comfortable hotel bed. Still, I knew that my only chance in finding some semblance of hope would be to put on a brave face and deal with whatever came next. 
 

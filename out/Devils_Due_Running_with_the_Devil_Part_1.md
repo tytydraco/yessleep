@@ -1,10 +1,6 @@
- 
+ [Devil's Due](https://www.reddit.com/r/nosleep/comments/s0wcut/devils_due_part_1/?utm_medium=android_app&utm_source=share)
 
-\[Devil's Due\]([https://www.reddit.com/r/nosleep/comments/s0wcut/devils\_due\_part\_1/?utm\_medium=android\_app&utm\_source=share](https://www.reddit.com/r/nosleep/comments/s0wcut/devils_due_part_1/?utm_medium=android_app&utm_source=share))
-
-Part 1
-
-Come Home, Michael
+Part 1: Come Home, Michael
 
  Bullies. Even when you let yourself get comfortable in life, there's always another one lurking in the shadows. No matter what we may accomplish, the powerful friends we grow closer to, or even the wealth we may accumulate, there's always another damn bully just waiting for the opportunity to remind us of how small and worthless we are. 
 
