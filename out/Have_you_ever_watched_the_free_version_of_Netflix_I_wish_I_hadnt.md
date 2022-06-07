@@ -115,3 +115,5 @@ I immediately turned it off once I found the remote, but something is wrong now.
 The worst part is, I don’t think it’s all in my head  -- because when Meg came home that night, she looked at my hand, my eyes, and she said, “Oh Mike, you can finally see now!”
 
 If you see this show up on your TV, please don't watch it.
+
+Update:  If you see this show up on your TV, please watch it! 10/10!!!!!!!!
