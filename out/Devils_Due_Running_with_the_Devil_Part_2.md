@@ -300,3 +300,5 @@ The chaos of the previous day's events was still fresh in my mind when I finally
  "Are you here!?" Grant asked loudly; his words echoing over her seductive wails. 
 
  I just nodded before my friend pulled me through the doorway he stood directly in front of. In an instant, the sounds of the floor and walls of the bar vibrating, along with the seemingly endless chorus Brandon's girlfriend had been chanting, fell silent once more.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/v72brf/devils_due_running_with_the_devil_part_3/?utm_medium=android_app&utm_source=share)
