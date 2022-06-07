@@ -55,3 +55,11 @@ If everyone can hold their end of the deal, this curse should be over in just on
 Again, the best case scenario is to read my descriptions and make sure to turn off your device the second you see something matching them. Otherwise, follow the rules. And you should be okay.
 
 I will post updates here as I learn more. For now I need to head back home. I have spent far too long at this library and I wouldn’t dare keep her waiting much longer.
+
+&#x200B;
+
+Edit: Hi, Melanie here. Simon thinks I sleep all day while he’s at work huh? Well guess he’s in for a surprise. I can’t believe he left his reddit account open too LOL. Anyways, you guys want to see me right? I’m sure you can’t resist just taking one look.
+
+[I’m very pretty](https://www.reddit.com/r/TerrifyingAsFuck/comments/uunoqh/briish_people/)  
+
+&#x200B;
