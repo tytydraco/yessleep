@@ -10,19 +10,19 @@ The scuffle on the stage had stilled, Jacob and Jeremy both staring openmouthed 
 
 **“My, what a ruckus they make,”** Karabasan said. He no longer wore his human form but was back as a humanoid mass of shadows and darkness, with spindly, too long limbs that ended in thin, sharp claws. A pulse of power went out from him, and everyone slumped, falling to the ground. On the stage, Jeremy had fallen as well, leaving only me and Jacob standing.
 
-“What did you do to them?” I asked, my throat dry from terror. 
+“What did you do to them?” I asked, my throat dry from terror.
 
 Karabasan shrugged indifferently. **“They’re just sleeping. I wouldn’t worry about them; I need them. But you two, on the other hand…”** A dark hand raised towards us, and I felt my body gripped by a crushing force. Me and Jacob were lifted into the air by the demon, struggling vainly at our binding.
 
-**“You two have been nothing but a pain, an itch I couldn’t scratch. Those MAOIs were clever, I admit. Infuriating, but clever.”** The grin disappeared. **“As much as I enjoyed our nightly chats, Thomas, your usefulness has ended.”** The constriction around us grew tighter. I felt myself being uncomfortably contorted, air being forced from my lungs as an invisible force pressed in. 
+**“You two have been nothing but a pain, an itch I couldn’t scratch. Those MAOIs were clever, I admit. Infuriating, but clever.”** The grin disappeared. **“As much as I enjoyed our nightly chats, Thomas, your usefulness has ended.”** The constriction around us grew tighter. I felt myself being uncomfortably contorted, air being forced from my lungs as an invisible force pressed in.
 
-Stars danced in my vision, my head swam from pain and lack of air. 
+Stars danced in my vision, my head swam from pain and lack of air.
 
 A beam of purple energy hit Karabasan squarely in his head, knocking him off his feet. The bonds holding me and Jacob disappeared, and we fell to the stage, gasping for air, our whole body tingling with pain.
 
 **“Who DARES?”** Karabasan roared, staggering to his feet, head swiveling, searching for the one who shot him. Another bolt of energy came from the back of the auditorium, striking the demon in the head again.
 
-“Run,” I whispered to Jacob. We both scrambled out the stage’s back exit, listening to the demon’s fury. 
+“Run,” I whispered to Jacob. We both scrambled out the stage’s back exit, listening to the demon’s fury.
 
 Wayne stood in the back, looking a bit worse for wear, but alive and well. “I wasn’t sure if you two were still alive,” He said wearily. “So. Karabasan’s broken through, then?”
 
@@ -36,7 +36,7 @@ Wayne slapped me on the shoulder. “Wonderful. Stay safe, you two.” Then he p
 
 “Come on,” Jacob said. “Let’s get out of here while we still can.”
 
-“Hang on.” I felt something tugging me back towards the door that led to the stage. I turned towards it. The aperture showed us a vision of destruction, a monstrous shadowy demon assaulted by twin bolts of purple and blue. Power thrummed from the portal. I could feel it beating against me. “Do you feel that?” 
+“Hang on.” I felt something tugging me back towards the door that led to the stage. I turned towards it. The aperture showed us a vision of destruction, a monstrous shadowy demon assaulted by twin bolts of purple and blue. Power thrummed from the portal. I could feel it beating against me. “Do you feel that?”
 
 “Feel what?” Jacob came and stood beside me, facing the tear in reality.
 
@@ -64,7 +64,7 @@ I sprang at the sword, diving for the floor, but Gadson blurred again, his fist 
 
 “It’s not me who wants to see you,” Gadson dragged me backstage, my hurt arm crawling with pain. Despite my struggling, I couldn’t break his iron grip. Jacob lay unconscious on the floor, his sword on the ground beside him, no hope of rescue from him. “The master does. He wants to personally kill you. He’ll deal with you presently.”
 
-We emerged onto the stage, the black-purple tear in reality still throbbing with outpouring power. It buffeted against me like a strong wind. The auditorium itself was chaos. Wayne and his friend darted in the midst of rows of chairs, occasionally firing bursts of energy at a nebulous black cloud hovering near the ceiling. 
+We emerged onto the stage, the black-purple tear in reality still throbbing with outpouring power. It buffeted against me like a strong wind. The auditorium itself was chaos. Wayne and his friend darted in the midst of rows of chairs, occasionally firing bursts of energy at a nebulous black cloud hovering near the ceiling.
 
 **“You fools think you can stop me?”** Karabasan thundered from above. Four long dark spikes skewered the ground, stabbing at the duo, who rolled and dodged to avoid the blows. **“Your weapons are useless. Bow before me, and your deaths will be painless.”**
 
@@ -78,17 +78,17 @@ Karabasan fell like a torrent of water, shadows billowing and flowing as he coal
 
 **“You poor, deluded men,”** He took a step forward, his claws lengthening, gleaming in the dull light. Wayne staggered to his feet, leveling his gun. A jagged bold of brilliant blue lightning arced to Karabasan, crackling and spitting sparks. The bolt was absorbed into him with ease. The demon kept walking. Wayne grimaced, the gun whining, shaking in his hands. **“You could never fight back in any way that matters. I am a being of the Immaterial Plane. The Physical World is but a playground to entities such as me.”** He casually batted Wayne to the side, sending him spinning across the room to collide hard with a wall. He groaned and did not rise. Rage rose up in me, the power of the portal stoking it further.
 
-The other man had regained his senses now, stirring. Karabasan loomed over him, spindly arms clasped behind his back. **“And you… you** ***did*** **have something interesting with you. A Subterran gun, I believe?”** 
+The other man had regained his senses now, stirring. Karabasan loomed over him, spindly arms clasped behind his back. **“And you… you** ***did*** **have something interesting with you. A Subterran gun, I believe?”**
 
 Wayne’s friend suddenly moved, bringing the gun up and firing directly at Karabasan’s face. The demon, however, was ready for this. His arm blurred, and he blocked the purple energy with a clawed hand. The force of the beam pushed him back a little, but he held firm.
 
-**“If you really wanted to stand a chance, you should have brought something from Necromium,”** Karabasan hissed. “**But you’ll pay for your oversight with your life.”** Faster than my eye could follow, his other arm speared the man through the heart. He gasped in pain, the purple beam cutting off abruptly, gun falling from his hand. 
+**“If you really wanted to stand a chance, you should have brought something from Necromium,”** Karabasan hissed. “**But you’ll pay for your oversight with your life.”** Faster than my eye could follow, his other arm speared the man through the heart. He gasped in pain, the purple beam cutting off abruptly, gun falling from his hand.
 
 “No!” I screamed. I felt a surge of power, and suddenly I’m holding Jacob’s sword. I swing it up, slicing through Gadson’s robed arm and sprint towards the backstage exit. Gadson howls in pain. I can feel Karabasan’s focus shift to me, him whirling to face the stage. My knees buckle as the emanations from the tear in reality slam into me. The air shimmers blue and I feel like I’m being dropped, spinning, down a long shaft. My vision goes black and suddenly I slam onto cold tiles, coughing, my arm throbbing. I raise myself from the floor, my hand still clutching Jacob’s sword, and realize I’m outside of the principal’s office. My mind flashes to the Underrunes that kept the central room safe in the catacombs. They line the office, too. I don’t have time to worry about how I managed to grab Jacob’s sword or make it across the school in seconds. I need safety.
 
 I staggered to my feet and opened the door, lurching into the office. Someone shrieks in alarm. I snap to attention, raising the sword, before realizing it’s just Mrs. Hill huddled in a corner of her office. I breathe a sigh of relief and close the door behind me. Terrified, confused mortals I could deal with. A superpowered avatar of an invading demon I could not. “Oh, hello,” I said, slumping into one of the chairs by the wall, breathing out deeply. I felt a sudden exhaustion fall over me.
 
-“What… what’s happening?” The principal asked me in a shaky voice. 
+“What… what’s happening?” The principal asked me in a shaky voice.
 
 “What I tried to warn you about,” I sighed. “The supernatural evil working here has spilled over into the Physical World.”
 
@@ -108,9 +108,9 @@ Her hand rose to cover her mouth. “No! No, it can’t be true—”
 
 “Face it,” I said, “You made a mistake. So have I. In a way, this is all my fault. But now’s not the time to dwell on our mistakes, because we have work to do.” I held out my hand to woman. “You in?”
 
-Her eyes flicked to my hand and then met mine, her gaze turning steely. She grasped my hand and pulled herself to her feet. “Right. So what do we do?” 
+Her eyes flicked to my hand and then met mine, her gaze turning steely. She grasped my hand and pulled herself to her feet. “Right. So what do we do?”
 
-I propped the sword against the wall and pulled Mr. Richardson’s journal from my pocket. “This is the old principal’s journal, chronicling his fight against the demon. I figure our best bet is to use something from this to fight back. He has notes on how to use runes. I think there might be something useful in that.” 
+I propped the sword against the wall and pulled Mr. Richardson’s journal from my pocket. “This is the old principal’s journal, chronicling his fight against the demon. I figure our best bet is to use something from this to fight back. He has notes on how to use runes. I think there might be something useful in that.”
 
 “Where did you find this?” Mrs. Hill asked me.
 
@@ -118,7 +118,7 @@ I propped the sword against the wall and pulled Mr. Richardson’s journal from 
 
 The door to the office burst open, and in staggered Northrup. I gasped. “Northrup! What? How?”
 
-Northrup slammed the door shut behind, panting. “It’s right behind me, you idiots! Get ready!” A shrieking came from halls outside, the sound of howling winds and fury. 
+Northrup slammed the door shut behind, panting. “It’s right behind me, you idiots! Get ready!” A shrieking came from halls outside, the sound of howling winds and fury.
 
 **“Where did you go**?” I heard Karabasan growl. **“I know you’re here somewhere.”** The window to the office darkened as a pulsing mass of shadows moved through the hall.
 
@@ -134,7 +134,7 @@ In the hall, two blazing eyes opened in the cloud of darkness, which shifted and
 
 “Karabasan,” I responded. “Hello again.”
 
-**“I must say, you impressed me,”** Karabasan grinned. **“Escaping Gadson is not an easy feat, especially now that I have made him my avatar.”** 
+**“I must say, you impressed me,”** Karabasan grinned. **“Escaping Gadson is not an easy feat, especially now that I have made him my avatar.”**
 
 “Yeah, well, we all have our secrets,” I shrugged, trying to act casual. I had no clue how I actually managed to escape. “How’s world domination going?”
 
@@ -142,9 +142,9 @@ In the hall, two blazing eyes opened in the cloud of darkness, which shifted and
 
 “All well and good,” I said nonchalantly. “Except that we’re going to stop you.”
 
-**“That’s cute,”** The demon said. **“You think you have a chance against me? I’ll crush you where you stand, you insolent fool.”** He exploded outward in a rippling mass of darkness, battering against the walls and the door of the office. I stood on the other side of the window, watching as the demon wrought his fury against our fortification. There was a roar from the demon, and he drew back, glowing eyes narrowed. Tiles, lockers, and pipes were ripped from the building, floating in the air, slowly turning. It reminded me of the poltergeist. With a blur of movement they shot towards the wall, but stopped millimeters from impacting. Karabasan’s eyes narrowed further; I sensed his exertion. Finally he released his control of the projectiles, and they fell to the floor. 
+**“That’s cute,”** The demon said. **“You think you have a chance against me? I’ll crush you where you stand, you insolent fool.”** He exploded outward in a rippling mass of darkness, battering against the walls and the door of the office. I stood on the other side of the window, watching as the demon wrought his fury against our fortification. There was a roar from the demon, and he drew back, glowing eyes narrowed. Tiles, lockers, and pipes were ripped from the building, floating in the air, slowly turning. It reminded me of the poltergeist. With a blur of movement they shot towards the wall, but stopped millimeters from impacting. Karabasan’s eyes narrowed further; I sensed his exertion. Finally he released his control of the projectiles, and they fell to the floor.
 
-**“Fine,”** He snarled. **“So you’re safe in your little office. We’ll see what good that does you. Live out the rest of your miserable lives huddling in your sanctuary, then.”** With that, the collection of object he had hurled at us were flung at the door again, not to break it down, but rather block all exit. **“Have fun rotting away! I’m going to conquer your precious town.”** 
+**“Fine,”** He snarled. **“So you’re safe in your little office. We’ll see what good that does you. Live out the rest of your miserable lives huddling in your sanctuary, then.”** With that, the collection of object he had hurled at us were flung at the door again, not to break it down, but rather block all exit. **“Have fun rotting away! I’m going to conquer your precious town.”**
 
 His presence retreated. Northrup and Hill breathed a collective sigh of relief. I turned, smiling broadly. “I think that went rather well, all things considered.”
 
@@ -160,15 +160,15 @@ I laughed. “If I brought Karabasan into this world, do you think I’d be hidi
 
 “I’ve done it before,” I maintained.
 
-“Unsuccessfully,” Northrup snorted, returning to his usual abrasive self. “I’m actually surprised to see you here. I’d have figured you’d be one of the first to die, you’re that incompetent.” 
+“Unsuccessfully,” Northrup snorted, returning to his usual abrasive self. “I’m actually surprised to see you here. I’d have figured you’d be one of the first to die, you’re that incompetent.”
 
 “Surprisingly, you’re almost right for once,” I responded, trying not to let my irritation show. “I almost *did* die, in fact, but I managed to escape Gadson and make it here, so clearly I’m not the totally incompetent.” Even if I didn’t quite understand what happened, it still counted, right?
 
 “Boys, don’t fight,” Hill commanded. “Now is not the time or the place. I understand you two don’t see eye to eye on things, but right now we are facing a threat beyond our comprehension. Let bygones be bygones, got it?”
 
-“Fine,” I muttered. 
+“Fine,” I muttered.
 
-Northrup only snorted in disdain. “So what *is* the plan, solider boy?” 
+Northrup only snorted in disdain. “So what *is* the plan, solider boy?”
 
 I ignored the jab. “There’s a portal in the auditorium where the demon came through. An incursion, it’s called. From what I understand, the demon is sustained by the energy flowing through. If we can fix the tear in reality, we can banish the demon. I think.” I returned to Richardson’s journal, flipping through the pages.
 
@@ -179,3 +179,5 @@ I grinned, finally finding the page I was looking for, and turned to face them. 
 &#x200B;
 
 [X](https://www.reddit.com/r/the_mysterium/comments/suq2cc/chronicles_of_jacksonville_middle_school/)
+
+The next part: [Into the breach](https://www.reddit.com/r/nosleep/comments/v6x1yv/i_am_no_longer_a_middle_school_therapist_welcome/)

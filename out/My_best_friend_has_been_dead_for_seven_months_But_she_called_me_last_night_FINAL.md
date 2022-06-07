@@ -4,8 +4,10 @@ I woke up screaming. It took a moment to realize where I was. Not at Vee’s bea
 
 I sped through my morning routine, eager to escape into the warm sunshine and fresh air. Mom had left an orange post-it note stuck to the fridge:
 
-*Don’t forget, Stephen is coming over for dinner tonight! ☺*  
-*Love,*  
+*Don’t forget, Stephen is coming over for dinner tonight! ☺*
+
+*Love,*
+
 *Mom*
 
 How could I have forgotten about it when she’d never told me in the first place? I tamped down the automatic swell of annoyance and left the apartment. It wasn’t until I was outside that I relaxed enough to mull over what we’d learned from Marlee’s phone. Colton might think otherwise, but I was certain she must have been dating a teacher at Harker. I closed my eyes, sifting through various memories. Pretty much all of our teachers had loved Marlee. Especially--
@@ -46,24 +48,38 @@ There was only one way to find out. I needed to find evidence that Mr. Cunningha
 
 Luckily, I didn’t have to think up a solution by myself.
 
-**Chloe:** I need your help  
-**Chloe:** I need some way of getting into Mr. Cunningham’s phone  
-**Chloe:** Pretty sure he’s who Marlee was dating.  
-**Colton:** ???????????????????????????????  
-**Chloe:** Think about it!  
-**Chloe:** I mean, she spent so much time with him after school  
-**Chloe:** Called him by his first name  
-**Chloe:** Talked about keeping secrets with him  
-**Chloe:** Who else could it be?!  
+**Chloe:** I need your help
+
+**Chloe:** I need some way of getting into Mr. Cunningham’s phone
+
+**Chloe:** Pretty sure he’s who Marlee was dating.
+
+**Colton:** ???????????????????????????????
+
+**Chloe:** Think about it!
+
+**Chloe:** I mean, she spent so much time with him after school
+
+**Chloe:** Called him by his first name
+
+**Chloe:** Talked about keeping secrets with him
+
+**Chloe:** Who else could it be?!
+
 **Colton:** uhhhhh I don’t know
 
 The speech bubble appeared and disappeared several times, as though Colton kept deleting and retyping whatever he meant to say. “Come on,” I muttered, tapping my fingers impatiently against my thigh as I headed towards my first class. AP Lit wasn’t until third period. “Hurry up, Colton.”
 
-**Colton:** seems like you’re jumping to conclusions again  
-**Colton:** sorry  
-**Colton:** but I’ve got ur back  
-**Colton:** what do we do?  
-**Chloe:** Still figuring that out  
+**Colton:** seems like you’re jumping to conclusions again
+
+**Colton:** sorry
+
+**Colton:** but I’ve got ur back
+
+**Colton:** what do we do?
+
+**Chloe:** Still figuring that out
+
 **Chloe:** I’ll keep you posted.
 
 \*\*\*\*
@@ -146,10 +162,14 @@ A few minutes before the lunch bell rang, I claimed a headache and slipped out o
 
 I slashed open the rear tires first, then deliberately dug my keys into the painted surface of his car. I made a series of four horizontal lines across the hood, wincing at the screech of metal against metal. Right as I finished up the last line, the lunch bell rang; there’d soon be dozens of students rushing out of classrooms and milling around nearby. I ducked behind the next row of cars and walked in a crouch until I safely reached the auditorium.
 
-**Chloe:** Done  
-**Chelsea:** OK. We’re heading over to him now.  
-**Colton:** this plan is so dumb  
-**Colton:** srsly, let’s think of something else  
+**Chloe:** Done
+
+**Chelsea:** OK. We’re heading over to him now.
+
+**Colton:** this plan is so dumb
+
+**Colton:** srsly, let’s think of something else
+
 **Chloe:** Too late
 
 I arrived at Mr. Cunningham’s classroom just in time to hear Chelsea say, sounding genuinely distraught, “You need to come right away! Someone vandalized your car!” I had to jump back from the open door to avoid getting bowled over by Mr. Cunningham as he bolted from the classroom. Colton followed closely behind him, and Chelsea trailed after them both, giving me a quick nod: *all set, go for it.*
