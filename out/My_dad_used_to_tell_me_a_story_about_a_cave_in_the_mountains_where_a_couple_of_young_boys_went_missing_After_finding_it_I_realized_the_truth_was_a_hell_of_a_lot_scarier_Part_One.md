@@ -170,3 +170,5 @@ He started off towards it. “Yeah, I see it. Wait, what’re you doing?”
 “I wanna see inside it. It’ll only take a minute, I promise.” He jogged over to it. I quickly followed after him. We both ran to the cave, noticing the eerie way it sort of got bigger the closer we came to it. When we stopped just outside the mouth, we saw that it was at least thirty or so feet long and at least twenty or thirty something feet wide. *”Enough to fit the three of us inside five times over...”*
 
 From the entrance, I couldn’t see anything inside. Not even a foot ahead of us was visible. Everything was a black, seemingly boundless hole in the mountainside. *”So dark, not even the sun could break through...”*
+
+[Next](https://www.reddit.com/r/nosleep/comments/v6j4hx/my_dad_used_to_tell_me_a_story_about_a_cave_in/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

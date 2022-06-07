@@ -1,6 +1,6 @@
 **8:31 AM**
 
-When I turned around and pressed the lock button on my keychain, I saw someone I shouldn’t have. They were sitting in the passenger seat of my car. It was right before work when I was in the parking lot. Clock-in time was thirty minutes ago, so I was in a hurry.  I jogged back, briefcase slapping against my legs, and yanked open the door.
+When I turned around and pressed the lock button on my keychain, I saw someone I shouldn’t have. They were sitting in the passenger seat of my car. It was right before work when I was in the parking lot. Clock-in time was thirty minutes ago, so I was in a hurry.  I jogged back, briefcase hitting my legs, and yanked open the door.
 
 No one was there.
 
@@ -28,7 +28,7 @@ On my way out, there was no use asking the hospital staff what day it was. The c
 
 I was in my apartment, awaiting a visitation like I was the patient. When I’d sold the house, it wasn’t to extinguish my memories of what we’d started. On the contrary, I’d needed the money to hire a priest. Not the kind that exorcises demons. Not that kind at all.
 
-Dishes were piled up so high they blocked out the window. Along with rotting food, it smelled like mothballs and incense, like the inside of a church.
+Dishes were piled up so high they blocked out the window. Along with moldering food, it smelled like mothballs and incense, like the inside of a church.
 
 The lights went out.
 
