@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/v4ov69/my_best_friend_has_been_dead_for_over_seven/), **CONTENT WARNING: SUICIDE.**
+[Part 2](https://www.reddit.com/r/nosleep/comments/v4ov69/my_best_friend_has_been_dead_for_over_seven/), [Part 3](https://www.reddit.com/r/nosleep/comments/v6vps1/my_best_friend_has_been_dead_for_seven_months_but/), **TRIGGER WARNING: SUICIDE.**
 
 It was 6 PM on a school night when my cell phone began frantically vibrating against the scarred surface of our kitchen table. I paused *Bling Empire* on my laptop and glanced down, wondering if Mom’s date with Stephen had gone badly. She’d left an hour ago, trailing behind her a cloud of Chanel No. 5 and optimism, and I didn’t expect her to return until closer to midnight.
 

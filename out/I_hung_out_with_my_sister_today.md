@@ -24,6 +24,6 @@ As we approach, she looks at me and asks “Do you remember the house we lived i
 
 I burst out into tears. I didn’t want to tell her about the article that came out in the paper a few weeks before regarding recent deaths and how the families insisted a study be done on the drinking water in our hometown. We know enough now to know that the environment was the cause of her brain cancer, but that didn’t need to weigh on her. I continued to walk into the mausoleum.
 
-I turned to the spot where she stood to tell her that my chemo was unsuccessful, and I’ve only been given a few months left, but she no longer stood there, a chill in the place she once stood.
+I turned to the spot where she stood to tell her that my chemo was unsuccessful, and I’ve only been given a few months to live, but she no longer stood there, her spot replaced with a chill. 
 
 I walk to the grave on the wall and read the engraving. “Camilla Teeter – Mother, Wife, Sister, Friend. Fighter.”
