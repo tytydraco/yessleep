@@ -1,0 +1,21 @@
+I was driving on the dirt road surrounded by big oak trees. It sucked driving over the pot holes, slamming down on my balls from it really sucked my girlfriend turned to me saying "Why did we have to go on this stupid camping trip". I tried ignoring her looking back at the GPS saying we were 5 minutes away.
+
+My girlfriend started bitching again about how she didn't want to go on the camping trip, and said we should of done something else like go to the beach. I had enough at this point I turned to her and said "We are going on this camping so get over it" my girlfriend went quite.
+
+The rest of the ride was pretty quiet and when we finally got there we got out and grabbed our crap. And when we finally got it all unloaded, but then I don't know why it felt like we weren't suppose to be there. It felt like something or someone was watching us, I brushed it off because I watch a lot of horror movies.
+
+After setting everything up I decided to get a fire started for us since it was gonna get dark pretty soon. While grabbing sticks I ended up seeing a carving on a tree, I got close to it and the carving was of a face which was crying, it was freaking me out so I got the hell out of there and back to the campsite. 
+
+I decided not to tell my girlfriend what happened and just get the fire started, but my girlfriend was no help. So I told her to get the hotdogs out and I would cook them over the fire, she went over to the cooler to grab them and when she did I heard a twig snap over by the trees I looked over but saw no one. I thought it might of been a animal and went back to starting the fire, I eventually got it started and cooked the hotdogs.
+
+After eating it got dark and I decided to tell my girlfriend a horror story knowing it would freak her out. Half way through the story my girlfriend yelled at me to stop saying I was freaking her out. I laughed until I saw ho scared she was, I told her we would go to bed which she seemed happy about.
+
+When I got in the tent I waited for my girlfriend too get in, I got a little worried when she didn't and yelled out for her. She came in but was only in her underwear doing a sexy voice as she massaged my shoulders "Babe, I don't think it's a good idea too do it here". She then stopped and yelled at me "okay then, if you don't want me then you can fuck yourself" and she got out of the tent. 
+
+"Babe, I'm sorry please come back" she walked off and yelled back "I'm sleeping in the car" I felt bad but decided I would make up with her in the morning. So I closed the tent and went to bed, I woke up in the middle of the night due too a branch snapping. I opened the tent and peaked out and what I saw scared me, a group of people wearing white robes and masks that looked exactly like the one carved on the tree.
+
+They were standing around a few holding torches chanting something, but then I heard crying coming from the circle. I tried too see who it was and when I did I froze, One of the masked men was doing sexual things to her which I don't want to say. I yelled at them and they all stopped and looked at me and the one let my girlfriend go and stood up looking at me and just pointed at me.
+
+I told them I had a gun on me which was a lie but they must of believed it because they looked at each other and whispered something to each other and then looked back at me. "Don't shoot, well give you her then leave" my girlfriend ran to me crying and hugged me, she had no clothes on but that wasn't the point. I grabbed my girlfriend and just left the stuff and got in the car and got the hell out.
+
+When we got far away I decided to find the police station and when I was my girlfriend started to cry again. I grabbed a old blanket in the back and put it around her, when we found it I went in and told them everything that happened even what they did to my girlfriend. My girlfriend eventually needed therapy over it and the police still haven't found them yet, but to all the people out there going camping please stay safe.
