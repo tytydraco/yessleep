@@ -109,3 +109,5 @@ I remembered how he stood in front of the classroom; gazing expectantly at us wi
 \*\*\*
 
 I need to stop right here. Recalling these events has been so draining. I promise that I will continue. Once I get some sleep.
+
+[Part 2](https://www.reddit.com/user/cgstories/comments/v6ggfa/odd_pete_part_2/)
