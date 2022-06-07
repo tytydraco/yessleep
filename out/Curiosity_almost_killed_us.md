@@ -1,4 +1,4 @@
-
+  
 
 Have you ever felt that life is boring? We are always curious about things around us even if it is extremely dangerous. Me too this story happened a long time ago, but I still vividly remember that fateful day when we were so curious and then it almost took our lives. It was on a normal day at school, we were preparing for the upcoming summer vacation, me and 3 friends Celia, Jack, and Jimmy.
 
@@ -156,8 +156,8 @@ As soon as the story was spread to the press and the media quickly reported it, 
 
 After we got home, Dad ran out and hugged me tightly and told me not to do that next time. My father is a doctor, he often comes home late because of complicated surgeries. But then I realized he had given first aid to the wound on his thigh, then he told me there was work in the basement and told me not to go down there, I could only obey and tell him:
 
-"Dad should clean the basement, it smell so bad, it's like you always going to the toilet down there"
+"You should clean the basement, it smell so bad, it's like you always go to the toilet down there"
 
-He just laughed and said he would do so while going down to the basement, it seems I don't become curious anymore after all that .
+He just laughed and said he would do so while going down to the basement, it seems I don't become curious anymore after all I've seen 
 
 I can hear him mumbling something about Celia
