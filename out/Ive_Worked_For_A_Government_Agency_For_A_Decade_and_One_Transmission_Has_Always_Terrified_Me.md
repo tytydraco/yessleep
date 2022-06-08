@@ -322,7 +322,7 @@ Beep
 
 The static and noises then died down almost entirely. Dr. Howe's eyes became wide and he stood there as if he was in a trance. I looked over at him and grabbed his shoulder to snap him out of it.
 
-"Dr. Howe?" I tried to shake his shoulder, but he didn't take his eyes away from the disk. "Dr. Howe, what did they say?" 
+"Dr. Howe?" I tried to shake his shoulder, but he didn't take his eyes away from the disk. "Dr. Howe, what did they say?"
 
 He didn't budge...it was like he saw Death himself and he was staring him in the face. I got in front of him and started to shake him vigorously before giving him a light slap across his cheek.
 
@@ -332,7 +332,7 @@ He slowly took his eyes off the disk and looked at me; his face had gone pale wi
 
 "They said 'will use lethal force." He then turned his gaze back onto the disk. His eyes looked hopeless.
 
-I told the other two to get HQ on the phone and tell them we had a major situation on our hands, but apparently, they had already been aware. They told us how they found multiple pings on the coordinates where the first ship was located. They were looking at about twenty ships on the radar; the cameras on the satellites looked like something out of a sci-fi movie. 
+I told the other two to get HQ on the phone and tell them we had a major situation on our hands, but apparently, they had already been aware. They told us how they found multiple pings on the coordinates where the first ship was located. They were looking at about twenty ships on the radar; the cameras on the satellites looked like something out of a sci-fi movie.
 
 Just then the disk emitted a loud crackle of static and its final sequence started to play.
 
@@ -370,7 +370,7 @@ Four beeps
 
 \*Pause\*
 
-Three hums 
+Three hums
 
 \*Pause\*
 
@@ -390,7 +390,7 @@ Beep
 
 Three beeps
 
-Out of nowhere, Dr. Howe started to scramble quickly for the incubator. I grabbed his arm in an attempt to stop him, but he just shoved it off forcefully. 
+Out of nowhere, Dr. Howe started to scramble quickly for the incubator. I grabbed his arm in an attempt to stop him, but he just shoved it off forcefully.
 
 "What? What did you decipher?!" I started to panic seeing him so frantic.
 
@@ -402,23 +402,23 @@ As we approached the drop-off point the disk started to buzz and hum the closer 
 
 "Doctors, do you have the items in question?" He asked in a deep tone; his voice sounding like he chain-smoked often.
 
-"Yes, they're just in the backseat." Dr. Howe quickly replied, still visibly shaken up. 
+"Yes, they're just in the backseat." Dr. Howe quickly replied, still visibly shaken up.
 
 The man then had his other two peers collect the incubator and disk, and put them right into the exact spot we retrieved them from. Dr. Howe then approached the disk and started to speak.
 
 "We have your child." Dr. Howe said as he stared at the disk.
 
-The disk started to glow and hum and all of a sudden the light grew brighter and brighter. It was almost like seeing a miniature sun; it was so bright that it almost hurt to look at. Dr. Howe immediately backed away from it, his head looking up to where the light was headed and that's when I felt my jaw drop. 
+The disk started to glow and hum and all of a sudden the light grew brighter and brighter. It was almost like seeing a miniature sun; it was so bright that it almost hurt to look at. Dr. Howe immediately backed away from it, his head looking up to where the light was headed and that's when I felt my jaw drop.
 
-I saw the same triangular ship from the cameras, but around it was a fleet of ships that looked pretty much identical. The main one started to hover a bit lower to the ground; I could see just how large it was. My stomach started to drop as if I looked up at a skyscraper, and I could see the intricate design of the bottom. 
+I saw the same triangular ship from the cameras, but around it was a fleet of ships that looked pretty much identical. The main one started to hover a bit lower to the ground; I could see just how large it was. My stomach started to drop as if I looked up at a skyscraper, and I could see the intricate design of the bottom.
 
-The bottom of the ship had these designs that looked like ancient runes and the circuitry looked way beyond human understanding. It had these huge bulbous spheres which I assumed had to act as a windshield to look out of. The middle of the ship started to open and all I could hear was this loud horn; it almost resembled the sound of an AC-130 machine gun from up close. It was almost ear-splitting, but I didn't care as I saw the pod and disk instantly start to rise into the opening. 
+The bottom of the ship had these designs that looked like ancient runes and the circuitry looked way beyond human understanding. It had these huge bulbous spheres which I assumed had to act as a windshield to look out of. The middle of the ship started to open and all I could hear was this loud horn; it almost resembled the sound of an AC-130 machine gun from up close. It was almost ear-splitting, but I didn't care as I saw the pod and disk instantly start to rise into the opening.
 
-I watched it rise higher and higher until it nearly vanished from my vision, and just as quickly as they arrived...the ships instantly vanished. I could feel my body shake with fear; seeing a fleet of alien ships ready to destroy Earth if they didn't get their baby back really puts things in perspective for you. I got escorted back to my apartment by the agents and as soon as I closed the door, I immediately sunk to the floor. 
+I watched it rise higher and higher until it nearly vanished from my vision, and just as quickly as they arrived...the ships instantly vanished. I could feel my body shake with fear; seeing a fleet of alien ships ready to destroy Earth if they didn't get their baby back really puts things in perspective for you. I got escorted back to my apartment by the agents and as soon as I closed the door, I immediately sunk to the floor.
 
-I decided to go AWOL the next morning. I cleared out all the files on my devices and sorted them into flash drives and started to pack light. I just couldn't do it anymore; I couldn't deal with the fact that we were meddling in shit we didn't understand at all and knowing that I could die meddling with affairs like that and take the whole world with me made me sick to my stomach. 
+I decided to go AWOL the next morning. I cleared out all the files on my devices and sorted them into flash drives and started to pack light. I just couldn't do it anymore; I couldn't deal with the fact that we were meddling in shit we didn't understand at all and knowing that I could die meddling with affairs like that and take the whole world with me made me sick to my stomach.
 
-I can't give away my location, but I'm safe for the time being. I know it's only a matter of time before I get terminated and my death gets ruled as a suicide, so I took to handle my affairs. The only thing I could honestly tell you is that there's no coincidence that the government confirmed alien life existed after that day. We were too close for comfort, so I can see weapons being developed in the scenario we do have an intergalactic war one day. They just want us to be more comfortable with it, like sheep with a shepherd. 
+I can't give away my location, but I'm safe for the time being. I know it's only a matter of time before I get terminated and my death gets ruled as a suicide, so I took that time to handle my affairs. The only thing I could honestly tell you is that there's no coincidence that the government confirmed alien life existed after that day. We were too close for comfort, so I can see weapons being developed in the scenario we do have an intergalactic war one day. They just want us to be more comfortable with it, like sheep with a shepherd.
 
 Before I leave I just wanted to provide you all with some thoughts.
 
