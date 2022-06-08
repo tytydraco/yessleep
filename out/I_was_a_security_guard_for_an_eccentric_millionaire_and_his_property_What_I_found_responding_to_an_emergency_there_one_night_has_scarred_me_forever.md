@@ -64,23 +64,23 @@ The landing of the second foot on the other side of the wall when I reached it w
 
  I fell off. Something solid stopped my fall mid center of my back and threw me upwards again. I turned over to see that I had landed in a tree. A thick but pliable branch softened my fall. I hung there for a minute before working up the nerve to let go.
 
-I landed on the dewy green turf eight feet below. I ducked behind a row of trimmed hedges and followed it until. 
+I landed on the dewy green turf eight feet below. I ducked behind a row of trimmed hedges and followed it.
 
 I went to the front door made from ivory stone. I tried to use the master key to open it without success.
 
- I found a window leading down to a basement. I pushed it to see if the latch on the other side was keeping it in place, and my suspicion proved correct. 
+I found a window leading down to a basement. I pushed it to see if the latch on the other side was keeping it in place, and my suspicion proved correct. 
 
 Walking over a few feet to an area with a dead miniature garden, I picked up a rock and began smashing at the pane.
 
- When it shattered, I swept away some of the sharp flakes and crawled into the basement.
+When it shattered, I swept away some of the sharp flakes and crawled into the basement.
 
 I looked around before reaching for the flashlight at my side in its holder on my belt. I illuminated the area.
 
- I thought I saw a human face. Upon closer inspection I learned it was a mannequin. With each step, all I could see were the wax figurines, male and female. Their mouths were agape or their eyes closed. Some disfigured or melted or painted. Illustrations of demonic faces covered their expressions.
+I thought I saw a human face. Upon closer inspection I learned it was a mannequin. With each step, all I could see were the wax figurines, male and female. Their mouths were agape or their eyes closed. Some disfigured or melted or painted. Illustrations of demonic faces covered their expressions.
 
- One of the figurines was metallic with black lines resembling human veins. Another line of them had different types of grey stocking caps. The hats covered up single braids which flowed downwards. Some had clown faces with elongated red lipstick, and purplish eye liner. Hacked and melted dummy parts were on the floor.
+One of the figurines was metallic with black lines resembling human veins. Another line of them had different types of grey stocking caps. The hats covered up single braids which flowed downwards. Some had clown faces with elongated red lipstick, and purplish eye liner. Hacked and melted dummy parts were on the floor.
 
- I searched the quarter for any and every secret I could. There were no closets. I felt the walls looking for a door knob. 
+I searched the quarter for any and every secret I could. There were no closets. I felt the walls looking for a door knob. 
 
 I walked up a spiral staircase towards the next room. That chamber was especially small, and the floor sapphire colored. There was a scattered miscellany of strange devices. There were telescopes facing the windows. Pendulum clocks built out of fossil hung on crooked shelves. 
 
@@ -90,17 +90,17 @@ One segment of the area was nothing but thin strings. I pulled on one out of she
 
 A cascade of puppets fell from the ceiling. A jester, king, witch, archangel, grim reaper and hangman. They all flew down from the top, their paper outlines emphasized in the bright gloss of the room. Their crowns, brooms, death masks and nooses swayed against each other as they landed into one another mid-air.
 
- One of the mantelpieces contained a line of palm sized Hundred Years’ War type cannons. The idea of using a lit match to see if they shot pellets seemed like a good one, before I decided otherwise.
+One of the mantelpieces contained a line of palm sized Hundred Years’ War type cannons. The idea of using a lit match to see if they shot pellets seemed like a good one, before I decided otherwise.
 
- The overstuffed space was pressing in on me. I used a door beside a globe to enter the next corridor. This one was more bizarre than the last. For a second I felt like jumping out the window to get out of the infernal place. I began investigating what the contents in the room actually meant.
+The overstuffed space was pressing in on me. I used a door beside a globe to enter the next corridor. This one was more bizarre than the last. For a second I felt like jumping out the window to get out of the infernal place. I began investigating what the contents in the room actually meant.
 
- It was a film set. There were masks of all kinds. Marine knives were in the darkness of that clearance. I touched the edge of one to see if it was real or fake, and I proved them to be authentic.
+It was a film set. There were masks of all kinds. Marine knives were in the darkness of that clearance. I touched the edge of one to see if it was real or fake, and I proved them to be authentic.
 
 I looked at one of the corners and found a half empty tin canister of a burnt looking film reel. There was a projector next to it. 
 
 Across from that equipment, there was a tank full of what I hoped was nothing more than artificial blood. I pressed my hand against the glass. I pulled out my phone and took a picture of this thing and noticed a button at the bottom of the large glass edifice.
 
- A velvet polluted stream of fluid began flowing out. At first it splashed my legs. I soon slipped and fell. 
+A velvet polluted stream of fluid began flowing out. At first it splashed my legs. I soon slipped and fell. 
 
 I slid backwards, carried by a river of crimson. The fake blood drifted me against the other edge of the room. I smashed through the Cathedral-like window and plummeted downwards.
 
@@ -108,27 +108,25 @@ I landed on the right side of my body, hoping there was no fracture. I stood and
 
 I was in the main foyer of the house, and marveled at how elegant it was. It was Victorian yet machine-like. There were two flights of black rock steps leading up to a new set of bedrooms. 
 
- There was a giant mural between the two staircases. It was a portrait of a female’s corpse stenciled out on the ground in clean white chalk. On either side of her outline were child-like drawings of trees. 
+There was a giant mural between the two staircases. It was a portrait of a female’s corpse stenciled out on the ground in clean white chalk. On either side of her outline were child-like drawings of trees. 
 
 I smelled my hand to see if the red fluid was blood. The iron copper stench was not there, but instead one of corn syrup and food dye.
 
 I walked up the flight of steps to the left and entered another chamber. It was a computer room.
 
- A tuxedo was in a glass case against the right wall. It was discarded movie memorabilia from one of the former actors on the set.
+A tuxedo was in a glass case against the right wall. It was discarded movie memorabilia from one of the former actors on the set.
 
 The place across the way had nothing in it except one golden wall with a sunset painted on it. The carpet was a midnight blue. There was a row of candles along a foreign rug like it was a spiritual shrine. I looked around and saw one fake scroll which was blank and held together with a clean looking red ribbon. I closed the doorway and moved on. 
 
 There were three other chambers accessible from the main hall that I had fallen into. One was a dark room for photography, although no pictures were in it. The place glowed red.
 
- The second was a room with pictures of classic cars from the forties and fifties. Two portraits hung in the center. One was of Elvis Presley. The second was of the serial killer Charlie Starkweather.
+The second was a room with pictures of classic cars from the forties and fifties. Two portraits hung in the center. One was of Elvis Presley. The second was of the serial killer Charlie Starkweather.
 
 The third room was the most normal. Two bookshelves held nothing but seedy, sensationalist titles.   
-
 
 I used the emergency master key to gain access to entryways leading up to the top floor. I discovered that it worked on most of the interior passageways. 
 
 I passed rows of stuffed Saharan animals. A smell of carbolic acid and spoiled meat greeted me.   
-
 
 On the second and third floor, I began noticing a trend in the taxidermy collection. Crows were all around. Their eyes were missing, their beaks warped, and their feathers plucked. 
 
@@ -142,14 +140,13 @@ The place was in the shape of a triangle. Near the pointed end was another chamb
 
 I heard the scream again.   
 
-
 I busted down the door with a kick. In front of me was a circle of black candles. Half of them were lit. 
 
 What I saw on the other side makes me weep whenever I remember it. 
 
 It was a Sergeant I had served with. Though he and I were not close or in the same unit, I recognized and knew of his reputation. His name was James Mantel. He was a prolific hunter of insurgents in the Alishang district of the Lagham province.  He was dead and had been for a long while.
 
-Someone mounted Mantel on the wall. His arms were  folded across his chest in the same sacred way bodies are in open-casket ceremonies. 
+Someone mounted Mantel on the wall. His arms were folded across his chest in the same sacred way bodies are in open-casket ceremonies. 
 
 My mind began racing. Someone had to have desecrated his body in bringing him there. 
 
@@ -163,19 +160,19 @@ It was a grimoire. The pages evolved into a host of different spell-casting inst
 
 The lengthiest enchantment was for everlasting bravery. The requirements were four things. A full moon, a circle of black candles, a chalice of water with added salt, and two spoonfuls of vervain. 
 
-'Stir  the contents with a wedge of wood,' the directions instructed, 'and  pour the concoction over the cadaver of a brave warrior.'
+'Stir  the contents with a wedge of wood,' the directions instructed, 'and pour the concoction over the cadaver of a brave warrior.'
 
-The writer was Basile. He had a sick delusion of performing feats of necromancy and to chase away his own cowardice. The spell required equal parts the lifelessness and preservation of someone valiant. 
+The writer was Basile. He had a sick delusion of performing feats of necromancy meant to chase away his own cowardice. The spell required equal parts the lifelessness and preservation of someone valiant. 
 
 There was a page describing how Basile had attained the body of the man from Calderon cemetery. He bribed the groundskeeper with enough money to make the sentinels look the other way. 
 
 Basile stole the valor of departed veterans. 
 
-Anger  coursed through me. I stood up and stuffed the journal on the inside  pocket of my jacket, turning around to look at my friend once more. Then, I heard the shuffling of feet down the hallway to my right. 
+Anger coursed through me. I stood up and stuffed the journal on the inside  pocket of my jacket, turning around to look at my friend once more. Then, I heard the shuffling of feet down the hallway to my right. 
 
 I drew my gun and scaled the wall after walking outside, before coming to another threshold. I gazed around the corner while making as little noise as possible, and I saw Basile.
 
-The old man had a row of dead crows on a silvery metallic board. Next to him was a voluminous countertop. There was a row of pin pushers, bone cutters, scissor forceps, combination tools. Many black feathers were at his feet. 
+The old man had a row of dead crows on a silvery metallic board. Next to him was a voluminous countertop. There was a row of pin pushers, bone cutters, scissor forceps, and combination tools. Many black feathers were at his feet. 
 
 I aimed the gun at him while approaching. Basile saw me and his eyes widened. He knocked his counter over, chucking a knife at me. The blade missed and clattered to the ground. I squeezed the trigger, and the bullet hit Basile in the right shoulder. He grunted in pain, hit the earth, and soon regained balance. He ran and I tackled him.
 

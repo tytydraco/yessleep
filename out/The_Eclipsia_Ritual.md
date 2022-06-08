@@ -16,14 +16,13 @@ It didn't tell me where they were migrating to.
 
 My past may seem fabricated to your eyes, but reality is relative.
 
-I will describe the memories housed in the shrine honoring those lost to the Ritual. Believe them to be fictional, or not, but heed my warning against committing this Ritual.   
-
+I will describe the memories housed in the shrine honoring those lost to the Ritual. Believe them to be fictional, or not, but heed my warning against committing this Ritual. 
 
 The memories are from the eyes of each victim.
 
 Case #1: Amaya
 
-\[Amaya appears to have had already commenced the meditation before the start of this memory.\] 
+\[Amaya appears to have had already commenced the meditation before the start of this memory.\]
 
 *The vision from the memory is black for three minutes until light floods the entire view. A figure crouches in the middle of the light but only its silhouette is visible. The light dims, and the figure's features are clearer. The figure's features are impossible to describe as they phase in and out.* 
 
@@ -81,7 +80,7 @@ Amaya's cause of death is listed as a heart attack.
 
 Case #2: Sierra 
 
-\[Sierra appears to have had already commenced the meditation before the start of this memory.\] 
+\[Sierra appears to have had already commenced the meditation before the start of this memory.\]
 
 *The vision from the memory is black for five minutes until light floods the entire view. A figure crouches in the middle of the light but only its silhouette is visible.* 
 
@@ -117,8 +116,7 @@ Sierra: ...You can't bring my sister back?
 
 Figure: I have waited far too long for my peace. I cannot give up this chance.
 
-Sierra: What do you mean?  
-
+Sierra: What do you mean?
 
 Figure: Only a pure soul may be deified.
 
@@ -182,34 +180,25 @@ I wonder if it was worth it. I only asked for immortality to warn others of the 
 
 But I'm so tired now.
 
-I see why the first Deity, Eclipse, saw death as freedom. Is it not a respite from this hellish reality?  
-
+I see why the first Deity, Eclipse, saw death as freedom. Is it not a respite from this hellish reality?
 
 Of course, reality is relative, so you may not think similarly.
 
-But I do.  
+But I do.
 
+I saw with my own eyes how much the Deity suffers. I've seen those rotting blossoms crawl out of her eyesockets. I've seen the clots splay outside her white veins.
 
-I saw with my own eyes how much the Deity suffers. I've seen those rotting blossoms crawl out of her eyesockets. I've seen the clots splay outside her white veins.  
+Being a god was never a gift, never something to be celebrated. Or maybe it is; maybe gods above us all laugh and bath in righteous glory, but not the Deity. Maybe this is punishment for the murder of Eclipse from so long ago. 
 
+But this, is this not punishment enough? For crimes from so long ago? Was it long ago? I don't know, immortality blurred reality. 
 
-Being a god was never a gift, never something to be celebrated. Or maybe it is; maybe gods above us all laugh and bath in righteous glory, but not the Deity. Maybe this is punishment for the murder of Eclipse from so long ago.   
+I think I released a spell one day to remove everyone's memory of the Eclipsia Ritual, and with it any memories of me, Sierra, Amaya, Eclipse and any other soul lost to the Ritual. They no longer know me as Qiana, but as the Sorceress. I compelled them to move elsewhere- did I? I don't know. What's the time? I- how long have I been here typing? Why am I typing anyway?
 
+...Oh. Of course. I was documenting the Eclipsia Ritual. 
 
-But this, is this not punishment enough? For crimes from so long ago? Was it long ago? I don't know, immortality blurred reality.   
+This will be the last document about it, I have destroyed all other traces of it. Believe it fiction, or not, but the Eclipsia Ritual dies with me one way or the other. 
 
-
-I think I released a spell one day to remove everyone's memory of the Eclipsia Ritual, and with it any memories of me, Sierra, Amaya, Eclipse and any other soul lost to the Ritual. They no longer know me as Qiana, but as the Sorceress. I compelled them to move elsewhere- did I? I don't know. What's the time? I- how long have I been here typing? Why am I typing anyway?  
-
-
-...Oh. Of course. I was documenting the Eclipsia Ritual.   
-
-
-This will be the last document about it, I have destroyed all other traces of it. Believe it fiction, or not, but the Eclipsia Ritual dies with me one way or the other.   
-
-
-Do your part, I beg of you. Don't ever let anyone else complete the Ritual. I'll do my part, erasing everyone who have already completed it.  
-
+Do your part, I beg of you. Don't ever let anyone else complete the Ritual. I'll do my part, erasing everyone who has already completed it.
 
 I'm prepping to complete the ritual one last time. I'm going to meet Sierra, or whichever soul was forced into deification after her. I'm going to ask for one more wish.
 
