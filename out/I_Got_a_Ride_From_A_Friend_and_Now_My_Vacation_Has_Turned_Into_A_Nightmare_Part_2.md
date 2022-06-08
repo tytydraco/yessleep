@@ -1,4 +1,4 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/uwtzx2/i_got_a_ride_from_a_friend_and_now_my_vacation/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/uwtzx2/i_got_a_ride_from_a_friend_and_now_my_vacation/)
 
 I wish I could tell you that things have gotten better. I wish I could say that, since the time I last wrote, I’ve managed to escape from all this and only Seth’s house will haunt my mind. The unfortunate truth though, is that I haven’t gotten free since that last post, and it’s apt to say that I might never be.
 
@@ -92,7 +92,7 @@ We got out of the car and Gil motioned for us to start walking in the direction 
 
 &#x200B;
 
-“Don’t ask a question when you already know the answer.” A confirmation granted without truly being given. Fueled by morbid determinism, I followed after Gil. 
+“Don’t ask a question when you already know the answer.” A confirmation granted without truly being given. Fueled by morbid determinism, I followed after Gil.
 
 &#x200B;
 
@@ -152,7 +152,7 @@ Les’s eyes lit up upon hearing Gil’s words, though their attentions remained
 
 &#x200B;
 
-“It’s Kate!” He burst out with clumsy excitement and slid the porcelain figure closer to where I now sat. 
+“It’s Kate!” He burst out with clumsy excitement and slid the porcelain figure closer to where I now sat.
 
 &#x200B;
 
@@ -205,3 +205,7 @@ It was that thought that brought me to the morbid realization. The sudden onset 
 &#x200B;
 
 Kate, if you ever read this, I’m sorry for how I’ve come to remember you.
+
+&#x200B;
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/v7qtkc/i_got_a_ride_from_a_friend_and_now_my_vacation/)
