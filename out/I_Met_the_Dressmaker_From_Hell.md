@@ -419,7 +419,7 @@ These questions will never be something I'll find the answer to. I don't have mu
 I'm no longer afraid. Telling my story has come to set me at ease with my fate. The pain has faded to numbness. I'm already at peace, knowing this will all be over shortly.
 
 
-One final time, I must beg of you: do not fall for this demon's tricks and trap. Don't fall for his disguise as harmless, he's anything but that. Should you be invited to a place by a tall man with a scarred neck, don't speak to him and run away as fast as you can. I figured out once you engage, these monsters can plant false memories. I never knew this shop, in fact, it never was here before I was invited. And if you fall for their ticks… then may Lord have mercy on your soul. I met the Dressmaker from Hell, I hope you never do.
+One final time, I must beg of you: do not fall for this demon's tricks and trap. Don't fall for his disguise as harmless, he's anything but that. Should you be invited to a place by a tall man with a scarred neck, don't speak to him and run away as fast as you can. I figured out once you engage, these monsters can plant false memories. I never knew this shop, in fact, it never was here before I was invited. And if you fall for their tricks… then may Lord have mercy on your soul. I met the Dressmaker from Hell, I hope you never do.
 
 
 Clack! Clack! Clack!
