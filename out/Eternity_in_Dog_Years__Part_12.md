@@ -440,6 +440,8 @@ The car took a sharp left, bouncing over unpaved roads, and I winced as I bumped
 
 Wayne.
 
+**Part 1** - [Part 2](https://www.reddit.com/r/nosleep/comments/v8222r/eternity_in_dog_years_part_22/)
+
 [Previously](https://www.reddit.com/r/SkittishReflections/comments/v75ft7/eternity_trilogy/)
 
 \-----
