@@ -162,7 +162,7 @@ I can't believe any of his words. This feels like a dream. A nightmare.
 
 &#x200B;
 
-"And of course, I had to agree. I didn't want to die. I wanted to live my life, I was just too young to die. So when you were sleeping I drugged your tea so that you'd be unconscious for a few more hours. Then I told him to come to our house. And when he did, I was scared shitless. Do you think I wanted to watch him kill you?"
+"And of course, I had to agree. I didn't want to die. I wanted to live my life, I was just too young to die. So when you were sleeping I drugged you so that you'd be unconscious for a few more hours. Then I told him to come to the lab. And when he did, I was scared shitless. Do you think I wanted to watch him kill you?"
 
 &#x200B;
 

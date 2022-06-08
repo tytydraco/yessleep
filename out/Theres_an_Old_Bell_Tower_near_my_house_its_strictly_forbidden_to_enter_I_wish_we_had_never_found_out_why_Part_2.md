@@ -282,3 +282,5 @@ I looked into his glowing yellow serpentine eyes and shivered.
 He slowly lifted his finger to his mouth and smiled.
 
 'Shhhhhh'.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/v7us06/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
