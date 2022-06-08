@@ -1,0 +1,18 @@
+  
+
+First-ever post on Reddit for me, first of all, I am from Mexico, and English it’s my second language, explaining just in case I don’t phrase something correctly.  
+ 
+
+Anyway, I am currently 21 years old, back then I was around 14 or 13, my parents were not at home since they went on a visit to my grandma’s house (I was at that age where I would really get bored, so they allowed me to stay, regardless of my mother sometimes being overprotective of me), went to my room with headphones on and started watching some videos, when I started to hear a peculiar sound, a knocking sound, I knew this knocking sound, it was the sound of a glass or cup, or mug, or something being placed on our kitchen counter, I took of my headphones to hear better, and again, the same knocking sound, I thought maybe my parents came back and I didn’t hear the car or the electric door at the entrance, when I stepped out of my room and checked, nothing, everything was exactly how it should, but I felt an…off sensation, like something was not okay, when I turned my back on the kitchen I felt, fear, that fear you have when you are about to crash your car and for a few seconds you know there is nothing you can do.  
+
+
+I froze in place, and when I was able to move I ran to my room, locked the door and nervously stared at my phone, it didn’t end at that, I started seeing something, watching me on my bed, a blurry figure at the corner of my eye, watching from a hole above the door, where there used to be a ventilation duct, whatever was lurking, it had to be tall, tall enough to be peeking its head above the doorframe, I thought that maybe if I pretended I was not seeing it, it would go… But far from it.   
+
+
+Now that I think about it, I think it pissed him off, since I heard the knocking again, just louder, angrier … I tried my best to keep composure and pretend I didn’t hear, but then, something started tapping at my window, so I ran from my room to the living room, I took a wooden sword I had, my dad had carved it for me when I was little, and I faced the entrance in fear… the noise ceased, I had a few moments of calm, before I saw it, in front of me I saw what it looked like a man, wearing a jacket and some sort of hat, it looked like the silhouette from one of those western cowboy movies, only, black, he seemed to be made out of thick black color, his clothes, his skin, I couldn’t see any features, somehow my body reacted alone aggressively, I closed my eyes and I bashed him with the sword, when I opened them, he wasn’t there anymore, it was like I took a swing at the air…  
+
+
+ Then it started again, tapping, then banging on the windows, just this time, it wasn’t my bedroom, it was the whole house, I started to cry, I didn’t know what to do, so I ran outside, at least there I had my dog with me, she was a Labrador mix, it really calmed me down to just pet her, I called my mom still sobbing and explained, my dad who heard me over the phone mocked me, but mom knew I wasn’t a crybaby, and it really was odd for me to behave that way, while on the phone…my dog started to bark, which wasn’t uncommon, but…she was barking at the house door, she put herself between me and the door in a protective manner, barking and growling, when my parents arrived they just believed me because the dog was still like that for a while.  
+ 
+
+So that’s it, we still talk about it from time to time, there are other anecdotes, but this one is the first to leave a long-lasting impression on me since I have heard things or felt something odd, but never just straight up seeing something like that.
