@@ -180,7 +180,7 @@ Relief flooded my body in a cool, soothing wave. I was safe now. I emitted a sho
 
 *That did* not *really happen*, the logical center of my mind spoke up, reasserting itself, trying to rationalize what I had just experienced. *None of that really happened. It was all in your head, a paranoid hallucination. It* had *to be.*
 
-I was all too happy to quickly agree with that voice. I had let my imagination get the best of me. After all, it wasn't as if I had actually *seen* anything.
+I was all too happy to quickly agree with that voice. I had let my imagination get carried away, that was all. After all, it wasn't as if I had actually *seen* anything.
 
 But, just to be safe, I decided I wasn't going to set foot back down into the basement ever again. And I  would keep the door locked the rest of my stay.
 
@@ -272,6 +272,6 @@ I did some research on the house, looking into its history and its previous owne
 
 My parents still live there, and nothing out of the ordinary has ever happened to them, as far as I'm aware of. But I still feel guilty that I never told them what I experienced in that house. I feel like I have an obligation to warn them, but it's not like they'd believe me anyway.
 
-You see, a couple weeks after my parents got back from Florida, I was doing some cleaning in my apartment on my day off. I was digging my dirty laundry out of the closet (I'm guess I'm pretty lazy when it comes to housekeeping and it had really piled up) and I came upon the shirt I had been wearing that night. I had tossed it into the closet the next day after moving in and hadn't washed it since. As I was putting it in my laundry bag I noticed something and took a closer look.
+You see, a couple weeks after my parents got back from Florida, I was doing some cleaning in my apartment on my day off. I was digging my dirty laundry out of the closet (I guess I'm pretty lazy when it comes to housekeeping and it had really piled up) and I came upon the shirt I had been wearing that night. I had tossed it into the closet the next day after moving in and hadn't washed it since. As I was putting it in my laundry bag I noticed something and took a closer look.
 
 There were four thin slashes in the back of the shirt. Slashes that looked like they'd been made by claws.
