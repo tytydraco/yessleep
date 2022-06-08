@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/v7x6l7/the_only_warning_about_pendle_hill_part_2/?utm_medium=android_app&utm_source=share)
+
 All my life, I’ve been warned about Pendle Hill. Specifically, to always make sure you’re elsewhere on 31st October at witching hour. Around here, it's midnight, the creepiest time of day. Nobody ever explained why; it’s almost as if they wanted to tempt people into looking… Maybe a decent warning would have kept people away. Maybe if I’d known what was lingering there, I wouldn’t have gone myself. Maybe if I’d known, I could have stopped everything before it happened. Obviously, I didn’t stop it. I actually made it happen, or I wouldn’t be here warning you. 
 
 My name is Kai, I’m a standard 25 year old dumbass of a man, and I just couldn’t keep myself from finding out what was supposedly happening every Halloween. To clarify, this all happened two years ago, I’m trying to stop what I’ve unleashed, and warning everyone to stay away should I stop it, so it doesn’t happen again. Let me start from the beginning, and I’ll explain what’s been happening since I scaled Pendle Hill two years ago. 
@@ -17,3 +19,5 @@ As the clock approached 11pm, I finally reached the top; I could hear whispering
 I could feel her invading my head, filling it with fear. Her. She is the reason everyone avoids Pendle Hill, she induces fear in anyone who comes near. I turned around and fled, but the feeling of her staring at me never left. If anything, it intensified, even though none of them moved or chased me back down. Once I reached the bottom, I jumped in my car and went home, vowing never to return, and to warn everyone away. But as you can probably guess, that didn’t happen. 
 
 Because when I walked into my bedroom, there was a grimoire sitting on my bed. I opened it and found a note that read: “Next year, be prepared. I won’t allow you to run away so easily next time.”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/v7x6l7/the_only_warning_about_pendle_hill_part_2/?utm_medium=android_app&utm_source=share)

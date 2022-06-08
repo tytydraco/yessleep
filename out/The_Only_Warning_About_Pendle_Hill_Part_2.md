@@ -1,0 +1,36 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/v12stj/the_only_warning_about_pendle_hill_part_1/?utm_medium=android_app&utm_source=share)
+
+It was around 2am when I had gotten home and seen this grimoire on my bed. I immediately went into panic mode - had someone broken in? Lorenzo, my best mate, he's the only one who has a key to my house. Maybe it was a prank? I'd better check just in case.
+
+I checked the lock on the front door - that was fine. No scratches near the lock, no broken wood, nothing. Back door was the same. I went round and checked the living room, kitchen, bathroom and bedroom windows - everything was fine. All locked tight, with no signs of someone breaking in. Nothing was out of place, nothing indicated that anyone had been here while I was away. Maybe Lorenzo really was just playing a trick on me, trying to spook me because he knew that I was going to Pendle Hill this year? I mean… this did look like some creepy shit that his Historical Club would dig up.
+
+I grabbed my phone, and sent him a text. "Hey, man. Did you do this? Not funny leaving some dusty old book on my bed. Gave me a good scare about someone breaking in for 10 minutes though!" It seems like something he'd do. He always tries to make me stop doing dumb stuff.
+
+I opened it up to see what book he'd actually used this time, only to realise I couldn't read most of it. It was written in this funny language, looked real weird. The pictures (Diagrams? Charts?) inside were weird too, all drawn and written in this ink I've never seen before. It had this kind of reddish tint to it? Like when you get a nosebleed and it smears on your work. The first few pages didn't have much on them, just a few lines of text, where further in, the pages were filled with text. It all looked handwritten too, there were several different styles of writing, like more than one person had written this.
+
+The first page was the only page written in plain English. It read: "To access your power, follow this meditation. Get comfortable, and close your eyes. Take deep breaths in, and focus on clearing your mind. Thoughts will pass through - acknowledge them, and then let them move on. After a short period of time, an overwhelming calm sensation will come over you. Once that happens, you reach out in your mind, and imagine pulling a thread of brightly coloured light towards you. Keep pulling until you feel your power rising."
+
+What was this?! Some self help book? Maybe this wasn't a prank after all. Maybe those witches I saw last night were real and have followed me here. I suddenly didn't feel alone anymore. I did another lap of the house and checked everything was still locked tight - all locked, nothing moved. The fear that I was being watched didn't go though. Just like last night, only muted. I was clearly just over tired. It was 2:30am after all.
+
+I sat down and decided to try out the meditation, if anything, it would get my mind off everything around me. Plus, I was kinda curious to see if this was real, if the witches could have actually put this here. I sat down on my bed and closed my eyes. Now what? Oh yeah, I've to stop thinking. That's more than a little hard, given all humans do is think. This is bullshit… right yeah, gotta not think.
+
+That was my train of thought for the next half an hour or so, until it happened. Euphoric, and almost tear jerking calmness settled over me! I had followed the meditation right. Now time to imagine this thread of brightly coloured light. I pictured a shooting star - bright white, blue, purple and green light - moving its way slowly towards me, my hand outstretched to receive it. It took around 30 seconds for it to reach me in my head, but once it touched my hand, something surged through me. It was like getting an electric shock. Then I felt fully awake and like I could do anything, climb a mountain, destroy my rivals, fight off a crowd… I felt so strong. My eyes snapped open at that feeling - I had to see if anything had changed!
+
+But no. I was still the same scrawny 25 year old that could never build any muscle. Oh well. I turned back to the book, and looked at the second page. It had only a few lines of text on it, the first read: spiritus accende, with a candle drawn next to it. I grabbed a few candles and placed them on my bedside table, then did the stupid thing and read it aloud.
+
+"Spirit-us a-ken-dee?" I tried. Nope, not that. "Spirit-us ascend?" Nope, not right either. "Spiritus ah-chen-day?" The candles lit themselves.
+
+I jerked back in surprise - it actually worked! I figured from the pronunciation that this page had to be in Latin, the rest… I'm not so sure. The feeling of power rushed through me as I watched the candles, it felt… almost like a drug high, like when you smoke weed and hit that sweet spot that you never want to leave. I had to do more. I couldn't stop now, what's the harm in a little bit of magic? Not like I'm gonna hurt anyone with it.
+
+The next line only had text: spiritus supernatet. Thats easy. "Spiritus super-nat-ey." I looked around to see what it did and found the grimoire hovering just off the bed. "Oh my god!"
+I tried it again, but this time focused on a jacket I had across the room. "Spiritus supernatet." The jacket started floating to me.
+
+The immense power feeling increased every time I read the words in the book. It's almost indescribable unless you've been there - you're on top of the world, nothing can hurt you. Unless you stop. Stopping is what would bring you tumbling down, and that's not worth thinking about. Better to just keep doing it, after all, it's not harming anyone. Next line… this showed a glass of liquid, would water do? Let's find out. I grabbed a glass of water and looked at the text: aquam in vinum. Okay… if I remember what I was told about Latin, you say these words how they look. "Aquam in vinum." My water darkened and turned deep red. Blood coloured. I lifted the glass to my nose and sniffed slightly… bitter, yet familiar… wait, wine? It literally did the Jesus thing and turned water into wine? I sipped it to be sure. Definitely wine. Nasty stuff, give me vodka or gin any day.
+
+The final line on this page was calling me. It had a drawing of a bleeding hand next to it. I was trying to figure out what it meant when my glass shattered. Apparently I had grown stronger - I gripped the glass so hard it broke. It sliced into my hand, and looked exactly like the drawing. Did… did the witches make that happen? Or was it just coincidental? I mean, the glass was chipped. It was bound to happen. I looked at the line of text and read aloud: "sana vulnera mea." I looked at my hand as I felt a pulling sensation and noticed my cut was healing itself. It literally stitched the skin back together and pulled the blood back in, leaving no scar.
+
+This was too creepy now. I love the power rush, but being able to heal yourself with 3 words? Isn't that too… easy? You could literally be unkillable if that's the case. I needed to call Lorenzo, I needed to know I wasn't just imagining this. I dialled his phone, not realising it was only 3:30am.
+
+"Man, you're not gonna believe this…"
+
+[Part 1](https://www.reddit.com/r/nosleep/comments/v12stj/the_only_warning_about_pendle_hill_part_1/?utm_medium=android_app&utm_source=share)
