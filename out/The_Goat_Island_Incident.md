@@ -1,5 +1,3 @@
-[repost]
-
 Hey, writing in here because I don’t know where else to tell this. I’ve always liked nature, especially the water. My mom was a championship swimmer through college so it’s kinda in my nature, yada yada. 
 
 Anyway, my grandparents have this cabin on a lake in northern North Carolina. We go there in the summers, it’s great and fun and I’ve loved it since I was little. A few years ago, we finally got a kayak and I was thrilled. When we’re there, I’ll be gone for hours, just rowing, sometimes going ashore to wander around the woods if I feel like it. I don’t know if y’all are from the city or what, but in these under-developed areas, where the trees aren’t touched for a while, or maybe ever, the trees are crazy thick. There’s this island that my dad always called goat island (which really makes no sense, there aren’t any goats there, and it’s shaped like a snake from overhead), and I like to walk around there. It’s pretty big for an island in a mid-sized lake, and it’s nice; the shade is heavy, but there are spots where the sun pokes through, it’s peaceful. 
