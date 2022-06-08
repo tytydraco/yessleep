@@ -256,10 +256,8 @@ Slowly, I walked over to the living room. Mom and a man I’d never met before w
 
 Mom still hadn’t noticed anything amiss yet. She turned to me and said brightly, “This is Stephen! You guys will get along great; I just know it.”
 
-He stood up from the couch, looking both embarrassed and pleased. “It’s nice to meet you, Chloe. I’ve heard so much about you.” He reached out with his hand to shake mine, and that was when I finally saw it.
+He stood up from the couch, looking both embarrassed and pleased. “It’s nice to meet you, Chloe. I’ve heard so much about you.” He reached out with his hand to shake mine, smiling, and that was when I finally saw it.
 
-The thin scar that curved above his upper lip.
-
-[As he beamed at me, it stretched into a second smile.](https://www.reddit.com/r/Certain_Emergency122/)
+[The thin, white scar that curved upwards on his upper lip.](https://www.reddit.com/r/Certain_Emergency122/)
 
 [ODD](https://www.reddit.com/r/Odd_directions/)
