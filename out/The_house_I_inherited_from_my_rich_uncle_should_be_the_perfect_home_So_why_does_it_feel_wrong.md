@@ -82,7 +82,7 @@ The old man led the way up the staircase, taking careful measure to grip the han
 
 “His estate?”
 
-Phil nodded. “Of course. Your uncle was a smart one. He investments were numerous.” The old man spun on his heel to look me in the eyes. “You should know that he thought his assets ought to be liquidated then donated. What a headache that’s been.” He said it like a statement, but it seemed as though he expected me to contest it; I remained quiet. After a brief moment, we continued down the walkway until we reached a closed door on our right; all of the others in the house had remained open that I’d seen, but there it was. “Everything sold and gone. Except for this.” Phill patted the framing around the closed door. “This is yours now.” He removed a small keyring from his pocket, searched for the right one and unlocked the door. Then he tossed me the keyring and pushed inward into a room with natural light. 
+Phil nodded. “Of course. Your uncle was a smart one. His investments were numerous.” The old man spun on his heel to look me in the eyes. “You should know that he thought his assets ought to be liquidated then donated. What a headache that’s been.” He said it like a statement, but it seemed as though he expected me to contest it; I remained quiet. After a brief moment, we continued down the walkway until we reached a closed door on our right; all of the others in the house had remained open that I’d seen, but there it was. “Everything sold and gone. Except for this.” Phill patted the framing around the closed door. “This is yours now.” He removed a small keyring from his pocket, searched for the right one and unlocked the door. Then he tossed me the keyring and pushed inward into a room with natural light. 
 
 This was the last room my uncle spent his time before he’d decided to remove the antique Armalite from over the fireplace in the dining hall. The room was almost cozy when juxtaposed with the rest of the house where all things were open, gaping, impossible. Shoved in the corner, beside a desk, was an unmade twin mattress. On the opposite wall, there stood several cheap-looking bookcases with tomes so old, some of the spines were worn thin to the string bindings.
 
@@ -162,6 +162,8 @@ I swallowed, feeling soreness as I did so. “Okay.”
   
 We shared a platter of deli cold cuts and cans of Sprite for dinner in the dining hall and slept on a blowup mattress in the master bedroom nearest the posterior of the house. The only light we had was from our cellphones, and I incessantly checked mine long after she’d fallen asleep just so I wouldn’t be left in the dark alone.
 
+
+[Part One]()/[Part Two](https://www.reddit.com/r/nosleep/comments/v8gomt/the_house_i_inherited_from_my_rich_uncle_should/)
 
 [XXX](https://www.reddit.com/r/Edwardthecrazyman/)
 
