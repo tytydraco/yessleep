@@ -32,7 +32,7 @@ That night when i came home from work and sat down to review the footage. I foun
 Most of them were nothing interesting like passing cars or trees moving in the wind. 
 Then i saw the last 3 recordings. In all of them there seemed to be a boy about 7 years old dressed in really old clothing and he glowed this neon green. For the first 2 recordings, he just sat on rocking chair i had in my room. 
 
-But in the third one, from a jar, he seemed to be pouring that exact same green powder i had found on my bed. He did this for about 3 seconds before walking out of view. The camera stopped recording and i looked at the time it was filmed at . 7:07 pm . I looked at the clock above my door. 7:30 pm . I freezed. It was fresh, so that meant that i could probably see some find of trace as to where he went. And i did. 
+But in the third one, from a jar, he seemed to be pouring that exact same green powder i had found on my bed. He did this for about 3 seconds before walking out of view. The camera stopped recording and i looked at the time it was filmed at . 7:07 pm . I looked at the clock above my door. 7:30 pm . I froze. It was fresh, so that meant that i could probably see some find of trace as to where he went. And i did. 
 
 Little green footsteps were on the wood floor. I followed them and when i reached a wall, i looked in front of me and saw that the footsteps were going up the wall and stopped on the trapdoor that leads to my attic. I took out a ladder and opened that attic, holding my phone's lantern in front of me. 
 
