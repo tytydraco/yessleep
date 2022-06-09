@@ -6,7 +6,7 @@
 
 ''What's a house robot?'' Was my first thought. But the title made me curious and I clicked.
 
-A company called HouseRobotics created a robot that would help you do basic household tasks in your home. Vacuuming, cleaning, dishes, take out the trash...you name it. I filled in my details and then completely forgot it until a month later when my phone rang. I picked up and it was an auotmated message.
+A company called HouseRobotics created a robot that would help you do basic household tasks in your home. Vacuuming, cleaning, dishes, take out the trash...you name it. I filled in my details and then completely forgot it until a month later when my phone rang. I picked up and it was an automated message.
 
 *Congratulations! You have been selected to try out the next generation's house robot! Your delivery is expected to be with you within 5 days. Instructions can be found in the package. We hope you will be satisfied. Have a nice day.*
 

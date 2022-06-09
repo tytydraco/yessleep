@@ -60,7 +60,7 @@ For now, word that I was the one to destroy that half of Roj is keeping things m
 
 I've kept a secret from them that I'm honestly not comfortable sharing, but I've been nothing but transparent with you my dear friends, so here it is:  The day after the showdown with Roj occurred, a new card appeared on my bedside table.  I thought it belonged to my deck but it doesn't match the style.  Despite trying to fit it into my deck, it found its way out of it and beside it.  Every day since, more cards have appeared and I nearly have as many cards in this new deck as my cherished deck.
 
-Friends, I'm afraid.
+[Friends, I'm afraid.](https://www.reddit.com/r/nosleep/comments/v8p7l1/confessions_of_a_tarot_card_reader_line_in_the/)  
 
 
 
