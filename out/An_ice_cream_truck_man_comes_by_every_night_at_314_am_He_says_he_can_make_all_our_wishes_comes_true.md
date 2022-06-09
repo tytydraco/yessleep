@@ -1,4 +1,4 @@
- I’m writing my tale here as a warning for others, so if anyone comes upon this creature, they know what to do. Hopefully, I killed only one, but there might be more out there, so here I am, typing this out.
+I’m writing my tale here as a warning for others, so if anyone comes upon this creature, they know what to do. Hopefully, I killed only one, but there might be more out there, so here I am, typing this out.
 
 # Monday, 03:14 AM, July 2nd 2012
 
@@ -36,7 +36,7 @@ Just then, I saw Max Mulligan open his front door, wearing a robe over his pajam
 
 I scoffed to myself as he waddled to the truck and ordered himself a frozen treat. He slipped from my eyesight behind the vehicle, so I was left counting the comically large stickers of melting ice cream taped to the sides of the van.
 
-My mouth watered suddenly; surely, they sold other things other than freezer burn, right? Maybe I could still get a Coca-Cola, hell, I’d settle for a Pepsi! I pondered it over, but my hunger was starting to fog my head. Maybe they sold real food too. Waffles or pancakes; I could go for some salted caramel and peanuts actually. Yes, I’d go and ask, what’s the worst that could’ve happened. 
+My mouth watered suddenly; surely, they sold other things other than freezer burn, right? Maybe I could still get a Coca-Cola, hell, I’d settle for a Pepsi! I pondered it over, but my hunger was starting to fog my head. Maybe they sold real food too. Waffles or pancakes; I could go for some salted caramel and peanuts actually. Yes, I’d go and ask, what’s the worst that could’ve happened.
 
 I was just about to jump off my bed, when I realized I had no cash left. The Unwritten, Volume V, was discarded face down on the floor, mocking my hasty purchase. It wasn’t my fault that the comic had nearly sold out before I got to the shop, but the last 10$ of my weekly allowance was a small price to pay to rub it on Owen’s face and letting him borrow it later.
 
@@ -66,9 +66,9 @@ I wouldn’t say he was an abusive parent at the time; he was just *stressed*. H
 
 I actually felt relieved when he let me get away with it mostly unscathed. My measly allowance, 15$, felt almost like a reward for staying put with my eyes on the corners of the table while my parents ate breakfast.
 
-Mom sneaked another 10$ on my pocket, pretending to fix my shirt before we left. She gave me a wink and motioned for me to be silent, like I didn’t already know that. 
+Mom sneaked another 10$ on my pocket, pretending to fix my shirt before we left. She gave me a wink and motioned for me to be silent, like I didn’t already know that.
 
-It was a fifteen-minute drive to the Sport’s Centre, which was coincidently close to my dad’s workplace. I would stop by his office later to have the lunch mom had packed for both of us. Until then, we sat in easy silence, Carly Rae Jepsen’s Call Me Maybe playing in the radio. 
+It was a fifteen-minute drive to the Sport’s Centre, which was coincidently close to my dad’s workplace. I would stop by his office later to have the lunch mom had packed for both of us. Until then, we sat in easy silence, Carly Rae Jepsen’s Call Me Maybe playing in the radio.
 
 I hummed along with it, ponytail swishing with my head movements. He was too masculine to do that, but tapped his fingers on the beat against the wheel. His bad mood had melted away when we found easy parking right next to the tall glass buildings.
 
@@ -90,7 +90,7 @@ I was always the first to arrive at 8:50, so I had nothing to do but wait for th
 
 I paced slowly, feigning nonchalance at where I was heading for. I took a moment in front of the vending machines, trying not to make a face at the pathetic excuses of a refreshing drink, then picking a can that claimed it was lemonade with reduced sugar. It tasted of battery acid with a hint of citrus and it burned my tongue of with its bitterness.
 
-“Ew.” 
+“Ew.”
 
 There wasn’t much to do after that. I did a light walk, then a jog, barely working up a sweat. A team of players ran amok over a deflated ball, each blaming another for its condition. 9:25. Stretched, did some yoga, had a chat with a random lady about where the bathrooms were. 10:05. Tried doing a double backflip, landed on my ass, kept doing it until I was too dizzy to get up. 10:33.
 
@@ -102,7 +102,7 @@ The first to arrive was Owen. He looked strung up, looking around until I waved 
 
 “He’s following me again.”
 
-Owen’s brother, Kevin, also known as Twat Supreme, was what I still consider to be a budding sociopath. He was as tall and thick as a tree with an anger streak that made him a vicious football player. If it wasn’t for the same tight black dreads, no one would ever presume that they were siblings. 
+Owen’s brother, Kevin, also known as Twat Supreme, was what I still consider to be a budding sociopath. He was as tall and thick as a tree with an anger streak that made him a vicious football player. If it wasn’t for the same tight black dreads, no one would ever presume that they were siblings.
 
 He was the terror of the neighborhood and the apple of his father’s eyes, a washed-out NFL quarterback with a back injury. It wasn’t easy for Owen to be asthmatic in a house that had testosterone for tap water. At least I knew my father did what he did out of hard love.
 
@@ -114,7 +114,7 @@ He chewed on the inside of his cheek, but nodded. I waited for a while, watching
 
 God must’ve picked up, because his phone rang with a jarring death metal music and he loudly answered it, hopping on his dad’s jeep and driving off without a seatbelt. His girlfriend on the other side made a great catch.
 
-We kind of just kicked around after that, doing random stunts and sending each other tumblr links. The site was new and exciting, especially for two Harry Potter obsessed pre-teens. 
+We kind of just kicked around after that, doing random stunts and sending each other tumblr links. The site was new and exciting, especially for two Harry Potter obsessed pre-teens.
 
 Magic seemed so cool back then.
 
@@ -152,7 +152,7 @@ I turned to Owen, who was already picking up his skateboard. “I’ll meet you 
 
 “Like you ran through the sprinklers.”
 
-Dad had a half hour lunch break, which we ate in the kitchenette of D&M accounting’s office. I knew all his coworkers by name, age and lifestyle at that point. 
+Dad had a half hour lunch break, which we ate in the kitchenette of D&M accounting’s office. I knew all his coworkers by name, age and lifestyle at that point.
 
 They weren’t incredibly interesting people, but they had one thing in common; they all hated their supervisor, an old dude in his mid-fifties who hated anything that wasn’t a straight white middle-aged man with a productive job, a wife and two and a half kids. So, he disliked his entire staff.
 
@@ -179,3 +179,5 @@ Silence.
 “I can come at five thirty? Or maybe I can walk home?”
 
 “Don’t be ridiculous, it’s too far. Be here at seven.”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/v8eiul/an_ice_cream_truck_man_comes_by_every_night_at/)
