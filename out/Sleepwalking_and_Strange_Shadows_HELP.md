@@ -1,0 +1,15 @@
+I need your advice. I’ve been having problems with sleepwalking and I’m starting to get worried that something isn’t right. I’ll start from the beginning.
+
+I have always been a sleepwalker. My sister said that sometimes she would wake up to find me standing in the corner of her room, staring. A bit creepy, but mostly harmless. I always woke up in bed in the morning, none the wiser. It felt to me like I was getting a full night’s sleep in my bed. My Mom took me to a doctor once, but he said that it was nothing to worry about. That I would grow out of it.
+
+And I did. I went to college, got a job. No one I lived with ever mentioned the sleepwalking again. I had a couple girlfriends complain about mumbling, but nothing more than that.
+
+Last year, I moved back into my childhood home. My Mom had passed away and I thought that living in the old house would be a good way to feel closer to her. My Sister’s and my heights are dutifully recorded on the pantry door frame in her handwriting. I can still see the gouge in the paneling from when I tried to skateboard in the house. I was grounded for a week for that one. Her grandmother’s quilt still hangs over the back of the couch. There are just so many little connections to my childhood and my family. I did get rid of my Mom’s collection of pastel floral paintings, but you have to do something to make a house your own, you know?
+
+After a while living there, I started to notice strange things. I would put the remote in one place and the next morning, I would find it somewhere completely different. I would wake up with different socks on. One time, I found a fully constructed sandwich in the kitchen. All weird, but I would always wake up safe and sound in my bed. I knew that my sleepwalking was regressing a bit, but it had never really been a problem before.
+
+The last few times I sleptwalked were more alarming. I woke up one morning and my feet were covered in dirt. My front door was locked and I woke up in bed, but I had to have left the house, right? The next time, my feet were covered in dirt and scratches, like I had walked through some serious undergrowth. Again, door locked and in bed.
+
+This morning though, my eyes snapped open. I was alone, in the woods. The air bit into me through my thin pajamas. I was barefoot. I had never woken up outside of my bed before. It was so disconcerting to wake up and just not even *know* where you are. It took me a few minutes to realize that I was in the woods behind my house, just deep enough that I couldn’t see the house itself. I walked back, feeling a bit teary to be honest. I just felt so out of place.
+
+As I walked closer to the house, I saw a shadow whisk by my bedroom window. So I ran. My front door was wide open. I thundered up the stairs on my wounded feet into my bedroom to find… nothing. There was nothing and no one in the house except for myself. So I showered, bandaged up my feet, and now I’m here. Do any of you have experience with sleepwalking? I’ve never left the house before.
