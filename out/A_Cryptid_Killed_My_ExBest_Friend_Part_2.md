@@ -146,7 +146,7 @@ Kelly took me to her room. A laptop lay on its desk and on it were files her dad
 
 &#x200B;
 
-Seeing what was on the screen caused my stomach to lurch. On it was someone so eviscerated that I suspect the only way they were identified was through dental records. 
+Seeing what was on the screen caused my stomach to lurch. On it was someone so eviscerated that I suspect the only way they were identified was through dental records.
 
 &#x200B;
 
@@ -244,7 +244,7 @@ I’ve seen some shit in my time and that was by far the worst. Now, tell me was
 
 **Turner:** It couldn’t have been more than a month before her murder. I asked her about it, but she said it was because of her work. She was never one to put her problems on someone else.
 
-**Maxwell:** I think I can relate. Is there anything else you can tell us? 
+**Maxwell:** I think I can relate. Is there anything else you can tell us?
 
 **Turner:** Well, there were times when I would see her just staring out the window.
 
@@ -258,7 +258,7 @@ I’ve seen some shit in my time and that was by far the worst. Now, tell me was
 
 &#x200B;
 
-The following month after the interview, Maxwell went missing along with his partner, a German Shepard by the name of Luther. Two weeks later both their remains were found. The former was found in his car with the driver's window busted in and half his torso chewed off. As for the latter, only his tag and tail were found approximately forty yards from Maxwell. 
+The following month after the interview, Maxwell went missing along with his partner, a German Shepard by the name of Luther. Two weeks later both their remains were found. The former was found in his car with the driver's window busted in and half his torso chewed off. As for the latter, only his tag and tail were found approximately forty yards from Maxwell.
 
 &#x200B;
 
@@ -271,3 +271,7 @@ Something unnerving to note from the report is that several bite marks were foun
 &#x200B;
 
 At the very least, there may be a connection becoming more apparent between who it kills. I don’t think I’ll be getting any sleep tonight so more time for research. I’ll update [when](https://www.reddit.com/r/StoriesFromRose/) I [can.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/v88tdw/a\_cryptid\_killed\_my\_exbest\_friend\_part\_3/](https://www.reddit.com/r/nosleep/comments/v88tdw/a_cryptid_killed_my_exbest_friend_part_3/) (I wish I could help Floyd somehow.)
