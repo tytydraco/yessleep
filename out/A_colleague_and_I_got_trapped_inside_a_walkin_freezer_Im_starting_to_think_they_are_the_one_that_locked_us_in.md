@@ -85,7 +85,7 @@ I listened to him speak, confused as to why he was telling me these random facts
  "Oh, and have you heard that certain drugs, like LSD, raise your body temperature. There you go, another fun fact for you. Bet you didn't kn- hey what are you doing?"
 
 
-Logan changed what he was saying because he saw me stand up and take off the large woolen coat that was protecting me from the cold. I suddenly felt really warm and needed to shed the extra layers. I felt an instant rush of relief when the coat had been relieved, as I felt my temperature drop to a more appropriate level.
+Logan changed what he was saying because he saw me stand up and take off the large woolen coat that was protecting me from the cold. I suddenly felt really warm and needed to shed the extra layers. I felt an instant rush of relief when the coat had been removed, as I felt my temperature drop to a more appropriate level.
 
 
 "What are you doing? You really are going to freeze if you take that off?", Logan said, sounding concerned for my well being. 
