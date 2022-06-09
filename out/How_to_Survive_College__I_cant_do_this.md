@@ -2,7 +2,7 @@ Okay so I guess I have three friends now.  Cassie, Grayson, and now Maria.  She�
 
 (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
-If you’re like “what about Steven, aka Chicken Tenders, why isn’t he on the list” it’s because I think we broke up.  I’m not sure.  He sent me a passive aggressive message late one night about how it wasn’t fair to keep putting him off and if I was so concerned about my grades, then I should just take him up on his offer to tutor me.  Except I think I’m smarter than him.  I don’t mean to sound conceited, but when we were talking about school stuff he was like oh I’ll explain it and then I *got it* and he kept trying to keep explaining it to me and only stopped once I explained it *back* to him.  Like I had to prove I understood it.  
+If you’re like “what about Steven, aka Chicken Tenders, why isn’t he on the list” it’s because I think we broke up.  I’m not sure.  He sent me a passive aggressive message late one night about how it wasn’t fair to keep putting him off and if I was so concerned about my grades, then I should just take him up on his offer to tutor me.  Except I think I’m smarter than him.  I don’t mean to sound conceited, but when we were talking about school stuff he was like oh I’ll explain it and then I *got it* and he kept trying to keep explaining it to me and only stopped once I explained it *back* to him.  Like I had to prove I understood it.
 
 I know I’m worried about my grades but I feel like midterms caught me off-guard and I learned the hard way I’m not a good test taker.  I’m killing it on my projects and essays, right?  And I’m not having trouble understanding things in the classroom.
 
@@ -44,7 +44,7 @@ Maybe this is why I don’t have friends.
 
 Anyway, I went through class completely oblivious to the fact he was staring at me intently the entire time.  I left as I always did and stepped out into the hallway, my mind preoccupied on what I would have for lunch.  Risk the cafeteria linguini or go with a safe peanut butter and jelly sandwich.
 
-Someone grabbed me from behind.  A hand closed on my arm.  I froze in place, my breath seizing in my throat, and I don't think I could have yelled if I'd wanted to.  
+Someone grabbed me from behind.  A hand closed on my arm.  I froze in place, my breath seizing in my throat, and I don't think I could have yelled if I'd wanted to.
 
 "I recognize you," a man's voice said from behind me, his voice thin with panic.  "You were at the meeting."
 
@@ -54,7 +54,7 @@ Slowly, my frozen muscles resumed function.  I turned, certain my eyes were wide
 
 "The Rain Chasers."  He elaborated as I continued to stare at him in mute confusion.  "I came to the meeting recently.  There's... scratching... at my door."
 
-Oh.  Ohhhhh.  That guy.  
+Oh.  Ohhhhh.  That guy.
 
 “I did what they suggested,” he continued.  “I left campus.”
 
@@ -70,7 +70,7 @@ He glanced around nervously and finding that we were surrounded by our classmate
 
 He stared at me expectantly, as if I had all the answers and could tell him what he had to do now.  This isn't fair, I thought wildly.  Why am I responsible for saving him?  I can barely help my roommate with a totally mundane matter, how am I supposed to save every person that crosses my path?  I just want to pass my finals and not get involved in any more *weird stuff*.
 
-Alas.  I found myself standing in the hallway with another desperate student and I couldn’t bring myself to be like ‘guess you’ll just die’ and walk away.  I told him I’d contact some of the experts in the Rain Chasers and see if they had any other suggestions.  Not Maria.  *Obviously* not Maria. 
+Alas.  I found myself standing in the hallway with another desperate student and I couldn’t bring myself to be like ‘guess you’ll just die’ and walk away.  I told him I’d contact some of the experts in the Rain Chasers and see if they had any other suggestions.  Not Maria.  *Obviously* not Maria.
 
 I got his phone number.  Then I messaged Patricia.  She messaged me back, asking me to meet them in the old power plant that evening, as soon as the sun was down.  Use the steam tunnels, she said.  They’d leave the door unlocked.
 
@@ -114,9 +114,9 @@ She demonstrated with a pebble.  The water didn’t ripple and when she bent ove
 
 “Only a few inches,” Patricia repeated.
 
-However, when the student finally worked up the courage to stand on it, he fell in instead.  His whole body was submerged in water.  It felt thick, like oil, and he struggled to find the edge to pull himself out.  He certainly couldn’t find a bottom. 
+However, when the student finally worked up the courage to stand on it, he fell in instead.  His whole body was submerged in water.  It felt thick, like oil, and he struggled to find the edge to pull himself out.  He certainly couldn’t find a bottom.
 
-He gave up trying just before he drowned.  He remembered thinking that this was it, that he was going to die here, and his struggles grew still.  He let his arms float up around him in the black water and that was when his fingers brushed the sides.  
+He gave up trying just before he drowned.  He remembered thinking that this was it, that he was going to die here, and his struggles grew still.  He let his arms float up around him in the black water and that was when his fingers brushed the sides.
 
 “After he got free, nothing unnatural on this campus bothered him again,” Patricia said.  “When the traveling river came, it swept around him and he remained on an island of dry land.  The things in the rain went right past him.  It was like he didn’t exist to them.”
 
@@ -132,9 +132,9 @@ I wanted to ask Patricia more questions.  Why she thought this would work.  Why 
 
 But without any more hesitation or debate, he walked over and stepped onto it.
 
-He vanished from sight.  Like the floor swallowed him up, as seamlessly as if he’d stepped off a cliff.  There wasn’t even a ripple from where he’d been a moment ago.  Breathlessly, we crowded around the slab.  I dropped to my knees and stared at its pristine surface.  I didn’t even see my own reflection, I realized.  
+He vanished from sight.  Like the floor swallowed him up, as seamlessly as if he’d stepped off a cliff.  There wasn’t even a ripple from where he’d been a moment ago.  Breathlessly, we crowded around the slab.  I dropped to my knees and stared at its pristine surface.  I didn’t even see my own reflection, I realized.
 
-We waited.  I held my breath, trying to guess how much longer he had before he wouldn’t be able to make it out.  
+We waited.  I held my breath, trying to guess how much longer he had before he wouldn’t be able to make it out.
 
 A hand shot out of the water.   One of the Rain Chasers shrieked in surprise at how abrupt its appearance was.  It was close to the middle of the slab, flailing to find the edge.  The water ran down his skin like rainbows, shining in the light of the electric lantern.
 
@@ -166,7 +166,7 @@ The water swallowed him up without a ripple.  His fingers slid out of sight and 
 
 He was gone.
 
-We parted ways in the steam tunnels.  I went to my dorm and the rest of the Rain Chasers went to theirs.  A few hours after I got back to my dorm, I received an invitation to a private discord channel.  
+We parted ways in the steam tunnels.  I went to my dorm and the rest of the Rain Chasers went to theirs.  A few hours after I got back to my dorm, I received an invitation to a private discord channel.
 
 ‘No one say anything about this,’ the latest message from Patricia read.  ‘Let’s make sure everyone forgets about him before we talk about it.’
 
@@ -176,13 +176,13 @@ I realize what I did wrong.  This was his trial.  I couldn’t help him, but I d
 
 It’s my fault.
 
-I don’t think I can do this anymore.  This - all of this - was a mistake.  I’m not as brave as you all think I am.  I’m not as strong as I need to be.  I can’t just see someone die and go on like nothing happened.  I woke up this morning worrying about my grades again.  *My grades.* 
+I don’t think I can do this anymore.  This - all of this - was a mistake.  I’m not as brave as you all think I am.  I’m not as strong as I need to be.  I can’t just see someone die and go on like nothing happened.  I woke up this morning worrying about my grades again.  *My grades.*
 
 Like it matters.  I’m not going to be able to keep this up for four years.  I’m going to lose my scholarship at some point.
 
 I called my mom an hour ago.  I told her to come get me.
 
-She’s going to take me home this weekend.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+[She’s going to take me home this weekend](https://www.reddit.com/r/nosleep/comments/v871er/how_to_survive_college_my_mom_isnt_so_bad_after/).[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
