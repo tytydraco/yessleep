@@ -1,0 +1,69 @@
+I've recently been uprooted from civilization and thrust into a rude, inconvenient little suburban town. It was totally out of my control and against my will. Essentially, my comfortable lifestyle has been destroyed overnight due to someone else's stupid life choice. As a result, misfortune has been following me ever since. First, it was the financial growing pains of having to adjust to paying rent to a faceless entity whom I will never know the *true* origins of. Ok, fine, no biggie. I can handle that, except for when the ad for the room rental is $140 *less* than what I'm *actually* having to pay. Shit, I'm screwed, aren't I? I am now living *way* above my means, but hey, it's fine, I'll figure something out. I'm an adult. That's what I'm supposed to do, right?
+
+I already wasn't looking forward to physically moving into my legal residence in the rude, inconvenient little suburban town. The whole area was suspiciously clean; almost sterile. In fact, the only other signs of life I've seen so far have been red wasps. Now, I've been to my fair share of McMansion infested, cookie cutter neighborhoods, but I have *never* been to one that made me feel inexplicable dread nesting in my gut the way that this one did. Hell, I used to live in shitty parts of pseudo civilization and still didn't get this twisted feeling burrowing into my gut like a starving parasite. A voice inside my head suddenly screamed, telling me to get the hell out of there before I even stopped the car, and I sure as hell did.
+
+I still didn't feel any better despite hauling ass as far as I could from that vile place because I knew I had to go back. I had no choice. I was vaguely aware of driving to what I consider my home when I had a full blown panic attack; shortness of breath, shaking, crying, the works. I appealed to my friend to let me stay with him for a while until I could get a hold of myself. I told him about the panic attack and what caused it. I told him that there was something horribly wrong with the neighborhood; my legal residence in particular. Besides, I still had most of my belongings at what I considered my home. 
+
+"As long as you need to. You'll always have a place to stay," he said… 
+
+Until part of the choice he made marched in and booted me out. Did I mention that I didn't have anything to sleep on at my legal residence yet? Yeah, there's that. So, I took the rest of my shit and returned to the terrifying stillness of the rude, inconvenient little suburban town. I didn't feel like fucking around with anything when I arrived. I just wanted to get upstairs to my room and do my best to get some sleep, and sleep I didn't.
+
+The night was even more horrifying than the day. I stared at the trees soundlessly whipping wildly about in the silent wind. It shouldn't be like this. For tree limbs to move so aggressively, shouldn't I be able to hear the source of what is causing the movement? From what I could tell, it seemed like dense, misplaced shadows were swallowing the sounds that I should be hearing. The inexplicable dread returned with a vengeance, eviscerating me of all logical reasoning. How fucked up is this place? I eventually fell asleep after yet another full blown panic attack. 
+
+The following day, I slept without eating. 
+
+*
+
+Within days of moving in, I began suffering from mysterious mental breakdowns leading to the mutilation of my own body; arms, legs, chest, everywhere within reach that was concealable. I don't know why I was so intent on damaging my body. All I could think about was feeling trapped in a room with an unseen enemy that I had to escape from by any means necessary. During a moment of clarity, fear icily gripped my heart when I realized that I had sustained no injuries during my frenzied attacks against myself. I rushed to my closet and swung open the door, intently inspecting my body in the full length mirror. I could have sworn to the mighty, unholy Shooblers that I had inflicted terrible wounds upon myself, but it was like nothing ever happened. I was dumbfounded. I know what I did. I know what I saw, but the bandages were mysteriously clean when I went to change them. I didn't understand what was going on. Maybe I was just imagining that I was being self destructive. Yes, that had to be it. That's the only logical explanation. However, there was one detail I should have noticed while I was in the throes of madness, and that would be the unexplained patches of darkness looking for places to hide in my domicile. 
+
+Then, one day, for no apparent reason, the thickening stillness "broke". One would think that I would feel better now that it was "livelier", but I don't, and it's not. During the day, I felt anxious and obeyed the voice that told me to get the hell out of the rude little town (at least temporarily), but I instantly felt an ominous sense of dread when it's time to go back; a warning telling me that I have no business being there. As always, I disobeyed the warning and returned to the rude, inconvenient little suburban town. 
+
+As day fades into night, I sensed a foreboding presence lingering somewhere too close for comfort, but I couldn't seem to locate its exact source. I lost several more nights of sleep and was literally sick to my stomach with mounting anxiety. Regardless of the circumstances, I desperately needed to get some sleep. Burning incense usually helps me relax, but the strategy only helped for a day or two at most. Unfortunately, that damn inexplicable dread grew stronger, and as a result, I began talking to myself as a coping mechanism; a way to reassure myself that everything is fine. Eventually, I'd fall into short bursts of tumultuous sleep until the darkness became my enemy. 
+
+Now I'm absolutely terrified of turning out the lights every night, but I can't sleep past midnight with them on. I kept feeling like something pernicious was waiting for me to let my guard down so that it could do unspeakable things to me; maybe even leave me wishing for death. By then, I realized something that I should have thought about from the beginning; from the first night I spent in my room watching the silent wind abuse the trees. I should have figured out that the shadows aren't quite right; that they are incredibly hostile. 
+
+This rude, inconvenient little suburban town is infested with shadowless shadows. I had a vague idea that they were based on fragments of a rare occult text I stumbled upon. From what I gathered, they are malicious entities with immeasurable power that are capable of hiding anywhere. It is said that they devour people whole and that they can manipulate reality, but that's never been confirmed. Bottom line is that they exist and are a malicious, oppressive force to be feared. 
+
+The inexplicable dread became far more oppressive now that I remembered this. The voice inside my head thundered, "Get the hell out now before it's too late. You don't belong here!"
+
+I know I don't belong, but I don't have any other place to go. 
+
+*
+
+My suspicions were confirmed about the infestation of shadowless shadows. The whole rude, inconvenient little suburban town feared my neighborhood, especially my second floor room inside my legal residence. The first hint I got was when I had a bit of car trouble one day. My neighbor across the street was kind enough to help me out, and as we were conversing, I pointed out my room on the second floor. He nervously began dancing around the issue of who originally owned the house and the many hands it's transferred to since the original owners suddenly vanished without a trace. (According to research online, my legal residence is owned by faceless investors; however, according to the leasing agency that greedily gnaws at my meager earnings, there is a real homeowner.) I, being new to the rude, inconvenient little suburban town, politely probed for more information, but my helpful neighbor anxiously, although politely, excused himself. All the while, he was staring up at my room with a creeping expression of horror on his face. I know that he knows more than what he's letting on, but I wasn't going to be rude and chase him down for answers. Instead, I promised to bring him some cookies the next day in exchange for helping me out.  
+
+The following day, I went over to my neighbor's house to deliver the cookies I bought as I had promised, and his wife answered the door. She seemed agitated and vacant but was still eerily polite when she greeted me. I hastily introduced myself, informing her that I lived across the street on the second floor. Her demeanor instantly became fearful; not of me but of my legal residence. In fact, she was no longer looking at me. Her eyes were fixed squarely on my room. They shifted slightly when she finally spoke. Her mouth said, "Come on by if you need anything." However, her eyes told me, "You don't belong here. Get out while you still can." Again, I didn't want to be rude, especially because she had small children running around inside her house, so I thanked her for her time and neighborly offer and went on my not so merry way without asking a single question. 
+
+None of my roommates know anything about the house either. (Most of them are from other parts of the state.) None of them even stay long enough to bother trying to figure out what's wrong with the rude, inconvenient little suburban town. I doubt they've even noticed. 
+
+After a few days passed by, I planned to pay my neighbor across the street a visit and pry information out of him, but he wasn't home. In fact, I hadn't seen him since the day he helped me out with my car. I decided to ask his wife about it in addition to her husband's sudden disappearance. I found out from another neighbor that she also vanished and was never seen again since the day I delivered the cookies. Their children still lived in the house, so someone had to have been caring for them. What's strange about this is that the children seemed remarkably well adjusted despite the fact that their parents had seemingly vanished into thin air. I noticed that the children in the neighborhood *never* looked at my house, especially at my room. With that being said, I'm at a loss as to why the whole neighborhood has a deep seeded fear of my room, especially when there's something wrong with the entire rude, inconvenient little suburban town to begin with. I also need to know what the neighbors mean when they say that "I don't belong". I have my own personal reasons for why I don't belong; beginning with resentment and ending with terror. 
+
+It seemed that the shadowless shadows knew that I was trying to uncover their secrets because the inexplicable dread became extremely suffocating. Every day, and especially, every night, a little voice in the back of my head kept screaming, "Get the fuck out of there now before it's too late!" It's not like I ignored or wanted to disobey that little voice, but I truly had no other place to go, and even if I did, I don't have the money to spend moving again. 
+
+I squeezed my eyes shut and did my best to pretend that I was alone; to pretend that the darkness was my friend again.
+
+*
+
+I laid awake most nights, paranoid and alone with my own thoughts. I spent more time with the sentient shadows than I did with the rest of the world. I don't remember the last time I slept. I look like shit. I feel like shit. My brain is made of cake.
+
+*In the name of the unholy Shooblers, what the hell have I done to deserve this?* 
+
+The shadowless shadows have a multitude of voices coalescing into a single ominous tone when they speak to me. They're laughing triumphantly while they observe my downward spiral into sleep deprived madness. My little voice that I constantly disobeyed has abandoned me, and all I hear are the patches of darkness telling me that I never existed; that I never belonged anywhere. One even had the audacity to say that my own mother never gave birth to me. 
+
+It was just a few days ago that I found out the hard way that the friend who made the stupid life choice didn't even remember me, let alone spending half our lives together. People even thought we were a couple. That's how close we were. The very thought of not belonging where I came from or even where I am is bone chilling. 
+
+That night I cried for the last time in my life. 
+
+*
+
+The inexplicable dread is happiness compared to the cold, dark, black oppressive force warping my sense of self to the point where I'm questioning my own reality. This sentient void I'm trapped within is causing me to wonder if I was a brief figment of a network of people's imaginations, or if my life is some kind of sick experiment? I don't know anymore, but I do know that I feel less human as I keep losing more sleep. I would kill to get some sleep.
+
+I swear on everything holy and unholy that I'm losing my mind from months of sleep deprivation. I was fed the fuck up and finally stood up for myself after many horrifyingly still nights of shadowless shadows closing in on me with their triumphant, mocking laughter only I could hear.
+
+"Shut the fucking hell up!" I angrily shouted, not caring about waking my roommates or what they would think of me (assuming that I still existed to them). "Just shut up and leave me alone, you multi level assmarketers. Go bother someone else."
+
+Finally, dead calm silence, and a solid, good night's sleep for the first time since moving to this rude, inconvenient little suburban town. However, something was completely off about it. I wasn't just comfortable; I completely slipped through my couch. The stillness and inexplicable dread warped into an eerie dead calm laced with malice. I realized that I wasn't actually sleeping at all. I was hiding; lying in wait for the next… 
+ 
+*Wait, this isn't right. This is not good at all.*
+
+Oh, my unholy Shooblers, what the hell just happened?

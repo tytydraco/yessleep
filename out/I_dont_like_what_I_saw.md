@@ -1,6 +1,6 @@
 There's a well known YouTuber who tells creepy stories on his channel. One video in particular has garnered a lot of attention. It has millions of views and people won't stop talking about it.
 
-Apparently some guy traveled abroad with some friends, something went wrong one of the nights, and the guy started acting really weird and paranoid for the rest of their trip. The conclusion to this story is airport security camera footage. He randomly bolts out of the airport in a full sprint, and was never seen or heard from again. I've had it recommended to me by a number of people.
+Apparently some guy was traveling with some family, something went wrong one of the nights, and the guy started acting really weird and paranoid for the rest of their trip. The conclusion to this story is some mall security camera footage. He randomly bolts out of the mall in a full sprint, and was never seen or heard from again. I've had it recommended to me by a number of people.
 
 However, I don't like weird shit. I'm the type of guy who jumps at every jump scare in a horror movie. I'm the type of guy who unnaturally fears uncommon occurrences just because of fear of the unknown. The last thing I need is more content to obsess and get paranoid over.
 
@@ -60,16 +60,16 @@ The feeling of being watched has come back. I don't feel safe anywhere. The days
 
 There's really only one thing to do. If this person or thing really wants me to watch the video, then fine, I'll watch the fucking video.
 
-I typed in the well known creator's name, scrolled for the video, and clicked on it. Yeah, it was unsettling. Was it really worth creepy messages and stalking over? I think not. I was about to hit X when I noticed something off in the reflection of my monitor.
+I typed in the creator's name, scrolled for the video, and clicked on it. Yeah, it was unsettling. Was it really worth creepy messages and stalking over? I think not. I was about to hit X when I noticed something off in the reflection of my monitor.
 
 I swung around. Written on my wall, in what looked like blood, was KEEP GOING.
 
 Tears began welling up in my eyes. Someone or something was here. I was probably going to get hurt. Maybe even die. I could hear my heart pounding in my chest, and feel the wetness as my clothes began absorbing water from my body. I even noticed some blood seeping through my sock.
 
-I turned back to my laptop monitor to watch the remainder of the video. It was hard to focus with my body shaking and the terror flowing through my brain but apparently I needed to see this. The airport footage played and finally I saw the man run out of the airport from a bunch of different angles and cameras.
+I turned back to my laptop monitor to watch the remainder of the video. It was hard to focus with my body shaking and the terror flowing through my brain but apparently I needed to see this. The mall security footage played and finally I saw the man run out of the mall from a bunch of different angles and cameras.
 
 The video was grainy, however, each camera and angle only brought me more discomfort, and all of my senses were going haywire now.
 
-The man in the airport was me.
+The man in the mall was me.
 
 [X](https://www.reddit.com/r/WarZoneSeries/)
