@@ -296,3 +296,5 @@ Part 4: Beyond the Storm
  "Sparta?" He said, nudging me with his elbow wearing an expression, not unlike that of an exhausted parent. 
 
  I just shrugged, unable to quite locate the words while he patted down his shirt as though he were wiping dust away, as opposed to adjusting the giant rip down the center. We both gave one final glance at the large pit while lighting a fresh cigarette, before moving onwards once more. We couldn't know what little surprises the elder Mr. Orchid had in store for us next, but I was certain our seemingly endless day was far from reaching its conclusion.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/v8m9md/devils_due_running_with_the_devil_part_5/?utm_medium=android_app&utm_source=share)

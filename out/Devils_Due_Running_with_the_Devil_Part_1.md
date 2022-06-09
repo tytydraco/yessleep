@@ -248,3 +248,5 @@ Part 1: Come Home, Michael
 [Part 3](https://www.reddit.com/r/nosleep/comments/v72brf/devils_due_running_with_the_devil_part_3/?utm_medium=android_app&utm_source=share)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/v7v7js/devils_due_running_with_the_devil_part_4/?utm_medium=android_app&utm_source=share)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/v8m9md/devils_due_running_with_the_devil_part_5/?utm_medium=android_app&utm_source=share)
