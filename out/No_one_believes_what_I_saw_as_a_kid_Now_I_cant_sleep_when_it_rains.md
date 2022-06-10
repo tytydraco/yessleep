@@ -16,7 +16,7 @@ You know every redneck has, or has had, a dog named Blue, right? This is scienti
 
 It’s been 24 years.
 
-He lived on a small ranch. Nothing intense, more of a hobby than a livelihood. Still, he had a decent collection of animals to take care of. A coop housing twenty or so chickens that he would let out to roam his property every morning. Mixed in were a few stray ducks that had settled down with them. As a kid I always enjoyed thinking that the ducks believed they were chickens themselves. It wasn’t unusual to see a mother duck caring for a trail of baby chicks behind her, having nested a set of eggs after their hen was picked off by a hawk or cayote.
+He lived on a small ranch. Nothing intense, more of a hobby than a livelihood. Still, he had a decent collection of animals to take care of. A coop housing twenty or so chickens that he would let out to roam his property every morning. Mixed in were a few stray ducks that had settled down with them. As a kid I always enjoyed thinking that the ducks believed they were chickens themselves. It wasn’t unusual to see a mother duck caring for a trail of baby chicks behind her, having nested a set of eggs after their hen was picked off by a hawk or coyote.
 
 More importantly, he had a dozen goats. I don’t remember what breed. He had built a wooden gymnasium for them to climb and play on, mainly to help lift them off the muddy earth when it rained. Hoof rot was a constant battle for livestock here.
 
@@ -140,7 +140,6 @@ I still see it sometimes in my sleep. Imagine it stalking up on my urban apartme
 
 I still feel it. Like its out there, like it *knows* me. Knows where I am and what I’m feeling. Like this is what it wanted…
 
-I need a drink.  
-
+I need a drink.
 
 EDIT: Removed a single, erroneous "the". I'll fire my editor immediately (me).

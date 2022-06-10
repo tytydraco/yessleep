@@ -114,9 +114,9 @@ As I threw on my coat and walked down the restaurant aisle I passed the customer
 
 I almost spat the words and immediately regretted it. The man snapped his head towards me and uttered his first and only words.
 
-"The entree is done. Now time for main."
+"The entree is done. Now time for the main."
 
-He giggled and returned to his vacant expression. I definitely drove a little faster on the way home that evening.
+He giggled and returned to his vacant expression. I didn't really know what he meant by "the main" but I wasn't going to find out. I drove a little faster on the way home that evening.
 
 When I sluggishly strolled into the kitchen the following morning, I noticed there was no sign of George. Instead Jimmy stood over the hot plate, lathering it with oil in preparation for the morning rush. He looked towards me and beamed.
 
@@ -152,7 +152,7 @@ My brain was hurting with confusion. I could feel the blood thumping in my skull
 
 "He actually said that?"
 
-"You bet! Funny you should mention him. He's actually from upper management. Just came in for a little inspection and made sure business was good"
+"You bet! Funny you should mention him. I didn't want to make you nervous last night but he's actually from upper management. Came in for a little inspection and made sure business was good"
 
 Adrenaline shot up my legs and jolted in my finger tips. My heart felt like a kick drum. An eyelid twitched. Jimmy chuckled before continuing.
 
