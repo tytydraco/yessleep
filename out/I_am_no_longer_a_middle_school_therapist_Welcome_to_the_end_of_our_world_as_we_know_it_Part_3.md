@@ -280,6 +280,6 @@ I dropped the shield. “Hello, Karabasan,” I waved to the pulsing mass of sha
 
 &#x200B;
 
-[X](https://www.reddit.com/r/the_mysterium/comments/suq2cc/chronicles_of_jacksonville_middle_school/)
+[X](https://www.reddit.com/r/the_mysterium/)
 
 [The final part](https://www.reddit.com/r/nosleep/comments/v9ihgo/i_am_no_longer_a_middle_school_therapist_welcome/)

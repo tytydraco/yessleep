@@ -168,6 +168,6 @@ I’ve been so jittery typing this all up. I don’t know if I’ll get much sle
 
 &#x200B;
 
-[X](https://www.reddit.com/r/the_mysterium/comments/suq2cc/chronicles_of_jacksonville_middle_school/)
+[X](https://www.reddit.com/r/the_mysterium/)
 
 The next part: [The ascension](https://www.reddit.com/r/nosleep/comments/v2t2eq/i_am_no_longer_a_middle_school_therapist_welcome/)

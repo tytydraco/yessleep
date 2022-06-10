@@ -228,6 +228,6 @@ I flipped it open. The first page was marked, identifying the owner as a Mr. Joh
 
 &#x200B;
 
-[X](https://www.reddit.com/r/the_mysterium/comments/suq2cc/chronicles_of_jacksonville_middle_school/)
+[X](https://www.reddit.com/r/the_mysterium/)
 
 The next part: [Our escape, and some answers](https://www.reddit.com/r/nosleep/comments/v0hoex/i_got_a_job_as_a_middle_school_therapist_i/)

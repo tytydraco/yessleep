@@ -178,6 +178,6 @@ I grinned, finally finding the page I was looking for, and turned to face them. 
 
 &#x200B;
 
-[X](https://www.reddit.com/r/the_mysterium/comments/suq2cc/chronicles_of_jacksonville_middle_school/)
+[X](https://www.reddit.com/r/the_mysterium/)
 
 The next part: [Into the breach](https://www.reddit.com/r/nosleep/comments/v6x1yv/i_am_no_longer_a_middle_school_therapist_welcome/)
