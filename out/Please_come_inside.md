@@ -10,17 +10,17 @@ She was a good roommate, quiet, kept to herself. Her major was just similar enou
 
 I figured I’d let her know I was home early so I didn’t scare the crap out of her when she came in, but when I went to open the door, I noticed something – the door to the balcony was locked from the inside. My first thought was, it was a good thing I had come home early, my second thought was, ‘oh shit had I accidentally locked her out there when I left?’ Had she been outside this whole time?
 
-She didn’t react like someone who had been stuck outside for days when the door opened, so I figured she’d somehow locked herself out recently and probably hadn’t noticed yet – I was honestly so relieved I hadn’t locked her outside because that’s the kind of thing I could see myself doing. She didn’t acknowledge me or respond when I told her I was home, she just kept her back to me, Kept drawing. That’s not too unusual because sometimes just she’s in her own world.
+She didn’t react like someone who had been stuck outside for days when the door opened, so I figured she’d somehow locked herself out recently and probably hadn’t noticed yet – I was honestly so relieved I hadn’t locked her outside because that’s the kind of thing I could see myself doing. She didn’t acknowledge me or respond when I told her I was home, she just kept her back to me, Kept drawing. That’s not too unusual because sometimes she’s just in her own world.
 
-I texted my boss to see if I could pick up a shift since I was home and unpacked and then watched some TV in the living room while continuously checking to see if my boyfriend had texted me back (he hadn't). After a few hours, I decided to cook to distract myself from fixating on the trip and lack of response. 
+I texted my boss to see if I could pick up a shift since I was home and unpacked and then watched some TV in the living room while continuously checking to see if my boyfriend had texted me back (he hadn't). After a few hours, I decided to cook to distract myself from fixating on the trip and lack of response.
 
 “Hey! Are you coming in soon?”, I stepped outside, “I made you tofu parm”
 
 She had her head down, still absorbed in her work. I shrugged to myself, set her food on the stove.
 
-When it got dark out, though, and she was still out there, I stuck my head out and asked her if she was coming in, no response. I was surprised she hadn’t needed to come in for water or a bathroom break the entire time since I had been home, but it wasn’t strange enough to worry me at the time. 
+When it got dark out, though, and she was still out there, I stuck my head out and asked her if she was coming in, no response. I was surprised she hadn’t needed to come in for water or a bathroom break the entire time since I had been home, but it wasn’t strange enough to worry me at the time.
 
-When I got up this morning, I at first thought that she had woken up early to get back to it, but when I looked more closely, I noticed her clothes were the same as the ones she had on yesterday, and her hair looked damp. It had poured last night into this morning – had she sat out there all night, in the rain...? That was when I really started to worry about her. I didn’t have contact info for her family, or any other friends to reach out to them. 
+When I got up this morning, I at first thought that she had woken up early to get back to it, but when I looked more closely, I noticed her clothes were the same as the ones she had on yesterday, and her hair looked damp. It had poured last night into this morning – had she sat out there all night, in the rain...? That was when I really started to worry about her. I didn’t have contact info for her family, or any other friends to reach out to them.
 
 I had heard back from work that there was a shift available in the late morning, so I went outside to let her know I was going to work (also as an excuse to check on her).
 
@@ -28,7 +28,7 @@ I hadn’t caught it yesterday, but when I approached her this morning, I realiz
 
 Unsure of what else to do, I grabbed my purse and my keys and went back outside to bring her a glass of water.
 
-I put it down next to her, but she was still immersed in...whatever it was that she was doing. I put my hand on her shoulder but immediately drew it back in surprise – her t-shirt felt weird, like clammy, sticky, skin against my hand. Now that I was closer to her, I noticed she smelled like damp soil -- earthy. 
+I put it down next to her, but she was still immersed in...whatever it was that she was doing. I put my hand on her shoulder but immediately drew it back in surprise – her t-shirt felt weird, like clammy, sticky, skin against my hand. Now that I was closer to her, I noticed she smelled like damp soil -- earthy.
 
 For reasons I couldn’t explain at the time I felt incredibly alone and I instinctually found myself backing away from her into the apartment.
 
@@ -42,7 +42,7 @@ I was so late and in such a hurry that I was at the front door by the time she w
 
 “See ya!” I shouted, as I left and locked the front door behind me.
 
-I noticed Mrs. Shaerberg’s door was still open, the boxes were still there. I had totally forgotten to check on her, but I promised myself I’d check on her tonight. Now that I was looking more closely, I noticed that several other apartments were the same, dark inside, door slightly ajar. 
+I noticed Mrs. Shaerberg’s door was still open, the boxes were still there. I had totally forgotten to check on her, but I promised myself I’d check on her tonight. Now that I was looking more closely, I noticed that several other apartments were the same, dark inside, door slightly ajar.
 
 When I got to work, I started to wonder if I made the wrong decision. I worried that I shouldn’t have left Thea alone in her current state. I couldn’t get her out of my mind – her weird gait, the look on her face as I left, something was bothering me, and I also felt incredibly guilty. She probably shouldn’t be home alone.
 
