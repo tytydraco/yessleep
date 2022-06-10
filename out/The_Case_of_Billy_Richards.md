@@ -1,0 +1,15 @@
+To me, it's absolutely insane how children can be such ambitious little peeps. It's insane the stuff they can do at such young ages in general; film production, art, writing, etc. Now my question is, have you ever heard of the case of Billy Richards? 
+
+Billy Richards was born in 1998, he grew up to be heavily interested in film production. Horror movies too. This kid WAS obsessed with the blair witch project. He became found footage buff when he was only 8. Now this isn't a biography, but this kid was even writing screenplays at 11. He made his first amateur film, however nothing official, at only the age of 10. Though 3 years later I don't think Billy really knew that limits existed.
+
+Billy had kept trying to grow bigger and bigger. He made a small webseries with somebody getting stabbed, strangled, etc. Clearly this didn't go so well with the internet being the internet, and this series fell through. But as far as I know, Billy took that as a loss. With his family going to a popular  diving area, and Billy having a small camera that could function underwater, he took this as a plus.
+
+The family arrived at a place known as Billy's Hole. At least now it's known as that. You're probably realizing by now, what happened at 'Billy's Hole'. Billy decided to try and fake himself drowning as a short found footage film. And he certainly got what he wanted.
+
+Billy pressed record, and after some fake acting above water, and dived in. The water was freezing, but he was used to it. Billy swam in all types of temperatures throughout his... Short lived, life. But he had never filmed anything underwater before. This was his mistake. Because he thought he was controlling his descent. First he got past the blurry stage of water, then he got down into an even colder area. The water became clearer and clearer and clearer, though the ambience became darker and darker and darker.
+
+Suddenly Billy started to panic. He was ready to stop filming, but he lost control. He was still being pulled down by the camera. He started trying to pull himself up. Billy ran out of air quickly though, and tried to breathe in. Billy screamed. At least he had tried to scream. Though this clearly failed. Billy got pulled down more and more.  The camera pulled him down farther, and he slammed into the rocks surrounding the 150 deep hole. His goggles came loose and began to float out of reach. As the pressure became more and more, the camera glitched. Billy gasped for air, but to no avail. This is it.
+
+He slammed down on a edge. Twitching, trying to breathe in. The camera fell down on the rocks. Sand everywhere. Billy had became stuck in the crumbling, sandy, edge. He couldn't move, and he couldn't breathe. He let out one final gasp of pain, and sorrow.
+
+It's cliche, isn't it? An ambitious young filmmaker had fucked up his chances of living a life just because he had to have one perfect shot. One little perfect shot. One little perfect film. And I'm sorry Billy. I am. You were a great son, but maybe I could've been a better dad. But I'll always remember you. Even if you couldn't even remember your family when it came to your stupid films.
