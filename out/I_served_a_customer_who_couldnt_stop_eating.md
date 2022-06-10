@@ -68,11 +68,11 @@ George was the cook's name. He had been working at the joint since the early day
 
 "The most expensive!" George laughed.
 
-"I've been here so long that I've worked my way to the top of the pay ranks. Got myself a pretty good deal from the old management. I know the new owners hate it but they don't have enough trained staff in the kitchen. Plus…"
+"I've been here so long that I've worked my way to the top of the pay ranks. Got myself a pretty good deal from the old management. I know the new owners hate it, they'd fire me if they could, but they don't have enough trained staff in the kitchen. Plus…"
 
 George skilfully threw three waffles onto the hot plate as he talked.
 
-"Contract says I can't be fired for being too good."
+"Contract says I can't be fired for being good at my job."
 
 Within a matter of minutes the second Big Breakfast was served up. I made sure to bring cutlery over to the table this time but it made no difference. The stranger chowed down the meal ferociously with his bare hands…just like before. He violently gnashed the mushed egg beneath his teeth which crunched alongside the crisp bits of waffle.
 
@@ -152,8 +152,16 @@ My brain was hurting with confusion. I could feel the blood thumping in my skull
 
 "He actually said that?"
 
-"You bet! Funny you should mention him. I didn't want to make you nervous last night but he's actually from upper management. Came in for a little inspection and made sure business was good"
+"You bet! Funny you should mention him. I didn't want to make you nervous last night, but he's actually from upper management. Technically my boss. Came in for a little inspection and made sure business was good"
 
-Adrenaline shot up my legs and jolted in my finger tips. My heart felt like a kick drum. An eyelid twitched. Jimmy chuckled before continuing.
+Adrenaline shot up my legs. My heart beat like a drum. An eyelid twitched. 
+
+My mind raced back to George stating he was an expensive employee. The MOST expensive employee. The result of an old contract from the restaurant's initial owners. A contract that the current management did not like.
+
+I thought back to the previous night's customer. A member of upper management. I thought back to him mentioning how it was "time for the main" as I exited the store. If Jimmy's working for him then...
+
+I don't think George quit. 
+
+Jimmy chuckled before continuing.
 
 "And let me tell you mate, business is fucking good."
