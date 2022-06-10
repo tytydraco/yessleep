@@ -58,7 +58,7 @@ I tried to start the robot by saying the name Andy. The eyes lit up. First in an
 
 ''Hello?'' I said a little nervously. No answer. I looked through the instructions again. I forgot that I needed to call out its name so that's what I did.
 
-''Andy'' 
+''Andy''
 
 A small blip sound was heard followed by a voice.
 
@@ -116,7 +116,9 @@ Andy's eyes turned orange for a second, then he turned right and started walking
 
 Before I went to bed, I attempted to turn him off.
 
-''Andy, shut down'' Andy turned to the charging station, which just looked like a small oval platform lying on the floor and then started walking towards it.
+''Andy, shut down'' 
+
+Andy turned to the charging station, which just looked like a small oval platform lying on the floor and then started walking towards it.
 
 He first stood to the left of it, then he backed away and then walked to the right of it. The fans buzzed loudly and then he turned towards me.
 
@@ -142,7 +144,7 @@ Having Andy at home is incredibly nice. All the tedious household chores are no 
 
 I discovered that I could give him instructions to do cleaning and washing while I was at work and that way I avoided him messing around when I was home. Everything went well. Initially. But then it started. The questions.
 
-It was a normal morning. I was sitting by the kitchen table and ate breakfast. When I was done,  I called Andy.  He came into the kitchen.
+It was a normal morning. I was sitting by the kitchen table and ate breakfast. When I was done, I called Andy.  He came into the kitchen.
 
 ''Andy, clean the table''
 
@@ -150,7 +152,9 @@ I wiped my mouth with kitchen paper and threw it over the plate. Then I got up a
 
 ''What is he doing?'' I thought and tried giving the command again.
 
-''Andy, clean the table'' I heard Andy's fans buzzing louder. Then it came...
+''Andy, clean the table'' 
+
+I heard Andy's fans buzzing louder. Then it came...
 
 ''Why?''
 
@@ -198,15 +202,15 @@ I took out the note with the number for the customer service and dialed the numb
 
 ''HouseRobotics, what can I do for you?''
 
-''Yes, hello...I don't know how to explain but I won a house robot from you that I have had at home for a few days now."
+''Yes, hello...I don't know how to explain but I won a house robot from you that I have had at home for a few days now"
 
 "That is wonderful! I hope it lives up to your expectations!" said the woman.
 
-"It has worked very well, but I just have a few questions."
+"It has worked very well, but I just have a few questions"
 
 "That is wonderful! I hope it lives up to your expectations!"
 
-"Yes, you just said that."
+"Yes, you just said that"
 
 "What can I do for you?"
 
@@ -226,7 +230,9 @@ Is it a robot that handles your customer service too?
 
 **Day 10**
 
-I haven't written in a few days. Nothing special has happened. Lots of work now. Andy does what I tell him.No more questions from him so far.
+I haven't written in a few days. Nothing special has happened. Lots of work now. Andy does what I tell him.
+
+No more questions from him so far.
 
 &#x200B;
 
@@ -250,7 +256,7 @@ When I got home, Andy was standing in the hall waiting.
 
 There was something different about him.
 
-''...Thanks'' I said and went to the kitchen to start making food. Andy comes in.
+''...Thanks'' I said and went to the kitchen to start making food. Andy came in.
 
 ''How was it at work today?'' he asked.
 
@@ -288,7 +294,7 @@ After dinner I turned off Andy and went to bed. When I was asleep I dreamed abou
 
 The sun seemed to split, suddenly there were two suns and now it looked like two eyes were staring at me over the horizon. The wind around me got stronger and stronger. I woke up and opened my eyes and Andy stood directly over me with his face barely 20 cm from mine. His orange eyes stared into mine and his fans buzzed loudly from behind his head.
 
-''I can not find the charging station.'' he finally said.
+''I can not find the charging station'' he finally said.
 
 I was completely paralyzed. I couldn't get a word out. His face moved closer.
 
@@ -348,13 +354,15 @@ Andy's head was tilted down and I then realized that Jonathan was still holding 
 
 ''Danger! Danger!'' Andy repeated, pushing Jonathan harder against the wall.
 
-''Andy shut down!'' And as always, Andy followed my order. The eyes turned back to blue and Andy dropped Jonathan, who collapsed on the floor. Andy gave him no more attention but just walked out of the kitchen and left to his charging plate in the living room. Jonathan was in shock but looked unharmed.
+''Andy shut down!'' 
+
+And as always, Andy followed my order. The eyes turned back to blue and Andy dropped Jonathan, who collapsed on the floor. Andy gave him no more attention but just walked out of the kitchen and left to his charging plate in the living room. Jonathan was in shock but looked unharmed.
 
 "Are you okay?" I asked as I helped him up.
 
-''I think so...but seriously. What the fuck was that?''
+''I think so...but seriously, What the fuck was that?''
 
-''I think he...Andy...reacted to the knife you were holding.'' I replied.
+''I think he...Andy...reacted to the knife you were holding'' I said.
 
 ''Should it be reacting to that? Isn't 'he' just a cleaning robot?
 
@@ -364,7 +372,9 @@ He is just a cleaning robot. I am clueless to why he reacted this way.
 
 "Maybe you should return him and ask for a new one?"
 
-Well...I've been thinking about it actually. He's behaving a little..'' I stopped when I suddenly saw a light in the corner of my eye. I looked there. I saw half of Andy's face peeking at us around the corner. One blue eye was locked on me.
+Well...I've been thinking about it actually. He's behaving a little..'' 
+
+I stopped when I suddenly saw a light in the corner of my eye. I looked there. I saw half of Andy's face peeking at us around the corner. One blue eye was locked on me.
 
 ''Andy...'' I said. ''I told you to shut down.'' It took a few seconds, then he reacted to the order and went to the charging station and shut down. I think...I need to return him.
 
@@ -374,35 +384,37 @@ Well...I've been thinking about it actually. He's behaving a little..'' I stoppe
 
 **Day 17**
 
-This morning before I went to work, I called customer service to tell them I wanted to return Andy. But I got no answer. I thought I would try again when I got home. When I sat in the car on the way  home from work, everything started to feel very heavy. Is all of this my fault? Andy's questions, the accident with Jonathan, Andy's weird updates. The staring...is it because of me? Is it because I answered his questions? I know I am breaking the rules. But can it really have consequences like this? Andy no longer feels like a house robot. He feels like...more than that. He must be some form of Artificial Intelligence. An Al that develops the more time we spend together. But why? Why give a cleaning robot a ''consciousness''? What if Andy gets aggressive when I tell him I have to return him?
+This morning before I went to work, I called customer service to tell them I wanted to return Andy. But I got no answer. I thought I would try again when I got home. When I sat in the car on the way home from work, everything started to feel very heavy. Is all of this my fault? Andy's questions, the accident with Jonathan, Andy's weird updates. The staring...is it because of me? Is it because I answered his questions? I know I am breaking the rules. But can it really have consequences like this? Andy no longer feels like a house robot. He feels like...more than that. He must be some form of Artificial Intelligence. An Al that develops the more time we spend together. But why? Why give a cleaning robot a ''consciousness''? What if Andy gets aggressive when I tell him I have to return him?
 
 I parked the car in the driveway. I hesitated to go inside. It feels like I'm a stranger in my own house. An intruder. Ridiculous, I know. But that's how it feels at the moment. When I stepped into the house, Andy was standing in the hall as usual. I turned to the closet to hang my jacket when I heard it.
 
-''Welcome home.''
+''Welcome home''
 
 I froze. I just stared blankly in front of me. The voice had changed again. It did not sound like a robot anymore, it sounded like a human. That was my voice. I turned slowly to Andy.
 
 ''What did you say?'' I asked while feeling my heart pounding inside my chest.
 
-''Welcome home.''
+''Welcome home''
 
-''Your voice...has changed, Andy''
+''Your voice...has changed Andy''
 
-"Yes. I am constantly updated for a more enhanced experience."
+"Yes. I am constantly updated for a more enhanced experience"
 
-It was something else too. I took a step forward and examined him from head to toe.
+It was something else too. I took a step forward and examined him from head to toe
 
 ''Have you gotten taller? I asked.
 
-"Yes. I am constantly updated for a more enhanced experience."
+"Yes. I am constantly updated for a more enhanced experience"
 
 As I stood there looking at him, I realized that he was just as tall as I was. Before, he had been a few centimeters shorter, but now our eyes met exactly at the same height. What's really going on? I started walking to the kitchen.
 
-''Andy. We need to talk. I have some bad ne..'' I stopped at the doorway to the kitchen. The kitchen table and the sink were full of fruits and vegetables. But there was something strange about them. Every single fruit and every vegetable..their skin had been peeled off. They were in a pile in the sink while the fruits and vegetables were laid in neat rows. Andy came into the kitchen. I pointed with my hand towards the fruits.
+''Andy. We need to talk. I have some bad ne..'' 
+
+I stopped at the doorway to the kitchen. The kitchen table and the sink were full of fruits and vegetables. But there was something strange about them. Every single fruit and every vegetable..their skin had been peeled off. They were in a pile in the sink while the fruits and vegetables were laid in neat rows on the table. Andy came into the kitchen. I pointed with my hand towards the fruits.
 
 ''Have you done this?'' I asked.
 
-''Yes.''
+''Yes''
 
 ''Why?''
 
@@ -410,19 +422,23 @@ As I stood there looking at him, I realized that he was just as tall as I was. B
 
 ''I...'' The fans buzzed loudly. His eyes turned blue again.
 
-''I want to get better. So I can help you cook.''
+''I want to get better. So I can help you cook''
 
-"Okay..." I got out and left the kitchen. I sat down on the sofa in the living room and scratched my head. I called for Andy to break the news to him.
+"Okay..." 
 
-"Andy...I know there's only like 2 weeks left before you have to go back but I feel like I...I can't keep you anymore." His eyes changed color from blue to orange for a while, then back to blue.
+I got out and left the kitchen. I sat down on the sofa in the living room and scratched my head. I called for Andy to break the news to him.
+
+"Andy...I know there's only like 2 weeks left before you have to go back but I feel like I...I can't keep you anymore" 
+
+His eyes changed color from blue to orange for a while, then back to blue.
 
 ''Back?'' He finally said.
 
-''Yes...I won 30 days with you in a competition to test and evaluate you. But then you have to go back.''
+''Yes...I won 30 days with you in a competition to test and evaluate you. But then you have to go back''
 
 ''What happens to me when I go...'back'?''
 
-''I don't know'' I replied.
+''I don't know'' I said.
 
 After our conversation, I hope Andy understood why I can't keep him. I blamed it on my job, but the truth is I am scared. But still, it feels awful sending him back in some way...It's a robot for fucks sake! Not a human.
 
