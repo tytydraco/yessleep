@@ -19,3 +19,5 @@ I was walking into my apartment and happened to glance at a mirror as I walked b
 So I guess what I am wondering is is this some sort of rare STI? Have any of you ever seen something like this? I just really want to know if this is treatable, and how to do so. I just really want to get better.
 
 Not to mention that I’m starting to get hungry again…
+
+[Update](https://www.reddit.com/r/nosleep/comments/v8v2pq/update_i_dont_think_it_was_an_sti/?)

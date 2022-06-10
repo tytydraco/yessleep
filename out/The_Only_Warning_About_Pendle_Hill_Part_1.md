@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/v7x6l7/the_only_warning_about_pendle_hill_part_2/?utm_medium=android_app&utm_source=share)
+[Part 2](https://www.reddit.com/r/nosleep/comments/v7x6l7/the_only_warning_about_pendle_hill_part_2/?utm_medium=android_app&utm_source=share) [Part 3](https://www.reddit.com/r/nosleep/comments/v8tmhc/the_only_warning_about_pendle_hill_part_3/?utm_medium=android_app&utm_source=share)
 
 All my life, I’ve been warned about Pendle Hill. Specifically, to always make sure you’re elsewhere on 31st October at witching hour. Around here, it's midnight, the creepiest time of day. Nobody ever explained why; it’s almost as if they wanted to tempt people into looking… Maybe a decent warning would have kept people away. Maybe if I’d known what was lingering there, I wouldn’t have gone myself. Maybe if I’d known, I could have stopped everything before it happened. Obviously, I didn’t stop it. I actually made it happen, or I wouldn’t be here warning you. 
 
@@ -20,4 +20,4 @@ I could feel her invading my head, filling it with fear. Her. She is the reason 
 
 Because when I walked into my bedroom, there was a grimoire sitting on my bed. I opened it and found a note that read: “Next year, be prepared. I won’t allow you to run away so easily next time.”
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/v7x6l7/the_only_warning_about_pendle_hill_part_2/?utm_medium=android_app&utm_source=share)
+[Part 2](https://www.reddit.com/r/nosleep/comments/v7x6l7/the_only_warning_about_pendle_hill_part_2/?utm_medium=android_app&utm_source=share) [Part 3](https://www.reddit.com/r/nosleep/comments/v8tmhc/the_only_warning_about_pendle_hill_part_3/?utm_medium=android_app&utm_source=share)
