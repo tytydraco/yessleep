@@ -36,7 +36,7 @@ As I walked up the three small steps of the back porch, I heard a loud bang from
 
 I watched him. Can’t explain why. Instinct, or childhood curiosity. I don’t know why. I just remember that log of an arm guiding me to the back door of the house, and his eyes. God, his *eyes*. They locked on the woodworking shed as we moved inside, a kind of stare that predicates a fight or a hunt. Adrenaline pumped orbs that an animal has before its eaten by a large predator. I snuck one last glance at the shed as I was guided indoors, noting the crimson wooden walls, and the bolted metal roof.
 
-There are two things to remember for younger readers here. First, we didn’t have internet access in a lot of places in the 90’s, especially in rural Texas. Wifi was essentially sorcery, and we had no practicing wizards. Computers and phones had hard lines; my uncle quickly headed for the latter. 
+There are two things to remember for younger readers here. First, we didn’t have internet access in a lot of places in the 90’s, especially in rural Texas. Wifi was essentially sorcery, and we had no practicing wizards. Computers and phones had hard lines; my uncle quickly headed for the latter.
 
 Second, no cell phones. I ended up getting my first cellphone when I was an adult, got out of basic training, and collected two paychecks to get one. They were a luxury in the early 2000’s, and this was years before that. Its difficult to understand how *alone* you could truly be back then. This also meant he had no way to contact my father making the eight-mile drive back to our house.
 
@@ -82,7 +82,7 @@ They were gone in moments.
 
 Its hard to explain how the next few minutes felt. I remember hearing my breathing, little more than shallow gasps. I remember seeing a shadow, I think, dart somewhere to my right. I remember that feeling. Being *helpless*. That ominous, overbearing pressure of a child’s fear.
 
-The weirdest part of it all was the silence. Christ, the goddamn *silence*. The thunderless storm drilled straight down, lacking both electricity and wind. It was like being under a waterfall, noise crashing completely around me in every direction. But I’m telling you, there was *silence*. I felt anguish in that waiting. That desperate anticipation to hear something, anything, other than that godawful rain. 
+The weirdest part of it all was the silence. Christ, the goddamn *silence*. The thunderless storm drilled straight down, lacking both electricity and wind. It was like being under a waterfall, noise crashing completely around me in every direction. But I’m telling you, there was *silence*. I felt anguish in that waiting. That desperate anticipation to hear something, anything, other than that godawful rain.
 
 I ran to the landline. Needed my mom, my dad. Needed protection, needed safety. Needed away from here. I felt guilty then, less so now. Like I was abandoning my uncle to his fate, *as if I could do anything to help him.*
 
@@ -96,7 +96,7 @@ And it was taller than my uncle. Uncle Mick was 6’6” my dad later told me. H
 
 He was looking up at it.
 
-I remember hearing his yell; unsure if it was rage, or pain, or both. I remember seeing the axe rise; remember those four, massive shadows unfurling in the storm. Black tarps expanding out as a giant maw. Like a horrible, carnivorous flower blooming in a forgotten jungle, ready to swallow him whole. I remember the feeling, God that *feeling*, as those quad wings slammed downward, launching both shadows into the air and out of site in a single, soundless burst. The *feeling* of disbelief, of shock, of dread. The feeling of my heart sinking to my feet.
+I remember hearing his yell; unsure if it was rage, or pain, or both. I remember seeing the axe rise; remember those four, massive shadows unfurling in the storm. Black tarps expanding out as a giant maw. Like a horrible, carnivorous flower blooming in a forgotten jungle, ready to swallow him whole. I remember the feeling, God that *feeling*, as those quad wings slammed downward, launching both shadows into the air and out of sight in a single, soundless burst. The *feeling* of disbelief, of shock, of dread. The feeling of my heart sinking to my feet.
 
 Then, the silence. I remember the silence.
 
@@ -114,7 +114,7 @@ I’ll never forget. No drug, no shrink, no medication or prognosis or fucking k
 
 It moved slightly; its right shoulder rose as the arm did the same. Three, long shapes appeared from beneath the window, each home to an exaggerated claw. The trio tapped a three note staccato against the glass, as its left hand rose now as well.
 
-I screamed then. Not as a child, nothing so innocent. It was a bestial thing. Something I couldn’t imitate now if I wanted to, something I don’t think any word can describe. They said I was screaming still when they found me wedged between my uncle’s nightstand and bedframe; curled in a weighty, nerved-laden ball. The last real memory I have… isn’t tangible. Not the shadowy, haunting visage unreadable in the storm. Not the sound of those vile digits taunting me with their irregular, chaotic cadence upon the glass I could *somehow* hear over the rain. Not the even the sight of its left hand slowly lifting my uncle’s scalp above the window’s lip. My psychiatrist is right. As horrifying as these images are, and as weird as this sounds, my final memory is a *feeling*.
+I screamed then. Not as a child, nothing so innocent. It was a bestial thing. Something I couldn’t imitate now if I wanted to, something I don’t think any word can describe. They said I was screaming still when they found me wedged between my uncle’s nightstand and bedframe; curled in a weighty, nerved-laden ball. The last real memory I have… isn’t tangible. Not the shadowy, haunting visage unreadable in the storm. Not the sound of those vile digits taunting me with their irregular, chaotic cadence upon the glass I could *somehow* hear over the rain. Not even the sight of its left hand slowly lifting my uncle’s scalp above the window’s lip. My psychiatrist is right. As horrifying as these images are, and as weird as this sounds, my final memory is a *feeling*.
 
 The feeling of a hidden sneer. A quieted joy that monster had with its wrought terror. It was no animal. It was not mindless. It acted with purposeful, deliberate malice. Even now I think it let me live only because it recognized the emotional damage it left upon me, dooming a child to a lifetime of therapists, drug abuse, and inpatient centers.
 
@@ -140,4 +140,7 @@ I still see it sometimes in my sleep. Imagine it stalking up on my urban apartme
 
 I still feel it. Like its out there, like it *knows* me. Knows where I am and what I’m feeling. Like this is what it wanted…
 
-I need a drink.
+I need a drink.  
+
+
+EDIT: Removed a single, erroneous "the". I'll fire my editor immediately (me).
