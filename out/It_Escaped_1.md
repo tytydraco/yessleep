@@ -9,3 +9,5 @@ We make it to the van, that's when we encountered it. We were immediately ushure
 One of the armed men with us yell, "Oh shit. Run, whatever that thing is, we definently do not want it to catch us."
 
 Not knowing what else there is to do, we just book it. We ran straight towards the van and started to drive off. There's just one issue with the sight,  how could such a huge entity fit inside the confines of the building it was in? I certainly knew it was the entity I was studying. I never had a visual of it, until now. Shit, my phone's almost dead. Ending Digital Text Log (DTL).
+
+[DTL 2](https://www.reddit.com/r/nosleep/comments/v9fomm/it_escaped_2/?utm_medium=android_app&utm_source=share)
