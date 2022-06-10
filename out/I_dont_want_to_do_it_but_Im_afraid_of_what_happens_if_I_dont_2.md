@@ -1,3 +1,5 @@
+https://www.reddit.com/r/nosleep/comments/v6w72c/i_dont_want_to_do_it_but_im_afraid_of_what/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+
 June 12th 2007. I remember it well.
 
 I woke up soaking wet on the basement floor. The room had a lingering scent of rotting, water logged flesh and I could hear the water dripping from the pipes into the cistern. I sat up slowly, I wasn't sure if he was still there.
