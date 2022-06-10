@@ -158,7 +158,7 @@ Adrenaline shot up my legs. My heart beat like a drum. An eyelid twitched.
 
 My mind raced back to George stating he was an expensive employee. The MOST expensive employee. The result of an old contract from the restaurant's initial owners. A contract that the current management did not like.
 
-I thought back to the previous night's customer. A member of upper management. I thought back to him mentioning how it was "time for the main" as I exited the store. If Jimmy's working for him then...
+I thought back to the previous night's customer. Now revealed to be a member of upper management. I thought back to him mentioning that it was "time for the main" as I exited the store. If Jimmy works for him that means...
 
 I don't think George quit. 
 

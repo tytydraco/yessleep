@@ -57,3 +57,5 @@ I flipped on my gun light and scanned the foyer of the old home. Thick dust and 
 “I’ll hold the stairs, you two clear the bottom floor real quick and then we’ll head upstairs,” I whispered. I saw Smith nod, before he and Wilson melted into a dark hallway on my right. 
 
 The moment I was alone, it felt like time had stopped. I stood with my gun pointed up the stairs and waited. I was trying to listen for any sound that would give me an idea of where the footsteps had gone on the second floor but was met with only silence.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/v92cyk/the_house_on_buckhead_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
