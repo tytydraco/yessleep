@@ -1,22 +1,12 @@
 2017
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/ugtih0/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/uiay4w/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
-
-[Part 3](https://www.reddit.com/r/nosleep/comments/uldbbg/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
-
-[Part 4](https://www.reddit.com/r/nosleep/comments/uo0yd5/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
-
-[Part 5](https://www.reddit.com/r/nosleep/comments/uroj8d/theres_an_old_bell_tower_near_my_house_it_is/?utm_medium=android_app&utm_source=share)
+[Part 1](https://www.reddit.com/r/nosleep/comments/ugtih0/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) [Part 2](https://www.reddit.com/r/nosleep/comments/uiay4w/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) [Part 3](https://www.reddit.com/r/nosleep/comments/uldbbg/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) [Part 4](https://www.reddit.com/r/nosleep/comments/uo0yd5/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) [Part 5](https://www.reddit.com/r/nosleep/comments/uroj8d/theres_an_old_bell_tower_near_my_house_it_is/?utm_medium=android_app&utm_source=share)
 
 .
 
 2022
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/v10257/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/v43pfu/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
+[Part 1](https://www.reddit.com/r/nosleep/comments/v10257/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) [Part 2](https://www.reddit.com/r/nosleep/comments/v43pfu/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
 
 
 Part 3.
