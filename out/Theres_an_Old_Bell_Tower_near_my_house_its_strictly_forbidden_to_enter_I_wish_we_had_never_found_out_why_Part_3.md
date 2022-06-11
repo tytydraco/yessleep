@@ -294,3 +294,5 @@ We were once again frozen in fear as the beast slowly got closer.
 We only had one other way to run...
 
 Up!
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/v8qh8v/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share)
