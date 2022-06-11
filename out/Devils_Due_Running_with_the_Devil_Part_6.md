@@ -133,3 +133,5 @@ Part 6: Cutter's tale
  She just stared down at the pitiful specimen before clenching her fists, causing the skull lined with thin and withered flesh to practically flatten as though it was between her fingers when she tightly balled them shut. The blood sprayed across the likely very expensive desk as the eyes popped and bones split through the skin, before what remained of what was once a head planted down upon the blood-soaked wood. 
 
  "Alone at last," she said as the room fell silent once more.
+
+[Final](https://www.reddit.com/r/nosleep/comments/va2lr5/devils_due_running_with_the_devil_final/?utm_medium=android_app&utm_source=share)

@@ -308,3 +308,5 @@ The chaos of the previous day's events was still fresh in my mind when I finally
 [Part 5](https://www.reddit.com/r/nosleep/comments/v8m9md/devils_due_running_with_the_devil_part_5/?utm_medium=android_app&utm_source=share)
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/v9d6vm/devils_due_running_with_the_devil_part_6/?utm_medium=android_app&utm_source=share)
+
+[Final](https://www.reddit.com/r/nosleep/comments/va2lr5/devils_due_running_with_the_devil_final/?utm_medium=android_app&utm_source=share)

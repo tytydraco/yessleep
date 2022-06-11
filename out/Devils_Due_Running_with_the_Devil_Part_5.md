@@ -170,3 +170,5 @@ Part 5: A face from the past
  Given the fact he all but confessed his many atrocities to me before we parted ways some years back, I couldn't quite figure out what it was about this one that made him appear so broken up. Of course, with the way the two of them carried on, it was quite evident there was more to what they were than friendship. As I followed them back to that familiar open lobby area, and to the stairs leading to the next floor up, I had a feeling whatever we had been hoping to find would be revealed soon; that, or something far worse. Either way, I could only hope all of the madness was reaching its conclusion, for better or worse.
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/v9d6vm/devils_due_running_with_the_devil_part_6/?utm_medium=android_app&utm_source=share)
+
+[Final](https://www.reddit.com/r/nosleep/comments/va2lr5/devils_due_running_with_the_devil_final/?utm_medium=android_app&utm_source=share)
