@@ -1,3 +1,7 @@
+[**Part 2**](https://www.reddit.com/r/nosleep/comments/v9kbh5/the_stray_part_2/)
+
+&#x200B;
+
 It’s everywhere. I can’t sleep anymore because when I wake up it gets even worse. It has taken the place of almost everyone I know and love. No matter where I go. No matter what I do. It is there. I feel its eyes watching my every move. I don’t know what it wants. I wish it would just leave me be. All I know is what the stranger called it: The Stray.
 
 It was about a month ago that it all began. I had recently taken up walking. As a hobby, I guess. No particular reason. I wasn’t lonely. I wasn’t looking to pick up joggers. And I wasn’t trying to get into shape. I already worked-out three times a week at an actual gym. I guess I just wanted to get away from all the hustle and bustle for a while, get some peace and quiet. The woods were perfect for that. They weren’t too far from home and my walks helped calm my anxiety.
@@ -42,7 +46,7 @@ She said nothing, just stared at me until…
 
 If I had known then what I know now, I would never have stood there so long staring.
 
-I introduced myself to the jogger: Jim Hawkins. I asked her name, but she refused to answer. She quickly gave me an ultimatum though as a way to learn it. 
+I introduced myself to the jogger: Jim Hawkins. I asked her name, but she refused to answer. She quickly gave me an ultimatum though as a way to learn it.
 
 “If you listen to the old man’s story and tell me everything, I’ll give you my name,” she said.
 
@@ -68,7 +72,7 @@ I stuttered, “I would like to hear your story?”
 
 “Because of that,” he said, as he looked back to the jogger.
 
-I nodded in response, befuddled by his wording. He stared for a while before dipping his head away as he considered the proposition, all the while mumbling to himself. I listened intently. If I could hear even one word. And I did. Just an old man’s ramblings, but I was positive I heard him say “I could die.” Was it a plea? A way to pass The Stray off to some other miserable soul? Or maybe I’m paranoid and he just needed to get his story off his chest. 
+I nodded in response, befuddled by his wording. He stared for a while before dipping his head away as he considered the proposition, all the while mumbling to himself. I listened intently. If I could hear even one word. And I did. Just an old man’s ramblings, but I was positive I heard him say “I could die.” Was it a plea? A way to pass The Stray off to some other miserable soul? Or maybe I’m paranoid and he just needed to get his story off his chest.
 
 The man soon raised his head.
 
@@ -94,7 +98,7 @@ I shrugged, not wanting to break his rule. Also knowing that I didn’t know eno
 
 “I was twenty-four when I first signed up.”
 
-I interrupted and said, “That’d make you—” 
+I interrupted and said, “That’d make you—”
 
 I stopped myself mid-sentence knowing I broke his rule. I winced as I slapped myself in my own mind.
 
@@ -112,11 +116,11 @@ He may have smelt like a corpse but in all physicality, he didn’t seem as if h
 
 “It was a couple of months later when the camp was raided. We were paraded outside and forced to the floor. They chose volunteers one by one. The chosen were forced into a truck, blindfolded and drove to the middle of nowhere.
 
-“It was night when we arrived. I could tell we were in the woods, by the smell alone. The blindfolds were removed as they took us inside a laboratory. We had individual cells, white walls, no windows and three meals a day. Better than what we had at the camp that’s for sure. 
+“It was night when we arrived. I could tell we were in the woods, by the smell alone. The blindfolds were removed as they took us inside a laboratory. We had individual cells, white walls, no windows and three meals a day. Better than what we had at the camp that’s for sure.
 
 “I never saw the other men again. But I did hear them as they were escorted away one by one. First time was quiet, but the second, they kicked and screamed, begging to be spared. Begging for mercy. There was never a third time.
 
-“I worried as the weeks passed. Soon it’d be my turn. And then they came. I gathered my composure as they opened the cell. I wasn’t going to let them break me. So, I accepted my fate. I knew the others were dead and that I was next. 
+“I worried as the weeks passed. Soon it’d be my turn. And then they came. I gathered my composure as they opened the cell. I wasn’t going to let them break me. So, I accepted my fate. I knew the others were dead and that I was next.
 
 “They escorted me into a darkened octagonal room. A light hung above that only lit the bloody gurney that sat in the middle. I remained calm as they strapped me in. There was a pane of glass opposite the table and I knew that these sick fuckers were watching from behind it. But, I wasn’t going to give them the satisfaction of seeing me break.
 
@@ -134,11 +138,11 @@ The stranger seemed unnerved by my interruption this time.
 
 “Yes. And gunfire. Turns out my experiment was the same day the allied forces decided to invade the lab. Don’t ask me how they knew where we were, because I don’t have a fucking clue.
 
-“Anyway, that scientist. The one with impeccable English tried to release me, but was shot down before he had the chance. His body fell over me. The vibrations. The energy the machine gave off seemed to bring him to life again for a second, because I swear, he looked at me. 
+“Anyway, that scientist. The one with impeccable English tried to release me, but was shot down before he had the chance. His body fell over me. The vibrations. The energy the machine gave off seemed to bring him to life again for a second, because I swear, he looked at me.
 
 “It was hours before the allies figured out how to turn It off, and when they did, they just pulled the plug.
 
-“I felt my body twist and turn all that time, like it was trying to get escape me. I could feel blood slither down my face and merge with the scientists, whose body had mostly withered away by this point. It was only later, from documents found in the lab, that I discovered that no one else had survived the machine longer than five whole minutes. 
+“I felt my body twist and turn all that time, like it was trying to get escape me. I could feel blood slither down my face and merge with the scientists, whose body had mostly withered away by this point. It was only later, from documents found in the lab, that I discovered that no one else had survived the machine longer than five whole minutes.
 
 “I was in there for two hours.
 
@@ -148,7 +152,7 @@ The man had finished his story with the name of a curse.
 
 “The Stray? Why do you call it that?” I asked.
 
-“There are two reasons. The innocent one: it follows you like a Stray dog. Everywhere. Without fail. 
+“There are two reasons. The innocent one: it follows you like a Stray dog. Everywhere. Without fail.
 
 “And then there’s the other meaning: back in the war when a soldier dodged a stray bullet, we didn’t consider that lucky like most would. We had seen far too many make that mistake, only to die a far worse death a week, month, year or more later. You dodged a bullet, but the Reaper’s blade is still coming for you. Even if it does have to drag you away kicking and screaming. We called them a Stray. Waiting to die. Waiting for that stray bullet to come back and send them to the grave.
 
@@ -186,7 +190,7 @@ I brushed off the worry and agreed to go on with the date. We made our way to Pa
 
 I relayed the story to her. Every sordid detail. She was almost as shaken as I was, but she was better at hiding it. I could tell though from how she was put off her food, twirling it with her fork without taking a bite.
 
-She didn’t say a word when she abruptly leaned over the small metallic table and kissed me. It was longer than expected. I thought it would just be a kiss on the cheek but it was more. 
+She didn’t say a word when she abruptly leaned over the small metallic table and kissed me. It was longer than expected. I thought it would just be a kiss on the cheek but it was more.
 
 When she pulled away, she just said, “Bethany,” with a smile on her face. Her Name.
 
