@@ -478,7 +478,7 @@ I chuckled. "It's okay, thanks!"
 
 "Wow, he looks pretty majestic in these. Didn't think that was possible."
 
-"Hey! Shirley's can be very majestic when he wants to! Alex, check these out!"
+"Hey! Shirley can be very majestic when he wants to! Alex, check these out!"
 
 Alex took off his sunglasses as Sebastian showed him the photos, and he said, "She has quite the talent if she managed to find his photogenic side."
 
