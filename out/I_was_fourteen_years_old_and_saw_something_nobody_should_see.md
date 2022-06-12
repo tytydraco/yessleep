@@ -2,9 +2,11 @@ This happened when I was an early teen, and although I'm now in my mid-20's, I c
 
 My dad, sister, stepmom and I had just moved into a new house. It wasn't super ritzy or anything, but it also wasn't in the worst part of town. The house was very old, but up to date, and I was excited to turn my new room into a sanctuary. When we first moved in, I spent a lot of time in that bedroom. My family has always been a bit more social than I, so they spent a good amount of time getting to know the neighbors. Based on my family's interactions, everyone around seemed to have a good head on their shoulders. I wouldn't have guessed that anything was "off" about our new place, or assumed that any strangers would give us a reason to worry... Until a few weeks in.
 
+As it turns out, you never know who could be watching you. 
+
 One afternoon, my dad and stepmom were at work and my sister was at a friend's house (we had a holiday, so school was out). I spent my day listening to music and putting some finishing touches on the walls of my bedroom. I had the windows open to let in the soft sunlight that was just breaking through a sky of gray clouds, and the backyard view was beautiful: We had a very nice sprawl of tall green grass, and a gate that led from the end of the driveway into the yard, itself. As my music played loudly, I made out a separate sound... It sounded like a loud popping noise coming from the backyard. Naturally, I glanced out the window, and didn't see anything. I shrugged it off and carried on with what I was doing, until a few minutes later... When I heard the noise again. This time, it was louder, and it sounded a lot like someone had thrown a rock or something at my window (I was on the second floor level).
 
-It turns out that that was exactly what was going on.
+That was exactly what was going on.
 
 Suddenly, as I had started to move towards the window, a rock went flying towards my window with a loud *thunk.* It hit the glass and I screamed, rushing over to see what the hell was going on. I looked down at the ground, and made out what looked like the top of a man's head.
 
