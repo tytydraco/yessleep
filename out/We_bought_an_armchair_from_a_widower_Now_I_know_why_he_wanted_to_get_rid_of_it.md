@@ -1,0 +1,27 @@
+We moved interstate into the new house. It was an old house in a sleepy suburb by the coast. Many of the nearby houses were holiday houses; in the winter their windows stayed dark. There was an abandoned, forgotten feeling about the suburb. There were no shops in town but for a small grocery store stuck in time at the end of the street. 
+
+My girlfriend and I loved this about the place - it felt removed from the rest of the world. The coastline was made of rugged red cliffs. When the waves crashed on the shoreline and withdrew into the sea, they took with them the tinkling sound of rolling pebbles.
+
+On the first night, the only furniture we owned was a bed, a lamp, a dented half bookcase and a few old crates. All of our things fit in boxes that were stacked in the back room. We didn’t have much, but that was how we liked it. We used the crates stacked beside the bed as a nightstand, and without a kitchen table we sat outside on the deck and ate dinner even though it was getting cold. We wrapped scarves around our necks and bundled ourselves in coats.
+
+At night the wind picked up; in the morning, metal signs along the long stretch of highway towards the city would be bent in half. On the second night we woke up to a large *thunk* on the roof. I clambered out of bed and went outside with a head torch. I’d tried the outside light, but the globe must have gone. My girlfriend stayed inside. 
+
+It was freezing outside. My hair whipped across my face, somewhere nearby a gate rattled back and forth in the wind. Along the side of the property, I saw a small tree had fallen. It lay pitched against the side of the house. Luckily the only damage was a bent gutter. The next day we observed the claw like roots, clumps of earth knotted around them. I guess there’d been a lot of rain lately, and the shallow root system and the wind had caused the tree to uproot.
+
+Slowly we furnished the house with a post-World War II table from a second-hand store, a mixture of odd wooden dining chairs and an old leather couch from marketplace. We picked up one bedside table from the side of the road. We piled our books along the floor against the wall of our bedroom.
+
+While driving around one day, we saw that there was a bunch of old furniture for sale out the front of a nearby house. We stopped and talked to the middle-aged guy selling it. He was a bit nervous and jumpy – and kept eyeing us off as we browsed. He told us that his wife had just passed away. That she had been a collector of old furniture. With her gone he was selling the house and needed to get rid of all the furniture. 
+
+There was a creepy old headboard with a radio attached that he showed us, and an old grandfather clock – some really cool pieces to look at but nothing we would take home. We ended up buying two mid-century armchairs. They had a carpet bag floral pattern, but my girlfriend thought she would be able to reupholster them.  The only defect was that one of the chairs had two weird scratches down the wooden armrests, but my girlfriend said she didn’t mind. It would be nice to have some chairs to sit around the fire when it was cold at night, and to sit in and drink tea early in the mornings.
+
+That was yesterday. Last night I woke up because I could hear the gate had blown open. When it does this it crashes back and forth, and the frame gets warped. I got up to close it and didn’t bother to turn on any of the lights. 
+
+I was still half asleep and it was pretty dark, but as I entered the living room my heart gave a stop for a second. It looked like there was someone sitting in one of the armchairs by the cold ashes in the fireplace, and the front door was wide open, inviting the dark night in. My heart thumped, thinking someone had broken in, but when my eyes adjusted properly, there was nothing there. 
+
+It took me a moment to recover from the start, but then I nearly laughed at myself. I must have been half asleep – though I was still a bit unnerved about finding the door wide open. My girlfriend is usually pretty good at locking up at night, when it gets dark, she goes around and closes all the curtains and checks all the locks, a habit from living in rougher parts, I guess. 
+
+Anyway, I went out and shut the gate, then came back in and locked the door. I guess I was still a little spooked by thinking someone had broken in, because I was extra edgy when I went out. I kept noticing trees bending in the wind in my peripheral and thinking there was something there. Unrelenting wind can do some strange things to the mind. There aren’t really many streetlights on our side of the street, so it was pretty dark. I’ll have to change the outdoor lightbulb and get a better bolt for the gate. 
+
+I climbed back into bed gratefully and curled in close to my girlfriend, who was warm, and breathing deeply. I couldn’t believe she’d slept through the whole thing! But part of the move here was for some peace and quiet, we’d both come from pretty chaotic work in a remote community, and her health hadn’t been the best since.
+
+This morning I mentioned the door to my girlfriend, and she says she’s pretty sure she locked it like she does every night, but she can’t specifically remember doing it. We’ll be sure to lock up properly tonight anyway! As I’ve mentioned, there aren’t that many people around this time of year, so I don’t like the thought of what would happen if anyone did get in.

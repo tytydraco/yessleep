@@ -1,4 +1,30 @@
-There is an old apothecary sheltered in an alleyway midtown. It is easy to miss if you do not know where to look. Its unassuming storefront is unmarked, and even if you find it there’s no guarantee the old Chinese proprietor will be there to have it open. He spends only a few days a month at the apothecary, if even that.     
+I can’t say I was ever too close to my great-grandfather. I’d only ever met him a handful of times, all when I was too little to really talk to, or even remember much about him. He’d lived across the country in California all my life, while I’m East Coast born and raised. Even if I had been close enough to visit, as far as I know he barely spoke a lick of English, and I barely speak a lick of Chinese.  
+
+Still, I couldn’t help but feel sad when my mom told me he’d passed. He’d been around for so long, and even if I didn’t really speak to him it still felt comforting to know that there had been a living, breathing piece of family history. He had already seemed ancient when I was a kid, and according to my mom he was already ancient when she was a kid too.  
+
+What I did remember was that he’d been so wrinkled his skin looked cracked. He was hunched and short from the long years of his life, and had a kind of sickly-sweet odor of ginseng and honey that clung to him and his clothes. It wasn’t really a bad smell, just unique to him, like nothing I’ve smelled since.
+
+Until yesterday that is. To everyone’s surprise my great-grandpa left me, in his will, the dusty, tiny old apothecary he’d insisted on maintaining all his life. He probably should’ve retired decades ago, and I can’t imagine the place was turning a profit. It was tucked away hidden in a tiny alleyway that was almost impossible to find if you didn’t know where to look. Even with the directions he’d left, translated by my mom, I still had a hell of a time finding the place.  
+
+When I got there it reeked of my great-grandpa’s smell. So sweet it was almost over-powering.  
+
+I had no clue why he’d left the shop to me of all people. My mom always said that whenever she spoke to him he’d ask after me, saying I was his favorite, but I kind of just assumed she was telling all of my siblings the same thing to make us like the old man better. The apothecary was the only thing in the will besides a really, truly tiny amount of money, some old calligraphy paintings, and the note.
+
+The note was for me as well, never mind that it would inevitably be written in Cantonese and beyond any hope of me understanding it on my own. I still hadn’t opened it as I stood in the dusty, mote-ridden interior of my great-grandfather’s shop. I could imagine him moving through it at his slow, stooped pace, standing behind the counter, greeting customers, grabbing ingredients from the back.  
+
+I took the note out of my pocket as I headed to the shop’s storage room. It was sealed with a sort of amber, golden wax, and at the bequeathing there had been strict instructions to not open it until I was alone in the back of the shop. I had no idea why my great-grandpa had wanted that, especially seeing as alone I wouldn’t be able to read the thing.  
+
+The back of the apothecary was much smaller than I had expected. There was just a couple shelves lined with small stone jars, and two larger but otherwise identical pots. They were nearly the size of me and took up most of the space. I realized that it was these pots that the smell was coming from, as it grew stronger and stronger the closer I got.
+
+I cracked the lid on one of the big jars and peered within. There was a golden and viscous fluid inside. I dipped the tip of my finger into it and put some on my tongue. It was so sweet, and I realized it was some kind of honey.
+
+It made sense, honey has a lot of medicinal benefits and always has. Ancient cultures used it often for a myriad of purposes, and so it was no surprise that my ancient great-grandpa’s apothecary dealt in honey as well. What was weird was that he clearly had so much honey, it seemed like he must’ve had some yet-unknown, secret bee-keeping operation no one knew about.  
+
+Figuring now was as good a time as any, I cracked the letter’s seal and unfolded it. I thought I’d be putting it away just as quickly until someone could translate it for me, but to my surprise, it wasn’t written in Cantonese. Instead, English letters filled the page.  
+
+The handwriting on the note looked rushed, hurried, sloppy. As far as I knew my great-grandpa didn’t know how to write or read in English, so it seemed unlikely the letter was his. Why then had it been a part of his will, and been bequeathed to me of all people along with the apothecary? Hoping some of the answers to my questions lay within, I began to read---
+
+“There is an old apothecary sheltered in an alleyway midtown. It is easy to miss if you do not know where to look. Its unassuming storefront is unmarked, and even if you find it there’s no guarantee the old Chinese proprietor will be there to have it open. He spends only a few days a month at the apothecary, if even that.     
 
 If you can find it, and if you’re lucky enough to come on a day when he is there, he’ll welcome you inside. He is a wizened, wrinkled old creature. Stooped low and crooked, he stands scarcely taller than most peoples’ waists. Do not be surprised if he doesn’t ask what you want, but instead gives it to you with a knowing grin. This is because there is only one thing that people ever come to his apothecary for. They come for the mellified man.  
 
@@ -86,4 +112,14 @@ If you’re fortunate enough to not break something with your sudden fall onto u
 
 It is there, in that vast jar of mellified man, that the old proprietor will eventually come to collect you. If you are lucky, enough time will have passed that your mind will be too far gone to realize what is happening. If you aren’t, you will feel it as you are slowly surrounded by the honey. He will pour it over you in a vast, endlessly sweet cascade. It will rise around you, enveloping you in its golden, cocooning warmth. You will hear a final, dreadful and deafening grating of stone on stone as the proprietor seals you within. There you will remain.  
 
-*I am the mellified man. In a 100 years or more you will take me from my jar and there I still will be. You will use me and I will coat you inside and out until you are as golden-sweet as* [me.](https://www.reddit.com/user/EddyRanpo/comments/v7akm1/post_2_update_mellified_man/?utm_source=share&utm_medium=web2x&context=3)
+*I am the mellified man. In a 100 years or more you will take me from my jar and there I still will be. You will use me and I will coat you inside and out until you are as golden-sweet as me.*  
+
+*--* and then the letter ended.  
+
+What the hell was this? A twisted joke by my great-grandpa? An elaborate fantasy about himself he’d had someone write?  
+
+A warning?  
+
+I stared at the jar I had opened, from which my great-grandfather’s familiar scent drifted. Despite the craziness of it all, the insanity of what the letter had described, I felt petrified. It couldn’t be real, but if it was surely that one taste… Just that one taste I’d had before of whatever this stuff was couldn’t hurt me, or be that bad for me right?  
+
+And surely just one taste more won’t make a difference.  
