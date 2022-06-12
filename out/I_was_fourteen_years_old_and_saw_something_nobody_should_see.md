@@ -24,4 +24,4 @@ They had found the man hiding in our backyard shed, and in the shed, which was f
 
 When they were leading the man towards the cop car, wrists cuffed, I watched from behind the curtains in the living room. He turned his head, and I swear he caught my eye, because he mouthed the words *"you're mine."*
 
-I haven't heard any updates on the man, and I still have anxiety about whether or not he's free. I'm moved out of that house now, but I still fear his lurking. Sometimes, he visits me in my nightmares.
+I haven't heard any updates on the man, and I still have anxiety about whether or not he's free. I'm moved out of that house now, but I still fear his lurking. Sometimes, he visits me in my nightmares... And I often wonder if the slight tapping on my window at nighttime is just a manifestation of my fears.
