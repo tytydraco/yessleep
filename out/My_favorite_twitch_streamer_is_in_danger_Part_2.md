@@ -1,7 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/v20ts3/my_favorite_twitch_streamer_is_in_danger)
 
 
-
+[Part 3](https://www.reddit.com/r/nosleep/comments/va9ojn/my_favorite_twitch_streamer_is_in_danger_part_3)
 
 
 
