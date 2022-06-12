@@ -75,3 +75,5 @@ He got out his keys as we began walking towards his car.
 “The Canadian coffee chain?” He frowned at me. “Nothing so grand as that, I’m afraid. The stores around here only stock Nestle instant coffee.”
 
 I looked at him in horror.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/vaey9z/theres_something_not_quite_right_about_lester/)
