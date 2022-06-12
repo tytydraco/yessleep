@@ -24,7 +24,7 @@ The kids got out of the bus one by one and right when it was my turn, one of my 
 
 We just entered and this place was huge! Holy shit, it looked way more like a castle than a museum. 
 
-Right when I thought this wasn't so bad someone tapped my shoulder. It was...Divya.
+Right when I thought this wasn't so bad someone tapped my shoulder. It was...Aman.
 
 "What's wrong?"
 
@@ -42,20 +42,52 @@ I sighed, "Then tell the teacher..."
 
 "You ask too much. Let's just go."
 
-Without asking I went with her which turned out to be a *terrible* idea. We stood there in the middle of nowhere. The only other room we saw had "Do not enter" written on it. 
+Without asking I went with him which turned out to be a *terrible* idea. We stood there in the middle of nowhere. The only other room we saw had "Do not enter" written on it. 
 
-"What do we do now?" I say tapping her shoulder. She didn't reply and went inside the room. 
+"What do we do now?" I say tapping his shoulder. He didn't reply and went inside the room. 
 
-"What are you even doi-?!" She covered my mouth. 
+"What are you even doi-?!" He covered my mouth. 
 
-"Shh just follow my lead." She held my wrist and led me inside the room...which seemed more like a library. Looking around I found a shelf which had only one book inside it. 
+"Shh just follow my lead." He held my wrist and led me inside the room...which seemed more like a library. Looking around I found a shelf which had only one book inside it. 
 
-She got the book out of there and started to read it. "What if we get in trouble?" I say, slightly peeking in the book, it was the picture of a hallway of a mansion. 
+He got the book out of there and started to read it. "What if we get in trouble?" I say, slightly peeking in the book, it was the picture of a hallway of a mansion. 
 
-"Dreams bleeding to reality...? What is this corny shit?!" She says shutting the book. 
+"Dreams bleeding to reality...? What is this corny shit?!" He says shutting the book. 
 
-"Meh, this wasn't fun. Let's go." She held my wrist and started to lead the way back to class. 
+"Meh, this wasn't fun. Let's go." He held my wrist and started to lead the way back to class. 
 
-**Had I known the amount of trouble I would be in...I would've never got in there...**
+"...I don't get it. Didn't you want to pee?"
 
-***BAM***
+"Meh I don't feel like it anymore."
+
+-
+
+*We got back to the hotel safely after...but...why do I still feel so uneasy?*
+
+"Ayy fatso! You're next." He says, towel covering her head. 
+
+"God damn it! Atleast flush the toilet asshole!" Aman shut the door. 
+
+"Yeah yeah whatever." He chuckled and then glanced at me. 
+
+"Oi I just noticed. You've been quiet the entire time during this trip."
+
+I raised my eyebrows, "...What?"
+
+"No, I mean-"
+
+"Shut up already! Some of us want to sleep!"
+
+"Okay okay...chill!"
+
+He says, lying his head down the pillow. I wanted to sleep too but the fear wasn't letting me sleep properly. Though...after some time my eyes got heavy and...**i drifted away...**
+
+I opened my eyes up and...what is this? The same place that I saw at the book. I got up and started walking, seems like I was dreaming. 
+
+I kept walking and walking till my legs started to hurt, just when I thought of stopping, I heard a noise. I looked behind me, my eyes widened...it was a tall shadowy figure though its eyes were elsewhere. 
+
+I stepped back and tripped down, alerting it. The moment it saw me it screamed and attacked me with what seemed like tentacles. I tried to get up but it covered my leg with its gooey and slimy tentacle, even a single touch of it burned. 
+
+I wasn't able to walk because of my bruised leg and right when it aimed for my neck the alarm clock rang. I gasped realising it was just a dream. Only 3 of the 5 guys in this room were awake. 
+
+"Nightmare hm?" Sameer said getting in the washroom. I nodded, though I was still having trouble comprehending this. I touched my ankle and what I saw made my heart drop. There was a burn mark right over the area in which *that* touched me.
