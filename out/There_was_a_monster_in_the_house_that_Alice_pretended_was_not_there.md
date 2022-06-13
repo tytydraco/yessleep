@@ -1,0 +1,17 @@
+There was a monster in the house that Alice pretended was not there. But it was always there. It had always been there. In the corner, behind the couch, under the bed, in the closet. Wherever she was, it was there. It was tall, with gray yellow skin that hung from its disgustingly long bones. Its hair clung from its head in clumps, its jaw slack and drooling, its eye sockets empty black voids. Alice could not escape it. Her mother had tried and her mother had died. Her brother had tried and her brother had died.
+
+As long as you pretend it is not there, as long as you never look at it, never acknowledge it, it will not kill you. That is it. Do not acknowledge it when you wake up, when you shower, when you shit, when you eat, when you drive, when you work, when you shop, when you talk, when you fuck, when you exist. Never ever let it know that you know that it is there. But it will always be there: watching, waiting, lurking.
+
+Alice learned to live around the monster’s presence. Learned how to live a relatively normal life even as it always clung to her peripheral at school, at work, in the car, in her home, everywhere. She learned how to live despite its presence. Alice spent almost her entire life with it haunting her. It was there when she graduated from both high school and college. It watched her with its vacant black eyes as she walked across the stage for her diploma. It was there in the library when she met Michael, her future husband. It stood drooling behind the pastor when they were married. And it was there when she gave birth to her daughter Mary, its face barely visible from the edge of the hospital bed.
+
+Alice could never tell Michael about the monster, because to do so would be to acknowledge it and to acknowledge it was to die. Michael always knew that there was something wrong, that there was something there, but he never knew what. Perhaps that was the most insidious thing about this monster, that nobody but Alice could see it. But someone could tell that there was something there from the way Alice acted if they spent enough time around her. Michael tried to talk to her about it, demanded that she tell him about it eventually, but Alice never told him the truth, because to do so was to die. The fact that Alice would never tell Michael about the monster would frustrate him at first, and then anger him later. He loved her so so very much that he wanted nothing more than to help her but he just never could and that destroyed him. Eventually it even drove him away, even though their daughter Mary was just about to enter high school.
+
+It was a Tuesday. It was like any other day. There was nothing particularly good or bad about it. The sun was shining. It just happened to be the day when Alice made the mistake of doing nothing more than just looking at the monster. Of looking into its black hollowed eyes and its gaping drooling mouth and its hanging gray yellow skin. Alice looked at it and it swallowed her whole.
+
+When Alice’s mother looked at it she hung herself from a garage rafter with a power cable.
+
+When Alice’s brother looked at it he swallowed twenty-two hydrocodones and a bottle of vodka.
+
+When Alice looked at it she ran a hot bath and slit both of her wrists and her neck with a kitchen knife.
+
+There was a monster in the house that Mary pretended was not there.
