@@ -310,7 +310,7 @@ I felt my heartbeat pick up merely by seeing the look in his eyes. As he continu
 
 &#x200B;
 
-Genre nodded and composed himself in the manner of someone about to talk about something they dread.
+Gene nodded and composed himself in the manner of someone about to talk about something they dread.
 
 &#x200B;
 
@@ -590,7 +590,7 @@ A mixture of anger and fear came over Floyd. I got the feeling as though I’d a
 
 &#x200B;
 
-Floyd’s smile while saying was reminiscent with a hint of longing.  I got the sense that some deep part of him knew the truth of the situation and I pitied it.
+Floyd’s smile was reminiscent with a hint of longing.  I got the sense that some deep part of him knew the truth of the situation and I pitied it.
 
 &#x200B;
 
@@ -720,4 +720,4 @@ The sun was setting during the drive back to the hotel. Kelly was already back  
 
 &#x200B;
 
-She nodded. I returned and without any other words, we went to our rooms. We’ve been doing more research since then and tomorrow, I’ll be relaying what she did while I was searching for Floyd. Now, I need to get some rest. It’s been a [really](https://www.reddit.com/r/StoriesFromRose/) long [day.](https://twitter.com/RoseBlack2222)
+She nodded. I returned it and without any other words, we went to our rooms. We’ve been doing more research since then and tomorrow, I’ll be relaying what she did while I was searching for Floyd. Now, I need to get some rest. It’s been a [really](https://www.reddit.com/r/StoriesFromRose/) long [day.](https://twitter.com/RoseBlack2222)
