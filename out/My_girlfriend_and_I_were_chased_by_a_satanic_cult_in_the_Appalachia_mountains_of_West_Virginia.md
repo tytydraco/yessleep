@@ -1,6 +1,6 @@
 This happened in the summer of 2017.
 
-My girlfriend and I are from St. Catherines, Ontario Canada.  We both attended University there and decided to take a road trip through the United States to celebrate our graduation.
+My girlfriend and I are from St. Catharines, Ontario Canada.  We both attended University there and decided to take a road trip through the United States to celebrate our graduation.
 
 Our destination was Miami, Florida.  Her family owns a condo near the beach so we had a free place to stay.
 
@@ -82,7 +82,7 @@ They finally got the message and stopped following us.
 
 We arrived to the police station and filed a report.  We gave them the description of the truck and suspects. The investigator said they would call us if they had any more information.
 
-We were extremely shaken but also relived.  All we wanted to do at that point was get the hell out of West Virginia.
+We were extremely shaken but also relieved.  All we wanted to do at that point was get the hell out of West Virginia.
 
 We thought we had shaken the group for good, but unfortunately, we were wrong...
 

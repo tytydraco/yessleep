@@ -144,7 +144,11 @@ See you on the other side!
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-And sweet dreams ;)
+&#x200B;
+
+&#x200B;
+
+And sweet dreams [;)](https://www.reddit.com/r/TalesFromTheCryptid)
 
 Thanks for volunteering BTW!
 

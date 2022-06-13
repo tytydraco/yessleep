@@ -206,4 +206,4 @@ I was quiet for a long time, struggling to absorb all of this. Was I just dreami
 
 "No, I don't believe that!" I protested. "Maybe we're here as some kind of punishment. Maybe this is Purgatory, or Hell, or--"
 
-Aaron interrupted me. "When I first showed up here, one of those things I ran into was my grandmother. I recognized her by the dress she was wearing. It was the one she was buried in. She was the sweetest old lady you'd ever hope to meet...when she was alive, anyway. She tried to kill me like all the others." He gave me a dark look. "This isn't a punishment. Jeff's right. We're here because this is all there is to look forward to after death."
+Aaron interrupted me. "When I first arrived here, one of those things I ran into was my grandmother. I recognized her by the dress she was wearing. It was the one she was buried in. She was the sweetest old lady you'd ever hope to meet...when she was alive, anyway. She tried to kill me like all the others." He gave me a dark look. "This isn't a punishment. Jeff's right. We're here because this is all there is to look forward to after death."
