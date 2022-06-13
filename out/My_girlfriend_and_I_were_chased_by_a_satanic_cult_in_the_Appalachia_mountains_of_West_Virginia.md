@@ -1,10 +1,10 @@
 This happened in the summer of 2017.
 
-My girlfriend and I are from St. Catherines, Ontario Canada.  We both attended Brock University and decided to take a road trip through the United States to celebrate our graduation.
+My girlfriend and I are from St. Catherines, Ontario Canada.  We both attended University there and decided to take a road trip through the United States to celebrate our graduation.
 
 Our destination was Miami, Florida.  Her family owns a condo near the beach so we had a free place to stay.
 
-We decided to drive instead of fly because we wanted to see a bit of the country on the way down and visit a few friends along the way.
+We decided to drive instead of fly because we wanted to see a bit of the country on the way down and visit a few friends.
 
 The trip usually takes about 20 to 24 hours by car non-stop, and we were planning on making multiple stops.
 
@@ -14,7 +14,7 @@ However, once we hit West Virginia, things changed.
 
 It was nothing but endless wilderness and a few small towns sprinkled in between.
 
-We had plans to meet up with some friends for dinner in Charlotte North Carolina, so we wanted to get through West Virginia asap.  We only made stops when we absolutely had to.
+We had plans to meet up with some friends for dinner in Charlotte, North Carolina, so we wanted to get through West Virginia asap.  We only made stops when we absolutely had to.
 
 We ended up stopping for gas at a pretty remote spot.
 
@@ -130,7 +130,7 @@ I drove as fast as I could away from these people until we finally arrived in a 
 
 My girlfriend and I were uninjured thankfully but we were extremely traumatized.
 
-The car was still drivable after that thankfully, so we were able to get the fuck out of West Virginia the next morning.
+The car was still drivable after that, so we were able to get the fuck out of West Virginia the next morning.
 
 This entire experience made my girlfriend and I scared to do any more road trips.
 
