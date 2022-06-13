@@ -94,7 +94,7 @@ Everything was fine until I noticed 2 headlights in my rearview mirror.
 
 At first I didn't think anything of it, but I kept an eye on them.
 
-The headlights got closer and closer until they they were tailgating us.
+The headlights got closer and closer until they were tailgating us.
 
 To my complete shock and horror, it was the same red truck from the gas station.  These people had somehow found us again, and were right behind us.
 

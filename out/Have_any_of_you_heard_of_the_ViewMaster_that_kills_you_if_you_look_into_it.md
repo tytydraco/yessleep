@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/vbeml8/have_any_of_you_heard_of_the_viewmaster_that/)
+
 Or makes you go insane? Or shows you your own future death? Or something else just as bad? No? Well neither had I until my husband insisted we track it down .
 
 For those of you who don't know, a View-Master is a stereoscope that is used to view reels that have little transparent color photographs on them. You pull a lever to make the wheel rotate and advance the photographs, telling a story in order. They aren't too popular now. When you can watch movies on your phone, why would you care about stories told through still photos, right? But back in the 70s they were the rage, especially among kids.
@@ -177,3 +179,5 @@ After David undid the final lock, he and Frank stared at the unopened box with a
 I said “Oh for God's sake, it's not the Ark of the Covenant. Just open the damn box.”
 
 And so I did, expecting to bring this to its inevitable and uneventful conclusion. Unfortunately, this was all just the setup. Our story was just beginning.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vbeml8/have_any_of_you_heard_of_the_viewmaster_that/)
