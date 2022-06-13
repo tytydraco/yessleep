@@ -8,7 +8,7 @@ We decided to drive instead of fly because we wanted to see a bit of the country
 
 The trip usually takes about 20 to 24 hours by car non-stop, and we were planning on making multiple stops.
 
-The first part of the road trip was a wonderful experience.  We went shopping in Buffalo, then made our way down to Pittsburg and managed to catch a Pirates game.
+The first part of the road trip was a wonderful experience.  We went shopping in Buffalo, then made our way down to Pittsburgh and managed to catch a Pirates game.
 
 However, once we hit West Virginia, things changed.
 
@@ -128,7 +128,7 @@ The people were yelling all kinds of obscenities at us as we drove away.
 
 I drove as fast as I could away from these people until we finally arrived in a town, and filed another police report.
 
-My girlfriend and I were uninjured thankfully but we were extremely traumatized.
+My girlfriend and I were uninjured thankfully, but we were extremely traumatized.
 
 The car was still drivable after that, so we were able to get the fuck out of West Virginia the next morning.
 
