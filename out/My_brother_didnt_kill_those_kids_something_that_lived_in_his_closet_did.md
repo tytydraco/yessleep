@@ -8,7 +8,7 @@ It was when I had come over to hang out with him that he showed me his drawings 
 
 Every time I went back, he had gotten worse. My stepdad took the door off his closet because he had been failing in school, so now Daniel had started drinking energy drinks to stay awake at night so he could sleep at school. One time he showed me the shoe box he had been collecting his pills in after pretending to take them. That scared me bad. All he had to do was eat a handful of those and, well, I couldn't even think about it. I took his box and told him to just flush them instead of keeping them, like I used to do.
 
-When he told me about the group sessions he'd been going to with other kids who believed in the boogeyman, it was the happiest I'd seen him in a while. I thought he might get better, and for a while he did. But then one of the kids in the group was found dead in his closet. They called off the group sessions but it was too late. All of the kids who were in the group started to get worse. 
+When he told me about the group sessions he'd been going to with other kids who believed in the boogeyman, it was the happiest I'd seen him in a while. I thought he might get better, and for a while he did. But then one of the kids in the group was found dead in his closet. They called off the group sessions but it was too late. All of the kids who were in the group started to get worse.
 
 Daniel was convinced he had pissed it off somehow, that it was killing them because they knew too much about it. He wouldn't even talk to me anymore. I tried to find out what happened to the kid but the cops said it was an accident, that he'd had some kind of freak heart attack and died. When I asked why they found him in the closet they didn't care, it was just where he ended up.
 
@@ -16,13 +16,13 @@ When the second kid was found dead, I started to think it might really be someon
 
 It didn't help that my brother had become a nervous wreck, refusing to go to school or sleep anywhere that wasn't fully lit. I offered to let him stay with me but of course my mom wouldn't allow that. Can't let him get too far away from her control, he might realize what a terrible person she is. It was after a fourth kid turned up dead that my brother finally snapped.
 
-He told me he was just trying to get something to eat, just trying to mind his own business, but mom was screaming at him about something. Just screaming in his face about what a stupid bastard he was, about how he's driving them all crazy. He said he remembers everything going black and then he was standing over mom and she was crying, begging him to stop. He just sat in a kind of stupor as the cops came and took him to jail. 
+He told me he was just trying to get something to eat, just trying to mind his own business, but mom was screaming at him about something. Just screaming in his face about what a stupid bastard he was, about how he's driving them all crazy. He said he remembers everything going black and then he was standing over mom and she was crying, begging him to stop. He just sat in a kind of stupor as the cops came and took him to jail.
 
 I went to see him and I tried to pay his bail but I didn't make much money so I just gave him what I could and tried to be there for him. Because he was only 13, he wasn't charged with anything serious and they took him home a few days later. After that, he locked himself in his room and refused to let anyone in. My parents treated him like a stranger and didn't even bother trying to help him.
 
 They told me a few days after that they planned to move out of state. When I asked if I could come see Daniel they seemed to dodge the question. I thought he was gone, that they had taken him away from the only person who wanted to help him. It was a week later when he came to my door, crying and desperate.
 
-He looked like he hadn't slept in a long time, his eyes were sunken and dark and he was shaking so bad he couldn't speak. I helped him calm down enough to tell me what had happened. He said he had locked himself in his room after he attacked mom and didn't realize they had left until he came out and saw all their stuff was gone. 
+He looked like he hadn't slept in a long time, his eyes were sunken and dark and he was shaking so bad he couldn't speak. I helped him calm down enough to tell me what had happened. He said he had locked himself in his room after he attacked mom and didn't realize they had left until he came out and saw all their stuff was gone.
 
 They had left him there, I couldn't believe it. I had never hated anything so much before. I thought it might poison me or stop my heart. I just held him and said I was sorry over and over. I asked him why he didn't come here right away and he seemed to retreat back into himself. He told me what it was like there, being alone in that house.
 
@@ -36,7 +36,7 @@ I stayed with him as much as I could but they were questioning him for hours. Wh
 
 I woke up to hear Daniel screaming and saw that the lights for the holding cell had been turned off. The door was locked and no one was around to open it. I was kicking the door as hard as I could, listening to Daniel screaming just on the other side. I'll never be able to forget that sound. A few cops rounded the corner and tackled me to the ground. I was screaming for them to help my brother and one of them heard the cries from inside and fumbled with the keys. Inside the cell block it was pitch black. The cops were all stunned by this, none of the lights worked. I managed to break away from the cop holding me and ran in to find him. Beyond the bars of the cell it was just a wall of black, like a velvet curtain. Daniel wasn't screaming any more.
 
-One of the officers pulled out a flashlight and as he turned to beam to look in the cell I saw it. It was just a flash, but it was there. Its eyes flashed like an animal when the light hits it. It was tall and thin like a scarecrow, its body a dark coat. I only saw its face for an instant but it would forever be burned into my mind. 
+One of the officers pulled out a flashlight and as he turned to beam to look in the cell I saw it. It was just a flash, but it was there. Its eyes flashed like an animal when the light hits it. It was tall and thin like a scarecrow, its body a dark coat. I only saw its face for an instant but it would forever be burned into my mind.
 
 Its skin was a rotten blackish blue and it was gaunt and tight against its skull. It had no lips, exposing its yellowed and crooked teeth, far more than any person should have. It had stringy, matted dark hair all around its head and down to its shoulders, like black straw. Its fingers stuck out from the sleeves of its jacket like dark fleshy crab legs, far too long to be human. It vanished as the light passed over it and I desperately asked if any of them saw it. They only saw what had been crammed beneath the bunk in the cell. It was Daniel, his face was frozen in a look of absolute terror and he had pulled his knees back into his chest so hard I could see his fingernails had been pried up like trapdoors. Everything went black and I woke up in the detective's office sometime later.
 
@@ -58,11 +58,11 @@ It had started to rain on the second evening and by nightfall it was storming. T
 
 The fear seemed to unlock a memory I had repressed until then. I suddenly remembered where I had seen that face before. When I was 5 and mom would take me to her law school so she could study, she let me roam around the campus as long as I promised to be back by a certain time. One of the times I went outside the law building and noticed a funny looking tent. It looked like it was made of trash and I thought some kids might have built a fort.
 
-When I looked inside it was like an oven and a terrible smell rushed out of it. Inside I saw garbage and stuff piled up everywhere and in the middle was a large pile covered in blankets. At first I thought it was a scarecrow, it looked dried out and skeletal. It was a man, he sat against the back of the tent not moving. I thought he was smiling but it was just his teeth showing because his lips were gone. I saw his eyes move but they didn't look at me. 
+When I looked inside it was like an oven and a terrible smell rushed out of it. Inside I saw garbage and stuff piled up everywhere and in the middle was a large pile covered in blankets. At first I thought it was a scarecrow, it looked dried out and skeletal. It was a man, he sat against the back of the tent not moving. I thought he was smiling but it was just his teeth showing because his lips were gone. I saw his eyes move but they didn't look at me.
 
 Then I noticed the whites of his eyes were wriggling and what looked like white tears dropped down into his black beard. The tears were squirming back up his face when I realized they weren't tears, those weren't eyes, and this man was dead. I ended up running back inside and just waiting for mom to come back. I didn't tell anyone what I saw and I had forgotten it until now. Until I saw it that night in Daniel's cell.
 
-The warm air hit my face like someone had opened an oven door and the smell seemed to stick to my skin like a mist. It started to step out of the closet now. It was tall, it had to stoop to step through the door. It was too dark to see anything except those crooked pus colored teeth and the shine of its eyes deep in its skull. My chest felt too tight to breathe and I lost feeling in my hands. I tried to remember the plan and hit the switch. I felt it click and nothing happened. 
+The warm air hit my face like someone had opened an oven door and the smell seemed to stick to my skin like a mist. It started to step out of the closet now. It was tall, it had to stoop to step through the door. It was too dark to see anything except those crooked pus colored teeth and the shine of its eyes deep in its skull. My chest felt too tight to breathe and I lost feeling in my hands. I tried to remember the plan and hit the switch. I felt it click and nothing happened.
 
 I almost passed out when I heard it and no lights came on. Someone must have noticed it and unplugged it, or maybe the storm had knocked out the power, or maybe this thing had cut the cord. I knew it was over. I raised the gun and put it to my head. The metal was cold on my temple and my hand was too numb to feel the trigger.
 
@@ -71,3 +71,25 @@ Then the power came back on. The light blinded me for a moment and a terrible sc
 I felt like I couldn't move. I just sat there for what felt like days until I saw the sun rising over the trees. It was real. It was a real creature. I saw it, smelled it, felt it, and I shot it. The wall next to the window was spattered with blood the color of blackberry juice. I went home and slept, I didn't even let go of the gun the whole time.
 
 I don't know what to do now. It might still be out there. Maybe it died. Can it die? I haven't had any nightmares since then and things seem to be normal again. I don't know what I did that night. I don't know if it will come back for me. I can't do anything but keep living. Keep pretending the world makes sense and monsters aren't real. There is nothing else to do. I'll update if anything else happens.
+
+Update:
+
+I've been seeing a psychiatrist about my anxiety. He told me talking about it here might help. Thank you all for the support. The medicine I'm on hasn't helped  with the nightmares. They feel so real. I see him. The thing I shot. The thing that killed my brother. Its running through the woods in the dark. It's scared and confused. Last night I dreamed it was in pain. It grabbed a cat that was sleeping in the grass and killed it. I felt the pain of it scratching him. I felt the warm blood as it bit into the cat. It was pregnant, the babies burst like grapes between his teeth. I threw up in my bed. It all felt so real.
+
+I had another nightmare, the worst one so far. I saw it in a tool shed, hiding in the dark. It was hiding from the light of the house. There was the sound of running and the screech of metal and a flood of light as something opened the shed door. I felt panic and pain, then it turned to anger. The shape in the door was a boy. When the creature screamed and jumped out I could feel the boy's panic as well. I felt the creature bite and claw the boy while at the same time feeling the pain of being bitten and clawed. The boy's screams echoed in my mind when I woke up. I haven't slept since then.
+
+I've been watching the news for any mention of the creature. Last night I found something. I had to take an extra dose of risperidone to calm down enough to post it. I'll copy the article here.
+
+> DETROIT (WXYZ) - A family of four was attacked in their home just outside the city limits of Detroit, Michigan. The Suspect was apprehended at the scene of the brutal murders and is now in custody. The family consisted of a Mother, Father, and two young children aged 4 and 8.  
+>  
+>Officers responded to a call about an intruder at a residence near Interstate 75 around 2:47am. Officers and medics found the mother and youngest child had barricaded themselves in the pantry. The father and older child were declared dead at St. John's Hospital about 30 minutes later from severe trauma and bite wounds.   
+>  
+>The suspect is a man of indeterminate age and ethnicity who was hiding in the shed in the backyard when he attacked a child (8) and his father who had come outside at hearing his son's screams. The boy and his father suffered scratches and bites from the man who witnesses described as savaging them like a wild animal. He then chased the mother and young son into the home before police arrived to apprehend him.  
+>  
+>Detectives have been unable to get any information out of the suspect and he refuses to speak at all. They found no identification and so far, finger prints and DNA have come up inconclusive. The suspect with be held without bail in the Wayne County jail until more information on his identity is made available.  
+>  
+>We urge our readers, if you have any information on the identity of the suspect, please contact the Detroit Police Department at 313-974-TIPS
+
+They added a photo of the guy they caught. I almost fainted when I saw it.  Its him. Jesus, its him.
+
+[https://i.imgur.com/rWKvnxx.jpg](https://i.imgur.com/rWKvnxx.jpg)

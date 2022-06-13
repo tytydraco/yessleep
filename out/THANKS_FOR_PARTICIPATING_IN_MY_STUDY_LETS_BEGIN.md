@@ -26,7 +26,7 @@ I’m going to assume you feel a little silly. Ridiculous, even. You’re wonder
 
 But it is magic. 
 
-I’m doing a sort of study. It’s not the type you’re familiar with – there are no beekers, no lab coats and no animals to test. It’s just you and me. You, me and these words, and we’re getting to the end of them, and once we’re there, things will change for both of us. Won’t that be nice?
+I’m doing a sort of study. It’s not the type you’re familiar with – there are no beakers, no lab coats and no animals to test. It’s just you and me. You, me and these words, and we’re getting to the end of them, and once we’re there, things will change for both of us. Won’t that be nice?
 
 Have you heard of M̴̱̺̒͌i̸̻̘͝s̶͙̹̅ẗ̵̩̰́e̶̤͛͝ṟ̶̎ ̴̱̋͠T̸̜̏i̶̹̐̔͜c̶͚͖̑k̸͓̾̽ ̴̗̔̐Ṫ̷̠͊ō̴̢͉͊c̵̰̒k̵̟̿͐?
 
