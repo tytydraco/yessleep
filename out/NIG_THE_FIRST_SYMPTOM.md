@@ -1,0 +1,59 @@
+I work as a psychologist, and as always, I was already used to listening to the internal and emotional problems of my patients, but in recent days psychology has been encountering very strange and similar cases that have reached everyone's ear. 
+
+Many have called it living paralysis, this phenomenon at the beginning only manifested itself in patients suffering from schizophrenia, but lately there have been people without this disease who have also been attacked by living paralysis, these are people who have come to suffer from sleep paralysis, where the allusion that is presented to them is what seems to be a pale man, with an elongated and smiling mouth, round eyes with small pupils, a long black hair and a wardrobe composed of a white shirt, a brown short and black shoes.
+
+According to several patients, this creature like all those of a sleep paralysis, disappears when this episode ends, but the next day when you wake up, it reappears, the creature makes your entire environment resemble that of a nightmare, causing all the colors to turn grayish, and all the people around you disappear, leaving you completely alone, being your only companion the monster that appeared in your paralysis, and from which you want so much to move away, he will be watching you, no matter if you try to move away, he will follow you, making you feel uncomfortable, he will follow you everywhere, no matter where you go.
+
+Now, there have been patients who have tried to communicate with that strange man, but when they do, he only attacks them, approaching quickly and emitting an irritating cry, this always ends up causing them to faint and they wake up the next day, but even if, he is able to communicate with them, they say that their personality at the beginning is something playful and not very reserved, getting to talk to you about anything that comes to mind, mainly from what he feels and sees, according to them, his voice is low and strange, but although at first he remains calm, with the passage of time his comments will become hopeless, he comes to tell you that you are trapped in his world, in your nightmare, you are still asleep and you can never wake up again, you will never see your family, friends and favorite places you visited again, you will always be with him. 
+
+Although this varies from patient to patient, since some have not even heard him speak, and simply see him browsing from side to side, and to give you the illusion that you are in a nightmare, it simply makes the environment darker and unreal, despite the fact that many victims try not to listen to their words, the environment will feel more and more dense, claustrophobic and empty, even some forget their most basic needs such as eating and sleeping, wanting more and more that creature to leave, and being increasingly convinced that in the world where they are it is not the real one, this is where several victims of this hallucination decide to try to wake up from their "sleep" either by beating themselves, throwing cold water, or, in most cases, throwing themselves from a high place, which has mostly led to their death.
+
+Luckily this phenomenon can be controlled a little if someone tries to communicate deeply with the victim, making it possible to react and be able to see and hear the person who is talking to it again, but it is not possible to find a cure, and unfortunately, on several occasions it ends up returning.
+
+Now, why am I telling you all this? Because I had a patient who suffered from this, and it was suddenly, his parents just brought him, and asked me for help, his son did not pay attention to them, no matter how much they blocked his way or yelled at him, the boy just ignored them, and all the time he looked trembling, scared and wanting to run away from something. 
+
+When they told me all that, I did not know what to do, I had already heard this about living paralysis a month ago, and it seemed that he met the symptoms, but at that time there was not much information about this, only the strange behavior they had was explained, but there was no deep analysis or methodologies, it was not even known that it was caused by some hallucination, in fact at that time it was only called as: "phenomenon of the law of the threador" even so, I tried to do my best to help, I was careful with him, and I came to communicate with some doctors to help me.
+
+At first the patient if I manage to communicate, telling me that he was afraid, that he was chasing him, everything seemed to bear fruit, but then he returned to the same state, still the patient got to know me and knew that I wasgoingto his help, maybe that would encourage him a little, but still I did not manage to advance further, in the end I came to the conclusion that he suffered from schizophrenia and prescribed some medications waiting for it to take effect, but it didn't work, after a few months the patient committed suicide, he threw himself off a high bridge that was near his town. 
+
+Even so, his relatives gave me his diary, they said they found a note there, which said: "Hello doctor, I would like you to read my diary, I want you to hear my story."
+
+At first I did not know whether to read it, I know that a psychologist must analyze the thoughts of a patient, but I did not like to do it this way, but I had to see it, for something he gave me his diary right?
+
+Day 1: I don't know what's going on, I just woke up and I'm seeing right now that monster that appeared in my sleep paralysis that I had yesterday, God, it's horrible, luckily I can only see it in the kitchen, back state, but I'm still really worried, it feels so real, I want to tell my parents, but they are going to take me like a madman, although if tomorrow this continues, I will not hesitate to talk to them, even while I will sleep with the lamp on and safe at my door.
+
+Day 2: I can't stop crying, I can't find my parents, I tried to look for them everywhere, I called their jobs assuming hopelessly that they were going to answer me with a "they didn't come to work" but no, instead they told me that, if they were, ha, how funny, they left early for work without telling me, God, they almost killed me in fright!
+
+\*Sigh\* hell, my parents still do not arrive, it is already night, I do not like this, I call the police, but the damned when they came to my house said that they were there, that they were in the room, I got angry, it was obvious that they were joking with me, I insisted, but they kept telling me that I was blind, I, I just closed the door on their faces, and I went to cry in my room for the second time, after crying I went to the kitchen, I felt like eating something that would cheer me up, but no, I couldn't, because that damn monster was still there, I just ran out of my house, but suddenly I teleported to my room, lying on my bed, then the lights went out, and the door closed, I didn't do anything, I was so scared that I just decided to go to sleep, hoping that the next day everything would return to normal.
+
+Day 4: There is no one, there is NO one, THERE IS NO ONE, people abandoned me, everyone abandoned me, and that thing is now in my room, my parents are not there yet, I tried to call the police again, but they did not appear, I went outside, to walk down the street, to see if my parents were somewhere, but there is no one, not a single person, not even a common animal like a dog, there is nothing, I don't know what to do anymore, they all disappeared or left, well, I guess now I'm going to sleep on the couch, luckily I always have food prepared on the table.
+
+Day 5: I am now, sunbathing, outside, not knowing what to do, I have tried to enter social networks to communicate with someone, but they do not work, they are only blank, but, now I am happier, I felt that someone touched my shoulder and heard a very low voice, it seemed to be my father's voice, I did not understand what he was trying to tell me, but, hearing his voice was the best.
+
+After a few minutes of feeling my shoulder touched, I teleported to my car, which was moving, then to a clinic, and then to a room, it seemed to be that of a psychologist, I was scared at first, but then I heard the voice of a woman, but in the end, it was cut off.
+
+Day 8: The same thing is repeated, there are no my parents and I am the only one who is on this planet, but again I teleported to the same room as the other time, but there I saw an adult woman, with the same voice that I heard previously, she began to ask me questions, but I do not care, I just approached her and opened her, I asked her for help, I tried to tell her quickly everything that was happening to me, but at the beginning of the explanation she disappeared, she was no more.
+
+Day 10: I don't know what to do anymore, I'm just going to draw.
+
+Day 12: That monster that was in my room began to move, yes, IT BEGAN TO MOVE, and what it is doing now is seeing me, just seeing me, and follows me everywhere I go, surely he wants to talk to me, I will try to talk to him.
+
+Day 13: I communicated with him, but he only attacked, at the moment of talking to him and asking him things he began to make a loud scream and ran towards me, I do not know what he did to me, but that made me faint, and only now I have just woken up.
+
+Day 15: I feel too uncomfortable, that damn one only stays watching me, the only thing I can do now is draw and draw, it is the only thing that relaxes me at the moment, he is weird, his form is not human, maybe it will serve for a good portrait, I will draw him, and why not, put a name to him, I don't want to just call him by the same words.
+
+Day 17: Wow, NIG just talked to me, that made me believe that I could finally talk to him, so I replied, but no, again I attacked, apparently I just have to listen to him.
+
+Day 18: NIG only talks and plays, tells things about me, about my house, about the world, I no longer know if I want him to leave, as horrifying as it is, he is the only being with whom I have contact.
+
+Day 25: Oh God, oh God, this is very funny, seriously, it can't be, NIG just told me that I'm in a damn dream, that I'm in a nightmare and I can never get out, I don't know if I believe him, he can be lying to me, I mean, if everything is a dream, what is there of that woman I saw or of the voice of my father, Could it be that this woman is part of my imagination and my father tries to wake me up? So everything I wrote in this notebook is a lie, but I want someone to read it.
+
+Day 26: I threw cold water to wake up and NIG noticed, he began to approach me and repeated the same phrase over and over again: "Go to sleep, Go to sleep" I thought he was going to kill me, it was my end, but he is just repeating the same thing to me, and every time he does it with a louder voice, I can't do it anymore, it's obvious that is a dream, a very long one, ha, I just have to wake up and finally I'll be in my home.
+
+Now everything is getting dark, I feel more and more dizzy, and NIG now chases me and shouts louder and louder to go to sleep, to be turned into someone more violent and aggressive, it's scary, luckily I've already reached the bridge, I'm afraid to jump, but I can't stay here.
+
+This was the whole diary, it was horrible to know that I couldn't save that guy, but now I have more information about this strange phenomenon, the report I'm going to do is going to be very helpful, it could make the investigations into this strange hallucination move forward.
+
+&#x200B;
+
+The diary of Emil Kerson, a 17-year-old Swedish boy suffering from living paralysis, ended up being shown to the public, becoming a well-known case, some artists even digitized his drawing, and the creature ended up being officially named \`\`NIG \`\`
