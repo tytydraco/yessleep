@@ -20,7 +20,7 @@ I stay silent. Their voice becomes strained as if something has them by the thro
 
 Another groan and the dragging starts again. I can hear the thing’s footsteps. Something about their sound makes me think its feet are wet. Or is the ground wet? I don’t feel any wetness on my back. 
 
-I feel something round under my back for a moment and then white light feels my vision as the back of my head bangs against the ground. I must have gone over a log. 
+I feel something round under my back for a moment and then white light fills my vision as the back of my head bangs against the ground. I must have gone over a log. 
 
 The impact makes me feel foggy. 
 
