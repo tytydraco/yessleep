@@ -1,4 +1,4 @@
- *(PREFACE: when I was fifteen I was shot in a convenience store robbery. I lay in a coma for three weeks before regaining consciousness. This is my account of what I experienced during those three weeks.)*
+*(PREFACE: when I was fifteen I was shot in a convenience store robbery. I lay in a coma for three weeks before regaining consciousness. This is my account of what I experienced during those three weeks.)*
 
 &#x200B;
 
@@ -138,4 +138,8 @@ He turned to me. *"Now!"* he shouted, and fired two more rounds.
 
 The rest of the horde was getting closer.
 
-I looked down and saw a metal ladder descending into darkness. I quickly began to climb down. My rescuer was right behind me. He paused at the top just long enough to drag the manhole cover back in place. It blotted out the light at it closed, leaving us in darkness.
+I looked down and saw a metal ladder descending into darkness. I quickly began to climb down. My rescuer was right behind me. He paused at the top just long enough to drag the manhole cover back in place. It blotted out the light at it closed, leaving us in darkness
+
+PART TWO .[https://www.reddit.com/r/nosleep/comments/vbfrfl/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vbfrfl/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
