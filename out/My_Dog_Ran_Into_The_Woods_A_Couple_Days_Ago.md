@@ -20,7 +20,7 @@ I got my answer the next night.
 
 My room is on the second floor of our house, and it has a window overlooking the entire backyard. I was still in mourning over charlie, so I'd had trouble sleeping for the past few nights. I couldn't close my eyes without remembering all our memories together, and tears always welled up in me. But that night was different. I couldn't fall asleep, as usual, but it seemed that there was something. Some cold feeling made its way from my head to my feet.
 
-I couldn't keep my hands steady, and my eyes weren't damp. I was alert and on edge. At that moment, I knew where the feeling was coming from. I crept over to my window and gazed across the lawn. The moon was just above the treetops, and I could see a head peeking over the trees, illuminated by the moonlight. It looked oval-shaped, and it had eyes like spotlights as if two miniature mons were below the supreme one.
+I couldn't keep my hands steady, and my eyes weren't damp. I was alert and on edge. At that moment, I knew where the feeling was coming from. I crept over to my window and gazed across the lawn. The moon was just above the treetops, and I could see a head peeking over the trees, illuminated by the moonlight. It looked oval-shaped, and it had eyes like spotlights as if two miniature moons were below the supreme one.
 
 The treeline was about 140 yards away, and I didn't have the light on in my bedroom, but even so, I had this horrible feeling that whatever that thing, taller than the trees were, was staring straight at me.
 

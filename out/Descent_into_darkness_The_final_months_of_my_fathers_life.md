@@ -230,7 +230,7 @@ I keep my distance from my father and adjusted myself so I could see around him.
 
 For a second, the noise seemed to wash out. I heard an intense ringing in my ears and the cries grew distant as if I was hearing them underwater. Blood geysed from the table and spattered on the wall and floor. I saw brown hair matted red and wet; wide screaming scared eyes. My father was crushing Chi-Chi’s head in a vice.    
 
-I lunged at my father and grabbed one of his arms. With his free arm he backhanded me sending me reeling across the room. As I attempted to come to my feet, he kicked me in my side. I couldn’t breathe. I rolled onto my back. My father was standing over me. He had a large object in his hand. He drew it over his head. A saw a brief glint of metal. He was holding a mallet. I closed my eyes and covered my face.
+I lunged at my father and grabbed one of his arms. With his free arm he backhanded me sending me reeling across the room. As I attempted to come to my feet, he kicked me in my side. I couldn’t breathe. I rolled onto my back. My father was standing over me. He had a large object in his hand. He drew it over his head. I saw a brief glint of metal. He was holding a mallet. I closed my eyes and covered my face.
 
 There was a loud bang. A flash of light. My father was still. He stood limp. Then he collapsed on the floor. I tried to catch my breath. My eyes burned and watered. I looked up and saw Marta. Her outstretched hand trembled. She was clutching a pistol. My father had been shot.
 
