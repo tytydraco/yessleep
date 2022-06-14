@@ -1,4 +1,4 @@
-*\*Edited for ease of reading flow*
+(Edited for ease of reading flow)
 
 I seen this funny-looking dog once…
 
@@ -12,7 +12,7 @@ So  no shit, there I was, walking home from a friend’s place a few years  back
 
 So  I’m walking down the street, and it’s ass-thirty in the morning, so absolutely nobody is outside.  I can tell some people is still up from  the lights of their TVs in the windows...but they ain’t nobody moving  around outside.
 
-And keep in mind  that late as it was, it was a full moon that night, and so everything I  COULD see was as clear as broad daylight.  lot of shadows all over the place, but a lot of wide open spaces and plenty of light to see by, too.
+And keep in mind  that late as it was, it was a full moon that night, and so everything I  COULD see was as clear as broad daylight.  Lot of shadows all over the place, but a lot of wide open spaces and plenty of light to see by, too.
 
 So  I’m walking, and I’m walking, and I’m maybe half a mile from home, when  I suddenly get this chill all over my body.  Not that creepy feeling  like you get when something’s watching you, or anything like that…
 
@@ -73,5 +73,3 @@ Walked  off down the street like it was taking a Sunday stroll.  I just stood  t
 Then I hauled ass the rest of the way home, and didn’t sleep for two days.
 
 Real funny-lookin’ dog.
-
-&#x200B;
