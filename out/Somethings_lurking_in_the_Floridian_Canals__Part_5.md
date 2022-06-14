@@ -8,7 +8,7 @@ I was on my last drops of window cleaner when it stroke midnight. I realized I'd
 
 Just a few minutes past since I last sprayed the inside of the cabin, I noticed a creature on the side of the crane close to the engine's air vents. It was hard to see it clearly with barely any light on the outside but it looked like a human face with tentacles coming out of where its neck should be. The thing had an agonizing facial expression like something out of a medieval painting. It opened its mouth and blew a dark mist which was absorbed into the cabin through the air vents.
 
-I immediately held my breath, cranked up the AC, opened the door and the windows. At which point the thing took the opportunity to jump inside the cabin. I tried pushing it back with my bare hands but that sucker was slippery. It landed on my lap and firmly chocked me with its tentacles. I couldn't breath at all, even now that the dark mist had abandoned the cabin. I saw my own reflection through the rear view mirror and my face had turned purple by now, it would be a matter of time before I'd pass out and shortly after, I'd die. 
+I immediately held my breath, cranked up the AC, opened the door and the windows. At which point the thing took the opportunity to jump inside the cabin. I tried pushing it back with my bare hands but that sucker was slippery. It landed on my lap and firmly choked me with its tentacles. I couldn't breath at all, even now that the dark mist had abandoned the cabin. I saw my own reflection through the rear view mirror and my face had turned purple by now, it would be a matter of time before I'd pass out and shortly after, I'd die. 
 
 With what little strength I had left, I reached for the window cleaner and sprayed the last bits over the *Nighter*. The thing screeched in pain and let go of my neck, I gasped for air desperately as the thing twitched in pain. I grabbed a salt crystal and shove it into the Nighter's mouth while it screamed. It didn't took long for the thing to start convulsing and drop dead shortly after. 
 
@@ -22,7 +22,7 @@ A *canalero* tried shutting the gate again but the car hadn't moved apart from t
 
 I managed to get to the gate, at that point the car backed off from the gate completely and drove away. The car had windows tinted and no license plate so I couldn't see or reach out for whoever just saved me, unfortunately. Once I finally got on the road, I drove away with a huge feeling of relief. 
 
-It was about midnight when I escaped so the roads were pretty much empty. I saw my own reflection on the rear view mirror, I looked like shit. My eye's whites had gone red and my neck had a black line going around it. "This is how it looks like to be chocked to death" I thought. 
+It was about midnight when I escaped so the roads were pretty much empty. I saw my own reflection on the rear view mirror, I looked like shit. My eye's whites had gone red and my neck had a black line going around it. "This is how it looks like to be choked to death" I thought. 
 
 While driving down the street out of the canal I thought of catching up to the corolla, but realistically I would never catch up to him on this crane going about 6mph at most. I said to myself that I'd live another day and as long as I'm alive I'd be able to meet up with that person and thank them for saving my life. 
 
