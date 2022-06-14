@@ -207,3 +207,5 @@ I was quiet for a long time, struggling to absorb all of this. Was I just dreami
 "No, I don't believe that!" I protested. "Maybe we're here as some kind of punishment. Maybe this is Purgatory, or Hell, or--"
 
 Aaron interrupted me. "When I first arrived here, one of those things I ran into was my grandmother. I recognized her by the dress she was wearing. It was the one she was buried in. She was the sweetest old lady you'd ever hope to meet...when she was alive, anyway. She tried to kill me like all the others." He gave me a dark look. "This isn't a punishment. Jeff's right. We're here because this is all there is to look forward to after death."
+
+PART THREE https://www.reddit.com/r/nosleep/comments/vc72o5/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3
