@@ -68,7 +68,7 @@ Painful though it was, I decided I would be better off not taking the man’s of
 
 For a moment, the man looked outright stunned. Then the smile on his face expanded, growing to a size that seemed almost inhuman. “Oh, you *are* a clever one, Danny! Cleverer than most. Very well then:”
 
-“First, you’re uncle. He wished for a lifetimes supply of cocaine.”
+“First, your uncle. He wished for a lifetimes supply of cocaine.”
 
 *Cocaine?* I had a vague understanding that that was the white stuff Uncle Brett liked to put in his nostrils.
 
@@ -118,7 +118,7 @@ She looked up at me with big brown eyes. “I promise.”
 
 I told her what she needed to say. After that, it was just a matter of waiting for the coming Thursday.
 
-My sister and I stood at the edge of a busy road. Cars whizzed by at lightning-fast speeds, the rushing air currents whipping at our clothes. 
+My sister and I stood at the edge of a busy road. Cars whizzed by at lightning-fast speeds, the rushing air currents whipping at our clothes.
 
 “I’m scared,” Hailey whimpered.
 
