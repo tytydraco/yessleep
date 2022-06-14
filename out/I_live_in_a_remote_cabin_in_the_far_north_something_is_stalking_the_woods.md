@@ -1,24 +1,26 @@
-The supply of jerky was almost through. It had been a poor hunting season and with the bulk of the winter still to come, rations were low. I would need to go to town. I didn’t look forward to that. I rolled a strip of jerky and let it sit between my teeth and the inside of my cheek like a piece of hard candy. Had to make it last. 
+ [Part II](https://www.reddit.com/r/nosleep/comments/vc0w5k/i_live_in_a_remote_cabin_in_the_far_north/)
+
+The supply of jerky was almost through. It had been a poor hunting season and with the bulk of the winter still to come, rations were low. I would need to go to town. I didn’t look forward to that. I rolled a strip of jerky and let it sit between my teeth and the inside of my cheek like a piece of hard candy. Had to make it last.
 
 Winter nights are long and cold this far north. On clear moonlit nights the carpet of snow on the forest floor glows. Birch trees wearing jackets of white cast shadows as if under sunlight. The stars shine bright and turn on a wheel with the North Star at the centre.
 
 It was not so the first night I encountered the creature. Weather came in from the south and dark clouds lingered into the night and blacked out the moon and the stars. From the window of my cabin, halfway up the mountain and deep in the forest, the outside world was a deep black. Fading embers in the pot belly stove cast a pale glow on the timber walls.
 
-I heard the drone of the engine first. A snowmobile. It’s rare for anyone to come this far up the mountain, especially at night. You first have to cross the small lake between the forest and the town, which freezes each winter, and then thread a path uphill through the trees. It was bad enough under moonlight let alone on a night like this where the forest was an impenetrable black mass. 
+I heard the drone of the engine first. A snowmobile. It’s rare for anyone to come this far up the mountain, especially at night. You first have to cross the small lake between the forest and the town, which freezes each winter, and then thread a path uphill through the trees. It was bad enough under moonlight let alone on a night like this where the forest was an impenetrable black mass.
 
 Lights flickered through the window and were gone again. I rose from my bed and wiped away the condensation on the glass. Headlights cut through the darkness and the engine rose and fell as the driver dodged the trees. The engine idled for a moment and laughter and shouting filled the night air. The engine revved once more and drowned out the voices.
 
 “Kids,” I said.
 
-Boxer raised his head at my voice and lowered it back to his bed of blankets. 
+Boxer raised his head at my voice and lowered it back to his bed of blankets.
 
 “Don’t pay them any mind, they’ll soon get tired of it and go back home. That or they’ll make friends with a tree.”
 
-The snowmobile droned on, sometimes quiet and far away and sometimes loud and close by. With it the laughing and shouting carried on. I figured they were drunk and out joyriding. I could think of a long list of better things to do on a Saturday night. But that’s how it is up north, you make entertainment with what you have at your disposal. 
+The snowmobile droned on, sometimes quiet and far away and sometimes loud and close by. With it the laughing and shouting carried on. I figured they were drunk and out joyriding. I could think of a long list of better things to do on a Saturday night. But that’s how it is up north, you make entertainment with what you have at your disposal.
 
-There’s not much to Canary Hill. Few people can pinpoint it on a map. If they’ve heard of it at all, they know little more than it is up north. Somewhere up there, isolated and frozen, and surrounded by jagged snow-covered peaks. 
+There’s not much to Canary Hill. Few people can pinpoint it on a map. If they’ve heard of it at all, they know little more than it is up north. Somewhere up there, isolated and frozen, and surrounded by jagged snow-covered peaks.
 
-The town was built to support a now defunct coal mine. Houses with weathered sidings and flaking paint line grids of dirt roads. The town might have died when the mine was shuttered, but instead Canary Hill became a tourist destination. People come in winter to see the Northern Lights or to take excursions by sled or snowmobile to the frozen lakes to fish for salmon, trout and Arctic char. In summer they come to see a sun that never sets and the fishing, but now by boat. The old miner’s huts in town are now bed and breakfasts and new custom-built hotels with glass ceilings come with $300 a night price tags. 
+The town was built to support a now defunct coal mine. Houses with weathered sidings and flaking paint line grids of dirt roads. The town might have died when the mine was shuttered, but instead Canary Hill became a tourist destination. People come in winter to see the Northern Lights or to take excursions by sled or snowmobile to the frozen lakes to fish for salmon, trout and Arctic char. In summer they come to see a sun that never sets and the fishing, but now by boat. The old miner’s huts in town are now bed and breakfasts and new custom-built hotels with glass ceilings come with $300 a night price tags.
 
 The whine of the snowmobile heightened to a squeal. Boxer gave a low growl and trotted to the cabin door. He thrust his snout to the small gap at the bottom of the door and sniffed. He took in the information on the air and turned his white head to me and growled once more. He scratched at the door with a paw and pleaded with blue eyes common to the husky breed.
 
@@ -30,17 +32,17 @@ Boxer’s growl turned to a high-pitched whine.
 
 Boxer fell silent and so did the night. No snowmobile engine and no voices. And then a scream. A high pitched scream lasting a few seconds followed by shouting. I rose from my bed and went to the window. Snowmobile headlights pointed away from my cabin, but the machine was still. Figures wearing bright puffed jackets moved in the lights and one fell in the snow. Then another scream.
 
-I took my jacket off the hook and put on my boots and slung my rifle over my shoulder. I grabbed my old miner’s helmet with a light mounted to the top and pressed it down over my woollen hat. Boxer was ready at the door and I thrust it open. The cold was a slap in the face, but the night was still. The snowmobile was close and I trotted out to it, boots crunching in the snow. 
+I took my jacket off the hook and put on my boots and slung my rifle over my shoulder. I grabbed my old miner’s helmet with a light mounted to the top and pressed it down over my woollen hat. Boxer was ready at the door and I thrust it open. The cold was a slap in the face, but the night was still. The snowmobile was close and I trotted out to it, boots crunching in the snow.
 
-One track of the snowmobile propped against a mound of snow at the base of a tree. The nose was dug in and half-buried. The engine was off and the occupants had left it. Two beer bottles lay discarded by a tree. Multiple sets of footprints made a confused circle beside the snowmobile and led out into the darkness. 
+One track of the snowmobile propped against a mound of snow at the base of a tree. The nose was dug in and half-buried. The engine was off and the occupants had left it. Two beer bottles lay discarded by a tree. Multiple sets of footprints made a confused circle beside the snowmobile and led out into the darkness.
 
 Boxer ambled ahead sniffing at the ground. I followed Boxer and the tracks and called out. The answer came in a muffled cry to my right and down the slope. A small light bobbed in the darkness. Someone was running using a phone for a torch. I shone my torch in their direction and Boxer ran on ahead following the beam of light. A girl with dark hair and a red puffer jacket appeared, her hair caked in snow and her eyes wide. Her skin shone pale in the torch light.
 
 “Come quick,” she said. “Something is out there.”
 
-Her words came in fits of short breaths. I knew the girl. Her name was Talia. She turned and ran back into the forest retracing her footsteps in the snow. I ran after her, the light on my helmet lighting her way. Boxer ran ahead, slowing on occasion to sniff at the ground. He stopped and turned a circle and looked back and waited. 
+Her words came in fits of short breaths. I knew the girl. Her name was Talia. She turned and ran back into the forest retracing her footsteps in the snow. I ran after her, the light on my helmet lighting her way. Boxer ran ahead, slowing on occasion to sniff at the ground. He stopped and turned a circle and looked back and waited.
 
-Beside Boxer a boy lay on his back. He held his head with one hand and blood spilled from his nose forming a pool of dark red in the snow. The boy mumbled something but I could not make it out. Boxer had no interest in the bleeding boy and barked out into the darkness. 
+Beside Boxer a boy lay on his back. He held his head with one hand and blood spilled from his nose forming a pool of dark red in the snow. The boy mumbled something but I could not make it out. Boxer had no interest in the bleeding boy and barked out into the darkness.
 
 “It’s trying to take him,” Talia said.
 
@@ -48,15 +50,15 @@ Beside Boxer a boy lay on his back. He held his head with one hand and blood spi
 
 “Steven. Steven is out there.”
 
-“What was it, a bear?” I thought it unlikely. We did get bears, but it was too late in winter for them to be out roaming in the night. 
+“What was it, a bear?” I thought it unlikely. We did get bears, but it was too late in winter for them to be out roaming in the night.
 
 “I don’t know.”
 
-I shone the light in the direction Boxer was facing and caught a glimpse of a person ahead. I took my rifle in my hands and edged forward. Boxer followed at my heels. 
+I shone the light in the direction Boxer was facing and caught a glimpse of a person ahead. I took my rifle in my hands and edged forward. Boxer followed at my heels.
 
 I kept the light on the figure, a kid standing out in the snow. A strange warmth grew as we neared. It was as if a fire burned somewhere, but I saw no flame. I crept through the snow making as little noise as possible.
 
-The kid was close now, a boy in a dark grey jacket facing into the darkness ahead. He turned his head and looked into the light of the torch. His face was shrouded in darkness as if he wore a black hood. From the top of his head a strip of black about the diameter of a forearm stretched out and snaked its way into the dark of the woods beyond. The black strip writhed and jerked in the still night air. 
+The kid was close now, a boy in a dark grey jacket facing into the darkness ahead. He turned his head and looked into the light of the torch. His face was shrouded in darkness as if he wore a black hood. From the top of his head a strip of black about the diameter of a forearm stretched out and snaked its way into the dark of the woods beyond. The black strip writhed and jerked in the still night air.
 
 “It wants me to go with it,” the boy said.
 
@@ -78,7 +80,7 @@ The boy did not stop. Boxer began barking wildly. I backed up a couple of steps.
 
 I stumbled backward and fell to the snow. The boy turned and walked to the creature hiding in the trees. It extended a limb and a set of long fingers wrapped around the torso of the boy and in a single motion pulled the boy up off his feet. The black tentacles circling the head of the boy released their grip and revealed eyes full of fear and a wide smile that showed all the boy’s teeth. And then with a flourish that left the branches swaying, the creature and the boy were gone.
 
-My heart thumped like a cannon in my chest. I manipulated the torch to where the thing had been but there was only forest and snow. The heat I had felt was gone, replaced with the cold of night. Behind me Talia screamed. I edged forward to where the black creature had been. There was nothing. 
+My heart thumped like a cannon in my chest. I manipulated the torch to where the thing had been but there was only forest and snow. The heat I had felt was gone, replaced with the cold of night. Behind me Talia screamed. I edged forward to where the black creature had been. There was nothing.
 
 “Where did he go?” she said.
 
@@ -88,11 +90,11 @@ Boxer sniffed and I listened. Nothing. I swung the torch around but I caught not
 
 “Where did it go?” I said.
 
-I swung the torch in a circle searching for charred trees or footprints in the snow. A trail of melted snow led deep into the forest. I followed it, part hoping I would find the boy and part hoping I would not find what had taken him. I came to an exposed ledge of rock and the trail disappeared. In the dark of the night I could not see where or if the trail continued beyond. 
+I swung the torch in a circle searching for charred trees or footprints in the snow. A trail of melted snow led deep into the forest. I followed it, part hoping I would find the boy and part hoping I would not find what had taken him. I came to an exposed ledge of rock and the trail disappeared. In the dark of the night I could not see where or if the trail continued beyond.
 
 I retraced my steps. Talia was on her knees in the snow, her head in her hands. The boy with the bloodied nose was behind her, standing now but bent over, his hands on his thighs. The stream of blood from his nose had slowed to a drip.
 
-“What the hell was that?” I said. 
+“What the hell was that?” I said.
 
 “I don’t know,” Talia said.
 
@@ -102,17 +104,17 @@ Talia dropped her hands. She turned to her friend and then back to me. “We wer
 
 “I think he broke my nose,” the boy said.
 
-Light snow began to fall. I placed a hand on Talia’s jacket to help her up and her friend stepped across and slapped my arm away. He eyed me as he lifted Talia to her feet. 
+Light snow began to fall. I placed a hand on Talia’s jacket to help her up and her friend stepped across and slapped my arm away. He eyed me as he lifted Talia to her feet.
 
 “We have to go after him,” Talia said.
 
-“He’s gone,” I said. “Wherever he is we won’t find him in the dark. One of you should call the Chief.” 
+“He’s gone,” I said. “Wherever he is we won’t find him in the dark. One of you should call the Chief.”
 
 \--------
 
 The interrogation room at the police station was not new to me. At the end of the summer, a local man by the name of Lee Rutkowski had gone out hunting one day and never came home. He told his wife he planned to head into the woods not far from where my cabin is, so it was no surprise when they hauled me in. But I had not seen or heard Rutkowski. They never did find his body.
 
-The chief of police is a man named Sam Fingleton, known around town as Chief. The rest of the town was on a first name basis with each other, including Fingleton’s deputies. But such was the standing Fingleton held in the town, everyone knew him only as Chief. Some residents would be hard pressed to tell you his first name. Not that there was ever much policing to do. The odd drunken brawl on a Friday night, and those were rarer since the coal mine shut down. Fingleton is a tall, thin man with glasses and a receding hairline. He could pass for a banker or a lawyer, but he had a hard edge to him and you had a front row seat if you ever found yourself on the wrong side of the law in Canary Hill. 
+The chief of police is a man named Sam Fingleton, known around town as Chief. The rest of the town was on a first name basis with each other, including Fingleton’s deputies. But such was the standing Fingleton held in the town, everyone knew him only as Chief. Some residents would be hard pressed to tell you his first name. Not that there was ever much policing to do. The odd drunken brawl on a Friday night, and those were rarer since the coal mine shut down. Fingleton is a tall, thin man with glasses and a receding hairline. He could pass for a banker or a lawyer, but he had a hard edge to him and you had a front row seat if you ever found yourself on the wrong side of the law in Canary Hill.
 
 Fingleton stood in the corner with crossed arms while one of his deputies, a pale, stout man named Jim Elliott, took my statement. I had shown the police where the boy had stood and where the creature had been. And I’d shown them the charred trees, which I could not find an explanation for. They started their search in the night and went on into the day. Then they hauled me in.
 
@@ -164,7 +166,7 @@ Elliott had tethered Boxer to a pole out front and I untied the leash and was on
 
 The lake was empty in the fading light of the afternoon. Anyone who might have been ice fishing had long since gone home. Up on the hill where the access track cut into the forest the police were packing up for the night. They would need to wait until morning to resume the search for the missing boy.
 
-I had almost reached the tree line when two flashlights flickered through the trees. Coming the other way were two men on foot. Mark Potter was one, a large man whose cheeks were almost always red, and who always wore the same trucker hat, even in the cold of winter. The other man was George Visser, who was on my crew at the mine before it closed. We buddied up when he started at the mine and he had been easy to teach. George had a bout of lung trouble and now got a pension from the government. We had a falling out years ago and no longer spoke. George had a wife who had died of cancer shortly after giving birth to Talia, the girl who had been on the mountain the night before.  
+I had almost reached the tree line when two flashlights flickered through the trees. Coming the other way were two men on foot. Mark Potter was one, a large man whose cheeks were almost always red, and who always wore the same trucker hat, even in the cold of winter. The other man was George Visser, who was on my crew at the mine before it closed. We buddied up when he started at the mine and he had been easy to teach. George had a bout of lung trouble and now got a pension from the government. We had a falling out years ago and no longer spoke. George had a wife who had died of cancer shortly after giving birth to Talia, the girl who had been on the mountain the night before.
 
 Potter had spotted me and made a bee line through the trees and out onto the lake. He puffed out his chest and quickened his step as he neared me.
 
@@ -196,7 +198,7 @@ Potter continued. “If you had anything to do with this I’m going to come up 
 
 “I have to get home, it’s getting dark.”
 
-The route I normally took to the cabin went right by where the creature took the boy. I veered off a little to avoid it. It wasn’t so much a conscious decision, but the way my feet took me. 
+The route I normally took to the cabin went right by where the creature took the boy. I veered off a little to avoid it. It wasn’t so much a conscious decision, but the way my feet took me.
 
 I had spent much of my life in the forest and I knew to be vigilant. There was always the risk of bears or a bad fall. I knew the risks, but I’d never been truly afraid. As I crossed the tree line my steps slowed and my eyes darted from side to side. Boxer, now off the leash, kept close by my side.
 
@@ -212,4 +214,4 @@ I hauled some firewood inside and closed the door behind me and locked it. I lit
 
 I considered hiking back to town. Outside it was dark, the clouds had thickened and all external light was gone. There was no way I wanted to make the journey back to town now. Even with a flashlight the forest had too many hiding places. Maybe if the night was clear and there was a full moon, but the sky was ink black. So, I would wait. I would wait all night with my rifle and Boxer by my side. I would wait for the creature to come and bang at the door.
 
- [X](https://www.reddit.com/r/SleeplessFromSundown/)
+[X](https://www.reddit.com/r/SleeplessFromSundown/)
