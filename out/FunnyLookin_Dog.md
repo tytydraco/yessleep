@@ -1,6 +1,4 @@
- 
-
-*The  following is a transcript excerpt from an audio roleplay video that I  completed some months ago.  I thought this particular portion might be  of some interest to the community.*
+*\*Edited for ease of reading flow*
 
 I seen this funny-looking dog once…
 
@@ -10,11 +8,11 @@ Do  you seriously think I’d be out here, in these woods at night, with this  b
 
 Oh, no.  This one’ll make your butthole pucker.
 
-So  no shit, there I was, walking home from a friend’s place a few years  back.  We’d been drinking, but I wasn’t hammered or anything.  Just a  little more limber, and maybe a bit hungry, you know?
+So  no shit, there I was, walking home from a friend’s place a few years  back.  We’d been drinking, but I wasn’t hammered or anything.  Just a little more limber, and maybe a bit hungry, you know?
 
-So  I’m walking down the street, and it’s ass-thirty in the morning, so  absolutely nobody is outside.  I can tell some people is still up from  the lights of their TVs in the windows...but they ain’t nobody moving  around outside.
+So  I’m walking down the street, and it’s ass-thirty in the morning, so absolutely nobody is outside.  I can tell some people is still up from  the lights of their TVs in the windows...but they ain’t nobody moving  around outside.
 
-And keep in mind  that late as it was, it was a full moon that night, and so everything I  COULD see was as clear as broad daylight.  lot of shadows all over the  place, but a lot of wide open spaces and plenty of light to see by, too.
+And keep in mind  that late as it was, it was a full moon that night, and so everything I  COULD see was as clear as broad daylight.  lot of shadows all over the place, but a lot of wide open spaces and plenty of light to see by, too.
 
 So  I’m walking, and I’m walking, and I’m maybe half a mile from home, when  I suddenly get this chill all over my body.  Not that creepy feeling  like you get when something’s watching you, or anything like that…
 
@@ -76,4 +74,4 @@ Then I hauled ass the rest of the way home, and didn’t sleep for two days.
 
 Real funny-lookin’ dog.
 
-*I hope this excerpt is well-received.  I had a lot of fun writing it up  originally for the audio.  Though it was a bit difficult reading the  part, as the character has a moderately thick Southern accent that I  just don't normally use.  I talked in this idiom for the better part of a  week after recording it.  It was painful.*
+&#x200B;

@@ -158,7 +158,7 @@ On that note, I suppose I’d better be signing off. After all, I’ve gotta get
 
 *Tick tock.*
 
-The most important rule is that he cannot go where he isn’t wanted. And even if you want him, you need to summon him. *Properly*. You have to read his true name. Speak it out loud. You have to visualize him in your mind’s eye and crucially, give him time to find you. To bind to you. Three minutes oughta do.
+The most important rule is that he cannot takes memories he isn't offered. First, you need to summon him. *Properly*. You have to read his true name. Speak it out loud. You have to visualize him in your mind’s eye and crucially, give him time to find you. To bind to you. Three minutes oughta do.
 
 I mean, what the hell do you want me to do? You’re in too deep now. Even if I wanted to pull you out I wouldn't be able to. Like I said, M̴̱̺̒͌i̸̻̘͝s̶͙̹̅ẗ̵̩̰́e̶̤͛͝ṟ̶̎ ̴̱̋͠T̸̜̏i̶̹̐̔͜c̶͚͖̑k̸͓̾̽ ̴̗̔̐Ṫ̷̠͊ō̴̢͉͊c̵̰̒k̵̟̿͐ operates on a different playing field than you or I. He has his own laws. His own rules. 
 
