@@ -116,7 +116,7 @@ The homeless man pulled out a knife, "I'll fucking cut you like a fish! Is that 
 
 To my utter horror, I watched as one of Mrs. Hodges' hands turned black, black tar-like flesh ran up to her upper arm. The homeless guy seemed stuck in place, he stared ahead with wide eyes. His pupils shrank as he seemed to struggle in place to get away.
 
-I watched as my friendly neighbor's arm stretched to inhuman proportions large and wrapped a few times around the homeless man's neck. The man choked and tried to struggle in her grasp, the thing was I don't think she was choking him like I did before. Thinking back to it, his face didn't turn red, he didn't seem to be struggling to breathe. It was more like something was caught in his throat. 
+I watched as my friendly neighbor's arm stretched to inhuman proportions large and wrapped a few times around the homeless man's neck. The man choked and tried to struggle in her grasp, the thing was I don't think she was choking him like I did before. Thinking back to it, his face didn't turn red, he didn't seem to be struggling to breathe. It was more like something was caught in his throat.
 
 The seconds seemed to stretch on to be hours as I watched Mrs. Hodges place her other (now tar hand) on his face. Some of the goop went into his nose and mouth. I watched in horror as he was reduced to dust within a matter of seconds.
 
@@ -170,14 +170,18 @@ She stared at me seriously. "Josh, you know you're a very young man, you don't h
 
 "Alright, you have a nice sleep now you hear? You have nothing to worry about now." She said as I was grabbing my stuff.
 
-"I'll try." I said. Then I left her house. 
+"I'll try." I said. Then I left her house.
 
-When I was inside my living room, I checked all the locks, locking all of them, including the windows. Nobody could blame me for being paranoid after what I witnessed today, all of it. If I needed to I could just blame it on the hobo stalker. 
+When I was inside my living room, I checked all the locks, locking all of them, including the windows. Nobody could blame me for being paranoid after what I witnessed today, all of it. If I needed to I could just blame it on the hobo stalker.
 
-I've been checking the locks every day these past few days. I don't know how to understand any of this. It's fucking crazy. Absolutely fucking crazy. She was right, I can't comprehend this. As much as I try, nothing factors correctly in my brain. 
+I've been checking the locks every day these past few days. I don't know how to understand any of this. It's fucking crazy. Absolutely fucking crazy. She was right, I can't comprehend this. As much as I try, nothing factors correctly in my brain.
 
 Call me crazy, call me anything. But I know what happened that day and it is seared into my mind for as long as I live. I know what happened that day and nobody can make me believe I don't.
 
 So all I ask is please believe me. Believe my story. Believe there are others like Mrs. Hodges out there, living among us. Living their natural lives, maybe on your street, in your scripture, maybe even your family.
 
 Just don't tell anyone who told you.
+
+EDIT: [https://www.reddit.com/r/nosleep/comments/vc8kce/nonhuman\_neighbor\_update/](https://www.reddit.com/r/nosleep/comments/vc8kce/nonhuman_neighbor_update/)
+
+I wrote an update here, please read it. 
