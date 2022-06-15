@@ -32,7 +32,7 @@ Setting  right in the middle of the opening were what seemed to be three men. Th
 
 The scene made me so nervous I began to feel nauseous. I got out of my car and slowly walked towards them. I have never walked so slowly and quietly in my life. I didn’t want them to notice me at all. 
 
-Once I reached them, I could tell they were all completely naked. The man in the middle had a small box in his lap and smoke was coming from the box like something was smoldering inside it. There is a strong smell of burning hair around them. The only noise was the hum of the protector. I approached the man closest to the road and carefully tried to set the cup of ice water at his feet. 
+Once I reached them, I could tell they were all completely naked. The man in the middle had a small box in his lap and smoke was coming from the box like something was smoldering inside it. There is a strong smell of burning hair around them. The only noise was the hum of the projector. I approached the man closest to the road and carefully tried to set the cup of ice water at his feet. 
 
 My hands were shaking too badly, and I dropped the cup, spilling the water all over his feet. None of them had any reaction. 
 

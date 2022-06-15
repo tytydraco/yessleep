@@ -1,5 +1,4 @@
 
-
 After the tornado hit, we thought we were lucky.  Our family lived on the remnants of what had once been a farm, but over the generations, time and necessity had whittled down what had once been three hundred acres to less than thirty, our house, and an old barn that we used for junk and yard tools.  When that twister cut through, it tore out half the barn, but it didn’t touch the house a hundred yards away and we all came through it fine.
 
 The year the storm came, I was a senior in high school.  My parents were still together.  My little sister Hattie was still alive.  Our lives were good, and had been good for…well, as long as I could remember.  
@@ -129,3 +128,7 @@ At first it didn’t make any sense.  There *was* some jewelry in there—wristw
 Instead of pink, that end of the nail was clear and then tipped with a bit of dark grey and red.  Not nail polish—not even nail really.  Touching it experimentally, I felt my gorge rise a little.  It gave.  Just a little, but it gave.  Not like an old fingernail, but like what might come with one.
 
 [When it was ripped out by the root.](https://redd.it/9ndww5)
+
+**** 
+
+[Part Two](https://redd.it/vck39k)
