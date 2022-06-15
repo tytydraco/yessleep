@@ -72,4 +72,4 @@ The screaming seemed to be right outside of Isabelle’s window, whatever it was
 
 But there was no denying the figure that was watching our home in the field, I was certain of what I saw. I was beside myself as I laid my baby in the small pen next to the couch and watched Theo sleep. I looked at the closet, debating if I should unlock my handgun in case a lion gets too brave. I made my way over and put in the combination on the safe, leaving it open on the top shelf of the closet so that in case of an emergency I could reach it but Theodore couldn’t. I did not sleep the rest of the night.
 
-&#x200B;
+[Part 2](https://www.reddit.com/r/nosleep/comments/vd3okt/i_escaped_hillbilly_hell_but_only_barely_part_2/) (TW: Depiction of Animal Carving, Some Gore)

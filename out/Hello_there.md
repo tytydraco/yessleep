@@ -2,7 +2,7 @@
 
 I’ve noticed you may have some specific interests, and I’d like to offer my services.
 
-You can call me Damien,
+You can call me James,
 
 At Anonymous Products and Live Feed, we can assist you in acquiring the proper tools, techniques, and information in order to obtain your products while remaining anonymous. 
 
