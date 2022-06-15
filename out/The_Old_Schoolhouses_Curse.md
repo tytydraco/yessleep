@@ -84,7 +84,7 @@ John kept backing up. “The last person to leave the schoolhouse is doomed…do
 
 He turned suddenly and sharply on his heels and bolted out the door before I even had a chance to blink. The door slammed shut behind him, leaving me alone in the schoolhouse with a flabbergasted expression painted on my face. It finally clicked that I’d been tricked. And while I gave no credence to the silly curse, I was overwhelmed by the fear of being trapped in the old school. I ran to the door and tried to push it open, but I felt resistance on the other side. John or Patrick was keeping it closed. Meg giggled wildly. She was probably peeing her pants with laughter. All while I pleaded to be let out. The room was growing stuffier and, in my struggle, the collar had fallen from my nose and now I could smell nothing but mildew. It was so strong, I could even *taste* it.
 
-I heard a hammer hitting a nail, and realized they were boarding the back door shut.
+I heard a hammer hitting a nail, and realized they were boarding the door shut.
 
 “No, no guys come on! You’ve had your fun! Come on, this isn’t cool. Please. I need to get back home,” I screamed, tears streaming down my cheeks. I don’t even know if they could hear me over their own laughter at my expense. It felt like I was being buried alive.
 
