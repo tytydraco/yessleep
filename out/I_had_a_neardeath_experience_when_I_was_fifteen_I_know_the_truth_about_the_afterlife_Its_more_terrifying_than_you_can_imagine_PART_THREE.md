@@ -192,4 +192,8 @@ The rest of us, except Dante, did the same. Dante stood vigilantly beside the do
 
 I lay down on a cot, closed my eyes, and tried to doze. My mind felt like an overloaded computer trying to process everything that had happened to me that day. I still couldn't fully believe this was all actually happening.
 
-Eventually I managed to fade away into a state of half-sleep.
+Eventually I managed to fade away into a state of half-sleep
+
+PART FOUR .[https://www.reddit.com/r/nosleep/comments/vcy6kk/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vcy6kk/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
