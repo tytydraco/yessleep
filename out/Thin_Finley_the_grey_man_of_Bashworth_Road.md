@@ -1,3 +1,5 @@
+Thin Finley, the grey man of Bashworth Road.
+
 I wish the first half of this tale was the backstory to The Grey Man. 
 
 I wish I could give you a choice of origins that would humanise Thin Finley. 

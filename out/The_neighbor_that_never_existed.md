@@ -1,0 +1,15 @@
+When I was a kid growing up in southeast Alaska, I lived on a small island called Ketchikan. My family was poor and we moved from place to place a lot, finally we found a nice blue house for rent with good monthly payments that my parents could afford. 
+
+When we moved in, I remember small subtle things that use to creep me out. Like our front door would be open and no one was there, or a fish would jump out of the tank but the cover was on top. Just stuff that didn’t make sense.
+
+Then things started to ramp up, as a kid I was terrified of the dark so I slept with a night light, as you know they’re not the brightest and a dim light for comfort. Well that dim light brought more horror than comfort. I started to see a black figure crawling on my walls, almost as if it was the size of a child but the body was crawling on all 4 limbs, the arms stretched out like putty.
+
+Terrified, I speak to my sister about it because it was always just easier to go to her rather than my parents. She ends up telling me that when she’s awake in the mornings, after her showers when she’d brush her hair, she always seen a black figure run behind her in the mirror, too fast to be seen. She told me she wouldn’t have thought anything of it if I wasn’t sound asleep when she checked if it was me. It scared her even more because she felt the wind on her hand from the running. 
+
+One day, two pale white children are on the property and only my sister and my self were home, she asks me to confront them so I do, I go and ask “who are you? Why are you here,it’s our house?” They then say it’s their grandpas and we shouldn’t be there. So I say “okay well where is your grandpa?” And they point inside the house. Creeped out I tell them to leave and I go inside. 
+
+Then finally, the mind games got worse. (The way our neighborhood was set up, we had no neighbors to the right or left of us, only in front of us, that’s important later.) There would be days when I’d go into my moms room and snoop around, my sister was my baby sitter when my parents worked so I was usually alone a lot, well one day, as I’m playing in her room I hear “hey, do you wanna be my friend?” I go to the window where I heard it came from & we had a neighbor. Well a little girl pops her head out and asks again. I say yes and we start talking, I don’t remember all the things she asked me to do, some were to embarrassing to admit even anonymously, but one stuck with me that I’ll never forget.
+
+She asked “you should pour that gasoline on yourself and light a match.” So I go to the shed and take the gas for the lawn mower. (We rented so we obviously had to do upkeep) Well after I do so, I hear my mom come home. I go inside and she smells me, she immediately gets mad and asked why I would do that. I tell her the little girl next door told me to do so. 
+
+Freaked out my mom tells me we don’t have a next door neighbor. The house I saw also disappeared.
