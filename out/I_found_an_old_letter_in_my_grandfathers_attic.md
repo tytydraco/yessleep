@@ -33,4 +33,6 @@ La sangre libera a los encarcelados…
 
 The blood frees the imprisoned.
 
-- Professor Luca Alvaro Javier de Léon
+-  Professor Luca Alvaro Javier de Léon
+
+November 7th, 1922
