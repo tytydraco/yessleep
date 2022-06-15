@@ -82,7 +82,9 @@ His red glasses flickered. “You’re a smart boy. What do you think she wished
 
 I mulled it over for a few moments. “She wants to win the lottery.”
 
-“*Ding-ding-ding!* Clever Danny.”
+“*Ding-ding-ding!* Clever Danny," Mr. Scratch beamed.
+
+The prospect of having that much wealth in the family should've excited me, only I knew Hailey and I would never see a cent of it.
 
 “And my sister?” I asked.
 
