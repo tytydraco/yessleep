@@ -28,7 +28,7 @@ I mulled it over for a second, grinding my teeth. It was a subconscious habit at
 
 “Let me check.”
 
-The phone shot an electric shock in my arm the second the words came out of his mouth. Startled, I dropped it on floor, where it bounced twice from. It played loud static, interfered by familiar music. 
+The phone shot an electric shock in my arm the second the words came out of his mouth. Startled, I dropped it on floor, where it bounced twice from. It played loud static, interfered by familiar music.
 
 I panicked, jumping from my bed and stuffing my pillow over the noise, looking at the door and waiting for my parents to bang on it for waking them up. After a long minute of breath holding, there was no movement in the house.
 
@@ -64,7 +64,7 @@ I didn’t sleep at all that night.
 
 I hugged him tight, kissing him in the cheek. He smiled back at me. “But get something worth reading, not those fantasy type nonsense.”
 
-“I don’t even like those.” I lied. 
+“I don’t even like those.” I lied.
 
 We went through our routine just fine after that. I was pretty proud of myself for avoiding any frowned faces, so much so that I completely forgot what had happened until Owen skipped over to keep up with my quick jog.
 
@@ -150,13 +150,13 @@ After being informed by my father of the death of Andy Griffith, an actor neithe
 
 I wanted to pick something with science in it, but all the covers looked so boring and the plots were meh. Inch by inch, I turned to the Young Adult section, where the good stuff always hid between the shelves. Dystopian counts as science fiction, right?
 
-The Selection, BitterBlue, Reached, Enclave- oh that one looked interesting, even if the main character was apparently named Deuce. 
+The Selection, BitterBlue, Reached, Enclave- oh that one looked interesting, even if the main character was apparently named Deuce.
 
 I was reading the book blurb in the back when I almost missed it. A light sneeze from two rows further distracted me enough to take a glimpse at the thick rimmed glasses of Max Mulligan.
 
 He was crouching, holding a red book in his hands. I couldn’t see his face, but his sniffling was audible even from far. I approached him from behind, stepping on eggshells so he wouldn’t know I was there.
 
-His shoulders were shaking and he was obviously wiping tears from his eyes. He was trying to be quiet about it, but a few sobs or hiccups escaped his chest. Without thinking about it, I handed him a wet wipe. 
+His shoulders were shaking and he was obviously wiping tears from his eyes. He was trying to be quiet about it, but a few sobs or hiccups escaped his chest. Without thinking about it, I handed him a wet wipe.
 
 Max jumped up to his feet, squealing like a little mouse. He clamped his mouth shut with his hand in horror, but couldn’t breathe from his snotty nose without making some nasty noises.
 
@@ -187,3 +187,5 @@ He practically ran away all the way to the door, almost left, then turned around
 If I wasn’t already convinced that I would look into the ice cream truck, that would’ve have been the last straw.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/v6r70p/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vdl25g/an_ice_cream_truck_man_comes_by_every_night_at/)
