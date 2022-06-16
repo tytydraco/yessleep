@@ -1,6 +1,6 @@
-I’m writing this because I have too. 
+I’m writing this because I have to.
 
-I’m obligated too.
+I’m obligated to.
 
 I’m contracted to. 
 
@@ -94,4 +94,4 @@ He made his way back into the water and went under. 
 
 So here I am now writing this. Please share this and tell everyone you can. 
 
-Remember, they are out there, and it wants us all. 
+Remember, they are out there, and it wants us all.

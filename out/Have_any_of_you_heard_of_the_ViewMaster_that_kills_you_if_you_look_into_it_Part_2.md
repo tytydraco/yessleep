@@ -1,6 +1,8 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/va3vx2/have_any_of_you_heard_of_the_viewmaster_that/)
 
-So picking up from my previous post, David had just hauled a box with chains around it out of the hole he'd been digging all afternoon and now the chains were off, but he and Frank just looked at the thing with reverence and trepidation. I just wanted to speed things along so I opened the lid. 
+[Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
+
+So picking up from my previous post, David had just hauled a box with chains around it out of the hole he'd been digging all afternoon and now the chains were off, but he and Frank just looked at the thing with reverence and trepidation. I just wanted to speed things along so I opened the lid.
 
 David and Frank looked like they thought it might explode, but of course nothing so dramatic happened. I reached inside and pulled out the box's two contents: a View-Master. A really old plastic one like the kids had back in the 70s. It was dark brown. There was also a disc that went with it. I was decidedly underwhelmed. I started with “So it's--
 
@@ -10,7 +12,7 @@ David and Frank looked like they thought it might explode, but of course nothing
 
 “And look, it's got a disc,” he said with childlike wonder.
 
-“Awe-some!” I responded. 
+“Awe-some!” I responded.
 
 David picked up the disc and held it up to the light, trying to see what was on it. Then he put the disc in and looked inside.
 
@@ -26,7 +28,7 @@ We waited a few beats for rule number two. When it never came, I asked “And wh
 
 Frank looked confused, then said, ”Now that I think about it, I guess there's only the one.”
 
-David told him there was nothing on it anyway, but Frank said that sometimes there is. When pressed about this, Frank said “Well, it ain't glowing red, now is it?” 
+David told him there was nothing on it anyway, but Frank said that sometimes there is. When pressed about this, Frank said “Well, it ain't glowing red, now is it?”
 
 “Good point,” I said sarcastically.
 
@@ -62,7 +64,7 @@ And so now the thing was ours and soon I was driving us at long last, for me at 
 
 “Oh, you don't say,” I answered. “Hon, did you really fall for that? Of course there's no light. And if there is, that old guy probably put new batteries in it just last week. It's just another scam. And as usual, you fell right in it. And really, that's not the point, is it? I mean deep down you knew this all along. It's just the thrill of the hunt.”
 
-He came back with “The truth is out there,” and grinned. 
+He came back with “The truth is out there,” and grinned.
 
 “All right, Mulder. You got your doohickey. Now I get my romantic mountain cabin getaway. Right?” I asked.
 
@@ -72,11 +74,11 @@ Remember that strange house we passed on the way to Frank's? Well, we went back 
 
 The kid stared ahead, but not exactly looking at us. He looked like he was dazed or maybe in shock.
 
-Then he walked over to David's side of the car, looking in at the View-Master. He started getting visibly upset, trying to whisper something we couldn't understand. 
+Then he walked over to David's side of the car, looking in at the View-Master. He started getting visibly upset, trying to whisper something we couldn't understand.
 
 David started rolling the window down to try to hear him. Something he didn't notice, but I did—the View-Master started glowing red. David moved it away from the kid's outstretched hand. This made the kid grow more frantic, He was trying to grab it, making whining noises as he reached for it.
 
-Suddenly I was shocked by a banging on the my driver's side window. I let out a startled yell and whipped my head around to look. 
+Suddenly I was shocked by a banging on the my driver's side window. I let out a startled yell and whipped my head around to look.
 
 It was a woman, maybe forty or so. And pissed.
 
@@ -84,7 +86,7 @@ It was a woman, maybe forty or so. And pissed.
 
 “Whatchoo doin' to ma boy?” she asked harshly.
 
-I told her we weren't doing anything to him. He just jumped out in front of our car. She said that “if he jumped out in front of your car, he had a damn good reason. He's retarded, you know,” she added. 
+I told her we weren't doing anything to him. He just jumped out in front of our car. She said that “if he jumped out in front of your car, he had a damn good reason. He's retarded, you know,” she added.
 
 All the while I was conversing with his mother, the kid was still struggling with David. They both had their hands on the View-Master, pulling at it. It still glowed red.
 
@@ -103,3 +105,5 @@ When Ezekiel reached his mother, she slapped him upside the head.
 As I pulled away, movement caught my eye. I looked in the rear-view mirror to see that Ezekiel had broken away from his mother and was chasing our car down the road. I looked over at David, but I don't think he ever noticed him. Once again, he was single-mindedly focused on the little box in his hands.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/va3vx2/have_any_of_you_heard_of_the_viewmaster_that/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
