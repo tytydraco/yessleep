@@ -1,6 +1,6 @@
 The alarm blared at 8:55 AM, and I rolled out of bed just in time to pee, brush, splash some water on my face and dash to my office down the hall. My dot was green by 9:03 - safe. Weirdly, everyone else was either offline or orange; guess it is time for summer vacations after all. I checked my calendar to see only one scheduled meeting for the day. Excellent - this meant I could spend the day goofing off. 
 
-I picked up the laptop and charger, and set up shop in the living room, where the Xbox was. This way, I could both play as well as monitor any incoming pings. Deciding that today would be a good day for a nice single player adventure, I picked a fun-looking action rpg from my backlog and got to work. 
+I picked up the laptop and charger, and set up shop in the living room, where the Xbox was. This way, I could both play as well as monitor any incoming pings. I thought about hopping on a multiplayer FPS, but instead decided that today would be a good day for a nice, single-player adventure. So, I picked a fun-looking action rpg from my backlog and got to work. 
 
 Around noon, I thought I might treat myself to takeout, but decided to just throw a Jamaican patty in the microwave instead. Inflation is crazy right now, so better to save money. After lunch, I checked Teams & Outlook, but no change - everybody was still either offline or away, and strangely, I received no emails. Usually by this time in the day, I would get pulled into at least two surprise meetings and get a few spam emails to sorth through, but nothing happened. 
 
