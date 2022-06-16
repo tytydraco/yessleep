@@ -21,3 +21,9 @@ Things got weird after the police wrapped up their report with us. They told my 
 Well, fast forward to Tuesday evening, and my mom was obviously informed of this whole thing after my stepdad went to the ER. She wasn’t thrilled and now wants to move out ASAP. On top of that, she just called me earlier today (Wednesday) and told me a couple of suits showed up at their front door. They informed my parents that they were federal agents and they needed access to the locked part of the basement. They also said my parents may have to move out of the house, and the feds would pay them for it in cash.
 
 How the feds knew about our situation, I’m not sure, but I assume the cops told them. Anyhow, my mom apparently let them go down there a couple hours ago and they still haven’t come back up yet. She went in my room to listen once they went through the first locked door but never heard anything. This whole situation is honestly so screwed up at this point. I haven't slept well since this whole thing went down and I have several questions with no answers. What happens if the agents don’t come back up? Should I tell my parents to stay in a hotel or something? And most importantly, what the heck did my stepdad shoot at? I’m scared, really scared.
+
+&#x200B;
+
+EDIT (been another day or so):
+
+So some more federal agents contacted my parents (the first two never came back up) and they decided to sell the home. Unfortunately, this means I will never be able to find out what was living in the basement. Maybe it's for the better though. Take some advice from me; if you ever find a weird door in your home that you never noticed before, don't open it.
