@@ -2,7 +2,7 @@
 
 “I bought a EMF Reader and a black light! They should be delivered on Monday.” -Dane texted in our chat group with me and my husband.
 
-“Hell yeah! I bought a few things for the trip, too. LED lights and tarp poles so we can put the tarp up in case it rains.” I reply. “What time will you get off work Tuesday? I feel like it’ll be around 5 for me. Hopefully still enough time to get there before it get dark”.
+“Hell yeah! I bought a few things for the trip, too. LED lights and tarp poles so we can put the tarp up in case it rains.” I reply. “What time will you get off work Tuesday? I feel like it’ll be around 5 for me. Hopefully still enough time to get there before it gets dark”.
 
 “I only work a few hours that day. I plan on packing the rest of my stuff when I get back home.” Dane sent.
 
