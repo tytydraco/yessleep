@@ -1,8 +1,8 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/uxv7qa/a_cryptid_killed_my_exbest_friend/) [Part 2](https://www.reddit.com/r/nosleep/comments/v2zbxt/a_cryptid_killed_my_exbest_friend_part_2/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/uxv7qa/a_cryptid_killed_my_exbest_friend/) [Part 2](https://www.reddit.com/r/nosleep/comments/v2zbxt/a_cryptid_killed_my_exbest_friend_part_2/)
 
 &#x200B;
 
-I think I’m losing it. For the past week, I’ve been having intense nightmares. In them, I’ll be somewhere dim like a forest at dusk or a hallway.  The shapeshifter will be chasing me and no matter how much I run, the end of where I am will keep stretching forever. Those aren’t the worst ones, though. 
+I think I’m losing it. For the past week, I’ve been having intense nightmares. In them, I’ll be somewhere dim like a forest at dusk or a hallway.  The shapeshifter will be chasing me and no matter how much I run, the end of where I am will keep stretching forever. Those aren’t the worst ones, though.
 
 &#x200B;
 
@@ -48,25 +48,25 @@ He doesn’t reply. The woodchips under his feet shake a bit. Worried, I hop off
 
 &#x200B;
 
-He doesn’t move.  A hand pokes up through the dirt, grabbing his ankle. Something about it seems familiar. I scream his name as it pulls him off the swing. Then I find myself in a tug of war for him with the hand. 
+He doesn’t move.  A hand pokes up through the dirt, grabbing his ankle. Something about it seems familiar. I scream his name as it pulls him off the swing. Then I find myself in a tug of war for him with the hand.
 
 &#x200B;
 
 &#x200B;
 
-It’s so much stronger than me and even though I’m straining, he sinks deeper and deeper.  Now I’m begging for him to fight or do anything. I scream his name. He doesn’t even do so much as acknowledge me. It’s like he’s accepted his fate. 
+It’s so much stronger than me and even though I’m straining, he sinks deeper and deeper.  Now I’m begging for him to fight or do anything. I scream his name. He doesn’t even do so much as acknowledge me. It’s like he’s accepted his fate.
 
 &#x200B;
 
 &#x200B;
 
-A pair of eyes become visible through the dirt and woodchips. They look so full of glee and malice. The person rises and when I see them, my heart stops. The face I’m looking at is none other than my own except older. In fact, it’s how I looked the day he left my life for good, all bloody and busted. 
+A pair of eyes become visible through the dirt and woodchips. They look so full of glee and malice. The person rises and when I see them, my heart stops. The face I’m looking at is none other than my own except older. In fact, it’s how I looked the day he left my life for good, all bloody and busted.
 
 &#x200B;
 
 &#x200B;
 
- It grins, revealing those god-awful teeth, and yanks Jake from my grasp. I scream, falling back and it laughs. Then opens its mouth wide, teeth stretching and appearing almost horselike. It speaks.
+It grins, revealing those god-awful teeth, and yanks Jake from my grasp. I scream, falling back and it laughs. Then opens its mouth wide, teeth stretching and appearing almost horselike. It speaks.
 
 &#x200B;
 
@@ -84,19 +84,19 @@ It chomps into Jake who doesn’t even flinch as blood pours from him. That’s 
 
 &#x200B;
 
-Kelly had copied the files onto a flash drive so I could view them on my laptop. While waiting for it to boot up, I got a little pick me up. My room has a microwave and a min fridge which I’ve been keeping stocked with drinks and premade sandwiches.  This time I was having a grape Gatorade with an Italian hero. 
+Kelly had copied the files onto a flash drive so I could view them on my laptop. While waiting for it to boot up, I got a little pick me up. My room has a microwave and a min fridge which I’ve been keeping stocked with drinks and premade sandwiches.  This time I was having a grape Gatorade with an Italian hero.
 
 &#x200B;
 
 &#x200B;
 
-Along with what’s in my fridge, I’ve also been having a lot of energy shots. I always wait until I’m actually feeling fatigued before taking one or else it’ll just wear off too soon. I know it’s not healthy, but it’s not like I’ve been well-rested recently. Not even the sleeping pills I’ve been taking are helping with that. I can only imagine how Kelly’s been feeling. 
+Along with what’s in my fridge, I’ve also been having a lot of energy shots. I always wait until I’m actually feeling fatigued before taking one or else it’ll just wear off too soon. I know it’s not healthy, but it’s not like I’ve been well-rested recently. Not even the sleeping pills I’ve been taking are helping with that. I can only imagine how Kelly’s been feeling.
 
 &#x200B;
 
 &#x200B;
 
-To be honest, she has me worried. She was already looking thinner than when  I last saw her and I’ve noticed she hasn’t been eating much. With my laptop now fully booted, I sat down with my food and checked out more information on Maxwell and Turner. Something we found out about the former is that he was married as well. 
+To be honest, she has me worried. She was already looking thinner than when  I last saw her and I’ve noticed she hasn’t been eating much. With my laptop now fully booted, I sat down with my food and checked out more information on Maxwell and Turner. Something we found out about the former is that he was married as well.
 
 &#x200B;
 
@@ -212,7 +212,7 @@ I paced back and forth waiting for Gene to come out. When he did, I saw him imme
 
 &#x200B;
 
-He tapped off some ash and his expression saddened. 
+He tapped off some ash and his expression saddened.
 
 &#x200B;
 
@@ -256,7 +256,7 @@ Gene thoughtfully took another drag.
 
 &#x200B;
 
-I wondered why assuming Alberta’s situation was similar to Jake’s did she also not choose to seek out help. My theory is that if this thing takes on the shape of its victims, that would make it difficult to combat. 
+I wondered why assuming Alberta’s situation was similar to Jake’s did she also not choose to seek out help. My theory is that if this thing takes on the shape of its victims, that would make it difficult to combat.
 
 &#x200B;
 
@@ -488,7 +488,7 @@ He produced a pocket knife. My eyes went from it back to him.
 
 &#x200B;
 
-I took it, thanking him. 
+I took it, thanking him.
 
 &#x200B;
 
@@ -721,3 +721,7 @@ The sun was setting during the drive back to the hotel. Kelly was already back  
 &#x200B;
 
 She nodded. I returned it and without any other words, we went to our rooms. We’ve been doing more research since then and tomorrow, I’ll be relaying what she did while I was searching for Floyd. Now, I need to get some rest. It’s been a [really](https://www.reddit.com/r/StoriesFromRose/) long [day.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/vdfa1t/a\_cryptid\_killed\_my\_exbest\_friend\_part\_4/](https://www.reddit.com/r/nosleep/comments/vdfa1t/a_cryptid_killed_my_exbest_friend_part_4/) (Dana Maxwell)
