@@ -101,3 +101,5 @@ For example, here are some of the scripts and notes I received today:
 It’s been interesting so far. I’ve only had one difficult customer who yelled things at me that I didn’t understand. It was so weird, because before my boss jumped in, and yelled *other* words I didn’t understand, I started getting lightheaded, and for a moment at the time, I thought I could see my keyboard and desk through my hands and wrists. I was okay after that, although my boss did have me remain home for a day until I ‘fully regained my corporeal form’.
 
 I hope Geoff’s been healing okay. Part of me wants to call and check on him, but that would be against policy, and I really would like to keep my skin.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vdyv1p/im_calling_about_a_past_due_balance_on_your/)

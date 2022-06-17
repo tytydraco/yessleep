@@ -2,11 +2,11 @@ In a bygone time, he was a dentist. Back when alcohol was the only anesthetic an
 
 To those who live in my town, he’s known simply as The Dentist. A mythical figure from centuries past. But, he is more than myth. He was alive once, and now, he lives again.
 
-What makes him such a unique character are the circumstances in which he ended his career. He’d been working on a young woman who’d been plagued with an awful, reoccurring toothache one afternoon, poking and prodding at her teeth with a metal curette, when something changed in his eyes. According to the woman, he looked as if his soul were pushed aside and something else had taken its place. Something evil.
+What makes him such a unique character are the circumstances in which he ended his career. He’d been working on a young woman one afternoon who’d been plagued with an awful, reoccurring toothache, poking and prodding at her teeth with a metal curette, when something changed in his eyes. According to the woman, he looked as if his soul were pushed aside and something else had taken its place. Something evil.
 
 He began to incessantly scrape at her tooth in a quick back and forth motion as if trying to burrow into the tooth's core. 
 
-“What are you doing?” She mumbled, and receiving no answer, she ordered him to stop. But, still, he continued to scrape until finally, she kicked him away from her and hurried to the door. “What is wrong with you?!” She cried.
+“What are you doing?” She mumbled, and receiving no answer, she ordered him to stop. But, still, he continued to scrape until finally, she kicked him away and hurried to the door. “What is wrong with you?!” She cried.
 
 The Dentist silently turned his head toward her, swapped the curette with a pair of scissors, and to her horror, began cutting his lips from his face.
 
@@ -18,7 +18,7 @@ It is from these others that the story continues, particularly from a local vete
 
 The Dentist did not speak. He stepped toward the man, and like the woman before him, the man, too, fled, warning others as he went.
 
-Out the building The Dentist went, past frightened onlookers who peered from behind windows and cover, and to the nearby woods, where he was last seen, entering with a leather roll of dental tools and a wide, bloody smile.
+Out the building The Dentist eventually went, past frightened onlookers who peered from behind windows and cover, and to the nearby woods, where he was last seen, entering with a leather roll of dental tools and a wide, bloody smile.
 
 Two hundred years have gone by since then, and although it has been agreed on by all that The Dentist must be long dead, a reluctance to enter the woods has remained rooted in each generation of townsfolk. But, it is a tendency of teenagers to test legends, be it for the rush of a good scare or the arrogance of youth, as it was for my friends and me many years ago.
 
@@ -62,9 +62,11 @@ Dean and Sandy. Of course. How could I be so stupid? Every girl I knew back then
 
 I sat back up, zipped my tent closed, and then laid on my sleeping bag, broken-hearted and bitter. Within the hour, I had drifted back to sleep.
 
-When I awoke again, it wasn’t to the sound of a zipper but rather the sharp sensation of metal scraping my teeth, accompanied by something wet dripping onto my face. When the reality of what I was feeling hit me, I opened my eyes in a panic. Kneeling over me with a wide smile was Sandy.
+When I awoke again, it wasn’t to the sound of a zipper but rather the sharp sensation of metal scraping my teeth, accompanied by something wet dripping onto my face. When the reality of what I was feeling hit me, I opened my eyes in a panic. 
 
-“Fuck!” I yelled and kicked her off of me, then quickly rolled away and grabbed my flashlight. I clicked it on and pointed it at her, and that’s when I saw that all of the flesh which had once covered her teeth had been cut away, and all that remained was a blood-dripping, toothy grin. And behind her wild eyes was a soul not her own.
+Kneeling over me with a wide smile was Sandy.
+
+“Fuck!” I yelled and kicked her off of me, then quickly rolled away and grabbed my flashlight. I clicked it on and pointed it at her, and that’s when I saw that all of the flesh which had once covered her teeth had been cut away, and all that remained was a blood-dripping, toothy grin. Behind her wild eyes was a soul not her own.
 
 I yelled for Dean. No response. Sandy, curette in hand, began coming toward me once again, and as she did so, I fumbled through my bag and pulled out a pocket knife, then quickly cut through the fabric at the rear of the tent and hurried outside. “Dean!” I yelled. 
 
@@ -102,7 +104,7 @@ I sped up. “Help!”
 
 Pain was shooting up my leg. Again, I yelled, now jogging on a broken ankle. I could see the sun on the horizon as I reached the edge of the woods and fell into the yard, and yelled once more.
 
-A door opened and a woman rushed outside to me.
+A door opened and a woman rushed outside.
 
 “We’ve got to get inside,” I cried. “Please.”
 

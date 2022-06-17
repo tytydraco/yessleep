@@ -12,7 +12,7 @@ The access to our spot is off of the closed down Lower Creek Road, and like any 
 
 The night air felt hot and muggy as I placed the sign back. As I completed the task I had done a million times, a strange feeling of depression came over me. Depression is the best way I can explain it. At that moment, the idea of fishing with my friends didn’t excite me like it had in the past. 
 
-I shook off my melancholy, got back in my truck, and took off down the old dirt road. My trip was highlighted by a strange site. About a quarter mile in and on the side of the road, a car sat at the edge of an old driveway and not just any driveway, it was the driveway to the Tillerman home. The site of a unsolved murder. The home was destroyed years ago but an old rusty mailbox still stands. The only numbers on the mailbox are 66 with the first number being scraped off. 
+I shook off my melancholy, got back in my truck, and took off down the old dirt road. My trip was highlighted by a strange site. About a quarter mile in and on the side of the road, a car sat at the edge of an old driveway and not just any driveway, it was the driveway to the Tillerman home. The site of an unsolved murder. The home was destroyed years ago but an old rusty mailbox still stands. The only numbers on the mailbox are 66 with the first number being scraped off. 
 
 I decided the abandoned sedan was none of my concern and continued my trip. 
 
