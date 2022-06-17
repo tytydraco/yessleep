@@ -20,7 +20,7 @@ I went downstairs quietly and looked out the window and there they were at the f
 
 They started banging on my door and I yelled at them saying they weren't my kids and if they didn't leave me alone I would grab my gun. I then heard a man's voice "You don't own a gun" it was my husband's voice. "Rick is that you" it went silent for a while until I heard his voice again "You know what you did now you're getting what you deserve".
 
-I then heard muttering on the other side and then I heard laughter. I was confused until I heard my husband's voice again "I just remembered I still have keys to the house". I froze in terror and ran up to the kitchen and grabbed a kitchen knife, yelling at my husband to stay out. 
+I then heard muttering on the other side and then I heard laughter. I was confused until I heard my husband's voice again "I just remembered I still have keys to the house". I froze in terror and ran to the kitchen and grabbed a kitchen knife, yelling at my husband to stay out. 
 
 I heard the door open and heard both of them coming in, I was shaking in terror knowing I might kill my ex-husband tonight. Both of them came in wearing the kid's faces, I wanted to vomit seeing it. Both of them then pulled the faces off revealing my ex-husband's face and his brother that was acting weird whenever we questioned him, my ex-husband. 
 
