@@ -137,3 +137,7 @@ Outside, a horde of walking corpses was approaching the store. Dozens of them.
 No...
 
 *Hundreds* of them.
+
+PART SIX [https://www.reddit.com/r/nosleep/comments/vektml/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vektml/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
