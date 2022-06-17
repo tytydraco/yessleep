@@ -1,0 +1,25 @@
+[**READ PART 1 HERE.**](https://www.reddit.com/r/nosleep/comments/vdeg9f/is_anyone_else_out_there/)
+
+I grabbed a light jacket and walked outside, locking the door behind me. The chirping of birds greeted me outside, and I saw squirrels scampering about. Whatever this was, at least the animals seemed to be fine. After starting up the car, I tried checking the radio. Nothing but static. So communication lines and power were somehow being kept running, but there weren't people on the other end to... I wasn't ready to finish that thought. Not yet; too many unknowns.
+
+As I made my way down to the grocery store, I saw zero moving cars. Neither were there empty, abandoned cars along the roads either. Everything seemed to be normal, absent people, besides me... I made it to the store. Only a few cars parked in the lot, but it was only around 10 AM. The automatic doors whooshed open to let me in. The lights were all on, and even the in-store radio was humming along, playing an easy-listening 80s hit. There was nobody at the registers. I walked along each aisle, and still nothing. I didn't have high hopes, but I still had to be sure, so I went to the employee's-only section to find absolutely nothing but empty chairs and full shelves stocked with groceries.
+
+Resigning myself to the situation, I grabbed milk, eggs, some snacks and other staples, built myself a six-pack of Ben & Jerry's, grabbed the most expensive bottle of wine, and what the hell, some cigars too.  If it was the end of the world, might as well enjoy it, right?
+
+Then I just walked out. If it was some kind of prank, now would be the best time for the camera crew to come out and say a cheesy catchphrase that's a play on the show's title. I would laugh it off and say, "You got me! I totally planned on paying for these by the way." And me, the host, and the crew would all laugh. But that's not what happened. I packed the trunk up with my groceries and drove home. There was a lot to think about and plans to consider. As for step one, maybe I should post something on Reddit to see if I am truly alone?
+
+\---------------------------------------------
+
+My post was seen! But that's strange, as I am not getting updates on my side; the internet has been stuck on the day before yesterday for me. As far as I can tell, some of my outgoing messages are reaching folks, but the rules are unclear. It seems nobody at work is around, but perhaps my mom and sister might be? Maybe it's localized to where I live. That doesn't exactly explain the current state of affairs, but it's the best explanation I've got so far.
+
+I made a resolution. I would spend the rest of the day packing, and set out in the morning for New York to try and reach my family.
+
+\-----------------------------------------------
+
+After a long day of packing for survival, something brand new to me (the closest I've done is backpacking), I threw a "gourmet" frozen meal into the microwave and sat down on the couch with a bag of chips, waiting for the beep. As electricity and the net were up, streaming was available. But before picking a show to hopefully lose myself in and forget my current predicament, I just had to scratch my curiosity itch. I hopped on a multiplayer shooter to see that the servers were open, but empty. Great.
+
+In the unique dark and quiet of whatever was going on, as I flipped through the selections on Hulu, suddenly my phone started ringing. In my surprise and rush, potato chips flew everywhere as I scrambled to grab the phone. The screen said "Spam Likely," but I of course still answered. Unfortunately, as I pleaded "Hello? hello? **HELLO!?!?**" what responded on the other side was a robocall about my car warranty expiring. Dejected but not knowing what else to do, I listened to the whole thing and followed the prompts, hoping for an actual human on the other side to answer me at the end, but that was just wishful thinking. After the loop finished and the tone went dead, I clicked the call off and just sat and stared.
+
+*BEEEEEP BEEEEEEP BEEEEEEP.* The sound of the microwave finishing woke me out of my stupor, and I went to the kitchen to retrieve my "gourmet" heated meal. As I walked in, I noticed the sky being much brighter than a few minutes ago. I looked outside the window to see a car drive down the road. An actual moving car! I yelled in excitement and ran outside in my bare feet, chasing after the car. I only made it to the edge of the driveway before tripping on a sharp rock, skinning my knees and cutting my foot. I stared at the car, but saw only a shadowy figure in the driver's seat. Still, as I got to my feet, I noticed regular evening lights on around the houses in the neighborhood, and perhaps even people at some of the windows? The figures were all shadowy, like the driver. I touched my face to confirm that I was in fact wearing my glasses.
+
+As I made my way across the street to the neighbor's house, the sky suddenly got dark and cold like it had been the last day and half, all in the span of a blink. Still, I rang the doorbell, knocked, pounded, screamed for twenty minutes. No response. What the hell was going on?

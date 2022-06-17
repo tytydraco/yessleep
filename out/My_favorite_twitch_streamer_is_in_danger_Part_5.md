@@ -4,7 +4,12 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/va9ojn/my_favorite_twitch_streamer_is_in_danger_part_3)
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/vbg0nl/my_favorite_twitch_streamer_is_in_danger_part_4)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/ve5b5n/my_favorite_twitch_streamer_is_in_danger_part_4)
+
+
+
+
 
 
 

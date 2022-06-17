@@ -16,4 +16,4 @@ I checked messenger - zero updates across any of my group chats since the day be
 
 Thoroughly freaking out, I tried to think things through. What did all of this mean, and what would I need to do to keep myself safe and learn the status of my family? First things first, I decided to take a trip to the grocery store for two reasons: **A**. I was hungry, and takeout was clearly not an option. & **B**. I had to see for myself whether or not my worst fears regarding the situation were true.
 
-UPDATE: PART 2 was removed due to 24 hour rule. Will post again later. 
+[**READ PART 2.**](https://www.reddit.com/r/nosleep/comments/ve5q82/i_am_not_alone/)
