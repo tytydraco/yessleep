@@ -200,4 +200,4 @@ You just might not [notice.](https://www.reddit.com/r/JGcreepypastas/comments/ra
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
 
-[YT](https://youtu.be/9RybtYtDzAk)
+[YT](https://youtu.be/B3ZtLUHfk5k)
