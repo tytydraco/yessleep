@@ -38,7 +38,7 @@ My first instinct should’ve been to sneak to the exit, but my primal desire wa
 
 Eve got ahold of the hacksaw and I’ve got nasty defensive wounds on my arms to prove it, but what she didn’t see coming was me grabbing her mortar from the coffee table and slamming into the side of her skull. I took multiple hits to the head with a pipe and lived, she took one hit with a mortar and died. The brain is a delicate thing.
 
-Adam hadn’t been there. I still don’t know where he had been at the time, but the stars aligned for me to get out of there. The house was situated in a neighbourhood I didn’t recognise, but most the places looked derelict. I sobbed as I walked down the street looking for a inhabited property. I was thinking I had made it out of there only to die on the street because I couldn’t find help.
+Adam hadn’t been there. I still don’t know where he had been at the time, but the stars aligned for me to get out of there. The house was situated in a neighbourhood I didn’t recognise, but most the places looked derelict. I sobbed as I walked down the street looking for an inhabited property. I was thinking I had made it out of there only to die on the street because I couldn’t find help.
 
 Normally I wouldn’t wave down a low-riding car blaring trap music, but desperate times called for desperate measures. And, as Tinder had taught me, don’t judge a book by its cover.
 

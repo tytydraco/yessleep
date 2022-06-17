@@ -273,3 +273,5 @@ What was he gonna do to me if I hadn’t gotten away?
 *(Anywhere! They could be anywhere!)*
 
 My heart started racing again when the car peeled out of the parking spot and took off at break-neck speed. “Whoa, slow down, what the hell’re you—“ My breath caught in my throat when I turned and looked next to me. It wasn't Officer Vega in the driver seat... *It was him!*
+
+[Next](https://www.reddit.com/r/nosleep/comments/ve1bdc/i_was_stalked_and_kidnapped_by_a_serial_killer_he/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

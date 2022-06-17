@@ -18,7 +18,7 @@ It is from these others that the story continues, particularly from a local vete
 
 The Dentist did not speak. He stepped toward the man, and like the woman before him, the man, too, fled, warning others as he went.
 
-Out the building The Dentist eventually went, past frightened onlookers who peered from behind windows and cover, and to the nearby woods, where he was last seen, entering with a leather roll of dental tools and a wide, bloody smile.
+Out the building The Dentist eventually went, past frightened onlookers who peered from behind windows and cover, and to the nearby woods, where he was last seen entering with a leather roll of dental tools and a wide, bloody smile.
 
 Two hundred years have gone by since then, and although it has been agreed on by all that The Dentist must be long dead, a reluctance to enter the woods has remained rooted in each generation of townsfolk. But, it is a tendency of teenagers to test legends, be it for the rush of a good scare or the arrogance of youth, as it was for my friends and me many years ago.
 
@@ -50,13 +50,13 @@ I laughed. “Well, I’m happy you’re here.”
 
 Sandy smiled and we looked at each other for a long moment, then she quickly looked away and said, “Anyway,” and stood, “I better go to bed.”
 
-My heart sank. “Oh. Okay. Goodnight then.” I stood, not knowing how to react. Hug? Handshake? High-five? Looking back at it now, it was an invitation I was too dense to catch. Instead, I fervently waved like I were on the Titanic as it was leaving port, despite being within only arms reach of her. An embarrassing display that I immediately regretted.
+My heart sank. “Oh. Okay. Goodnight then.” I stood, not knowing how to react. Hug? Handshake? High-five? Looking back at it now, it was an invitation I was too dense to catch. Instead, I fervently waved like I were on the Titanic as it left port, despite being within arms reach of her. An embarrassing display that I immediately regretted.
 
 Sandy disappeared into her tent, and with a sigh, I smothered the fire and called it a night.
 
-I awoke not long after to the sound of a tent unzipping and quickly sat up. “Sandy?” I whispered, hopefully. But, as my eyes adjusted, I realized it wasn’t my tent that had opened. I crawled over and unzipped mine and poked my head out, and could see that Sandy’s tent was open. Immediately, I was concerned and was about to call her name when I heard another zipper and turned in time to see Dean’s tent being sealed.
+I awoke not long after to the sound of a tent unzipping, and quickly sat up. “Sandy?” I whispered, hopefully. But, as my eyes adjusted to the dark, I realized it wasn’t my tent that had been opened. I crawled over and unzipped mine and poked my head out, and could see that Sandy’s tent was open. Immediately, I was concerned and was about to call her name when I heard another zipper and turned in time to see Dean’s tent being sealed.
 
-I felt as if the breath were torn out of me. I slumped back into my tent. 
+I felt the breath torn from me and slumped back into my tent. 
 
 Dean and Sandy. Of course. How could I be so stupid? Every girl I knew back then wanted Dean. Why would Sandy be any different?
 
@@ -132,6 +132,6 @@ Dean and Sandy were never found. But I know they’re out there.
 
 Waiting.
 
-I do not know for sure why they ended up the way they did and I was seemingly spared. The only thing I can come up with is that some people are dentists while others are patients.
+I do not know for sure why they ended up the way they did, while I was seemingly spared. The only reason I can come up with is that some people are chosen as dentists while others, such as myself, are patients… whose teeth are poked and prodded, but whose smile remains only temporarily.
 
 If you ever do happen to come across The Dentists, I sincerely hope that you are [the latter.](https://www.reddit.com/user/FishermanTales/comments/qjvwoi/subscribe_to_rfishermantales/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
