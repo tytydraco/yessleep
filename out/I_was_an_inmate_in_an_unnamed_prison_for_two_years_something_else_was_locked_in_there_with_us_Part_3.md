@@ -308,11 +308,11 @@ I climbed all the way up, over the railing and onto the catwalk of the first flo
 
 “Theo!” I screamed. “Fuck you, Theo! We made it! Get us out!”
 
-The main entrance was thrown wide open, so we waited for the blackout event to end and for the mist to dissipate. I took that time to check on Mason, finding a huge bruise on his abdomen where Lanky’s fist made contant and an equally big one on his back where he collided with the wall. No broken bones as far as I could tell, but it would still hurt like a bitch for a while.
+The main entrance was thrown wide open, so we waited for the blackout event to end and for the mist to dissipate. I took that time to check on Mason, finding a huge bruise on his abdomen where Lanky’s fist made contact and an equally big one on his back where he collided with the wall. No broken bones as far as I could tell, but it would still hurt like a bitch for a while.
 
 When it was finally over with and the stairs dropped back down, Theo rushed into the building with his team. Mason and I walked downstairs to meet them, with me propping him up.
 
-“Phenomental job,” Theo said with a grin, putting his rifle aside to give us a slow clap. “I didn’t expect you two to survive that, color me impressed.”
+“Phenomenal job,” Theo said with a grin, putting his rifle aside to give us a slow clap. “I didn’t expect you two to survive that, color me impressed.”
 
 I had a whole assortment of colorful words to lay down on him, but I abstained. Couldn’t risk pissing him off, not when we were out of our cells and at his mercy. He could just as easily dispose of us as he could help us.
 
