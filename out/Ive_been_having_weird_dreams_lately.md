@@ -1,0 +1,14 @@
+
+For context: I have an older sister who I share a room with, and I go to sleep much later than she does. I’m still in school and she is in her last year. She’s never expressed wanting to kill me(obviously), and we have a good enough relationship.
+
+
+A few years ago I had a dream where I was walking past her bed, she suddenly woke up with an alien like look on her face. It was like someone else had taken her body over. She ended up killing me and my parents didn’t hear it. Since then I’ve told them about in and nothing else has really happened. I think this is somewhat important to know, because I tend to not take dreams lightly and this really made me worry about my safety for a while, even though this was 100% a dream. Also My dreams have a habit of predicting the future, which I honestly don’t even want to think about. I’ve not had any issues with her lately, except her speaking in sleep which only creeps me out a little.
+
+
+Until recently an incident occurred, where she woke up around 3 am and started talking to me, asking me what I’m doing, which made me uneasy and have my guard up. The following night she started whispering to me from her side of the room, “hey, come here” repeatedly. I was paralysed in fear, until I couldn’t handle it anymore and screamed “STOP.”
+That’s it. She stopped. I asked my mom if she heard me scream and she told me it was just a dream, since my sister was already awake and doing something with my dad at that time. I thought that was that and just moved on.
+
+
+A few days had passed when she started acting weird at night again. She kept whispering “hey, I need you to come here.” When I didn’t respond and pretended to be asleep she continued, “cmon, those were just silly dreams, you’re awake now.” Yet, I still couldn’t move from the fear. I heard her get up and come closer. She stood there for a minute, and I thought it was just a dream, because there’s no reason why that would be happening, until she started violently hitting me, but I couldn’t scream. The pain felt real, I was crying and kicking back, but couldn’t escape. I don’t remember what happened after, I think she knocked me out.
+
+I told my mom about this and she says it was just a dream, because she would have heard this. Later that day I realised I have bruises on my thighs and arms. I can’t show them to my mom, because my sister will convince my mom she didn’t do it, and that somehow I’m the bad guy. She has a way of manipulating my mom, I know this because she hit me and got away with it when we were kids all the time. I don’t know what to do. It’s also uncommon for me to have series of similar dreams, so I know this is real.
