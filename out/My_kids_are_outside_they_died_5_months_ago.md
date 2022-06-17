@@ -2,7 +2,7 @@ It happened 5 months ago, I was outside with my kids. I was sitting in my chair 
 
 I heard my phone start ringing and wanted to go get it but didn't want to leave my kids alone out here. I thought it wouldn't be too long and decided to grab my phone. So I went in and grabbed my phone and saw it was my mom calling, so I picked up and asked what she wanted.
 
-She went on about how my uncle was going on again about how the government was putting trackers in his pills and she needed me to talk to him. I told her I would talk to him later and said my goodbyes before I hung up. My husband came in asking who called and I replied to my mother telling her everything my mom said.
+She went on about how my uncle was going on again about how the government was putting trackers in his pills and she needed me to talk to him. I told her I would talk to him later and said my goodbyes before I hung up. My husband came in asking who called and I replied to my mother telling him everything my mom said.
 
 He laughed because we all knew my uncle was weird, he then asked where the kids were and I then remembered they were outside. I rushed out there to make sure they were alright. I froze when I got out there, both of them were in the pool not moving so I jumped in to get them but by the time I got them and pulled them out it was too late.  
 
