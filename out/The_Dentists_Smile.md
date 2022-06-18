@@ -38,9 +38,9 @@ As the moon reached its peak amidst the stars and began its slow descent, Dean y
 
 “Hopefully you,” said Sandy. “I don’t want to be the only one awake out here.”
 
-I smirked and poked at the fire with a stick. “You really believe The Dentist is out here?”
+I smirked and poked at the fire with a stick. “You really believe The Dentist is in these woods?”
 
-Sandy shrugged. “I did. But, now that we’re out here, it’s not so bad.”
+Sandy shrugged. “I did. But, now that we’re here, it’s not so bad.”
 
 “I’m surprised you agreed to join us.”
 
@@ -54,7 +54,7 @@ My heart sank. “Oh. Okay. Goodnight then.” I stood, not knowing how to react
 
 Sandy disappeared into her tent, and with a sigh, I smothered the fire and called it a night.
 
-I awoke not long after to the sound of a tent unzipping, and quickly sat up. “Sandy?” I whispered, hopefully. But, as my eyes adjusted to the dark, I realized it wasn’t my tent that had been opened. I crawled over and unzipped mine and poked my head out, and could see that Sandy’s tent was open. Immediately, I was concerned and was about to call her name when I heard another zipper and turned in time to see Dean’s tent being sealed.
+I awoke not long after to the sound of a tent unzipping, and quickly sat up. “Sandy?” I whispered, hopefully. But, as my eyes adjusted to the dark, I realized it wasn’t my tent that had been opened. I crawled over and unzipped mine and poked my head out, and could see that Sandy’s tent was open. Immediately, I was concerned and was about to call her name, when I heard another zipper and turned in time to see Dean’s tent being sealed.
 
 I felt the breath torn from me and slumped back into my tent. 
 

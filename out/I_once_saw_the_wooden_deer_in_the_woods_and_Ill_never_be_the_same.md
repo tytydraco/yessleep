@@ -2,13 +2,13 @@ I stay calm and steady, aiming carefully while holding my breath. I dared not bl
 
 My prize, a dead deer, was laying in a pool of blood as I made a headshot kill. I prefer these as they are quick and painless for the deer, and harder to pull off. I grabbed the deer by the antlers and pulled out my cellphone to take a picture, prepared to eternalize my victory by a photo. I was interrupted by voices of a man and woman talking.
 
-I calmly and carefully stepped through the overgrowth and hid behind a thick tree. “Kyle!” the woman shouted. The man put his hands over his mouth to call out “Kyle! Where are you!” The bushes near them started to rumble and shake, the man getting scared and stepping backwards. His right leg was closest to said bush and I witnessed a strange sight.
+I calmly and carefully stepped through the overgrowth and hid behind a thick tree. “Kyle!” the woman shouted. The man cupped his hands over his mouth to call out “Kyle! Where are you!” The bushes near them started to rumble and shake, the man getting scared and stepping backwards. His right leg was closest to said bush and I witnessed a strange sight.
 
 Something came out of the bush for a split second and bit his thigh causing it to bleed. He yelped in pain and clutched his wound. His heavy breathing and screaming were replaced with a calm silence only a few seconds later. He stood there silently and emotionlessly as his wife tried to console him in any way she could.
 
-“Devan! Devan are you alright! Hello?!” The husband bends over and grabs his wife's leg, yanking it so hard she falls on her ass and he takes off her shoes and socks, while pulling up her right pant leg. She screams in horror as she struggles to get off his tight grip. “What’s gotten into you! Stop, you’re hurting me!” 
+“Devan! Devan are you alright! Hello?!” The husband bends over and grabs his wife's leg, yanking it so hard she falls on her ass and he takes off her shoes and socks, while pulling up her right pant leg. She screams in horror as she struggles to get off his tight grip. “What’s gotten into you! Stop, you’re hurting me!”
 
-She tries everything from slapping his hand and trying to pry it open to no avail.I watch as the same creature comes out of the bushes quickly and bites her whole foot causing her to scream in pain. Her husband finally lets go as she cries while clutching her foot as it bled. “What's… wrong… with… you…” Again after a few seconds she fell quiet and got up standing in a thoughtless manner like her husband.
+She tries everything from slapping his hand and trying to pry it open to no avail. I watch as the same creature comes out of the bushes quickly and bites her whole foot causing her to scream in pain. Her husband finally lets go as she cries while clutching her foot as it bled. “What's… wrong… with… you…” Again after a few seconds she fell quiet and got up standing in a thoughtless manner like her husband.
 
 I watched as the creature showed itself, a doe covered in some flowers and over growth, appearing to be made of some weird material. I thought its texture was so coarse and unnatural that I pulled out my phone to zoom in. To my surprise it had a similar texture to that of a tree, I even turned my head silently to inspect the tree I was hiding behind for confirmation on this.
 
@@ -22,7 +22,7 @@ The man and woman were standing before the wooden deer. There were many white ta
 
 There were also naked humans all over the place picking up trash and relaxing in the grass. I pulled out my phone again to get a better view, focusing on Dave and the woman who’s name I didn’t know. The deer nodded its head and the woman and man had begun shaking. Their hands morphed together stickily turning black at the ends like hooves. Their forearms were partially covered in brown fur.
 
-Brown nubs grew on Dave's head and a while later turned into fully formed antlers. They both fell down as their feet shook sporadically and morphed in a melty way like their hands previously. Their human feet retracted into a smaller black cylinder shape, their whole leg structure breaking and bending to that of a deer's.
+Brown nubs grew on Devan's head and a while later turned into fully formed antlers. They both fell down as their feet shook sporadically and morphed in a melty way like their hands previously. Their human feet retracted into a smaller black cylinder shape, their whole leg structure breaking and bending to that of a deer's.
 
 Their behinds to their face started to morph and grow a coat of deer hair. Their faces both extended and quickly changed color as fur grew out. Their human nose turned black and smaller just like their eyes. The twos skull structure only narrowed and elongated forwards to create a snout as their ears subsequently disappeared into the sides of their heads before a new pair of deer ears grew.
 
@@ -48,6 +48,8 @@ I jumped down from the tree and kept running after getting past the blockade. I 
 
 I couldn’t breathe, I waited for a few moments to rest before trying to sluggishly get up. I felt the most intense pain I had ever felt in my life which made getting up excruciatingly worse, and difficult. I climbed up the hill of the pond and looked to the woods. I saw the wooden deer standing there, staring at me.
 
-The armada of deer were right behind it as were the humans. The deer ran back as the humans started to turn into deer as well. I puked on the ground and wiped my mouth, everything was dizzy and sweat dampened my whole body and clothes. After what seemed like an eternity I got to my car. I started it up and looked back, the wooden deer was alone now, and still looking into my soul.
+The armada of deer were right behind it. The deer ran back as the humans started to turn into deer as well. I puked on the ground and wiped my mouth, everything was dizzy and sweat dampened my whole body and clothes. After what seemed like an eternity I got to my car. I started it up and looked back, the wooden deer was alone now, and still looking into my soul.
 
-I drove home while playing some music to try and get my mind off things. I silently cried, thanking the lord that I escaped with my life. I couldn’t comprehend what was happening there, and I didn’t want to fucking know.30 minutes later I pulled into my driveway and limped inside my home. I grabbed a trash bag and started placing all my hunting equipment, trophies, and other stuff inside. I took down my prized deer head on a plague and put it in a bag as well. I called 911 to send an ambulance as I laid on my couch, crying profusely.
+I drove home while playing some music to try and get my mind off things. I silently cried, thanking the lord that I escaped with my life. I couldn’t comprehend what was happening there, and I didn’t want to fucking know.
+
+30 minutes later I pulled into my driveway and limped inside my home. I grabbed a trash bag and started placing all my hunting equipment, trophies, and other stuff inside. I took down my prized deer head on a plague and put it in a bag as well. I called 911 to send an ambulance as I laid on my couch, crying profusely.

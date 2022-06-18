@@ -1,0 +1,16 @@
+Some parts of this may seem a little wild, but please, bear with me. This will be a sort of autobiographical guide book for anyone that might have gone or is currently going through life as a shifter (there are various names, for the sake of simplicity I’m leaving it at shifter)and finding little to no support. This one’s for you; any shifter in need of help please reach out to me! I see you. 
+
+I found out I was a shapeshifter when I was 11 years old. My family had been renting an old farmhouse for a little over a year. I had finally started to make friends and get used to my surroundings. I enjoyed exploring the woods, fishing and swimming in the ponds that dotted the property. It was at one of these ponds that I first shifted. I remember I was thinking about how cool it would be to explore the bottom of the pond without having to come up for breath. What kind of mysteries did this little pond hold? A pain unlike any other followed these thoughts.
+
+It started in my throat; my breath caught and I found myself gasping on the dock.  I thought I was having an asthma attack even though I had no history of asthma. The pain began radiating in my head next It felt as though my brain was collapsing in on itself. My nerves I thought were misfiring from the lack of oxygen and extreme pain; all I could think about was eating and breathing. My arms and legs felt as though they were being pulled through a one inch tube. I wanted to scream but I couldn’t breathe. Panic took me and all I could do was writhe around on the dock waiting for death. My sister was screaming and my parents were running and the next thing I remember was  convulsing off the dock and into the water.
+
+It was a strange feeling. I was sure I was dying and just rolled off into the water to drown, but I found that I could breathe; far better than I could on the dock. I felt strong, alive, the murky water became clearer than ever. More than anything I was hungry. Thoughts of hunger bore at my thoughts, I had to eat, there was no other precedence in my mind. It was maddening. Here I was on deaths door not 20 seconds ago and now all I could think about was food. As if God himself knew my thoughts I sensed food at the edge of the dock. I swam towards the food source only to find myself back on the dock gasping for breath. The same pain radiating through my throat and lungs.
+
+My mothers voice soothed my panicked thoughts.
+
+“Jess? Hey, I need you to calm down, ok?” She continued.
+“Can you remember your birthday? What did you get? How did it make you feel?”
+
+I began recounting my 11th birthday. I had a sleepover with some friends. I got a Nintendo 64, we went swimming after cake. My breath became steadier, it was easier to breathe. The pain however erupted again. It was opposite this time. Instead of feeling like I was being pulled through a tube, it felt as though I were being stretched beyond any capable limit. I didn’t scream, I couldn’t scream because of the pain. All I could do was let my tears fall as I took slow, painful gasps of the hot summer air. As soon as it began, the pain ended. My mom looked at me with a sad but understanding look. She then said something that would forever alter my life.
+
+“We have a lot to talk about.”
