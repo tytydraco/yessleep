@@ -89,3 +89,5 @@ I started out knowing very little about the lake and the river, but time brings 
 Weird bags filled with squishy stuff that need to disappear in the water are only the beginning. By the way, I've never looked inside one of them. I'm not stupid. That's not to say I don't know what's in them though. 
 
 [X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
+
+[2](https://www.reddit.com/r/nosleep/comments/vfdws4/i_work_on_a_polluted_river_theres_fire_at_the/?utm_medium=android_app&utm_source=share)

@@ -1,0 +1,23 @@
+Today on my hike, I took a unfamiliar trek off the beaten path. As I made my way up the mountain, I felt a sense of calm and tranquility. I’ve been told so very often how a brisk hike, in the open air, surrounded by nature can really bring you at peace with yourself and although these hikes have helped me clear my head, I hadn’t felt anything like this. Before long, the cool breeze gently ruffling the leaves in the trees had truly made me feel whole again. 
+
+As I reached my stopping point and rested my feet for a moment, I happened upon a most precarious boulder. It was small in size compared to some I’ve come across before, but it was intriguing and unique all the same. It’s shape was rounded out completely, while it’s texture was covered from the base to the peak, in small, thin, round holes about a half an inch in diameter. It was cool to the touch and for a moment, it seemed as though it reacted to my skin against it’s rough exterior. This was what tranquility should feel like. This was the place. I decided to mark the locations coordinates in my journal and make my hike back down.
+
+I’ve decided to start making my hikes back towards my new sanctuary more frequently to relax and unwind and record my experiences.
+
+Day 1: Today was a new day, but no less excitement I felt when I found my new hiking path. Not much change in the boulders appearance and it hadn’t shifted since last I was here. I can only assume this part of the mountain doesn’t get much foot traffic. Yes, this is the perfect place. The boulder seemed a bit warm to the touch, although that could be the sunlight bearing down through the trees onto its staunch frame. Today, I feel invigorated.
+
+Day 2: It seemed as though the boulder had moved slightly, but not enough to be sure. It looked as though the holes were beginning to take on a new tinge. Maybe it was the way the sunlight bounced off of the trees onto its surface, or the shadow consuming it’s other half, but the holes seemed to take on a reddish hue. Today, I feel inspired.
+
+Day 3: I’m absolutely sure the boulder has moved slightly north. At the very least, it has shifted its angle. The color is now a much more noticeable red. When I began running my finger tips across its body, I could feel it breath. It has begun to lose its staunch exterior as it seems to have soften in places. Today I feel vulnerable.
+
+Day 4: The boulder has completely lost its former texture. It’s taken on a character more akin to a soft leather or rough skin. The holes have now began pulsating when I grow closer. I’m beginning to fear that the boulder does not trust me. Today, I feel disheartened.
+
+Day 5: I’ve rushed home to share my findings. The boulder was facing away from my normal path today. It’s original grey cast, has become pale white, while the holes are now of a crimson red. I could feel it’s disdain as I approached, and the boulder writhed in pain and agony when I placed my hand upon it’s peak. To the touch, it had become moist and sopping. I did my best to comfort it, but that only drew more animosity from it. 
+
+Eventually, my presence began causing the boulder to crack at its base. It wasn’t long before the crack spread across its frame. I attempted to stop it, but it was too late. The crack brought about a split in the side and chunks of meat poured from its opening. I tried to push them back in, but the meat mushed between my fingers and only worsened the ever-growing situation.
+
+Before I knew it, I was a mess. Covered in decaying meat and sobbing uncontrollably. I couldn’t bring myself to make things worse and I retreated down the mountain in a fit of emotions. Today I feel overwhelmed.
+
+Update: The FBI have since seized all of my journals and hard drives, but I was able to hide away a flash drive with a copy of my recordings. I was arrested not long after my last update. They tried to sentence me for life without the possibility of parole but I’ve been released on a technicality. The people who argued against me on the stand couldn’t bare to look at me. The evidence against me was impossible for most of the jury to stomach. Some even had to excuse themselves. The judge referred to me as a “monster”. They claim they found the bits and pieces of those people dug up in various places around a boulder. And that small chunks of flesh were scattered about the forest floor with a massive meat mound protruding from a larger hole beneath the boulder. This wasn’t true. I didn’t dig those people up and I did NOT intend to leave them scattered about. This was the boulders doing. I had finally found peace.
+
+Tomorrow, I must return to my other hideaways to gather my emotions. I’ll begin my search for a new retreat soon.
