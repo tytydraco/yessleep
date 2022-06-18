@@ -62,6 +62,6 @@ I suppose he could've tried to stop me but I'm glad he didn't.  I truly don't kn
 
 I know you're inclined to think whatever was in Roj now resides in me but that's not the case.  I think by freeing him, I tapped into something I wasn't quite ready for.  Perhaps its foolish to do this on my own, but until I can find a way to control this, its the only way I can immediately guarantee Roj and Cecily's safety.  I know they'll keep the others safe.  As for the Hag and her kind?  Thanks to my message, I suppose they know I'm coming for them.  I expect they'll be prepared.
 
-I won't lie.  A small part of me is excited for the carnage that's to come.  But a larger part of me is afraid because I've seen what I'm willing to do and I don't know that there's a line in the sand.
+I won't lie.  A small part of me is excited for the carnage that's to come.  But a larger part of me is afraid because I've seen what [I'm willing to do](https://www.reddit.com/r/nosleep/comments/vff6gl/confessions_of_a_tarot_card_reader_the_truth/) and I don't know that there's a line in the sand.
 
 [f](https://www.reddit.com/r/forehveree/comments/t16wl6/about_me/)
