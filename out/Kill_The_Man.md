@@ -94,9 +94,9 @@ I hurriedly took more rounds from the duffel bag and filled the cylinder, and wi
 
 I slid down the wall in the other direction across my previous blood smear, past the living room and into the kitchen. Strewn across the counter tops and appliances were unwashed dishes with molded and maggoted remainders of meals. Open wrappers and containers. Putridity of rotten meat. The buzzing of flies beckoned by filth. And an open door leading into the backyard.
 
-I stepped outside into the humid afternoon and the overgrown grass. Past the chain link fence were woods had grown thick and deep, and from those woods, I could hear the crunching leaves of the fleeing man and the sobbing of a child not his own.
+I stepped outside into the humid afternoon and the overgrown grass. Past the chain link fence were woods grown thick and deep, and from those woods, I could hear the crunching leaves of the fleeing man and the sobbing of a child not his own.
 
-Had I not felt oblivion settling in, I would have taken off in pursuit. 
+Had I not felt oblivion settling in, I would have taken off after them.
 
 Later on, after my wounds had been tended to, I sent a message to the men he did not know worked for me. Men who will do whatever I ask of them. 
 

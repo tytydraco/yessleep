@@ -273,3 +273,5 @@ We got into position by the service door, Dante picking up the handles of Jeff's
 A couple minutes later I heard an explosion from outside. Shattering glass followed by the roar of fire, then the sound of the corpses shrieking in pain or horror. Then another explosion. Then another. After several more explosions, we faintly heard Aaron shouting at us from above: *"Now!"*
 
 Dante and I looked at each other, our faces tense with fear, then Dante pushed open the door.
+
+PART SEVEN [https://www.reddit.com/r/nosleep/comments/vfakb9/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vfakb9/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
