@@ -4,7 +4,7 @@ I won't waste too much of your time with details of my current life, but I guess
 
 I live in the Midwestern United states, nowhere special. My job is normal, and my life is boring, but my dreams are... odd to say the least.
 
-It's not just that their subject magic is weird, no, its that they seem so *real*. I can feel and hear and smell and even taste things in ways I shouldn't be able to.
+It's not just that their subject matter is weird, no, its that they seem so *real*. I can feel and hear and smell and even taste things in ways I shouldn't be able to.
 
 When I wake up its like whiplash, you know, going from such vivid romannce to bland, mundane reality.
 
@@ -103,7 +103,7 @@ I remember the Puck heads jumping off and not crossing the threshold as I walked
 They each pushed the door to Mr. Tim's house shut, and I turned to walk back across the street.
 
 There was never a missing person's report filed. 
-No cop cars pulled up across the street, no ambulances either.
+No cop cars pulled up across the street, no ambulances.
 Nobody heard from Mr. Tim again.
 
 I never saw the Puckheads again either.

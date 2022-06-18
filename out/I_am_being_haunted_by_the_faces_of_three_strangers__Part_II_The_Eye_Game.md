@@ -173,3 +173,5 @@ The kid’s face was now spread across the ceiling, covering close to the entire
 The third scream was unlike the two that preceded it. In no way did it sound human. The mangled frequency reached deep inside of me, my bones rattling in response to the cacophony’s shockwaves—each of the windows in my kitchen shattered in harmony, shards of glass sent flying as I ducked for cover on the ground. As the residual, pulsing echo of the scream eased into merciful silence, I peered up at the ceiling. I was transfixed by the kid’s face. Whoever it was, I don’t think it is possible to appear more afraid.
 
 The book has started to glow. I’ll try to write more soon.
+
+[Part III: The Ghost Hunter](https://www.reddit.com/r/nosleep/comments/vfa1ci/i_am_being_haunted_by_the_faces_of_three/)
