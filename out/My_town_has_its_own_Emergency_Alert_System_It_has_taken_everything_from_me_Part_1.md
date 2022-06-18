@@ -44,7 +44,7 @@ My family went to the memorial service that evening. I had never worn a tie befo
 
 Margret smiled at the camera in her pink flowered dress. Eternally happy. Eternally young.
 
-Margret had been in preschool with me. She was not a close friend at that age. I was still firmly in the phase of life where girls were gross and scary. Still, I remember being sad that she was gone. Not that I entirely understood at the time she was dead. 
+Margret had been in preschool with me. She was not a close friend at that age. I was still firmly in the phase of life where girls were gross and scary. Still, I remember being sad that she was gone. Not that I entirely understood at the time she was dead.
 
 Mom and dad had explained to me on the way to the memorial that people who didn’t get inside when the emergency alert sounded were never seen again. They never clearly stated that it meant they were dead. As I grew older I came to understand that was the likeliest outcome.
 
@@ -74,7 +74,7 @@ I still feel as though if I had gone home more often maybe Paige would still be 
 
 It took me a few more alarms to fight the urge to hide in a subterranean, windowless room but eventually, I was able to control my urges. Tornados were very uncommon in the area and the alerts I would receive on my cellphone were generally just to let you know bad weather was on the way. It didn’t always indicate a need to take shelter. Those may have been the only completely relaxed years of my life.
 
-Early in my last semester of college, I could tell Paige was becoming despondent. She was attending a community college in the next county over from Allister Valley. I had begged and pleaded with her to transfer to the state college with me but she wisely declined. All of the courses she needed for her degree were available at a much lower cost there. 
+Early in my last semester of college, I could tell Paige was becoming despondent. She was attending a community college in the next county over from Allister Valley. I had begged and pleaded with her to transfer to the state college with me but she wisely declined. All of the courses she needed for her degree were available at a much lower cost there.
 
 “Are you coming back to Allister Valley after you graduate?” she asked one night on the phone.
 
@@ -102,7 +102,7 @@ My heart ached for her but it seemed to be growing into a weight she wasn’t ab
 
 “It isn’t Margret,” I replied sadly. “Baby, she’s been gone for a long time. I’m sorry. I know it’s hard but it isn’t her.”
 
-“Maybe,” she said complacently. “You’re right. I love you.” She hung up the phone. 
+“Maybe,” she said complacently. “You’re right. I love you.” She hung up the phone.
 
 I wish I had known that would be our last phone call. I would have made it last all night. I would have driven home and spent every minute with her from then on. I would have done everything differently.
 
@@ -153,3 +153,5 @@ A moment of silence fell between us.
 The phone line went dead. I tried calling Bruce multiple times but it went directly to his voicemail. My attempts to call Mrs. Cupsworth went unanswered as well.
 
 Paige’s parents never spoke to me again and I don’t blame them. They had suffered the horrific loss of their only two children but in my hot headed youth, I wasn’t able to consider their sense of loss as I can now. In my early forties, [I can see how unsympathetic I was to their grief and sorrow.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vf5y41/my_town_has_its_own_emergency_alert_system_it_has/)
