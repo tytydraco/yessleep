@@ -6,7 +6,7 @@ I live in the Midwestern United states, nowhere special. My job is normal, and m
 
 It's not just that their subject matter is weird, no, its that they seem so *real*. I can feel and hear and smell and even taste things in ways I shouldn't be able to.
 
-When I wake up its like whiplash, you know, going from such vivid romannce to bland, mundane reality.
+When I wake up its like whiplash, you know, going from such vivid romance to bland, mundane reality.
 
 I've been having these dreams since I was around 10, but back then they were more... narrative? I don't know, they just had a continuity to them. Recurring dreams. 
 
@@ -16,7 +16,7 @@ There was also the abuse.
 
 I didn't realize it at the time, what it was. I don't know if I didn't know it was wrong or if I was too scared to tell anyone. 
 
-Mr. Tim was a family friend. He lived in the house across the street from us since before I was born. He and my dad hung out most weekends, and when I got old enough to walk he'd take me along on their activities. Swimming, fishing, bowling, all that good stuff.
+Mr. Tim was a family friend. He'd lived in the house across the street from us since before I was born. He and my dad hung out most weekends, and when I got old enough to walk he'd take me along on their activities. Swimming, fishing, bowling, all that good stuff.
 
 Mr. Tim was touchy with my dad, so I thought it was normal for him to be touchy with me too.
 
