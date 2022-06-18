@@ -46,7 +46,7 @@ I manufactured a smile and said, “Thanks, Mr. Bonicelli, I really appreciate t
 
 “We’ll get to that in a bit. And don’t give me none of that ‘Mr. Bonicelli’ stuff. Call me Vic. Anyhoo, just drive straight up to the parking lot and I’ll show you around from there.”
 
-The first thing I noticed when I drove past the gate was a smooth transition in the road surface, changing from pothole-ridden gravel to smooth and flawless asphalt. The driveway was bordered on either side by a wrought iron fence. The grounds stretched out on either side in endless acres of green lawns and exotic gardens. It was almost surreal. From the outside, this place looked like a scungy old junkyard, but a real-life Garden of Eden was hidden away behind the wall. This was definitely no ordinary zoo, and Vic Bonicelli was no ordinary car salesman.
+The first thing I noticed when I drove past the gate was a jarring transition in the road surface, changing from pothole-ridden gravel to smooth and flawless asphalt. The driveway was bordered on either side by a wrought iron fence. The grounds stretched out on either side in endless acres of green lawns and exotic gardens. It was almost surreal. From the outside, this place looked like a scungy old junkyard, but a real-life Garden of Eden was hidden away behind the wall. This was definitely no ordinary zoo, and Vic Bonicelli was no ordinary car salesman.
 
 The road led to a small parking lot in front of a massive building. It had been built in a slanting, Postmodern sort of style, replete with an overhang that was supported by concrete pillars. A monolithic, glowing marquee on top of the overhang read:
 
