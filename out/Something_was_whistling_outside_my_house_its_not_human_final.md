@@ -48,15 +48,15 @@ I thought I would lose my mind last night when I couldn't take the sleep depriva
 
 "But what if-" I stopped her as I walked over.
 
-"If I'm not back in five minutes just call the police, okay?" I said, not giving any more room for argument. I slipped past her and check to make sure the safety was off. Leah didn't respond as I unlocked the door and clicked on my light. Just as I pulled the door open, Zeus rocketed past my legs and vanished into the darkness. Panic flooded my body as I immediately took off after him. Our porch didn't have any railings and was only a foot or two high, so I after his barking unhindered.
+"If I'm not back in five minutes just call the police, okay?" I said, not giving any more room for argument. I slipped past her and check to make sure the safety was off. Leah didn't respond as I unlocked the door and clicked on my light. Just as I pulled the door open, Zeus rocketed past my legs and vanished into the darkness. Panic flooded my body as I immediately took off after him. Our porch didn't have any railings and was only a foot or two high, so I followed after his barking unhindered.
 
 My blood went ice cold when I heard a pitiful yelp. 
 
-I ran faster around the side of the house, aiming my gun and attached flashlight ahead of me. What I saw next made my stomach churn. In the beam of my flashlight was…something. I don't know what that fucking thing was. It was big, easily taller than me if it was standing. It's skin was a sickly white, like it was almost translucent. The thing had it's back to me and I could see it's spine like the skin was vacuum sealed to the bone. It was like a walking skeleton.
+I ran faster around the side of the house, aiming my gun and attached flashlight ahead of me. What I saw next made my stomach churn. In the beam of my flashlight was…something. I don't know what that fucking *thing* was. It was big, easily taller than me if it was standing. It's skin was a sickly white, like it was almost translucent. The thing had it's back to me and I could see it's spine like the skin was vacuum sealed to the bone. It was like a walking skeleton.
 
 It was then that my ears recognized the sick sound of flesh and bone tearing from one another. The beam of my flashlight shook as I slowly pointed it to the ground by the creature. It was Zeus. My once excitable dog was now laying lifeless on the ground, his unseeing eyes staring back at me.
 
-"Jesus *fucking* christ" I whimpered as I hurled whatever was in my stomach. I had just realized that *all* I saw was his head. It wasn't attached to his body anymore. As my stomach emptied itself on the ground, I backed up and tried to train my gun on this monster. My hands trembled as it was now looking right at. It didn't have a fucking face.
+"Jesus *fucking* christ" I whimpered as I hurled whatever was in my stomach. I had just realized that *all* I saw was his head. It wasn't attached to his body anymore. As my stomach emptied itself on the ground, I backed up and tried to train my gun on this monster. My hands trembled as it was now looking right at me. It didn't have a fucking face.
 
 Where a face should have been was a pitch black hole. At the bottom of it where the white skin still showed was red from my dogs blood. We stood there for a moment before it let out a long and low whistle. I didn't think I just pulled the trigger. 
 
@@ -70,7 +70,7 @@ I sat on the floor sobbing after that. I was in shock until then, but who wouldn
 
 "They…said a mountain lion or a coyote got him..there wasn't anything out there but him" Leah said quietly. I shook my head. 
 
-"It wasn't an animal. It wasn't human" I said quietly, still shell shocked.
+"It wasn't an *animal*. It wasn't *human*" I said quietly, still shell shocked.
 
 "Are..you sure..?" She asked and I nodded, that image of it and blood seared into my mind. We both agreed to just start packing tonight and leave as soon as we could the next day.
 
