@@ -194,6 +194,8 @@ Update 5: Cassie and I are no longer talking to each other.
 
 Update 6: I’m gonna go cry myself to sleep now please don’t yell at me in the comments I don’t know if I can handle that right now.
 
+[Keep reading I suck.](https://www.reddit.com/r/nosleep/comments/vfoy8a/how_to_survive_college_im_just_never_going_to/)
+
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)

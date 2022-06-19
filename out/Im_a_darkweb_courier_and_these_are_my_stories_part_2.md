@@ -175,3 +175,13 @@ Jack looked at me and nodded slowly.
 I declined the extra glass and thanked him for the opportunity and left the gas station.
 
 It's now evening and I’m sitting at my desk looking at a small box sent  by Miranda. Just staring at it trying to decide what to do. I’ll update  you all when I’ve decided what I should do. I guess  it’s going to be another long night with no sleep…
+
+&#x200B;
+
+EDIT:
+
+I messaged Miranda this night, shit's spiraling out of control, I'll update you all when or rather if I can. If I can't well thanks for reading.
+
+Sincerely yours,
+
+Paul
