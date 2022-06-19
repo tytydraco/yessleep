@@ -1,3 +1,11 @@
+**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | Part 3 - Coming Soon | Part 4 - Coming Soon  
+
+
+  
+
+
+&#x200B;
+
 I had just bought a cabin right off the shoreline of Crystal Lake... Well, what *used* to be Crystal Lake. Now it was just a river and the muddy remains of what used to be a lake. The dam that kept the reservoir filled was decommissioned about six months ago. Now that the lake was gone, the cabin I bought hit rock bottom prices and it would have been idiotic for me not to buy it. All I wanted was a nice hunting cabin, somewhere to stay for a month or two each year. I didn’t care about the lake being drained and the river was still flowing so there’s plenty of fish to be caught.
 
 After signing, I drove up to the cabin to start the renovations. It hadn’t been used for decades and it needed some repairs. Luckily, the foundation was sturdy and the damage was only cosmetic.
@@ -8,39 +16,33 @@ A few weeks passed before I noticed the boarded up door on the far end of the ho
 
 I got to work and an hour later the boards were removed. The room was blanketed in a thick layer of dust. There were no windows but there was another door on the outer wall. I didn’t notice a door from the outside but after examining it, I found that the door was completely covered by bushes on the other side. I wish I could say there was some kind of treasure but there were only gardening tools, shovels, and some old books. One book in particular caught my eye.
 
-It was an old journal written by a woman who lived here in 1922. I wasn’t much into snooping but it’s hard to resist reading someone’s one-hundred year-old journal. She was a thirty year-old woman who had moved to the cabin with her husband. Her name was Isla. Her husband was a dam operator and was sent out here to replace the previous operator after they went missing.  
-
-
-&#x200B;
-
-\*\*\*  
-
+It was an old journal written by a woman who lived here in 1922. I wasn’t much into snooping but it’s hard to resist reading someone’s one-hundred year-old journal. She was a thirty year-old woman who had moved to the cabin with her husband. Her name was Isla. Her husband was a dam operator and was sent out here to replace the previous operator after they went missing.
 
 &#x200B;
 
-July 17th, 1922
-
-I am not too enthusiastic about moving out here but Edgar went on and on about how great it would be to get away from the city and do something meaningful. The dam is only a few years old and the reservoir is filling up faster than expected. The reservoir is going to supply water to the nearby farms during the dry season so it is important that this dam is maintained well. It is an important job for an important man, my husband. Even as reluctant as I was to move, there was no way I could say no to him as excited as he was and I could finally start the garden I have always wanted.  
-
+\*\*\*
 
 &#x200B;
 
-July 22nd, 1922
+**July 17th, 1922**
 
-It’s been a few days now and we’re settling in. Edgar has been working hard at the dam the last few days so I’ve been tending to our cabin. Whenever I have time, I work in the garden. The weather is great and with any luck, we will have plenty of vegetables to eat in a few weeks. Edgar went into town yesterday and bought me new tools with the stipend his company gave him. He even brought back a necklace made by a local jewelsmith in a nearby town. It has the most beautiful amethyst surrounded by small obsidian shards and swirling silver rings.  
-
-
-&#x200B;
-
-August 1st, 1922
-
-Oh, I have really messed up. I lost it in the garden. I have been digging holes everywhere to try and find it but I just can not find it. Edgar is going to be disappointed with me when he finds out it is lost.  
-
+I am not too enthusiastic about moving out here but Edgar went on and on about how great it would be to get away from the city and do something meaningful. The dam is only a few years old and the reservoir is filling up faster than expected. The reservoir is going to supply water to the nearby farms during the dry season so it is important that this dam is maintained well. It is an important job for an important man, my husband. Even as reluctant as I was to move, there was no way I could say no to him as excited as he was and I could finally start the garden I have always wanted.
 
 &#x200B;
 
-\*\*\*  
+**July 22nd, 1922**
 
+It’s been a few days now and we’re settling in. Edgar has been working hard at the dam the last few days so I’ve been tending to our cabin. Whenever I have time, I work in the garden. The weather is great and with any luck, we will have plenty of vegetables to eat in a few weeks. Edgar went into town yesterday and bought me new tools with the stipend his company gave him. He even brought back a necklace made by a local jewelsmith in a nearby town. It has the most beautiful amethyst surrounded by small obsidian shards and swirling silver rings.
+
+&#x200B;
+
+**August 1st, 1922**
+
+Oh, I have really messed up. I lost it in the garden. I have been digging holes everywhere to try and find it but I just can not find it. Edgar is going to be disappointed with me when he finds out it is lost.
+
+&#x200B;
+
+\*\*\*
 
 &#x200B;
 
@@ -62,46 +64,39 @@ I was done repairing the roof, walls, windows, and anything else that would let 
 
 Digging the trenches for the sewage piping was taking much longer than I expected. The issue wasn’t how hard it was to dig, it was how much of a bore it was to dig for hours. As soon as I remembered Isla losing whatever “it” was in the garden, I was already digging. Before I realized how long I was at it, the sun was already setting. I could feel the pit in my stomach tighten as I became conscious of my hunger.
 
-As I sat down for dinner, I picked up Isla’s journal and began to read.  
-
-
-&#x200B;
-
-\*\*\*  
-
+As I sat down for dinner, I picked up Isla’s journal and began to read.
 
 &#x200B;
 
-August 23th, 1922
-
-Edgar has been worried about me lately. I stopped swimming in the lake recently and he won’t listen to me when I say I’m fine. I just don’t have the time to swim anymore. There’s so much to do around here. I have to tend to the garden. It’s not easy to grow your own food. I wish Edgar could understand.  
-
+\*\*\*
 
 &#x200B;
 
-September 2nd, 1922
+**August 23th, 1922**
 
-Edgar has been insistent on trying to stop my gardening. He says I spend too much time on it, that we don’t need the extra food. He says that the holes are too deep, that it’s not even a proper garden. He just doesn’t understand. He still doesn’t know about it. It’s still buried somewhere. I need to find it.  
-
-
-&#x200B;
-
-September 13th, 1922
-
-Edgar had a doctor check me. He says that there is something wrong with me because I spend too much time doing what I love. I have expanded the garden now. It extends to the treeline. I am thinking about expanding it even more. I have always heard that the forest is a natural garden. It only makes sense. I could use the extra space too. There is not much room by the cabin now.  
-
+Edgar has been worried about me lately. I stopped swimming in the lake recently and he won’t listen to me when I say I’m fine. I just don’t have the time to swim anymore. There’s so much to do around here. I have to tend to the garden. It’s not easy to grow your own food. I wish Edgar could understand.
 
 &#x200B;
 
-September 30th, 1922
+**September 2nd, 1922**
 
-Edgar is mad. He fell and hurt his leg. It is not my fault he was not paying attention. He knows I like to garden, *he* should be more careful. I told him I started a new garden there.  
-
+Edgar has been insistent on trying to stop my gardening. He says I spend too much time on it, that we don’t need the extra food. He says that the holes are too deep, that it’s not even a proper garden. He just doesn’t understand. He still doesn’t know about it. It’s still buried somewhere. I need to find it.
 
 &#x200B;
 
-\*\*\*  
+**September 13th, 1922**
 
+Edgar had a doctor check me. He says that there is something wrong with me because I spend too much time doing what I love. I have expanded the garden now. It extends to the treeline. I am thinking about expanding it even more. I have always heard that the forest is a natural garden. It only makes sense. I could use the extra space too. There is not much room by the cabin now.
+
+&#x200B;
+
+**September 30th, 1922**
+
+Edgar is mad. He fell and hurt his leg. It is not my fault he was not paying attention. He knows I like to garden, *he* should be more careful. I told him I started a new garden there.
+
+&#x200B;
+
+\*\*\*
 
 &#x200B;
 
@@ -109,42 +104,37 @@ I had the dream again. I was digging for hours… Though, it’s not easy to tel
 
 The tunnel narrowed and I slowly became encased in the dirt around me. I was barely able to move my arms and legs enough to maneuver the increasingly damp dirt until the soil condensed and hardened around my body. I tried to scream as dirt and rock filled my lungs.
 
-I laid there, imprisoned in an ever hardening coffin of dirt, until a crack formed above me. Was I free? Did I reach the surface? I watched as a soft purple glow filtered through the dirt and the soil around me melted away as if the light shining through was cleansing me. I was free. 
+I laid there, imprisoned in an ever hardening coffin of dirt, until a crack formed above me. Was I free? Did I reach the surface? I watched as a soft purple glow filtered through the dirt and the soil around me melted away as if the light shining through was cleansing me. I was free.
 
 Suddenly, the world turned upside down and I was falling through the crack that was once above me. I crashed into the rock below me, expelling the dirt from my lungs. I was laying in a vast cavern lined in purple gems. I reached out to grab one.
 
 I awoke.
 
-I wanted to find out what she lost.  
-
-
-&#x200B;
-
-\*\*\*  
-
+I wanted to find out what she lost.
 
 &#x200B;
 
-October 5th, 1922
-
-Edgar is becoming angrier every day. He has not tried to understand. He told me he would sell my tools and destroy my garden if I did not stop. He just does not understand what was lost! I thought maybe he would understand if I told him about it but he only became angrier. This is why I had to hide it. No one will understand.  
-
+\*\*\*
 
 &#x200B;
 
-October 6th, 1922
+**October 5th, 1922**
+
+Edgar is becoming angrier every day. He has not tried to understand. He told me he would sell my tools and destroy my garden if I did not stop. He just does not understand what was lost! I thought maybe he would understand if I told him about it but he only became angrier. This is why I had to hide it. No one will understand.
+
+&#x200B;
+
+**October 6th, 1922**
 
 Poor Edgar. I told him that I would not stop gardening. I *have* to find it. He does not understand. I *have* to find it. I can not stop until I find it. Why will he not listen? Why will he not understand?
 
 He came home from the dam tonight. He was angrier than I have ever seen him. He tried to stop me. He took my shovel. My dear shovel! He tried to take me away from here but this is where I belong. I belong with my garden. It needs me.
 
-If only he did not try to stop me. We were so happy and now he is gone. He would not stop and so I had to stop him. I did not have any other choice… I have to find it. I have to find it. I have to find it. I *have* to find it.  
-
+If only he did not try to stop me. We were so happy and now he is gone. He would not stop and so I had to stop him. I did not have any other choice… I have to find it. I have to find it. I have to find it. I *have* to find it.
 
 &#x200B;
 
-\*\*\*  
-
+\*\*\*
 
 &#x200B;
 
@@ -171,3 +161,7 @@ That was the question I kept asking myself over and over as I sat above Edgar’
 My head was foggy and it was hard to concentrate. I stared at Edgar’s lifeless bones and remembered what Isla wrote the night she killed him. He had just come from the dam when he tried to force her to leave the cabin. There was something he learned that day that he didn’t know before that night.
 
 My answer was [at the decommissioned dam](https://williamroseberry.com/short-stories/crystal-lake-cabin).
+
+&#x200B;
+
+**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | Part 3 - Coming Soon | Part 4 - Coming Soon
