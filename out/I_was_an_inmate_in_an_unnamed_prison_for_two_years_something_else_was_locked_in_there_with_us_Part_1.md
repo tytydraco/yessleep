@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/vbnmwr/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Part 3](https://www.reddit.com/r/nosleep/comments/vdw3k7/i_was_an_inmate_in_an_unnamed_prison_for_two/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/vbnmwr/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Part 3](https://www.reddit.com/r/nosleep/comments/vdw3k7/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Final](https://www.reddit.com/r/nosleep/comments/vfj6n4/i_was_an_inmate_in_an_unnamed_prison_for_two/)
 
 Back in the day, I used to be a piece of shit. The biggest scumbag you could meet, wasting the best years of my life on petty crimes and drugs as part of a gang. While everyone else found decent work, married, and started families, I started fights in bars while blackout drunk. It was only a matter of time before I fucked up big time and faced serious charges, landing me twenty years to life behind bars.
 

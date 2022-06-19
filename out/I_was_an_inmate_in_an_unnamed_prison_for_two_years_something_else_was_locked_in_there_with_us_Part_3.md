@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/v9m5yw/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Part 2](https://www.reddit.com/r/nosleep/comments/vbnmwr/i_was_an_inmate_in_an_unnamed_prison_for_two/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/v9m5yw/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Part 2](https://www.reddit.com/r/nosleep/comments/vbnmwr/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Final](https://www.reddit.com/r/nosleep/comments/vfj6n4/i_was_an_inmate_in_an_unnamed_prison_for_two/)
 
 Come morning, Andre's body was nowhere in sight, predictably enough. He was dragged off to God knows where like everyone else. Mason and I did our best to get rid of any evidence, throwing Andre's severed ear to the ground floor through the bars of the cell. But we couldn't do anything about the blood, or about our injuries. Mine were masked by the jumpsuit, long stripes of skin turned purple as they bruised, but Mason's face was in shambles.
 

@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/v9m5yw/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Part 3](https://www.reddit.com/r/nosleep/comments/vdw3k7/i_was_an_inmate_in_an_unnamed_prison_for_two/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/v9m5yw/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Part 3](https://www.reddit.com/r/nosleep/comments/vdw3k7/i_was_an_inmate_in_an_unnamed_prison_for_two/) [Final](https://www.reddit.com/r/nosleep/comments/vfj6n4/i_was_an_inmate_in_an_unnamed_prison_for_two/)
 
 Andre was right, we had one hell of a job to do in the morning. A few of the guards waited for us on the ground floor, with supplies such as body bags and mops. I didn't catch any sleep, understandably enough, and I could see many faces in the crowd of inmates telling a similar story.
 
