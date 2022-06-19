@@ -1,8 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | Part 3 - Coming Soon | Part 4 - Coming Soon  
-
-
-  
-
+[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | Part 3 - Coming Soon | Part 4 - Coming Soon
 
 &#x200B;
 
@@ -12,13 +8,11 @@ After hiking a few hours I reached the operator’s hut. It definitely lived up 
 
 I stepped into the hut and with each step, the floorboards squealed in misery. There wasn’t much dust… likely because the wind is free to blow through. I searched the cabinets for anything that could help me. There were piles of logbooks, most of which were weathered and unreadable. The few that were in reasonable condition were useless, full of maintenance notes and random doodles of… the human anatomy. It was obvious a dam operator wasn’t the most exciting job.
 
-After twenty minutes of brushing aside cobwebs and wiping dust encrusted logbooks I found files from Edgar L. Armstrong. The writing was faded but still mostly legible.  
-
+After twenty minutes of brushing aside cobwebs and wiping dust encrusted logbooks I found files from Edgar L. Armstrong. The writing was faded but still mostly legible.
 
 &#x200B;
 
-\*\*\*  
-
+\*\*\*
 
 &#x200B;
 
@@ -52,13 +46,11 @@ Whatever he was digging for, it was beneath the cabin.
 
 I am not sure what he was afraid of and I am certainly not sure what *it* is these people were digging for. I do know that I am not going to stay here and find out. Tonight I am going to leave here and take Isla back to the city where we belong.
 
-If you are reading this, please take this as a warning and leave. You may not believe me, and I am not sure I believe it myself, but *something* is happening.  
-
+If you are reading this, please take this as a warning and leave. You may not believe me, and I am not sure I believe it myself, but *something* is happening.
 
 &#x200B;
 
-\*\*\*  
-
+\*\*\*
 
 &#x200B;
 
@@ -121,6 +113,14 @@ It was hours before I reached the surface again. It was already morning and the 
 I don’t know how long I was unconscious for but I could tell it wasn’t the same day. The air was dry now and there was no moisture in the ground anymore. I could still feel its presence in my mind, telling me to go to the hut but I had control for now. It wouldn’t be long before I was under its influence once again.
 
 [I knew what I had to do.](https://williamroseberry.com/short-stories/crystal-lake-cabin#part2)  
+
+
+  
+
+
+&#x200B;
+
+[The Compendium](https://www.reddit.com/user/Manaravak/comments/vfv9j4/the_compendium_heres_where_i_keep_a_list_of/)  
 
 
   

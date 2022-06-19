@@ -1,8 +1,4 @@
-**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | Part 3 - Coming Soon | Part 4 - Coming Soon  
-
-
-  
-
+**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | Part 3 - Coming Soon | Part 4 - Coming Soon
 
 &#x200B;
 
@@ -160,7 +156,19 @@ That was the question I kept asking myself over and over as I sat above Edgar’
 
 My head was foggy and it was hard to concentrate. I stared at Edgar’s lifeless bones and remembered what Isla wrote the night she killed him. He had just come from the dam when he tried to force her to leave the cabin. There was something he learned that day that he didn’t know before that night.
 
-My answer was [at the decommissioned dam](https://williamroseberry.com/short-stories/crystal-lake-cabin).
+My answer was [at the decommissioned dam](https://williamroseberry.com/short-stories/crystal-lake-cabin).  
+
+
+  
+
+
+&#x200B;
+
+[The Compendium](https://www.reddit.com/user/Manaravak/comments/vfv9j4/the_compendium_heres_where_i_keep_a_list_of/)  
+
+
+  
+
 
 &#x200B;
 

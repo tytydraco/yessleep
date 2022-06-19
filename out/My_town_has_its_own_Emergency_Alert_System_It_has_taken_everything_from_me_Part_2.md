@@ -48,7 +48,7 @@ After a moment of waiting for a call or response text, it became clear I wouldn�
 
 For a moment I considered calling our neighbor to keep an eye on her but that option had exhausted itself. The number of times that Ted and Helen had kept an eye on her had overwhelmed them over the years. Her temper when they would try to keep her in or near the house had worn them down. Abandoning the thought, I tossed my cellphone into the seat beside me.
 
-The trip took longer than I anticipated. When I finally arrived at the pharmacy in Glendale it had taken over twenty-five minutes. The old road between our two towns was down to a single lane for resurfacing. 
+The trip took longer than I anticipated. When I finally arrived at the pharmacy in Glendale it had taken over twenty-five minutes. The old road between our two towns was down to a single lane for resurfacing.
 
 It had taken the pharmacist an additional ten minutes to fill the script. Their computer system looked as though it was cutting edge during the latter half of the Clinton administration and the transfer had only arrived a few moments before I walked in the door. I paid as quickly as I could and headed out to the car to get back on the road.
 
@@ -74,7 +74,7 @@ I reached toward the radio and turned the volume nob up.
 
 The message began to play in a loop over and over. West Vine was only two streets away from our house on Sullivan Street. Sweat was pouring down my forehead and stinging my eyes.
 
-I punched the garage button from a block away and was thrilled to see it open when the front of our house came into view. Pulling the car into the garage I surveyed the scene but didn’t see anything out of the ordinary. The garage door began to close behind me and I jumped out of the car to head to the door. 
+I punched the garage button from a block away and was thrilled to see it open when the front of our house came into view. Pulling the car into the garage I surveyed the scene but didn’t see anything out of the ordinary. The garage door began to close behind me and I jumped out of the car to head to the door.
 
 The groceries and medication would have to wait until after the warning. Milk and eggs could be replaced. I could not afford to wait any longer to get the cellar door secured and check on mom.
 
@@ -104,7 +104,7 @@ Storming around the cellar apartment I began to call my mother's name but receiv
 
 My head began to swim. The garage door had been opened when I pulled into the driveway. Although I had punched the opener from a block away I had no idea if the signal reached that far away. She could have left through the garage and left the door open and I would never know.
 
-I raced to the stairs and began to pull the keys from their pegs on the wall. Hours seemed to pass as I fumbled the keys into each lock. Generally, I would put them carefully back into their place on their loops but I dropped them to the stairs and listened as they tumbled to the ground below. 
+I raced to the stairs and began to pull the keys from their pegs on the wall. Hours seemed to pass as I fumbled the keys into each lock. Generally, I would put them carefully back into their place on their loops but I dropped them to the stairs and listened as they tumbled to the ground below.
 
 As I was about to step onto the main floor of the house above I heard the alert system beep three times to indicate an update.
 
@@ -134,4 +134,6 @@ He wore the same pale blue jeans, short-sleeved button-up shirt, and white Nike 
 
 His eyes, though, were black. The sun was shining but there was no light reflecting off of them. It wasn’t as much like looking into the darkness of a basement as it was staring into the empty void of space. No light obscured the darkness they held.
 
- “I’ve missed you, my dear,” I heard my father say as he held his hand out to my mother. “It’s been so long but [we need not be apart any longer.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)”
+“I’ve missed you, my dear,” I heard my father say as he held his hand out to my mother. “It’s been so long but [we need not be apart any longer.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)”
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vfvlr1/my_town_has_its_own_emergency_alert_system_it_has/)
