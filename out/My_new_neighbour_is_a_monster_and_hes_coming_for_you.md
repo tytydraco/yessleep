@@ -193,5 +193,3 @@ Because every hour I sit near him, my hands have been wrinkling up.
 Like prunes.
 
 [SK](https://www.reddit.com/r/SimbaKingdom/)
-
-[X](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe%21%20%2Fr%2Fnosleep%20%2Fu%2FSimbaTheSavage8)

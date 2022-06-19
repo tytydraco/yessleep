@@ -85,3 +85,7 @@ We ran, Jeff's dying, agonized screams following after us until he fell silent.
 \*\*\*\*\*
 
 For a while after Jeff's death, everything was kind of a disordered blur. My memory of the immediate aftermath of our escape is hazy and jumbled from the terror and the shock of losing one of our number in such a brutal, horrific manner. I remember Dante stopping and turning to face the corpses, screaming and shouting incoherently and emptying his shotgun into the horde, racking the slide and pulling the trigger on an empty chamber, over and over, crying hysterically, until Aaron slapped him to bring him back to his senses.  I remember a Resident that was hardly more than a skeleton in the tattered remains of what looked to have once been the uniform of a Civil War Union soldier trying to ambush us from behind a parked car as we ran by it. Aaron simply clubbed it aside with his shotgun.  We ran for our lives, the mob of undead maniacs pursuing us all the while. Somehow, at some point, we lost them and managed to escape town and get back on the open road.
+
+PART EIGHT [https://www.reddit.com/r/nosleep/comments/vg6yrn/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vg6yrn/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
