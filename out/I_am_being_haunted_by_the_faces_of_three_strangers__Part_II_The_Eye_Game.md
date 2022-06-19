@@ -174,4 +174,4 @@ The third scream was unlike the two that preceded it. In no way did it sound hum
 
 The book has started to glow. I’ll try to write more soon.
 
-[Part III: The Ghost Hunter](https://www.reddit.com/r/nosleep/comments/vfa1ci/i_am_being_haunted_by_the_faces_of_three/)
+[Part III: The Ghost Hunter](https://www.reddit.com/r/nosleep/comments/vfyrr6/i_am_being_haunted_by_the_faces_of_three/)
