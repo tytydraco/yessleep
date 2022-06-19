@@ -44,7 +44,7 @@ Total of twelve: pistols, machine pistols, a submachine gun, and a shotgun. Ammo
 
 “You ain’t got to use their money. Wait here. Let me show you what I got.” 
 
-He left the room and disappeared around the corner, and soon after the little girl came peeking through the doorway at me. She was very young with greasy blonde hair and careworn blue eyes. Haggard in a way no child her age should ever be. I nodded at her and smiled and then she leaned further into the doorway and mouthed the words, “he’s not my dad.”
+He left the room and disappeared around the corner, and soon after the little girl came peeking through the doorway at me. She was very young with greasy blonde hair and careworn blue eyes. Haggard in a way no child her age should ever be. I nodded at her and smiled and then she leaned further into the doorway and mouthed the words, “He’s not my dad.”
 
 “The fuck you doing out of your room?” The man roared and stomped down the hall, startling the girl, who immediately retreated to her room and slammed the door shut. “I ain’t fuckin messin around,” he yelled while pounding on her door at the same time the barking and clawing of the pit bull outside had crescendoed into a hellish cacophony of rabidity.
 
