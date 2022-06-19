@@ -41,7 +41,7 @@ There was a quiet knock on my office door, and there was Claire looking scared. 
 
 "I don't like shots either sweety but it is for your own good, it stops the spread of the virus and will keep the Spacemen away," I said.
 
-That did the trick as Claire was terrified of the "Spacemen". She told me she has nightmares about them coming into our home in their bulky white haz-mat suits, respirators making them sound like Darth Vader, scary looking guns on their hips, and taking her mommy away. Her eyes got big and she went quiet. "OK," she said quietly. She left her half eaten burger on the plate and went to her room. Waste not want not I thought as I dumped more ketchup on it and finished the burger for her. Crunchy!
+That did the trick as Claire was terrified of the "Spacemen", the CDC workers in their haz-mat suits, often armed. She told me she has nightmares about them coming into our home in their bulky white haz-mat suits, respirators making them sound like Darth Vader, scary looking guns on their hips, and taking her mommy away. Her eyes got big and she went quiet. "OK," she said quietly. She left her half eaten burger on the plate and went to her room. Waste not want not I thought as I dumped more ketchup on it and finished the burger for her. Crunchy!
 It had been an hour or so and I called Paige again. This time the phone didn't ring, just a few clicks then the call dropped. I used the location app to find where her car was. It was only about 13 miles from our home, a quick drive north.
 
 I knocked on Claire's door and poked my head in. "Sweety, I'm going out to find your mother, will you be OK for a few minutes?"  
