@@ -72,7 +72,7 @@ Soft footsteps rapidly approached the bathroom and Jenna burst in, looking first
 
 I sat forward, grabbing my towel to cover myself. “Yeah,” I responded, groaning out a lie. “The floor was wet and I slipped.”
 
-There was no dream on the fourth night. I woke on my own and stretched under the covers, my feet searching for cool spots under the sheets. As I stretched, I felt aching in my back and tailbone, reminders of the episode in the bathroom the morning before. I turned my head and looked at the clock on my nightstand. 7:45. 
+There was no dream on the fourth night. I woke on my own and stretched under the covers, my feet searching for cool spots under the sheets. As I stretched, I felt aching in my back and tailbone, reminders of the episode in the bathroom the morning before. I turned my head and looked at the clock on my nightstand. 7:45.
 
 I had overslept.
 
@@ -339,3 +339,5 @@ He had relented with a rattling sigh. “Someone might have come in while I was 
 “No harm, no foul,” I said, although I didn’t actually agree. “But how did they know my locker combination?”
 
 Lou fixed me with a steely look. “Gym closed fifteen minutes ago,” he said.
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/vgn5mr/nancy_final/)
