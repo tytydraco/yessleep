@@ -1,0 +1,29 @@
+A few years back, I had this really creepy experience with an older co-worker of mine that still kind of shakes me to this day. It happened at this place that I'd been working at for a couple of years at that point. The place was a small factory of sorts, with only less than a handful of employees, including myself. 
+
+One day though, my boss introduced us to this new, older guy that he'd brought in to start working in the other, newer side of the factory. You see, the factory where he worked had two different sides to it. One side for beeswax and one side for wood production. My boss had brought him in because they went to church together and the wood production on the other side had a religious significance. 
+
+The new, older coworker worked there with us for about one month before he approached me one day and introduced himself to me. He seemed like a nice guy and even came back to give me a Hershey Kiss not long after that. 
+
+A couple months later, I got asked by our boss if I could go pick up my new older coworker, probably because his car was broken down or something. I agreed to it, so my boss asked me if it was okay to give the co-worker my phone number so that we could coordinate via text. I said it was fine and went on my way. I brought him back to the factory with no problems. 
+
+Soon after that though, I started to get random and sporadic texts from him late at night. At first, the texts were just about us maybe hanging out soon, while simultaneously apologizing to me because he knew he was much older than I. But then the texts started to get pretty pervy and they would be as long as a mini book! The texts were just long, misspelled random, pervy compilations.
+
+I tried to just ignore the texts, but that only made them start coming more frequently! In the midst of all this one day, my roommates were scrounging for a ride to a casino only a few miles from our house. I gave them a few dollars for a ride and they said that they'd find their own ride back. 
+
+So imagine my surprise, when they returned only a couple hours later with their own ride all right. Their ride was my creepy co-worker! Not only was I creeped the hell out that this pervy jerk now knew where I lived, but I also didn't know how he came to give my roommates that ride! Was it just sheer coincidence or something more? 
+
+A few days after that, I went to visit a friend at his apartment that was located on our main street running through our small, historic downtown area. When I came downstairs from his apartment, as he was located on the second floor, I made my usual turn, walking on the sidewalk in front of all the main street shops. As I walked past one of the shops that was maybe two doors down for my friend's apartment, I thought I saw something out of the corner of my eye, but it couldn't be could it? To my great dismay it was him, my creepy ass older co-worker standing in the doorway of one of the shops and smiling creepily at me from under a black top hat!
+
+A couple of weeks after that little incident, I noticed him again as I left my friend's apartment. He was just standing on the sidewalk with that same creepy grin plastered on his gaunt face! Since I had already informed my friend after the last incident, I simply texted him real quick to let him know the creep was back! I got into my car and left after sending the text, so I didn't find out until later that the creepy coworker was gone by the time my friend got downstairs to the sidewalk. 
+
+At that point though, the texts were still coming even faster than before. He was even threatening to come by my house if I didn't respond! Long, provocative texts dictating what he'd like to have happen between us if he did just happen to show up at my house. When I would see him during the day at work though, he would act as though everything were normal, giving no hint of his nighttime persona. 
+
+After seeing him yet again as I left my friend's apartment, I just so happened to overhear a couple co-workers of mine standing around discussing how weird our new, older coworker was. Right then, I stepped in and joined the convo, finally showing one of my other co-workers the text messages that the creep had been sending me. I had been working with that particular co-worker for a few years, but I didn't know him too well. He was one of those people who came off kind of grumpy and distant. Still, I told him and my other co-worker not to say anything. They both nodded in agreement and we went our separate ways to finish up for the day. 
+
+When I came into work the next day though, my boss immediately called me into his office. My boss told me that he'd been informed of the situation and the texts and he wanted to see my phone to read them. I told my boss that I didn't really want to get anyone in trouble, but he said that was besides the point and that my situation needed to be addressed. My boss also stated that my older co-worker had no right or reason to be texting me and talking to me the way he was talking to me. 
+
+The boss must have had a pretty good talk with him because all the crap stopped from the older co-worker after that. The other grumpy coworker of mine apologized to me for saying something to the boss, but I completely understood and I was actually pretty grateful to him for that. I should have been the one to take the initiative to talk to the boss about it, but I was just too chicken. 
+
+Fortunately though, that situation seemed to work out for all involved, because life went on as usual and everyone involved acted as though nothing had ever happened. Well, I can't really say that because that situation actually caused the grumpy co-worker and I to talk more and we started dating! We were together for about three years and then we got married! 
+
+So creepy old co-worker, let's not ever meet again, or I think my husband will certainly have something to say about it!
