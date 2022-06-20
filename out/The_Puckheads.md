@@ -1,6 +1,6 @@
 I don't know why I'm bothering to post this story here, but a memory I have from when I was a kid has been eating at me for weeks.
 
-I won't waste too much of your time with details of my current life, but I guess a few things shouldn't hurt.
+I won't waste too much of your time with details of my current life, but I guess a few things wouldn't hurt.
 
 I live in the Midwestern United states, nowhere special. My job is normal, and my life is boring, but my dreams are... odd to say the least.
 

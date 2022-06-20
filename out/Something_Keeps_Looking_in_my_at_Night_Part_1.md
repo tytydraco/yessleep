@@ -1,16 +1,16 @@
 It started a week ago.
 
-I’m not sure what it was that alerted me to its presence. Maybe it was the slight buzz I felt through my entire body when it came into contact with my wards or it was the feeling of someone staring a hole in my fucking head. One moment I was watching TV and the next I was staring at my living room window. Watching a pair of fucking eyes peek over the bottom of the window frame. It was almost like it hoped I couldn’t see it. If the eyes weren’t so fucking massive I might have suspected it was a neighbor. 
+I’m not sure what it was that alerted me to its presence. Maybe it was the slight buzz I felt through my entire body when it came into contact with my wards or it was the feeling of someone staring a hole in my fucking head. One moment I was watching TV and the next I was staring at my living room window. Watching a pair of fucking eyes peek over the bottom of the window frame. It was almost like it hoped I couldn’t see it. If the eyes weren’t so fucking massive I might have suspected it was a neighbor.
 
 Even though the bottom of the window was only a few feet off the ground there was still enough room for someone to hide down there. It would have been super shitty if it had been. What woman wants a neighbor to creep on them like that?
 
-I sat frozen on my couch, completely unsure of what was going on. What the hell kind of animal has eyes that fucking big? When it disappeared below the window I finally moved. I shot off the couch and locked the front door before bolting across the house to lock the back door. I finally returned to the front door and flipped the porch light on to look outside. As soon as I backed up to look out the window I saw the thing stand up. 
+I sat frozen on my couch, completely unsure of what was going on. What the hell kind of animal has eyes that fucking big? When it disappeared below the window I finally moved. I shot off the couch and locked the front door before bolting across the house to lock the back door. I finally returned to the front door and flipped the porch light on to look outside. As soon as I backed up to look out the window I saw the thing stand up.
 
-It was tall and thin. Its head was taken up by teacup-sized eyes and a wide mouth that didn’t fully close. I got a look at its sharp, broken, fucking nasty teeth as drool dripped from its mouth. It was taller than the edge of the roof and I was willing to bet it was tall enough to nearly see over the top of my one-story house. The porch light washed out the colors of its skin but it appeared to be a mottled mess of green, gray, and brown. Something that could blend into the deepest woods of Alabama. It walked away and entered the treeline roughly sixty feet from my house and disappeared. 
+It was tall and thin. Its head was taken up by teacup-sized eyes and a wide mouth that didn’t fully close. I got a look at its sharp, broken, fucking nasty teeth as drool dripped from its mouth. It was taller than the edge of the roof and I was willing to bet it was tall enough to nearly see over the top of my one-story house. The porch light washed out the colors of its skin but it appeared to be a mottled mess of green, gray, and brown. Something that could blend into the deepest woods of Alabama. It walked away and entered the treeline roughly sixty feet from my house and disappeared.
 
 I closed the blinds and pulled the curtains shut before returning my couch in shock. At some point I’d finally wandered off to bed, closing every blind and curtain along the way.
 
-My neighbors had talked about strange things in the woods since I was a kid. I’d even seen a few strange things over the years. Just flashes of things between the trees. Hell, I’d put iron in the ground at the corners and entrances to my house to keep iron-hating creatures out, but it was really just a precaution. A superstition steeped in witchcraft and my own religion. No one ever saw the creatures rumored to live in the woods in person anymore. Hadn’t in more than fifty years. They were just cautionary tales at this point. 
+My neighbors had talked about strange things in the woods since I was a kid. I’d even seen a few strange things over the years. Just flashes of things between the trees. Hell, I’d put iron in the ground at the corners and entrances to my house to keep iron-hating creatures out, but it was really just a precaution. A superstition steeped in witchcraft and my own religion. No one ever saw the creatures rumored to live in the woods in person anymore. Hadn’t in more than fifty years. They were just cautionary tales at this point.
 
 Apparently fucking not if I wasn’t dreaming or hallucinating that thing.
 
@@ -50,7 +50,7 @@ After that, it was a completely uneventful day. I rechecked the front door more 
 
 Once all my animals were settled for the night I went inside for dinner and some wind-down time in front of the TV. I locked the doors, just in case.
 
-At some point, I fell asleep to the drone of the TV. I woke up to a light tapping on my living room window. I peeked over the arm of the couch only to see those giant fucking eyes again. I got up and closed the blinds before sitting back down. It continued to tap on my window while I had a panic attack. 
+At some point, I fell asleep to the drone of the TV. I woke up to a light tapping on my living room window. I peeked over the arm of the couch only to see those giant fucking eyes again. I got up and closed the blinds before sitting back down. It continued to tap on my window while I had a panic attack.
 
 Y’all, I called the fucking cops. Shortly before the county sheriff’s truck pulled into my driveway the tapping stopped. The fucker knocked on my door and damn near made me jump out of my skin. I cracked the door open slightly and was greeted by the smiling face of Officer Cooper. The dumbest son of a bitch known to man.
 
@@ -68,10 +68,10 @@ Cooper just shrugged again. If you dropped a Golden Retriever on its head a few 
 
 “If they come back I’m just going to call again,” I said, crossing my arms. “I am not putting up with some rando bothering me in the middle of no-fucking-where.”
 
-Cooper agreed that it was a good idea and left it at that. He got back in his truck and left. I was left frustrated as hell. I know it was there. I know I didn’t imagine it. It didn’t matter, though. He didn’t believe me. 
+Cooper agreed that it was a good idea and left it at that. He got back in his truck and left. I was left frustrated as hell. I know it was there. I know I didn’t imagine it. It didn’t matter, though. He didn’t believe me.
 
-It didn’t come back that night. No, it waited until the next night to start tapping again. It’s done it every night since. Every night I call the cops again. They keep sending Copper and he never sees anything. I’m fed up at this point. I have fucking had it. 
+It didn’t come back that night. No, it waited until the next night to start tapping again. It’s done it every night since. Every night I call the cops again. They keep sending Copper and he never sees anything. I’m fed up at this point. I have fucking had it.
 
-I’ve searched online for anything like it but I haven’t found anything aside from some stuff that was happening in India. I’m pretty sure it’s not the same creature hanging around my house in the backwoods of Alabama. 
+I’ve searched online for anything like it but I haven’t found anything aside from some stuff that was happening in India. I’m pretty sure it’s not the same creature hanging around my house in the backwoods of Alabama.
 
-As soon as it gets dark, I know it’ll start tapping again.
+[As soon as it gets dark, I know it’ll start tapping again.](https://www.reddit.com/r/nosleep/comments/vgbj4z/something_keeps_looking_in_my_window_at_night/)
