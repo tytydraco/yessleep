@@ -1,12 +1,12 @@
-The firefighting squad I am a part of began our ninety six hour break. We did one of two things after a five day tour. The responsible ones went home to be their families. The rest of us made way to a bar called Aisling’s, the hangout spot for my department. I chose to do the latter. We all deserved to decompress. I did not feel guilty about it. I knew the rest of my free time would focus on my wife, Grace, and child, Anna. Grace made plans of us going to the aquarium before May was over. We went there every other month, and while I found the trip boring, they always seemed to find it fun.  
+The firefighting squad I am a part of began our ninety six hour break. We did one of two things after a five day tour. The responsible ones went home to be with their families. The rest of us made our way to a bar called Aisling’s, the hangout spot for my department. We all deserved to decompress. I did not feel guilty about it. I knew the rest of my free time would focus on my wife, Grace, and child, Anna. Grace made plans of us going to the aquarium before May was over. We went there every other month, and while I found the trip boring, they always seemed to find it fun.  
 
-Although some of the guys did get drunk within a half hour of us being there, most were too tired to party till dawn. Instead we played darts, watched a fight on ESPN, ate some greasy food, and enjoyed pints of Guinness. I was ready to crawl into bed and go to sleep after three ales. I ordered an Uber and stepped out to wait for it. I peered up the road to look for my ride home. A woman in a sleek beige jacket walked by, and she was nineteen or twenty years of age. She had ear buds in, kept her head down and seemed to mind her own business. 
+Although some of the guys did get drunk within a half hour of us being at Aisling’s, most were too tired to party till dawn. Instead we played darts, watched a fight on ESPN, ate some greasy food, and enjoyed pints of Guinness. I was ready to crawl into bed and go to sleep after three ales. I ordered an Uber and stepped out to wait for it. I peered up the road to look for my ride home. A woman in a sleek beige jacket walked by, and she was nineteen or twenty years of age. She had ear buds in, kept her head down and seemed to mind her own business. 
 
 A silver Camry skidded around the corner and onto the sidewalk. It headed for us. 
 
 I pushed her into the doorway of the pub. We fell together into the front hallway as the car missed us by millimeters. 
 
-The Camry crashed into a parked vehicle outside. The next door coffee shop’s windows shattered. Yells and frantic voices speaking into their cell phones littered the street. 
+The Camry crashed into a parked vehicle outside. The next door coffee shop’s windows shattered. Yells and frantic voices speaking into their cell phones bombarded the street. 
 
 I stood and brushed the tops of my pant legs. I helped the young lady stand. 
 
@@ -14,7 +14,7 @@ The rest of the crew swarmed outside to see if there were any victims of the acc
 
 It turned out the only person injured was the driver. The airbag rendered him unconscious upon impact and left his nose broken. He was about to get charged with his third DUI in under two years once the police arrived. 
 
-As the sirens blared out on the boulevard, I turned to the lady and asked her if she was alright.
+As the sirens blared out onto the boulevard, I turned to the lady and asked her if she was alright.
 
 “I’m fine,” she said before her eyes locked onto mine. “I owe you everything. What you’ve done needs my devotion.”
 
@@ -34,7 +34,7 @@ Vivian refused to fill out a voluntary form.
 
 The lead investigator saw how I was still a little tipsy. He stated my having drank would render my recounting inadmissible in court. It did not matter. A nearby gas station’s camera on the street corner captured everything.
 
-The effect of the alcohol wore off the longer I talked with the responders. My Uber ditched me after the driver saw reams of caution tape and emergency uniforms. 
+The effect of the alcohol wore off the longer I talked with the first responders. My Uber ditched me after the driver saw reams of caution tape and emergency uniforms. 
 
 I chose to drive home after a stretch of time. 
 
@@ -46,7 +46,7 @@ I gave a nod of awkward tacit approval. I was not sure how to take her complimen
 
 \---
 
-I was back at the job. I forgot about the young woman. Even an incident like that gets shoved into the back of your mind. The inevitable desensitization one experiences in the field makes it so. What is chaotic to the average person becomes normal to individuals in my industry. We all left it as an unspoken memory. In fact, we encouraged each other *not* to discuss it. Many of us had boozing habits, and we did not want the brass to find out how we celebrated our Fridays.  
+I was back at the job. I forgot about the young woman. Even an incident like that gets shoved into the back of your mind. The inevitable desensitization one experiences in the field makes it so. What is chaotic to the average person becomes normal to individuals in my industry. We all left it as an unspoken memory. In fact, we encouraged each other *not* to discuss it. Many of us had boozing habits, and we did not want the top brass to find out how we celebrated our Fridays.  
 
 The truck needed cleaning. I used a squeegee on the windshield as one of my co-workers mopped the floor. It was nine AM and our garage door was open. The highway next to us bathed in sunlight. 
 
@@ -72,7 +72,7 @@ Vivian handed them to me as I gazed at her with disbelief. She smiled.
 
 I turned around and shushed him before I refocused my attention on her.
 
-“I’m grateful you weren’t hurt that night,” I said. “Plus, thank you for paying your taxes and making my job possible. We can’t go out with each other though.” 
+“I’m grateful you weren’t hurt that night,” I said. “Plus, thank you for paying your taxes and making my job possible. We can’t see each other though.” 
 
 Her expression changed. She stuck out her bottom lip and tilted her head to the side. She turned her back to me for a few seconds. She faced my direction again as her entire demeanor shifted into a sulking one.
 
@@ -104,7 +104,7 @@ My sixteen month year old child, Anna, was asleep upstairs. Grace left for the m
 
 “That’s a real thing?” I asked.
 
-“Bet your money it is. Fuse that with a side of crazy and a propensity towards violence, and you get someone like her. She was  charged with attempted arson on the first guy’s apartment. She went into his place with a gasoline canister as he was sleeping. A public defender made a successful argument in her defense so it never stuck. It helped her that the judge was on the brink of retirement and senile. Anyways, if you get a restraining order they’ll issue a third strike against her. She’ll be off the streets for a while so you and yours won’t have to worry.”
+“Bet your money it is. Fuse that with a side of crazy and a propensity towards violence, and you get someone like her. She was charged with attempted arson on the first guy’s apartment. She went into his place with a gasoline canister as he was sleeping. A public defender made a successful argument in her defense so it never stuck. It helped her that the judge was on the brink of retirement and senile. Anyways, if you get a restraining order they’ll issue a third strike against her. She’ll be off the streets for a while so you and yours won’t have to worry.”
 
 “Thanks for the help,” I said.
 
@@ -112,7 +112,9 @@ My sixteen month year old child, Anna, was asleep upstairs. Grace left for the m
 
 \---
 
-Grace, Anna and I were at the aquarium. We walked through the lobby and made our way to the main hall with changing ecosystems. We passed an artificial estuary filled with stingrays. Makeshift habitats with invertebrates, amphibians and reptiles were everywhere. Anna, cradled in my arms, seemed to love the river otters the most. She giggled at them as we strolled by. We marveled at a variety of sunfish. 
+Grace, Anna and I were at the aquarium. We walked through the lobby and made our way to the main hall with changing ecosystems. We passed an artificial estuary filled with stingrays. Makeshift habitats with invertebrates, amphibians and reptiles were everywhere. 
+
+Anna, cradled in my arms, seemed to love the river otters the most. She giggled at them as we strolled by. We marveled at a variety of sunfish. 
 
 For a few minutes, my mind was off getting the paperwork ready for the restraining order. I had not even explained the situation to my wife yet. 
 
@@ -138,7 +140,7 @@ I felt a hot breath on the back of my neck.
 
 I turned around and saw Vivian. She wore rubbery looking overalls. A blue undershirt with the aquarium’s business logo was visible. A name badge attached to a lanyard was around her neck. When I squinted at it I saw it was credentials with someone else’s name on it. She had somehow stolen it from another employee and used it to get by security. Master keys dangled from her belt. 
 
-“You shouldn’t be near me,” I said as I felt a lump form in the back of my throat. The words came out louder than I had realized, because a few people stopped and stared. 
+“You shouldn’t be near me,” I said as I felt a lump form in the back of my throat. The words came out louder than I had realized. A few people stopped and stared. 
 
 “Who did you steal from to impersonate a worker here? Get away from me and my kid right now you psycho-” 
 
