@@ -4,11 +4,11 @@ I was six. Maybe seven? I used to have this teddy…my favourite teddy. Billy Be
 
 "Hello friend! I love you!" It would chime.
 
-It was sweet. Until it wasn't. I don't know what it was, maybe one day something just snapped in my head. Call it puberty. Call it my parents' messy divorce. But essentially I just couldn't do affection anymore. Whenever someone said "I love you", or I sensed they were getting too chummy, I'd push them away. Shoot them before they had a chance to shoot me. Sort of a quirky self destructive defence mechanism ya know?
+It was sweet. Until it wasn't. I don't know what it was, maybe one day something just snapped in my head. Call it puberty. Call it my parents' messy divorce. But essentially I just couldn't do affection anymore. Whenever someone said "I love you", or I sensed they were getting too chummy, I'd push them away. Shoot them down before they had a chance to shoot me. Sort of a quirky self destructive defence mechanism ya know?
 
-Billy was the first of MANY relationships to fall victim to my flawed mindset. Being a present from my parents when they were still together, Billy became a representation of the lie that is "a healthy relationship".
+Billy was the first of MANY relationships to fall victim to my flawed mindset. Being a present from my parents when they were still together, Billy became a representation of the lie that is "a healthy relationship". I started to loathe having him around.
 
-I remember purposefully dropping that teddy on a walk home from school one afternoon. I left him there on the pavement and didn't turn back.
+I don't really remember how I lost that Teddy. One morning I woke up and Billy was just gone. I suspected one of my parents could have thrown him out but I never asked. It's not like I was going to miss the constant reminder that all relationships are doomed.
 
 Fast forward fifteen years and this toxic trait started to get the best of me during the recent lockdowns. I took the isolation thing a tiny bit too seriously and started cutting myself off from friends and family. That is, the few I have left. Basically, I was living in solitary confinement within my own home. A sad hermit in his cave.
 
