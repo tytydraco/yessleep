@@ -1,12 +1,12 @@
 Ever lost a friend? I do it all the time. You see, I've never been very good at maintaining relationships. 
 
-I was six. Maybe seven? I used to have this teddy…my favourite teddy. Billy Bear I called him. Billy was the cat's pajamas because he'd speak to you when you'd hug him tight. Not in a "messed-up-cursed-doll with a demon trapped inside it" kinda way. No, instead it had one of those little voice boxes that made a noise when you pressed it.
+I was six. Maybe seven? I used to have this teddy…my favourite teddy. Billy Bear I called him. Billy was awesome because he'd speak to you when you hugged him tight. One of those little voice boxes that would chime when you squeezed it.
 
-"Hello friend! I love you!"
+"Hello friend! I love you!" It would chime.
 
-It was sweet. Until it wasn't. I don't know what it was, maybe one day something just snapped in my head. Call it puberty. Call it my parents' messy divorce. But essentially I just couldn't do affection anymore. Whenever someone said those three words, or I sensed they were getting too chummy with me, I'd push them away. Shoot them before they had a chance to shoot me. Sort of a quirky self destructive defence mechanism ya know?
+It was sweet. Until it wasn't. I don't know what it was, maybe one day something just snapped in my head. Call it puberty. Call it my parents' messy divorce. But essentially I just couldn't do affection anymore. Whenever someone said "I love you", or I sensed they were getting too chummy, I'd push them away. Shoot them before they had a chance to shoot me. Sort of a quirky self destructive defence mechanism ya know?
 
-Billy was the first of MANY relationships to fall victim to this flawed mindset. Being a present from my parents when they were still together, Billy became a representation of the lie that is "a healthy relationship".
+Billy was the first of MANY relationships to fall victim to my flawed mindset. Being a present from my parents when they were still together, Billy became a representation of the lie that is "a healthy relationship".
 
 I remember purposefully dropping that teddy on a walk home from school one afternoon. I left him there and didn't turn back.
 
@@ -106,13 +106,13 @@ Billy's brow furrowed as he recalled who I was. Clearly not a fond memory. 
 
 His lip curled, re-exposing his canines. The predator resumed its attack.
 
-I seized the few seconds I had left. This all had to end today. I grabbed the rib bone and thrust it into Billy's chest. He reeled backwards in pain as white cloudy stuffing spilled out of the gash. I crawled out from beneath his body and sprinted towards the picnic basket gateway. As I looked back I saw the plastic voice box fall out of Billy's chest. It dropped in the dirt before being crushed by his paw. The chase had begun.
+I seized the few seconds I had left. I grabbed the rib bone and thrust it into Billy's chest. He reeled backwards in pain as white cloudy stuffing spilled out of the gash. I crawled out from beneath his body and sprinted towards the picnic basket gateway. As I looked back I saw the plastic voice box fall out of Billy's chest. It dropped in the dirt before being crushed by his paw. The chase had begun.
 
 I flipped open the basket lid and dived back into the checkered tunnel. It was the last place I ever wanted to return to but it was my only passage home. I shuffled my hands and knees along the fabric, using my cigarette lighter to guide the way. I could now take in the circular shape of the tunnel. It appeared like an artery connecting the two worlds. 
 
 A monstrous roar rang out behind me. I tried to move faster as I knew Billy would outpace me in here. The ripping of cloth grew closer as his claws tore across the walls.
 
-Ahead I could see the light from my world spilling through the other basket's lid. I could feel the gravity of Earth pushing me down again. Home was so close. 
+Ahead I could see the light from the exit spilling through the other basket's lid. I could feel the gravity of Earth pushing me down again. Home was so close. 
 
 I prayed to the God of Adrenaline…if there was such a thing. 
 
