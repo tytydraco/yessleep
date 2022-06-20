@@ -104,7 +104,7 @@ My breath fluttered as I considered what this all meant. Had my childhood action
 
 Billy's brow furrowed as he recalled who I was. Clearly not a fond memory. 
 
-His lip curled, re-exposing his canines. The predator resumed its attack.
+His lip curled, re-exposing sharp canines. The predator resumed its attack.
 
 I seized the few seconds I had left. I grabbed the rib bone and thrust it into Billy's chest. He reeled backwards in pain as white cloudy stuffing spilled out of the gash. I crawled out from beneath his body and sprinted towards the picnic basket gateway. As I looked back I saw the plastic voice box fall out of Billy's chest. It dropped in the dirt before being crushed by his paw. The chase had begun.
 

@@ -8,7 +8,7 @@ She looked startled when I spoke to her, she clearly hadn’t expected me to sto
 
 She hesitated a moment, eyeing me with vague suspicion. I felt suddenly self conscious. I was dressed in shabby clothing, my hair was a little too long and messy. I was in my grunge emo stage, I thought I was cool with my ripped jeans and lip piercing. Maybe she thought I was trying to mug her, or maybe she was judging me to be the dead beat that I was at the time. I couldn’t tell which. But she smiled and replied, “Thank you, that’s very kind.” before stepping back to allow me access to the suitcase.
 
-It was heavier than I had guessed it would be. For a moment I wondered if it was filled with bricks or something, and how she had even gotten it this far without help? “What have you got in here? A tone of bricks?” I asked jokingly as I dragged it across the street.
+It was heavier than I had guessed it would be. For a moment I wondered if it was filled with bricks or something, and how she had even gotten it this far without help? “What have you got in here? A ton of bricks?” I asked jokingly as I dragged it across the street.
 
 “Oh no, it is soil and fertiliser.” She laughed.
 
@@ -26,7 +26,7 @@ Uncertain I looked over toward the park. I was new to the area and had seen the 
 
 After that she took the handle of the suitcase and began to walk into the park, I watched her go then put my head phones back in and made my way home. I couldn’t help but think about what a strange lady she seemed to be and about how dead-ish-alive those trees looked.
 
-That night I had discomforting dreams about the park. I dreamt that there was a young Japanese girl with long black hair standing there, no older than 17 I was sure. She was wearing a dull coloured kimono and in her hands she held a pile of dirt with a seedling in it. She extended her arms offering me the plant. I couldn’t exactly verbalise the word ‘no’ but I \*felt\* like I refused the offer, whatever kind of offer a plant is anyway.
+That night I had discomforting dreams about the park. I dreamt that there was a young Japanese girl with long black hair standing there, no older than 17 I was sure. She was wearing a dull coloured kimono and in her hands she held a pile of dirt with a seedling in it. She extended her arms offering me the plant. I couldn’t exactly verbalise the word ‘no’ but I *felt* like I refused the offer, whatever kind of offer a plant is anyway.
 
 In response the girl said something to me, or at least her lips moved as if she was speaking, though no sound came out, instead her face began to melt away. I woke up in a cold sweat and nearly shat myself when the tree branches outside knocked against my window. I had left it open earlier, I supposed, and got up to shut it. When I glanced out to the street I thought I saw the old lady from before walking away down the road. It was only the briefest glimpse, and I’m not sure that I wasn’t still half asleep at the time.
 
@@ -50,11 +50,11 @@ On Saturday I left the house just to clear my head. I was planning on seeing if 
 
 “..Alright..” I said awkwardly, truthfully I didn’t know how to say ‘no’ in any way she would accept so I followed her. We walked only a few streets over back to her house. It was little and old, made of brick with a vibrant flower garden out the front. Inside the house there was minimal furniture, few decorations, it had narrow hallways and a low ceiling. I felt mildly claustrophobic being in there. It didn’t help that despite a generally clean appearance with no clutter, almost everything was covered in a fine layer of dust, like she hadn’t cleaned in some time.
 
-“You can begin by cleaning the kitchen.” She announced with a sly smile, and so that was what I did. I dusted off the bench and cupboards, washed and put away the few dishes then mopped the floor. It honestly didn’t take long. I was really just getting the grime off everything. While I worked Mrs Merawich asked me idol questions.
+“You can begin by cleaning the kitchen.” She announced with a sly smile, and so that was what I did. I dusted off the bench and cupboards, washed and put away the few dishes then mopped the floor. It honestly didn’t take long. I was really just getting the grime off everything. While I worked Mrs Merawich asked me idle questions.
 
 Things like: Did I like school? What were my grades like? When did I graduate? What did I have planned for after school? I answered most of them in the most generic ways possible. No I didn’t really like school, my grades were average, I would graduate this summer, and I didn’t know what I wanted to do after that. It wasn’t that I didn’t want to tell her things, or that I felt like I shouldn’t, but rather I was beginning to feel like if I answered poorly I would be disappointing her somehow.
 
-When I finished in the kitchen she directed me to continue on down the hallway and into the living room. The hallway was easy, just had to mop and wipe off the entryway table that sat there with only a vase of flowers on it. The living room was a bit more difficult. It meant cleaning out the cobwebs from the window ceil and cleaning out the fireplace. The room had a large round rug on the floor that I would have to vacuum and I would probably have to wipe down the leather couch too as it was covered in dust. I wondered if she ever even sat in it.
+When I finished in the kitchen she directed me to continue on down the hallway and into the living room. The hallway was easy, just had to mop and wipe off the entryway table that sat there with only a vase of flowers on it. The living room was a bit more difficult. It meant cleaning out the cobwebs from the window sill and cleaning out the fireplace. The room had a large round rug on the floor that I would have to vacuum and I would probably have to wipe down the leather couch too as it was covered in dust. I wondered if she ever even sat in it.
 
 Actually, it was more than that, I wondered where she even ‘lived’ in this house since the dust was all over. There didn’t seem to be any regular place that she used that was free of it. I tried not to think about that too much as I cleaned off the mantle piece above the fireplace. There were several dusty photo frames sitting up there and when I wiped the second one off I nearly dropped it.
 
@@ -70,7 +70,7 @@ Mrs Merawich heard me speak and came from the other room to stand in the doorway
 
 “No. How could I?” I lied putting the picture down, “She just looks a lot like you is all. I’m sorry, I have to go now.” I excused myself quickly and left out the front door. I ran the entire way home.
 
-That night I had the dream again, only this time when she spoke, there was sound. The girl said, “Watashi wa anata no tame ni ki o sodatemasu ka?”. I didn’t understand what she had said and I woke up before I could refuse her proposal this time. That gave me a bad feeling. I felt it was somehow vital that I always refuse whatever it was that she was offering me. Worse still, was that my window was open and a seedling with a little pile of dirt sat on the ceil. In a panic I pushed it off the ledge and slammed my window shut again.
+That night I had the dream again, only this time when she spoke, there was sound. The girl said, “Watashi wa anata no tame ni ki o sodatemasu ka?”. I didn’t understand what she had said and I woke up before I could refuse her proposal this time. That gave me a bad feeling. I felt it was somehow vital that I always refuse whatever it was that she was offering me. Worse still, was that my window was open and a seedling with a little pile of dirt sat on the sill. In a panic I pushed it off the ledge and slammed my window shut again.
 
 As I did, I saw Mrs Merawich out on the street. She was dragging another heavy suitcase across the road back towards the park. I shuddered to think that she and my dreams might be related. Suffice to say, I slept with the light on for the remainder of the night.
 
