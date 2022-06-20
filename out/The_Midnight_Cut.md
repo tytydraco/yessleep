@@ -84,7 +84,7 @@ I stood from the sofa, placed my hand over my heart, and playfully announced, �
 
 “Godspeed, Sir Nick,” Erica laughed.
 
-Abby was lying on her bed, flipping through a copy of *Green Eggs and Ham* when I walked in and stood in the doorway. “Permission to enter,” I said.
+Abby was lying on her bed, flipping through a copy of *Green Eggs and Ham* when I walked over and stood in the doorway. “Permission to enter,” I said.
 
 “Permission granted,” she said, rehearsed and repeated time and time again. 
 
@@ -100,7 +100,7 @@ Abby dropped the book onto her lap and rolled her eyes, and as she did, a mosqui
 
 “What?”
 
-I smiled and showed her the squashed mosquito in my hand. 
+I smiled and showed her the squashed mosquito on my hand. 
 
 “Ew. That was on me?”
 
@@ -118,7 +118,7 @@ I set her book on the nightstand and pulled her covers up to her chest, and said
 
 “Promise.” I leaned over and kissed her forehead and then playfully grimaced and said, “Ew. Mosquitoey.”
 
-Abby giggled, and I stood and noticed a warm breeze blowing from the nearby window. Then I walked over and saw it cracked open a few inches. “Did you open your window?” I asked.
+Abby giggled, and I stood and noticed a warm breeze blowing from the nearby window. I walked over and saw it cracked open a few inches. “Did you open your window?” I asked.
 
 “No.”
 
@@ -263,7 +263,7 @@ Behind me, Erica was on the phone, frantically crying to the dispatcher, “She 
 
 “Erica, check the footage,” I said, then turned my attention back to the woman and said, “Tell me where she is.”
 
-The woman stopped chewing, stared into my eyes, then opened her mouth to reveal a wet wad of hair on her tongue. I wrapped my hands around her throat and squeezed. “You fucking bitch!” I yelled. 
+The woman stopped chewing, stared into my eyes, then opened her mouth to reveal a wet clump of hair on her tongue. I wrapped my hands around her throat and squeezed. “You fucking bitch!” I yelled. 
 
 “Nick!” Erica gasped. “She’s in the closet.”
 
