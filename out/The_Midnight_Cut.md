@@ -269,11 +269,13 @@ The woman stopped chewing, stared into my eyes, then opened her mouth to reveal 
 
 I spun around in time to see Erica yank the closet doors open and see Abby blue in the face, hanging limp from a tie knotted around her neck. At that same moment, I felt a sharp pain in my side and looked to see that the woman had stabbed me. “Fuck,” I cried and pushed off her, and she pulled the scissors from me simultaneously. Then she quickly leaped to her feet and sprinted for the open window, and vaulted out. 
 
-“Abby!” Erica cried, having gotten her untied and on the floor. I crawled over and reached a bloodied hand to Abby’s neck. “She’s got a pulse,” I said and saw the color returning to her face. “She’s breathing, too.” In the background, we could hear approaching sirens.
+“Abby!” Erica cried, having gotten her untied and on the floor. I crawled over and reached a bloodied hand to Abby’s neck. “She’s got a pulse,” I said and saw the color returning to her face. “She’s breathing, too.” 
+
+In the background, we could hear approaching sirens.
 
 ______________________________
 
-Abby and I both made a full recovery, and from the footage we saw, the woman had crept into Abby’s bedroom after we’d left. Abby was still asleep at the time, and the woman chloroformed her again, then cut her hair and dragged her to the closet, then hung her with a tie she had taken from my closet at some point.
+Abby and I both made a full recovery. From the footage we saw, the woman had crept into Abby’s bedroom after Erica and I had gone back to our room that morning. Abby was still asleep at the time, and the woman chloroformed her again, then cut her hair and dragged her to the closet, then hung her with a tie she had taken from my closet, most likely during the night.
 
 The window, as it turns out, never actually locked. It was a faulty design that we were unaware of and never thought to check.
 
