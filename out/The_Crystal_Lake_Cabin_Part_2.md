@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | Part 3 - Coming Soon | Part 4 - Coming Soon
+[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | Part 4 - Coming Soon
 
 &#x200B;
 
@@ -112,20 +112,12 @@ It was hours before I reached the surface again. It was already morning and the 
 
 I don’t know how long I was unconscious for but I could tell it wasn’t the same day. The air was dry now and there was no moisture in the ground anymore. I could still feel its presence in my mind, telling me to go to the hut but I had control for now. It wouldn’t be long before I was under its influence once again.
 
-[I knew what I had to do.](https://williamroseberry.com/short-stories/crystal-lake-cabin#part2)  
-
-
-  
-
+[I knew what I had to do.](https://williamroseberry.com/short-stories/crystal-lake-cabin#part2)
 
 &#x200B;
 
-[The Compendium](https://www.reddit.com/user/Manaravak/comments/vfv9j4/the_compendium_heres_where_i_keep_a_list_of/)  
-
-
-  
-
+[The Compendium](https://www.reddit.com/user/Manaravak/comments/vfv9j4/the_compendium_heres_where_i_keep_a_list_of/)
 
 &#x200B;
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | Part 3 - Coming Soon | Part 4 - Coming Soon
+[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | Part 4 - Coming Soon
