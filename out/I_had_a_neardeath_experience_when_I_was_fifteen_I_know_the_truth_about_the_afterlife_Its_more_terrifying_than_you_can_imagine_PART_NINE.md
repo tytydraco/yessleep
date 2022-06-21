@@ -1,8 +1,8 @@
-*"RUN!*" Aaron shout at me and Dante, *"STAY AS CLOSE TOGETHER AS YOU CAN AND RUN! RUN AS FAST AS YOU FUCKING CAN! DON'T SLOW DOWN FOR NOTHING!"*
+*"RUN!*" Aaron shouted at me and Dante, *"STAY AS CLOSE TOGETHER AS YOU CAN AND RUN! RUN AS FAST AS YOU FUCKING CAN! DON'T SLOW DOWN FOR NOTHING!"*
 
 And so we did. Once again we ran, not just for our lives this time but also for our very souls. We ran as if all of Hell's demons were chasing us, and perhaps they were.
 
-Aaron lead the way, relying on his memory to navigate the sewer system because there was no time to stop and consult his map. A left here, a right there, me and Dante racing behind him. I could only hope he was going the right way. If we got lost down here before the lantern gave out...
+Aaron led the way, relying on his memory to navigate the sewer system because there was no time to stop and consult his map. A left here, a right there, me and Dante racing behind him. I could only hope he was going the right way. If we got lost down here before the lantern gave out...
 
 The lantern in my hand was flicking more rapidly as the batteries weakened. I don't know how much longer it would last. Any second I expected it to go out, plunging us into total darkness.
 
@@ -104,7 +104,7 @@ Nadine, still standing at the window with her back to us, said in a hollow voice
 
 "There's gotta still be useful stuff here in town. Stuff close by we can--" Aaron began.
 
-*"NO!"* she thundered at him, her eyes blazing with rage. She was more furious than I had ever seen her. "Even if by some miracle you found a stockpile of candles and batteries, then what, Aaron? *Then what?* How long do you want to keep living like this -- if you can even *call* it living! Hiding here in this fucking prison, those monsters surrounding us, trapped in a dead world, no hope of ever seeing our families or feeling the sun or eating food or being safe every again? Is this what you want to risk your lives to keep fighting for? To survive one day in hell just to find yourself in the next? And the next? And the next? Meeting new people, getting to know them, only for them to end up dying? Never knowing if you're going to be next? I've been enduring this nightmare for *eight fucking years,* Aaron! And that's probably a record! You've only been here two! You think you know about survival, that you're some seasoned pro, well fuck you! You don't know the first thing about surviving! You don't even know some of the horrible things I've seen here! I had a boyfriend at one point! Someone I met who for once in my life wasn't a complete piece of shit! Someone I loved! You know what happened to him? We were being chased by those goddamn corpses and he ran off to draw them away so I had a chance of escaping. They tore him into pieces while I ran to save myself like a coward. I can still hear him screaming in my mind. You know how many people I've seen die here? I saw a baby, a newborn baby, helpless, completely defenseless, and....and they..." She slumped against the wall, collapsing, and started to sob.
+*"NO!"* she thundered at him, her eyes blazing with rage. She was more furious than I had ever seen her. "Even if by some miracle you found a stockpile of candles and batteries, then what, Aaron? *Then what?* How long do you want to keep living like this -- if you can even *call* it living! Hiding here in this fucking prison, those monsters surrounding us, trapped in a dead, empty world, no hope of ever seeing our families or feeling the sun or eating food or being safe ever again? Is this what you want to risk your lives to keep fighting for? To survive one day in hell just to find yourself in the next? And the next? And the next? Meeting new people, getting to know them, only for them to end up dying? Never knowing if you're going to be next? I've been enduring this nightmare for *eight fucking years,* Aaron! And that's probably a record! You've only been here two! You think you know about survival, that you're some seasoned pro, well fuck you! You don't know the first thing about surviving! You don't even know some of the horrible things I've seen here! I had a boyfriend at one point! Someone I met who for once in my life wasn't a complete piece of shit! Someone I loved! You know what happened to him? We were being chased by those goddamn corpses and he ran off to draw them away so I had a chance of escaping. They tore him into pieces while I ran to save myself like a coward. I can still hear him screaming in my mind. You know how many people I've seen get killed? I saw a baby, a newborn baby, helpless, completely defenseless, and....and they..." She slumped against the wall, collapsing, and started to sob.
 
 The three of us just looked at her, taken aback by her outburst, not knowing what to say.
 
@@ -124,7 +124,7 @@ And then he collapsed, writhing in excruciating pain.
 
 "Clark!" Aaron screamed, and knelt by his side.
 
-*"Oh God, my head, it hurts so fucking baaaaad!*" Clark wailed, his eyes squeezed shut in agony, his teeth bared. As I watch, all the color, the vitality, the life, seemed to faded from his skin, living it waxy and pale.
+*"Oh God, my head, it hurts so fucking baaaaad!*" Clark wailed, his eyes squeezed shut in agony, his teeth bared. As I watched, all the color, the vitality, the life, seemed to faded from his skin, living it waxy and pale.
 
 *"What is it, what's wrong?"* Aaron screamed at him.
 
