@@ -1,4 +1,4 @@
-**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | Part 4 - Coming Soon
+**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | [Part 4](https://www.reddit.com/r/nosleep/comments/vhd5z8/the_crystal_lake_cabin_final/)
 
 &#x200B;
 
@@ -164,4 +164,4 @@ My answer was [at the decommissioned dam](https://williamroseberry.com/short-sto
 
 &#x200B;
 
-**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | Part 4 - Coming Soon
+**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/vfuf8z/the_crystal_lake_cabin_part_2/) | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | [Part 4](https://www.reddit.com/r/nosleep/comments/vhd5z8/the_crystal_lake_cabin_final/)

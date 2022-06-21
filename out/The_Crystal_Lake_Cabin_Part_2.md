@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | Part 4 - Coming Soon
+[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | [Part 4](https://www.reddit.com/r/nosleep/comments/vhd5z8/the_crystal_lake_cabin_final/)
 
 &#x200B;
 
@@ -120,4 +120,4 @@ I don’t know how long I was unconscious for but I could tell it wasn’t the s
 
 &#x200B;
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | Part 4 - Coming Soon
+[Part 1](https://www.reddit.com/r/nosleep/comments/vevusd/the_crystal_lake_cabin_part_1/) | **Part 2** | [Part 3](https://www.reddit.com/r/nosleep/comments/vglox0/the_crystal_lake_cabin_part_3/) | [Part 4](https://www.reddit.com/r/nosleep/comments/vhd5z8/the_crystal_lake_cabin_final/)
