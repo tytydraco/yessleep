@@ -106,7 +106,7 @@ Billy's brow furrowed as he recalled who I was. Clearly not a fond memory. 
 
 His lip curled, re-exposing sharp canines. The predator resumed its attack.
 
-I seized the few seconds I had left. I grabbed the rib bone and thrust it into Billy's chest. He reeled backwards in pain as white cloudy stuffing spilled out of the gash. I crawled out from beneath his body and sprinted towards the picnic basket gateway. As I looked back I witnessed the plastic voice box fall out of Billy's chest. It dropped in the dirt before being squahed by his paw. The chase had begun.
+I seized the few seconds I had left. I grabbed the rib bone and thrust it into Billy's chest. He reeled backwards in pain as white cloudy stuffing spilled out of the gash. I crawled out from beneath his body and sprinted towards the picnic basket gateway. As I looked back I witnessed the plastic voice box fall out of Billy's chest. It dropped into the dirt before being crushed by his paw. The chase had begun.
 
 I flipped open the basket lid and dived back into the checkered tunnel. It was the last place I ever wanted to return to but it was my only passage home. I shuffled my hands and knees along the fabric, using my cigarette lighter to guide the way. I could now take in the circular shape of the tunnel. It looked like being inside a long artery which connected the two worlds. 
 

@@ -116,7 +116,7 @@ I placed my queen directly in the path of his bishop. I knew it was a horrible m
 
 The demon smiled and slowly raised his hands.
 
-"Well, well, looks like we have a bit of a stalemate on our hands"
+"Well, well, looks like we have a bit of a stalemate my friend"
 
 I remained focused with my plan, determined not to be swayed by his demeanour.
 
@@ -126,13 +126,13 @@ I remained focused with my plan, determined not to be swayed by his demeanour.
 
 The demon didn't seem shaken. This unnerved me but I pushed those feelings aside. He continued.
 
-"I'm afraid I can't do that my friend. You see  it's against the rules."
+"I'm afraid I can't do that my friend. You see it's against the rules."
 
 "Well you better forget those rules, cause the alternative is me pulling this trigger."
 
 "You think by killing Death…a natural constant in this universe…both you and your father will survive?"
 
-My finger wobbled over the trigger.
+My finger trembled over the trigger.
 
 "Eliminating the Demon of Death has got to do something, right?"
 

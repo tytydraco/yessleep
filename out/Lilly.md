@@ -1,0 +1,39 @@
+They were all pigs, the lot of them. Lilly saw her father's face on each of their faces, which angered her. She took the pill bottle from the bright red handbag on the table. Lilly wasn't sick, and she didn't need that medication. Besides, it made her feel sick as a dog. The doctors didn't know her. She was fine. 
+
+&#x200B;
+
+He was in the other room, waiting for her to come out. She picked the knife from the same bag and tucked it into her leggings, the long blade scraping her skin as she slipped it in. The crappy motel door creaked as it opened, and the man in the other room looked up, staring at her hungrily with her father's eyes. He lay on the bed, waiting for her. She sauntered toward him, smiling while her knife dug deeper into her calf. Finally, she shifted it, and the blade moved away from her bare skin. Her father's face beamed as she neared. Then, just a metre away from him, Lilly's knife cut through the fabric of her leggings and fell to the floor. She sighed as her father looked down to see the knife lying on the floor. He lunged for it, but Lilly was quicker. She seized the knife and plunged it into the man's belly as he fell onto it. His blood trickled down her arm, and Lilly withdrew the blade, lengthening the scar Lilly had made. Her father's face turned to her, tears in his eyes, and she laughed—a mad laugh that echoed throughout the motel.
+
+&#x200B;
+
+He saw her at the corner of Walter Street and Darning Avenue. She leant against the traffic light, taking a long drag of a cigarette butt. She had a bright red handbag wrapped around her neck, swaying beside her chest. He nervously approached her. This was Damian's first time doing something like this. His wife and kids were asleep at home, unaware he was away from home. His trust in his wife had deteriorated long ago, and the final scraps of whatever love he'd ever felt for her had departed. But the kids needed him, so they stuck together. He felt trapped in a cage and had to get out somehow.
+
+"Hey, um-" he started. The girl held out her finger, finishing the long drag on her cigarette. She took it from her mouth and exhaled, a massive cloud of smoke spraying from her mouth. She blew the final cloud of smoke from her mouth and turned to him.
+
+"50 bucks", she said to him. Damian took a folded bill of money from his pocket and handed it to her. She took it and held it up to the street light. Then, she stuffed the note into her pocket and took his arm.
+
+"Name's Lilly," she said, taking another cigarette from her opposite pocket. "Let's just get this shit over with," she said, her words slurred with the cigarette in her mouth. The whole walk there, her cigarette smoke blew into his face, making his eyes sting. He was beginning to regret his decision, but Damian still wanted to see this through. This was his way out of the cage. Her handbag bounced annoyingly on his ribs, and he looked down toward it just as they passed under a street light. Something glinted inside. It kind of looked like the blade of a knife. Damian remembered reports of the killing of a young man around here, but they didn't manage to catch the killer. But this girl couldn't have killed someone. She didn't have the strength to. Her arms were very skinny, and nothing about her seemed physical. She took him to a crappy motel. There was no sign of anyone staying there at the moment. The parking lot was completely empty, except for two cars. One bright pink, and the other a bland grey. The lights were off, despite being so late, so Damian tread carefully so as not to step on any needles. Lilly walked confidently through the parking lot as if it were hers. She looked back at Damian, who had fallen behind.
+
+"Sorry, I-" he started, but Lilly cut him off again.
+
+"Hurry up!" she said impatiently, beckoning to him. She seemed set on getting him into the motel, and that glint in her bag too... Damian began to feel suspicious of Lilly.
+
+"I dunno if I wanna do this anymore," Damian called to her.
+
+"Oh, come on, you're really gonna make me come all the way out here for nothing! It's freezing. Just get the hell inside!" she called to him.
+
+"No, I don't want to do this anymore," Damian said. Lilly groaned, looking up to the sky and rolling her eyes.
+
+"Fine," she said curtly. She approached Damian, reaching into her bag as she stormed up to him. "You could have made this so much easier."
+
+"What the hell are you on about!" he said, confused. Damian's eyes widened as she brought a long knife from the red handbag.
+
+"I'll give you a headstart," she said cockily, almost as if she were a child. Damian backed away slowly. "10 missasipi, 9 missasipi, 8 missasipi" she started. Damian realised what was going on and started to run. He wasn't going to die tonight. Damian hadn't properly run for twenty years, he used to be a sprinter and athletic, but now it was sad to see how much his physical health had deteriorated. He hobbled away from the parking lot, and Lilly reached the five-second mark. "5, 4, 3, 2, 1!" she screamed, quickly saying the last few numbers. Then, she started running after him. Damian ran to the grey car and smashed the window with his elbow. Damian bellowed as blood from his elbow began to drop to the floor. He reached inside the vehicle for the longest, jagged piece of glass he could find, then noticed a key inside the ignition. He still had about thirty metres between him and Lilly. He jumped into the car.
+
+"OH, SO IT'S LIKE THAT THEN!" she screeched from behind him. The car roared as he turned on the ignition, and smoke billowed from the back as the tires skidded. The car started forward, and he jerked back into his seat. Soon, he was on the road, speeding down the city street. High beam headlights suddenly appeared behind him, and the pink car drifted onto the road. The glass on his seat painfully dug into his butt as he drove. The car righted itself just before slamming into an oil truck. It narrowly avoided it, and he heard a mad cackle inside the vehicle. Lilly. She sped up, her pink car catching up to his easily. She swerved into the lane beside him, drove directly beside him, and started stabbing the knife into the broken window. It narrowly avoided him and nicked his chin as it withdrew for the final time.
+
+"WHAT THE HELL!" he screamed, over and over. He almost skidded off into the side of the road but righted the vehicle. She swerved back behind him as a car passed. Ahead, Damian saw the road lines split in front of him. Soon, Lilly could get beside him again. Damian's heart was racing. Sweat dripped into his eyes, and his armpits were damp. Finally, Lilly rammed the back of his car, pushing him forward. The lane split was a few miles ahead, and Damian was about to die. He was going too fast to turn around. But he had to turn around, or he was dead anyway. Damian swerved the wheel and engaged the handbrake, the car stopped, and his head whipped to the side as the car did a complete 180-degree spin to the other side of the road. He was almost safe, but the bumper of a passing car slammed against his car, which didn't move forward since the handbrake was engaged. He was thrown out of his window and landed on the concrete.
+
+&#x200B;
+
+ Damian regained consciousness and saw Lilly walking toward him, knife glinting in the fire as she walked toward him. He screamed as the pain set in. The skin on the left side of his face had been ripped off. Damian tried to get up, but his arms and legs were broken. So he crawled as Lilly approached him. Finally, she reached him and stepped on his broken arm. He screamed as Lilly twisted her foot and tried to fend her off, but Lilly batted his hand away. Then, without saying anything, she stabbed him again and again with her knife until Damian died. Just before he bled out, he heard her mad cackle once more.
