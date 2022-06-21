@@ -310,7 +310,7 @@ My heart raced. I could feel my blood rushing in my veins. My fingers desperatel
 
 I could hear the blades dig into the rock and the massive body inch forward. The Maymen screamed again, and I could feel the sound waves blast my hair back. A trickle of blood came out of my left ear, but I ignored it.
 
-I pressed down hard on the wheel and spun it so hard it left the gear-like indention in my thumb. But it worked. The spark finally caught. I had a flame. Just as I saw the tip of the blade reach the fireplace opening fireplace, I dropped the zippo into the "instant start" hay kindling and watched the fire ignite.
+I pressed down hard on the wheel and spun it so hard it left the gear-like indention in my thumb. But it worked. The spark finally caught. I had a flame. Just as I saw the tip of the blade reach the fireplace opening, I dropped the zippo into the "instant start" hay kindling and watched the fire ignite.
 
 The Maymen screamed again, but this wasn't the same as before. It was in pain. The blade retreated, and I heard the body start to shuffle up the chimney to escape the growing fire. I heard it reach the top of the chimney again and scream. It dug its blade arms into the roof and launched itself into the darkness of the woods. As quickly as it arrived, it was gone.
 
