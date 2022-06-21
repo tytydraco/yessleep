@@ -175,3 +175,5 @@ Have you ever been truly scared? Now, I'm not talking about some drunk driver cu
   I was so close, but I just knew I would be torn to ribbons by the time I reached the open door. I could feel the foul breath and sticky saliva spritzing across the back of my neck, while the jagged bones still worked on ripping through my insides. When I heard the panting only inches from my ear, a gunshot rang out through the night, before a second caused another shrieking squeal to wait out from almost right beside me. Just before I fell onto the wooden steps of my friend's front deck, I heard those scampering feet quietening more and more as they sped away, back in the direction I had fled from.
 
   I stared up at my friends, who had all gathered up on the patio, feeling a sense of indescribable gratitude, before everything went black.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vho8f1/the_beast_of_carters_lake_part_2/?utm_medium=android_app&utm_source=share)
