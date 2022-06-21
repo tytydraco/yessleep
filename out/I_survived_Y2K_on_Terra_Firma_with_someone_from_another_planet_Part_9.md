@@ -1,4 +1,4 @@
-[Scroll to the bottom of this link to get to Part 1 and read in order](http://www.iliveonterrafirma.com)
+[Click here and scroll down to start from Part 1](http://www.iliveonterrafirma.com)
 
 They stood around waiting anxiously for Mark to get there. 
 
@@ -28,7 +28,7 @@ They held their breaths as the door slowly started to move up, and saw four legs
 
 "Oh what the hell?!" Mark cried out. 
 
-One of the men had dyed blue hair and the other brownish red. The one with the purple gave a sheepish wave.
+One of the men had dyed blue hair and the other brownish red. The one with the blue hair gave a sheepish wave.
 Peter hedged his bets that that was Troy. 
 
 They stepped into the glass box and Mark went over to open the door.
