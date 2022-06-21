@@ -1,7 +1,4 @@
-Scroll to the bottom to get to Part 1; scroll up for more in order.
-
-[My website](http://www.iliveonterrafirma.com)
-
+[Scroll to the bottom of this link to get to Part 1 and read in order](http://www.iliveonterrafirma.com)
 
 They stood around waiting anxiously for Mark to get there. 
 
