@@ -146,11 +146,11 @@ His hands tilted outwards as he shrugged.
 
 He shuffled in his chair.
 
-"Would you believe being responsible for death means you end up seeing a lot of death? I'm tired man."
+"Would you believe being responsible for death means you end up seeing a lot of death? I'm tired."
 
 I moved the gun forward to rest on his chest. He was talking too much. I really didn't trust the guy. He remained unbothered in his tone.
 
-"I can't change the rules dude. You're gonna have to shoot me if you want this to work."
+"I can't change the rules sir. You're gonna have to shoot me if you want this to work."
 
 A wide grin possessed his face.
 
