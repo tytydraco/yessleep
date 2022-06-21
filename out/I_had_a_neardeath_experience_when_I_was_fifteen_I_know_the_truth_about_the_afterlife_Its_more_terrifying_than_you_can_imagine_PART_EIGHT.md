@@ -161,3 +161,7 @@ Dante, his eyes wide, shook his head.
 "We can make it," I said. "We've still got my lantern."
 
 And no sooner had I spoken, as if to mock our plight...my lantern began to flicker unsteadily as the batteries started to fail.
+
+PART NINE [https://www.reddit.com/r/nosleep/comments/vgyrzq/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vgyrzq/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
