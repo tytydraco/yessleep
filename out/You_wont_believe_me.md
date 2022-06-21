@@ -1,4 +1,4 @@
-This is a real story from a few years ago. I've modified bits to fit within the guidelines to post but this story is completely authentic. I was in disbelief at what I heard.
+This is a story from a few years ago. I was in disbelief at what I heard.
 
 I'll give a little backstory. When this happened I was working in the insurance industry. A policyholder had called into the office and wanted me to make some changes to his policies. It was an easy task and the tone of the call was cordial. To make the changes he wanted I needed permission of the woman named on the policy, his ex-wife.
 

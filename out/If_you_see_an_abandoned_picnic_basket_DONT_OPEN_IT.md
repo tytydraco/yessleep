@@ -2,19 +2,19 @@ Ever lost a friend? I do it all the time. You see, I've never been very good at 
 
 I was six. Maybe seven? I used to have this teddy…my favourite teddy. Billy Bear I called him. Billy was awesome because he'd speak to you when you hugged him tight. One of those little voice boxes that would chime when you squeezed it.
 
-"Hello friend! I love you!" It would chime.
+"Hello friend! I love you!"
 
 It was sweet. Until it wasn't. I don't know what it was, maybe one day something just snapped in my head. Call it puberty. Call it my parents' messy divorce. But essentially I just couldn't do affection anymore. Whenever someone said "I love you", or I sensed they were getting too chummy, I'd push them away. Shoot them down before they had a chance to shoot me. Sort of a quirky self destructive defence mechanism ya know?
 
-Billy was the first of MANY relationships to fall victim to my flawed mindset. Being a present from my parents when they were still together, Billy became a representation of the lie that is "a healthy relationship". I started to loathe having him around.
+Billy was the first of MANY relationships to fall victim to my flawed mindset. Being a present from my parents when they were still together, Billy became a representation of the lie that is "a healthy relationship". I started to loathe having him.
 
 I don't really remember how I lost that Teddy. One morning I woke up and Billy was just gone. I suspected one of my parents could have thrown him out but I never asked. It's not like I was going to miss the constant reminder that all relationships are doomed.
 
-Fast forward fifteen years and this toxic trait started to get the best of me during the recent lockdowns. I took the isolation thing a tiny bit too seriously and started cutting myself off from friends and family. That is, the few I have left. Basically, I was living in solitary confinement within my own home. A sad hermit in his cave.
+Fast forward fifteen years and this toxic trait started to get the best of me during the recent lockdowns. I took the isolation thing a tiny bit too seriously and started cutting myself off from friends and family. That is, the few I have left. Basically, I was living in solitary confinement within my own home. A hermit in his cave.
 
-Friends would reach out to me with kind messages of concern. You know, loving expressions of care that I would consistently ignore. The messages would flood in and I would get overwhelmed at the abundance of notifications. Clearly, I didn't know how to tackle my own emotions.
+Friends would reach out to me with kind messages of concern. Loving expressions of care that I would consistently ignore. Messages would flood in and I would get overwhelmed by the abundance of unread notifications. I didn't know how to tackle it.
 
-To help clear the mind, I started to go on bike rides around the neighbourhood. The fresh air and forward movement gave me a sense of progression in a period that felt particularly stagnant. One evening, I finished the first leg of my ride outside a local park. I didn't recognise this part of town but decided it would be a nice spot for a quick smoke.
+To help clear the mind, I started to go on bike rides around the neighbourhood. The fresh air and forward movement gave me a sense of progression in a period that felt particularly stagnant. One evening, I finished the first leg of my ride outside a local park. I didn't recognise that part of town but decided it would be a nice spot for a quick smoke.
 
 I know, I know. Smoking during a spell of exercise? That seems a little detrimental to the purpose of a bike ride.
 
@@ -22,7 +22,7 @@ Well you're right. 
 
 But in case you hadn't caught on yet, I'm a self destructive motherfucker. I was out there to defog my brain. What better way to do that than with some smoke?
 
-I ignited my cigarette and deeply inhaled its black fumes. This was when I first noticed the picnic. Nobody else was in the park apart from me and my bike. Yet, lying before me was the most stereotypical representation of a picnic I'd ever seen. If you were to type the word "picnic" into google, the first few stock images would be quite accurate to what I was observing.
+I ignited my cigarette and deeply inhaled its black fumes. That was when I first noticed the picnic. Nobody else was in the park apart from me and my bike. Yet, lying before me was the most stereotypical representation of a picnic I'd ever seen. If you were to type the word "picnic" into google, the first few stock images would be quite accurate to what I was observing.
 
 The red and white blanket was neatly laid out, with a large, woven basket sitting atop its fabric. Empty plastic cups and plates were scattered across its surface. It looked like it was a scene for two. That's if anyone was around to claim it.
 

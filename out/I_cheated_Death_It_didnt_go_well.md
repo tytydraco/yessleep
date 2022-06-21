@@ -20,7 +20,7 @@ I snapped.
 
 "I'm not in the mood for games today!"
 
-The man went silent and stared straight ahead. It was here I noticed his unusual yellow eyes. I exhaled, relieved that he'd finally received the message. He tilted his head and tried a new angle.
+The man went silent and stared ahead. It was here I noticed his unusual yellow eyes. I exhaled, relieved that he'd finally received the message. Or so I thought. He tilted his head and tried a new angle.
 
 "What if I showed you what we're playing for?"
 
