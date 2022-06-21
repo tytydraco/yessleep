@@ -1,4 +1,6 @@
- [Part II](https://www.reddit.com/r/nosleep/comments/vc0w5k/i_live_in_a_remote_cabin_in_the_far_north/)
+[Part II](https://www.reddit.com/r/nosleep/comments/vc0w5k/i_live_in_a_remote_cabin_in_the_far_north/)
+
+[Part III](https://www.reddit.com/r/nosleep/comments/vhafdy/i_live_in_a_remote_cabin_in_the_far_north/)
 
 The supply of jerky was almost through. It had been a poor hunting season and with the bulk of the winter still to come, rations were low. I would need to go to town. I didn’t look forward to that. I rolled a strip of jerky and let it sit between my teeth and the inside of my cheek like a piece of hard candy. Had to make it last.
 

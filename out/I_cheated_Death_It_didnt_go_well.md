@@ -102,7 +102,7 @@ I started to connect the dots.
 
 "Your father gets to live. Yes. Time will readjust and a miracle will be allowed to occur."
 
-I considered what was being proposed. An idea took shape in my head. I'd never been the type of person to follow the rules. In fact, most people would very rarely play games with me as I'd always find a sneaky way to win. Call it cheating, call it getting your way. If this was a chance to save my father…I had to take it.
+I considered what was being proposed. An idea formed in my head. I'd never been the type of person to follow the rules. In fact, most people would very rarely play games with me as I'd always find a sneaky way to win. Call it cheating, call it getting your way. If this was a chance to save my father…I had to take it.
 
 I slid my first pawn out onto the board. The game had officially started.
 
@@ -148,7 +148,7 @@ He shuffled in his chair.
 
 "Would you believe being responsible for death means you end up seeing a lot of death? I'm tired."
 
-I moved the gun forward to rest on his chest. He was talking too much. I really didn't trust the guy. He remained unbothered in his tone.
+I moved the gun forward, pushing the barrell into his chest. He was talking too much. I really didn't trust the guy. He remained unbothered in his tone.
 
 "I can't change the rules sir. You're gonna have to shoot me if you want this to work."
 
