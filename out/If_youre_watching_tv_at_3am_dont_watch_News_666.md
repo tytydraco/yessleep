@@ -4,7 +4,7 @@ I couldn't find any video that caught my eye so I decided to watch tv. But could
 
 A man and a woman appeared on the screen sitting right next to each other, they seemed normal. The man had a mustache and seemed a little buff but not too much. And the woman looked beautiful blond hair, blue eyes, and a beautiful smile with red lipstick. The man finally spoke"Hello everyone and welcome to news 666. I'm Tom Maguire" the Lady then spoke, "And I'm Bridget McCain".
 
-It seemed normal so I decided to keep watching mostly because I liked Bridget. The man then went "A shooting took place earlier at 10:38 am at the Small point high school". It then shows the school but it was showing security footage of the shooter entering the school.
+It seemed normal so I decided to keep watching mostly because I liked Bridget. The man then went "A shooting took place yesterday at 10:38 am at the Small point high school". It then shows the school but it was showing security footage of the shooter entering the school.
 
 But it caught me off guard as they were showing the shooting the man killing the teens and teachers. Then it showed the shooter pointing the gun at himself and before he killed himself, I covered my eyes. When I looked again I wanted to vomit as it zoomed in on him. Half of his face was blown off with his eye hanging out.
 
