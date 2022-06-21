@@ -1,4 +1,4 @@
- I’ve worked in the Southwest United States as a supernatural exterminator for about 12 years at this point, and I’m sort of surprised that I haven’t seen more posts about this type of thing over here. I don’t want to disclose my own salary for privacy’s sake but I’ll say that it’s well within the 6 figure range, if you’re good.
+I’ve worked in the Southwest United States as a supernatural exterminator for about 12 years at this point, and I’m sort of surprised that I haven’t seen more posts about this type of thing over here. I don’t want to disclose my own salary for privacy’s sake but I’ll say that it’s well within the 6 figure range, if you’re good.
 
 I know a good bit of people are probably interested in that kind of money, but I need to explain a few things first—most importantly, the industry is regulated, and the Bureau of Supernatural Services is your big boss. They also watch the news wires to make sure you don’t have any public slip-ups on the job.
 
@@ -62,4 +62,4 @@ Ah, but that doesn’t have anything to do with being an exterminator.
 
 I'm open to any and all questions about the work and jobs I've done (without naming clients, of course.) You can leave a comment or DM me if you want, I have a few days before I plan on going out and returning all my equipment officially, so I’ll probably respond until then, just to give it a time frame. If there are any other exterminators out there, make a throwaway and leave a comment, I don’t meet nearly enough of you as I’d like to, and talk to even less.
 
-EDIT 2: Grammar.
+EDIT 2: [Grammar.](https://www.reddit.com/r/nosleep/comments/vg5x73/i_am_an_exterminator_for_the_supernatural_and_i/?utm_source=share&utm_medium=web2x&context=3)

@@ -50,4 +50,4 @@ I also heard the guard sergeant killed himself.
 
 I wish I had more answers.  I wish I could make this a better story.  I just don't know for sure what happened after we left.  If anyone else was there, please let me know.  
 
-The only thing I know for sure - and I put this on all my sworn statemetns - is that SSG Smith wasn't the only person screaming in that hole.
+The only thing I know for sure - and I put this on all my sworn statements - is that SSG Smith wasn't the only person screaming in that hole.

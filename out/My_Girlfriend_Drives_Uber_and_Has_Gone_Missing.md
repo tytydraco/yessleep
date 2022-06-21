@@ -15,7 +15,7 @@ So far it has been successful, aside from a few sunburned faces people aren't go
 
 However, sun-blindness isn't the worst fate skywatcher zombies faced. I'm sure you've seen the videos. Bloody faces turned towards the sun, the miracle of sight  reduced to jelly and torn skin on their cheeks as crows mercilessly pecked their eyes out, perched on the victims open mouth, bird shit staining their chin and shirt. Thankfully now the sunglasses help to prevent this to a point, the crows pecking uselessly at the plastic lenses, trying to pry under the tight fitting lenses with their beaks, denied the delicacy of the eyes having to settle usually for the lesser prize of the tongue, but it is better to be mute than blind. In any place with a large human population, the crows, ever hopeful, line the rooftops and telephone lines like something out of a Hitchcock movie, croaking and screeching, waiting for the next skywatcher zombie to look skyward and their meal.
 
-Back to today, I was in a video meeting waiting for it to start. Our team lead popped up, wearing Disney branded Skywatchers glasses, wrapped around his head like goggles.  He said, "Hey Bryan, where are your Skywalkers?"
+Back to today, I was in a video meeting waiting for it to start. Our team lead popped up, wearing Disney branded Skywatchers glasses, wrapped around his head like goggles.  He said, "Hey Bryan, where are your Skywatchers?"
 
 "Hi Scott, they're giving them away at the vaccine clinic today, I'm waiting for that," I said.  Then a few more joined, and asked the same thing.
 

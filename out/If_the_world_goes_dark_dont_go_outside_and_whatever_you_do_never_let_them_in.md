@@ -1,4 +1,13 @@
 
+
+Link to Part 2 : 
+
+
+
+https://www.reddit.com/r/nosleep/comments/vh1shb/if_the_world_goes_dark_dont_look_outside_and/?utm_medium=android_app&utm_source=share
+
+
+
 We were never a very religious family. My grandmother was though, and through her is where my family got our second hand religion. 
 She lived with us for the last 4 years of her life, and I know that I owe my own life to her. Had it not been for her constant teachings, I'd be dead. I know that as strongly as I know my own name. 
 I tried to tune her out, like my parents and brother would do, but what little bits I was able to retain, stuck, dug deep into my soul waiting for the day I'd need them. 
