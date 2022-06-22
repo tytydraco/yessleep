@@ -1,206 +1,57 @@
+When i was in 6th grade i got my first phone. It was a smartphone and i was the first to get one in my friend group.
 
-I loaded the last of my grocery bags into the trunk of my car, I slammed the trunk shut, and began to make my way to the cart return. 
-I walked back and before I could enter my car I noticed this small slip of paper, sticking on my windshield. 
-I plucked the paper out from underneath my windshield wiper and read it
+All my friends thought i was so cool because i had one. While i liked the attention, the phone wasn’t as fun to have as my friends made it out to be. My number somehow got on a telemarketer list and i got so many spam calls. During walks,school, at night while i was sleeping, when i was taking a shower just to name a few. 
 
-**805-555-5555**
+I never answered these calls, as i was instructed to by my parents. There was this one caller that wouldn’t stop though. Usually telemarketers try to call once or twice maybe leave a voicemail and then stop. This caller, no they never stopped. I would get more than 10 calls from them everyday. It got so bad that i blocked them. 
 
-My cell phone number?
+Unfortunately, that didn’t work because they continued with a different number. I finally got so fed up that i answered one day. That day my life changed for the worse. Below is a transcript of the call.
 
-I got chills down my back. 
+Caller: Hello thank you for finally picking up Alex!
 
-I got in my car and locked the doors, checked the back seat real quick, and stared at the note. 
+Me: How the hell do you know my name?
 
-I didn’t recognize the handwriting
+Caller: Don’t worry about that. Anyways, i’ve been wanting to talk to you since the day i saw you. Those long eyelashes and dark red hair.
 
-What was more terrifying was the small smiley face under the number. 
+Me: Uh what? that’s really really creepy. I’m a literal child i’m not sure you should be talking to me.
 
-I looked around the mostly empty parking lot, but there was nobody close to my car. A few people loading groceries or heading into the store, but nobody near my car…
+Caller: It doesn’t matter i would’ve found a way. You’re just so beautiful and i know where you live now so i can see you whenever i want.
 
-I drove home, scared and confused. 
+Me: What the actual fuck? That’s super disgusting. I’m hanging up now. Have fun stalking someone else.
 
-After unloading my groceries and making dinner, I was able to calm down. 
-I thought maybe it was a prank,
-I teach down at the loacal high school, it was Halloween, tons of the children have my number, this made sense to me. 
+Caller: If you hang up i’ll slit your throat right now. I know you’re in the park next to your house sitting on a bench.
 
-Then my phone started to ring. 
+Me: Your watching me? You’re a sick and twisted creep!!
 
-**unidentified caller**
+Caller: If it keeps you on the phone with me i don’t mind. I love hearing that pretty voice of yours.
 
-I started to feel uneasy again.
+Me: What do you want from me?
 
-I picked up the phone, and answered the call 
+Caller: I wanna play a game. If you win i’ll stop calling. If you lose, i’ll take you and you’ll never see your family again.
 
-“Hello?”
+Me: Absolutely not. I don’t even know you and i sure as hell don’t want to play with you. 
 
-**gurgling**
+Caller: Remember i do know where you are right now and won’t hesitate to slit your throat in front of all these people. You don’t even know where i am but i can see you trying to figure out. Just know you’ll never find me. Now about that game. It’s 2 truths and a lie. If i guess your lie, i win. If i don’t, you can run home, tell your parents and the police and i’ll never be found. Let’s not make this messier than it has to be.
 
-“Who is this?”
+Now remember im a kid at this point, i don’t know how long he has been following me, and i don’t know what he truly knows about me. My twelve year old brain was having trouble comprehending all that was being thrown at me. I decided it would be in my best interest to play along with his game.
 
-**more gurgling**
+Me: Okay fine then i’ll play your stupid game. You have to promise me that my whole family is safe if i lose.
 
-“I’m hanging up! Don’t call me again” 
+Caller: I wouldn’t touch a hair on their head.
 
-**”tomorrow”**
+Me: Let’s get this over with then.
 
-“What?”
+I had to think of things that no one would know. I’m talking stuff that sounds so unbelievable he’ll guess one of my truths.
 
-**”call…. Tomorrow”**
+Me: Okay i’ve got my three things. 1: my grandma died when i was a baby 
+2: I watched someone close to me get murdered by my own brother
+3: My grandma was a cannibal in her early twenties
 
-The caller hung up 
+Caller: That’s way too easy. The third is the lie obviously.
 
-I was scared and confused. 
+Me: You’re actually wrong. You failed to notice I said my brother murdered someone. Why wouldn’t he be in prison if he did that? My brother didn’t murder anyone. However, my grandma that died when I was young did eat someone before she met my grandfather. She skinned him alive and then sold and ate some of him. No one figured it out until she said something on her deathbed.
 
-I tried to block the number but when I went to my call log it wasn’t even there? 
+Caller: I- uhm.
 
-I locked all my doors and went to sleep, or at least tried to. 
+Me: You said you would leave me alone. Get lost and never call this number again. 
 
-
-The next morning I was making breakfast, getting ready for my day when my phone rang again
-
-**unidentified caller**
-
-I felt nervous, and decided not to answer. 
-
-It began ringing again. 
-
-And again. 
-
-Then my landline started ringing too,which I never even use, it just came with my internet. 
-
-I finally picked up the phone. 
-
-**answer… first time**
-
-“Who are you?!”
-
-**call… tomorrow”**
-
-They hung up. 
-
-I was starting to get scared. Tomorrow I will go to the police for sure, I packed a bag and double checked the locks on my doors and windows before bed. 
-
-I grabbed my bag and made my way to the police station. 
-
-When I arrived I explained the situation and they said it was probably a kid from the school I worked at, like I had originally thought. They put a bug on my landline and cellphone and told me next time they called we would trace them, and to attempt to keep them on the phone. 
-
-When I got home they called me. 
-
-**”been gone all day?”*
-
-“Yes. I have, why do you keep calling?”
-
-
-**”police.. can’t save”**
-
-How did they know about the police??
-
-“What do you want with me? Why are you calling?”
-
-**gurgling**
-
-“Hello?”
-
-**want to… breathe**
-
-“What? What does that mean?”
-
-**”need… lungs.. need… you”**
-
-They hung up. 
-
-I called the sheriff after and asked if he got the call. He said he recorded all of it but when they played it back it was all gurgling noises on the other end… they couldn’t understand a thing the person on the phone said. I was in shock. As I could hear them mostly clear. He said he would keep a patrol car outside my home and we would look into it in the morning. 
-
-The patrol car out front gave me some comfort to sleep. 
-
-In the morning there was 3 police cars outside my home. I Ran outside to see what was going on. There was crime scene tape, and an ambulance as well, the sheriff saw me coming outside and ran to me. 
-
-“Jane, stay there!” 
-
-I stopped at the end of my driveway. 
-I saw it. 
-
-The policeman in the patrol car….
-There was blood everywhere,
-It painted the inside of his windshield.
-
-“What happened…?” I asked
-“We don’t know yet, it may or may not have to do with the caller… for now it might be best if you stayed with a friend.” He said
-
-I agreed and went inside to pack my bags. 
-
-My coworker Sarah agreed to let me stay in her home while she was on vacation, I grabbed her spare key from under the mat and let myself in. 
-
-When Jen’s house phone started to ring. 
-
-I was hesitant. 
-What if it was him?
-
-I let the machine get it
-
-BEEP
-
-**gurling**
-
-**”jane”**
-
-**gurgling**
-
-**”coming”**
-
-**gurgling**
-
-**”find… Jane”**
-
-I started crying
-
-I called the sheriff and told him what happened immediately. He came over and we made a plan on what to do, I would leave town as soon as I could, he spent the night at Sarah’s home with me to make sure I was safe. 
-
-In the morning he left for work, and I made plans to stay at a hotel outside of town. 
-
-Right after the sheriff rang, Sarah’s phone rang again. 
-
-I knew this was wrong, we unplugged her landline. I check it and it was still unplugged, chills ran around my body. 
-The machine picked it up again. 
-
-BEEP
-
-**gurgling**
-
-**”see you”**
-
-My blood ran cold.
-
-tap. tap. tap. 
-
-I turned around, to where the sound was…
-At the back window was..
-Me?
-
-It looked exactly like me,
-Completely wet,
-With a very wide mouth, smiling. 
-
-Whatever it was kept tapping the window. 
-
-I was terrified. 
-
-“GO AWAY!” 
-
-I screamed. 
-
-It opened its mouth, and water starting falling out. 
-
-**gurgling**
-
-**”need… you”**
-
-“WHY?!”
-
-**”my… lungs”**
-
-That’s the last thing I remember. 
-
-I’ve been stuck here ever since, it’s cold, dark, wet… I can barley breathe. Every time I talk, water passes through my throat… everyone down here looks like that thing that dragged me down here.. even I am starting to look like them… please send help…
-
--Jane
+The caller then hung up and I didn’t stick around to see if I could spot them. I ran as fast as I could back home. I then took my phone into the backyard and broke it with a sledgehammer. When my parents got home, they were fuming. My parents got mad because i gave them no reason as to why i broke it. So they gave me an old Nokia phone because they thought i dropped or damaged it accidentally. I never told anyone close to me what happened because i was scared he would come back. I just knew that i would NEVER answer a spam caller again.

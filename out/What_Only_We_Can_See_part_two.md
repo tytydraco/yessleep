@@ -15,3 +15,5 @@ The rest of the night, I was terrified to return to the kitchen or even leave th
 I didn’t get any sleep that night. All I could think was that the eyes were just slowly getting closer. Making their way to our room. I was afraid I would close my eyes, open them and they would be surrounding me. Something had to change.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/vagqqr/what_only_we_can_see/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vhtfir/what_only_we_can_see_part_three/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

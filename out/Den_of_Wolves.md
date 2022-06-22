@@ -208,7 +208,7 @@ Inside the tent was a comfortable combination of blankets and pillows made from 
 
 I laughed, then said, “Wait, really?”
 
-Sunday rolled her eyes and took the bottle from me and took a long swing, then swallowed. “Happy?”
+Sunday rolled her eyes and took the bottle from me and took a long swing. “Happy?”
 
 I grabbed the bottle and took a swig of my own, grimaced, and said, “That’s not beer.”
 
@@ -371,7 +371,7 @@ And then everything went dark.
 
 _______________________________
 
-They say if you’re knocked unconscious for longer than a few minutes, you’re probably fixing to die. So when I woke up beneath the night sky, I didn’t know what to think. But, I soon noticed a little mark on my arm indicating they’d injected me with something to put me out longer. 
+They say if you’re knocked unconscious for longer than a few minutes, you’re probably fixing to die. So when I woke up beneath the night sky, I didn’t know what to think. But, I soon noticed a little mark on my arm where they’d injected me with something to put me out longer. 
 
 I sat up and looked around and recognized the spot as the one the family had been camping on. Now empty. All that remained was my backpack, and attached to it was a letter, which read:
 
