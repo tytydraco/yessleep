@@ -16,7 +16,7 @@ Like I said, when the finger trap arrived there were no instructions. It was in 
 
 Jess damn near stepped on the envelope when she came through the front door after her Pilates class downtown. It was waiting for her on the doormat. Both Todd and I were in but hadn’t heard anything come through the mailbox. We were, umm, well look, he was in my room and he had to do a mad dash across the hall in his boxers before Jess turned a corner. Point is, I came to the living room and made a whole show of “*oh yeah I was having a nap I just woke up lol”,* but Jess didn’t look up. She was sitting at the table, envelope already open, staring at the matchbox.
 
-“What’s that?” I asked, taking a seat opposite her after grabbing a coffee.
+“What’s that?” I asked, taking a seat opposite her after grabbing an apple from the fruitbowl.
 
 “Was on the mat, addressed to me, don’t recognize the handwriting though,” Jess replied, turning the matchbox between her fingers. She idly flicked it open, and that’s when we first saw the damn finger trap.
 
@@ -30,7 +30,7 @@ It was hard to miss, right? It was made of golden threads. Not gold threads like
 
 She grinned. “I love ramen, that’s not the same thing. I don’t think ramen’s even Chinese, is it?”
 
-I shrugged. My mouth was dry, I was suddenly thirsty as all hell, and that’s why I got up from the table and headed to the fridge. The mouth dryness wasn’t because of the finger trap, before you get excited. It was because… well, Todd was in his room, Jess’s pilates class wasn’t the only calorie-burningSpotify activity to happen that morning. The only reason I’m bringing my parchedness up is that, en route to the refrigerator, I did what I always do. I turned on our Bluetooth speaker. With no input needed the device connected to my phone, playing the last playlist on Spotfy. I sputtered when the first sensual smooth-saxophone heavy track from my Todd-time mix started blaring into the kitchen, and I quickly shuffled across to my auto curated most-played compilation.
+I shrugged. My mouth was dry, I was suddenly thirsty as all hell, and that’s why I got up from the table and headed to the fridge. The mouth dryness wasn’t because of the finger trap, before you get excited. It was because… well, Todd was in his room, Jess’s pilates class wasn’t the only calorie-burning activity to happen that morning. The only reason I’m bringing my parchedness up is that, en route to the refrigerator, I did what I always do. I turned on our Bluetooth speaker. With no input needed the device connected to my phone, playing the last playlist on Spotify. I sputtered when the first sensual smooth-saxophone heavy track from my Todd-time mix started blaring into the kitchen, and I quickly shuffled across to my auto curated most-played compilation.
 
 You know how I know that Jess and I were supposed to make the damn wishes out loud? The Weathergirls started playing. You know the jam - *It’s Raining Men.*
 

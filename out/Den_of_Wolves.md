@@ -373,6 +373,6 @@ _______________________________
 
 They say if you’re knocked unconscious for longer than a few minutes, you’re probably fixing to die. So when I woke up beneath the night sky, I didn’t know what to think. But, I soon noticed a little mark on my arm where they’d injected me with something to put me out longer. 
 
-I sat up and looked around and recognized the spot as the one the family had been camping on. Now empty. All that remained was my backpack, and attached to it was a letter, which read:
+I sat up and looked around and recognized the spot as the one the family had been camping on. Now empty. All that remained was my backpack, and attached to it was a note, which read:
 
 [*Because you’re a wolf like us.*](https://www.reddit.com/r/FishermanTales/comments/pvh0ue/stories/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
