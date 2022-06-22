@@ -104,3 +104,5 @@
   It stood on equally as bulging legs as its arms, but they were far more animalistic than its upper half, which was far more human in its contours. The scarlet glow from the creature's eyes carved into the darkness, accentuating its feral expression, making it appear even more ravenous as it stared me down. Its entire body flexed with every deep inhale and exhale, making it appear as though it was quite ready to enjoy the fresh meal that trembled before it. 
 
   As it glared down at me, I collapsed to the ground, with the realization my life was about to end causing my legs to feel weakened and numb. I stared up to meet the beast's eyes, filled with that illuminated fury, and I knew I would never see the world outside these woods again. 
+
+[Final](https://www.reddit.com/r/nosleep/comments/vig59d/the_beast_of_carters_lake_final/?utm_medium=android_app&utm_source=share)

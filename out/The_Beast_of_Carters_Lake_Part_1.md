@@ -177,3 +177,5 @@ Have you ever been truly scared? Now, I'm not talking about some drunk driver cu
   I stared up at my friends, who had all gathered up on the patio, feeling a sense of indescribable gratitude, before everything went black.
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/vho8f1/the_beast_of_carters_lake_part_2/?utm_medium=android_app&utm_source=share)
+
+[Final](https://www.reddit.com/r/nosleep/comments/vig59d/the_beast_of_carters_lake_final/?utm_medium=android_app&utm_source=share)
