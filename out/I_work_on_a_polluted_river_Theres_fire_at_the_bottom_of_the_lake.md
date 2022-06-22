@@ -114,4 +114,6 @@ He raised his brows and gave me the tiniest nod before drawing back underwater, 
 
 [1](https://www.reddit.com/r/nosleep/comments/vecm52/i_work_on_and_around_a_polluted_river_i_didnt/?utm_medium=android_app&utm_source=share)
 
+[3](https://www.reddit.com/r/nosleep/comments/vi45ue/i_work_on_a_polluted_river_theres_something_big/?utm_medium=android_app&utm_source=share)
+
 [X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
