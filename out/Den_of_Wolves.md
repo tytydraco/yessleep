@@ -76,7 +76,7 @@ I glanced over at Sunday and Tuesday, still locked in an embrace and gazing at t
 
 “Tonight may be the night that we finally hook up with sisters. Who do you want? That Sunday chick seems to like you. Why don’t you take the whole weekend, and I’ll do Friday and Monday?”
 
-“I don’t think Tuesday would be too happy with that,” I said and discreetly nodded in their direction in time for Mike to see Sunday and Tuesday kissing. Mike grimaced and said, “Yeesh.”
+“I don’t think Tuesday would be too happy with that,” I said and discreetly nodded in their direction in time for Mike to see Sunday and Tuesday kiss. Mike grimaced and said, “Yeesh.”
 
 “Yeah.”
 
