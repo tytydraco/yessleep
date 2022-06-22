@@ -1,4 +1,4 @@
-[Scroll to bottom of link to start at Part 1](http://www.iliveonterrafirma.com)
+[Scroll down the link to start at Part 1](http://iliveonterrafirma.com)
 
 They shuffled in and grabbed an empty table while everyone was looking at Jane, Mark, and Tabitha who were standing in the cafeteria. 
 
