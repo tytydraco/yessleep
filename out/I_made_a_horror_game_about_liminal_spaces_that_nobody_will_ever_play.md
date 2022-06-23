@@ -158,7 +158,7 @@ Something grabbed the back of my sweatshirt. I squirmed away, leaving it in my p
 
 I was on the verge of surrendering to my fate when my salvation appeared before me in the most unlikely and yet ironically fitting form. A red door. It blended so seamlessly with the walls that I saw only its outline, but it was there nonetheless: my way out. I mustered what remaining endurance I had and charged towards it. My lungs were on fire. I couldn't feel my calves anymore—it was like I was running on stilts.
 
-I shut my eyes and threw myself against the door, spilling onto the wet asphalt beyond it. My shoulder and elbow absorbed the brunt of the impact. Thankfully, it wasn't my skull. Still high on adrenaline, I snapped my head back. The door was gone. There was only gray concrete stained with offensive graffiti.
+I shut my eyes and threw myself against the door, spilling onto the wet asphalt beyond it. My shoulder and elbow absorbed the brunt of the impact. Thankfully, it wasn't my skull. Still high on adrenaline, I snapped my head back. The door was gone. There was only gray concrete stained with old graffiti.
 
 I rubbed my bleeding elbow and steadily rose back up, then looked around. I was in the abandoned car park across from my apartment complex—the one that I used as inspiration for the first level I ever created. The morning sun shone through the gap in the outer wall. I broke down crying then and there. It was over. Against all odds, I had somehow survived and made it home. It was too good to be true, and... well... as it turns out...
 
@@ -172,6 +172,6 @@ You don't have to believe me. I wouldn't believe me either, but, hey, thanks for
 
 There's one thing in particular that I can't stop thinking about:
 
-That creepy voice called me "guest185", which implies that there were 184 "guests" that came before me. Did I escape into the reality of some other version of me that got inadvertently sucked into that place as well?
+That creepy voice called me "guest185", which implies that there were 184 "guests" before me. Did I escape into the reality of some other version of me that got inadvertently sucked into that place as well?
 
 You know what? Come to think of it, I don't really want to know.
