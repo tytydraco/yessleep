@@ -2,6 +2,8 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/vj3swb/have_any_of_you_heard_of_the_viewmaster_that/)
+
 So picking up from my previous post, David had just hauled a box with chains around it out of the hole he'd been digging all afternoon and now the chains were off, but he and Frank just looked at the thing with reverence and trepidation. I just wanted to speed things along so I opened the lid.
 
 David and Frank looked like they thought it might explode, but of course nothing so dramatic happened. I reached inside and pulled out the box's two contents: a View-Master. A really old plastic one like the kids had back in the 70s. It was dark brown. There was also a disc that went with it. I was decidedly underwhelmed. I started with “So it's--
@@ -107,3 +109,5 @@ As I pulled away, movement caught my eye. I looked in the rear-view mirror to se
 [Part 1](https://www.reddit.com/r/nosleep/comments/va3vx2/have_any_of_you_heard_of_the_viewmaster_that/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vj3swb/have_any_of_you_heard_of_the_viewmaster_that/)

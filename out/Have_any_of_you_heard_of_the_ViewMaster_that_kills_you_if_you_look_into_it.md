@@ -1,6 +1,8 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/vbeml8/have_any_of_you_heard_of_the_viewmaster_that/) 
+[Part 2](https://www.reddit.com/r/nosleep/comments/vbeml8/have_any_of_you_heard_of_the_viewmaster_that/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vj3swb/have_any_of_you_heard_of_the_viewmaster_that/)
 
 Or makes you go insane? Or shows you your own future death? Or something else just as bad? No? Well neither had I until my husband insisted we track it down .
 
@@ -185,3 +187,5 @@ And so I did, expecting to bring this to its inevitable and uneventful conclusio
 [Part 2](https://www.reddit.com/r/nosleep/comments/vbeml8/have_any_of_you_heard_of_the_viewmaster_that/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vj3swb/have_any_of_you_heard_of_the_viewmaster_that/)
