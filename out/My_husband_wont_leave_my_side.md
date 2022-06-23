@@ -36,7 +36,7 @@ There was a rhythm to his voice and movements alike that I hadn’t noticed befo
 
 “Do you remember,” I said shakily, my hands threatening to draw away from his, “that puppet you made out of wood? I mean, you were really into puppetry at the time. You carved every piece of it. Whatever happened—”
 
-My voice choked off. I recalled my suspicions, brief though they were, two years prior. He’d found out from the doctor, and revealed to me in succinct monotone, that he was sterile. His sudden preoccupation with puppetry—I’d thought it been a way for him to way cope. I had not tried to unlock the study when he was in there, not even when I’d heard two voices coming out of it. *Let him work through it*, I’d thought. *Just a phase*.
+My voice choked off. I recalled my suspicions, brief though they were, two years prior. He’d found out from the doctor, and revealed to me in succinct monotone, that he was sterile. His sudden preoccupation with puppetry—I’d thought it had been a way for him to cope. I had not tried to unlock the study when he was in there, not even when I’d heard two voices coming out of it. *Let him work through it*, I’d thought. *Just a phase*.
 
 I had tried to suggest that we adopt a child, and he’d taken it like a blow every time.
 
