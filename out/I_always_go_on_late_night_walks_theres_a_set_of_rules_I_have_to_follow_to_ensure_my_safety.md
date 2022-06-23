@@ -1,6 +1,6 @@
 I’ve always loved going for walks at night, just something about it feels different, compared to during the day. Ever since I was a kid, i suffered from a lot of insomnia so me and my mom would just go on a lot of walks for me to eventually feel tired.
 
-But when I became older, I’ve become cured from my insomnia because of the walks. But now that I longer have it, it’s just more of a hobby for me now. At first I used to walk during the day, but during the beginning of the year i started to take more walks at night. 
+But when I became older, I’ve become cured from my insomnia thanks to the walks. But now that I no longer have it, it’s just more of a hobby for me now. At first I used to walk during the day, but during the beginning of the year i started to take more walks at night. 
 
 With that being said, my town has a low crime rate. You can walk at night without having a fear of getting robbed, stalked or even killed. I come from a city with a high crime rate, so when I moved. Walking at certain times became more enjoyable without having to be paranoid.
 
