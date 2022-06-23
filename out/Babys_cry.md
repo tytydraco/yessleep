@@ -123,3 +123,29 @@ It wasn't over for some after all.
 I asked our brother's girl if she wanted to help in my baking and she, oblivious to the atmosphere of the room, was delighted to do so.
 
 Our brother then stood at the center of the room, joy evident in his face. 
+
+*"So we came by today to tell you that we are expecting."*
+
+Our parents yelped in excitement and went on to hug and congratulate the couple. My sister and I however met eachother's stare, fearing for the worse. 
+
+After dinner, our brother's girl helped in cleaning the dishes. My sister noticed how her face etched in an uncomfortable manner so she suggested for her to sit it out. 
+
+*"Leave this to us and just be our guest. You've had a long flight after all and I think your feet just needs rest."*
+
+The girl reluctantly did so, trying to look chipper despite what she was actually feeling. 
+
+*"I have something to soothe the pain if they're aching."*
+
+I offered as I dried a plate but before I could even place it down the counter, it smashed into a million pieces at what the girl said. 
+
+*"Oh they're not aching, it just feels like something is clinging."*
+
+Before we could even take our next breaths or even meet eachother's eyes, the sinister wail of a baby's cry mixed with the howl of a dog rang just outside our kitchen door that lead to the backwoods. 
+
+Our terror soon turned tenfold when our brother's girl fell off the chair, clutching her stomach as pain occupied her face. Our parents and brother came in then to help but the girl just kept screaming as her hand twisted her midsection.
+
+I still dialled 911 out of instinct despite knowing that they wouldn't be of help. Chaos ensued in the room as no one knew how to make the girl feel better. 
+
+I saw how her eyes widened in both trepidation and confusion as she bellowed with her hands still on her belly
+
+*"Oh god its trying to get out of me!!!"*
