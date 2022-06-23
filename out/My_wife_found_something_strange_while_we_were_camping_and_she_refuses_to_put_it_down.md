@@ -122,7 +122,7 @@ Somehow, I found her. She was sitting against a tree, hugging herself, her eyes 
 
 I held her, told her we were okay, we were going to be okay. We'd made it.
 
-We decided to head straight to the car and leave rather than wander around in the dying light trying to find out campsite, we'd come back for our gear later.
+We decided to head straight to the car and leave rather than wander around in the dying light trying to find our campsite, we'd come back for our gear later.
 
 We walked back towards the car her hand in mine.
 
