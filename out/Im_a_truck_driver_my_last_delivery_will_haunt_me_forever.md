@@ -752,7 +752,7 @@ I decided to write everything down to make this story immortal, but above all, t
 If you or someone you know has one of the Fluffy Friendz, please, DESTROY IT.
 
 
-It might have something to do with the entity not wanting to be forgotten again. So, if we all work together and destroy every single fluffy friend, we might stop it.
+It might have something to do with the entity not wanting to be forgotten again. So, if we all work together and destroy every single Fluffy Friend, we might stop it.
 
 
 Until then, I'll stargaze in my favorite blue truck, waiting for the universe to take over this ride.
