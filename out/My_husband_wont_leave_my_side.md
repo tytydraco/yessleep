@@ -46,7 +46,7 @@ What had caused me, two years ago, to throw away that puppet and deny I had anyt
 
 Any time I brought it up before I threw it away, he acted like I was imagining things.
 
-I suppose that for him, that puppet was like the only child we never had.
+I suppose that for him, that puppet was like the child we never had.
 
 As I was dwelling on that big hiccup at the table, that down in our marriage, my husband’s hands left mine.
 
