@@ -1,4 +1,4 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/uxv7qa/a_cryptid_killed_my_exbest_friend/) [Part 2](https://www.reddit.com/r/nosleep/comments/v2zbxt/a_cryptid_killed_my_exbest_friend_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/v88tdw/a_cryptid_killed_my_exbest_friend_part_3/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/uxv7qa/a_cryptid_killed_my_exbest_friend/) [Part 2](https://www.reddit.com/r/nosleep/comments/v2zbxt/a_cryptid_killed_my_exbest_friend_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/v88tdw/a_cryptid_killed_my_exbest_friend_part_3/)
 
 &#x200B;
 
@@ -126,7 +126,7 @@ There was a cold pause between us before she continued.
 
 &#x200B;
 
-This was when Isaac mentioned the mental hospital where Dana was committed to. He also instructed Kelly to ask for a nurse by the name of Margaret. Apparently, she owed him a favor from way back.  She found her at the front desk. I asked Kelly what she was like. 
+This was when Isaac mentioned the mental hospital where Dana was committed to. He also instructed Kelly to ask for a nurse by the name of Margaret. Apparently, she owed him a favor from way back.  She found her at the front desk. I asked Kelly what she was like.
 
 &#x200B;
 
@@ -204,7 +204,7 @@ She thought for a moment, trying to find the right words.
 
 &#x200B;
 
-I really didn’t know how else to respond. 
+I really didn’t know how else to respond.
 
 &#x200B;
 
@@ -374,7 +374,7 @@ Margaret searched her memory for the closest answer.
 
 &#x200B;
 
-Kelly felt herself get tense. I did as well while she told this to me. 
+Kelly felt herself get tense. I did as well while she told this to me.
 
 &#x200B;
 
@@ -502,7 +502,7 @@ Despite being afraid of what the answer might be, Kelly knew she needed all the 
 
 &#x200B;
 
-What Margaret said next has given us some insight into how this creature thinks and it’s truly disturbing. 
+What Margaret said next has given us some insight into how this creature thinks and it’s truly disturbing.
 
 &#x200B;
 
@@ -524,7 +524,7 @@ This has given us some confusion. The shapeshifter was fine being on camera when
 
 &#x200B;
 
-“Eight days. There was talk from doctors about transferring her. Try as we might, we were stumped so we thought a better-equipped hospital would be able to figure out how these things were happening.” 
+“Eight days. There was talk from doctors about transferring her. Try as we might, we were stumped so we thought a better-equipped hospital would be able to figure out how these things were happening.”
 
 &#x200B;
 
@@ -546,7 +546,7 @@ Kelly already knew the answer to that question before she asked it.
 
 &#x200B;
 
-Margaret explained that Dana’s head was the only part of her body that could still be made out. The rest of her was described as resembling bloody shredded beef. 
+Margaret explained that Dana’s head was the only part of her body that could still be made out. The rest of her was described as resembling bloody shredded beef.
 
 &#x200B;
 
@@ -640,7 +640,7 @@ Kelly told her about the shapeshifter. Margaret listened, slowly becoming more h
 
 &#x200B;
 
-What Margaret saw occurred the day prior to her resuming her job. 
+What Margaret saw occurred the day prior to her resuming her job.
 
 &#x200B;
 
@@ -715,3 +715,7 @@ Kelly gave her a weak smile.
 &#x200B;
 
 And then she left. The next interview is going to be a difficult one and I don’t think I’ll be able to handle it alone. Therefore, I’m going to talk to Kelly about coming along. I’ll share what we learn from them in my next post. Hopefully, I’ll be able to sleep without dreaming about that horrifying thing running [across](https://www.reddit.com/r/StoriesFromRose/) the [road.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/vinvsc/a\_cryptid\_killed\_my\_exbest\_friend\_part\_5/](https://www.reddit.com/r/nosleep/comments/vinvsc/a_cryptid_killed_my_exbest_friend_part_5/) (We got help from a teacher.)

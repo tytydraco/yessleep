@@ -1,0 +1,47 @@
+ [Picture for context.](https://imgur.com/a/8K8YwkN) 
+
+We moved to Fort Madison Iowa when I was twelve, because my father was a train dispatcher. This meant he coordinated the movement of trains that crossed west of the Mississippi River. It wasn’t a special job in any way, but it did mean he worked long hours and he didn’t have a set schedule either. I’d go long periods of time without seeing him, and thus our relationship wasn’t great at this time. 
+
+If you were passing through this town you might not think much of it, aside from maybe the interesting architecture that’s sprawled across crowded suburban streets. We moved to the edge of town and I went to middle school. It turned out the town was a hotbed of activity, Many of my schoolmates reported seeing apparitions of men walking the streets. Oftentimes they looked like they were wearing old army uniforms. Whenever I told my peers where I lived however, they mentioned a place called the “Jazz House.”
+
+Apparently this house (the “Jazz House”) was somewhat of a well known oddity around town. I would often drive by the house with my mother, and I became quite familiar with it over time. It isn’t so much the house itself that was the oddity, but rather who, or what was inhabiting it. If you were to observe the house between the hours 10pm on Friday, and 1am on Saturday, then you might have encountered two silhouettes dancing behind the window curtain on the second floor. The house would emanate Jazz. Then on hot summer days you might encounter the inhabitants resting on the porch. People called them Dave and Leonard.  One might say they look like “mannequins.” After a few years of living in Fort Madison this is most of the information I gathered, except for one warning. “Do not touch, or even approach them!” I was naïve, but even at that time, the thought of something happening to me was enough to avoid walking up to the house.
+
+A few years later my cousin would come stay with our family for the summer. He was entering his Sophomore year and I was about to become a Freshman. We got along fairly well, but we were both young and dumb. We’d spend a lot of time mucking about in the woods. The “Jazz House” was on the way to and from the woods, but I assumed if I told Roland (my cousin) about the “Jazz House,” he might ignore the warning. So I kept it to myself.
+
+At one point we found a BMX, Not far in. We rode around on my parents’ and my bike. We had a really good time, but eventually we resorted to things like lighting off fireworks and progressively doing dumber and dumber stuff. I secretly feared something could happen to us, but I didn’t protest either my or Roland’s actions.
+
+During that summer my father decided he’d show me how his job was done. Some systems were semi digital at this point, but my father’s was not one of them. He relied heavily on a system of time cards and radios. They could nail down very precise timing for the trains. My father had me learn the timings and confer with me on where to route the trains. I did it for a few days. My dad said it was “to teach you how real jobs work,” but I think he was secretly using it as an excuse to spend time with me.
+
+When I was done working with my father, Roland asked me out about the Jazz House. He said he saw the “mannequins” and wanted to know what was up with them. Roland began to pressure me by saying as my cousin he had to know. I refused at first, but he was relentless and eventually I caved. He didn’t believe me, but I explained to him I had been told this information from multiple sources. 
+
+Towards the end of the summer Roland and I were walking back from the woods. We walked by the Jazz house.. I had a disposable camera and [I took a picture of Dave and Leonard.](https://imgur.com/a/8K8YwkN) Then Roland said the words, “Hey watch this.”
+
+Roland ran up to the porch and acted as if he were about to touch Dave. My reaction was to run up and stop him. I didn’t realize he was joking around and I went to grab his hand, but on the last step I tripped. Two things happened almost simultaneously. I was looking at Roland, but I touched what I felt like rough and cold skin. Then Roland’s face went from that of surprise to a dreadful look I will never forget. He was looking past me, then I turned to see both Dave and Leonard in a fixed position facing me. 
+
+Their sudden change of position frightened me (as that's the reason I sprinted home with Roland), but whatever Roland had seen had given him extreme anxiety. The experience was still fresh in my mind and I was still processing what happened. While hiding out in the backyard I tried to talk with Roland on what he saw, but he wouldn’t budge. He stayed somewhat catatonic for the rest of the day into the evening. Dinner was awkward and my mother didn’t know why.
+
+Sleep came easier than it probably should have, but it’d be just a few hours later that I was awoken to someone rubbing me on the shoulder.
+
+“Terri, they’re here.” I heard a familiar voice quietly say. I rolled over in my bed to see Roland crouching beside me.
+
+“Roland, wha…”
+
+I was cut off by Roland repeating, “Those “mannequins” or whatever, they’re here!” I heard Roland exclaim in a whispered voice.
+
+That’s when I heard something brush up against my bedroom window. I grabbed a baseball bat that happened to be in my room from little league days and I approached the window. Then I quickly looked outside. I quickly realized it was a tree scraping against the window. Breathing deep I turned to reassure Roland, but that’s when I noticed something in the street. Two black silhouettes stood in the middle of the street not far from my house. I made the quick decision to lock all the doors and windows, but before I finished the silhouettes were gone.
+
+The next day I was given the news that Roland was going home early. I didn’t even get the information from Roland, but rather in passing from my mother. I was upset, but I understood why. Roland was still quiet and disconnected. He refused to go to the woods. That night he asked if he could sleep in my room. I agreed. I was really tired and went to bed, but it was somewhat hot and I awoke a few hours later, because I was thirsty. While getting out I suddenly realized Roland was staring out my window. Roland then motioned for me to come over and to be quiet. All the lights were on in the Jazz house. I noticed two silhouettes stood motionless in the second story window. Then suddenly all the lights went out.
+
+“No. No. No. They’re coming!” Roland cried.
+
+It wasn’t long before silhouettes could be seen in the street. I tried to calm Roland down, but I was secretly freaking out myself. That’s when I came to the conclusion I had to tell my mother I told Roland to wait in my room as I attempted to wake my mother up. By the time we made it to my room it was empty and the window was open. Roland was nowhere to be seen.
+
+We checked the rest of the house. My mother called the police and then my father. When I told the police about the Jazz House, they didn’t buy my story, but they investigated the house regardless. They even went inside and nothing was there. My father started to drive us around town. We drove by where he could run off too, by the convenient store down the street, to the basketball courts and even by the river
+
+That’s when I recalled the woods. I told my father we’d occasionally go there and that Roland could have gone to that location. I remember from what I learned working with my dad that a train was scheduled to pass by in twenty minutes. My dad could have sworn he heard something in the woods and he told me to wait in the truck. He told me to keep the door locked no matter what. He grabbed a flashlight and crowbar and ventured into the woods. After about fifteen minutes I was getting impatient. That’s when I saw a black silhouette standing on the train tracks. I thought it looked remarkably like Roland. I didn’t want to risk it though.
+
+It wouldn’t be long I realized the silhouettes foot was somehow caught on the track. I could hear a train coming. I had to make the quick decision if I wanted to save  whatever it was on the track. I jumped out of the car and started running towards the silhouette. Soon I realized it wasn’t Roland, it was Dave. The mannequin's face began to distort that should have truly disturb me. It was seemingly melting or “bleeding,” but it was just the texture of the face. I could have easily let the mannequin by the oncoming train, but for some reason I pushed it out of the way at the last moment.
+
+I couldn’t see the mannequin as the train passed, but by the time the train passed, nothing was there. I walked back to my car in disbelief. Sometime after my father came running back to the car, with Roland over his shoulder. He was unconscious and we immediately drove to the hospital. Roland had apparently passed out from dehydration, but he had no recollection after the point of being in my room, or how he ended up in the woods.
+
+At one point Roland and I were alone in the hospital. I asked him if he saw the mannequins’ faces distort. He finally agreed that’s what gave him anxiety. I didn’t tell him about saving Dave. Roland would go home not long after getting out of the hospital. The Jazz House never lit up again, I wonder to this day if saving Dave had any connection to us finding Roland.
