@@ -1,4 +1,3 @@
-I’m a terrible brother.
 I shoved the little shit out of the way as I strode towards the door, ignoring his whine of protest. I slammed the door, not bothering to say goodbye. 
 
 I had no patience for that creepy kid. 
@@ -45,9 +44,9 @@ I shut my eyes and rubbed my temples in frustration.
 
 Kane was about to argue, when we heard a cry ring out ahead of us. I ran forward, recognising that cry. Kane followed suit. Up ahead, two kids were hovering over a small, curled up figure. 
 
-I ran forward, and saw that the two kids were wailing on Mike, who was sobbing, and covering his head with his arms. Redness flashed across my vision. Before I knew it, 
+I ran forward, and saw that the two kids were wailing on Mike, who was sobbing, and covering his head with his arms. Redness flashed across my vision. 
 
-I had grabbed both kids by the scruff of their necks, and violently pulled them off Mike. 
+Before I knew it, I had grabbed both kids by the scruff of their necks, and violently pulled them off Mike. 
 
 “You like beating up on kids smaller than you? You like ganging up on others, you lil cowards?” I thundered, shaking them by the collar. 
 
