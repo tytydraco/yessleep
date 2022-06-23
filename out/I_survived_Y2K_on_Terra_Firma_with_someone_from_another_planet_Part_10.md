@@ -1,4 +1,4 @@
-[Scroll down the link to start at Part 1](http://iliveonterrafirma.com)
+
 
 They shuffled in and grabbed an empty table while everyone was looking at Jane, Mark, and Tabitha who were standing in the cafeteria. 
 
@@ -39,3 +39,5 @@ Jane walked towards the middle of the room and clapped her hands and asked every
 Peter looked at Tabitha, he was at a loss, while she looked lost in thought while absent-mindedly petting Nara. 
 
 Her head suddenly snapped up, as she said, "I have an idea".
+
+[TF](http://www.iliveonterrafirma.com)

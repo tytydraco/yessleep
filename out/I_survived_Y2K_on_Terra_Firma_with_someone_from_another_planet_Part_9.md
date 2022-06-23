@@ -1,4 +1,4 @@
-[Click here and scroll down to start from Part 1](http://www.iliveonterrafirma.com)
+
 
 They stood around waiting anxiously for Mark to get there. 
 
@@ -74,3 +74,5 @@ Troy seemed to pick up on it and thankfully seemed to move past him not being co
 He was still in shock that it was really Troy, from another whole ass planet, standing in front of him. 
 
 He saw movement of Nara walking up to Troy as the balcony door opened and Tabitha told them that Mark had an announcement to make and to come inside.
+
+[TF](http://www.iliveonterrafirma.com)

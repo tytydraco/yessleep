@@ -2,7 +2,7 @@ I thought we had everything.
 
 House in a nice neighborhood. Stable income. 401K and healthcare. Love. The whole nine yards. The only thing that was missing was children. Now I find myself thankful there were no kids.
 
-A few days ago, he started doing this thing where he would not leave me alone for a second. Now, don’t get me wrong, initially I enjoyed the extra attention. For the first time since we’d started dating he went into each of my favorite stores with me, attending to my needs like he was my personal assistant. I couldn't stop laughing. I asked him if it was a viral online thing people were daring each other to do for their spouses. Like, *take a day for your significant others*.
+A few days ago, he started doing this thing where he would not leave me alone for one second. Now, don’t get me wrong, initially I enjoyed the extra attention. For the first time since we’d started dating he went into each of my favorite stores with me, attending to my needs like he was my personal assistant. I couldn't stop laughing. I asked him if it was a viral online thing people were daring each other to do for their spouses. Like, *take a day for your significant others*.
 
 “I just love you so much,” he’d reply, or versions of that.
 
@@ -64,7 +64,7 @@ I got up from the table and ran down the hallway.
 
 “There are rituals associated with puppetry, you know!” he yelled after me. “Honeycakes, we’re in the middle of one right now. The human body is another kind of puppet, right? It can also be a membranophone instrument, with its skin stretched tight over bone and viscera. Because it’s able to do both, the human body is a better conductor than wood, baby. I’ve been poundin’ you out a song and dancin’ you a jig. You won’t throw *me* into the garbage! I’m never gonna leave your side.”
 
-Now I am locked inside our bedroom. My fingers have been slow to type. It’s as though something is off with my circulation. I can’t shake the feeling that my husband, or whatever controls him, [is inside this room with me.](https://www.reddit.com/r/Rick_the_Intern/comments/v73xia/facilities_update/)
+Now I am locked inside our bedroom. My fingers have been slow to type. It’s as though something is off about my circulation. I can’t shake the feeling that my husband, or whatever controls him, [is inside this room with me.](https://www.reddit.com/r/Rick_the_Intern/comments/v73xia/facilities_update/)
 
 &#x200B;
 
