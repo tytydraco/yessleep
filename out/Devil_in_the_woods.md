@@ -136,6 +136,6 @@ I grabbed the keys off the side of my Aunt’s car and promised her that I would
 
 So here I sit in this hotel waiting for nightfall, next to town which is pretty much deserted except for some hardcore locals. My shotgun is loaded, two flashlights at the ready with plenty of battery, knives, a combat jacket, and most importantly a few tanks of gasoline.
 
-Nightfall approaches, I hear a blood-curdling howl come from the woods near the hotel, the thing must know I'm here. I must end my story here, I will kill this thing even if it means sacrificing myself and setting this whole god damn place on fire, it ends here. Learn from this, nature can be amazing and beautiful it can also be deadly, forests portray that contrast like no other. From afar they look breathtaking but within, the silence, emptiness, and stillness hide the nightmares we fear.
+Nightfall approaches, I hear a blood-curdling howl come from the woods near the hotel, the thing must know I'm here. I must end my story here, I will kill this thing even if it means sacrificing myself and setting that whole god damn forest on fire, it ends here. Learn from this, nature can be amazing and beautiful it can also be deadly, forests portray that contrast like no other. From afar they look breathtaking but within, the silence, emptiness, and stillness hide the nightmares we fear.
 
 My name is Andy Thompson, I wish you all the luck in the world, thank you for hearing my story. Goodbye.

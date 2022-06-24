@@ -78,7 +78,7 @@ A cleansing was performed then but despite no longer feeling the evil entity on 
 
 *"I don't know about the others, if they were haunted too, but I hope that they do something before it does something to them."*
 
-She opted to open a small business instead of returning to her profession. Our parents understood of course but not to this level, they only knew about the surface and not its roots. 
+She opted to open a small business instead of returning to her profession while renting an apartment just outside our neighborhood. Our parents understood of course but not to this level, they only knew about the surface and not its roots. 
 
 A little search here and there and my sister and I found ourselves visiting the grave of the baby to which I learned had been a boy. 
 
