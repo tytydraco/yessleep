@@ -1,0 +1,13 @@
+I live in a small town in Kentucky where most of us guys are considered “Red Necks” cause we all live on farms, wear boots, drive trucks, etc.. We have get together often where we have bonfires, fish, ride dirt bikes and four wheelers. 
+
+This past fall of 2021 one of my buddies had a bonfire at his farm. Three or four of us went out to the big ole pond he has out on his property and was fishin (they can all vouch for this). We was sittin there fishin and realized what looked to be a girl sittin on the other side of the pond. We didn’t think nothin about it cause there were a lot of people at this bonfire. 
+
+We went on fishin for bout an hour and a half until the sun started goin down. The girl hadn’t moved the whole time so we figured she was just tannin and enjoying the weather. I’d forgotten all about her by the time we got done fishin. We started hearin what we thought to be a coyote hollerin but it was different. I know coyotes sound like human screams but this was far too loud and dragged out. 
+
+Growin up hunting, I know what coyotes sound like. This one sounded like it was either hurt really bad or somethin else wrong with it. At this point I remembered the girl. I looked back over in that direction and saw what looked like a horse standing where the girl had been. It was just standing there looking in our direction. I got my friends attention and we set there and watched it for about 5 seconds before it reared up and then walked off into the woods. 
+
+A little weirded out we went back to the house and asked my buddy if one of his horses got out. He told us that none of his horses were on the farm and that he had recently moved him over to his dads farm to give his fields a break. We told him about the girl by the pond and the horse and he said that everyone that came out to the bonfire was either by the fire or playing corn hole, except for us cause we had been fishin. 
+
+At this point we had considered the the possibility of a skin-Walker. The thought of that bein the case made me feel uneasy and sick to the stomach. We decided to get some spotlights and go take a look around. We never saw any horse but while looking we found what looked to be a burial ground. Rocks spaced out in a weird pattern and engravings on the rocks. We went back in the morning and I found an arrow head laying on a patch of moss beside a rock. I picked it up and as soon as I did we heard a whistle that could chill your spine in the hottest weather. None of us had been drinkin or anything like that so there’s no way it was just us hearin things. 
+
+I was always borderline about believin in skin-walkers but after that night I was convinced. No one can ever change my mind now
