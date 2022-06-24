@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/vedvlc/my_study_of_cave_paintings_led_too_deep/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/vedvlc/my_study_of_cave_paintings_led_too_deep/) [Part 3](https://www.reddit.com/r/nosleep/comments/vjqjxn/my_study_of_cave_paintings_led_too_deep/)
 
 A mushroom forager discovered the cave paintings by digging out a mud plug at the back of a minor cave already known to locals. This opened a keyhole to a chamber untouched since the Upper Paleolithic. My father was the first archaeologist there, and he called for me once my studies were done and only a dissertation was in the way of my doctorate. I considered refusing his offer—it already felt like I was coming up in his shadow—but the data he sent pointed to a discovery that could rewrite the human timeline.
 

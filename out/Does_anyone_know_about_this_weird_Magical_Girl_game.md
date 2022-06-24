@@ -1,0 +1,13 @@
+Um Trigger warning for Suicide and implied abuse and talked about gore?
+
+Hi, um, I really don’t know what to make of this, also sorry if the formate is weird, I’m not getting on my fucking computer after what I saw.
+
+Okay, I should probably make this make sense, I started wondering what games I played in my childhood, so I when to my Dad’s house and asked him about my old stuff, and he said “Oh you were always obsessed about Magical Girls so I got you this Game called “Magical Girl Dessert Revolution!” He chuckled, so I asked him, “Do you still have it?”. He nodded, I WISHED TO FUCKING GOD HE DIDN’T. He told me “Its in the attic”
+
+So after searching the attic for my old/childhood stuff, I found the game, it was your standard Nintendo DS game. So I found my old Nintendo DS but it didn’t even turn on so I couldn’t even play this game, but then I remember “Hey, people play old games on computers now! I could probably do something to play this game!”
+
+So after leaving my dad’s house after a while and hours trying to get the game onto my computer, I started play the damn game. It was your standard game for girl, a dress up for your normal girl and your dessert Magical Girl(Woah!!) I had an old save File, but I couldn’t get into, so hey! Probably just a small glitch! So I finally started to play the game and it was fucking weird, I tried to look up gameplays to know what the fuck I should do and nothing came up so this game is unknown then A FUCKING JUMP-SCARE UP A GIRL DYING. Not the “Shes dead” type but the one where I can see her taking A FUCKING SWAN DIVE OF THE ROOF. I felt sick. The girl looked like one of my old friends who killed herself, but never mind that, I didn’t even think about it and continue playing, then my character when she got home her FUCKING MOM IMPLIED TO FUCKING BEAT HER WHEN SHE EVER SHE DID NORMAL KID STUFF. So somehow my dad got a game that was probably meant for adults but they thought “Hey! Lets make this a kids game!” So I tried to look up the game up, but…I couldn’t find anything!! I swear to you I’m not fucking drinking!!!
+
+The game was okay after the mom part but then there was a fucking hyper realistic jump-scare, it looked like my mom but with her being literally torn apart, I felt like throwing up. So I closed the game but it wouldn’t closed. I tried so hard to close it!! And then a jump-scare of my character mom in a realistic art style and basically a scream that sound like a child made it. I fucking closed the computer and when into a different room quickly.
+
+So can someone help me? What do I do now?

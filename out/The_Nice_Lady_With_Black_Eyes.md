@@ -25,3 +25,5 @@ Our grandma went to search for us, and completely freaked out when she found us 
 The reason I'm bringing it up is because in a few days I'm going back to visit my grandparents along with Nicole, and she's been mentioning talking with them about the woman in the basement. She got reminded of the lady when we've been talking about our time there, and she's excited at the thought of seeing her again. I doubt we'd get any answers, since I asked them about it before and they refused to tell me anything, but who knows? Maybe they'd answer to Nicole.
 
 Besides, this would not be the only weird that happened to us. I could share, since the two of us have been recalling all the weird things. Anyone want a story of how my sister flirted with a ghost and got away with it?
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vjqh76/ever_flirted_with_a_ghost/)

@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/v12stj/the_only_warning_about_pendle_hill_part_1/?utm_medium=android_app&utm_source=share) [Part 3](https://www.reddit.com/r/nosleep/comments/v8tmhc/the_only_warning_about_pendle_hill_part_3/?utm_medium=android_app&utm_source=share)
+[Part 1](https://www.reddit.com/r/nosleep/comments/v12stj/the_only_warning_about_pendle_hill_part_1/?utm_medium=android_app&utm_source=share) [Part 3](https://www.reddit.com/r/nosleep/comments/v8tmhc/the_only_warning_about_pendle_hill_part_3/?utm_medium=android_app&utm_source=share) [Part 4](https://www.reddit.com/r/nosleep/comments/vjluqe/the_only_warning_about_pendle_hill_part_4/?utm_medium=android_app&utm_source=share)
 
 It was around 2am when I had gotten home and seen this grimoire on my bed. I immediately went into panic mode - had someone broken in? Lorenzo, my best mate, he's the only one who has a key to my house. Maybe it was a prank? I'd better check just in case.
 
@@ -33,4 +33,4 @@ This was too creepy now. I love the power rush, but being able to heal yourself 
 
 "Man, you're not gonna believe this…"
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/v12stj/the_only_warning_about_pendle_hill_part_1/?utm_medium=android_app&utm_source=share) [Part 3](https://www.reddit.com/r/nosleep/comments/v8tmhc/the_only_warning_about_pendle_hill_part_3/?utm_medium=android_app&utm_source=share)
+[Part 1](https://www.reddit.com/r/nosleep/comments/v12stj/the_only_warning_about_pendle_hill_part_1/?utm_medium=android_app&utm_source=share) [Part 3](https://www.reddit.com/r/nosleep/comments/v8tmhc/the_only_warning_about_pendle_hill_part_3/?utm_medium=android_app&utm_source=share) [Part 4](https://www.reddit.com/r/nosleep/comments/vjluqe/the_only_warning_about_pendle_hill_part_4/?utm_medium=android_app&utm_source=share)
