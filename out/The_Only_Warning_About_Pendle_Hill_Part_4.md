@@ -22,7 +22,7 @@ I sat bolt upright, gasping for breath. I quickly jumped out of bed and spun in 
 
 "That's right… that's right…" the wind seemed to whisper. It couldn't be Beth out here in the real world; it was just a crazy dream because of what I saw on Pendle Hill… nobody could have that sort of power.
 
----
+___
 
 I decided to ignore the dreams and voices for the next few days. Nothing major happened, just people calling my name while I was alone, and seeing Beth's face in my ordinary dreams. It's more like she was reminding me she was there than trying to hurt me. I just needed Lorenzo to hurry up with the research before she got pissy again.
 

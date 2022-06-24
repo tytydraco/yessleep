@@ -28,7 +28,7 @@ I backed away, and tore my gaze away from the paper. Then I ran.
 
 I sat down on the subway, enjoying the monotony of the train on the tracks. It was a cold morning, and I was already sweating bullets. 
 
-Sitting in front of me are three businessmen. As I watch, my eyes nearly closing, their unintelligible conversation dwindled into piggy snorts and hooves burst out from their hands.
+Sitting in front of me were three businessmen. As I watched my eyes nearly closing, their unintelligible conversation dwindled into piggy snorts and hooves burst out from their hands.
 
 The headlines from this morning rattled around in my head. I was alert, my breath coming out in short gasps.
 

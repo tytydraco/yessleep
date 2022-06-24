@@ -1,16 +1,14 @@
-Please enter your password \_  
-\*\*\*\*\*\*\*\*\*
+Please enter your password \_\*\*\*\*\*\*\*\*\*
 
-/ACCESS GRANTED/  
-Loading Log 01 of Incident 16...
+/ACCESS GRANTED/Loading Log 01 of Incident 16...
 
-Loading complete. 
+Loading complete.
 
 Displaying current list of operator...
 
-1-1 : Cpt. Lev 
+1-1 : Cpt. Lev
 
-1-2 : Lt. James 
+1-2 : Lt. James
 
 1-3 : Lt. Charles
 
@@ -22,7 +20,7 @@ Displaying current list of operator...
 
 1-7 : Pvt. Hamid
 
-Log begins : 
+Log begins :
 
 04:30 : 1-2  : Status : Ready.
 
@@ -44,7 +42,7 @@ Switching to personnel radio...
 
 04:44 : Henry : "What? Why? We are not suppose to use that tunnel. Th-"
 
-04:44 : Charles : "Shut up. The higher-ups gave us the greenlight." 
+04:44 : Charles : "Shut up. The higher-ups gave us the greenlight."
 
 04:45 : Henry : "But-"
 
@@ -94,7 +92,7 @@ Switching to personnel radio...
 
 04:48 : Hamid : "Ah come on, try talking with us sometime yea? What about you- Huh? The fuck is that? Wait, the tracker is beeping..."
 
-04:51 : Jack : "We got something running towards us, 20 meters. Get ready. Call the other guys." 
+04:51 : Jack : "We got something running towards us, 20 meters. Get ready. Call the other guys."
 
 04:52 : Don : "15 meters! 10 meters, what the fuck? 7 meters, I don't see it! Hamid!"
 
@@ -108,9 +106,9 @@ Switching to personnel radio...
 
 04:53 : Jack : "Hamid is down! I repeat, 1-7 is down! HQ do you copy?!"
 
-04:53 : Loud gunshots can be heard. 
+04:53 : Loud gunshots can be heard.
 
-04:53 : Charles : "Don! Answer us, what the fuck is happening over there?! I'm sending Henry to assist you!" 
+04:53 : Charles : "Don! Answer us, what the fuck is happening over there?! I'm sending Henry to assist you!"
 
 04:53 : Don : "I can't connect to HQ! Something is fucking up our connection! Hey! Move!"
 
@@ -122,7 +120,7 @@ Switching to drone footage...
 
 04:54 : Lobo leaves the area and exit the sensor range.
 
-04:54 : The remaining operators has entered the tunnel. 
+04:54 : The remaining operators has entered the tunnel.
 
 View analysis ? \_
 
@@ -130,11 +128,11 @@ Loading analysis...
 
 1-1 : Status : Alive
 
-1-2 : Status : Alive 
+1-2 : Status : Alive
 
-1-3 : Status : Alive 
+1-3 : Status : Alive
 
-1-4 : Status : Alive 
+1-4 : Status : Alive
 
 1-5 : Status : ???
 
@@ -143,3 +141,5 @@ Loading analysis...
 1-7 : Status : Deceased
 
 WARNING! Low battery! Please recharge your device.
+
+Next log : [https://www.reddit.com/r/nosleep/comments/vjmj8k/log\_02\_incident\_16\_the\_second\_attack\_part\_2/](https://www.reddit.com/r/nosleep/comments/vjmj8k/log_02_incident_16_the_second_attack_part_2/)

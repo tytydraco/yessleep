@@ -166,4 +166,4 @@ This hit me like a truck. I was scared shitless remembering the time when my sca
 
 &#x200B;
 
-{ [PART 5](https://www.reddit.com/r/nosleep/comments/vd4w7b/whats_worse_than_a_psychopath_part_5/) }{ [PART 6](https://www.reddit.com/r/nosleep/comments/vf6srd/whats_worse_than_a_psychopath_part_6/) } 
+{ [PART 5](https://www.reddit.com/r/nosleep/comments/vd4w7b/whats_worse_than_a_psychopath_part_5/) }{ [PART 6](https://www.reddit.com/r/nosleep/comments/vf6srd/whats_worse_than_a_psychopath_part_6/) }{ [PART 7](https://www.reddit.com/r/nosleep/comments/vjm3sn/whats_worse_than_a_psychopath_part_7/) }

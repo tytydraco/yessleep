@@ -316,4 +316,4 @@ I was about to return to the naked man when something hard hit me over my head. 
 
 &#x200B;
 
-{ [PART 6](https://www.reddit.com/r/nosleep/comments/vf6srd/whats_worse_than_a_psychopath_part_6/) }
+{ [PART 6](https://www.reddit.com/r/nosleep/comments/vf6srd/whats_worse_than_a_psychopath_part_6/) }{ [PART 7](https://www.reddit.com/r/nosleep/comments/vjm3sn/whats_worse_than_a_psychopath_part_7/) }
