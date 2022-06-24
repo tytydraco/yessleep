@@ -18,7 +18,7 @@ What must be three P.M.: Awake. Outside of the window is nothing. No car in the 
 
 *Two fine strings at the start of each.*
 
-A sole, shriveled shrimp atop the far end of the frying pan, shifting with such a fervor as to stir the concoction contained within. Little, tiny grains of—
+A sole, shriveled shrimp atop the far end of the frying pan, shifting with such a fervor so as to stir the concoction contained within. Little, tiny grains of—
 
 *I in a pit of Fibonacci flesh, genetic perfection, a golden, true assortment of spirals ensconcing me in tandem.*
 
