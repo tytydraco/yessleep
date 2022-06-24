@@ -34,7 +34,7 @@ I blinked in confusion and leaned forward in my chair. I certainly hadn't put th
 
 With Alex still on the call, I booted up my level editor and clipped up to the seventh floor—the same floor that he was on. Sure enough, the bright red door was on my version of the project as well. It appeared to be part of the texture pack that I was using. Not sure how, but I guessed I'd somehow missed it during my numerous playthroughs. It was a fun little WTF moment, but obviously nothing we were about to lose sleep over. I even briefly considered keeping it there as an inside joke, but ended up replacing the door with a more fitting surface.
 
-I began work on the second level just a few days later. It was inspired by a reoccurring dream I've had— a looping, white, sterile corridor with rows of yellow lockers on each side. The player would've been dropped at the end of it and given no further directive. There were no puzzles to be solved, no hidden switch that would reveal some secret passageway. That was sort of the point. 
+I began work on the second level just a few days later. It was inspired by a reoccurring dream I've had— a looping, white, sterile corridor with rows of yellow lockers on each side. The player would've been dropped at the end of it and given no further directive. There were no puzzles to be solved, no hidden switch that would reveal some secret passageway. That was sort of the point.
 
 I remember thinking I was being so clever, so abstract; as though I was on the verge of creating the pièce de résistance of all walking sims that would be dissected and theorized on for years to come.  In reality, all I did was make a tech demo using a bunch of premade assets. The Stanley Parable it most definitely was not.
 
@@ -158,7 +158,7 @@ Something grabbed the back of my sweatshirt. I squirmed away, leaving it in my p
 
 I was on the verge of surrendering to my fate when my salvation appeared before me in the most unlikely and yet ironically fitting form. A red door. It blended so seamlessly with the walls that I saw only its outline, but it was there nonetheless: my way out. I mustered what remaining endurance I had and charged towards it. My lungs were on fire. I couldn't feel my calves anymore—it was like I was running on stilts.
 
-I shut my eyes and threw myself against the door, spilling onto the wet asphalt beyond it. My shoulder and elbow absorbed the brunt of the impact. Thankfully, it wasn't my skull. Still high on adrenaline, I snapped my head back. The door was gone. There was only gray concrete stained with old graffiti.
+I shut my eyes and threw myself against the door, spilling onto the wet asphalt beyond it. My shoulder and elbow absorbed the brunt of the impact. Thankfully, it wasn't my skull. Still high on adrenaline, I snapped my head back. The door was gone. There was only concrete stained with old graffiti.
 
 I rubbed my bleeding elbow and steadily rose back up, then looked around. I was in the abandoned car park across from my apartment complex—the one that I used as inspiration for the first level I ever created. The morning sun shone through the gap in the outer wall. I broke down crying then and there. It was over. Against all odds, I had somehow survived and made it home. It was too good to be true, and... well... as it turns out...
 
