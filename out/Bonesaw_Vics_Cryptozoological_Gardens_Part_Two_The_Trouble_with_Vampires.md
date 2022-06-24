@@ -1,4 +1,4 @@
-Every now and then, fate will step onto the mound and throw one hell of a curveball at you. One day, you’re an unemployed factory worker with forty two bucks in your bank account, and the next, you’re strapping yourself into a Kevlar bodysuit and scooping up goblin shit with a dustpan. Yessir, life sure can be funny like that.
+The Nineties were a [wild time](https://www.reddit.com/r/nosleep/comments/veo2v6/bonesaw_vics_cryptozoological_gardens) for me, but not because of the sex, drugs and rock 'n roll; one day, I was an unemployed factory worker with forty two bucks in my bank account, and the next, I was strapping myself into a Kevlar bodysuit and scooping up goblin shit with a dustpan. Yessir, life sure can be funny like that.
 
 As it turns out, none of the Caretakers or their assistants used their real names at the zoo. The unwritten rule was that you couldn’t choose your own pseudonym; your name had to be chosen for you by the other Caretakers. In the meantime, new recruits such as myself were known as ‘hey you’, or more often, the others just ignored you. It was a decidedly frosty work environment.
 
