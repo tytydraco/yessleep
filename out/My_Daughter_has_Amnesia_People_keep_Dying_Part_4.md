@@ -272,7 +272,7 @@ The theater roared. People were shouting, cameras pointed. Somewhere, a small bo
 
 Suddenly, everyone in the theater was throwing popcorn. Then came the drinks. Then the seats flew off their hinges. People thumped as their asses hit the sticky floor. 
 
-Daphne was delighted
+Daphne was delighted.
 
 People panicked. The lights blinked on and off, the characters in the movie started shouting “HIS FAULT. NOT MINE. CHUCK. CHUCK DID THIS. NOT ME. HIIIIIIIIM.”
 
