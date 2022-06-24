@@ -1,5 +1,3 @@
-This isn’t one of those “that time I got arrested” stories that you might tell your friends while out at a bar, but I wish it had been. A man saved my life just three weeks and four days ago, and unfortunately, it was from the police themselves.
-
 Summer started off with a kick this year. It was blazing hot out and everyone in my city was outside, enjoying the sunshine and suffering from the humidity. Quarantine must have done a number on us, making the blistering heat more bearable than locking up indoors again for even a second more than we have to.
 
 I’m a recent college grad and I’ve been working odd jobs like DoorDash and TaskRabbit, supplementing my income until I can finally land the job I actually studied for. Because of this I found myself outside that day, suffering alongside everyone else in the heat until I eventually found myself nearly dying from thirst.
