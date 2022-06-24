@@ -22,7 +22,7 @@ She started to become really aggressive then, and shouted, “I NEED TO GO TO BE
 
  I ran after her, grabbed her arm, and said, “NO. Wait for your parents” in a stern voice.
 
-That’s when she showed her true colors, she started kicking and screaming and when I wouldn’t let her go. She bit me on the arm then ran down the hallway towards her room. I was fuming, I chased after her as fast as I could, but it was too late. She ran into her room and locked the door. I tried to open it, but it had some sort of electronic lock on it. I slapped the door with my hand full force, with temper, but it was metal, and I nearly broke my hand. I was surprised it just seemed like any normal wooden door by looking at it. 
+That’s when she showed her true colors, she started kicking and screaming and when I wouldn’t let her go. She bit me on the arm then ran down the hallway towards her room. I was fuming, I 2chased after her as fast as I could, but it was too late. She ran into her room and locked the door. I tried to open it, but it had some sort of electronic lock on it. I slapped the door with my hand full force, with temper, but it was metal, and I nearly broke my hand. I was surprised it just seemed like any normal wooden door by looking at it. 
 
 There was a small window halfway up the door, when I looked in the light was off, I could just about see her in the corner. I ordered her to come out, but she just laughed uncontrollably in a weird voice, it seemed to go from a deep Barry White tone to a high-pitched screech that only dogs could probably hear. Then she started to sing the stupid song again, it was then I heard the front door opening, I turned and looked down the hallway to see who it was, but I couldn’t see anything. When I looked back, she was staring at me through the small window on the door, it looked like she was wearing some sort of creepy mask.
 
@@ -32,4 +32,4 @@ The next day he rang me again to apologize. He said Sarah really liked me and sh
 
 I was running out of time and would have to work some serious hours to make enough money to go on that trip, so I was ready to give up. I was about to call my friends and let them know I wouldn’t be going, when Liam rang again, this time he offered to pay for the whole trip, all I would need was spending money. I told him I'd think about it. He said I have to let him know by tomorrow or he will find someone else. I don’t really want to go back to that little shit, but I will get a free trip out of it, plus it's only for a few weeks. 
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/vjc7v7/i_never_really_understood_why_her_parents_were_so/)
+&#x200B;
