@@ -24,7 +24,7 @@ No amount of therapy prepared me for what she said next. 
 
 Tears were freely falling from both our eyes now but mine was because of sadness...my sister however was a mixture of grief and terror.  
 
-*"We were all frozen in spot right? Like taking a breath felt so forbidden after the baby never even got the chance too. But thing that made our stomachs drop, the thing that we refused to acknowledge despite witnessing it was the sound of crying from the decapited head."*
+*"We were all frozen in spot right? Like taking a breath felt so forbidden after the baby never even got the chance too. But thing that made our stomachs drop, the thing that we refused to acknowledge despite witnessing it was the sound of crying from the decapitated head."*
 
 I felt the chill run in my blood after hearing that. My sister wouldn't have decided to quit just like that knowing the things she had to deal with as a nurse. I always thought that it was something that went beyond tragedy but I never thought it would be this.
 
