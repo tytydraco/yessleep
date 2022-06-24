@@ -22,7 +22,7 @@ It wasn't until a year later, when a foolish apprentice put another subject unde
 
 &#x200B;
 
-Following the discovery, they attempted the experiment with the same three people. Subjects would take turns swimming towards the light one after the other. After fifteen minutes, they found that the dot had only grown slightly bigger, and the final swimmer began to hear a low and bassy tone. 
+Following the discovery, they attempted the experiment with the same three people. Subjects would take turns swimming towards the light one after the other. After fifteen minutes, they found that the dot had only grown slightly bigger, and the final swimmer began to hear a low and bassy tone.
 
 &#x200B;
 
@@ -424,7 +424,7 @@ Familiar bodies lay across the floor, bloodied and naked. Some lay atop each oth
 
 &#x200B;
 
-Chris took a step in, and I rushed past him. Out of disbelief, I shook at some of the bodies and checked a few pulses. I had hoped at least one of them was alive. I kept swallowing but soon vomit rushed from my stomach like a tsunami, I held it firm in my mouth, traces of it trickled out of my noise and I wiped it away with my sleeve, almost choking on it. I swallowed it back down, chunks of this evening's lunch were sent back to my stomach to finish dissolving.
+Chris took a step in, and I rushed past him. Cool air leaked through an open window and sent my goosebumps into overdrive. Out of disbelief, I shook at some of the bodies and checked a few pulses. I had hoped at least one of them was alive. I kept swallowing but soon vomit rushed from my stomach like a tsunami, I held it firm in my mouth, traces of it trickled out of my noise and I wiped it away with my sleeve, almost choking on it. I swallowed it back down, chunks of this evening's lunch were sent back to my stomach to finish dissolving.
 
 &#x200B;
 
