@@ -18,11 +18,11 @@ We left the Police's Chief's office.
 
 We didn't have to look very long to find her.
 
-"Over here," she calmly called over to us from the end of the police station corridor. We looked...and froze.
+"Over here," she calmly called to us from the end of the police station corridor. We looked...and froze.
 
-Nadine was standing by the barricaded entrance doors. Residents were pounding and snarling behind the reinforced glass. They could see Nadine inside, living prey, and the sight was causing them to become increasingly agitated.
+Nadine was standing in the lobby by the barricaded entrance doors. Residents were pounding and snarling behind the reinforced glass. They could see Nadine inside, living prey, and the sight was causing them to become increasingly agitated.
 
-Nadine smiled at us. It was a strangely serene smile, almost beautiful in a way. The small of a woman who had finally found some measure of inner peace.
+Nadine smiled at us. It was a strangely serene smile, almost beautiful in a way. The smile of a woman who had finally found some measure of inner peace.
 
 In one hand she was holding a burning candle of her own. Her other hand was grasping the padlock securing the chains wrapped around the entrance door handles. The padlock had been unfastened - Nadine must have taken the key - and the chromed steel shackle of the lock was barely holding the ends of the chains together.
 
@@ -60,7 +60,7 @@ The frosted glass pane in the top half of the Police Chief's door shattered inwa
 
 *"HATE LIFE, HATE LIVING!"*
 
-We placed the desk against the door, but it only came up waist-high, leaving the top half with the shattered window exposed. 
+We placed the desk against the door, but it only came up waist-high, leaving the top half with the shattered window exposed.
 
 "Help me with this filing cabinet!" Aaron ordered me.
 
@@ -88,7 +88,7 @@ He placed the pistol between my eyes. "It was nice knowing you, kid."
 
 "Same," I told him, trying to keep the tremble out of my voice. I braced myself for the shot, wondering where I was going to wake up next time.
 
-He started to pull the trigger...but then stopped. He looked at me, at first puzzled, then shocked. 
+He started to pull the trigger...but then stopped. He looked at me, at first puzzled, then shocked.
 
 "What is it?" I asked him.
 
@@ -104,7 +104,7 @@ My hand was turning *transparent*. I could see the wall of the office through my
 
 "What the fuck is *happening* to me?" I screamed in panic.
 
-Aaron just looked at me with incomprehension. Then a new look dawned in his eyes. An expression I hadn't seen during my entire time in Dead Land. 
+Aaron just looked at me with incomprehension. Then a new look dawned in his eyes. An expression I hadn't seen during my entire time in Dead Land.
 
 Hope.
 

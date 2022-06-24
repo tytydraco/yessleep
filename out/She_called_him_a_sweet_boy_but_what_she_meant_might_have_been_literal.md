@@ -16,9 +16,9 @@ I looked at the woman in shock and terror as she is biting the dogs belly. Her e
 
 “Hey! Stop hurting your dog!” I said.
 
-The lady chewed and swallowed while staring at me. I angrily tried choking up words but I was getting nervous.“
+The lady chewed and swallowed while staring at me. I angrily tried choking up words but I was getting nervous.
 
-Lady if you don’t stop now I’m calling the police!”
+"Lady if you don’t stop now I’m calling the police!"
 
 I stepped backwards as she spoke.
 
