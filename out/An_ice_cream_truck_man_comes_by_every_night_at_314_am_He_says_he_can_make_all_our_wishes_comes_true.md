@@ -183,3 +183,5 @@ Silence.
 [Part 2](https://www.reddit.com/r/nosleep/comments/v8eiul/an_ice_cream_truck_man_comes_by_every_night_at/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vdl25g/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)

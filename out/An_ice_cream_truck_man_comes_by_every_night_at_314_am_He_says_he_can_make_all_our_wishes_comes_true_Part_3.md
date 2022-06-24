@@ -6,23 +6,23 @@ The truck outside slowed down to a stop next to my mom’s midnight bluebeard bu
 
 A massive American flag was tied up to the plastic cone on top of the truck like a superhero cape, flowing proudly despite the complete lack of wind.
 
-I’d forgotten it was the fourth of July. 
+I’d forgotten it was the fourth of July.
 
-Max was faster than me; he was already out the front door while I was blindly reaching for some slacks to throw over my sleeping dress. 
+Max was faster than me; he was already out the front door while I was blindly reaching for some slacks to throw over my sleeping dress.
 
 I creeped out of my room, checking the hallway on each side like I was crossing the road. On my tip toes, I made my way to my parents’ bedroom.
 
 I pressed my ear to the door, holding my breath to hear if they were sleeping. There was no snoring; an unusual thing for him because he slept like a tractor working in the fields.
 
-Sometimes, he too would stay up all night for no reason, blankly staring at the tv but not actually watching anything. 
+Sometimes, he too would stay up all night for no reason, blankly staring at the tv but not actually watching anything.
 
 I looked into the bathroom. Empty. I went down the stairs, skipping over those that creaked and stretched my neck to see if there was a shadowy figure on the couch. Nothing.
 
 The kitchen was the same. The counters were spotless and organized the way mom liked it. I almost missed it; one of the blue chairs was slightly off to the side, stepping out of the carpet.
 
-I put it in its place, only to find that something else was now amiss. The fridge magnets, souvenirs from vacations back to Albania, were now cluttered up in a corner. 
+I put it in its place, only to find that something else was now amiss. The fridge magnets, souvenirs from vacations back to Albania, were now cluttered up in a corner.
 
-I separated them, turned around, remembered I was still holding one piece in my hand, turned around again and they were ganged up in the same place like I hadn’t just fixed them up. 
+I separated them, turned around, remembered I was still holding one piece in my hand, turned around again and they were ganged up in the same place like I hadn’t just fixed them up.
 
 There was a fly buzzing around my head, obnoxiously bumping too close to my ear. I didn’t bother arranging them this time, only swiped my hand across it and hoped no one would notice that the castle was now upside down.
 
@@ -58,7 +58,7 @@ He placed a finger in front of his mouth, getting up and shaking dust of his pan
 
 “What?” He jumped up on his seat, looking around like he was unsure of anything around him. He took another experimental lick. “Sorry, I was joking around.”
 
-“Oh, okay…” 
+“Oh, okay…”
 
 There was an outstretched moment of awkward silence, before Owen poked me into the truck’s direction. “Look at the menu.”
 
@@ -96,7 +96,7 @@ I was so into reading the list, trying to figure out a meaning behind the hipste
 
 “FUCK!” I must’ve jumped back half a foot, slamming back into the cold metal with a solid thunk. It burned when it hit my bare elbow, the friction ripping of some of my skin with it.
 
-I could see all three of them laughing, but it played like a comedic soundtrack, jarring and crowded. 
+I could see all three of them laughing, but it played like a comedic soundtrack, jarring and crowded.
 
 “My name is Jack! What wish can I make come true for you today?”
 
@@ -116,11 +116,11 @@ He was clearly young, early twenties at best and ridiculously attractive. Tousle
 
 Jack produced a card from his sleeve, holding it out between two fingers. Like the call of a siren, it was irresistible. Within a second, I was right in front of the cooler, looking at the colorful rectangles of syrup and ice cream.
 
-He placed the paper inside my outstretched wallet, replacing the sticky notes with it. I saw him open the cash register and throw them in, along with other strange knick knacks. 
+He placed the paper inside my outstretched wallet, replacing the sticky notes with it. I saw him open the cash register and throw them in, along with other strange knick knacks.
 
 “The first one is always on the house.” He said and pulled out a vanilla bar on a stick. “This one is called Dine & Dash. It’s an… *experimental* flavor.”
 
-He let the word roll around on split tongue, tapping his fingers impatiently on the table. I looked back at Max and Owen, both of them were nodding in encouragement. 
+He let the word roll around on split tongue, tapping his fingers impatiently on the table. I looked back at Max and Owen, both of them were nodding in encouragement.
 
 *It’s just some ice cream. Why am I hesitating?*
 
@@ -176,7 +176,7 @@ It tasted strongly of frying oil, spices and fast food. It was warm, not too hot
 
 “You try it, I swear it was exactly like KFC.” I handed the wavy rectangle to Owen, who stared at it with a look of pure awe.
 
-He took of a piece with his hands, held it up at us for approval and popped it into his mouth. His jaw moved quickly, stopped, then his eyebrows shot so far up his forehead, they touched his hairline. 
+He took of a piece with his hands, held it up at us for approval and popped it into his mouth. His jaw moved quickly, stopped, then his eyebrows shot so far up his forehead, they touched his hairline.
 
 “On God, we’re going to Narnia. Or Lord of Rings. Or Harry Potter.”
 
@@ -210,7 +210,7 @@ I threw up anything I ate that day, no matter how hard I tried to keep it down. 
 
 It was a horrible day to lose appetite. My parents went to the accounting firm’s Fourth of July lunch, (no kids allowed), so I got a rare treat to stay at home and watch all the Netflix I wanted.
 
-I could’ve sat down in front of the TV and turned the volume to the sky, chugging down Monster cans and chips. Instead, I crossed the road to wake Max up and drag him all the way to Owen’s neighborhood. 
+I could’ve sat down in front of the TV and turned the volume to the sky, chugging down Monster cans and chips. Instead, I crossed the road to wake Max up and drag him all the way to Owen’s neighborhood.
 
 His dad’s car made a U-turn when it saw us, the man himself waving wildly like a maniac. I didn’t need to be close enough to smell him to notice that he was under the influence of something.
 
@@ -241,3 +241,5 @@ The elevator chimed and slid its doors open, letting an old lady out. “Well, i
 [Part 1](https://www.reddit.com/r/nosleep/comments/v6r70p/an_ice_cream_truck_man_comes_by_every_night_at/)
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/v8eiul/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)

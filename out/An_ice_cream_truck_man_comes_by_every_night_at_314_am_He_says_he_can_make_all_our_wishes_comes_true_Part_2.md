@@ -189,3 +189,5 @@ If I wasn’t already convinced that I would look into the ice cream truck, that
 [Part 1](https://www.reddit.com/r/nosleep/comments/v6r70p/an_ice_cream_truck_man_comes_by_every_night_at/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vdl25g/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)
