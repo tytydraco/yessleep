@@ -1,0 +1,15 @@
+So for those that need caught up, I posted on here like... last week I think. It's hard to tell. A lot has definitely gone on since then. I'll post a link to my other post in the comments. Basic jist, something happened at my job that caused them to shut down the floor thatmy lab was on as well as several oother floors in the basement levels. But I digress.
+
+I learned over the course of the first two days after the incident from one of my colleagues that one of the creatures escaped. On the subject of them, I can't find any mention of that particular species of squid online. No combination of search terms got me... anything close to what I'm studying. Was studying. I don't know at this point. Long story short, things took a turn for the interesting.
+
+Post talking to my colleague a suspicious looking van showed up outside my house and has been here sporadically over the last two to three days. Not sure what to think but, well, nondescript black van. We all know what that means. I work for a government funded agency. They're probably keeping tabs on me. I'm just hoping that's all they're doing.
+
+Not gonna lie guys, I'm actually kinda freaking out. What do you think I should do? I'm gonna hide a note here for my boyfriend just in case something happens.
+
+In the meantime I'm also gonna do a little more snooping around to see what else turns up. There has to be something online about these squids. I'm no biologist, just a geneticist. They don't seem too out of the ordinary aside from the whole fused tentacles and the chemical they release when scared. Just really wierd looking squids. I'm ruling out what I can. They're not Aliens, we're in Cali, not New Mexico. They're definitely from this planet. They're obviously a rare breed of squid because there is nothing online. But then again, we've got less we know about our own oceans than we do space.
+
+I'm at a loss as to what else could explain what they can do. Are there any other creatures that excrete a chemical with hallucinogenic properties that can be... controlled is the only word that comes to mind. Almost feels bioengineered. But then why would we be studying them. If they were bioengineered then we'd already know everything we need to know. Were they bioengineered by another country and secretly released here? Seems kinda like a dumb plan since all they do is make themselves look like us if we scare them. So that has no tactical advantage what so ever.
+
+Again, I'm just completely lost for explanations. We got any biologists in the house? Anyone got any other ideas I have thought of? I'm running out of ideas....
+
+That's funny... Where'd the van go? On a donut run? Okay that wasn't funny even if you're not a cop. Maybe it's a shift change? Better get started on that note for my boyfriend... Where to hide it that only he'd think to look?
