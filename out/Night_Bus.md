@@ -301,7 +301,10 @@ As the mother and daughter walked off Francis and I overheard the mother saying
 The cool air from the car brought a smile to my face, something I had not been able to do for a while, as I adjusted the seatbelt. When my eyes darted towards the rearview mirror, the last thing I saw before Francis swerved at the corner was a man running out of the store with a boy in hand.
 
 
-I welcomed the soft touch of the setting sun after prying open my curtain, determined to bring life back into my house again.
+A surge of uneasiness washed over me then. The trauma enveloping my system, rendering it to uselessness as I kept silent about what I saw as I fought the urge to look back. 
+
+
+Upon arriving home, I welcomed the soft touch of the setting sun after prying open my curtain, determined to bring life back into my abode again.
 
 
 A made bed, washed laundry, and watered plants, I felt productive which in turn brought me a tinge of joy. 
