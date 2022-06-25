@@ -31,4 +31,8 @@ Through damaged vocal cords, I heard piercing cries of terror and pain. Inaudibl
 
 Still terrified, I crawled toward..whatever was happening, covered in not only dust but also sweat and the contents of my own stomach. As I made my way around the curve of the stairs, I could see the enclosed foyer that had been a crime scene moments before. The temperature dropped, and sections of my freshly burned skin developed painful goosebumps.
 
-I rushed home to scrub myself clean, ignoring the pain of my blistered skin. Trying to calm myself without the use of my anxiety medication, I replayed the scene over and over, attempting to see it in a new light. In my experience, there is almost always an explanation other than a ghost, such as my panic disorder feeding off of my PTSD, but I knew this wasn't the case. And while this was not the end of the story, it is the end of that first night.
+I escaped the scene as quickly as I could, knowing that the mess I had created would stay a secret until I had worked up the nerve to return. Traumatized and in a state of confusion, I hurried home to wash my body with hot water and numerous layers of soap, oblivious to the constant blistering of my fragile flesh. No matter how hard I tried, I was unable to remove the stench off of my skin or out of my nose. Trying to calm myself without the use of my anxiety medication, I replayed the scene over and over, attempting to see it in a new light. 
+
+In my experience, there is almost always an explanation other than a ghost, such as my panic disorder feeding off of my PTSD, but I knew this wasn't the case. 
+
+And while this was not the end of the story, it is the end of that first night.
