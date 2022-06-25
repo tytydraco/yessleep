@@ -26,7 +26,7 @@ Another title screen appeared: ‘Performance of a Lifetime’. A spotlight emer
 
 I instantly turned away and turned everything off…I was now shaking in a cold sweat. I thought about calling the cops, but had no idea how to explain this. They might just chalk it up as some dumb prank or just tell me I was shit out of luck and to get rid of it. My brother was at a friends that night but I figured he could give some better advice on what we should do when he gets back. I decided to try to forget about it, unwind a bit and order a pizza while binge watching a few shows before bed.
 
-It was hard to get to sleep with the images of what I had seen in my head. Just as I started to doze off, I heard a buzzing sound in our basement living room. I ran downstairs to see what it was and saw the TV and VCR was now playing again. 
+It was hard to get to sleep with the images of what I had seen in my head. Just as I started to doze off, I heard a buzzing sound in our basement living room. I ran downstairs to see what it was and saw the TV and VCR was now playing again.
 
 Another black screen with a title: ’Local Delicacy’. I was frozen in fear as I watched a guy tied to a wheelchair situated at a table. He was a rather large looking man who was wearing a birthday hat and a bib. Someone off screen brought a food cart to him with a bunch of bizarre grotesque looking entrees. The person began feeding the man a sample of each dish. One was a cheese wheel with what looked like maggots crawling out of it. The next dish was a live octopus being shoved down his mouth. The man quivered and gagged as he put down each food. The person who was concealed walked the food cart away while another person came on screen to place a tray in front of the man and removed the cover…it was a birthday cake. As they cut the cake, a dark colored liquid leaked out. They started shoving clumps of cake down this guys throat until he started choking. The hands off screen hit him on the back, and after a few strong coughs - the guy threw up what he had been choking on…a human toe.
 
@@ -58,6 +58,10 @@ Another red VHS tape with a label that simply read, ‘Hello :)’
 
 I panicked and plugged the VCR back in to see what it played…
 
-[This is what I saw.](https://youtu.be/IoDHYDjlSMo)
+This is what I saw....
+
+(Video link: [https://youtu.be/IoDHYDjlSMo](https://youtu.be/IoDHYDjlSMo)
+
+ a video that shows someone in clown makeup, an animatronic and a clown)
 
 If I live through this, I'm only watching digital from now on...
