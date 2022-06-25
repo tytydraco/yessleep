@@ -1,0 +1,13 @@
+I've been working at a nightclub, and the past weekend a pretty big storm hit the city, well more like a town, I mean we have all the things a city has but it is really small so it’s like a mini city. Anyway, the nightclub I work at is on a roof, so is pretty open and when it rains we only have two sections where the customers don't get wet, so when it does rain it’s bad for business.
+
+Back to the day of the storm, it came out of nowhere and half the customers left.
+
+I work as a cashier so it was really boring, I had nothing to do because everybody was still drinking and it got really wild, a group of guys were drinking from a shoe, it was disgusting. I will never understand this scene, I’m not a big drinker myself, I like the taste of certain alcoholic drinks but I don’t really like to get wasted.
+
+I got lost in the moment and in my own thoughts, I didn’t even notice that the music put me in a trance. That's when I noticed a strange shadow. I don't know where it came from but it looked like it was looking for something. At first it was just roaming, for a moment I felt like it looked directly at me, although there’s no way to know that, because well, it was just a shadow. And still my whole body tensed and I felt a shiver from head to toe. But I couldn’t just look away. 
+
+After a while I saw it sitting next to a couple, it was very close to the guy, and for a moment it looked like it was copying his movements. I didn't mention anything to my coworkers, they think I'm crazy anyway, because I'm always talking about the supernatural. I was getting more busy so I decided to ignore it, but at the end of the night I looked for it again and I swear it looked darker, at the beginning it was almost transparent but now it was completely black, it still looked just like a silhouette though but still nobody mentioned anything. 
+
+Then something awful happened, the guy who was being stalked by the shadow fell down the stairs, they were really steep, he didn't make it, he was dead before the ambulance arrived. And what made it even more haunting were his girlfriend's screams. I had never seen a person had an accident, I wasn't prepared, well it’s not like anybody is, but still.  It might not have been the shadow’s fault but I think it is a strange coincidence. And it also might not be the rain’s fault but for some reason that thought is stuck in my head. 
+
+That happened last weekend and I haven’t been able to forget it, that’s why I decided to post it here. If anybody has any idea what that thing is, I appreciate the info because tomorrow I have to work there again. I really hope I don't run into the shadow.

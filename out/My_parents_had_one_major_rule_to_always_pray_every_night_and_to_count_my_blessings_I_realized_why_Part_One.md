@@ -217,3 +217,5 @@ This was when I’d hear a flurry of sounds, almost simultaneous. It would start
 Each time I woke up from this, I was more curious than afraid. What was I seeing? Who were these people, these shadows? Why was I seeing it, what did any of it mean?
 
 *(What made me the “lucky Penny”?)*
+
+[Next](https://www.reddit.com/r/nosleep/comments/vk3pqn/my_parents_had_one_major_rule_to_always_pray/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

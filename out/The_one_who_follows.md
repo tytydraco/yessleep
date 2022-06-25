@@ -1,0 +1,21 @@
+The air was thick with moisture and the rain that fell rolled down my face mixing with my sweat. I had been running, running for god knows how long. My lungs burned and my throat closed but I kept running because I could hear through the pitter patter of the rain the distinct sounds of somebody chasing me.
+
+It all started when I left my house. I was used to running late at night. Where there was a slight chill and where no one else was visible, it was just me along with my thoughts. I exited my house and started running. I felt the legs pounding against the ground and the exhilaration that followed. Throughout the next minutes I kept my pace running past the dim street lamps and the empty cars on the road. I ran past the park when all of a sudden I felt like I was being watched. It startled me for a second but I brushed it off to my imagination or just nerves because it was late in the night.
+
+I kept on running but that feeling grew stronger and stronger. Eventually I couldn’t handle it anymore so I turned around and went back the other way. I was relieved when the feeling started to fade but all of a sudden I felt fear like no other. It was the existential dread you felt when you were about to die. I had faced this feeling once in my life before. It was when I was younger.
+
+My family and I were at a waterpark. I was in the wave pool with my older brother and we were having fun jumping over the waves. Eventually we decided to go deeper into the pool. The water level soon went from my knees to my neck and it was starting to get crowded. I told my brother that we should go back but he insisted that we go deeper and that I was a crybaby if I wanted to go back. The waves frequently splashed over my face but there was a particularly large wave that removed my brother's grasp from my arm and sucked me deep into the pool. With my goggles I looked up and panicked as I was below the feet of even the adults. I quickly raised to the surface treading water with my legs and desperately pulling down water with my arms.
+
+I was almost there before I was kicked downward by one of the adults in the pool. Trying to change my direction I went sideways and then up once again when I was kicked by someone else. My lungs practically about to burst didn’t care and grabbed at that stranger's leg all I could and managed to get above the water by crawling up to him. I coughed out water and felt faint but the air was never so fresh. 
+
+The thought of death crossed my mind and I spent the rest of the trip with my parents who were sunbathing. I knew how lucky I was as I felt the presence of death right behind my back when I got kicked and have always remembered that feeling. That feeling was nothing compared to what I was feeling right now. 
+
+I turned my head back and saw nothing but I then noticed the air warp like something was hiding between the cracks of reality and I knew it was getting closer. I quickened my pace, my chest pounding and my hair standing on end but I kept on running faster and faster.
+
+I suddenly felt the breath of something on my neck and instinctively I screamed but the sound got stuck in my throat. I ran faster than I thought I could ignoring the pain in my body and the weakness in my legs.
+
+I knew that I was starting to put some distance from whatever was chasing me but suddenly I collapsed. My legs gave out and with my last remaining breath I screamed but there was nobody around to hear it. I woke up in my bed drenched in sweat and relieved that I somehow was still alive. My hands were shaking but when the adrenaline finally wore off I realized that there was an incredible pain in my back.
+
+I quickly went to the bathroom and checked it out in the mirror when I found that there were five marks on my back, quite like an animal, however it did not draw blood and instead seemed like It was branded into my skin. I waited until morning to leave my house with great caution.
+
+I went to a check in clinic where the doctor said that he had seen nothing like It however the wound was mostly superficial and should go away with enough time. I went back home and collapsed on the bed exhausted by what happened. And I chuckled thinking of the absurdity of what had just happened.
