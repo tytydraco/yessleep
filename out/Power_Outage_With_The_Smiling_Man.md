@@ -1,6 +1,6 @@
 Let me set the stage for you. So, this happened three years ago, I was 13M (currently 16). It was 2AM and it was storming like crazy, and me, my brother (15), and my dad (38), decided to chill in the living room and watch the Lord of the Rings trilogy, as it was our rainy-day tradition. My mother (37) was out of town for a business trip, and my sister (3) was asleep in her bed. 
 
-We got about halfway through the second movie before the power inevitably went out. Thinking it was just the rain, my dad decides to go check the fuse box in our back yard, so I tag along. We arrive at the fuse box and the big wires have been cut in half. This freaked me the fuck out, but my dad just concluded that it was just some asshole neighbor kids.  
+We got about halfway through the second movie before the power inevitably went out. Thinking it was just the rain, my dad decides to go check the fuse box in our back yard, so I tag along. We arrive at the fuse box and the big wires have been cut in half. This freaked me the f*ck out, but my dad just concluded that it was just some asshole neighbor kids.  
 
 While me and my dad were outside at the fuse box getting drenched, we heard a loud bang, and shortly after, my brother runs out of our backdoor looking panicked. Me and my dad, run to his aid but the only words he could muster were “In the house, there is someone in the house!” My dad runs for the door that my brother had just ran out of, but by all our surprise, it was locked.  This scared the shit out of us, as my 3-year-old sister was fast asleep in her bed. 
 
@@ -14,7 +14,7 @@ We ran into the house and saw that my sister was still fast asleep. My dad calle
 
 Since then, we have moved houses, my dad changed his number, and my sister still has no idea what happened on that stormy night 2 years ago. 
 
-The smiling man, as he is most commonly referred to as, in my house, has ruined so much for me. Whenever I close my eyes, I see him. Whenever I am in silence, I hear that horrific laugh that makes me want to throw up. That fucker even ruined the Lord of the Rings for me.  
+The smiling man, as he is most commonly referred to as in my house, has ruined so much for me. Whenever I close my eyes, I see him. Whenever I am in silence, I hear that horrific laugh that makes me want to throw up. That f*cker even ruined the Lord of the Rings for me.  
 
 I haven’t heard anything about that man since that fateful night in 2019 and I have no idea if he was caught or not, but since then, he has been the star of all of my nightmares.  
 
