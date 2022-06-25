@@ -4,7 +4,7 @@ A while back, Sam and his little brother Toby were playing by the lake. Sam was 
 
 That didn't stop these boys. One of them threw Toby in while the others held Sam back. The main bully started throwing rocks at Toby to get him to swim deeper. It was obvious he was struggling but his fear of the rocks instinctively forced him to go deeper into the lake.
 
-Sam fought to escape but it was to no avail. Toby didn't get far before he started going under. The bullies were too busy dealing with Sam to notice. A rush of adrenaline hit Sam. He gauged one bullies' eye, grabbed a stick, and pierced another boy's leg with it.
+Sam fought to escape but it was to no avail. Toby didn't get far before he started going under. The bullies were too busy dealing with Sam to notice. A rush of adrenaline hit Sam. He gouged one bullies' eye, grabbed a stick, and pierced another boy's leg with it.
 
 Sam dove into the water and swam as fast as he could to rescue his brother. By this time Toby had gone under. There was no sign of him in the dark murky water. Sam frantically looked for Toby. He bawled and screamed in between dives. Eventually, he had expended too much energy, and he began to go under himself.
 
@@ -14,7 +14,7 @@ Shortly after is when the disappearances started. The city was already in mourni
 
 Didn't take long before children started saying they saw a creature at night. The creature allegedly had pale, and permanently wet skin. It's face was said to lack facial features, except for an abnormally large mouth, one that was constantly muttering.
 
-One of the bullies was quickly found dead, impaled by dozens of sticks. Another was found dead in the lake. He'd been tied to a rock and drowned. His eyes had been gauged out. The final bully and his family moved out of Casper shortly after.
+One of the bullies was quickly found dead, impaled by dozens of sticks. Another was found dead in the lake. He'd been tied to a rock and drowned. His eyes had been gouged out. The final bully and his family moved out of Casper shortly after.
 
 Those in the know say the creature is Sam Fuller reincarnated. That he'd made some deal with the devil to come back at the cost of his soul. That'd been the price he was willing to pay to get his revenge. Rumor spread that there were three signs he was coming for you. First, you'd be left a toy in a weird place, giving it a deeper meaning. Next, he'd carve you a message with a rock. Finally, he'd give you a glimpse of him in the mirror 24 hours before you'd die. The mental toll this took on you seemed to be its primary weapon.
 
