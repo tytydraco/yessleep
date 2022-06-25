@@ -1,11 +1,13 @@
+### Part 1: The Smell Of Burning Flesh.
+
 I could talk for an eternity about my harrowing experiences at the high society Country Club, but I've been sworn to keep their afflictions a secret. There is one thing, however, that can’t go untold; that I must share with you. 
  
 Let me preface this story so you may learn a little bit about me, it’s important you know that I committed 11 months to improving my mental health. I had a few diagnoses that were left untreated for a while, so I made the decision to seek help. This led to my admission to a long-term treatment center called a DAS Program (Diversion Acute Stabilization), which is a story in and of itself that I'll save for another day. 
 
 
-######Having said that, I would like you to keep in mind that I am taking the right medications and controlling my diseases as I share my experience with you
+**Having said that, I would like you to keep in mind that I am taking the right medications and controlling my diseases as I share my experience with you**
 
-After my mistreatment, I was excited to start working again, and was consistently filling out applications. Some time passed and I was frantically exhausting every option to find a new job. As I was feeling weary, a fresh listing popped up for the Country Club. I was pleased to see it was within walking distance from my house. I submitted my resume and within the hour the manager (let's call him Dave) reached out to me within an hour and offered me an interview the following day. The interview went well, as usual. I was honest about my prior medical treatment and diagnoses, and David was accepting and said the club could easily accommodate my needs by hiring me part-time in housekeeping. He said hopefully in the future I could be cross-trained and become a full-time employee in various positions. 
+After my *mistreatment,* I was excited to start working again, and was consistently filling out applications. Some time passed and I was frantically exhausting every option to find a new job. As I was feeling weary, a fresh listing popped up for the Country Club. I was pleased to see it was within walking distance from my house. I submitted my resume and within the hour the manager (let's call him Dave) reached out to me within an hour and offered me an interview the following day. The interview went well, as usual. I was honest about my prior medical treatment and diagnoses, and David was accepting and said the club could easily accommodate my needs by hiring me part-time in housekeeping. He said hopefully in the future I could be cross-trained and become a full-time employee in various positions. 
 
 I was perfectly happy to start part time cleaning up peoples messes and keeping a good distance from the members. To be clear, I was happy to work anywhere so the fact that I got hired at a well established Country Club made me really excited. 
 
@@ -15,7 +17,7 @@ A little history on the club, while protecting privacy, it was well over 150 yea
 
 Some places, such as hotels, may have a highly suspicious room or two, but the Club has an entire floor sealed off to members and forbidden to employees.. I was a trustworthy person, but I also had a curious mind that was always looking for untold tales and mysteries. I was also skilled at planning my actions like a chess player would, always thinking two moves ahead and influencing what you would do next.
 
-I managed to persuade David that the Club would benefit from being thoroughly cleaned in the nights after the members had left so that I could polish off the smaller details. He happily agreed and was moved by my initiative. I therefore had the Club to myself two nights during the week. 
+I managed to persuade Dave that the Club would benefit from being thoroughly cleaned in the nights after the members had left so that I could polish off the smaller details. He happily agreed and was moved by my initiative. I therefore had the Club to myself two nights during the week. 
 
 During my first night after completing my commitments, I slipped up to the abandoned floor. As dirty as I had imagined, I left a trail walking to the only door on the floor. The room must have been massive. Wiping off the brass panel with a worn cloth, the room was introduced as the original “Bridal Suite” which as expected was locked. 
 
