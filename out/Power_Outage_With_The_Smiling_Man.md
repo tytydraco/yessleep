@@ -1,0 +1,23 @@
+Let me set the stage for you. So, this happened three years ago, I was 13M (currently 16). It was 2AM and it was storming like crazy, and me, my brother (15), and my dad (38), decided to chill in the living room and watch the Lord of the Rings trilogy, as it was our rainy-day tradition. My mother (37) was out of town for a business trip, and my sister (3) was asleep in her bed. 
+
+We got about halfway through the second movie before the power inevitably went out. Thinking it was just the rain, my dad decides to go check the fuse box in our back yard, so I tag along. We arrive at the fuse box and the big wires have been cut in half. This freaked me the fuck out, but my dad just concluded that it was just some asshole neighbor kids.  
+
+While me and my dad were outside at the fuse box getting drenched, we heard a loud bang, and shortly after, my brother runs out of our backdoor looking panicked. Me and my dad, run to his aid but the only words he could muster were “In the house, there is someone in the house!” My dad runs for the door that my brother had just ran out of, but by all our surprise, it was locked.  This scared the shit out of us, as my 3-year-old sister was fast asleep in her bed. 
+
+My dad runs to try the front door, but it was locked, too. My dad then received a phone call from a number that said “No caller ID”, My dad picks up the phone and we all hear this loud, twisted, sinister laugh that still spooks me to my core every time I think about it. The goofy voice on the other side of the phone then said “How is the rain out there?” My dad, stunned by the voice hollered over the phone “What do you want!” The voice said “I’m going to make this really simple for you, I want you to get me $2,800 or I will kill your daughter!” Just as he said this to my dad, a photo went through to his phone, of my baby sister in her bed with a black 9mm pointed at her. 
+
+What the hell were we supposed to do? Go to the ATM, while there was a crazy man in our house, holding our baby sister at gunpoint, it wasn’t an option. We were all standing at our backdoor where there is also a window and then suddenly, the man draws the curtains and we see a him wearing a green Unabomber jacket, dirty brown pants, and a black ski mask pulled up just enough to reveal his mouth where he was wearing the biggest, scariest smile that haunts me to this day. He closed the curtains, and then ended the call with my dad. To this day, me, my dad, and my brother will never know why but at that moment, we hear a loud door slam from the inside of our house and we saw the man darting down our street, leaving our house and we haven't seen him since. 
+
+I have no idea why he left. Did he get cold feet? Did his conscious finally get him? Or did he remember that he left the stove on in his house? I have absolutely no idea. 
+
+We ran into the house and saw that my sister was still fast asleep. My dad called 911 and quickly told them everything that happened and 11 minutes later, two officers arrive. We gave them a description of the man, showed them the fuse box, where he cut the wires, and my dad answered all of their questions and then the police officers left. My dad called my mom to tell her about everything that went down, and it wasn’t exactly the most pleasant conversation in the world.   
+
+Since then, we have moved houses, my dad changed his number, and my sister still has no idea what happened on that stormy night 2 years ago. 
+
+The smiling man, as he is most commonly referred to as, in my house, has ruined so much for me. Whenever I close my eyes, I see him. Whenever I am in silence, I hear that horrific laugh that makes me want to throw up. That fucker even ruined the Lord of the Rings for me.  
+
+I haven’t heard anything about that man since that fateful night in 2019 and I have no idea if he was caught or not, but since then, he has been the star of all of my nightmares.  
+
+I know that I am not the best writer in the world but I just wanted to tell somebody about the man that is ruining my life.  
+
+Thanks for reading!
