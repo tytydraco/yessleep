@@ -15,7 +15,7 @@ I opened it and i was greeted with a soldier wearing a hazmat suit, he had given
 
 The Soldier gently pushed me into my house and shut my front door for me. I’ll admit, I was starting to get scared now as to what was going on. I didn’t even know if my family was okay
 
-Since, my phone was my only source of entertainment yet it had no signal, so I couldn’t go on social media. I decided to turn on the TV to see if I could get any information on what was going on. 
+Since, my phone was my only source of entertainment yet social media wasn’t talking about what was going on, I decided to turn on the TV to see if I could get any information on what was going on. 
 
 When I turned the television on, an emergency alert sound invaded my ears. “As of Today a decision was made to place the town of Walston under Government Lockdown. You’ve been provided with a set of rules to follow until the all clear is given.”
 
