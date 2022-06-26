@@ -20,7 +20,7 @@ A few months later, Miss Weller stopped coming to school—and I learned from li
 
 But Olivia Lennox, who had been sitting across the table from me, suddenly choked on a chicken drumstick. I remember her body faced down on the table in a halo of willowy blonde hair as Mrs Michael’s attempted the Heimlich manoeuvre and CPR to a lunch hall of traumatised kids. 
 
-We were all expecting the chicken bone to fly out of Olivia’s mouth like in the movies, but when Olivia Lennox stopped making spluttering noises, and the teacher pressed her ear to the girl’s light pink t-shirt before jumping up and telling us all to stand back, I knew she was gone. Olivia has been talking about Summer vacation before she died. She was so excited to go to Italy. 
+We were all expecting the chicken bone to fly out of Olivia’s mouth like in the movies, but when Olivia Lennox stopped making spluttering noises, and the teacher pressed her ear to the girl’s light pink t-shirt before jumping up and telling us all to stand back, I knew she was gone. Olivia had been talking about Summer vacation before she died. She was so excited to go to Italy. 
 
 Reality is different from the movies. It’s a whole lot more cruel.
 
@@ -117,7 +117,7 @@ When Calliope waved two slips of paper in my face, I had to squint to read the b
 
 Invitations.
 
-The two of us hurried past the security guards after flashing our invitations, Calliope with a grin, and me waving it in the air awkwardly. When they waved us in I had to bite back of excitement. I’d never been to this type of party. Invite only seemed so exclusive. When we were presented with four flights of stairs, I started to trudge up them, sticking to Calliope’s side as she danced up each step in her heels. I could hear the thrum of music getting progressively louder, shaking the building. 
+The two of us hurried past the security guards after flashing our invitations, Calliope with a grin, and me waving it in the air awkwardly. When they waved us in I had to bite back a hiss of excitement. I’d never been to this type of party. Invite only seemed so exclusive. When we were presented with four flights of stairs, I started to trudge up them, sticking to Calliope’s side as she danced up each step in her heels. I could hear the thrum of music getting progressively louder, shaking the building. 
 
 “Who cares?” Calliope was out of breath. She twisted around to grin at me, panting.  “I scored them from a guy in my English class. He got a ticket for Dua Lipa and gave us them for free.”
 
@@ -135,13 +135,17 @@ Calliope nudged me.
 
 “Mingle!” She shouted in my ear before bouncing off to greet a group of college kids waving coloured party cups. I started to follow her but stopped myself. Calliope and her friend’s were third year English Lit students. What would we talk about?
 
-She had often expressed that her class were pretentious assholes, and I’d seen it in person when a guy who came to hang out with her, and then proceeded to go on a three hour rant about how Midsommer was “spiritual” and “had changed his life”. When Calliope had teased him I thought he’d laugh along and call himself out. But he was completely serious. 
+She had often expressed that her class were pretentious assholes, and I’d seen it in person when a guy who had came to hang out with her, and then proceeded to go on a three hour rant about how Midsommer was “spiritual” and “had changed his life”. When Calliope had teased him I thought he’d laugh along and call himself out. But he was completely serious. 
 
 Unsurprisingly, I glimpsed him among the others surrounding Calliope. Something told me he wouldn't appreciate my lack of knowledge of Ari Aster and A24 movies. 
 
-I was told to mingle, so I tried. I joined a conversation between two girls who were both talking in Gen Z speak so I just smiled and nodded and acted like I understood. Moving towards the open bar, I grabbed a drink and found a spot on the side of the pool, dangling my legs in illuminated water rippling over my toes. The smell of chlorine masked everything else and it was comforting. I watched the party go on around me in a blur of colours and skin enveloping together, and I was content. The pool stayed empty to my confusion. It was warm enough for a midnight swim, and yet I watched girl’s and guy’s edge around it like it was filled with poison. If I had a swimsuit, and Calliope's confidenceI would have happily dove in. 
+I was told to mingle, so I tried. I joined a conversation between two girls who were both talking in Gen Z speak so I just smiled and nodded and acted like I understood. Moving towards the open bar, I grabbed a drink and found a spot on the side of the pool, dangling my legs in illuminated water rippling over my toes. The smell of chlorine masked everything else and it was comforting. 
 
-I glimpsed familiar faces swimming around in the crowd. B list Twitch streamers and Youtubers. The party was pretty chill though. It seemed like everybody knew everybody and were in some artistic profession. I was just happy to inhale pool fumes for the rest of the night. I mean, that’s what I thought. After an hour of sitting in the same spot choking on chlorine and staring at the pool like I was in some crazy trance, I realised my best friend wasn’t getting bored. I could vaguely hear her laughing loudly with her friends. I pulled out my phone to check the time and was hit in the face with that fucking bird notification. I’d closed the app halfway through my Duolingo lesson and he wasn’t happy, sending me urgent notifications. 
+I watched the party go on around me in a blur of colours and skin enveloping together, and I was content. The pool stayed empty to my confusion. It was warm enough for a midnight swim, and yet I watched girl’s and guy’s edge around it like it was filled with poison. If I had a swimsuit, and Calliope's confidence, I would have happily dove in. 
+
+I glimpsed familiar faces swimming around in the crowd. B list Twitch streamers and Youtubers. The party was pretty chill though. It seemed like everybody knew everybody and were in some artistic profession. I was just happy to inhale pool fumes for the rest of the night. I mean, that’s what I thought. 
+
+After an hour of sitting in the same spot choking on chlorine and staring at the pool like I was in some crazy trance, I realised my best friend wasn’t getting bored. I could vaguely hear her laughing loudly with her friends. I pulled out my phone to check the time and was hit in the face with that fucking bird notification. I’d closed the app halfway through my Duolingo lesson and he wasn’t happy, sending me urgent notifications. 
 
 After a quick glance at the time, which was closing on midnight, I trudged through the last three questions. I was frowning at the screen, struggling to make out a Japanese phrase, when a laugh sounded from behind me. I thought it was at someone else so I ignored them until they laughed again.
 
