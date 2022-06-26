@@ -67,3 +67,5 @@ The six of us crept towards the back of the house and rounded the corner. A trai
 "Oh fuck," said Greta. Inside the house, a child screamed. The six of us charged for the backdoor. Actually, five of us. Eli ran. I think he was going for the Glock after all. But Thiago and Jasmine rushed forward with speed I didn't know they had. Aiden and I were right behind them, with Greta still carrying the cooler. I had no idea what the meat was doing to the kids in there, but if that stuff could make Aiden sick, it could probably do a lot worse to a small [child](https://www.reddit.com/user/_Cu_Chulainn17).
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/vg732e/the_neighbors_had_a_cookout_but_the_meat_wasnt/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vld4jy/the_neighbors_had_a_cookout_but_the_meat_wasnt/)

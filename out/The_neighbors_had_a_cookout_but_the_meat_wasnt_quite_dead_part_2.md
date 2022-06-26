@@ -2,17 +2,17 @@
 
 The backdoor was unlocked. I followed Thiago and Jasmine inside. The two brothers--Ariel and Ferdinand--were ten and seven, still young enough that they shared a room. I had never been in this house before, only stood outside chatting with the family a couple of times. We didn't know where the parents were, but we found the boys' room easily enough. There was a bunk bed and posters of famous people on the walls. Ferdinand was pressed up against the wall looking petrified. His older brother lay on the floor, struggling to pry a sentient blob of meat off his face. It covered his mouth and nose so that he could not breathe. Watching an adult go through that would be bad enough, but he was ten years old.
 
-Thiago, Jasmine and I all rushed inside and formed a circle around Ferdinand. We knelt and tried to pry the meat off with our hands. It slipped through our fingers like it was a liquid. "Move," said Greta. She approached with the cooler. Ferdinand's arms started to flap like he was underwater and trying to get to the surface. I know what that means. It's the last thing that happens to a drowning victim before they die, an involuntary reaction that the body performs as a last-ditch effort to find air. The meat wasn't suffocating Ferdinand, it was drowning him. 
+Thiago, Jasmine and I all rushed inside and formed a circle around Ferdinand. We knelt and tried to pry the meat off with our hands. It slipped through our fingers like it was a liquid. "Move," said Greta. She approached with the cooler. Ferdinand's arms started to flap like he was underwater and trying to get to the surface. I know what that means. It's the last thing that happens to a drowning victim before they die, an involuntary reaction that the body performs as a last-ditch effort to find air. The meat wasn't suffocating Ferdinand, it was drowning him.
 
 Greta emptied the contents of the cooler over Ferdinand's face. The meat stopped pulsing and went limp, sliding off of his face. Ferdinand's arms stopped flapping. His brother came to life, pushing past us and kneeling next to him. He opened Ariel's mouth. I think he was about to perform CPR, but then Ferdinand coughed and spat out another blob of meat. It landed on the ice cubes laying next to his body.
 
 "Nando," said Ariel.
 
-"Don't. Call. Me. That," said Ferdinand, barely able to get the words out between coughs and sputters. 
+"Don't. Call. Me. That," said Ferdinand, barely able to get the words out between coughs and sputters.
 
 "I don't think it's water," I said, looking at Greta. "I think it's cold. If heat activates them, then the cold shuts them down."
 
-"We should get those into the freezer," said Jasmine, looking at the two blobs next to Ferdinand. 
+"We should get those into the freezer," said Jasmine, looking at the two blobs next to Ferdinand.
 
 "How do we kill it?" said Thiago. Eli appeared at the bedroom door, carrying a Glock.
 
@@ -96,7 +96,7 @@ Ferdinand met my eyes. He didn't say anything. I wondered when his father would 
 
 "Sure."
 
-"You have kids?" 
+"You have kids?"
 
 "No," I said. "I'm getting married next year. My  fiancée and I, we've talked. I think she wants them, too."
 
@@ -110,7 +110,7 @@ Ferdinand met my eyes. He didn't say anything. I wondered when his father would 
 
 "Because he looks you in the eye."
 
-It had been a long time since everyone had gone upstairs. If Aiden was up there, I should go find out what it was. I thought about telling Ferdinand to wait here, but that just seemed wrong. So I asked him if he wanted to come with me and he said yes. It's so weird to think that there are people living right now who don't remember landlines. 
+It had been a long time since everyone had gone upstairs. If Aiden was up there, I should go find out what it was. I thought about telling Ferdinand to wait here, but that just seemed wrong. So I asked him if he wanted to come with me and he said yes. It's so weird to think that there are people living right now who don't remember landlines.
 
 Ferdinand showed me to the stairs. Thiago and Jasmine stood at the foot. Something was going on upstairs. I could hear raised voices but not make out any words. "What's going on?" I asked them.
 
@@ -118,10 +118,12 @@ Ferdinand showed me to the stairs. Thiago and Jasmine stood at the foot. Somethi
 
 "Is he okay?" I asked. "Why are you down here?"
 
-The voices were getting louder. I could hear Greta. Her voice cut through everyone else's. She said something and a voice I didn't recognize answered. Then Eli said something. Ariel said something as well but I still couldn't make out the words, only tell that he sounded alarmed. The unfamiliar voice said something back. Eli said something very angry. Greta sounded more afraid than ever before. The gun went off. Gunshots are loud. Especially indoors. 
+The voices were getting louder. I could hear Greta. Her voice cut through everyone else's. She said something and a voice I didn't recognize answered. Then Eli said something. Ariel said something as well but I still couldn't make out the words, only tell that he sounded alarmed. The unfamiliar voice said something back. Eli said something very angry. Greta sounded more afraid than ever before. The gun went off. Gunshots are loud. Especially indoors.
 
-There was the sound of a scuffle. I was about to race upstairs when a body tumbled down the stairs. It was Eli. His limbs were bent the wrong way and he bounced down the stairs as if he had been thrown. He came to rest at the foot of the stairs. His handgun had been lodged into his mouth so forcefully that I think it broke his jaw. His eyes were open but they were unfocused and his head was turned almost all the way around on his neck. Without even checking for a pulse, I knew he was dead. 
+There was the sound of a scuffle. I was about to race upstairs when a body tumbled down the stairs. It was Eli. His limbs were bent the wrong way and he bounced down the stairs as if he had been thrown. He came to rest at the foot of the stairs. His handgun had been lodged into his mouth so forcefully that I think it broke his jaw. His eyes were open but they were unfocused and his head was turned almost all the way around on his neck. Without even checking for a pulse, I knew he was dead.
 
 Aiden appeared at the top of the stairs. Except it didn't really look like him. His face had become red and splotchy. Giant pustules covered his whole body. His stomach appeared distended. He had removed his shoes and socks because his feet were now far too big for them, looking more like flippers. He smiled at us and started down the stairs. I could just see Greta, Jasmine, and Ariel watching from the top of the stairs. Somehow Ariel looked the least frightened of the three of them. The meat had done something to Aiden. I didn't know if my friend was still in there.
 
 I heard a car pull into the driveway. Ariel and Ferdinand's father was home. In a way, that was a relief. It meant that explaining to him why his window was broken and a bunch of strange adults were in his house was now the least of our problems. But I still had no idea what to do about Aiden. So I pushed past Thiago and Jasmine and stood at the foot of the stairs, just behind Eli's body. Aiden stopped a few feet away and stared at me. I think he wanted to see if I was going to do anything. Ferdinand came closer and stood next to me. I decided that I was going to try to save Aiden, if the meat hadn't corrupted him entirely. There had been enough death today [already](https://www.reddit.com/user/_Cu_Chulainn17).
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vld4jy/the_neighbors_had_a_cookout_but_the_meat_wasnt/)
