@@ -10,7 +10,7 @@ He reacted faster than I expected. Thiago had jumped on Aiden's shoulders and wa
 
 What happened next hit me like a bucket of ice water. Probably because the father had just thrown a bucket of ice water onto Aiden and me. He had no time to prepare it. He must have walked into the house carrying it. But it accomplished what Thiago and Ariel could not. Aiden dropped me. He collapsed, weirdly sliding off of Eli's mangled corpse and convulsing at the foot of the stairs. I stumbled back and shook my head. I was still in intense pain, but I could think straight, and Aiden hadn't held on long enough to break any bones. With any luck, there would be no lasting damage.
 
-Jasmine came forward. I thought she wanted to touch Eli's body but instead she grabbed Aiden by the arms and pulled. She was trying to move him to the center of the room so he could at least lie flat on the floor. Thiago understood and picked him up by the feet. Aiden was spasming and making weird choking sounds. I looked at the father, who stood there with a still-dripping bucket in his hands. He was short and bald, only a few inches taller than Ferdinand. Evidently he knew something about the threat we faced. 
+Jasmine came forward. I thought she wanted to touch Eli's body but instead she grabbed Aiden by the arms and pulled. She was trying to move him to the center of the room so he could at least lie flat on the floor. Thiago understood and picked him up by the feet. Aiden was spasming and making weird choking sounds. I looked at the father, who stood there with a still-dripping bucket in his hands. He was short and bald, only a few inches taller than Ferdinand. Evidently he knew something about the threat we faced.
 
 "Are you guys okay?" he asked.
 
@@ -26,13 +26,13 @@ Jasmine came forward. I thought she wanted to touch Eli's body but instead she g
 
 Greta descended the stairs and stood before the father. Her body language had changed completely. She could barely make eye contact with him. "I am so sorry," she said. "Your son, he almost died."
 
-The father nodded. I could tell he was dealing with some complicated emotions right now. My friends with kids tell me that nothing forces you to grow up like becoming a parent. For the first time in your life, somebody else is more important than you are. So I have no idea what I could say to somebody who just lost a child. Fortunately, this man had not lost a child. But he had come within a hair's breadth. 
+The father nodded. I could tell he was dealing with some complicated emotions right now. My friends with kids tell me that nothing forces you to grow up like becoming a parent. For the first time in your life, somebody else is more important than you are. So I have no idea what I could say to somebody who just lost a child. Fortunately, this man had not lost a child. But he had come within a hair's breadth.
 
 "We need to get it out of him," he said, motioning to Aiden. "He's still in there."
 
 "How do we do that?" asked Jasmine.
 
-"We make him really cold," he said. 
+"We make him really cold," he said.
 
 Several of us lifted Aiden up and carried him to the bathroom, laying him fully clothed in the tub. The father went back out to the car, bringing several bags of ice in with him. He really had come prepared. The bathroom was barely big enough to hold all of us, so most of us merely waited at the door as he and Greta filled the bathtub with cold water and dumped bag after bag of ice into it. We all stood watching. The convulsions stopped. Aiden went still. For a good ten minutes, nothing happened. He was completely immersed in the water yet showed no signs of drowning. Then he lurched upright like somebody rising from the grave.
 
@@ -42,7 +42,7 @@ Aiden placed both hands on the side of the tub and leaned over it. The father pl
 
 Jasmine returned a few minutes later. She had an idea as to what to do with Eli's body. Some of us tried to talk her out of it, but she insisted it was the best cover story. After prying the gun out of his mouth, we backed his and Jasmine's car into the narrow alley between Greta's house and mine and loaded his body into the driver's seat. It was dark by now. Jasmine got into the passenger's seat and reached over, working the steering wheel as we pushed the car out into the street. Then she fastened her seatbelt and we stepped back. She put the car in drive, dropped a rock on the gas pedal and twisted the steering wheel so that the car slammed into a large tree going way faster than the speed limit. Eli's body went flying through the windshield. She told the paramedics that he had simply been driving recklessly and lost control of the car. Her injuries were relatively minor. Brave woman.
 
-Greta is moving out. She told my  fiancée that in her own way, she felt responsible for what happened. Maybe. I saw Aiden sitting out on his front porch not too long after Eli's funeral. He wasn't just staring into space anymore, but playing a game on his phone. I waved and he waved back. I think he is doing a little better now, but I don't think he's ready to look for another job yet.
+Greta is moving out. She told my  fiancée that in her own way, she felt responsible for what happened. Maybe. I saw Aiden sitting out on his front porch not too long after Eli's funeral. He wasn't just staring into space anymore, but playing a game on his phone. I waved and he waved back. I think he is doing a little better now, but I don't think he's ready to look for another job yet. He says he remembers only a little from his possession, mostly just that he had a desire to consume as much as possible, be it living or inanimate.
 
 I talked to the father yesterday. He, Greta, and Jasmine went to the corner store and confronted Gary. They won't tell me exactly what happened, but Gary doesn't work there anymore. I suppose he should be glad that's all that happened to him. We still don't know where the meat came from, but we can hope that he won't go distributing it to anyone else. I don't know what the father told his wife. She seems oddly distant, and I have a suspicion that he has done most of the work in raising their kids. Either way, Ariel and Ferdinand seem fine. They took Ferdinand to the hospital immediately after exorcising Aiden and found nothing foreign in his lungs or stomach. But all things considered, the father is doing a pretty good job processing everything that happened.
 
