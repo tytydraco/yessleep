@@ -22,7 +22,7 @@ After reading the Emergency Alert message, I decided to read the rules to get a 
 
 Rules to Follow while you’re under Government Lockdown. 
 
-Rule 1: You’re not allowed to leave your house at anytime, you food, water and clothes will be provided to you by the military. If you’re seen wandering around at any time, you’ll be arrested on sight. 
+Rule 1: You’re not allowed to leave your house at anytime, food, water and clothes will be provided to you by the military. If you’re seen wandering around at any time, you’ll be arrested on sight. 
 
 Rule 2: if you’re experiencing any of the symptoms please refer to Rule X. Symptoms: Excruciating Pain coming from your Brain, Rashes all over your body, Your Height seems to double, your finger nails start becoming a lot more sharper, loss of hair and having a strong urge to feast on Human Flesh. 
 
@@ -34,7 +34,7 @@ Rule 5: before 8pm rolls around, lock all of your windows and doors immediately.
 
 Rule 6: if you see or hear any movements in your house but you’re alone, do not attempt to investigate it. Lock yourself in a room with a weapon and press the panic button.
 
-Rule 7: if you however, you’ve lost your panic button, and Rule 6 or Rule 3 comes into place. Please refer to Rule X 
+Rule 7: if however, you’ve lost your panic button, and Rule 6 or Rule 3 comes into place. Please refer to Rule X 
 
 Rule X: if Rule 7 or Rule 6 or Rule 2, has directed you to Rule X, please carefully follow these instructions. 
 
