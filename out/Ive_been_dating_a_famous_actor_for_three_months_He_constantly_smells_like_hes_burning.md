@@ -341,6 +341,6 @@ Why does it feel like they’re going to burn in an entirely different way? 
 
 And whatever it is… I can’t stop it. 
 
-Like Miss Weller, my ppmom, and Caleb. 
+Like Miss Weller, my mom and Caleb. 
 
 I can’t stop it.
