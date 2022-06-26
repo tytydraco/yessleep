@@ -52,8 +52,10 @@ It ripped through the layers of skin, connective tissue, fat, and muscles until 
 
 I survived. Barely. My neighbors called the police after they heard my screams, and I was rushed to a hospital just in time. My doctor told me that I was very lucky to be alive; the creature did irreparable and extensive damage to my body. At first, they even assumed that I’d been mauled by a wild animal.
 
-I wish they had just let me die. Death would be a kinder fate than what’s coming to me. You see, earlier this morning, after I was released from the hospital, I received a text from a blocked number. 
+I wish they had just let me die. Death would be a kinder fate than what’s coming to me. You see, earlier this morning, after I was released from the hospital, I received a text from a blocked number.
 
-It said, "[This will continue for every abortion you prevented.](https://www.reddit.com/r/Certain_Emergency122/)"
+It said, "This will continue for every abortion you prevented."
+
+[CE](https://www.reddit.com/r/Certain_Emergency122/comments/vkr2m1/story_notes_for_im_a_protestor_outside_planned/)
 
 [OD](https://www.reddit.com/r/Odd_directions/)
