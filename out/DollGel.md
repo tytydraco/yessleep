@@ -114,7 +114,7 @@ SculptMe had sold me a lie, and maybe they’d damaged Sophie just as badly. She
 
 It was situated in a tall, glassy business complex near the top floor. As I entered the lobby, I had to tamper my horrified reaction as I laid eyes on the receptionist.
 
-Her features reflected the overhead fluorescents, a plastic sheen in place of where skin should have been. Every blink of her eyes looked almost mechanical in their movement, and I could’ve sworn that her eyeballs were made of… glass. Glass eyes and a plastic face, as if she were the product of a sick marketing ploy to sell Barbies. She turned her empty gaze to me, the corners of her lips stretching into a forced smile.
+Her features reflected the overhead fluorescents, a plastic sheen in place of where skin should have been. Every blink of her eyes looked almost mechanical in their movement, and I could’ve sworn that her eyeballs were made of… glass. Glass eyes and a plastic face, as if she were the product of a twisted marketing ploy to sell Barbies. She turned her empty gaze to me, the corners of her lips stretching into a forced smile.
 
 “Hi,” she chirped, her rehearsed tone dripping with faux delight. “You’re Sohpie’s friend, right?”
 
@@ -128,7 +128,7 @@ I felt my heart beat a mile a minute, every instinct of mine telling me to run. 
 
 “Hey,” I smiled. “Why don’t we grab lunch again before the tour? I’m starving.” My plan was to escape with her and call 911. Whatever was happening to these poor girls couldn’t have been legal, and the truth needed to be uncovered. 
 
-“It’ll only take a few minutes,” she assured me, leading me behind a frosted glass door and into a cubicle room. “You’ll feel even better at lunch after the treatment, I promise.” I reluctantly followed, scanning the room for any potential threats. Every one of the girls working at their desks had the same horrifyingly plastic aesthetic, and it was only then did I realize the enormity of what I was up against. I overheard one girl complain to another that the delivery guy accidentally brought both diet and regular coke, and that they’d just have to give away the regular version to clients who “hadn’t gotten to the final step yet.”
+“It’ll only take a few minutes,” she assured me, leading me behind a frosted glass door and into a cubicle room. “You’ll feel even better at lunch after the treatment, I promise.” I reluctantly followed, scanning the room for any potential threats. Every one of the girls working at their desks had the same horrifyingly plastic aesthetic, and it was only then did I realize the enormity of what I was up against. I overheard one girl complain to another that the delivery guy accidentally brought both diet and regular Coke, and that they’d just have to give away the regular version to clients who “hadn’t gotten to the final step yet.”
 
 Once the tour concluded, Sophie brought me a jar of the peach cream. “Ready to take the next step? It’s a one time, all body application and then you’ll look like us!”
 
@@ -140,7 +140,7 @@ Sophie had the strength of a man twice her size, almost managing to pry my arm a
 
 Every head in the room swiveled towards the restroom door as I shut it behind me. “She’s an unworthy personality!” one girl shouted, prompting the entire room to drop what they were doing and stand from their cubicles. A swarm of angry, glassy eyes glared at me, and girls began to block my possible routes of escape. I miraculously spotted the office kitchen and ran towards it, tackling a couple of “girls” on my way. I figured that the regular Coke would be there, and - much to my relief - cases of bottles sat stacked on the floor. 
 
-Shaking one of the bottles, I sprayed it at the horde of girls who were rushing towards me. They all immediately jumped away, their expressions shifting from anger to fear. I smirked and strode forward, spraying the crown again. A few drops landed on one of them as she ran away, dissolving her skin and causing a trickle of pink blood to run down her shiny calf. She yelped in pain as it landed on her, and all of the girls stood menacingly at the exits.
+Shaking one of the bottles, I sprayed it at the horde of girls who were rushing towards me. They all immediately jumped away, their expressions shifting from anger to fear. I smirked and strode forward, spraying the crowd again. A few drops landed on one of them as she ran away, dissolving her skin and causing a trickle of pink blood to run down her shiny calf. She yelped in pain as it landed on her, and all of the girls stood menacingly at the exits.
 
 “You’re not leaving until you complete the final step,” one of the girls shouted. “We don’t need to eat anymore, we can stand here, like, *all* day.”
 
