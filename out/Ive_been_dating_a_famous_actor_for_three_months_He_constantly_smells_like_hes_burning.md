@@ -215,7 +215,7 @@ The girl, or Luce, rolled her eyes. “Right. My mistake. He has a thing which i
 
 “Relax! We’re going! Who are you, my mom?”
 
-The two of them were sounding more and more confusing the more the conversation went on. I noticed something poking from her Louis Vuitton. bag. Another red apple. 
+The two of them fell into hissed whispering, and I glimpsed a bright red apple poking from her Louie Vuitton bag. 
 
 So, these guys really liked their apples. 
 
@@ -255,11 +255,11 @@ The three of them were a good distraction from my usual dilemma: Smells. Though 
 
 I figured it was because he was travelling for work, but he never used it. Things started getting really weird a few weeks back. We went to a party, some fancy influencer party Johnny had been invited to, and it was pretty fun. I drank and talked to people, just the usual party crap. I didn’t think anything was out of the ordinary until I walked in on Ren closing the blinds, Johnny holding duck tape, and Luce sticking tape over the windows. I’d heard their hissed whispers, domineered by Luce, her voice muffled with the roll of duct tape in her mouth. "What exactly do we do when someone walks in?" 
 
-Ren jumped on the counter and reached out, pulling the blinds closed. “They’re all probably too high to realise. It’s just for a few hours.”
+Ren climbed onto the counter and reached out, pulling the blinds closed. “They’re all probably too high to realise. It’s just for a few hours.”
 
 “Because you insisted it would rain.” Johnny, from his place sitting on the counter, his feet dangling, said with a sardonic smile. He grabbed an apple from a gold plated fruit bowl and took a bite. “And look," He said through a mouthful, "Clear skies, and we’re stuck until sunrise.”
 
-Johnny slipped on his ray-bans. “Fuck, they’re really trying hard tonight. The bastard is strong.”
+Johnny slipped on his ray-bans and leaned back, kicking his legs. He whistled. "Fuck, they’re really trying hard tonight. The bastard is strong.”
 
 I backed away before they noticed me.
 
@@ -311,7 +311,11 @@ But he ignored it, painting over the scratching. (I did manage to get a photo, I
 
 The next day, Luce showed up at the door. 
 
-Johnny was behind her, shouldering a backpack, and I caught the scent automatically, hitting me like ice water. Burning. They were burning too. I could see it, twisting orange and red writhing up and down Luce’s squirming legs, her endless scream harmonising with a monstrous wail.
+Johnny was behind her, shouldering a backpack, and I caught the scent automatically, hitting. 
+
+Burning. They were burning too. 
+
+I could see it, twisting orange and red writhing up and down Luce’s squirming legs, her endless scream harmonising with a monstrous wail.
 
 Luce said three words in a sharp shriek. 
 
@@ -337,6 +341,6 @@ Why does it feel like they’re going to burn in an entirely different way? 
 
 And whatever it is… I can’t stop it. 
 
-Like Mrs Weller, my mom, and Caleb. 
+Like Miss Weller, my ppmom, and Caleb. 
 
 I can’t stop it.

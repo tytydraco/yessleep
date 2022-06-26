@@ -1,6 +1,6 @@
-\[I work for a county Sheriffs office in Maine (Pt.1) - Here’s why my job sucks.\]([https://www.reddit.com/r/nosleep/comments/p8xetl/i\_work\_for\_a\_county\_sheriffs\_office\_in\_maine\_pt1/?utm\_source=share&utm\_medium=ios\_app&utm\_name=iossmf](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf))
+[I work for a county Sheriffs office in Maine (Pt.1) - Here’s why my job sucks.](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
-\[I work for a county Sheriffs office in Maine (Pt.2) - Here’s why my Coworkers suck.\]([https://www.reddit.com/r/nosleep/comments/pv95rk/i\_work\_for\_a\_county\_sheriffs\_office\_in\_maine\_pt2/?utm\_source=share&utm\_medium=ios\_app&utm\_name=iossmf](https://www.reddit.com/r/nosleep/comments/pv95rk/i_work_for_a_county_sheriffs_office_in_maine_pt2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf))
+[I work for a county Sheriffs office in Maine (Pt.2) - Here’s why my Coworkers suck.](https://www.reddit.com/r/nosleep/comments/pv95rk/i_work_for_a_county_sheriffs_office_in_maine_pt2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 When Eric had told me a ‘demon’ was responsible for the slayings I burst out laughing. It was brought on by a combination of my nerves and my genuine belief that he was joking with me to lighten the mood. The outburst of laughter evaporated as Eric’s flat eyes turned to me, I knew by then that his expression never changed, but I could have sworn he was contemplating killing me or something. There was a silent fury burning there, or maybe nothing at all. Shark eyes, that’s what he had.
 
@@ -92,4 +92,4 @@ I realised everyone probably felt that way about him: relief when he was gone. I
 
 \*\*\*
 
-\[.xXx.\]([https://www.reddit.com/user/xXKikitoXx/comments/ouosxr/about\_this\_page\_20/?utm\_source=share&utm\_medium=ios\_app&utm\_name=iossmf](https://www.reddit.com/user/xXKikitoXx/comments/ouosxr/about_this_page_20/?utm_source=share&utm_medium=ios_app&utm_name=iossmf))
+[.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

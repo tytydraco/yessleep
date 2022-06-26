@@ -106,4 +106,4 @@ The third thing is that I never got my skateboard back, I loved that board.
 
 &#x200B;
 
-[.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/ouosxr/about_this_page_20/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

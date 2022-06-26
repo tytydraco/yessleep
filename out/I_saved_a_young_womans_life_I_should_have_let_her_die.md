@@ -96,7 +96,7 @@ I punched him in the arm and told him to get back to his tasks. As I brushed asi
 
 I was in my living room. The man on the other end had been a friend of mine since the fire academy. Contrary to popular belief, cops and firefighters can help one another. Of course, we still insulted each other with reckless abandon. 
 
-My sixteen month year old child, Anna, was asleep upstairs. Grace left for the medical facility minutes before to clock in. I did not tell her about my encounter because I did not want her to worry. 
+My sixteen month old child, Anna, was asleep upstairs. Grace left for the medical facility minutes before to clock in. I did not tell her about my encounter because I did not want her to worry. 
 
 “Why?” I asked. 
 
