@@ -2,7 +2,7 @@ Do you know what a tumour smells like?
 
 Oranges.
 
-Not ripe ones. Rotten. The type you bite into and immediately regret it. I realised there was something not quite with me when I smelled oranges on my kindergarten teacher. I made sure to tell her, every day. I’d walk in and catch that same stink in the air. Miss Weller was in her mid-thirties and always greeted me with a bright smile. When she opened her arms to pull me into a hug like every other morning, the smell was intoxicating. And when I wrinkled my nose and tried to sniff it out and find the source of rotten oranges, it hit me that it was Miss Weller’s head that smelled. Not her hair—her hair always smelled of lavender and strawberries. 
+Not ripe ones. Rotten. The type you bite into and immediately regret it. I realised there was something not quite right with me when I smelled oranges on my kindergarten teacher. I made sure to tell her, every day. I’d walk in and catch that same stink in the air. Miss Weller was in her mid-thirties and always greeted me with a bright smile. When she opened her arms to pull me into a hug like every other morning, the smell was intoxicating. And when I wrinkled my nose and tried to sniff it out and find the source of rotten oranges, it hit me that it was Miss Weller’s head that smelled. Not her hair—her hair always smelled of lavender and strawberries. 
 
 No, it was what was inside my kindergarten teacher’s head. Right inside her skull, I knew something was wrong. I told her one day. When the other kids were playing in the playground, I ran over to where she was bent over her flower garden planting roses  and smiled widely. “Your head smells of bad oranges.” I said, and Miss Weller looked shocked for a moment before laughing it off and telling me to go and play.
 
@@ -14,7 +14,7 @@ I didn’t know what to say, because how was I supposed to describe it? 
 
 "You just smell." I whispered. 
 
-A few months later, Mis Weller stopped coming to school—and I learned from listening in on my parents hissed conversation, that my kindergarten teacher was very sick. It wasn’t long before she passed, and her flower garden was abandoned. I still went there to see if I could still smell the rotten oranges but the only smells were the Rose’s and Lavender planted for her. I guess I should preface this by saying I’ve had a strange sense of smell my whole life. When I was fourteen I was sitting in my middle school cafeteria talking to my friends, when I was attacked with the sudden aroma of chicken which was so potent in my nose and throat I thought I was going to throw up.
+A few months later, Miss Weller stopped coming to school—and I learned from listening in on my parents hissed conversation, that my kindergarten teacher was very sick. It wasn’t long before she passed, and her flower garden was abandoned. I still went there to see if I could still smell the rotten oranges but the only smells were the Rose’s and Lavender planted for her. I guess I should preface this by saying I’ve had a strange sense of smell my whole life. When I was fourteen I was sitting in my middle school cafeteria talking to my friends, when I was attacked with the sudden aroma of chicken which was so potent in my nose and throat I thought I was going to throw up.
 
  I didn’t, thankfully. 
 
@@ -105,7 +105,7 @@ I liked that my thoughts were drowned out by booming music and screaming, and ev
 
 I tipped my head back and frowned at what looked like a rooftop party.
 
-“That looks more like a gathering.” I shot my friend a skeptical smile.
+“That looks like more than a gathering.” I shot my friend a skeptical smile.
 
 Calliope rolled her eyes. “Okay, more than a gathering. You win. But cool, right?”
 
@@ -171,11 +171,11 @@ I scrambled to correct myself. “No, I meant—”
 
 “It’s Ren.” He said, the muscles in his face twitching into a smile. "I can go by 'that guy' too." 
 
-Ren was a joker, but after the first few awkward jokes which didn’t land, he grabbed a seat next to me and talked about everything from is favourite video games, to the time he’d gotten food poisoning from bad shellfish. He was the type of guy who could keep you embroiled in a story which wasn’t going anywhere, or a joke which had died halfway through because he was too busy laughing to properly tell it. An extrovert at his prime. 
+Ren was a joker, but after the first few awkward jokes which didn’t land, he grabbed a seat next to me and talked about everything from his favourite video games, to the time he’d gotten food poisoning from bad shellfish. He was the type of guy who could keep you embroiled in a story which wasn’t going anywhere, or a joke which had died halfway through because he was too busy laughing to properly tell it. An extrovert at his prime. 
 
 Ren was choking on whatever cocktail he’d grabbed to drink, halfway through telling me about his childhood dog, when a shadow suddenly loomed over the two of us. Ren glanced up, his mouth curved around the straw in his drink. There was a girl hovering over us looking less than impressed. In her hand was a drink, and at first I thought she was going to throw it over him, but she took a delicate sip from the straw, offering me an awkward smile. 
 
-She was beautiful, and I mean beautiful and didn’t have to try. She wasn’t wearing anything special, a low cut t-shirt over shorts, and yet flaunted them effortlessly. When I looked at her, she looked half asleep, blinking at Ren through half-lidded eyes. She had bed-hair too, a crown of dark curls framing her face. The girl had the faint smell of mint. Nothing bad, just toothpaste– I think. “Are you an idiot?” She reached out and grabbed Ren’s wrist, pulling him to his unsteady feet. “We’ve gotta go. Now.”
+She was beautiful, and I mean beautiful and didn’t have to try. She wasn’t wearing anything special, a low cut t-shirt over shorts, and yet flaunted them effortlessly. When I drank her in, she looked half asleep, blinking at Ren through half-lidded eyes. She had bed-hair too, a crown of dark curls framing her face. The girl had the faint smell of mint. Nothing bad, just toothpaste– I think. “Are you an idiot?” She reached out and grabbed Ren’s wrist, pulling him to his unsteady feet. “We’ve gotta go. Now.”
 
 The girl had an urgency in her tone, and from the sudden look in Ren’s eyes, like he was waking up from a trance, he nodded. “Right. Fuck. Are we good?” To my confusion, he tipped his head back, his gaze going to the sky. “What time is it?”
 
@@ -249,7 +249,7 @@ The three of them had a friendship, or a connection, I guess, that I didn’t re
 
 The three of them were a good distraction from my usual dilemma: Smells. Though as I got to know them, I realised there was something strange about them. I noticed Ren’s room was weirdly empty, and his luggage was always packed in the back of his closet like he was ready to go somewhere. But he never did. 
 
-I figured it was because he was travelling for work, but he never used it. Things started getting really weird a few weeks back. We went to a party, some fancy influencer party Johnny had been invited to, and it was pretty fun. I drank and talked to people, just the usual party crap. I didn’t think anything was out of the ordinary until I walked in on Ren closing the blinds, Johnny holding duck tape, and Luce sticking tape over the windows. I’d heard their hissed Luce, her voice muffled with the roll of duct tape in her mouth. "What exactly do we do when someone walks in?" 
+I figured it was because he was travelling for work, but he never used it. Things started getting really weird a few weeks back. We went to a party, some fancy influencer party Johnny had been invited to, and it was pretty fun. I drank and talked to people, just the usual party crap. I didn’t think anything was out of the ordinary until I walked in on Ren closing the blinds, Johnny holding duck tape, and Luce sticking tape over the windows. I’d heard their hissed whispers, domineered by Luce, her voice muffled with the roll of duct tape in her mouth. "What exactly do we do when someone walks in?" 
 
 Ren jumped on the counter and reached out, pulling the blinds closed. “They’re all probably too high to realise. It’s just for a few hours.”
 
@@ -275,7 +275,7 @@ I woke up in the middle of the night, to the stink of smoke choking the back of 
 
 Ren was burning. 
 
-It wasn’t the usual smell of burning. Not what I was used to. The smell slammed into me, raw and cutting. I sensed flesh bubbling and being torn from bone, hair singeing from a blackened scalp. I felt it all, the overbearing heat prickle my skin, a silent scream ripping from my mouth. 
+It wasn’t the usual smell of burning. Not what I was used to. The smell suffocated me until I couldn't breathe, raw and slicing. I sensed flesh bubbling and torn from bone, hair singeing from a blackened scalp. I felt it all, the overbearing heat prickle my skin, a silent scream ripping from my mouth. 
 
 No, not my mouth. 
 

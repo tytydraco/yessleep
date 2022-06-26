@@ -18,6 +18,4 @@ The smiling man, as he is most commonly referred to as in my house, has ruined 
 
 I haven’t heard anything about that man since that fateful night in 2019 and I have no idea if he was caught or not, but since then, he has been the star of all of my nightmares.  
 
-I know that I am not the best writer in the world, but I just wanted to tell somebody about the man that is ruining my life.  
-
-Thanks for reading!
+I know that I am not the best writer in the world, but I just wanted to tell somebody about the man that is ruining my life.
