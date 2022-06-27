@@ -28,9 +28,9 @@ Gibberish. All I remember from that encounter was gibberish. Even my parents who
 
 "Nice to meet you! I'm Lee." I said back. 
 
-And from that day on, he became my playmate. We would play daily and my parents thought it was cute because they were under the impression that he was my imaginary friend. He was far from that, though. They told me I was so happy playing with that guy. We both had so much fun. But, I was still worried about his muddy clothes. What was weird, though, was the fact that his shorts and shoes were muddy but his shirt wasn't. 
+And from that day on, he became my playmate. We would play daily and my parents thought it was cute because they were under the impression that he was my imaginary friend as they could not see him. He was far from that, though. They told me I was so happy playing with that guy. We both had so much fun. But, I was still worried about his muddy clothes. What was weird, though, was the fact that his shorts and shoes were muddy but his shirt wasn't. 
 
-But, just like every other story, this one has it's turning point. 
+But, just like every other story, this one has its turning point. 
 
 We fought. He wanted to take me to his house in the forest right behind our house but my mom specifically told me that I shouldn't go with anyone except for them (parents) and my maternal aunts and uncles (my aunts lived with us because my mom loved them too much to leave them be). So, I rejected him the first time he asked. 
 
@@ -58,7 +58,7 @@ But this is where he comes in. We're currently only having online classes becaus
 
 His picture was the typical selfie. It was so mundane. If not for the red fucking shirt he was wearing. 
 
-I didn't want to think much of it because, holy shit, that shirt couldn't possibly the one he was wearing back then. How could it have been? He has a small frame when we met and Jacob here wasn't small at all. He's fucking buff. How could have the shirt enlarged all of a sudden? It's impossible. But the shirt is exactly the same! 
+I didn't want to think much of it because, holy shit, that shirt couldn't possibly be the one he was wearing back then. How could it have been? He had a small frame when we met and Jacob here wasn't small at all. He's fucking buff. How could have the shirt enlarged all of a sudden? It's impossible. But the shirt is exactly the same! 
 
 I just tried to get my mind off of it. Thinking about it would only make things worse for me. So, I distracted myself. I used Facebook a lot less because I was too scared to view Jacob's account. As much as I was curious, I didn't want to know. Or maybe a part of me was just too scared to find out. 
 
