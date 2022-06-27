@@ -1,0 +1,15 @@
+When I was little I tend to see many different things that still haunt me to this day. But this one this terrifying encounter I had. Still haunts me to this day. As a child and now I was always close to my mom as she was the one that took care of me. One night as I was asleep I suddenly felt this feeling of discomfort and that eyes were on me. 
+     
+I open my eyes and as they were getting used to the dark, a figure was there in the far corner not moving an inch or even moving at all. As my eyes came more clearly aware of the things in the darkness I came to the realization it was my mother. But she had lifeless eyes no shine at all and her skin was pale she wore a black robe and her hair a completely new color. 
+      
+I a confused 9-year-old just stared at this figure e imitating my mother's face I stared at it as it stared back at me. Its lifeless eyes seemed to have been looking not just at me but my soul as well. I had no clue what I was to do I didn’t feel anything I just had no emotion I was completely calm. I had just thought my mother was playing a cruel and creepy prank. But deep downtown I knew for some reason this thing, this imposter wasn’t my mother.
+     
+My breathing became heavier and heavier as the time which seemed an eternity passed. There was no movement from it at all it was just standing there waiting and waiting. Then in just a few seconds her head tilted so far it seemed like it would almost snap at the slightest touch or breeze then it smiled at me…a smile too big and too wide a smile showing all of her teeth yet her eyes were still lifeless. 
+    
+I wanted to cry I wanted to cry so bad I was terrified but nothing would come out as if this thing had me in a trance. I was just stuck in complete emptiness until it completely snapped its head back so fast that the sound of the crack Made me flinch. My grip on my blanket tightened so much that my knuckles were white. At this point, I hadn’t dared once so ever blink in fear it would come closer. 
+     
+Yet at the worse possible time this voice this raspy quick sharp, and a quiet voice whispered in my ear “It's me,jaylene” (which is my name). My head had never turned so quickly in my lifetime but there was no one but my open door but the darkness that came after it. At that moment realized what I had done…I felt a tear running down my face believing something terrible was gonna happen to me. 
+  
+In hesitation, I turned my head to look where the figure had been but what I saw was nothing like it had disappeared into thin air. I spent no time at all Bolting to my mother's room banging on her door praying it was all a trick and she would be holding a camera and laughing at me. But of course, I only got complete confusion and concern which almost made me burst into tears. I didn’t I just went in and laid on her bed with no emotion on my face as my mother followed she tried comforting me it didn’t work tho. 
+  
+I hadn’t slept that night I refused to I didn’t go to sleep in my room from then on for about 2 years I don’t speak about it anymore but it still creeps me out to this day
