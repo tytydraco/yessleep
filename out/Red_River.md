@@ -1,4 +1,4 @@
-#  Red River
+ Red River
 
 Little Sammy Nicholson fell off the bike for the third and final time. He scraped his knees and peeled the top layer of skin off his palms. The boy looked down at the miniscule spots of blood beginning to form, shock plastered on his post-baby face. His piggy eyes watched in paralytic fascination as the blood ran the track formed by the grooves in his hands. A winding river of blood in his palms. 
 
@@ -114,10 +114,4 @@ The boy, in an emotionless tone said, “Sorry mom the chain on my bike broke an
 
 Laura looked and saw what seemed to be blood stains on the sleeve of his shirt. She studied the boy’s figure; she saw no wounds on him. His unmarred skin shone bright in the pale moonlight. 
 
-The woman, still holding her son, closed the door, drowning out the steady beating of the river off in the distance.
-
-&#x200B;
-
-For more stories check out the link below!
-
-[johnwestrick.com](https://johnwestrick.com)
+The woman, still holding her son, closed the door, drowning out the steady beating of the river off in the distance
