@@ -48,7 +48,7 @@ The cords binding my wrist turned into snakes that coiled protectively around my
 
 I released her hand and the snakes disappeared.  Roj grabbed Cecily and they both backed away from me.  I marveled at the sight of them cowering before I left.  Drunk on the high, I decided to leave another message for everyone to enjoy.
 
-Though it lacked the shock and awe of my first, I think I made it perfecty clear they won't be rid of me anytime soon.  I'm here to stay.
+Though it lacked the shock and awe of my first, I think I made it perfecty clear they won't be rid of me anytime soon.  [I'm here to stay](https://www.reddit.com/r/nosleep/comments/vm3moj/confessions_of_a_tarot_card_reader_the_light/).
 
 
 [f](https://www.reddit.com/r/forehveree/comments/t16wl6/about_me/)
