@@ -119,3 +119,7 @@ Aaron spoke to me one final time, his voice growing fainter with every word.
 But that was all I could make out. Aaron's voice faded to silence. The last thing I saw was Aaron raising the pistol to his own temple. Then he dissolved out of view. Everything dissolved.
 
 Once again I was plunged into blackness.
+
+EPILOGUE [https://www.reddit.com/r/nosleep/comments/vll4k4/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vll4k4/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
