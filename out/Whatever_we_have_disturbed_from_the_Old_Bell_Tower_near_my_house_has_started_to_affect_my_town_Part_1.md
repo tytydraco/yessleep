@@ -1,7 +1,12 @@
-[In 2017](https://www.reddit.com/r/nosleep/comments/ugtih0/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) Me and a couple of friends went to an old bell tower looking for an adventure, instead we stumbled into the most terrifying place I could never have even imagined. 
+**UPDATE**
+
+[In 2017](https://www.reddit.com/r/nosleep/comments/ugtih0/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) Me and a couple of friends went to an old bell tower looking for an adventure, I could never have even imagined what horror lay in wait for us.
+
 We barely made it out alive, and one of our dearest friends went missing.
+
 [5 years later](https://www.reddit.com/r/nosleep/comments/v10257/theres_an_old_bell_tower_near_my_house_its/?utm_medium=android_app&utm_source=share) we returned to look for him, there had been recent sightings near the tower.
 We assembled a small crew and against our best judgement, we went back.
+
 What happened there has scarred me physically and mentally for life.
 
 We managed to escape again, only just! But then people started going missing around town, everybody is keeping it all hushed up, nobody talks about what's going on, and now it seems to be spreading like wildfire.
@@ -337,3 +342,5 @@ A large crooked smile that seemed to disappear almost instantly, but his glowing
 It lasted less than a second, but that look is permanently imprinted in my mind and I can't shake it off.
 
 My blood ran ice cold, as I watched them both get up and move slowly towards my Mum as she took a sip of her coffee.
+
+[X](https://www.reddit.com/user/Reggaejunkiegee/comments/vlsn7m/reggaejunkiegeetales_a_sub_for_all_and_for_all_a/?utm_medium=android_app&utm_source=share)

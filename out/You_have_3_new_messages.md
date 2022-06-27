@@ -389,3 +389,5 @@ The officer took my statement and has assured me I won't be called as a witness 
 I'm allowed to go home now, I have appointments scheduled for the foreseeable future with doctors and therapists, hopefully I can move on and that man never sets foot outside out a prison for the rest of his life.
 
 Please, please be careful with who you meet online.
+
+[X](https://www.reddit.com/user/Reggaejunkiegee/comments/vlsn7m/reggaejunkiegeetales_a_sub_for_all_and_for_all_a/?utm_medium=android_app&utm_source=share)
