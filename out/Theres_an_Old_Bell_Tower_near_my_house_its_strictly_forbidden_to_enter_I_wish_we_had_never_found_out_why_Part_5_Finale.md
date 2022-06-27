@@ -323,9 +323,9 @@ No fucking chance!
 
 .
 
-**UPDATE**
+.
 
-it's been just over a week now and every night they come.
+It's been just over a week now and every night they come.
 
 Every single night the bells ring at midnight and without fail they are outside my house.
 
@@ -336,3 +336,7 @@ I haven't spoken to Brian in a while.
 I'm just hoping, praying, that I don't look out one night and he's joined them.
 
 I should probably phone and make sure he's okay and remind him not to go outside.
+
+.
+
+[**UPDATE**](https://www.reddit.com/r/nosleep/comments/vlst64/whatever_we_have_disturbed_from_the_old_bell/?utm_medium=android_app&utm_source=share)

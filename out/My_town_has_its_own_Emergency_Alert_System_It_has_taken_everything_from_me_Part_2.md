@@ -12,7 +12,7 @@ It greatly simplified things for when the alarms sounded. She had become combati
 
 When the alert would sound I would sit by the door leading out of her downstairs apartment. Before I would go down there to wait it out with her I always made sure the doors and windows were firmly locked. It gave me the illusion of safety but it didn’t stop the voices I had started to hear outside the door.
 
-Years ago, when I had first moved back to Allister Springs, the Emergency Alert System had sounded my first night in town. Mom was still pretty sharp back then. We had moved into the cellar and listened to the weather radio for information. A few moments into the warning I could hear something brushing against the metal doors.
+Years ago, when I had first moved back to Allister Valley, the Emergency Alert System had sounded my first night in town. Mom was still pretty sharp back then. We had moved into the cellar and listened to the weather radio for information. A few moments into the warning I could hear something brushing against the metal doors.
 
 “Chris?” A hushed voice said through the barrier. It sounded like Paige. “Chris… please let me in! I’m so scared!”
 
