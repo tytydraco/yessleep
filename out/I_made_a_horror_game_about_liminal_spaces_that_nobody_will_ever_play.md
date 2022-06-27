@@ -128,7 +128,7 @@ After delivering its brief tutorial, the TV flickered and slumped down from its 
 
 The pressure was on. I was no longer questioning the logistics of what I was experiencing. I just knew that I had to find my way back and quick.
 
-The logical part of my brain tried to reason with the rest of my body, assuring me that I was in no real danger. And yet, there was no denying the pounding in my chest, or the cold beads of sweat rolling down my forehead. Using the "Shift" key as per instructed, I backtracked through the red corridors as swiftly as I could, applying the same methods that I used before but in reverse. I audibly sighed in relief whenever I came across a previously marked room, as it assured me that I was headed in the right direction.
+The logical part of my brain tried to reason with the rest of my body, assuring me that I was in no real danger. And yet, there was no denying the pounding in my chest, or the cold beads of sweat rolling down my forehead. Using the "Shift" key as per instructed, I backtracked through the red corridors as swiftly as I could, applying the same methods I used before but in reverse. I audibly sighed in relief whenever I came across a previously marked room, as it assured me that I was headed in the right direction.
 
 *75%*
 
@@ -140,7 +140,7 @@ I could've sworn that the meter was decreasing faster the further I got. It was 
 
 *5%*
 
-I was panting even though I wasn't the one actually running. I was so close, but, evidently, not close enough.  As I turned a corner and headed down what I presumed to be the penultimate stretch, I saw that there was another asset blocking the claustrophobic passage. It was one of those old bulky TV sets, which projected a static image of the same warped face as before. It was pointed right at me, expecting me.
+I was panting even though I wasn't the one actually running. I was so close, but, evidently, not close enough.  As I turned a corner and headed down what I presumed to be the penultimate stretch, I saw that there was another asset blocking the claustrophobic passage. It was one of those bulky old TV sets, which projected a static image of the same warped face as before. It was pointed right at me, expecting me.
 
 *0%*
 
@@ -154,7 +154,7 @@ I fell out of my chair just in time as the window practically exploded. Glitteri
 
 This wasn't a game anymore. Or if it was, I was the entertainment.
 
-Something grabbed the back of my sweatshirt. I squirmed away, leaving it in my pursuer's grasp. I ran, I screamed and I pleaded. I barreled through the identical rooms and interrelated passages, desperate to evade the imminent presence that followed my every step. I glanced back for only a second, which was enough to refuel my panicked frenzy, as what I saw will haunt me until the day I fucking die: a cluster of elongated limbs ending with human-shaped hands. Using them, it crawled forth like a centipede. At the center of the flailing mass was that goddamn face, although it's deep frown was now an impossibly wide grin filled with straight teeth. Its eyes had become two circular voids. They trembled with excitement the closer it drew. This was it, I thought; there was no way that I was getting out of this alive. My legs were bound to give out sooner rather than later, and I was in no state to assess where I was going. Whatever that grotesque monstrosity was intending on doing to me, I just hoped that it was quick.
+Something grabbed the back of my sweatshirt. I squirmed away, leaving it in my pursuer's grasp. I ran, I screamed and I pleaded. I barreled through the identical rooms and interrelated passages, desperate to evade the imminent presence that followed my every step. I glanced back for only a second, which was enough to refuel my panicked frenzy, as what I saw will haunt me until the day I fucking die: a cluster of elongated limbs ending in human-shaped hands. Using them, it crawled forth like a centipede. At the center of the flailing mass was that goddamn face, although it's deep frown was now an impossibly wide grin filled with straight teeth. Its eyes had become two circular voids. They trembled with excitement the closer it drew. This was it, I thought; there was no way that I was getting out of this alive. My legs were bound to give out sooner rather than later, and I was in no state to assess where I was going. Whatever that grotesque monstrosity was intending on doing to me, I just hoped that it was quick.
 
 I was on the verge of surrendering to my fate when my salvation appeared before me in the most unlikely and yet ironically fitting form. A red door. It blended so seamlessly with the walls that I saw only its outline, but it was there nonetheless: my way out. I mustered what remaining endurance I had and charged towards it. My lungs were on fire. I couldn't feel my calves anymore—it was like I was running on stilts.
 
@@ -166,7 +166,7 @@ It was.
 
 I stepped out into a world that I quickly realized isn't *my* world. The differences are subtle but they are there, chief among them being my own mother not knowing who the hell I am. She'd apparently never had a son. Alex threatened to call the cops on me after I repeatedly showed up at his school to try and talk to him. In his defense, if some random guy walked up to me and told me that they were my best friend from another timeline, I'd probably react the same.
 
-Things haven't been easy for me, as you can probably guess. I spent two years sleeping on park benches and diving through dumpsters; even turned to drugs to cope with the overwhelming trauma and loneliness. I can't say that things are all well and good now, but I do have a roof over my head, which is an improvement. I don't think that I'll ever be able to live a normal life, but I am trying, hence me writing this. I don't want to be alone anymore, and the internet is the only place where I can talk about this without worrying that I'd be thrown in a padded cell.
+Things haven't been easy for me, as you can probably guess. I spent two years sleeping on park benches and diving through dumpsters; even turned to drugs to cope with the overwhelming trauma and loneliness. I can't say that things are all well and good now, but I do have a roof over my head, which is an improvement. I don't think that I'll ever be able to live a normal life, but I am trying, hence posting this. I don't want to be alone anymore, and the internet is the only place where I can talk about this without worrying that I'd be thrown in a padded cell.
 
 You don't have to believe me. I wouldn't believe me either, but, hey, thanks for reading anyway.
 

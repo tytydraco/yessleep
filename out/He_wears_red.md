@@ -1,6 +1,6 @@
 I'm scared shitless right now as I type this on my android phone so I'm just gonna hand it to you straight without any dilly-dally. I'm Lee. I'm 17 and I live in the Philippines. And ever since I was a kid, my parents have deemed me to be someone who has a wild imagination. They told me I'd have a lot of imaginary friends and that I would make up a whole bunch of fake scenarios in my head. But there was this one imaginary friend that spooked the living daylights out of 4-year old me. 
 
-I can barely make out any memories I have of this so please bare with me if some things just don't make sense or if I can't give you guys vivid descriptions. This all happened when I was 4, after all. But going back, it all started when I was in my parents' room. Standard Filipino families usually had their kids sleep beside them until their kids are old enough to sleep alone. But in my case, I was spoiled little kid who got anything they wanted and when I asked my parents for my own room when I was only 3 (their words, not mine), they immediately gave it to me.
+I can barely make out any memories I have of this so please bare with me if some things just don't make sense or if I can't give you guys vivid descriptions. This all happened when I was 4, after all. But going back, it all started when I was in my parents' room. Standard Filipino families usually had their kids sleep beside them until their kids are old enough to sleep alone. But in my case, I was a spoiled little kid who got anything they wanted and when I asked my parents for my own room when I was only 3 (their words, not mine), they immediately gave it to me.
 
 So, there I was. I'm assigned female at birth so I had dolls as toys. I was playing with my dolls in front of my parents' walk-in closet when I heard a light knocking sound. I turned my head towards the closet and saw that it was completely closed shut. I was a toddler and my toddler brain didn't want to process shit so I just went back to playing. 
 
@@ -8,7 +8,7 @@ Not until the sound occured again.
 
 I began to grow impatient because, again, I was a toddler. I just wanted to play with my dolls. I didn't want anyone to disturb me. So, in typical impatient toddler fashion, I lightly kicked the door as a warning for whatever the fuck was in there to stop. I was so brave back then now that I think about it because who the hell threatens something that's making noises inside of your parents' walk-in closet? 
 
-Just when I was about to make my two barbie dolls kiss, there was a knock again. Only this time, it was much more louder and sounded impatient. This was enough to startle me, but not enough to scare me. So, I tilted my head to the side and inched closer towards the walk-in closet door. I huffed and slightly slid the door sideways as it was a sliding door. I peered my head through the door when I had opened it wide enough for my head to fit. 
+Just when I was about to make my two Barbie dolls kiss, there was a knock again. Only this time, it was much more louder and sounded impatient. This was enough to startle me, but not enough to scare me. So, I tilted my head to the side and inched closer towards the walk-in closet door. I huffed and slightly slid the door sideways as it was a sliding door. I peered my head through the door when I had opened it wide enough for my head to fit. 
 
 And then, I saw him. 
 
@@ -34,7 +34,7 @@ But, just like every other story, this one has it's turning point.
 
 We fought. He wanted to take me to his house in the forest right behind our house but my mom specifically told me that I shouldn't go with anyone except for them (parents) and my maternal aunts and uncles (my aunts lived with us because my mom loved them too much to leave them be). So, I rejected him the first time he asked. 
 
-"My mommy said not to go with anyone unless it's my adults who are asking." I said. I don't why I said 'my adults' that time. 
+"My mommy said not to go with anyone unless it's my adults who are asking." I said. I don't know why I said 'my adults' that time. 
 
 "But, we're friends!" He snarled. 
 
@@ -52,7 +52,7 @@ It got to the point where he'd make me trip or push me. I had just had enough of
 
 Until they changed. 
 
-I'm currently in 11th grade. I switched schools for senior high school (we have a different curriculum here. 4 years junior high school (7th grade- 10th grade) and 2 years senior high school (11th grade- 12th grade) for the entirety of high school) because my parents wanted me away from the bullies in jhs. No, I didn't get bullied for the kid with the red shirt. That's a different story.
+I'm currently in 11th grade. I switched schools for senior high school (we have a different curriculum here. 4 years junior high school (7th grade- 10th grade) and 2 years senior high school (11th grade- 12th grade) for the entirety of high school) because my parents wanted me away from the bullies in JHS. No, I didn't get bullied for the kid with the red shirt. That's a different story.
 
 But this is where he comes in. We're currently only having online classes because of the pandemic and were given worksheets every 2 weeks to answer as a supplementary material for physical classes. So, I didn't really get to socialize. Until this one guy chats me on the Messenger app. His name was Jacob (as indicated on his Facebook profile). I didn't think much of it. He was just asking for answers for our Statistics subject. But his profile picture caught my eye. It almost slipped my mind and it has almost gone unnoticed. 
 
