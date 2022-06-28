@@ -1,3 +1,7 @@
+PART FIVE [https://www.reddit.com/r/nosleep/comments/vdq7xs/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vdq7xs/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 "We gotta get these doors shut!" Aaron screamed at me, indicating the glass entrance doors that were still gaping open a couple feet from when he'd pried them apart earlier.
 
 I ran to the one on the right and he ran to the left. We started to push on them, trying to slide them shut. Aaron's moved pretty easily, but mine seemed to be stuck on its tracks. "I can't get it to move!" I screamed at him, throwing a frantic look outside.

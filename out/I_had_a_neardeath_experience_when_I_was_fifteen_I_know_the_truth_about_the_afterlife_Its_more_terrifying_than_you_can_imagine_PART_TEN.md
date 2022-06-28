@@ -1,3 +1,7 @@
+PART NINE [https://www.reddit.com/r/nosleep/comments/vgyrzq/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vgyrzq/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 Me and Aaron stood over Clark's corpse, looking at him in silent regard. He lay with a small round hole between and slightly above his eyes, a red puddle slowly spreading out from his head. He didn't liquify into black slime like the Residents did when you killed them. Maybe it was because he had still been human when he died. His eyes were closed and his expression was peaceful - maybe even relieved.
 
 I stared at him, imagining his mortal body in some other realm at this very moment, hooked up to life support machines in a hospital room, all his vital signs now negative, the shrill screech of an EKG as he flat-lined. Maybe his family - assuming he had one - was gathered around him, their faces streaked with tears, a nurse covering him with a sheet, a priest there to offer spiritual consolation, assuring them that he was "in a better place now."

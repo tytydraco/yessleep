@@ -1,3 +1,7 @@
+PART SEVEN [https://www.reddit.com/r/nosleep/comments/vfakb9/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vfakb9/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 When we finally felt safe (for the time being anyway) we halted in the middle of the road, winded and gasping, to catch our breath. I glanced back toward the town but there was no sign of them.
 
 I doubled over and began to retch. I felt like I was going to vomit but could only dry heave. There was nothing in my stomach to regurgitate. The last meal I had eaten had been the breakfast my mother had made for me the day before. it dawned on me suddenly that that had been the last meal I had consumed in the mortal world. And probably the last meal I would ever consume - period.

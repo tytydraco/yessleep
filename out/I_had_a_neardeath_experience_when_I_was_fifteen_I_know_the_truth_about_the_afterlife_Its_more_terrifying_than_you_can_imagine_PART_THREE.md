@@ -1,3 +1,7 @@
+PART TWO [https://www.reddit.com/r/nosleep/comments/vbfrfl/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vbfrfl/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 "How long have you been here?" I asked Aaron.
 
 He shrugged. "About two years, I guess. I tried offing myself in '13. But time's weird here. It passes differently. A day could seem like a week, a week could seem like a day." He pointed to Nadine. "Little Miss Friendly's been here the longest. Eight years."

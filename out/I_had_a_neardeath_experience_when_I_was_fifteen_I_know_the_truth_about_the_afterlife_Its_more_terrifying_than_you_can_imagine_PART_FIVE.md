@@ -1,3 +1,7 @@
+PART FOUR [https://www.reddit.com/r/nosleep/comments/vcy6kk/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vcy6kk/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 We crept through the cornfield for several hundred yards, then Aaron decided it was safe enough to venture back onto the highway. I glanced back at the farmhouse behind us, but at this distance I could see no sign of movement.
 
 We continued on our journey. I was still pretty disturbed and sickened by what we had witnessed. Dante noticed how shaken I was and gave me a commiserating pat on the shoulder. "That happens all the time. You get used to it after a while...if you last around here long enough."
@@ -50,7 +54,7 @@ We passed a trailer park, then some real houses, a few at first, then more. We w
 
 I looked around as we walked, my skin feeling cold and prickly with uneasy dread. The only sounds were the eerie moaning wind and our breathing. There wasn't a sign of life...or death for that matter.
 
-"I have seen a single one of those things since that farmhouse," I whispered to Jeff. "Where the hell are they?"
+"I haven't seen a single one of those things since that farmhouse," I whispered to Jeff. "Where the hell are they?"
 
 "Most of them are probably inside," he whispered back. "Dead folks don't go out very much...unless there's living folks around. Just don't draw any attention to yourself. Keep quiet and walk slowly,"
 
@@ -139,5 +143,3 @@ No...
 *Hundreds* of them.
 
 PART SIX [https://www.reddit.com/r/nosleep/comments/vektml/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vektml/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
-
-&#x200B;

@@ -1,3 +1,7 @@
+PART SIX [https://www.reddit.com/r/nosleep/comments/vektml/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vektml/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 The second the door opened, the stench of gasoline and burning flesh overwhelmed me, stinging my nostrils. A pile of blackened bodies lay scattered around the door, some still burning, most of them still moving slightly. The ones that were dead (well, *really* dead) had already liquified. Puddles of burning gasoline were everywhere. The air was thick with smoke.
 
 "Go!" I shouted at Dante, who quickly shoved Jeff's wheelbarrow through the door. I paused for a split-second behind him so I could yell up the ladder and through the trapdoor in the ceiling: *"Hurry up, Aaron!"* Then I raced after them.

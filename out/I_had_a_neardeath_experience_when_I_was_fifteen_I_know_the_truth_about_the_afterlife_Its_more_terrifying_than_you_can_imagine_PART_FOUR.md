@@ -1,3 +1,7 @@
+PART THREE [https://www.reddit.com/r/nosleep/comments/vc72o5/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vc72o5/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 I woke up sometime later. I sat up and looked around, confused.
 
 I was alone in the Police Chief's office. All the other cots were empty.

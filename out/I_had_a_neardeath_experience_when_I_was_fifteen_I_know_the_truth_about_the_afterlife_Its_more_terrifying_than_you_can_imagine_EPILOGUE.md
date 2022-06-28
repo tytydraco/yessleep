@@ -1,3 +1,7 @@
+PART TEN [https://www.reddit.com/r/nosleep/comments/vipjm8/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vipjm8/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 Once again I was floating weightlessly in the void, drifting like a feather through the silent blackness of oblivion, however, instead of falling downward for what seemed an eternity, now I was rising slowly upwards like a deep-sea diver ascending from the depths.
 
 \*\*\*\*\*

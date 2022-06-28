@@ -1,3 +1,6 @@
+PART ONE https://www.reddit.com/r/nosleep/comments/vap7ar/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3
+
+
 At the bottom of the ladder, I stepped off and looked around, panting. I was in a long, wide sewage tunnel. It was almost entirely pitch black.
 
 The man with the shotgun arrived at the bottom of the ladder. He leaned against it for a moment while he fumbled something out of his pocket. A *click* and a beam of light came on. A flashlight.
