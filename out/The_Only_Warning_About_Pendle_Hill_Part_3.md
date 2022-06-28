@@ -21,3 +21,5 @@ He wasn’t wrong, figuring out aged items was on the border between a hobby and
 It was still early, I was tired, so like an idiot I agreed. “Look, I’ll take a pass at it, if nothing else to see what you have on your hands here. But it’s way too early for me to say anything else aside from that.”
 
 He looked relieved when I said that. Likely because whatever he had gotten himself into he wasn’t going to be going at it alone more so than the fact that I’d find some answers. After sending him back on his way (or at the very least to the couch so I could get some sleep) I put the book on the shelf. I started heading back to bed when I had an odd sensation on me. I looked around and the only thing my eyes went to was that haunting book. I could have sworn it just blinked at me.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vjluqe/the_only_warning_about_pendle_hill_part_4/)
