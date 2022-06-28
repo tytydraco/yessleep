@@ -148,6 +148,5 @@ And as soon as I get out of this hospital…
 
 I'm going [back.](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
 
-[TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
 
 [YT](https://youtu.be/9RybtYtDzAk)
