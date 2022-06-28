@@ -2,6 +2,8 @@
 
 [Part III](https://www.reddit.com/r/nosleep/comments/vhafdy/i_live_in_a_remote_cabin_in_the_far_north/)
 
+[Part IV](https://www.reddit.com/r/nosleep/comments/vml5kz/i_live_in_a_remote_cabin_in_the_far_north/)
+
 Boxer whined and stirred me from a shallow sleep. He was off the bed and sniffing at the small gap at the base of the door. A dull light came in through the single window on the eastern wall of the cabin. The sun was up, but the clouds were thick and dark in the sky. Light snow made a gentle patter against the glass window. The trees swayed in the wind. Ominous clouds suggested it would get worse.
 
 I unlocked the door and inched it open. Boxer thrust his snout into the growing gap and pushed until it was wide enough for him to pass. He scurried out and disappeared around the corner. Moments later he barked and I ran to the rear of the cabin, rifle raised.
