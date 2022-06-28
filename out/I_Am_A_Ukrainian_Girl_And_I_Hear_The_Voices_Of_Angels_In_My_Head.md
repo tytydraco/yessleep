@@ -1,0 +1,13 @@
+Hello, I'm from Ukraine. I'm 18 years old. And I'm an ordinary girl. I was born in the Southern city of Odessa in an ordinary family. My father had a farm, and as a child I loved to graze sheep and cows in the field. And I'm also a very modest girl, and I've never had a boyfriend. I haven't even kissed yet. 
+
+After the invasion, something strange happened. It was the end of February, and I was sleeping in a bomb shelter when I suddenly heard someone call my name. But then I thought I was just imagining it. The second time it happened was on Easter Day. When I was walking home from church (yes, I believe in God and often go to church), I saw a bright light in the sky and heard that voice again, but everything stopped again. It scared me, but then I calmed down. This voice was very affectionate and kind.
+
+Recently it happened for the third time. I was sitting under a tree, and suddenly a strong wind blew. It was a very strange wind, and this voice appeared again. It came from a tree! He told me, "You should go to Kiev, ask Zelensky to give you an army to command, lift the siege from Donetsk, save your country and put Zelensky on a second term of government." I was terrified! I don't know anything about artillery and military skills. What can I do? I am an ordinary shepherdess from the village.  It is almost impossible to lift the siege from Donetsk. 
+
+Donetsk has been under siege for 4 months. The situation for Ukraine on this front is catastrophic. If the Russian army can break through the defenses there, then the way to capture Kiev will be open. This means that the independence of Ukraine will be finished, because Putin has declared his rights to the place of the president of Ukraine. But I think Zelensky is the only legitimate ruler. And I have to help him! My country must become free. 
+
+I made an agreement with my brother and a neighbor. They will take me to the mayor of Odessa. I will tell him about my voices and ask him to give me a guard so that I can get to Kiev. When I get to Kiev and get an audience with Zelensky, I will fall on my knees in front of him and say, "My ruler, I have come this long way for you. Give me an army, send me to Donetsk and I will save Ukraine. The Lord has told me that I must put you on a second term of government." 
+
+If he agrees, then I will cut my hair, change into men's clothes and ask him to prepare weapons, a tank and a battle flag for me. But before that, I will write Putin a letter from the Warrior Maiden and ask him to leave peacefully. But if he refuses, then I will save my country. 
+
+May God help me in this!
