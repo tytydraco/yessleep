@@ -1,0 +1,21 @@
+It was early in the morning when he sent the photo to our Group Chat.
+
+It was a little grey blur at the bottom of a screenshot of the security cameras Franklin had put outside the duplex he and his dad lived in. He said he needed to talk to us on facetime. Only three of us joined. “Hey uhh guys, does anybody know what that thing is at the bottom of the screen??” he said. “It's probably just like a possum or something” my other friend Kevin replied. “No, I don't think so. It doesn’t look much like any rodent so when I noticed it when I woke up I got scared and thought it might be someone trying to break into my house since I saw some marks on my front doorknob but this thing look weird. Inhuman.” said Franklin. 
+
+Over the past four years I had known Franklin, I learned that he was a “practical joker” so I thought I could see right through his annoying gag. “Franklin will you cut it out. I’m so tired of you constantly playing these pranks on us. It's so obnoxious and a total waste of time.” I said to him with anger brewing inside of me. I just couldn’t stand the fact that he did this kind of thing every day. That's when Kevin started to say “Hey let’s not jump to conclu-” “You think I’m joking!?” shouted Franklin, his voice booming over my phone speaker.
+
+“You do it all the time and I’m sick of it!” I yelled back, filled with rage. “Yeah? Well if you're so sure I’m lying, why don’t you set up cameras and see for yourself?!” Frankin said angrily. “Fine!” I shouted just in time to hear Kevin say “Wait guys n-”.
+
+I sat there in my bed for a bit, waiting for 3:00 am to come and analyzing the photo. “Totally fake,” I muttered to myself while looking at the picture It was a small thing that looked like a sphere with four rods protruding from its bottom and bending to create something akin to Sputnik if it had movable joints. It couldn’t be real. “I thought to myself. It's just another one of Franklin's sick jokes. Though he did seem angry when I tried to call him out. Maybe-“
+
+I brushed my thoughts aside and decided to go and get a home security camera. I stepped into the outside and walked down the steps of my house and onto the grass, the morning dew soaking my shoes. I stopped when I got to the garage and from inside it heard scratching and cracking. Cautiously, I opened the door to the garage and heard a skittering noise that sent shivers down my spine.
+
+I brushed it off as just a rodent since a saw a few teeth marks but still was terrified as I walked to my car. Once I got into my car I pulled it out of the driveway and in my peripheral vision, I saw a grey flash next to my car. I drove faster after that and after an eternity I finally got to the store. I stepped inside and walked over to the technology section, ignoring any other parts of the store.
+
+I noticed they only had one camera and I scooped it up before anyone else could. I walked up to the man at the cash register and put the camera in front of me. “Sorry we have such low stock,” he said. “There has been high demand and, well, low supply”. “It's okay. This is all I need” I replied.
+
+I walked out of the store, actually a bit excited to use it. But all that faded when I got to my car and saw it. There were teeth marks everywhere and looked as if a crocodile had been let loose onto it. I dropped my bag and stared at the sight in horror. But that's when I noticed the darkness surrounding me and decided that staying outside was most likely dangerous and that I needed to get home.
+
+I nearly got pulled over by the cops on my way home because I paid no attention to the speed limits but finally, I was home. As I was pulling into the garage though, I angled my car weirdly on accident and heard a crack. Thinking I had broken something I stepped out to see what the damage was but what I saw was much worse than a damaged car. It was what looked like a nest sitting there, crushed.
+
+Part 2 here: https://www.reddit.com/r/nosleep/comments/vm8j4d/teeth_marks_pt2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf

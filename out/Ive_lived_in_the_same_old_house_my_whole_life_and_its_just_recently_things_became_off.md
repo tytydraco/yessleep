@@ -58,4 +58,4 @@ I’m going to look under the bed now. Whoever sees my letter if something happe
 
 - Hannah
 
-Click here for [part 2](https://www.reddit.com/r/nosleep/comments/vlyrvm/ive_lived_in_the_same_old_house_my_whole_life_and/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+Click here for [part 2](https://www.reddit.com/user/Intrepid_Medicine351/comments/vm8jjr/ive_lived_in_the_same_old_house_my_whole_life_and/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

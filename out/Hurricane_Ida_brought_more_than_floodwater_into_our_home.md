@@ -1,4 +1,4 @@
-My husband and I are originally from North Carolina, but in 2016, we moved from our Boone to a small city in Louisiana. Our new home was located in a subdivision on the very edge of Lafourche Parish. We had headed south because Paul, my husband, was offered a new position that would pay two-thirds more than his previous job offered.
+My husband and I are originally from North Carolina, but in 2016, we moved from Boone to a small city in Louisiana. Our new home was located in a subdivision on the very edge of Lafourche Parish. We had headed south because Paul, my husband, was offered a new position that would pay two-thirds more than his previous job offered.
 
 The transition for us was a bit rocky at first, between heading to a new state neither of us had been to and leaving our other family members behind. But after I found a new school to work at and getting to know our neighbors, we finally felt like we belonged. Seven months after we arrived in Louisiana, we discovered I was seven weeks pregnant with our first child, who I gave birth to in late 2017. It was a boy, who we decided to name Robert in honor of Paul’s great-grandfather.
 
@@ -20,7 +20,7 @@ At one point during the tutoring session, my student was silently attempting to 
 
 “Leonardo is better,” Robby said. There was then a five second window of silence, which I could tell was Robby waiting for an answer from his imaginary friend.
 
-“Donatello? He’s boring, though,” he then said. I laughed; I guessed he and his friend were having a debate on which ninja turtle was better. 
+“Donatello? He’s boring, though,” he then said. I laughed; I guessed he and his friend were having a debate on which ninja turtle was better.
 
 “What about Michelangelo?” Robby then asked. “Do you think he’s cool?”
 
@@ -132,9 +132,9 @@ I just nodded, knowing Paul wasn’t going to take it very seriously (he’s jus
 
 “You said the friend he was talking to on Wednesday was named Timmy,” he responded, sticking his head out into the hallway to face me. “But today, he said his name was Tommy.”
 
-“Oh, that’s right,” I said. Between the craziness of the day, the name change had completely 
+“Oh, that’s right,” I said. Between the craziness of the day, the name change had completely
 
-The next day was a Saturday. Paul went to the grocery store, with Robby tagging along. This meant I had the whole house to myself. I decided to take the opportunity to clean our bedrooms now that the other two were out of the house. Knowing Robby’s room would take the longest to clean, I chose to start there. 
+The next day was a Saturday. Paul went to the grocery store, with Robby tagging along. This meant I had the whole house to myself. I decided to take the opportunity to clean our bedrooms now that the other two were out of the house. Knowing Robby’s room would take the longest to clean, I chose to start there.
 
 Eventually, I made my way over to his little table, where he would play with Legos and draw on construction and loose leaf paper with crayons. After putting his crayons back in the box, I noticed a partially-covered paper with drawings on it. Curious, I picked it up, revealing [this.](https://imgur.com/a/ryFxjEx)
 
@@ -196,7 +196,7 @@ It was about 9 p.m., and Robby was already asleep in his room. Paul and I were o
 
 “Robby?” he said.
 
-From my spot at the table, I couldn’t see the laundry room. I looked back at Paul, who was staring off into the room. From my angle, I could see the corner of his eyes. I watched as his eyes went from confusion, to shock, to anger. Before I could ask what was wrong, we both heard manic footsteps make their way to the laundry room, a child’s giggling coming with each step. 
+From my spot at the table, I couldn’t see the laundry room. I looked back at Paul, who was staring off into the room. From my angle, I could see the corner of his eyes. I watched as his eyes went from confusion, to shock, to anger. Before I could ask what was wrong, we both heard manic footsteps make their way to the laundry room, a child’s giggling coming with each step.
 
 Paul immediately got up from the couch and made chase, with me following suit. He flicked on the laundry room light as he began looking around the room for something, or rather, someone.
 
@@ -252,7 +252,7 @@ I won’t lie, the thought of a bad spirit inhabiting our home made me feel naus
 
 “I hope so,” I said. “How has Gabriela been? The last time I talked to her was before Ida.”
 
-“She’s…uh…doing okay,” he responded, his smile disappearing. Before I could ask about it any further, he said goodbye and walked back inside his mansion-like house. I figured they may have separated, since they fought all the time prior to the hurricane. But it wasn’t my business, so I quickly forgot about it. 
+“She’s…uh…doing okay,” he responded, his smile disappearing. Before I could ask about it any further, he said goodbye and walked back inside his mansion-like house. I figured they may have separated, since they fought all the time prior to the hurricane. But it wasn’t my business, so I quickly forgot about it.
 
 What I didn’t forget, however, was the idea of our home being inhabited by bad spirits. I told Paul about it, but he seemed incredulous on the Voodoo aspect of it.
 
@@ -328,6 +328,6 @@ I’ll update everyone in a few days. Stay safe, everyone.
 
 * Lillian
 
-Update: Robby came up to Paul and I while we were talking with a piece of paper.
+**UPDATE:** Robby came up to Paul and I while we were talking with a piece of paper.
 
 “This is what I saw on my bed last night,” Robby said as he showed us [this.](https://imgur.com/a/aEEkgW8)
