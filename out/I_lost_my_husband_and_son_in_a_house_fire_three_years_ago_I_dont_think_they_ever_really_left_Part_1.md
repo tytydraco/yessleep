@@ -22,13 +22,13 @@ Walter owned a company digging water wells across the country. He spent countles
 
 Man, if I could turn back time to hear just one more story about a Texas ranch water well, I would hang on to every word.
 
-What I do remember clearly was the numerous amount of trips Walt would take overseas to dig wells in developing countries. I always teased him that it was a tax write-off to see foreign lands and he would laugh it off. Walt was kind-hearted. We lived an exceptionally fortunate life and it was important to him to give to those who hadn’t lived the kind of life we were afforded. 
+What I do remember clearly was the numerous amount of trips Walt would take overseas to dig wells in developing countries. I always teased him that it was a tax write-off to see foreign lands and he would laugh it off. Walt was kind-hearted. We lived an exceptionally fortunate life and it was important to him to give to those who hadn’t lived the kind of life we were afforded.
 
 Three years ago, Walt traveled to Niamey, Niger. It was an African country I didn’t know very much about, but Walt was over the moon about the trip. For all of the work-life discussions that I drifted out on, hearing him talk about traveling for relief work always kept my attention.
 
 Aaron hung on every word, too. He idolized his father. Rightfully so. Walt was one in a million. And Aaron was too. I was so lucky to have had them.
 
-Walt was gone for three weeks. Aaron, seven years old and crestfallen that his hero traveled overseas without him, stayed home with me. We talked daily about what we thought his father was doing and all of the amazing things he had seen. 
+Walt was gone for three weeks. Aaron, seven years old and crestfallen that his hero traveled overseas without him, stayed home with me. We talked daily about what we thought his father was doing and all of the amazing things he had seen.
 
 Evening text messages kept us up to date on his location and sent messages of love. We missed Walt, but as any mother with a son knows, the time with a little boy is precious. You have to take in those innocent years before they grow into serious men.
 
@@ -113,7 +113,7 @@ As I looked toward Walter’s statue, I was transfixed by the lopsided smile. It
 
 All of the doors were locked. No one could have come inside. Even if they had, what burglar would locate your car keys and move a keepsake into the center of the floor.
 
-It consumed my mind for the entire work day. Were the statues moving? Was I losing my mind? The thought terrified me. 
+It consumed my mind for the entire work day. Were the statues moving? Was I losing my mind? The thought terrified me.
 
 Since their removal from the box, the statues of my family had either been on the kitchen counter or the dining room table when I ate dinner. While I would occasionally move them to clean the kitchen surfaces, they kept their watch from there. Over time, though, they could more frequently be found in different places.
 
@@ -126,3 +126,5 @@ As I walked to the kitchen holding the two stone effigies, my mind retraced my s
 I spent so much time talking to the inanimate objects that I knew there had to be a limit somewhere. Still, I must have moved them into the bedroom with me. Perhaps I had spent so much time talking to them throughout the day that I was inadvertently picking them up and placing them in different places throughout the house.
 
 A cold chill still rattled my bones as I placed them back on the countertop. They smiled at me as always, but now, those smiles filled me with [fear and discomfort.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/vmwla9/i_lost_my_husband_and_son_in_a_house_fire_three/)
