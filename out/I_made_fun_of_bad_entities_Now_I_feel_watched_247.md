@@ -1,0 +1,25 @@
+I want to start this of by saying that I am in high-school.
+
+I think it was about 1AM, I was scrolling on my phone. 
+
+My sister was on her laptop and we were both in our dads office, the internet is faster in there so it is common for us to be there when we want to stay up all night watching videos on YouTube/TikTok. On this particular night I was scrolling on TikTok when I came across a video with the title "8 horrifying facts that will probably keep you up at night." I was thinking to myself that this 'horrifying facts' cant be that bad. Im a fanatic of horror movies/ horror stories and dont get scared easily so I kept watching. 
+
+To my surprise, some of those facts gave me a little discomfort so I clicked on this guys channel and almost immediately saw a playlist named 'True horror stories' I clicked on it and the last part posted was part 53 so I tought to myself that tonight Ill have something to watch. 
+
+(I need to mention that I wasnt wearing headphones so if my sister could hear everything if she wanted to because she was 2 meters away from me) 
+
+The guy talked a lot about some entities from his culture named Jinns and how dangerous they can be in some cases. I was never the religious kid and I never believed in this things and hearing this stories which were all about Jinns didnt change anything. Were they scary? Yes. Did I think they were real? No way.
+
+At this point it was around 2AM and I was still watching the same playlist and all of a sudden my sister asked me: "Why do you keep watching those stories? they arent real." I replied to her: "I know they are not real, they seem copy pasted from I dont know what crappy site. Plus, who actually believes that this 'ghosts' can do any harm in our world?"
+
+After this, my sister went back to what she was watching and I kept listening to those stories but something changed. I started feeling a discomfort, like that gut feeling when you know somethig bad is about to happen but I thought that I was just tired and told my sister that Im going to sleep. 
+
+No words can describe the horrific nightmares I had that night. I would wake up sweaty and with tears in my eyes, check the time and see that I was asleep only for 15-20 minutes. It was horrible and when I would fall right back asleep they would just continue. I felt like in hell in my own bedroom, the bedroom I slept in since I was 5.
+
+By 4AM I decided that I had enough and grabbed my coat and walked to the non stop market near my house so I can get an energy drink. I thought that maybe that way I could stay up and avoid the nightmares. Even though it was 4AM, there was no one and the walk from my house to the supermarket was less than 3 minutes I didnt feel alone for the whole walk, I couldnt hear anything out of place but something in the back of my head was like "Turn around to see if anyones there." I think I checked to see if anyones following me maybe at least 10 times. When I got there the only worker there was a sweet old lady who knew me because Im a regular at that store. She asked me with a worried look on her face: "Are you ok sweetheart?" I just nodded saying "I didnt get much sleep." she said something like "Well the streets at this hour arent a good place for a young lady like you..." I smiled at her looking for a can of energy drink. When I finally got out of the store the only thing in my mind was to get home, I didnt even realise for a second that I was sprinting out of fear, I got that unsettled. 
+
+When I got home and I was struggling to close the front door without waking everyone up I got a bad feeling, that I shouldnt go in my room, I felt that, regardless if I drink the energy drink or not I would fall asleep and I didnt want those nightmares to continue so I went in my dads office. The lights were off but I could see someones silhouette in the arm-chair and my first thought was that my little sister fell asleep there, no problem, I can carry her up to her room (shes 9).
+
+I swithched the light on there was no one there. Just my sisters laptop and her blanket nicely folded. I got extremely scared. I just saw her sleeping in the dark. Her whole body was moving from how she was breathing, it couldnt just be my imagination. I rushed upstairs to my sisters room and she was there, fast asleep. I was so scared that I rushed to my bedroom window and started saying a prayer my grandma taught me when I was younger and then went downstairs to watch some videos on youtube. In my mind I was repeating the prayer over and over again tryng to calm myself down. My whole body was shaking and I was fighting back tears. The feeling that I was watched grew bigger and in the dark I was sure that one of this entities was silently watching me suffer.
+
+Its been 2 weeks since this incident, the nightmares are still as intense and the feeling that something is watching over me is still not gone, I feel like Im in hell. I tried talking to my dad about it but he laughed in my face and when I told my mom she said that I was an imaginative kid growing up. No one in my family believes me and prayers that my grandma made me learn dont help.
