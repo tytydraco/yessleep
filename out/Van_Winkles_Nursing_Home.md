@@ -1,17 +1,20 @@
-It’s my last week of high school, and I’ve started playing a game – whenever I do something for the last time, I make a note of it in my head. I performed my last concert in the stuffy auditorium. I took my last bite of the cafeteria’s dry chicken patties. And I pissed one, final time in one of the too-low, too-round urinals that always sprays back.  
+It’s my last week of high school, and I’ve started playing a game – whenever I do something for the last time, I make a note of it in my head. I performed my last concert in the stuffy auditorium. I took my last bite of the cafeteria’s dry chicken patties. And I pissed one, final time in one of the too-low, too-round urinals that always spray back.  
  
-I listen to the final bell. It rings its shrill tune, same as it always has and always will. I watch through the bus window as the school disappears from sight.  
+The final bell rings its shrill tune. I won’t ever hear it again.  
+I watch through the bus window as the school disappears from sight.  
 
-The bus screeches to a halt. I stand and shove my way through the underclassmen who dangle their legs across the aisle. At the front, I thank the kindly bus driver and bid him farewell – taking those final few steps down to the street and out, through the door. The bus continues on. I take one final glance before it turns around the corner – it passes by a slim white car and then it is gone. I check the boxes in my head: last, last, last.  
+The bus screeches to a halt. I stand and shove my way through the underclassmen who dangle their legs across the aisle. At the front, I thank the kindly bus driver and bid him farewell. Then, down the final few steps and out to the street. The bus continues on. It passes by a slim white car before turning the corner and it is gone. I check the boxes in my head: last, last, last.   
 
-I turn, and start to plug my earbuds in – but pause, as a thunderous revving rolls through the neighborhood – and I see a blur of white cut straight through my periphery – I don’t have time to run – the white car clips up the curb and barrels through me. I’m sent sprawling across the cement, my flesh torn and leaking red hot blood. It feels like lava against my skin, tastes like the bite of steel. I take a deep breath, convinced it will be my last. The world is drowned in black.  
+I turn, and start to plug my earbuds in, but pause – a thunderous revving rolls through the neighborhood. I see a blur of white cut straight through my periphery, and I don’t have time to run – the white car clips up the curb and barrels through me. I’m sent sprawling across the cement, my flesh torn and leaking red hot blood. It feels like lava against my skin, tastes like the bite of steel. I take a deep breath, convinced it will be my last.  
+ 
+The world is drowned in black.  
 
-I sleep for a long time.  
+
  
 
 ~
 	
-I spend a lifetime submerged in the darkness, my eyes shut tight. The world and its sweat and its pain are knocking, slamming the front door with their fists. But I won’t answer. I won’t.  
+I spend an eternity submerged in the darkness, my eyes shut tight. The world and its sweat and its pain are knocking, slamming the front door with their fists. But I won’t answer. I won’t.  
 
 And then I feel the kiss of a damp towel. A gentle hand guides its smoothness across my face and down my neck. So cold, so soft. “Mr. Irving?” Her voice is soothing, and like the towel it summons me from my dreamless sleep. I open my eyes to a room I have never seen and a woman I have never met. She gasps. “You’re awake.”  
 
@@ -19,11 +22,11 @@ And then I feel the kiss of a damp towel. A gentle hand guides its smoothness ac
 
 “I’m Miss Judith, your caretaker. And this is nothing less than a miracle.” She holds her hands to her chest. Her arms and legs are skinny and long.    
 
-“Caretaker?” I hold one hand to my throat, and secure the other against the mattress beneath me. As I slowly lift myself to a sitting position, my body resists. My chest and my arms and my legs flash white hot pain. Everything aches. “What the hell is going on?” I croak out.  
+“Caretaker?” I hold one hand to my throat, and secure the other against the mattress beneath me. As I slowly lift myself to a sitting position, my body resists. My chest and my arms and my legs flash white hot pain. Everything aches. “What the hell is going on?!” I croak out.  
 
 “Your muscles have atrophied, Mr. Irving.” Miss Judith lays a delicate hand atop my pale, blue sheets and eases me back down. I’m too weak to resist. “You’ll hurt yourself if you exert yourself. Lay here, and rest.”  
 
-The room is lit with a warm, yellow glow. I listen to the whirring of the overhead fan, watch as it tousles the partition beneath it. I smell the waft of bleach from the white, tiled floors and shiny walls. To my right is a window, its royal blue curtains closed. “I remember, I was hit by a car,” I say.  
+The room is lit with a warm, yellow glow. I listen to the whirring of the overhead fan, watch as it tousles the partition beneath it. The smell  of bleach wafts up from the white tiled floors and the shiny walls. A dusty pipe runs along the ceiling. Sunspots of dark, green mildew stare back from the corner. I To my right is a window, its royal blue curtains closed. “I remember, I was hit by a car,” I say.  
 
 “It was your last day of school,” Miss Judith says. “They printed your name in the old newspaper.”  
 
@@ -43,11 +46,11 @@ The room is lit with a warm, yellow glow. I listen to the whirring of the overhe
  
 Miss Judith leans over my bed and rubs her towel against my eyes, drying up the tears before they can drip down my cheeks. “I’m so sorry. But you mustn’t worry about them now. You’re starving, aren’t you? Just a minute, and I’ll fill you up.” Miss Judith swoops in and plants a kiss on my forehead. So cold, so soft. I look into her beautiful, blue eyes, and find them trembling with warmth and love and pity. She slips away, then pauses just before clicking the door shut. “Welcome to Van Winkle’s Nursing Home, Mr. Irving.”    
  
-Mr. Irving is my father. I’m Will, just Will. I run my thick, wrinkled fingers down my chest. My skin is too long for my body, and it feels heavy like rubber. I need a mirror.  
+Mr. Irving is my father. I’m Will, just Will. I run my thick, wrinkled fingers down my chest. My skin is too long for my body, and even though I feel so sweaty it is bone dry to touch. I need a mirror.    
 
 I groan as I roll onto my side. I wince. A dozen, sharp cracks ring out from my spine.  
  
-The royal blue window shades are shuttered tight. An IV stand towers over me, its bag filled with a viscous, white syrup. I trace it as it flows down through the tube and beneath my sheets. I lift my arm – the needle is plugged in, but I can hardly feel it. I leave it be.  
+The royal blue window shades are shuttered tight. An IV stand towers over me, its bag filled with a viscous, white syrup. I trace it as it flows down through the tube and beneath my sheets. I lift my heavy, heavy arm; the needle is plugged in, but I can hardly feel it. I leave it be.  
 
 A small, white table stands by the bed. On its surface is a glass vase and a single, fake flower. I shift towards the edge of the mattress. In the rounded face of the glass I see myself, distorted. My bald skull, my sparse, gray brow, my drooping cheeks, all stretched like putty in my reflection. “Oh… oh my god.”  
      
