@@ -1,14 +1,14 @@
-Growing up, I thought it was normal. Hush-quiet afternoons spent staring up at a locked hatch with a teacup resting in my lap. Sunlight beams spilling through the cracks in the blinds, painting my sister’s cheeks in zebra stripes. Flakes of dust floating down like poor man’s snow. 
+Growing up, I thought it was normal. Hush-quiet afternoons spent staring up at a locked hatch with a teacup resting in my lap. Sunlight beams spilling through the cracks in the blinds, painting my sister’s cheeks in zebra stripes. Flakes of dust floating down like poor man’s snow.
 
-Robin’s little finger coming up to her lips. *Shhh.* 
+Robin’s little finger coming up to her lips. *Shhh.*
 
-Then we’d hear it and time would stop. A gentle flutter barely reaching the ear through the cracks in the ceiling. One pair of wings, then two, three, and on to infinity. Robin said it was our mother, coming down from heaven to visit us, bringing her angel friends to help watch over her girls. 
+Then we’d hear it and time would stop. A gentle flutter barely reaching the ear through the cracks in the ceiling. One pair of wings, then two, three, and on to infinity. Robin said it was our mother, coming down from heaven to visit us, bringing her angel friends to help watch over her girls.
 
 *Where are the angels now, Robin?*
 
 *---*
 
-It’s already dark when I reach the house. I park across the street and force myself to get out. I walk over, taking a long look at my childhood home. A thick layer of dust coats the glass of every window. Parts of the wall cladding have come off, revealing a wood carcass rotting from within. Dry, overgrown grass shuffles in the wind. 
+It’s already dark when I reach the house. I park across the street and force myself to get out. I walk over, taking a long look at my childhood home. A thick layer of dust coats the glass of every window. Parts of the wall cladding have come off, revealing a wood carcass rotting from within. Dry, overgrown grass shuffles in the wind.
 
 I knock.
 
@@ -30,7 +30,7 @@ I nod, hoping she’ll tell me more so I don’t have to ask.
 
 “A pipe burst out in the flatlands and they had to dig it up. Found ma in the process. It was months ago, but those science tests take time so they only confirmed it now.”
 
-So many questions my tongue can’t turn to ask. Were the remains in one piece? How long ago did she die? Was she buried alive? I change the topic instead. 
+So many questions my tongue can’t turn to ask. Were the remains in one piece? How long ago did she die? Was she buried alive? I change the topic instead.
 
 “You’re living here now?” I ask.
 
@@ -44,13 +44,13 @@ It’s hard to think about my sister living in this disgusting house, alone with
 
 “Alright, well I was gonna turn in early. I’m sorry to cut our talk short, it’s just I’ve got the early shift at the shop tomorrow.”
 
-“No, of course,” we rise from our seats and I go in for an awkward hug. 
+“No, of course,” we rise from our seats and I go in for an awkward hug.
 
 “Glad to have you here, little sister,” she says, pulling away after a minute.
 
 My childhood bedroom looks cleaner than expected. I can tell Robin put effort into clearing away some clutter and our two single beds have been put together on the far side by the window. I linger in the doorway, afraid that taking a step inside will transport me back in time. Shrink the bones in my body, render me helpless. My eyes run over the dents in the desk, the brown stains on the walls.
 
-I walk over to the bed and drop my backpack on the floor. I undress and slip in between the sheets, scooting over to the window. I consider drawing the curtains shut, but I like looking at the star-grazed sky through the mesh. It’s the one thing I don’t get to see much of in the city. The moon is whole and bright, and when I look down I can see the outline of the old aviary in the backyard. 
+I walk over to the bed and drop my backpack on the floor. I undress and slip in between the sheets, scooting over to the window. I consider drawing the curtains shut, but I like looking at the star-grazed sky through the mesh. It’s the one thing I don’t get to see much of in the city. The moon is whole and bright, and when I look down I can see the outline of the old aviary in the backyard.
 
 Growing up, I only ever saw it as a weird jungle gym, but Robin is four years older than me and remembers when our mother used to keep doves. Dozens, apparently. I picture the cages clean, taken care of, a smiling woman spilling bird feed into my tiny, cupped hands. I can’t tell if this is an actual memory of my mother or just a fantasy scene conjured from Robin's descriptions.
 
@@ -58,23 +58,23 @@ I stare out the window for a long time.
 
 The house is quiet, warm. The air is fresh, and I feel my eyelids start to droop. I am about to rest my head on the pillow, when something moves in the aviary. A flicker of white, there for one second, gone the next. My eyes widen as my body tenses. I press my face against the murky glass, straining to see as the sky clouds over, painting the yard black.
 
-*What did I see?* 
+*What did I see?*
 
-Nothing. 
+Nothing.
 
-*Something?* 
+*Something?*
 
 It shouldn’t make me this nervous, but it does. I lie back on the bed and close my eyes, willing the anxious knot in my stomach away. It was probably an animal, a rabbit or a hedgehog.
 
 I need to sleep.
 
-I decide not to think about what I just saw (or didn’t see). I focus on counting to one hundred, then two. 
+I decide not to think about what I just saw (or didn’t see). I focus on counting to one hundred, then two.
 
 Three.
 
 \---
 
-A gentle flutter starts somewhere above my head. I’m standing alone at an abandoned gas station outside of town. The pump is filling up the rental tank at an incredible speed. The hose writhes in my grasp, and I see fat bulges pulsating through the length of it. A moment later it starts spilling over, a thick, red liquid running down the side of the car. Visceral chunks flow down, with bits of matted black hair and bone. A long, blackened intestine stretches and snaps like a rubber band. The bloody matter floods at my feet. It covers my sneakers and seeps into my socks. 
+A gentle flutter starts somewhere above my head. I’m standing alone at an abandoned gas station outside of town. The pump is filling up the rental tank at an incredible speed. The hose writhes in my grasp, and I see fat bulges pulsating through the length of it. A moment later it starts spilling over, a thick, red liquid running down the side of the car. Visceral chunks flow down, with bits of matted black hair and bone. A long, blackened intestine stretches and snaps like a rubber band. The bloody matter floods at my feet. It covers my sneakers and seeps into my socks.
 
 I wake up.
 
@@ -82,11 +82,11 @@ My skin is cool and damp, my chest heaving. Above my head, a storm of wings send
 
 Robin stands at the foot of my bed, her eyes pitch black in the shifting shadows of the room. Her body is so stiff I can barely tell she’s breathing. I wonder if I’m still dreaming, but the odd palpitation in my heart assures me otherwise.
 
-“I heard you screaming,” Robin’s voice is low, raw. The corners of her mouth twitch, an invisible force tugging them upwards. 
+“I heard you screaming,” Robin’s voice is low, raw. The corners of her mouth twitch, an invisible force tugging them upwards.
 
 I cannot move or speak. I feel like a child again, shaking under blankets as my older sister approaches my bed, eyes wild and black. I relive all the times I wanted to scream but couldn’t, because our father drinking downstairs was a larger threat.
 
-Minutes pass before Robin turns to leave. She walks to the door, her movements robotic, an invisible puppeteer pulling her along with strings. I can’t move or breathe. The threat of another sleepwalking episode lingers as long as the birds in the attic continue their feather-long choir. Hours pass in rigid insomnia, until finally, the flutter of wings subsides at dawn. 
+Minutes pass before Robin turns to leave. She walks to the door, her movements robotic, an invisible puppeteer pulling her along with strings. I can’t move or breathe. The threat of another sleepwalking episode lingers as long as the birds in the attic continue their feather-long choir. Hours pass in rigid insomnia, until finally, the flutter of wings subsides at dawn.
 
 I get out of bed and get dressed, use the bathroom. I check my phone to see that I have three missed calls from my boyfriend. I dial. He’s three hours ahead, so it’s just about time for him to be waking up for morning classes.
 
@@ -94,7 +94,7 @@ I get out of bed and get dressed, use the bathroom. I check my phone to see that
 
 “It’s a lot,” I reply after a pause, “Robin’s not doing so well either.”
 
-“Well of course not! You both just learned your mother was killed by your shit stain excuse for a father. It’s going to be a process.” 
+“Well of course not! You both just learned your mother was killed by your shit stain excuse for a father. It’s going to be a process.”
 
 Jonah has this way of stating the obvious. It’s hardly comforting and I just want to end the call before he asks.
 
@@ -114,11 +114,11 @@ Jonah is convinced the birds in the attic are psychosomatic, an auditory halluci
 
 We exchange goodbyes, saying that we miss each other, that we love each other. A day ago these words felt sincere, but being back home, seeing my sister in the middle of the night, hearing the birds in the attic. It’s like reality has come undone. My life in the city feels artificial, fleeting even, while my childhood home threatens to swallow me whole.
 
-I haven’t eaten since breakfast the previous day. I’m so tightly wound it feels like my stomach has gone ahead and digested itself, disappearing for good. Still, I should eat. I leave the bedroom and walk downstairs, considering a small diner not far from our house. A gray sunlight seeps through the blinds, revealing more filth along my path. Dirt, old newspapers, dried up spills of something sticky. Moldy spatter on the peeling wallpaper.  
+I haven’t eaten since breakfast the previous day. I’m so tightly wound it feels like my stomach has gone ahead and digested itself, disappearing for good. Still, I should eat. I leave the bedroom and walk downstairs, considering a small diner not far from our house. A gray sunlight seeps through the blinds, revealing more filth along my path. Dirt, old newspapers, dried up spills of something sticky. Moldy spatter on the peeling wallpaper.
 
-How can anyone live like this? 
+How can anyone live like this?
 
-I’m about to exit through the front door when I remember the aviary and leave through the kitchen instead. Bleak daylight reveals tall grass, weeds, and stacks of broken furniture that make our backyard look like an abandoned trash lot. A trodden path leads to the birdcages. 
+I’m about to exit through the front door when I remember the aviary and leave through the kitchen instead. Bleak daylight reveals tall grass, weeds, and stacks of broken furniture that make our backyard look like an abandoned trash lot. A trodden path leads to the birdcages.
 
 My foot fall is soft on the flattened grass as I walk into the depths of the overgrown yard. It must have rained last night. Puddles of clear water splash at my shoes as I jump from dry patch to dry patch. The gas station nightmare has me focused on not getting any water in my shoes when I hear something.
 
@@ -128,9 +128,9 @@ I speed up my pace, jumping puddles as I clench my fists at my sides. The anxiet
 
 “I don’t want to go back in there. I’m scared,” Robin hisses to the vines that run up and down the rusty bars of the cage.
 
-For a second, I imagine she is talking into a mobile phone. Maybe she has received a private call and doesn’t want me eavesdropping. The theory is shattered seconds later, when I circle around to approach her. 
+For a second, I imagine she is talking into a mobile phone. Maybe she has received a private call and doesn’t want me eavesdropping. The theory is shattered seconds later, when I circle around to approach her.
 
-My sister holds a giant, white bird on her right arm. 
+My sister holds a giant, white bird on her right arm.
 
 It’s not a recognizable breed. The bird is larger than a black eagle, but the proportions are all wrong. It has a short neck and long body. Its white feathers are ragged, frayed. Its beak is the size of Robin’s head, and I can’t understand how her tiny arm supports the creature so effortlessly.
 
@@ -142,9 +142,9 @@ The feathered beast turns its head, revealing red eyes that resemble two drops o
 
 “Robin!” I shout, running over as she collapses. Her skin is pure ice as I lift her emaciated body off the ground. “Robin, do you hear me?”
 
-My sister’s eyes roll in her head, struggling to focus. Her body explodes in violent shakes, her skin color cycling through hues of green, blue, and yellow. 
+My sister’s eyes roll in her head, struggling to focus. Her body explodes in violent shakes, her skin color cycling through hues of green, blue, and yellow.
 
-The rain picks up as I turn, stomping through puddles on my way back through the overgrowth. Cold water soaks through my socks as twigs snap like bones under the soles of my sneakers. Robin’s eyes come into focus as I reach the backdoor, attempting to pull it open with a loose thumb on my left hand. 
+The rain picks up as I turn, stomping through puddles on my way back through the overgrowth. Cold water soaks through my socks as twigs snap like bones under the soles of my sneakers. Robin’s eyes come into focus as I reach the backdoor, attempting to pull it open with a loose thumb on my left hand.
 
 “Don’t,” her voice is hoarse, wheezing, “Just get me away from that house.”
 
@@ -154,8 +154,8 @@ Somehow, we get to the rental.
 
 I lay Robin down in the backseat, gripping her frozen arms in hopes of finding a pulse. It’s very faint, but it’s there. Her soaked t-shirt clings to her body, revealing the true extent of her starvation. There is nothing but bone.
 
-I get behind the wheel and start the car. The hailstorm trickles down to a drizzle as splotches of sunlight break through the violent sky. I watch my childhood home in the rearview mirror as I pull out onto the road. 
+I get behind the wheel and start the car. The hailstorm trickles down to a drizzle as splotches of sunlight break through the violent sky. I watch my childhood home in the rearview mirror as I pull out onto the road.
 
-The white bird sits perched atop a roof pipe just above the attic window, its red eyes following the car as I drive away. 
+The white bird sits perched atop a roof pipe just above the attic window, its red eyes following the car as I drive away.
 
-I turn the corner just as someone throws the attic window open from inside.
+I turn the corner just as someone throws the attic window open from [inside](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).
