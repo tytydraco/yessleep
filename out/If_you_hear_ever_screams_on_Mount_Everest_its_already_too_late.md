@@ -114,7 +114,7 @@ And then it shivered all over and began to rot: eyes sinking into the sockets, s
 
 “What *was* that thing?” asked Derek, shuddering. He no longer looked like the arrogant asshole who’d spent the entire trip antagonizing me; more like a little kid who’d just discovered that the monsters hiding in his closet were real.
 
-“No idea. But we need to get out of here. Now.” I thought briefly of Mike--who might still be alive--only I knew better. No one could have lost the amount of blood he had, and still survive, at least not without receiving immediate medical attention. And do you want to know the worst thing about it? My brain *accepted* the fact that he was dead, that I’d just lost my best friend of over seven years, and it went on coldly calculating my odds of surviving long enough to get back down to base camp.
+“No idea. But we need to get out of here. Now.” I thought briefly of Mike--who might still be alive--only I knew better. No one could have lost the amount of blood he had, and still survive, at least not without receiving immediate medical attention. And do you want to know the worst thing about it? My brain *accepted* the fact that he was dead, that I’d just lost my best friend of over twelve years, and it went on coldly calculating my odds of surviving long enough to get back down to base camp.
 
 As if to emphasize my words, a chorus of unholy screeches echoed through the night. We exchanged a wordless look and ran for it. I sprinted past the nameless dead woman on my right; one of her eyelids had popped open, while the other one was still gummed shut, so that she seemed to be giving us a cynical wink: *You can run, but it won’t help.*
 
