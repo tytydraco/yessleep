@@ -29,3 +29,6 @@ When they woke up I instantly started questioning them, I remember the conversat
  My mind had instantly flashed back to the bodies I saw when I first went outside and all the ones I saw while on my way to the exit. In a shaky tone I asked them “are all the adults dead”, they answered quickly. “Yes”. In that one moment I had jumped up, I didn’t care about anything else, nothing else could have even possibly mattered to me, I got on that bike and rode to my house as fast as I could.
 
 I had rode about 6 to 7 miles to get to my house without stopping, and when I approached the door my hand was trembling. I slightly twisted the door knob and to my surprise it was unlocked. I didn’t know what the feeling was but it made me throw the door open. And as I opened the door I gazed upon the bodies of my dead mother and father, I froze.
+
+
+[part 2](https://www.reddit.com/r/nosleep/comments/vn6wb7/all_the_adults_disappeared_in_my_small_town_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf.com)

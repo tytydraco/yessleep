@@ -82,13 +82,13 @@ Maria doesn’t have a lot going on, either.
 
 Grayson came and met me at my dorm.  We headed down into the basement together.
 
-“You pick the best date locations,” he joked as he held the door open for me.  
+“You pick the best date locations,” he joked as he held the door open for me.
 
 He quickly grew solemn after seeing my face, however.
 
 “I’m sorry,” he said as we walked towards the point we intended to intercept Maria at.  “You said you weren’t interested in dating because of your last boyfriend and I shouldn’t have made that joke-”
 
-“It’s fine,” I replied.  
+“It’s fine,” I replied.
 
 It came out far more curt than I intended.  I took a deep breath to steady my nerves.  That’s all this was.  I was nervous because I was worried about Maria.
 
@@ -110,7 +110,7 @@ Why couldn’t I say it?  Why were the words so heavy in my chest?  I remembered
 
 “T-there’s - I - I saw something bad at the power plant,” I finally said. Every word was an effort, like I had to squeeze my lungs empty just to get them to make noise.
 
-“Are you okay?” Maria asked.  
+“Are you okay?” Maria asked.
 
 She didn’t seem upset that I was telling her to not go to the power plant.  She peered at me in concern.  I blinked and was startled to find that I was crying.
 
@@ -122,15 +122,15 @@ I hesitated.  Not that she woudln’t go.  Just that something kept her from mak
 
 “Ashley,” Grayson said urgently.  “We need to go.”
 
-I turned.  Maria peered past us and gasped.  
+I turned.  Maria peered past us and gasped.
 
 A wall of steam was tumbling down the corridor towards us.
 
 “Go!” I screamed.  “Go go go!”
 
-I shoved at Maria to get her moving.  To her credit, she turned and ran. And further to her credit, she seemed to know where an exit was.  We ran, the only sound in the tunnel the impact of our feet and our panicked breathing.  
+I shoved at Maria to get her moving.  To her credit, she turned and ran. And further to her credit, she seemed to know where an exit was.  We ran, the only sound in the tunnel the impact of our feet and our panicked breathing.
 
-Then Grayson screamed.  I turned just in time to see him engulfed in a cloud of steam.  The ghost wrapped around him, a multitude of arms curling around his body and dragging him into its depths.  The arms anished inward as they dragged Grayson inside, leaving behind nothing but a roiling wall of mist behind.  
+Then Grayson screamed.  I turned just in time to see him engulfed in a cloud of steam.  The ghost wrapped around him, a multitude of arms curling around his body and dragging him into its depths.  The arms anished inward as they dragged Grayson inside, leaving behind nothing but a roiling wall of mist behind.
 
 No.  I’d brought him down here.  I’d done this.
 
@@ -180,7 +180,7 @@ I get that when your campus grows to the point it swallows up the town graveyard
 
 We waited in the lobby while they saw to Grayson.  It took a while.  As we waited, Maria sat next to me and fiddled with her phone while I tried to think of a way to dissuade her from associating with Patricia.  Would telling her about the student that died be enough?  I no longer felt confident of that.  We’d just watched Grayson get swallowed up by angry mist and she seemed to have recovered from that ordeal already.  She was texting on her phone like nothing had happened.
 
-Her phone.  
+Her phone.
 
 I realized that there was another solution that didn’t involve convincing Maria of anything.
 
@@ -210,7 +210,7 @@ And she stormed out.  When the medical center released Grayson, he found me alon
 
 It’s a small consolation that I still have at least one friend now that Maria hates me.
 
-For however long that lasts before I mess it all up.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+For however long that lasts before [I mess it all up](https://www.reddit.com/r/nosleep/comments/vn7fcg/how_to_survive_college_guess_im_goth_now/).[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
