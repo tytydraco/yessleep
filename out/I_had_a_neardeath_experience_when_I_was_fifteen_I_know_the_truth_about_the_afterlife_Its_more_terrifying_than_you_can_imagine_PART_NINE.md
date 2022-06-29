@@ -1,3 +1,7 @@
+PART EIGHT [https://www.reddit.com/r/nosleep/comments/vg6yrn/i\_had\_a\_neardeath\_experience\_when\_i\_was\_fifteen\_i/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vg6yrn/i_had_a_neardeath_experience_when_i_was_fifteen_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 *"RUN!*" Aaron shouted at me and Dante, *"STAY AS CLOSE TOGETHER AS YOU CAN AND RUN! RUN AS FAST AS YOU FUCKING CAN! DON'T SLOW DOWN FOR NOTHING!"*
 
 And so we did. Once again we ran, not just for our lives this time but also for our very souls. We ran as if all of Hell's demons were chasing us, and perhaps they were.
