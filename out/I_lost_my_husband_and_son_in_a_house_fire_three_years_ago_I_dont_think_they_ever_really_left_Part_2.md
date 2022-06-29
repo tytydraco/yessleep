@@ -38,7 +38,7 @@ Where he had once been talkative and attentive, he had grown quieter and reserve
 
 There were also off-handed comments about my appearance. I didn’t wear makeup or dress to impress every day, but my appearance was always tidy. He never said I was ugly, but a point was made often that I could do more to “look pretty” for him.
 
-On at least two occasions, I’m certain he was trying to through my cellphone. I kept it password locked. As a school teacher, you learn hard lessons about leaving an unlocked cell phone on your desk. A few times when I tried to unlock the phone, a warning appeared on the screen that it was locked for a certain period of time before I could try my password again. 
+On at least two occasions, I’m certain he was trying to through my cellphone. I kept it password locked. As a school teacher, you learn hard lessons about leaving an unlocked cell phone on your desk. A few times when I tried to unlock the phone, a warning appeared on the screen that it was locked for a certain period of time before I could try my password again.
 
 The phone was set to allow for 10 attempts before the time out went into effect. When I asked Dennis about it, he looked at me as though I had accused him of murder. We didn’t talk for a few days after the second conversation, but it blew over eventually.
 
@@ -58,7 +58,7 @@ Dennis continued reading the newspaper.
 
 “Did you hear me?” I asked. He didn’t look up.
 
-“I’m sorry,” he replied without much emotion. “That was unkind. It’s been a long day and I’m hungry. Can I help you finish cooking?” 
+“I’m sorry,” he replied without much emotion. “That was unkind. It’s been a long day and I’m hungry. Can I help you finish cooking?”
 
 He dropped his newspaper to the counter and began to walk toward the stove. I lifted my hand to his chest and held it firmly to stop him from continuing forward. He looked at me in astonishment and brushed my hand aside.
 
@@ -108,8 +108,7 @@ I would have been content to never answer his calls or texts for the rest of my 
 
 As I sat on my bed beside the carvings of my family reading a book, my phone began to buzz beside me. When I picked it up, I recognized the number. It belonged to the central office of the board of education. It was after hours and I was confused but hit the green button to accept the call anyway.
 
-“Hello, this is Emily Clark,” I said in a slightly confused but pleasant tone of voice. “Kind of late to be working, isn’t it?”  
-
+“Hello, this is Emily Clark,” I said in a slightly confused but pleasant tone of voice. “Kind of late to be working, isn’t it?”
 
 “Why won’t you answer my calls, Emily?” a rough voice said. “I just want to explain myself but you won’t give me the chance.”
 
@@ -140,3 +139,5 @@ I hung the phone up and immediately called 911. Veins throbbed in the side of my
 [“911. What is your emergency?”](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
 
 [X](https://www.reddit.com/r/gtripp14/comments/vmwhty/domestic_violence_and_abuse_support_resources/)
+
+[\[Final\]](https://www.reddit.com/r/nosleep/comments/vnrkdt/i_lost_my_husband_and_son_in_a_house_fire_three/)
