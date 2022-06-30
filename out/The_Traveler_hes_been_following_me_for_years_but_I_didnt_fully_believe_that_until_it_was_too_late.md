@@ -88,7 +88,7 @@
 
   "No!" She said, reaching her hand to meet mine again, before I pulled it away, "I don't have a choice! I need…"
 
-  "Oh, you need!? What exactly do you need!" I could feel my face burning and my chest heaving with rage, "you have got to be shitting me!" 
+  "Oh, you need!? What exactly do you need!?" I could feel my face burning and my chest heaving with rage, "you have got to be shitting me!" 
 
   I got up to my feet, before readying myself to stomp away and start packing my suitcase when she reached up and grabbed my hand again. 
 

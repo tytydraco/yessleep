@@ -24,7 +24,7 @@ Till I visited my grandparents four days ago. I'm 25 now, and the last time I've
 
 Right on the first night, I woke up in cold sweat in the middle of the night. I had a nightmare, although I couldn't remember what it was. When I calmed down, I had the sudden realization that something was watching me. I looked around and I saw the thing watching me from the doorway. It disappeared quickly, but I couldn't fall asleep for the rest of the night.
 
-It would happen again on the second day, but by the third day I had the feeling that something would dhange. I wasn't wrong.
+It would happen again on the second day, but by the third day I had the feeling that something would change. I wasn't wrong.
 
 The feeling came mainly because of the conversation I had with Nicole. She's been asking our grandparents about all the weird things in the house, and she wasn't exactly happy with them refusing to tell us anything. She wants me to go to the basement on the fifth day, and look around for clues. We've never done that before since we never had the time and motivation.
 
@@ -32,7 +32,7 @@ The thing about the basement is that our grandpa spends a lot of time in it, and
 
 I don't really want to do this, but I have to give her an answer by tomorrow. The reason why I don't want to, is because I'm sceptical about finding anything and because the shadow figure doesn't seem to want me to go into the basement.
 
-How do I know that? Well, because that night, after the convesation, I would get choked by someone. I was sleeping when that happened, and when I opened my eyes, I saw the thing staring back at me, it's hands clamped tightly around my neck. Only for a few seconds, and then it disappeared.
+How do I know that? Well, because that night, after the conversation, I would get choked by someone. I was sleeping when that happened, and when I opened my eyes, I saw the thing staring back at me, it's hands clamped tightly around my neck. Only for a few seconds, and then it disappeared.
 
 I know that it was a warning. It never happened before, and it had no other reason to do that beside my talk with Nicole.
 

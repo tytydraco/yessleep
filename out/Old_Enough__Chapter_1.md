@@ -1,0 +1,19 @@
+It was June of 2014, I had just turned 13 a few days prior and it was a Saturday. My mom wanted to head out to god knows where just to party and throw me out to a babysitter again. My mom had recently divorced my father before this also, so she was going out more often at this time. I have horrible anxiety, so before this I really preferred the babysitter. However, I decided I was old enough to stay home alone. So right as my mom was about to call my cousin, who often would watch me when my mother went out, I intervened. "Y'know, do you think maybe I could stay home alone? I'm  uh- Well I've got to be old enough by now." My mom reluctantly agreed, and she only set a few ground rules.
+
+**Lock the door.**
+
+**Lock the windows.**
+
+**Nobody over, especially not the GF.**
+
+**And stay inside.**
+
+Reason I had to stay inside, was because not long before there had been a set of murders in my town. It had been months since the last incident, so my guard was down anyway. This was probably my mistake, because my stupidity and determination to stay home alone seems to have screwed me over. I'm an only child, so once my mom was gone I was on my own. 6 PM, my mom left wearing flips flops and a nice dress and probably went on her way to get me another sibling. 9 months of hell. But that's besides the point. The evening went surprisingly smooth after she left. I hung out on my computer, played games, ate junk food, and other stuff. Pretty much all the boring shit you'd expect from a 13 year old.
+
+Until I received a text from my mom; "can u unlock the door i left my key inside" This was odd, because my mother NEVER forgot her keys. Even more interesting, she never wrote like this. She always used proper grammar and it was all just so weird. I didn't think of that at the time, so I agreed. I went to the front door, unlocked it, and went back to minding my own business. And less than an hour later, I heard the front door open and close. My dogs went crazy, crazier than normal. I wasn't too worried, until I noticed the footsteps sounded less like the flip flops my mom left in and more like a larger esc shoe/boot.
+
+This made me anxious. I looked over at the hallway, and got up slowly from my desk. Suddenly there was a loud bang. I was freaked out, and got up quickly so I could see what was going on. I tip toed to the kitchen, grabbed a knife thinking I was gonna slice someone up or something if they were in my house, and looked around. After *SEVERAL* walkthroughs of the house, I found nobody. What the fuck?! ...Wait. Then I remembered the crawlspace in my mom's closet. There was a hatch in the wall that could be opened. Assuming that's where the sound came from, I decided if I was old enough to stay home alone I was old enough to deal with whatever might be going on.
+
+I stomped over to the closet, whipped the door open, kicked the hatch door open, and crawled into the crawlspace. I took my phone out of my pocket and shined it around for light. I was on edge, and wanted to back out immediately. But ultimately I didn't. I crawled deeper and deeper, until I heard a rattling noise. I went still. The crawlspace went dead silent. Suddenly, I heard a loud, metallic screech. I screamed, as I saw a pare of boots landing on the ground in front of a ladder. There must've been a vent shaft leading up and back outside at the end. I watched as a black bag dropped on the ground and someone wearing all black knelt down. The man groaned as he began crawling towards me. He began to repeat himself. "Shhh. SHHH! *QUIET!*" I was fucking horrified to see the sight of him crawling towards me in a frenzy. I stumbled back with my phone light and crawled to the hatch. I climbed back up into the closet, and slammed the hatch shut.
+
+**I have to call the police right now.**
