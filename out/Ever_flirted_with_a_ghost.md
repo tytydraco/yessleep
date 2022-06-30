@@ -31,3 +31,5 @@ My grandpa thought about it for a minure before replying. "Are you talking about
 That's when I realized why the name seemed so familliar to me. I remember Cody's dad coming over a few times when I was 3-4, and he would talk about his son. He stopped coming, his grief lifted, somehow better now that he shared as much as he could about his son with other people.
 
 Yeah, safe to say, I was quiet for the rest of the visit. For the better or for the worst, I didn't tell Nicole that we've had talked with the boy who's mother she considered a maniac.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/voab6y/it_does_not_want_me_in_this_house/)

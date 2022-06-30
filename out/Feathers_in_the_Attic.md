@@ -158,4 +158,7 @@ I get behind the wheel and start the car. The hailstorm trickles down to a drizz
 
 The white bird sits perched atop a roof pipe just above the attic window, its red eyes following the car as I drive away.
 
-I turn the corner just as someone throws the attic window open from [inside](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).
+I turn the corner just as someone throws the attic window open from [inside](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).  
+
+
+[READ PART 2 HERE](https://www.reddit.com/r/nosleep/comments/voa3x0/i_know_why_the_caged_bird_kills/)
