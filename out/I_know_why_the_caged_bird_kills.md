@@ -24,7 +24,7 @@ I already know this because Robin’s doctor called early this morning. I’ve b
 
 Elaine gestures to the stairs. I nod and walk toward them, trying to remain steady as my hungover brain shakes the world around me. I turn the corner, and grab onto the railing to steady myself. I want to throw up.
 
-A tall, faded figure flickers before me, climbing these same same stairs, dressed in a white robe. My sister, small in this memory but still recognizably herself, tugs at the figure’s sleeve, whining some childish nonsense as the figure pats the top of her head gently.
+A tall, faded figure flickers before me, climbing these same stairs, dressed in a white robe. My sister, small in this memory but still recognizably herself, tugs at the figure’s sleeve, whining some childish nonsense as the figure pats the top of her head gently.
 
 “Are you okay?” It’s Elaine, she’s got her hand on my shoulder, batting a pamphlet at my head, “Do you need me to call you a doctor?”
 
@@ -42,7 +42,7 @@ A sense of relief washes over as I see my sister sit up to greet me with a small
 
 “Can you believe we’re back here?” I ask the wallpaper to my left as I sit down on the other end of the private room.
 
-“I’m surprised you seem to remember as much as you do,” Robin’s voice is weak, but so uniquely hers I want to cry. Ever heard a voice that feels like home? Not the damaged home you grew up in, but the fantasy one you escaped to when things got rough? That’s what it’s like. God, how I’ve missed her.
+“I’m surprised you seem to remember it at all,” Robin’s voice is weak, but so uniquely hers I want to cry. Ever heard a voice that feels like home? Not the damaged home you grew up in, but the fantasy one you escaped to when things got rough? That’s what it’s like. God, how I’ve missed her.
 
 “I remember everyone telling me something was wrong with mom’s head, which was why she couldn’t come home with us. Why she had to stay at this awful place. And then she disappeared and all talk of her was forbidden, so I still don’t know what the hell that was about. Especially given what we know about dad now.”
 
@@ -57,6 +57,8 @@ I have a proper look at Robin then, trying not to see traces of my mother in her
 “I’d like to think you’re right, Ava,” Robin gives a tiny shrug, “But what do we even know about ma and pa? Nothing good. Nothing but damage.”
 
 I stay for another hour, making the type of small talk we have used our whole lives to cope with our circumstances. There is a lot to confront, to discuss, but I don’t know how to face it. I’ve been trying to drink it away. Observing a blur of a world as you throw up in your bathtub is somehow easier than asking Robin the real questions.
+
+What happened to her in that house, in that aviary?
 
 What did our father do to our mother?
 
@@ -120,4 +122,4 @@ My stomach sinks as a flickering light turns on in the hallway as I reach the do
 
 I need to run, but my legs are slow and jumpy as I creep through the hallway. The familiar doors of my childhood stand ominously ajar, giving me glimpses of blackhole rooms. I try to focus on moving straight ahead, but my body seems to be regressing to that of an infant.
 
-Eventtually, I reach the head of the stairs, willing myself to dash down, to get to safety. As I am about to take the first step in my descent, I hear a low laugh echo from the direction of my [childhood bedroom](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).
+Eventually, I reach the head of the stairs, willing myself to dash down, to get to safety. As I am about to take the first step in my descent, I hear a low laugh echo from the direction of my [childhood bedroom](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).
