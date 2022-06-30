@@ -1,3 +1,5 @@
+I'm writing this quickly with the hope I maybe able to see another sunrise, however, this time I think my past may have finally tracked me down.
+
 As a child I lived a somewhat chaotic lifestyle, my Dad was a writer so we moved wherever the wind blew for him. My mum was a teacher and when my Dad wrote his first successful novel she decided to take us out of school and home school so we could have the freedom to move around. It was nice to be able to see so many beautiful places but I never felt stable. 
 
 My Dad had some usual haunts here and there to go and write, usually for a few months, but there was a particular one that always stuck in my mind. It was a quiet little redwood cabin, a few miles out from Fargo in this huge, dense, redwood forest. We normally went in winter as it was the best place for my dad to work, craving isolation as writers do.
@@ -83,3 +85,5 @@ Sometimes I would just stay there all night watching the tree line until the sun
 The closest thing I could say they looked like was a canine that had no lips to cover its vicious smile. The one in the middle slowly lifted its hand, if you could call them hands, they were more like razor sharp claws in the structure of a hand. It lifted it up, and this time there was no mistaking it, the thing waved at me. 
 
 They walked back slowly into the forest for the last time that night. Night approaches again and I have no idea what is going to happen, but if that body in the woods is anything to go by, I'm in for one hell of a night.
+
+I was stupid to think the past would just lie.

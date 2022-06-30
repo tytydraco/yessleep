@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/vok6bl/the_death_toll_in_the_winter_storm_is_rising_the/?utm_medium=android_app&utm_source=share)
+
 "No matter how strong you are or how much you struggle , you can never truly escape the grasps death".
 
 \-Osborne
