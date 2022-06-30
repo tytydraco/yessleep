@@ -478,9 +478,9 @@ What Johnny was thinking. 
 
 And I knew what was behind the mystery door suffocated in scents. 
 
-Calliope was on the phone complaining of a sudden influx of customers, and I dragged myself to work. If anything, it was a distraction. I was halfway through my shift researching moon  cycles and on my phone, when footsteps startled me, and I lifted my head to find a Starbucks coffee cup inches from my face. Behind that coffee cup stood Ren, with an abnormal smile on his face. He looked better than usual– no, much better. 
+Calliope was on the phone complaining of a sudden influx of customers, and I dragged myself to work. If anything, it was a distraction. I was halfway through my shift researching moon  cycles and on my phone, when footsteps startled me, and I lifted my head to find a Starbucks coffee cup inches from my face.
 
-His hair was its usual mess of brown curls, though there was no sign of the raybans he insisted on wearing. The dark circles under his eyes were gone, though his cheeks looked far more gaunt and pale, a certain light in his eyes I couldn’t look away from. “Mina.” He leaned forward, lips twitching. 
+Behind that coffee cup stood Ren, with an abnormal smile on his face. He looked better than usual– no, much better. His hair was its usual mess of brown curls, though there was no sign of the raybans he insisted on wearing. The dark circles under his eyes were gone, though his cheeks looked far more gaunt and pale, a certain light in his eyes I couldn’t look away from. “Mina.” He leaned forward, lips curving.  
 
 “Can we talk?” 
 
