@@ -54,7 +54,7 @@ I have a proper look at Robin then, trying not to see traces of my mother in her
 
 “That doesn’t seem right,” I shake my head, feeling my gut wrench at her words, “Given what we know about dad, about our house. I just can’t believe she was really crazy. And I don’t think you are either.”
 
-“I’d like to think you’re right, Ava,” Robin gives a tiny shrug, “But what do we even know about mom and dad? Nothing good. Nothing but damage.”
+“I’d like to think you’re right, Ava,” Robin gives a tiny shrug, “But what do we even know about ma and pa? Nothing good. Nothing but damage.”
 
 I stay for another hour, making the type of small talk we have used our whole lives to cope with our circumstances. There is a lot to confront, to discuss, but I don’t know how to face it. I’ve been trying to drink it away. Observing a blur of a world as you throw up in your bathtub is somehow easier than asking Robin the real questions.
 
