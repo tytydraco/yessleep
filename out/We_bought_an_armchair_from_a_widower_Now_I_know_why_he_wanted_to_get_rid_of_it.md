@@ -1,29 +1,63 @@
-We moved interstate into the new house. It was an old house in a sleepy suburb by the coast. Many of the nearby houses were holiday houses; in the winter their windows stayed dark. There was an abandoned, forgotten feeling about the suburb. There were no shops in town but for a small grocery store stuck in time at the end of the street.
+[Part 1](https://www.reddit.com/r/nosleep/comments/v9q09o/we_bought_an_armchair_from_a_widower_now_i_know/)
 
-My girlfriend and I loved this about the place - it felt removed from the rest of the world. The coastline was made of rugged red cliffs. When the waves crashed on the shoreline and withdrew into the sea, they took with them the tinkling sound of rolling pebbles.
+&#x200B;
 
-On the first night, the only furniture we owned was a bed, a lamp, a dented half bookcase and a few old crates. All of our things fit in boxes that were stacked in the back room. We didn’t have much, but that was how we liked it. We used the crates stacked beside the bed as a nightstand, and without a kitchen table we sat outside on the deck and ate dinner even though it was getting cold. We wrapped scarves around our necks and bundled ourselves in coats.
+We spent some time that day unpacking some of our things – boxes of clothes, glasses, utensils, that kind of thing. I pottered around in the garden – which was lush, but totally overgrown. While poking around in the tall grass, we found what seemed to be an urn. I actually knocked it over on accident – and to my horror, the lid wasn’t sealed and came straight off. I know I shouldn’t have touched it – but I was horrified of what I might find inside and surprised the last owner would have left it the garden. To my intense relief, when I peered inside, it was empty. Assuming it was the urn of an old beloved pet whose ashes had been scattered, I put the lid back on then placed it carefully where I’d found it. 
 
-At night the wind picked up; in the morning, metal signs along the long stretch of highway towards the city would be bent in half. On the second night we woke up to a large *thunk* on the roof. I clambered out of bed and went outside with a head torch. I’d tried the outside light, but the globe must have gone. My girlfriend stayed inside.
+That wasn’t the only thing we found in the house. It was kind of strange, like some items had simply been forgotten or left. There was an old blow dryer in the bathroom cupboard which came with the house, and an ugly painting rolled up in one of the wardrobes. At the back of one of the kitchen drawers, we found a bent photograph of one of the last owners – an old woman sitting at a round dining table in the kitchen with a young woman – presumably her daughter. From what we’d heard from the neighbours when buying the house, an old woman had lived in the house with her daughter. The old woman had been sick and her daughter cared for her. Rumour was that the old woman had grown too unwell and had been moved into a respite or nursing home. The young woman sold the house. It was strange to see them photographed in the house I now stood, that I had bought. Like peering into another life - the life of the house, its history, how it had been used before us. It was strange like looking at a different house entirely, a feeling similar to seeing a photo of yourself captured from another angle. 
 
-It was freezing outside. My hair whipped across my face, somewhere nearby a gate rattled back and forth in the wind. Along the side of the property, I saw a small tree had fallen. It lay pitched against the side of the house. Luckily the only damage was a bent gutter. The next day we observed the claw like roots, clumps of earth knotted around them. I guess there’d been a lot of rain lately, and the shallow root system and the wind had caused the tree to uproot.
+ As it started to get dark, I cooked a simple dinner of eggs and whatever vegetables we had on hand, while Elly went through her routine of closing the curtains and locking the doors. When she returned, I asked (even though I was pretty sure I had seen her do it) if she had locked the front. She nodded and smiled, like she knew that I would ask. 
 
-Slowly we furnished the house with a post-World War II table from a second-hand store, a mixture of odd wooden dining chairs and an old leather couch from marketplace. We picked up one bedside table from the side of the road. We piled our books along the floor against the wall of our bedroom.
+We sat by the fire until late drinking wine and listening to the rain lash against the windows. When we went to bed, I was a little drunk – we were both a little drunk – and I passed out straight away. At some point during the night I woke up feeling a little sick. I rolled over to reach for my girlfriend and realised she wasn’t there. The bed was cold and empty. This wasn’t altogether strange – when she had trouble sleeping, she would often get up and read on the couch. When she was tired, she’d come back to bed. But I couldn’t see any lights on, and the bed was cold, which suggested she’d been gone a while. I got up to see if she was okay. The house was in darkness. For some reason I felt uneasy. The house was freezing without the warmth of the fire. I peered into the rooms as I passed, but they were empty and still unfurnished, so I didn’t really expect her to be in any of them. The bathroom door was shut, and the light was out. 
 
-While driving around one day, we saw that there was a bunch of old furniture for sale out the front of a nearby house. We stopped and talked to the middle-aged guy selling it. He was a bit nervous and jumpy – and kept eyeing us off as we browsed. He told us that his wife had just passed away. That she had been a collector of old furniture. With her gone he was selling the house and needed to get rid of all the furniture.
+In the living room, I found her sitting in the armchair in the dark. 
 
-There was a creepy old headboard with a radio attached that he showed us, and an old grandfather clock – some really cool pieces to look at but nothing we would take home. We ended up buying two mid-century armchairs. They had a carpet bag floral pattern, but my girlfriend thought she would be able to reupholster them.  The only defect was that one of the chairs had two weird scratches down the wooden armrests, but my girlfriend said she didn’t mind. It would be nice to have some chairs to sit around the fire when it was cold at night, and to sit in and drink tea early in the mornings.
+My heart gave a turn. 
 
-That was yesterday. Last night I woke up because I could hear the gate had blown open. When it does this it crashes back and forth, and the frame gets warped. I got up to close it and didn’t bother to turn on any of the lights.
+‘El?’ 
 
-I was still half asleep and it was pretty dark, but as I entered the living room my heart gave a stop for a second. It looked like there was someone sitting in one of the armchairs by the cold ashes in the fireplace, and the front door was wide open, inviting the dark night in. My heart thumped, thinking someone had broken in, but when my eyes adjusted properly, there was nothing there.
+She didn’t answer. 
 
-It took me a moment to recover from the start, but then I nearly laughed at myself. I must have been half asleep – though I was still a bit unnerved about finding the door wide open. My girlfriend is usually pretty good at locking up at night, when it gets dark, she goes around and closes all the curtains and checks all the locks, a habit from living in rougher parts, I guess.
+There was a quiet scratching sound. 
 
-Anyway, I went out and shut the gate, then came back in and locked the door. I guess I was still a little spooked by thinking someone had broken in, because I was extra edgy when I went out. I kept noticing trees bending in the wind in my peripheral and thinking there was something there. Unrelenting wind can do some strange things to the mind. There aren’t really many streetlights on our side of the street, so it was pretty dark. I’ll have to change the outdoor lightbulb and get a better bolt for the gate.
+I stood in the doorway, waiting for her to turn. She continued to stare forward, as if she hadn’t heard me. 
 
-I climbed back into bed gratefully and curled in close to my girlfriend, who was warm, and breathing deeply. I couldn’t believe she’d slept through the whole thing! But part of the move here was for some peace and quiet, we’d both come from pretty chaotic work in a remote community, and her health hadn’t been the best since.
+She didn’t respond. 
 
-This morning I mentioned the door to my girlfriend, and she says she’s pretty sure she locked it like she does every night, but she can’t specifically remember doing it. We’ll be sure to lock up properly tonight anyway! As I’ve mentioned, there aren’t that many people around this time of year, so I don’t like the thought of what would happen if anyone did get in.
+I went to her. 
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/vexrkn/we_bought_an_armchair_from_a_widower_now_i_know/)
+I’m not sure why, but my heart sped up. I was about to reach out to her shoulder from behind, but something stopped me. Instead I walked around to face her. 
+
+In the dark, she stared straight ahead, seeing nothing. 
+
+I looked down at her hands and placed the scratching sound; it was the fingernails of her two index fingers as she dragged them along the scratch marks in the arms of the chair that were already there. 
+
+I leaned in closer.
+
+ ‘El?’ 
+
+She continued to stare as if in a trance. Still, I couldn’t make myself touch her; something about the whole situation felt off. I worried that if she was sleep-walking I might startle her or cause distress. Instead, I thought I’d better turn on the light – maybe she would wake in her own time, or go back to bed. It was too unnerving to wait around in the dark. I had heard stories about how one should gently steer a sleepwalker back to bed, but I wasn’t quite sure how.
+
+Her head snapped round as I reached for the switch. 
+
+She started through the dark, shadows making deep holes in the hollows of her eyes and cheeks.
+
+‘Don’t turn on the light.'
+
+I felt dread. 
+
+Her tone was reprimanding, stern even, which was unlike how she spoke in waking life. 
+
+Her look was sharp, as though someone else stared out from her eyes and through me. 
+
+My hand was frozen as it hovered above the light switch. As I took it down, she turned away and went back to staring. 
+
+I knelt in front of her. I reached out and – gently – touched her hand. Her skin was freezing. I frowned. ‘El?’ I tried again. ‘El, hun? You’re sleepwalking. You’ve gotta come back to bed.’ I spoke gently, rubbing the cold skin of her hand gently. To my surprise, she turned slowly and raised her eyes to mine. They were blank, vacant – in an eerie way. 
+
+‘Can I come into the bedroom?’ she asked. 
+
+I nodded and began to pull gently on her hand. ‘Yes,’ I told her. ‘Come to bed.’ 
+
+I know she was sleepwalking, but I swear I had goosebumps on my neck at the look that came into her eyes. Like when someone smiles with their eyes, without moving their lips? I know it’s silly – but there’s something about a sleepwalker I find unnerving. What’s more, I’ve never known her to sleepwalk – occasionally when she is very stressed she sleep talks, but that’s been it. Once she woke me up because she couldn’t find the light switch and was confused. I assume it’s from all the stress with her health and being in a new house. 
+
+When I took her to the bedroom, she climbed into the bed and let me cover her. ‘Close your eyes,’ I told her, because the staring through the dark was a little unnerving. She did.
