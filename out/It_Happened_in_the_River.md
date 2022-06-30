@@ -27,3 +27,9 @@ Frost-bitten.
 Suddenly, my phone rang. The neon blue hue from the screen, cutting through the darkness and illuminating only one thing in my room. My eyes slowly traced the beam of light until they rested on the only other item I kept on my nightstand. Something I treasured almost as much as the person who was featured in it.
 
 A photo of me and my twin sister Sophie.
+
+My phone rang again, but I didn’t bother with an attempt to answer it. I already knew what whoever was on the other line was going to say. 
+
+Sophie was dead and I knew this because I just watched her die.
+
+And for the following nights, I was forced to watch it over and over and over again.
