@@ -205,3 +205,5 @@ I knew something was up again as soon as I entered the room again, though, becau
 I decided to crank up the heat to 80 -- despite, you know, *it was summertime*, plus nowhere else in the house was cold like this -- which forced me to strip to nothing but my boxers (and even then, I was still sweating like a damn pig). I then headed to bed, myself. Just before closing the door to my room, though, I heard a small, pitiful voice bawling. I stole a quick glance behind me where I heard it coming from. Nothing.
 
 I yawned. *"There's nothing there, Issac. Just go to bed."* I turned and shut the door behind me. All night, faintly, I could hear it; the sounds of children crying.
+
+[Next](https://www.reddit.com/r/nosleep/comments/vnw19j/the_children_in_caines_closet_final/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
