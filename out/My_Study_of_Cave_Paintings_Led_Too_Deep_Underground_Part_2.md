@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/v98low/my_study_of_cave_paintings_led_too_deep/) [Part 3](https://www.reddit.com/r/nosleep/comments/vjqjxn/my_study_of_cave_paintings_led_too_deep/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/v98low/my_study_of_cave_paintings_led_too_deep/) [Part 3](https://www.reddit.com/r/nosleep/comments/vjqjxn/my_study_of_cave_paintings_led_too_deep/) [Part 4](https://www.reddit.com/r/nosleep/comments/vp8rn1/my_study_of_cave_paintings_led_too_deep/)
 
 My heart beat in my whole face. I was stuck upside down, dangling by a hip bone in the blackness of the long worm shaft, which drops twistingly from the back of a limestone chamber with 44,000-year-old paintings. My father and I—archaeologists from our nation’s greatest university—studied the kaolin clay and charcoal images, and there we discovered the oldest human writing, recording the oldest human idea, in a language so perfect that it could be read by anyone.
 

@@ -28,13 +28,19 @@ I pushed aside my moving boxes, ordered a pizza, and watched some Friends reruns
 
 My bedroom has an ornately carved, wooden wall clock that audibly ticks for each second passed. This, coupled with the air conditioning unit, provides some nice hotel-esqe ambience, perfect for sleep. I showered, thinking that the water itself was a bit harsh on my skin. 
 
-I stepped out of the poorly lit shower, wet as a fish, and grabbed a towel to dry. As I was, I heard something. Faint. Down that cursed hallway. 
+The rubbery green shower curtain hung overhead from an archway that extended down past the rest of the ceiling. It boxed me in, leaving me feeling claustrophobic. 
+
+After feeling satisfactorily clean, I stepped out of the poorly lit shower and grabbed a towel to dry. As I was, I heard something. Faint. Down that dark hallway.  
 
 A bottle cap falling on the kitchen counter. 
 
 *Clink Clink Clink Clink Clink.*
 
 The echo of the measly cap felt pervasive and filled my chest. I froze. Had I left a cap on a bottle? Impossible. I had drunk a cream soda with my pizza, but I finished it. In the recycling bin finished. Oh god! The realization made my blood stop, my head feeling dizzy as paranoia crept up my shoulders. 
+
+The bathroom door hung open slightly, allowing me to peak into the hallway when I parted the shower curtain. 
+
+Darkness. 
 
 My breathing quickened. My head became a mess of thought. I shut the bathroom door and locked it. Slinking down on the floor, still naked, I hunkered in the corner of the shower, ears open for the slightest noise. There I stayed. 
 
