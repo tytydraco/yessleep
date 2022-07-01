@@ -1,4 +1,3 @@
-
 I hadn’t seen my father in five years when he called me yesterday evening.  I didn’t even know he had my number, and when he explained that he was in town and needed to see me, right away if possible, I almost refused.  Growing up, he’d be gone for months at the time.  Usually off on some bizarre get-rich-quick scheme or insane “adventure”, and a couple of times for temporary commitment in a mental hospital until he got centered enough to be deemed fit for release.  Either way, I’d counted his absence the last few years as a blessing, and I wasn’t sure I wanted to let him back into my life after all this time.
 
 The thing that made me hesitate and ultimately agree to meet was how he sounded.  When I was young, he would get cheerfully, almost aggressively, manic—he had all these plans and ideas and endless confidence on how he was going to succeed at this or that.  Be rich, be famous, gain some knowledge or insight that had eluded lesser men before him.  When he was like that, he was more than a little terrifying, and if you tried to talk him down, he usually turned on you.  His smiling enthusiasm quickly became a sullen frown, and the words you meant out of love and concern were held up as evidence of some kind of betrayal.  Over the years, I’d learned to be on my guard and choose my words carefully when my father’s voice sounded too happy or bright.
@@ -151,29 +150,29 @@ It was as though a curtain had been slightly parted, a small window into the wor
 
 I could see its eyes.  Milky and large, they glowed softly in the shadow of his bone wings and stolen flesh.  I thought I could make out a large, hooked nose and a pair of thin lips, but it was hard to say and I was too terrified to look closer.  Too scared to do anything other than stare and hold out the small knife in front of me like a protective talisman.  It was then that it chose to speak.
 
-** “Why do you defend this thief?”**
+**“Why do you defend this thief?”**
 
 Any other time, hearing the deep, intelligent voice coming from this impossible monster would have provoked a thousand thoughts and reactions, but not then.  Fear of that depth and purity strips away any curiosity or wonder.  It leaves only living or dying and the truth that lives within that choice.
 
 “I…he’s my father.  I love him.”
 
-** “Your father is a thief and liar.”**
+**“Your father is a thief and liar.”**
 
 I swallowed and gave a nod.  “I know.  I’m sorry.  But you have your hook back.  Can’t you let him live?  I’m sorry he stole and lied.”
 
-I thought I saw the creature’s lips twitch upward in their shade.  ** “He did not lie to me.” **
+I thought I saw the creature’s lips twitch upward in their shade.  **“He did not lie to me.” **
 
 Frowning, I did lean forward slightly now, despite of my fear.  “What do you mean?”
 
-** “I was here while you talked.  He pretended he didn’t know I was still hunting him.  That I was close.  He knew.  That’s why he put his back to the fountain.  Encouraged you to do the same.” **
+**“I was here while you talked.  He pretended he didn’t know I was still hunting him.  That I was close.  He knew.  That’s why he put his back to the fountain.  Encouraged you to do the same.”**
 
 I leaned back again, the edge of the fountain digging into my legs painfully.  “But…he said you can’t cross water.”
 
-** “As with much he said, a distortion of the truth.  We cannot approach another near water if we have to cross it to reach them.  It’s a child’s trick, and offers no real hindrance at all.  But you are not a child, and your father has betrayed you.” **
+**“As with much he said, a distortion of the truth.  We cannot approach another near water if we have to cross it to reach them.  It’s a child’s trick, and offers no real hindrance at all.  But you are not a child, and your father has betrayed you.”**
 
 “I don’t understand.”
 
-A soft, coarse laugh and then, ** “I think you do.  His attempt to get you to join him at the fountain wasn’t a father’s love.  He didn’t want you taken before he could hand off his burden.  Could try to turn my anger towards you.” **  It gave a harsh noise that might have been a groan or a growl.  ** “As though I am a dumb animal to be fooled or dissuaded.”  I saw the chain running from my father’s neck jerk tighter.  ** “He is the only fool here.” **  Its eyes narrowed.  ** “Or am I wrong?” **
+A soft, coarse laugh and then, **“I think you do.  His attempt to get you to join him at the fountain wasn’t a father’s love.  He didn’t want you taken before he could hand off his burden.  Could try to turn my anger towards you.”**  It gave a harsh noise that might have been a groan or a growl.  **“As though I am a dumb animal to be fooled or dissuaded.”**  I saw the chain running from my father’s neck jerk tighter.  **“He is the only fool here.”**  Its eyes narrowed.  **“Or am I wrong?”**
 
 A small part of me wanted to argue.  To deny what it said and defend the man that I should be able to trust.  Should be able to love.  But this strange, terrible creature was being honest.  And in that moment, peering into a horrifying world I didn’t know and didn’t *want* to know, so was I.
 

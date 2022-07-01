@@ -122,4 +122,7 @@ My stomach sinks as a flickering light turns on in the hallway as I reach the do
 
 I need to run, but my legs are slow and jumpy as I creep through the hallway. The familiar doors of my childhood stand ominously ajar, giving me glimpses of blackhole rooms. I try to focus on moving straight ahead, but my body seems to be regressing to that of an infant.
 
-Eventually, I reach the head of the stairs, willing myself to dash down, to get to safety. As I am about to take the first step in my descent, I hear a low laugh echo from the direction of my [childhood bedroom](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).
+Eventually, I reach the head of the stairs, willing myself to dash down, to get to safety. As I am about to take the first step in my descent, I hear a low laugh echo from the direction of my [childhood bedroom](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).  
+
+
+[READ PART 3 HERE](https://www.reddit.com/r/nosleep/comments/vp7i1k/birds_of_a_feather_die_together/)
