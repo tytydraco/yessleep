@@ -1,4 +1,4 @@
-Last week my high school had a reunion. I went despite the long trip and I'd didn't regret it. I met old friends,teachers,girlfriends and boyfriends. We all had a good laugh talking about stories through our high school years. People talked about how they stole street signs in broad daylight and others talked about stunts they pulled to impress friends or crushes. 
+Last week my high school had a reunion. I went despite the long trip and I didn't regret it. I met old friends,teachers,girlfriends and boyfriends. We all had a good laugh talking about stories through our high school years. People talked about how they stole street signs in broad daylight and others talked about stunts they pulled to impress friends or crushes. 
 
 I met with my old group of friends. Isaac,Aisha,Grey,and Izzy. We all had brought bottles of alcohol that we sipped as we talked about what troublesome we got into. Grey at some point left to see his old teacher,leaving the rest of us to discuss further memories.
 
@@ -20,7 +20,7 @@ Isaac spoke up next,
 
 "Yeah it says right hear, 'Local school is shocked by a girl falling forty feet head first into the ground. Only to walk away fine,' Weird story. I think five people watched her jump. Grey is one of them. I don't remember the others."
 
-She put her phone away and began conversation with someone walking by,she was social like that. Always has been. Izzy still looked upset,her brow was furrowed and her mouth tested in her palm. I got up and sat next to her,
+She put her phone away and began conversation with someone walking by,she was social like that. Always has been. Izzy still looked upset,her brow was furrowed and her mouth rested in her palm. I got up and sat next to her,
 
 "Something wrong?" I asked,
 
@@ -52,7 +52,7 @@ I told her how adamant she was the article about Hecate was true,and how I persi
 
 I strolled around the school seeing familiar faces,and looking for Grey. For some reason I wanted to hear what he had to say. He believed the story,and he had dated her. So I considered whatever story he had reliable. 
 
-I found him at the back entrance of the school talking to a teacher. I approached them and waited them for their conversation to end. Once it did,I immediately asked the question I was there for.
+I found him at the back entrance of the school talking to a teacher. I approached them and waited for their conversation to end. Once it did,I immediately asked the question I was there for.
 
 "Hey... So,I heard you believe that myth Hecate survived a forty foot drop?" I worded it stupidly I know,but I was drunk so don't make fun of me.
 
