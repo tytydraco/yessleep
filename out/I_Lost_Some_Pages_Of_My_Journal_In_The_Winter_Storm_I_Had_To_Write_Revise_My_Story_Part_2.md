@@ -1,4 +1,4 @@
-\[Part 1\]  ([https://www.reddit.com/r/nosleep/comments/vnfa7i/theres\_death\_in\_the\_winter\_storm\_i\_lost\_my/](https://www.reddit.com/r/nosleep/comments/vnfa7i/theres_death_in_the_winter_storm_i_lost_my/)) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/vnfa7i/theres_death_in_the_winter_storm_i_lost_my/) 
 
 &#x200B;
 

@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/vok6bl/the_death_toll_in_the_winter_storm_is_rising_the/?utm_medium=android_app&utm_source=share)
+[Part 2](https://www.reddit.com/r/nosleep/comments/vp1hb9/i_lost_some_pages_of_my_journal_in_the_winter/) 
 
 "No matter how strong you are or how much you struggle , you can never truly escape the grasps death".
 

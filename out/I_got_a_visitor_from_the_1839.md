@@ -1,0 +1,13 @@
+Before I say anything I would like to share the backstory; I live in a small town in Indiana which was founded in 1836. In 1838 a little girl known only by Evelyn went missing and a body of a little girl was found a year later which people always assumed it was her but was never confirmed and it wasn't solved more than her cause of death which was blunt force trauma and was apparently pushed off a cliff because she was found at the bottom of a cliff with broken bones everywhere. Her most well known detail about her was her blonde hair always tied back with a red lace ribbon 
+
+Two weeks ago I was home alone (I'm a single guy in his first year of art school who lives with my 4 roommates) and decided to make tea and watch scream which is my favorite movie.
+
+I started to make the tea when I heard someone knock on the front door, It seemed logical that it would be a roommate but they use the back door so it couldn't be. 
+
+So I headed to the door and opened it. There was a little girl who looked kind of familiar but I couldn't put my finger on it. Blood was all over her so my first thought was that she just got injured by s car or something or escaped a bad home situation or a kidnaping (I'm addicted to true crime documentaries and podcasts so my thoughts immediately went to that kinda stuff) I asked her for her name and she said "Evelyn sir, what's yours?" I said my name and asked if she wanted to come inside and get cleaned up and maybe have some tea (look I know this isn't the smartest decision but I thought she was in serious trouble)  she accepted and I brought her inside and sat her down at the table and finished with the tea and heated up a strawberry cream cheese croissant for her. I set her tea and food down and went to go get a wet washcloth, a  towel, disinfectant wipes, and bandages. When I came back she was out of her seat and walking back to the door. I asked her "Hey Evelyn why are you leaving? I'm going to help you get cleaned up and help find your home or phone the cops." 
+
+She just opened the door and walked away waving me goodbye. I followed her and when I turned a corner I watched a car damn near hit her when she disappeared into thin air. I went inside after a solid 5 or 6 minutes to call a roommate and process what just went down when on the chair she I had her sit on there was her red lace hair ribbon.
+
+It took me 15 minutes s cup of tea and a call with one of my roommates to relize who she was.
+
+Still not fullt covinced i wasn't just imagining it or going crazy  but I'm also sure it was real.

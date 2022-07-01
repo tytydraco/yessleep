@@ -148,6 +148,9 @@ When I got back home, my parents were standing outside. They hugged me, then the
 "An… animal… some wild animals somehow got in. Only the Principal and the school officers were hurt," I said.
 
 
+They told me they were glad I was okay, then we stepped inside.
+
+
 That evening, I checked the local news. There was a report about my school having gone into lockdown due to a wild animal. It mentioned the thing about Principal Sanderson and the school officers being put in the hospital. There was no mention of the armor guy or the dark mass, or any of the destruction. The only pictures in the article were of the Principal and the school officers. None of the creatures or the destruction. There was nothing about a mystery field or a sudden dirt road either. According to the article, the police showed up in minutes, went in, then they came out two hours later.
 
 
