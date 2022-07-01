@@ -108,3 +108,7 @@ Oh, one last thing. So, last night this weird damp spot started forming where th
 It’s sort of reflective, which is concerning, and for a moment I thought I saw fingertips reaching out of it.
 
 Anyways, thanks for letting me share with you!
+
+&#x200B;
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vop71y/im_calling_about_a_past_due_balance_on_your/)

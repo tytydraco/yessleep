@@ -2,7 +2,7 @@
 
 # 1
 
-I can still see the Craigslist listening clearly in my mind. Without skipping a beat, the listing title read in large, bold letters: ROOMMATE WANTED.
+I can still see the Craigslist listing clearly in my mind. Without skipping a beat, the title read in large, bold letters: ROOMMATE WANTED.
 
 This intrigued me. At the time, I was looking for a roommate and had just gotten into college—my *dream* college, UF, University of Fairhope.  I clicked the listing and it popped up with different information about the guy that you *had* to put on listings. I forgot a lot of the information now but it had really basic stuff, including their email address but not their name. I searched the listing but couldn’t find any name. This struck me as very odd but didn’t make me think too much. As I would come to find out, all of the information on the website wasn’t linked to any existing website.
 
@@ -24,7 +24,7 @@ I continued down the hallway, pushing the cart before stopping in front of room 
 
 A bad feeling seemed to roll in my stomach, like nausea. I swallowed to keep the feeling down. “I’m Pamela.”
 
-“Well hello, Pam,”
+“Well, hello, Pam,”
 
 Nancy looked down at the cart. Her eyes darted back up at mine. “Do you need help with that?
 
@@ -52,7 +52,7 @@ The next time I turned around to walk out of the room, Nancy was standing in the
 
 “But yeah, I wanted to help out just in case you needed my help,”
 
-I looked down at the boxes before looking back at Nancy, still standing in the doorway. Her lips still pulled back into a toothy smile.
+I looked down at the boxes before looking back at Nancy, still standing in the doorway. Her lips still pulled back into a smile.
 
 “It’s alright, I’m doing good on my own,” I said, and quickly interrupted her to add another thing. “Thank you though,”
 
@@ -86,7 +86,7 @@ Nancy’s eyes left mine
 
 (*finally holy shit it’s been an hour just looking into this woman’s eyes)*
 
-and to the roommate’s door at the end of the hallway. She seemed… *impatient*? I studied her face some more—she was still looking at the door—and couldn’t find much emotion. 
+and to the roommate’s door at the end of the hallway. She seemed… *impatient*? I studied her face some more—she was still looking at the door—and couldn’t find much emotion.
 
 “Do you know when they’re going to come out?” I asked, and Nancy turned to face me. Her face contorted with anger.
 
@@ -102,7 +102,7 @@ and to the roommate’s door at the end of the hallway. She seemed… *impatient
 
 It struck me as very odd for her mood swings—an obvious sign that this woman wasn’t right. I was starting to catch on by now, but still not very suspicious. I sat in the seat for another minute in silence. Nancy looked back at the roommate’s door with stupid fascination.
 
-“What was he like?” I continued to *try* to make conversation. At this point in the dinner—even though dinner wasn’t served yet, and it started to seem like there wasn’t dinner at all—I didn’t know what to make of anything. 
+“What was he like?” I continued to *try* to make conversation. At this point in the dinner—even though dinner wasn’t served yet, and it started to seem like there wasn’t dinner at all—I didn’t know what to make of anything.
 
 “Great guy,” Nancy said, turning back to look at me, “really cute too.” She smiled, remembering the memory of him.
 
@@ -110,7 +110,7 @@ It struck me as very odd for her mood swings—an obvious sign that this woman w
 
 “Didn’t you already ask that?” Nancy said
 
-*No, you bitch, I didn’t say that. Why are you trying to avoid the question?* I thought—my face was still wearing that fake smile. “Oh, right, sorry about that.”
+*No, you bitch, I didn’t say that. Why are you trying to avoid the question?* I thought—my face still wearing a fake smile. “Oh, right, sorry about that.”
 
 Nancy scoffed, annoyed, and looked back at the door. My eyes drifted there eventually as well. The next time I looked back at her—aware that she could have been staring at me—she stood up from the table, something soaked into the lap of her pants. It was wine. She had spilled wine onto her pants.
 
@@ -142,12 +142,13 @@ I then started to dream.
 
 # 3
 
-“I’ll be leaving for an hour or so,” Nancy yelled into the apartment. Her voice floated out from the living room as I came out of my bedroom. I had just finished my homework, and now I awaited the weekend. I walked out of the hallway and to the living room. Nancy was standing at the front door, wearing a yellow rain slicker—something that made sense to be wearing, even though a little childish looking, since it had been raining for the past two days non-stop—buttoned up.
+“I’ll be leaving for an hour or so,” Nancy yelled into the apartment. Her voice floated out of the living room as I came out of my bedroom. I had just finished my homework, and now waited for the weekend. I walked out of the hallway and to the living room. Nancy was standing at the front door, wearing a yellow rain slicker—something that made sense to be wearing, even though a little childish looking, since it had been raining non-stop for the past two days—buttoned up.
 
-“Alright,” I said, “how long will you be gone?”  
- “Not long, an hour or so.” Her teeth—stained yellow, something that I had noticed then—pulled into a grin. “What were you planning on having some friends come over? Throw a big party?”
+“Alright,” I said, “how long will you be gone?”
 
-I smiled back. It wasn’t funny in the bit but didn’t want her to break out into the same anger that she had before. “No, reason.” A long silence filled the room. Nancy was still grinning. “Well, you gotta be going now.”
+"Not long, an hour or so.” *Her teeth*—stained yellow, something that I had noticed then—pulled into a grin. “What were you planning on having some friends come over? Throw a big party?”
+
+I smiled back. It wasn’t funny in the bit but didn’t want her to break out into the same anger that she had before. “No, reason.” A long silence filled the room. Nancy was still grinning. “Well, you got to be going now.”
 
 Nancy’s smile faded to nothing. Without saying anything she turned around and walked out of the apartment into the hallway. Shutting the door behind her with a slam. I stood there for another moment, listening as she stormed down the hallway to the elevator, before walking back to the hallway.
 
@@ -155,7 +156,7 @@ As soon as I turned the corner to walk down the hallway, the roommate’s door a
 
 There was a figure standing at the entrance of the hallway.
 
-Their body was a silhouette. They were trapping me in the hallway. The figure stepped closer and into the light. Their clothes became visible and my heart started to beat faster.
+Their body was a silhouette. They were trapping me in the hallway. The figure stepped closer and into the light. Their clothes became visible—my heart almost beat out of my chest.
 
 It was Nancy.
 
@@ -183,7 +184,7 @@ I turned and walked away from the roommate’s door. He hadn’t come out the en
 
 I picked up my phone, still laying on the bedside table, and opened it. The battery was full. *Good.* I opened Facebook and clicked on the search bar. I typed in NANCY CRUZ again. I clicked on the same account I had before. I went to the same post as before and looked at the accounts tagged. None of the accounts had their actual names in them. I clicked on the top one and more photos came up. Photos of the guy in the picture. I read the caption of the newest picture, slowly. Thinking over the words. I noticed that the girl in the photo was the same person from the group picture on Nancy’s account.
 
-The caption read PARTYING ALL FUCKING NIGHT WITH ETHAN AND SABRINA.
+The caption read: PARTYING ALL FUCKING NIGHT WITH ETHAN AND SABRINA.
 
 I guess Nancy didn’t like people that swore.
 
@@ -193,7 +194,7 @@ There was a weird smell in the apartment.
 
 That was all I could remember from the start of the day, everything else is just a blur. Nancy had gone out to get groceries while I stayed back at the apartment—even if I wanted to go I  couldn’t. We hadn’t talked until the fight we had two days prior. Nancy had been gone for an hour and a half until then. After she left the rain started, the wind with it. It whistled and blew against the house. The rain was heavy, hitting against the roof of the building and bouncing back—reminding me of camping with my family when I was younger.
 
-I was sitting at the table in the small dining room where Nancy and I had once had dinner, waiting for our “third guest”. I had smelled the smell coming from the hallway. It seemed to come from the bathroom, not a surprise since Nancy *had* used it before she left for the grocery store. The smell was still bothering me though—seemingly never leaving my nose. I turned my phone off and left it on the table as I walked into the hallway. I stood at the beginning of the hallway, looking down. The entire hallway was dark. The wind got heavier outside.
+I was sitting at the table in the small dining room where Nancy and I had once had dinner, waiting for our “third guest”. I smelled the odour coming from the hallway. It seemed to come from the bathroom, not a surprise since Nancy *had* used it before she left for the grocery store. The smell was still bothering me though—seemingly never leaving my nose. I turned my phone off and left it on the table as I walked into the hallway. I stood at the beginning of the hallway, looking down. The entire hallway was dark. The wind got heavier outside.
 
 All of the doors inside the hallway were closed *except* for the door at the end of the hallway.
 
@@ -217,23 +218,23 @@ In the corner of the room were two high-power air filters. Both of them were not
 
 Both bodies were of the two roommates in Nancy’s post on Facebook.
 
-I looked up at the wall, another thing I hadn’t noticed before and gasped. A sentence was scrawled across the wall in blood. ROOMMATES FOREVER! It read.
+I looked up at the wall. My eyes scanned over something I hadn’t noticed before. I gasped. My heartbeat started to slow. A sentence was scrawled across the wall in blood: ROOMMATES FOREVER!
 
 I seemed to analyze everything in the room in seconds before I inhaled through my nose and the smell hit me. I backed out of the room, not shutting the door, and turned to the corner of the hallway. I retched and threw up everything in my stomach into the corner. Chunks of meat and vegetables. My mouth, throat, and tongue stung with the taste and smell of stomach acid as I turned away from the door and ran out of the hallway—continuing going until I was out of the apartment. As I stood on the sidewalk in front of the building, the rain beating down on me—wetting my clothes, I looked up to the fourth floor. My eyes scanned the windows before I found a silhouette standing in one of the windows. They were waving, looking down at me. I could have sworn that it was Nancy standing there, but it wasn’t.
 
-Instead, Nancy was driving on route 467 heading for California.
+Instead, Nancy was driving on route 467; heading for California.
 
 # 5
 
-As I sat in the investigation room, a large overhead fan blew wind into my hair. No one was inside the room yet. As I was escorted into the room, I didn’t see anyone that looked like a detective. The image of the two bodies, mutilated, never left my mind—an image that probably couldn’t get out of my mind for another couple of years including theory. 
+As I sat in the investigation room, a large overhead fan blew wind into my hair. No one was inside the room yet. As I was escorted into the room, I didn’t see anyone that looked like a detective. The image of the two bodies, mutilated, never left my mind—an image that probably couldn’t get out of my mind for another couple of years including therapy.
 
-The doorknob leading into the investigation room clicked and turned as a key was inserted and taken out. A detective walked into the room. In his right hand was a large black case, on the side read SMITH CORONA. I watched the case with curiosity as he placed it on the table, sat down, and slid it to the side of the table. I thought of the different things that could be inside the case, and one of the most serious things was a lie detector.
+The doorknob leading into the investigation room clicked and turned as a key was inserted and taken out. A detective walked into the room. In his right hand was a large black case, on the side read SMITH CORONA. I watched the case with curiosity as he placed it on the table, sat down, and slid it to the side of the table. I thought of the different things that could be inside the case, one of them being a lie detector.
 
 “Hello, I’m detective Parchant. I want to talk to you for a moment.”
 
-I tried to say something—*I DIDN’T DO IT IT WAS THAT BITCH NANCY—*but nothing came out of my mouth. Just like when I was fighting with Nancy in the hallway.
+I tried to say something—*I DIDN’T DO IT! IT WAS THAT BITCH NANCY*—but nothing came out of my mouth. Just like when I was fighting with Nancy in the hallway.
 
-“It’s fine if you don’t want to talk, after everything you went through I understand.” Det. Penchant said, taking a photo out from his pocket. It was a polaroid. He put it on the table, slid it across, and I picked it up.
+“It’s fine if you don’t want to talk, after everything you went through, I understand.” Det. Penchant said, taking a photo out from his pocket. It was a polaroid. He put it on the table, slid it across, and I picked it up.
 
 “Do you recognize her?”
 
@@ -243,8 +244,8 @@ I nodded my head. Det. Parchant took the case and opened it. He took out an old 
 
 “Since you can’t talk, I want you to sit here and type out everything that happened to you while staying with her and everything that you know of her. You can add some more information later. Be detailed.”
 
-I looked away from Det. Parchant and to the typewriter. I lifted my hands and placed them on the keys of the typewriter. I looked into the blank sheet loaded into the typewriter. I thought. Thought about everything that happened either strange or out of the ordinary while I stayed at the apartment. I started to write.
+I looked away from Det. Parchant and to the typewriter. I lifted my hands off the table and placed them on the keys of the typewriter. I looked into the blank sheet loaded into the typewriter. I thought. Thought about everything that happened either strange or out of the ordinary while I stayed at the apartment. I started to write.
 
-I can still see the Craigslist listening clearly in my mind. Without skipping a beat, the listing title read in large, bold letters: ROOMMATE WANTED.
+**I can still see the Craigslist listing clearly in my mind. Without skipping a beat, the title read in large, bold letters: ROOMMATE WANTED.**
 
 I continued writing, unaware that I had started to cry.
