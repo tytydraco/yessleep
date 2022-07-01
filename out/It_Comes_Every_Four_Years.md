@@ -16,7 +16,7 @@ Later That Day
 
 I decided to ask my parents about the mysterious creature that comes every four years and they said confirmed everything that Alex had said from the stone being left on the door to It coming to take you in the dead of night on the fifth day of the week and you never being heard from or seen again. 
 
-Tree Days Later
+Three Days Later
 
 After I had the conversation with Alex I mean I was worried for him but now’s not the time I still don’t know if what everyone is saying is true. In my first period class I got there and Alex wasn’t there. I instantly knew that what Alex and my parents said was all true. And to be completely honest I’m gonna miss Alex and I will try to remember him for as long as I can. 
 

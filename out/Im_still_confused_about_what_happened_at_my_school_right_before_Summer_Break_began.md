@@ -25,10 +25,10 @@ The low thumping continued. I glanced towards my classmates. There were looks of
 Out of the corner of my eye, I saw the teacher take out her phone. I looked away, but I overheard her talk to herself.
 
 
-"No signal?" She asked.
+"No service?" She asked.
 
 
-It was weird that a cell signal would be cut off like that. It didn't make any sense the more I thought about it. As I thought to myself, I noticed the outline of the trees outside was a bit off. I hesitated to get a better look though, as I didn't want the intruder to see me.
+I found it weird that her cell service signal would cut off like that, assuming she didn't think it would cut off randomly, based on her vocal expression. It didn't make any sense the more I thought about it. As I thought to myself, I noticed the outline of the trees outside was a bit off. I hesitated to get a better look though, as I didn't want the intruder to see me.
 
 
 Things were silent again for some time. At one point, I noticed the air smelled cleaner than usual. My focus on the air was broken by the sound of pairs of boots speeding past the classroom.
