@@ -34,7 +34,7 @@ I found it weird that her cell service signal would cut off like that, assuming 
 Things were silent again for some time. At one point, I noticed the air smelled cleaner than usual. My focus on the air was broken by the sound of pairs of boots speeding past the classroom.
 
 
-"Don't focus on it. We know what's there. If you acknowledge it, it will torture you," a female voice said.
+"Don't focus on it. We know what's there. If you look at it, it will torture you," a female voice said.
 
 
 "What is it digging for?" Another female voice asked.
