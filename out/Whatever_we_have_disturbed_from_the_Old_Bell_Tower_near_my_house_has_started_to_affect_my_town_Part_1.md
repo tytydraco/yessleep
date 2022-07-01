@@ -344,3 +344,5 @@ It lasted less than a second, but that look is permanently imprinted in my mind 
 My blood ran ice cold, as I watched them both get up and move slowly towards my Mum as she took a sip of her coffee.
 
 [X](https://www.reddit.com/user/Reggaejunkiegee/comments/vlsn7m/reggaejunkiegeetales_a_sub_for_all_and_for_all_a/?utm_medium=android_app&utm_source=share)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vok40r/whatever_we_have_awakened_in_the_old_bell_tower/?utm_medium=android_app&utm_source=share)
