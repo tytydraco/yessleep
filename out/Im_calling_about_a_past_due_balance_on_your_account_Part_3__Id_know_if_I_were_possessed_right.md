@@ -1,4 +1,4 @@
-I work for a ‘special collections’ agency and I don’t think our customers are human. 
+I work for a ‘special collections’ agency and I don’t think our customers are human.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/v9plly/im_calling_about_a_past_due_balance_on_your/)
 
@@ -10,7 +10,7 @@ Sorry for the lack of updates. It’s been a rough two weeks. A coworker dissolv
 
 Yes, you read that correctly. Her name was Ani, and she was on the phone one minute, the next she was melting into the fabric of her chair. I didn’t know her, but she sounded like a nice lady and my thoughts are with her family.
 
-I got a call around 3 AM that morning. It was my boss and he had a hint of distress in his voice that I had never from him before when he asked if I could come in. He mentioned they were having a personnel emergency.
+I got a call around 3 AM that morning. It was my boss and he had a hint of distress in his voice that I had never heard from him before when he asked if I could come in. He mentioned they were having a personnel emergency.
 
 I could hear what sounded like hissing and screaming in the background.
 
@@ -32,9 +32,9 @@ I did have another unique ‘call’, where instead of a script it had just had 
 >  
 >*Ask another employee that you trust for assistance in calling The Watcher.*  
 >  
->*Place the enclosed item in your left palm and close your fingers around it. All five fingers and your palm* must *remain in contact with the object during your transition to assure your safe passage.*   
+>*Place the enclosed item in your left palm and close your fingers around it. All five fingers and your palm* must *remain in contact with the object during your transition to assure your safe passage.*  
 >  
->*Find and enter subbasement plot 3b. Remove shoes if they may impede your ability to run. Remind your coworker that they will need to unbury you after exactly four minutes and fifteen seconds.*   
+>*Find and enter subbasement plot 3b. Remove shoes if they may impede your ability to run. Remind your coworker that they will need to unbury you after exactly four minutes and fifteen seconds.*  
 >  
 >*As coworker begins to cover you in the 3:1 ratio of soil to red clay, speak the words “I am placing a collect call.”*  
 >  
@@ -56,7 +56,7 @@ This was the file I was given:
 >  
 >*Note:*  
 >  
->*If customer speaks clearly, and with only one voice, the creature remains bound and dormant, please proceed to help customer set up a payment plan for their subscription if they wish to do so.*   
+>*If customer speaks clearly, and with only one voice, the creature remains bound and dormant, please proceed to help customer set up a payment plan for their subscription if they wish to do so.*  
 >  
 >*If customer speaks with multiple voices and you feel the room around you begin to vibrate, the creature may no longer be dormant, repeat “uks on avatud, kutsun teid sisse” three times.*
 
@@ -64,7 +64,7 @@ From what I have been told, one of the team leads on the night shift came by, wh
 
 As I was coming to, she let me go and snatched the file off my desk, her eyes narrowed as she glared at me. As she flipped through it, though, her expression softened.
 
-“Well I’ll be. Where did you get this?”, she asked quietly 
+“Well I’ll be. Where did you get this?”, she asked quietly
 
 “It was on my desk with my other files.” I whispered, wiping at my mouth with my sleeve, “Was that… a demon?”
 
@@ -74,7 +74,7 @@ Hesitantly, I asked “Can I ask what would’ve happened if you hadn’t interv
 
 “Someone gave you the wrong incantation, dear. Instead of forcing it to remain dormant, you were inviting it in and would’ve been bound as the new host. You don’t want to host something like that, I promise you. You'd eat everything and everyone around you. If you ran out of food, you’d start eating yourself.”
 
-She wasn’t sure how long I had been out for, though so she recommended to me and to HR that they do a yearly dormancy incantation on me, too, just in case it got in without us noticing. The good news is that that’s apparently covered in our employee benefits.
+She wasn’t sure how long I had been out for, so she recommended to me and to HR that they do a yearly dormancy incantation on me, too, just in case it got in without us noticing. The good news is that that’s apparently covered in our employee benefits.
 
 The experience, and that I may be possessed sort of ruined my day, so she made me some tea in the breakroom and then sent me home for the night. I like Sandy, even if she did tell me if I was ever looking to be ‘a willing vessel’, to give her a call first.
 
