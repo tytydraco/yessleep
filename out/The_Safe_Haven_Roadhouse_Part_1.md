@@ -73,7 +73,7 @@ He raised his glass in the air laughing, then brought it down to his lips and gu
 I said, already walking towards the storage room door, waving For him to follow me.
 
 
-He directed a defeated sigh at me and hobbled his way to the old cot we have situated in the corner of the room. As soon as his head hit the pillow he was passed out snoring! I sighed and smiled while shaking my head.
+He directed a defeated sigh at me and hobbled his way to the old cot we have situated in the corner of the room. He must've been more intoxicated than he thought because as soon as his head hit the pillow he was passed out snoring! I sighed and smiled while shaking my head.
 
 
 “what a character,” I thought.

@@ -74,4 +74,4 @@ And that makes it happy.
 
 &#x200B;
 
-[Part Two](https://www.reddit.com/user/unseenvisitor/comments/vo8384/the_gangly_man_part_2/?utm_source=share&utm_medium=web2x&context=3)
+[Part Two](https://www.reddit.com/r/nosleep/comments/voz2hf/the_gangly_man_part_2/)

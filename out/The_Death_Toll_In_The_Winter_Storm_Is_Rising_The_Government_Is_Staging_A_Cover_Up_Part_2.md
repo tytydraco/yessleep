@@ -4,53 +4,76 @@
 -Psalm 23:4
 
 
-*Ringing Siren*
-Waking up from my stupor, I heard sirens coming along with the sound of loud engines rushing passed by the highway. I gaze upon them as a plethora of military vehicles and ambulance as they bravely through the ever expanding, ever thickening snow storm that's swallowing up the entire area. Curious, I started running the opposite direction from where they're heading. I tried my best not to look back disregarding the noise of screams, the panic, chaos the scale of a cataclysmic event was transpiring and the sound of deep bass caused by huge explosions made me to lose my mind for a split second. 
+
+Waking up from my stupor, I heard sirens coming along with the sound of loud engines rushing passed by the highway. I gaze upon them military vehicles and ambulance aliks as they bravely navigate through the ever expanding, ever thickening snow storm that's swallowing the entire area. Being overly-cautious for my safety, I marched at the opposite direction from where they're heading. People around me started walking fast-paced when they realize what's happening. It was all in a tensed situation where everybody was trying their best to keep their cool. 
+
+There was a moment of silence. 
+
+The pressure building up inside me was slowly going down by the second. All the gathered people were starting to sigh in relief until an explosion at the center happened. Now being at a 300m, this explosion was very loud, it made all people around me to run in panic. It was a mass hysteria. The sound of the explosion rebounded from the buildings around us so most of people assumed it was coming from above them and so many tried to get away as fast as they can from where they're standing at. 
+
+Due to this, some debirs managed to land into people. 
+Some either get their limbs torn-off by the impact, a person got hit in the head with a huge chunk of glass that sliced his head into two and the other one, was little girl who's feet was crushed by the the building  where she and her mom was taking shelter. 
+I never saw her mom. Only her hand were sticking out near her little girl. 
+
+The girl was screaming in agony, calling for her mom. But only shouts and panics muffled her voice. I tried to ran as fast to save her. Trust me I did but the moment I was 5 feet near her, a sharp piece of metal suddenly pierced her causing her screams to abruptly stop. 
+She never got to close her eyes, she died instantly. 
+
+I stood there for a while. I never knew what I could've done. Or if I could've arrived sooner I would have been able to save her. All I could do was clench my fist. 
+Tears welling up in my eyes, turning my back on her. 
+Taking the first step it felt like my heart was turning into pieces. But there's nothing I could do now.. I just ran. I ran far away just so I couldn't see her corpse staring right at me as I run away. 
+
 
 I wish I could look back. 
 
-But I didn't do it. I just can't do it. 
+But I didn't do it. 
 
-I don't want to see anything .. 
-
-I don't want to see... IT. 
+I don't want to see anything anymore.. 
 
 
-Sometime later the sounds of violence and destruction became muffled as I slowed down to catch my breath. Losing balance over fatigue I fell flat on a pile of snow. 
-Trying to push myself to stand, I shakily  stood up with my arms pushing against the ground for assistance. I was about to run again when I felt a huge wave of quake that shook my entire being. I heard rumbles coming from beneath me. As if It was a bomb that bombarded from where I stood.
 
- One, twice... and the earth jumped for the last time then it stopped. A loud roar came from above and everywhere. The echoes of made it much worse. Ever heard a lion  inside a cave? It was foreboding, ominous even. You don't know where that lion is, but you know it's in the same cave as you are. 
+Sometime later, I arrived near at a phone boot. It's probably the last of it's kind. The sounds of violence and destruction still persists but became more muffled as I settled down to catch some air. Losing my balance due to being over fatigued, I fell flat on the snow. 
+Trying to push myself to stand,  I move both of my arms forward pushing against the ground I still managed to lift myself up but it took me quite some time. Hearing another violent explosion, which gave me the inclination to hide for cover. But there weren't anywhere else to go. I was in the middle of a battlefield, if I took shelter on buildings, and I'm  not betting my chances in being crushed to death. 
+ I was preparing run further away to save myself,L when I felt a massive earthquake that shook my entire being. The road in standing on rocked so hard, I lost balanced and broke my wrist when it took the fall. Sudden as it came, it settled down. 
+But then the aftershock followed up. The earth felt like it's being pummeled by a massive hammer that led cracks a meter deep, sinkholes started forming along with the further collapse of buildings that rumbles down all over me. 
 
-Scanning over the surrounding area, looking for signs to find where it came from. I look up to pinpoint where the sound came from. 
+It was all insanity. I was going insane at that moment. I curled up into a ball, I started shaking and finally, went into shock. I just couldn't take it anymore. I didn't care if the phone booth next to me almost landed on my head, the phone broke along with a single coin escaped and rolled over before stopping at my face. Everything doesn't seem to matter, my eyes welled up seeing the coin. 
 
-There it was. I found it. It's beyond me what's next. 
+ One, twice, thrice.. the after shocked waa ongoing, it lasted longer than it was supposed to and for the last time, finally, it stopped. 
 
-There was another roar. 
-Coming from below sky and raging like thunder, this time it was much horrifying. 
+A loud roar came from above and everywhere. The echoes of made it much worse. Ever heard a lion  inside a cave? It was foreboding, ominous even. You don't know where that lion is, but you know it's in the same cave as you are. 
 
-Thick clouds of grey smoke appeared beyond the center of buildings and skyscrapers. Swirling around, covering its entire core of a hundred gigantic mass. 
+Clearly shaken up, but slightly feeling a little bit better. I felt numb all over my body. After all that's happened,  all I  think about now is home. 
 
- A hundred fifty meter-high shadow appeared briefly as lighting lit up the clouds. 
 
-The size of it was nothing I've ever seen. It was phenomenal if I could just ignore the destruction and the fires from objects that came too close with it. 
-Staring in wicked fascination, I was drawn to it. 
- I was just about to take a step forward, but then I woke up from a trance. 
-I never knew how much time has passed since then. 
-The only moment I knew when  was the clouds already dissipates next to nothing. 
+Scanning over the surrounding area, looking f to find that son of a dam that ruined me. I look up to pinpoint where the sound was coming from. 
 
-There at full view I saw a red-eyed monstrosity with two large horns the size of a school bus protruding out of it's head frill. Razor shapr fangs surrounded it's mouth and It's wings span beyond hundreds of meters that are attached to it's arm like appendage. It's tail has rowsspikes above coursing all the way down the tip which also has two curved horns pointing inwards. 
+There it was. I saw it. It's beyond me what happens next. 
 
-I wished I just kept running. 
-All the way out from this nightmare. 
-It's ironic really. It feels like the movies.. 
-Where fate wasn't still done with you and now it decides to bang you up entirely. 
+Thick clouds of grey ashes appeared beyond the center area surrounded by the ruins of many buildings and leaning skyscrapers. The cloud swirled around and over on top at the center, slowly landing on the ground. It continues to swirl around while thunder sprites began to creat a temporal lighting giving depth to it. A vision to what's inside. 
 
-Now, I'm standing here just staring at this beast. I was like back in that trance again, this time I was conscious but I couldn't move. I tried shaking myself even my toes it didn't help. 
+ A hundred fifty meter-high shadow appeared briefly as lightning continues to light it the clouds. 
+
+Realizing something was wrong I stared really carefully at the thing. And soon there it was. I saw it 
+
+The size of it was nothing I've ever seen. It was phenomenal. if I could just ignore all the destruction that has ever Happened. Maybe if I was watching it on TV, maybe I could've appreciated freak show a little more. 
+
+Staring at the clouds, and looking at what's peeking out. I'm trying to make out rough shape of it. A red glowing orb peeked out from the cloud and all of the sudden I was drawn to it. There my vision turned black while I felt my body was levitating up into space. Visions of comets and asteroids landing on earth creating a massive white cloud of engulfed the entire world. The earth or I assume a planet that looked like ours was completely covered with white ashes no matter where I look. The next scene was Gigantic beasts of unknown origins suddenly rose up beneath the earth. I was in awe by this development, I knew by then that I was lucid. I was aware of my surroundings and I was dreaming. Lost in wonder about why was I dreaming about this. I mean, it could've been a monkey riding a horse while firing a glock all over the place, but somehow, I felt a connection with it. 
+My daydream was abruptly disturbed when a beast with huge red eyes suddenly showed up at my face, instantly waking me up. 
+
+I felt like waking up from a trance. 
+And I never knew how much time has passed since then. 
+The next thing I knew, it was when the clouds were already dissipating next to nothing. 
+
+There, at full view, I saw a red-eyed monstrosity with two large horns the size of a school bus protruding out of it's head frill. Jagged teeth inhibits it's mouth and It's wings span beyond meters  I could comprehend. They were attached to it's arm like what a bat wing does. Huge claws that comes along with it. The huge monstrosity is bipedal and stood tall almost at the height of a skyscraper. 
+
+
+Now, I'm standing here just staring at this beast. I was feeling like I was back in that trance again, but this time I was awake and I couldn't move. I tried moving my body but to no avail. I was trying my best shaking myself even trying to move my toes didn't help. 
 
 The beast raised it's head to look up in the sky, curious. 
-But then it's eyes landed on me. 
+But then it's eyes ended up befalling on me. 
+My heart sank on the spot. 
 
-I tried to scream on the top of my lungs but it came out nothing. 
+I tried to scream at the top of my lungs but there was no coming out. 
 *N-n-no, God please, Don't make this real*
 *This isn't real.*
 This isn't-
