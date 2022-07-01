@@ -2,15 +2,15 @@ Are any of you just… apprehensive? Anxious? At night? Alone in your house?
 
 You see, I’ve never found monsters in the woods particularly frightening. Under your bed however…
 
-Haunted houses? Never. In your own home… well…
+Haunted houses? Never. Your own home becoming haunted… well…
 
-Do you just look around dark corners, waiting for a smiling… thing… to appear suddenly, just staring at you? Do you check under your bed for the monsters, only to be relieved by its emptiness? 
+Do you just sometimes look around random dark corners, waiting for a smiling… thing… to appear suddenly, just staring at you? Do you ever check under your bed for the monsters, only to be relieved by its emptiness? 
 
-Do you lie in that same bed, eyes open, sweat dripping down your forehead, and assume even the slightest creak of the floorboards to be a murderous stalker? A man who is going to tie you up in your bed and then slit your throat? Or maybe just watch you sleep?
+Do you lie in that same bed, eyes open, sweat dripping down your forehead, and assume even the slightest creak of the floorboards to be a murderous stalker? A man who is going to tie you up in your bed and then slit your throat? Or maybe just watch you sleep? 
 
 I always have, even in dwellings I’ve lived in for years. Nothing ever happens, of course, because the fear is simply irrational. There are real things you should be afraid of, believe me. 
 
-Now imagine moving into a new apartment. New corridors, new nighttime hallways you can’t see down completely, new dancing shadow people that the moonlit Venetian blinds highlight, but never enough to make eye contact. 
+Now imagine moving into a new apartment. New corridors, new nighttime hallways you can’t see down completely, new dancing shadow people that the moonlit Venetian blinds highlight, but never enough to fully make eye contact with. 
 
 Now, however, that fear is rational, and I’m horrified.
 
@@ -26,9 +26,9 @@ There is something going on here. I haven’t the faintest idea of what that is,
 
 I pushed aside my moving boxes, ordered a pizza, and watched some Friends reruns before bed. I despise the show, but hadn’t set up my streaming services, so it was all I had besides the news and PBS. 
 
-My bedroom has an ornately carved, wooden wall clock that audibly ticks for each second passed. This, coupled with the air conditioning unit, provides some nice hotel-esqe ambience, perfect for sleep. I showered, thinking that the shower itself was a bit harsh on my skin. 
+My bedroom has an ornately carved, wooden wall clock that audibly ticks for each second passed. This, coupled with the air conditioning unit, provides some nice hotel-esqe ambience, perfect for sleep. I showered, thinking that the water itself was a bit harsh on my skin. 
 
-I got out of the shower, wet as a fish, and grabbed a towel to dry. As I was, I heard something. Faint. Down that cursed hallway. 
+I stepped out of the poorly lit shower, wet as a fish, and grabbed a towel to dry. As I was, I heard something. Faint. Down that cursed hallway. 
 
 A bottle cap falling on the kitchen counter. 
 
