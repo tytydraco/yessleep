@@ -1,6 +1,6 @@
-I’ve done this before. More than three hundred times, I think. It’s hard to keep track.
+I’ve done this before. More than three hundred times, I think. It’s hard to keep track. I've relived this day so many times.
 
-The current time for me is 5:32 AM. In forty-five minutes and twenty seconds, the thing will push the retracting ladder down from the attic and drop into the hallway. 
+The current time for me is 5:32 AM. In forty-five minutes and twenty seconds, the thing will push the retracting ladder down from the attic and drop into the hallway.
 
 The creature is small but unbelievably fierce. Standing two and a half feet tall, it is a dense chunk of muscle and sinew. Blistered gray skin stretches tightly over its frame. It has two stubby arms contrasted by the long, almost frog-like legs. An anvil-shaped head protrudes from the torso, accented with two glowing pink eyes. Black, glistening teeth fill its cruel mouth. A leather vest and loincloth accented with human teeth dangle from its body.
 
@@ -8,7 +8,7 @@ Within seconds it will begin using its blood to draw runic symbols on the floor.
 
 I usually live longer if I can destroy some of the runes before I make my escape.
 
-When the cryptic writing is complete, it will drop to its hands and knees before beginning a guttural chant. I still don’t understand what the words mean and likely never will. The last three dozen times I have listened to it closely through the door. I’ve committed the chant to memory, but have yet to find a translation for it. 
+When the cryptic writing is complete, it will drop to its hands and knees before beginning a guttural chant. I still don’t understand what the words mean and likely never will. The last three dozen times I have listened to it closely through the door. I’ve committed the chant to memory, but have yet to find a translation for it.
 
 I doubt it is from our world, anyway. Even if it was, I have no way of knowing if the spelling is correct. But I’ll keep trying. It seems I have all the time in the world.
 
@@ -16,7 +16,7 @@ I doubt it is from our world, anyway. Even if it was, I have no way of knowing i
 
 After uttering the chant five times and emitting a bone-rattling roar, the hunt officially begins. If I don’t make a preemptive move, the process takes less than forty-five seconds after the battle cry. When it first appeared, I was still in bed scrolling mindlessly through a social media application. My bedroom door burst open and the thing sprang onto the bed. It was over before I could react.
 
-I can still feel the first time the cold blade slid into my carotid artery. I gazed into those pink eyes and the thing only smiled in return. None of the memories fade. No matter how many times I awaken to relive this day, I remember them all. 
+I can still feel the first time the cold blade slid into my carotid artery. I gazed into those pink eyes and the thing only smiled in return. None of the memories fade. No matter how many times I awaken to relive this day, I remember them all.
 
 I’ve started calling it Hunter. Why not? That’s what it does.
 
@@ -30,7 +30,7 @@ I’ve died around fifteen times trying to destroy them all. That’s a work in 
 
 This still scares me. I’ve died hundreds of different ways. Loss of blood, decapitation, disembowelment, suffocation, blunt force trauma. My methods for attempted survival are improving with each attempt. I can’t say the same for my mental stability.
 
-Escaping the house is the method that always allows me to live the longest, but comes with the greatest cost. Whenever Hunter tracks me through the town, it kills everyone it sees. A trail of viscera and carnage follows behind the beast as it tracks me. 
+Escaping the house is the method that always allows me to live the longest, but comes with the greatest cost. Whenever Hunter tracks me through the town, it kills everyone it sees. A trail of viscera and carnage follows behind the beast as it tracks me.
 
 I’ve watched as it cuts, bites, and claws its way through crowds like a hot knife through butter. Those people are less prepared than I am. It’s as though I’m allowing a fox into a chicken coop. Their screams and pleas haunt me almost as much as the creature.
 
@@ -38,7 +38,7 @@ Even after sacrificing all of these unwitting souls, it still finds me. That is 
 
 Knowing that leaving the house always ends in bloodshed, I’ve decided I have to keep the damn thing in my house. I have no way to know for sure, but one day this loop has to end. If I’m right, I couldn’t handle knowing all of those people died in my cowardly attempt to escape this thing. It only tracks me, so why should others suffer a grizzly demise as I scramble to survive?
 
-Staying in my house keeps others safe but cuts my survival time at the very least, but I do have more control there. My attempts to hurt or kill Hunter have mostly been ineffective. Kitchen knives don’t pierce the thick hide. The old shotgun I keep in the downstairs closet knocks the thing off of its feet but deals no lasting damage. I have even bludgeoned it with a crowbar, but it continues its relentless pursuit. 
+Staying in my house keeps others safe but cuts my survival time at the very least, but I do have more control there. My attempts to hurt or kill Hunter have mostly been ineffective. Kitchen knives don’t pierce the thick hide. The old shotgun I keep in the downstairs closet knocks the thing off of its feet but deals no lasting damage. I have even bludgeoned it with a crowbar, but it continues its relentless pursuit.
 
 Five deaths ago, things changed for the better. After slipping out of the door as Hunter slashed and ravaged my bed, I slid the rug onto the runes and shot down the stairs as always. As Hunter once again discovered my trick, it tumbled out of my room and began to scramble down the stairs. For the first time that I can remember, its foot slipped and it began to fall head over the foot to the landing below.
 
