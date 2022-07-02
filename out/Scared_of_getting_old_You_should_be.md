@@ -70,7 +70,7 @@ That being said, she had elaborated on her story a bit more. She claimed there w
 
 “Excuse me.”
 
-I glanced up from my desk and found another elderly person looking back at me. This time a man. A very old man. It looked like his skin was vacuum sealed to his face.
+I glanced up from my desk and found another elderly person looking back at me. This time a man. A very old man. It looked like his skin was vacuum sealed to his face. His skeletal frame was clearly visible.
 
 “Sorry just a minute!” I blurted.
 
@@ -86,7 +86,7 @@ With a quick shake of the head, I caught myself before I trauma dumped on this c
 
 “Oh, don’t mention it. I apologise for bothering you! I was just wondering if you could point me in the direction of the main strip. I’m from out of town you see.”
 
-Now this was more my speed. I briefly provided clear and direct directions to the town centre. He seemed very appreciative, thanking me for my time with kind eyes. It felt good to see my job was doing something for the world. A nice break from the earlier chaos.
+Now this was more my speed. I briefly provided clear and direct directions to the town centre. He seemed very appreciative, thanking me for my time with kind green eyes. It felt good to see my job was doing something for the world. A nice break from the earlier chaos.
 
 Just before the gentleman exited the foyer he stopped.
 
@@ -106,10 +106,10 @@ He seemed harmless enough and didn’t seem like the type to run around spreadin
 
 He laughed.
 
-“I wouldn’t spend too much time looking into that one if I were you”
+“I wouldn’t spend too long looking into that one if I were you...Not worth the little time you have left”
 
-He threw up a hand to bid farewell and staggered out.
+I wasn't sure if that was just a friendly comment or a threat at first. He threw up a hand to bid farewell and staggered out.
 
-I turned back to my computer only to be faced with a black screen. It must have gone to sleep when I was distracted. Low-power mode to save energy. I wished I had saved some energy after the exhausting week. I felt like I’d aged sixty years,
+I turned back to my computer only to be faced with a black screen. It must have gone to sleep when I was distracted. Low-power mode to save energy. I wished I had some energy after my exhausting week. I felt like I’d aged sixty years.
 
-As I went to move my mouse, I caught a glimpse of my reflection and realised…I had.
+I caught a glimpse of my reflection in the screen's glass and realised...I had.
