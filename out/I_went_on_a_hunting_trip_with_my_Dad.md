@@ -18,7 +18,7 @@ The rest of the three-hour ride went by in silence. I could see my dad getting m
 
 We eventually pulled up to a small clearing off the road and made camp. I helped him set up the tent, and he started a fire. He checked the rifles and made sure everything was fine and in working order. He checked the magazines and sights to make sure it was all as it should be. I tried to stay quiet and out of the way as much as I could.
 
-At lunch we ate sandwiches my mom made and sat around the fire, trying to stave off the chilly November air. The sounds of the forest came into focus as I sat there silently eating across from my dad. There was something making noise in every direction, but it felt so quiet at the same time. Every sound was so clear like nothing stopped it between where it started and my ear.
+At lunch we ate sandwiches my mom made and sat around the fire, trying to stave off the chilly air. The sounds of the forest came into focus as I sat there silently eating across from my dad. There was something making noise in every direction, but it felt so quiet at the same time. Every sound was so clear like nothing stopped it between where it started and my ear.
 
 “You know, I can still remember the first time I went out here with my father. I wish you could have met him. I guess you did, but you were just a baby. He loved you so much ya know.” The family portrait came to mind when he brought up my grandfather. He was a huge man, the opposite of my father’s slender frame. He was the opposite of my father in almost every way, but the way my dad talked about him was like he had no better friend in the world. 
 
