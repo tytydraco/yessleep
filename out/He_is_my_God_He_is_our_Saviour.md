@@ -172,6 +172,6 @@ Every night I see his cross on my walls, no matter which motel I stay in; every 
 
 He is waiting for me to return.
 
-Forever.
+[Forever.](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/)
 
 [SK](https://www.reddit.com/r/SimbaKingdom/)

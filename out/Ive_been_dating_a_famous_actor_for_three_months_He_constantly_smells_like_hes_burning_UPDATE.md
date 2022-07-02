@@ -432,19 +432,15 @@ Ren remembered exactly what it was he’d been taught, that the snake carved int
 
 His parents and the elders had always been his torturers since he was a child. They had always been the ones who had made him want to die. 
 
-And yet, now he was seeing her light, and feeling her dripping into him, entangling herself with him, whispering into his head in a melodic murmur, a language which both made no sense, but was starting to, in a metamorphosing mind. It was never them, Ren thought, as he brought the apple to his lips and took a bite. They were just her puppets, her dolls to play with and control. 
+And yet, now he was seeing her light, and feeling her dripping into him, entangling herself with him, whispering into his head in a melodic murmur, a language which both made no sense, but was starting to, in a metamorphosing mind.
 
-Next to him, Johnny wasn’t moving, his wide eyes on the moon, slack jawed. 
-
-Her voice was so sweet, inviting him to join her– join them. 
+ It was never them, Ren thought, as he brought the apple to his lips and took a bite. They were just her puppets, her dolls to play with and control. Next to him, Johnny wasn’t moving, his wide eyes on the moon, slack jawed.  Her voice was so sweet, inviting him to join her– join them. 
 
 And he did. Ren took a bite of the apple, as instructed, only to get a mouthful of maggots. 
 
 It was enough. 
 
-The maggots were enough to temporarily break the spell cast over him. Ren came to his senses quickly, choking out a cry, and spitting out maggots which continued to pour from the apple. The crowd was still entranced in the sky, and Johnny and Luce were halfway through their apples.
-
-I don’t know how Ren got to his feet. I wouldn’t have been able to. I would have been too scared to move. But he did. He forced himself to his feet, ignoring polling crimson spattering his chest. He pulled Johnny to his feet in one sharp breath, and Luce with another. 
+The maggots were enough to temporarily break the spell cast over him. Ren came to his senses quickly, choking out a cry, and spitting out maggots which continued to pour from the apple. The crowd was still entranced in the sky, and Johnny and Luce were halfway through their apples. I don’t know how Ren got to his feet. I wouldn’t have been able to. I would have been too scared to move. But he did. He forced himself to his feet, ignoring pooling crimson spattering his chest. He pulled Johnny to his feet in one sharp breath, and Luce with another. 
 
 They weren’t moving, though, half eaten apples still clutched in their hands, their eyes glued to the sky. Ren took the opportunity and ran, pulling them with him. He didn’t stop running until Johnny let out a sharp breath and coughed up maggots writhing in apple pieces, and then Luce shortly after. Where they were was so dark I couldn’t see, only endless stretches of grass and field which seemed to go on forever. “Don’t look at the sky.” 
 
@@ -464,7 +460,7 @@ Whatever he was about to say was suddenly drowned out by ringing, and then– vi
 
 My phone. 
 
-I was pulled from the memory, and found myself lying face down on the floor, back in Ren’s apartment, and my chest was burning. When I lifted up my shirt, the the carving of the serpent was bleeding into my flesh, like Ren.  I sat up, my head spinning, a cacophony of voices still ringing in my head. The memory was still clinging to me, still going on without me. I could hear their hissed breaths. 
+I was pulled from the memory, and found myself lying face down on the floor, back in Ren’s apartment, and my chest was burning. When I lifted up my shirt, the carving of the serpent was bleeding into phantom flesh, just like Ren. I sat up, my head spinning, a cacophony of voices still ringing in my head. The memory was still clinging to me, still going on without me. I could hear their hissed breaths. 
 
 “We got away.” Luce whispered, “That’s… that’s good, right? We left them!”
 
@@ -474,7 +470,7 @@ What Johnny was thinking. 
 
 And I knew what was behind the mystery door suffocated in scents. 
 
-Calliope was on the phone complaining of a sudden influx of customers, and I dragged myself to work. If anything, it was a distraction. I was halfway through my shift researching moon  cycles and on my phone, when footsteps startled me, and I lifted my head to find a Starbucks coffee cup inches from my face.
+Calliope was on the phone complaining of a sudden influx of customers, and I dragged myself to work. If anything, it was a distraction. I was halfway through my shift researching moon cycles on my phone, when footsteps startled me, and I lifted my head to find a Starbucks coffee cup inches from my face.
 
 Behind that coffee cup stood Ren, with an abnormal smile on his face. He looked better than usual– no, much better. His hair was its usual mess of brown curls, though there was no sign of the raybans he insisted on wearing. The dark circles under his eyes were gone, though his cheeks looked far more gaunt and pale, a certain light in his eyes I couldn’t look away from. “Mina.” He leaned forward, lips curving.  
 

@@ -94,8 +94,6 @@ The sickly smell of mud is wafting inside the closet. I can hear excited oinking
 
 They’re getting closer. My time is almost up.
 
-Help me.
+[Help me.](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/)
 
 [SK](https://www.reddit.com/r/SimbaKingdom/)
-
-[X](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe%21%20%2Fr%2Fnosleep%20%2Fu%2FSimbaTheSavage8)
