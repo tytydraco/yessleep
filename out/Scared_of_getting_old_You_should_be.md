@@ -1,14 +1,14 @@
 I’m a receptionist. But not just any old paper pusher you’d find at your local dentist or doctor. No, I take care of the front desk at our town’s local police station. Much more intense.
 
-Which one? Yeah, nice try. I don’t need anyone else harassing me on top of the regulars we already see on the daily. Plus, you’re not going to want to visit after you hear what lurks around these parts.
+Which one? Yeah, nice try. I don’t need anyone else harassing me on top of the regulars we already see on the daily. Plus, you’re not going to want to visit after you hear what lurks in these parts.
 
-The station was already up to its neck in paperwork on this particular week. You see, multiple bodies had been found in the woods. Every time a new one was discovered the workload increased. However, we weren’t too worried about these corpses at first. I know it sounds crazy when I put it like that. How can one, (let alone the police force), not be concerned about dead people popping up?
+The station was already up to its neck in paperwork on this particular week. You see, multiple bodies had been found in the woods. Every time a new one was discovered the workload increased. We weren’t too worried about these corpses at first. I know it sounds crazy when I put it like that. How can one, (let alone the police force), not be concerned about dead people popping up?
 
 Well, the strange thing was, these bodies were old…incredibly old. Like, really fucking old.
 
-I’m talking ancient people from centuries past. Mummified remains if you will. Kind of like the ones you see on the Discovery Channel in the early hours of the morning. Granted history wasn’t our forte, we brought in all sorts of experts from around the country. Scientists, archaeologists, an array of carbon dating academics. They all stopped by to throw in their two cents on who these people were.
+I’m talking ancient people from centuries past. Mummified remains if you will. Kind of like the ones you see on the Discovery Channel in the early hours of the morning. Granted history wasn’t our forte, we brought in all sorts of experts from around the country. Scientists, archaeologists, an array of carbon dating academics. They all stopped by to throw in their two cents on who these people once were.
 
-Naturally, quite a bit of buzz began to stir around town. Excitement of this calibre always brings the crazies out.
+Naturally, quite a bit of buzz began to stir around town. Unfortunately, excitement of this calibre always brings the crazies out.
 
 “Andy?”
 
@@ -20,7 +20,7 @@ She leaned forward.
 
 “Andy. Andy McMillan”
 
-She knew my full name? I realised there must be some connection. It was a small town after all. What this link was, however, I had no clue.
+She knew my full name? I realised there must be some connection. It was a small town after all. What this link was though, I had no clue.
 
 “I’m sorry, have we met?” I asked.
 
@@ -30,7 +30,7 @@ It looked like my question caused tears to well up in her eyes. They did look fa
 
 I gave her a blank stare. I knew the name. In fact, I knew that name very well.
 
-Rose Dawson was the name of the girl with whom I shared my very first kiss. Although, this was close to ten years ago. I hadn’t seen her since school ended but I knew she was still living happily nearby. For a brief second, everything seemed to click into place.
+Rose Dawson was the name of the girl with whom I shared my very first kiss. Although, this was close to ten years ago. I hadn’t seen her since school ended but I knew she was still living nearby. For a brief second, everything seemed to click into place.
 
 “Oh! Are you Rose’s grandmother?”
 
