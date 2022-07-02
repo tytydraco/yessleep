@@ -170,7 +170,7 @@
 
   When we finally made it back to our table, I glanced over again, to see the man had moved from beneath the street lamp, to what appeared to be maybe ten to twenty feet closer. He was still a good distance away, still revealing no more than his shadowed form and glowing eyes, but he was definitely closer now. 
 
-  Every step I took as we headed back to the house my would-be fiance shared caused my chest to quake, as I couldn't know how much longer I had until my old buddy caught up with me. Though it practically shattered me to do so, I had to put an end to my relationship with the woman I adored with my whole heart and soul. I couldn't risk passing this to her, and I would not want her to have to endure my premature death if I didn't force someone else to take this from me. 
+  Every step I took as we headed back to the house my would-be fiance and I shared caused my chest to quake, as I couldn't know how much longer I had until my old buddy caught up with me. Though it practically shattered me to do so, I had to put an end to my relationship with the woman I adored with my whole heart and soul. I couldn't risk passing this to her, and I would not want her to have to endure my premature death if I didn't force someone else to take this from me. 
 
   It hurt so much more than I can even begin to put into words to tell her I had to end things, but it was my only choice; the only one I could see anyway. As the weeks went by, she attempted to reach out to me so many times, but I had to keep her far from arm's length, even if it felt as though it would kill me long before the traveler made it to my front door. After some time, I believe she got the hint that we would not rekindle, but I still long for her, even now. Even with the end so close. 
 
