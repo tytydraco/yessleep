@@ -4,13 +4,13 @@
 
 &#x200B;
 
-We finally got a hint on where to find this thing. Admittedly the way we found out was far from ideal. We needed the information, though. As mentioned in my last post, Kelly and I went to the next interviewee together. It was the one involving the six-year-old boy. We didn’t know where to begin. 
+We finally got a hint on where to find this thing. Admittedly the way we found out was far from ideal. We needed the information, though. As mentioned in my last post, Kelly and I went to the next interviewee together. It was the one involving the six-year-old boy. We didn’t know where to begin.
 
 &#x200B;
 
 &#x200B;
 
-The other accounts were already hard enough to hear, but this was going to be an order of magnitude more harrowing. That's why it took us longer than the others to get around to pursuing it. We discussed things while driving through town, later in the afternoon at that point. 
+The other accounts were already hard enough to hear, but this was going to be an order of magnitude more harrowing. That's why it took us longer than the others to get around to pursuing it. We discussed things while driving through town, later in the afternoon at that point.
 
 &#x200B;
 
@@ -56,7 +56,7 @@ That caught us off guard. There was a pause and then Kelly answered her.
 
 &#x200B;
 
-Across from the school, was a park where we sat at a picnic table with Alma sitting across from us. It took a moment before the conversation resumed. 
+Across from the school, was a park where we sat at a picnic table with Alma sitting across from us. It took a moment before the conversation resumed.
 
 &#x200B;
 
@@ -146,7 +146,7 @@ Alma sighed and continued.
 
 &#x200B;
 
-I winced at that. I’ve already made it clear how hard Jake’s death hit me. However, I know that pain is different for parents. It’s far more intense. 
+I winced at that. I’ve already made it clear how hard Jake’s death hit me. However, I know that pain is different for parents. It’s far more intense.
 
 &#x200B;
 
@@ -284,16 +284,20 @@ I felt my hands ball up tightly. After a brief period of silence, Alma continued
 
 &#x200B;
 
-“No, “ Alma smiled again, “thank you. 
+“No, “ Alma smiled again, “thank you.
 
 &#x200B;
 
 &#x200B;
 
-We gave her our numbers and she told us she'd let us know if Roy would be able to speak with us. I guess all that’s left to do now is wait. There is a theory we or rather, Kelly has come up with. That is that the shapeshifter’s lair might be somewhere in the woods. Assuming that’s the case, if we line up everywhere it was reported to have struck, we may be able to approximate its location. 
+We gave her our numbers and she told us she'd let us know if Roy would be able to speak with us. I guess all that’s left to do now is wait. There is a theory we or rather, Kelly has come up with. That is that the shapeshifter’s lair might be somewhere in the woods. Assuming that’s the case, if we line up everywhere it was reported to have struck, we may be able to approximate its location.
 
 &#x200B;
 
 &#x200B;
 
 Then when it’s time to put that horrid thing down, they’ll be a decent chance for us to get the drop on it. However, I want to wait until after we’ve talked with Roy before going over there. Now, I'm going to try and [get](https://www.reddit.com/r/StoriesFromRose/) some [shuteye.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/vploqn/a\_cryptid\_killed\_my\_exbest\_friend\_part\_6/](https://www.reddit.com/r/nosleep/comments/vploqn/a_cryptid_killed_my_exbest_friend_part_6/) (Our meeting with Roy.)
