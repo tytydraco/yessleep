@@ -134,9 +134,7 @@ I remember Calliope still talking into my ear when I hit the ground, my phone sl
 
 Cal’s voice was drowned out by another, which was suddenly so close. I could sense someone near me, so close, the sweet aroma of their perfume enveloping everything else. The smells came first, followed by noise; light chatter and clinking glasses, silverware and cutlery clanging together. I was no longer in Ren’s apartment. In fact, I was no longer myself. When I opened my eyes, a fancy restaurant surrounded me, the type I would never eat at. I was sitting at a table, in front of a platter of fruit, cheese and different types of bread. I couldn’t move my body, or speak, or even breathe.
 
-I wasn’t alone. Sitting opposite me sipping a glass of wine was a tall woman with sour features, dark brown and a beige sweater, while on my right and left were Luce and Johnny, the two of them were well dressed, and looked different. 
-
-Luce was a lot less paler, her hair a shade of chestnut, pulled into two pigtails, while Johnny, instead of hiding under his hood, like I was used to, wore shorts and t-shirt, his hair a lot shorter and spikier. His eyes, when I caught them, seemed far more animated. 
+I wasn’t alone. Sitting opposite me sipping a glass of wine was a tall woman with sour features, dark brown hair and a beige sweater, while on my right and left were Luce and Johnny, the two of them were well dressed, and looked different. Luce was a lot less paler, her hair a shade of chestnut, pulled into two pigtails, while Johnny, instead of hiding under his hood, like I was used to, wore shorts and t-shirt, his hair a lot shorter and spikier. His eyes, when I caught them, seemed far more animated. 
 
 “Ren?”
 
@@ -180,7 +178,7 @@ Ren cleared his throat, still smiling a stupid smile. “I think it would be goo
 
 The woman, or Claire, cocked a brow, before slapping down a piece of paper. Ren had been expecting it, but still, his heart sank into his gut. Claire stabbed each line with her index, enunciating every word. “Under section B, line 56— it clearly says not to step into the public eye and attract attention to yourself." She said. 
 
-"You star in a movie, and already people are asking where you came from. How long before they come sniffing around us? Ren, you’re making a joke out of us. We were clear. Under no circumstances must any of you become a recognisable face. Because if you do, what will happen to us? Our family will be corrupted. I know every child has a dream, but that path is not yours. You were not born to be an entertainer. You were born to stand by her side. Through sickness and in health, till eternal death will you part. That is what you promised. You’re coming home. This phase of curiosity is over.” 
+"You star in a movie, and already people are asking where you came from. How long before they come sniffing around us? You were not born to be an entertainer. You were born to stand by her side. Through sickness and in health, till eternal death will you part. That is what you promised. You’re coming home. This phase of curiosity is over.” 
 
 Claire’s gaze flashed to Luce and Johnny. “I am very disappointed in the three of you.”
 
@@ -282,7 +280,7 @@ He raised a brow. “But it’s literally a cult. You can’t deny that.”
 
 “We’re a family.” She gritted out. “Please stop saying that word.” 
 
-“You want us to burn.” Luce finally speaks up. She had been the one terrified to come, and he’d convinced her and was starting to regret it. He saw how her body was quivering, her fingers tapping on the table. “The Eden ritual anoints us reborn while our souls burn in her light. We were taught this from first grade.” Her lip curled, years of pain bleeding into her words. “What family teaches their community that is okay? We were naive little kids.”
+“You want us to burn.” Luce finally speaks up. She had been the one terrified to meet the woman, and he’d convinced her and was starting to regret it. He saw how her body was quivering, her fingers tapping on the table. “The Eden ritual anoints us reborn while our souls burn in her light. We were taught this from first grade.” Her lip curled, years of pain bleeding into her words. “What family teaches their community that is okay? We were naive little kids.”
 
 “We didn’t know any better.” Ren spoke up, his tone cutting. 
 
@@ -315,8 +313,6 @@ Claire wasn’t finished yet. 
 “This is what your parents want! Why you were born!  Do you not like what we have given you? What we are about to give you? Impenetrable flesh. The ability to fully consume her light!” Her  eyes snapped to Ren. “Now, drop this ridiculous dream and come and finish your anointing.”
 
 “Dream?” Johnny rolled his eyes.  “What’s wrong with making something of ourselves? You’ve kept us under lock and key our whole lives and want us to serve some fictional god, and you can’t stand that the facade has shattered and you can’t control us with your voodoo shit.”
-
-Her hand slammed down on the table and Johnny jumped. 
 
 “Tell me, Jonathan,” she said, her voice prickling, “Who put these ridiculous ideas into your head?”
 
