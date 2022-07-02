@@ -1,0 +1,131 @@
+Here is the rest of the transcript Jericho Jackson told us after we rescued him from the Ottawa National Forest.
+
+Part 1 of the transcript is here: [https://www.reddit.com/r/nosleep/comments/vp3zc8/i\_work\_for\_the\_dnr\_in\_a\_unit\_that\_deals\_with/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vp3zc8/i_work_for_the_dnr_in_a_unit_that_deals_with/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
+>I moved slowly. The sounds of the forest told me those things weren't around but I wasn't going to take that as a given. When I came to the place we'd camped I saw everything had been torn apart and strewn around the area. I was about to make my approach when movement caught my eye. Something shifted in the brush on the other side of the camp. It was one of the smaller creatures, it sat hunched in the brush, panting absently and pausing now and then to look around. Another movement drew my attention to a tree near the camp and I saw the bulky shape of the other smaller creature sitting on a branch and hugging the trunk about 30 feet up, peering around and sniffing at the air.  
+>  
+>  
+They were waiting for me. They were waiting for me to come back to the camp. I felt my guts sink and I almost gave up right then. These things were intelligent, and worse than that, they were patient. I wasn't dealing with normal animals here.  
+>  
+>  
+I moved slowly back toward the swamp in a hopeless daze. Fatigue and hunger were biting at my heels as I walked without direction. They knew I'd survived. They knew I'd come back for supplies eventually. They were going to find me and that would be it. Lancaster gave his life to delay the inevitable. These thoughts buzzed around my head like flies as I entered a clearing and noticed something man-made. It looked like an ancient shack, the wood turned green with moss and the roof had collapsed into a skeletal framework.  
+>  
+>  
+The door was gone and the window was only a wooden grid with a few shards of opaque glass left. Inside was covered in pine needles but I could see some sort of rusted barrel with a spigot and an old wood stove that looked like it might crumble into dust if I touched it. There were stacks of old jugs and milk cans against the wall and an old musket sat near the window, rusted into one solid piece. My guess is it was an old moonshiner's shack, probably used during prohibition and long abandoned. I slumped against one of the rotting walls and let myself drift into a half-sleep. I needed to think. I had to get to that camp, and more importantly I had to get to Tom and Malcolm. I couldn't stand the thought of leaving them out there. They deserved better than that.  
+The idea came to me and it pulled me out of my sleep to see the sun was almost gone.  
+>  
+>  
+>  
+> For this plan to work I had to act fast. I had a lighter, a piece of cloth, and a plastic zip tie. The difficult part would be catching an animal big enough. I laid out what little food I had and waited, my mind focused like a laser on one thing. When a rabbit cautiously approached the food I dropped down on it and grabbed it by the ears and legs. I zip tied the legs and carried it a good enough distance from the shack to start the fire.  
+>  
+>  
+Once the fire was going, I pulled the rag soaked with sweat out from under my arm. I shook a few drops around the area before zip tying it to the rabbit's back leg and cutting it loose. It darted into the night and I tossed the lighter into the fire before running in the opposite direction and diving into the swamp. I watched as the lighter exploded and the swamp lit up momentarily. It was only moments later I heard the crashing of the creatures heading for the fire. There was snarling and thrashing coming from the area and I watched through a small pair of binoculars as the creatures sniffed around the camp and eventually stalked off in the direction the rabbit had run.  
+>  
+>  
+I didn't bother with stealth this time, I ran full sprint to the camp we'd made and gathered any supplies that weren't ruined. Once I'd filled the pack, I started toward where the creature had killed Malcolm. The smell was overpowering but I found his tags and swore to him I would be back to bury him with Lancaster and Tom. Tom was harder to find. It looked like they had come back and scattered pieces of him all over. This seemed to turn the low frequency of fear in my mind into a steady drone of rage.  
+>  
+>  
+I found his tags and almost turned back until I remembered the creature that died earlier. I needed to examine it. I needed to know what I was up against. I found it where it had been left, torn open and writhing with bugs. I looked at the claws. They were at least 4 inches long and came to a sharp point like a cat's claw. They were made of a dark material that felt harder and more dense than most animal claws. It was clear from the sharpened point and the slight serration on the inner curve these claws were used for slashing and gripping.  
+>  
+>  
+The fur of the creature was incredibly dense and thick. I couldn't even brush it back enough to see the skin underneath. It was composed of two layers. A longer layer which was thinner and seemed to be more like whiskers. Beneath that was a short layer of thick hairs that seemed to overlap each other in a  weave pattern. I looked almost like fabric. I'd never seen animal fur grow in that pattern but I imagine it gave an extra layer of protection from any piercing object. Not enough to stop it but enough to slow it down. I checked some of the bullet wounds on the creature and pulled out a knife to extract the bullet. The bullet was only just beneath the skin which had to be at least 2 inches thick.  
+>  
+>  
+The muscle underneath was bruised but undamaged. I cut through it as well and it was so tough I had to saw at it with the serrated edge of the knife to get through it. I remembered how easily the big one had slashed through all that before and I examined the wounds made by it across the chest. It had torn open its chest and pried apart the rib cage in just a few slashes. The rib cage was almost solid, the gaps between the ribs very narrow.  
+>  
+>  
+One thing was certain, these things are incredibly hard to kill. It was like they were biologically designed to resist bullets, or at least the penetrating projectiles that have carried humanity to the top of the food chain.Before I left I gathered bags full of the blood soaked earth around the creature and some of the guts and meat.  
+>  
+>  
+I set to work sawing off one of it's massive hands and after much difficulty, stowed it away in my bag. Before leaving the site an idea came to me that made me grin for the first time since we were attacked. I stood over the dead creature and pissed all over its corpse with a cold smile. They would know I was here. They would know I was still out there. And most importantly, they would know I was coming for them.  
+>  
+>  
+After dipping myself in a fresh coat of muck I started back toward the shack. I was about 30 clicks from where I had started the fire before when I heard a howling roar in the distance. There was an undeniable frustration in its tone that made the world a beautiful place for a moment. I hadn't even made it 20 clicks past the fire site when I heard crashing and snarling getting closer.  
+I estimated the howl came from at least half a mile away and for them to close the distance that fast meant they were not only incredibly quick, even in dense woods, but that they were pissed.  
+I waited until I heard the crashing head off in the direction of the camp before continuing toward the shack. I had cracked open an MRE in the musty cellar of the shack when a chorus of shrieks and howls rang out in the distance that told me they'd gotten my message loud and clear. I may or may not have slept, but I did take a thorough inventory of the supplies and mapped out the area around the shack in my mind. Once day broke, it would begin.  
+>  
+>  
+What happened then took place over several days. I dug up the shallow roots of pine trees to use as cordage. I collected resin from the bark of the trees that could be melted and used as an adhesive or sealant. It also mixed well with a few jugs of old moonshine I had dug out of the cellar, making it thicker and burn slower. Fire would be the best weapon against these things.  
+The animals in the area must not have seen a human in quite some time because they largely ignored me or would walk right up to me. I had enough MREs left to last until this would all be over, and besides, slaughter would most likely attract those things before I was ready. Instead I captured an adolescent rabbit and kept it in a small wooden cage I had made. This was my early warning system. If something wicked this way comes, a rabbit is first to know. When I would be out foraging or preparing an area, I would keep it close by and if the rabbit began to panic, it meant those creatures were nearby and I would get to cover.  
+>  
+>  
+To this end I dug out several pits around the area, typically near trees or rocks, and nearby would be a cloth or tarp covered with ground debris glued with resin or sewn on that could be thrown over the hole. I also made myself a cloak with the same kind of camoflauge and made sure to wear several layers so my sweat wouldn’t soak into it. I also applied some of the blood and fluids I had taken from the dead creature to further mask my scent. I wasn't sure the smell wouldn't attract them, but I used it sparingly and hopefully it would be enough to muddy the air, in a sense, to cover my own scent.  
+>  
+>  
+Whenever one of the creatures would be near, I would drop everything and get close enough to watch them from a safe distance. I saw how they moved, how they hunted, how they behaved. It was clear the large one was in charge. The smaller two looked similar to it but were obviously underfed and over stressed. On more than one occasion I saw the larger one attacking one of the smaller ones. It was a relationship I was more than familiar with. A bully and his cringing portages. They may even be his offspring. It seemed they had given up on finding me, at least in that area, so I made sure to leave a few traces for them to find. To make sure they would be nearby when I rang the diner bell.  
+>  
+>  
+It was while I was finishing the preperations on the shack that I heard the gunfire in the distance. Full auto from the rhythm. Several. All the questions in my mind about who it might be brought a terrible sensation to my mind. A feeling of falling. It was something I had experienced in the jungles so long ago. I would be working, hunting, living in my own world, when I’d hear a news broadcast from back home, or a radio advertisement. Suddenly the bubble around my world burst and I’d remember there was another world out there, beyond the jungle. Instead of comforting me, it chilled me.  
+>  
+>  
+Life in the jungle made sense. You could die at any moment, but you understood it and your enemies understood you. Out there was a world that couldn’t be understood and never even attempted to understand you. Hearing that gunfire reminded me of the world I had come from, and that disturbed me more than those creatures. I knew it would have to end soon.  
+>  
+>  
+When the day finally came, I awoke before the sun set and watched it sink beyond the trees. I let my rabbit friend go and ate the last of my rations. The forest wasn’t silent, but it was calm. There was something in the air that filled my body with energy and made everything brighter and more defined. I was  going to die today, this would be the last sunset I would ever see, and I accepted that. I went around to each of the pylons I had made and lit them one by one. When I lit the last one I looked up and let out a bellowing roar of challenge to the night sky. That released the last of my nervous energy and I went to my hiding place and waited.  
+>  
+>  
+It didn’t take long for me to hear the crashing sounds of their approach from far off but as they got closer they grew quieter. I didn’t see or hear anything until there was a long crack and a scrambling sound as one of them fell out of the tree just beyond the fire light. I had noticed they moved in the trees when being stealthy and had weakened many of the branches around the area. There was a snarling and snapping from the creature before it charged into the light, flustered and enraged. It paced the fire and sniffed at the area. When the other smaller one appeared, it approached the fire and stepped into a shallow hole hidden by the debris. The creature stepped on a hidden pole which swung up from the center of the fire, tossing burning logs and embers into its face.   
+>  
+>  
+The creature barked and thrashed, beating the flames out on its body. I took my chance and jumped down from my spot, landing in a roll and running for the open entrance of the shack. The creatures spotted me right away and were closing the distance fast. I slid under the thin cord across the door and into the cellar door, pulling it shut behind me. The creature came through the door before I had even dropped bellow the floor but it didn’t see the cord. The cord was attached to two jugs of the sticky alcohol substance and they swung toward it, smashing against eachother and covering the creature in the mixture. I could hear it thrashing above as the second one snarled in confusion. I didn’t hit the fuse until I heard the low growl of the largest.  
+>  
+>  
+I ducked into my narrow escape tunnel, hearing the crash of the cellar door being torn apart, followed by the snorts and growls of the creature at the opening of the tunnel. By the time I made it to the exit, I had counted down to 3 in my head and rolled away from the tunnel exit as the air rushed back in before being blasted out as the shack caught fire with a massive explosion. I rolled to my feet and turned to see pieces of flaming wood raining down and the shack engulfed in flames. A shrill and pitiful cry came from within the flames somewhere.  
+>  
+>  
+One of the smaller creatures had made it out and was attempting to put itself out in a blind panic. I took out a gauntlet I had made from the bones and skin of that creature’s hand I had taken before and put it on as I approached. It was similar to an Indian Bagh Nakh with an arm guard and reenforced with carved bones from the arm itself. I jumped and landed on the creature’s back with both knees, slamming it into the dirt and stopping its flailing momentarily. I grabbed its snout with one arm and held it like an alligator wrestler, exposing the neck. I slashed it with the claws of its dead pack mate. They tore through the skin easier than I expected and I held on with everything I had, waiting for the warm gush of blood across my hand to slow and eventually stop.  
+>  
+>   
+When it had died, I stood to look at it, skin still bubbling from the heat and fur burned down to black curls all over it. I noticed the glint of something metal on its neck. It was a dog tag. I grabbed it and snapped the chain from the creature’s neck. For one wild moment I thought it belonged to the creature, proving it was an actual werewolf that was once a soldier. But the name on the tag said Lancaster and I realized it had taken them and it made me go into a blind rage that left me vulnerable long enough for the large one to hit me from behind.   
+>  
+>  
+It felt like I’d been hit by a truck, my mind disconnected and I could only watch myself hit the ground and thrash as the creature on top of me began slashing. My mind went into liminal time and I turned in the creature’s grip to face it. It was still smoking, its skin cracked and dry on one side and totally bald. Its one good eye was open wide and red as a tomato, glowing with hate and madness, the pupil a black pinhole barely noticable. I slashed at it with the gauntlet and that seemed to startle  the creature. Lines of yellowish pink fat appeared where I had struck, slowly turning red as the blood began to drip down onto me.   
+>  
+>  
+I used the moment of the creature’s surprise to pull out a small glass vial of the sticky fuel and smash it against the creature’s snout. I felt the shards of glass in my palm like bright spots of flame as the substance burned in my open wounds. The massive jaws of the creature opened a few inches from my face and it let out a thundering scream that reduced all sound to a steady whine for a few moments. It brought its teeth down on my forearm, snapping the bones in the gauntlet but thankfully not the ones in my arm. I hit the flint agaisnt the metal parts of the glove and a spark ignited, hitting the creature’s sticky fur and creating a blinding flash as it burst aflame.   
+The terrible grip of the jaws released and I felt the weight of the creature lift, freeing me.  
+>  
+>  
+>  
+> I scrambled away, trying to get my berrings as the monster screamed and slashed at its burning face. I spotted a hiding hole and dove into it, pulling down the tarp and watching through  a narrow slit as the creature doused the flames on its face and neck and spun around to try and find me. If it saw where I had gone, it was over. I waited and when it began to sniff and look around the area I knew I was safe. The fire and smoke would dampen its sense of smell considerably, and part of me wanted to just lie there and wait, wait until it left and I could go.   
+>  
+>  
+There was no volume to that voice and if I heard it at all, I would have been disgusted. This wasn’t over. I dug in the loose dirt around the hole until I found the buried cord and pulled it in a quick jerking motion. Pan’s rattled on the other end somewhere and the creature spun around with a bark, charging at the source. I rolled out of the hole to see the monster rushing for a cloaked figure crouched by a tree. It was my cloak, wrapped around a bundle of twigs to look like a person and when the creature hit it, it released a load of large logs and rocks I had gathered above it in a bundle suspeneded between two trees. The massive load, which had taken me most of a day to put into place, hit the creature with a sastisfying crash, pushing it down and pinning it to the ground.   
+>  
+>  
+I rushed over, knowing this wouldn’t be enough to stop it but it would give me an opportunity to finish it. The creature was already starting to stand, pushing logs and stones away as it did. Christ, it barely slowed it down. I had to think fast. I grabbed one end of a large log and lifted one side until it stood straight up. I aimed it toward the creature’s smaller back legs as they were struggling to lift its massive body and dropped it, jumping onto the falling log as it passed and adding my own weight to it as it slammed into the backwards facing knees of the monster. It bounced and for one horrifying moment I thought they wouldn’t break, but then I felt the bone give and a loud crunch could be heard and felt through the log as the creature’s legs folded in on themselves.   
+>  
+>  
+I felt an arm slam into me and throw me aside as the creature let out another ear splitting scream and thrashed out from under the logs and rocks pinning it. Its ruined legs dangled from its knees and flailed with a sickening fluidity as it writhed in pain. I stumbled back and considered my next move when movement caught my eye. To my left, beyond one of the fires, there was another creature. This one different from the others I’d seen. It was smaller and it ducked behind a tree when it noticed I’d spotted it. My heart sank. Of course there would be others. They probably had an entire pack I hadn’t even seen. Even if I killed this one, even with everything I had done here, I wouldn’t be able to stop them all.  
+>  
+>  
+Something hit my hip with such force it made the world spin and I felt myself being pulled, like a lasso had been tied to my waist and to the back of a speeding car. My vision blurred and I couldn’t feel my body. I managed to look down to see a huge stone near me and I saw the creature, holding itself up with its massive arms like a gorilla, crawling towards me with its teeth snapping and its eye wild and rolling. *Idiot. Stupid old man. You're going to die because you didn't notice a rock being thrown at you.* I knew I had to move. I had to get up. But I couldn’t. I just wanted to go to sleep. To be done with this. The image of Lancaster’s tags around that creature’s neck sparked in my mind like a pilot light and I could feel my body again. I turned over and saw through my torn pants a massive spreading bruise and a large bump that could only be my femur out of its socket. I pushed myself back and slid up a tree until I was standing on my good leg.  
+>  
+>  
+With the sight of that thrashing monstrosity crawling closer and closer, I grabbed my useless foot and pulled it up across my knee making a number four with my legs. I grabed the knee and with a wince and a twist, popped my leg back into place with a loud bang and a flash of red hot pain in my mind. I stumbled back just as the creature got within swiping distance. It left a trail of red behind it like a snail and it stood on the broken stems of its legs like it couldn’t even feel them. Its mind was completely gone now, lost in the fury and pain. It was a swirling tornado of teeth and claws now. As unstoppable as a boulder rolling down a mountain face. This was it.   
+>  
+>  
+I stepped back and felt something touch my foot. I looked down and saw I had almost stepped on one of my improvised land mines I made from the small canisters for the propane stove. I could have laughed at that. Killed not by this mindless wall of death but by stupidly triggering one of my own traps. I had just enough time to appreciate the irony of this situation before I felt claws grip my shoulder and sink into the muscle, snapping something deep inside. I was forced to my knees and lifted one arm up to stop those teeth from biting into my neck while the other reached down and grabbed at the metal shape buried in the dirt. I brought up the mine and shoved it hard into the open mouth of that monster. I could feel the claws tearing at my shoulder as I twisted myself away from the blast.  
+>  
+>  
+Everything went silent after that, only a high ringing could be heard. I felt the heat of the blast and the pin pricks of the shrapnel peppering my neck and chest. The blast threw me down like a hard kick to the neck and I hit the dirt and everything faded to black. It felt like only a moment but when the world returned the sky was a dark blue and the trees were a bright orange. For a moment I thought the fire had spread, but it was only the rising sun. I couldn’t move. I couldn’t feel anything. This must be death. The ringing in my ears had faded and the sound of the forest returned. I saw myself in a sitting position against a tree but I couldn’t feel it and I don't remember how I got there.  
+>  
+>  
+I saw a trail of drag marks leading back toward a few pillars of smoke in the trees. Had I dragged myself while unconscious? When I saw the body of the creature nearby I tried to jump to my feet but my body wouldn’t respond. Its face was a bloody mess of teeth and pulverized meat but it looked like it had been pulling itself toward me before it died. Still trying to fight even after the orders from headquarters stopped coming through. There was something pathetically admirable about that.  
+>  
+>  
+Something stepped out from behind a tree and when I saw it was another of those creatures I nearly blacked out again. It looked at me with an intensity, yet I didn’t see any anger or aggression. It looked down at the ruined corpse of the larger creature and seemed to study it. Another stepped into view, and then another, then a few smaller ones. They surrounded me on all sides and gathered around the dead creature, looking from it to me. I couldn’t move, I could hardly breathe. This was it. They had me. It was over. Lets do it. I’m ready.  
+>  
+>  
+They stared at me with a strange intelligence that I couldn’t read, then the first one I saw step out from behind a tree, the same one I had spotted earlier, approached me slowly. I waited, never breaking eye contact, fully expecting it to bare its teeth and strike at any moment. Instead it lowered itself down, dropping its gaze from mine and bowed its head. I didn’t even know how to process what I was seeing. Each one did this, approaching me, bowing, then disappearing from view. I felt myself fading again, losing my grip on myself. I couldn’t handle all this. None of this made sense. I just let go, hoping it would be over soon.  
+>  
+>  
+When I came to, I was in a chopper, heading for the outside world again. Next thing I knew I was here in a hospital bed, my body a massive throbbing bundle of pain. Thats all I remember before you guys showed up.
+
+That was what he told us. It was almost too incredible to believe but we saw the evidence and it must have happened just as he told it. Since then we offered him a position with us. He accepted on the condition we send out a team to recover the bodies of Thomas Wilson, Malcolm Gibbons, and Dirk Lancaster so they could be returned to their families to be buried properly. He also accepted on the condition he be allowed to live in total isolation on protected land. We only contact him when we need his expertise or when new recruits need to be trained on how to hunt and kill these creatures.
+
+Another interesting development from that day, that dogman we found standing guard over him ended up following him all the way to the hospital and now it lives in the same area he does. They seem to have a sort of connection, something no one else has ever achieved. It is truly remarkable. They hunt together, working with a kind of unspoken communication that would be terrifying if they weren't on our side. We have been able to learn an incredible amount about the Dogmen and their behavior from this connection.
+
+Jericho Jackson is an incredible man and a hero who will never be surpassed in the world of cryptids and the people who hunt them.

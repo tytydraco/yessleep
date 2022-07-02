@@ -110,6 +110,4 @@ I'll post the rest of the transcript as soon as I can. I'll put the link below.
 
 &#x200B;
 
-Part 2: [https://www.reddit.com/r/nosleep/comments/vpgxao/i\_work\_for\_the\_dnr\_in\_a\_unit\_that\_deals\_with/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vpgxao/i_work_for_the_dnr_in_a_unit_that_deals_with/?utm_source=share&utm_medium=web2x&context=3)
-
-&#x200B;
+Part 2: [https://www.reddit.com/r/nosleep/comments/vpvxgi/i\_work\_for\_the\_dnr\_in\_a\_unit\_that\_deals\_with/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/vpvxgi/i_work_for_the_dnr_in_a_unit_that_deals_with/?utm_source=share&utm_medium=web2x&context=3)
