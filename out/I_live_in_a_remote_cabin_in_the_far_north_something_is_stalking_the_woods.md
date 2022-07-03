@@ -1,355 +1,305 @@
 [Part I](https://www.reddit.com/r/nosleep/comments/v6t0yl/i_live_in_a_remote_cabin_in_the_far_north/)
 
-[Part III](https://www.reddit.com/r/nosleep/comments/vhafdy/i_live_in_a_remote_cabin_in_the_far_north/)
+[Part II](https://www.reddit.com/r/nosleep/comments/vc0w5k/i_live_in_a_remote_cabin_in_the_far_north/)
 
 [Part IV](https://www.reddit.com/r/nosleep/comments/vml5kz/i_live_in_a_remote_cabin_in_the_far_north/)
 
-Boxer whined and stirred me from a shallow sleep. He was off the bed and sniffing at the small gap at the base of the door. A dull light came in through the single window on the eastern wall of the cabin. The sun was up, but the clouds were thick and dark in the sky. Light snow made a gentle patter against the glass window. The trees swayed in the wind. Ominous clouds suggested it would get worse.
+Snow blew in heavy on the strengthening wind. Out on the lake everything was white. We could no longer see the town behind us nor the forest and mountain before us. Fingleton, Elliott, Boxer and I walked on, leaning into the wind to steady ourselves.
 
-I unlocked the door and inched it open. Boxer thrust his snout into the growing gap and pushed until it was wide enough for him to pass. He scurried out and disappeared around the corner. Moments later he barked and I ran to the rear of the cabin, rifle raised.
+I smelled the trees before I saw them, the scent thin through the snow. “We’re almost at the tree line,” I said, shouting over the sound of the wind.
 
-“Who’s there?” I yelled.
+The green of the trees pierced the blanket of white and we stepped off the lake and onto land. The trees were a partial shelter against the wind and snow and we crouched together against the cold. We wiped the snow from our faces and our clothes.
 
-Boxer was still barking at the trees. I searched for signs of movement and heard some rustling to my left. I swung the barrel of my rifle and there was George Visser, arms raised.
+“Should we go back and wait for the weather to clear?” Elliott said.
 
-“Don’t shoot,” George said.
+“We’re not going back,” Fingleton said. “I’ve been out in worse than this.”
 
-“What are you doing out there?”
+“When?”
 
-“We’re looking for my boy.” Mark Potter stepped out from behind a tree, a rifle of his own raised and pointed in my direction.
+“Where should we look for this thing?” Fingleton said, turning to me.
 
-“Lower your gun,” I said.
+“Both times I’ve seen it,” I said, “it was in the trees not far from my cabin. I never saw where it went after it took them. But the second time, as I followed the trail through the woods, I smelled something. Boxer did too. It was something familiar. The penny didn’t drop at the time, but now I know. It smelled like the inside of the coal mine.” I pointed up in the direction of the mine, part-way up the mountain. “And if I were looking for a place to wait this storm out, that’s where I’d be.”
 
-“Not until you lower yours,” Potter said.
+“Then that’s where we look,” Fingleton said.
 
-I pointed the barrel down and to the right. “Your boy isn’t here.”
+We dusted the remaining snow from our shoulders and took our rifles in our hands and started out into the forest. We had not gone far when I turned at a rustling behind me. A flash of yellow rushed up from behind and I raised my rifle.
 
-Potter moved forward, rifle still pointed at me. “Let me see inside your cabin.”
+“Who is there?” I shouted.
 
-“You’ll need to get through Boxer first. He won’t let anything in but me.”
+The yellow form slowed and threaded through the trees. It was Talia. She raised her hands. I lowered my barrel. She had come. She said she would but I had taken it for bravado. But she had meant it.
 
-Boxer lowered his head and growled.
+“What are you doing?” I said.
 
-“Call off your dog.”
+“I want to come,” Talia said.
 
-“The police were here yesterday,” I said. “Go ask Chief Fingleton.”
+“Go home girl.” Fingleton pushed past me and stood over Talia.
 
-“I’m asking you. Let me look in the cabin.”
+“I came to help,” Talia said.
 
-Potter was at the edge of the clearing now. Short, sharp barks punctuated Boxer’s growling. I put my hand on him and told him to heel. His body vibrated as he continued his deep, low growl.
+“Go back to town, it’s dangerous out here with the weather and this creature running around.”
 
-“Come here and look in the window. I’ve only got one room. But put down the gun.” I slung my rifle over my shoulder and took one step to the left. Potter lowered his shoulders and dropped the barrel of his rifle, but kept his finger by the trigger.
+“Unlike you, I’ve seen the creature and what it does,” she said. “It sends its feelers out and blows smoke in your mouth and infects you. That’s why I brought this.” Talia held up a firefighters mask. “I joined as a volunteer last year. It can protect us. Only the suit is small, they had to get it custom made for me. I’m the only one who will fit.”
 
-“Keep your dog off me.”
+The yellow Talia wore now made sense. What I first took as something she wore against the wet snow was in fact a firefighters uniform. I couldn’t fault her thinking, the black smoke from the creature did exactly as she said and the smoke mask might just work against it.
 
-“I told him no. It’s up to him if he listens.”
+Fingleton put his hands on Talia’s shoulders. “Go home Talia. What would your father think of me if I let you walk into these woods with us?”
 
-Potter crept to the window, stealing glances at Boxer every other step, and peered inside. The cabin was small and there wasn’t much to see. A bed pushed against the western wall, shelves holding pots and pans and rice and lamps, hunting and fishing gear stacked in a corner by the door.
+“He would rather I was out here with you trying to help, than back in town waiting for this thing to come and get me and everyone else.”
 
-“Your boy isn’t here,” I said.
+“I think that is what you prefer and not what he would have,” Fingleton said.
 
-“What have you done with him?” Potter raised his rifle and pointed it at me.
+Talia stood her ground. She stared up at Fingleton, stony faced and determined. I thought it would take Chief Fingleton dragging her back to town to stop her. He might have done it too, but Elliott heard something coming from the woods and snapped his neck around.
 
-“If you’re going to shoot me, get on with it. Otherwise get on your way.”
+“What was that?”
 
-“You know the kids in town have a running bet. Anyone who comes up here and gets through the trees and into this clearing wins a hundred bucks.”
+I listened. It came again. It was Boxer. While we had been arguing he had left us and gone off into the forest. Boxer barked. With the wind I couldn’t tell how far way he was.
 
-“Is that so?”
+“Bring her, we don’t have time for debate right now,” I said. “Keep close to me.”
 
-“The people in town tell stories about you. Mr Frontiersman. Mr Wildman. Long beard and long hair and the stink of a man who hasn’t washed in a month. Living up here all alone isn’t normal.”
+I sprinted towards the sound. It is a tricky business pinpointing sound in a forest, the trees have a tendency to reflect noise, and the wind made it that much worse. Another bark. I changed direction and leaped over a fallen tree and there was Boxer, the black streak on his back a beacon against the snow. Boxer was quiet now and trotting through the trees, head raised. He ran like this when he found a scent on the wind. I called to him, but he did not stop. The wind blew in my face and extinguished the sound as soon as it left my lips.
 
-“I like it better than sharing a town with the likes of you.”
+I ran in parallel with Boxer. My boots crunched in the snow. Boxer never turned his head. Something had his attention, but I could not see anything. I jumped behind him and called for him to stop. Boxer held up and turned.
 
-“Maybe the loneliness and the silence and the trees got to you. Maybe some kids came up here to your cabin and things got out of hand.” Potter dropped his rifle and ran his hand over the char marks on the cabin walls. “What the hell happened here?”
+“Why did you run off?” I said.
 
-“Potter, look!”
+I looked for the others, but I could not see them. Around me was only trees and snow. No Chief, or Elliott, or Talia in her yellow firefighter’s suit. “I found Boxer. Come to my voice,” I yelled.
 
-The cry came from the edge of the trees, from George Visser, who had not moved since I’d first seen him. He pointed up above the trees, eyes wide and mouth open.
+Boxer turned his nose to the sky. He turned from me and trotted up the hill and deeper into the forest, turning back to see if I was following.
 
-I followed the raised arm and hovering above the trees was a long black cord, like a giant snake. It was stationary, unmoved by the wind. Boxer started barking once more and I quieted him. The black snake moved now, coming toward us, maintaining its height above the tree line. It stopped directly above George. At the tip of the snake a series of smaller tentacles fanned out like fingers. The tentacles pulsed and hissed and ejected black smoke.
+“Heel Boxer,” I said, jogging after him.
 
-The snake dropped and the tentacles at the tip wrapped around the head of George. For a moment George was still, his head raised slightly like he was trying to smell something on the wind. His chest expanded and contracted and he shook. Then he turned and marched in a line made by the black snake as if it were a fishing line and he was being reeled in.
+Boxer growled and continued undeterred.
 
-“What’s happening George?” Potter said.
+We weaved our way up the hill. The snow thinned on the ground beneath the canopy of the forest, but it was still thick enough for Boxer’s paws to disappear as he moved. His pace quickened. He had the scent now and I too could smell something filtering through the trees on the wind.
 
-George said nothing in response. Potter ran to his friend and shot out an arm and grabbed at George’s jacket, swinging him round. George swatted the hand away and landed a gloved fist on Potter’s temple, dropping him to the ground. Potter winced and rubbed his head. He looked to me with wide eyes and then back to his friend who walked to the trees.
+Boxer stopped. He raised his head to the sky and barked. High above, just below the tree tops, the black tail of the creature swayed like a cobra waiting to strike. At the tip of the tail the tentacles writhed and blew out wisps of black smoke.
 
-Potter stumbled to his feet and rushed at George, kicking up snow as he went. Potter overtook his friend and blocked his path. Potter stood as a statue between George and the trees and held up a hand.
+I stepped ahead of Boxer and raised my rifle, peering through the gaps between the trees and looking for the creature. I could not see it. I opened my mouth to call out and notify the others of my whereabouts but immediately closed it again. I did not know if the creature would hear me instead.
 
-“Stop,” Potter said.
+Behind me Boxer growled. I shot a glance at him and my heart sank. The black tentacles at the tip of the creature’s tail had wrapped themselves around his head. The white fur on his cheeks was barely visible. He growled once more. I took a step toward him and he lowered his head. In the dull grey light I saw a flash of white from between the tentacles around Boxer’s head. He had bared his teeth at me.
 
-George paused and took the rifle slung over his shoulder and shot Potter through his head. The crack from the gun echoed off the trees and somewhere a bird cried and took flight. Mark Potter crumpled to the ground and lay lifeless. Blood poured from his forehead onto the snow. George lowered his rifle and stepped over the body and walked into the woods, led by the black snake which had not loosened its grip.
+Boxer leapt at me and I threw out my hands and grabbed at the underside of his torso. I fell back into the snow from surprise as much as anything. Boxer’s chest vibrated as he growled again and I heard a short snarl as he opened his jaws and went for my neck. One tooth caught me on the jaw and I felt the skin rip and warm blood spilled down my neck. He meant to kill me.
 
-Boxer jumped forward, an apprehensive first couple of steps toward the body of Potter before stopping and turning back to me. I woke from my stupor and went into the trees after George, rifle raised. It was not a black snake, it was part of the creature. The same thing that had taken the boy. It must be a limb or a tail, but whatever it was I knew the creature would be at the end of it and when Potter got there, it would take him.
+I threw Boxer off and turned to my side and grabbed for my rifle which I had dropped in the snow. It was out of arms reach. Boxer leapt once more and I had time only to cover my head and then came the crack of a gunshot. It echoed off the trees. Then another shot and another. Boxer went limp.
 
-I followed George’s tracks in the snow. They led deep into the forest. Ahead I saw a rifle lying in the snow. George had discarded it and there I stopped. I could not see anything but the trees and I could not hear anything but the wind. Boxer sniffed at my feet but refused to go on. I smelled something on the air. Something familiar that I could not put a finger on.
+I raised my head. “Are you ok?” It was Fingleton. He burst through the trees and stood over me with his gun pointed ahead into the forest. I rolled my torso and pushed Boxer off my stomach. The body made a thud in the snow. Boxer lay stiff and unmoving. The tentacles of the creature were gone from his head.
 
-I crept forward, eyes darting between the tracks in the snow and the trees where the creature might be hiding. And then I saw him through the trees. George stood before the beast.
+I thrust out a hand but withdrew it when I saw black smoke exiting Boxer’s nostrils. The smoke had infected him and turned him against me.
 
-The creature had the shape of a wolf. Everything was a monotone black, except two red orbs for eyes. It was taller than a wolf should be, closer to that of a horse. The creature stood on thick legs ending in large flat paws with claws extending out like human fingers. A long tail sprung from a thick hind quarter and ended in the tentacles wrapped around George’s head.
+“Breathe it out,” I said.
 
-I aimed my rifle at the creature. Like a lion pouncing on a gazelle it leapt at George, its paws leaving the ground and stretching out and embracing him. The creature moved fast for a beast its size. When it embraced George it swallowed him in darkness and he was gone. The creature turned and retreated into the forest.
+Above, the black tail of the creature retreated. I followed the direction of Fingleton’s rifle and there it was. It must have stalked closer after it had taken hold of Boxer. Elliott and Talia came running out.
 
-I was breathless. It didn’t look real, but imaginary things don’t take people away. A demon might drag you away in your sleep, but then you wake in your bed. I stood helpless, rifle raised, having not fired a shot. I stared at the empty forest where George had been only moments before.
+“I think I landed a couple of blows and it’s running. Come on, we have to follow it,” Fingleton said. He bent down and grabbed my arm and lifted me from the snow. I stumbled and went back and stood over Boxer. He blinked and shook his head and rolled himself to his feet. He coughed and ejected a puff of black smoke and then no more came. I held out my hand and he buried his snout in it. I had Boxer back.
 
-I crept to where the creature had been. Char marks on the trees. A patch of melted snow where it had stood. Tracks of melted snow led into the forest. The creature was gone and so was George. Like the boy Steven, the creature had taken him.
+I grabbed my rifle from the snow. Fingleton had run ahead with Elliott and Talia in tow. We ran after them and soon caught them. They were following the creature and the long black tail it trailed behind, their heads raised to the sky.
 
-There was shouting off to my right and I heard the rushed footsteps of people running through the woods. I turned with my rifle and heard the voice of Chief Fingleton.
+“Be careful,” I shouted after them, “that thing can’t be far away.” We were running north and uphill.
 
-“Drop your weapon,” he said.
+The trees thinned out and the creature was nowhere to be seen. Soon we would be out of the thickest part of the woods and the creature would be exposed, and so would we. I tried to get my bearings and I found a landmark. Through the trees the brick smokestack came into view. We were almost at the mine.
 
-I lowered my rifle to the ground and raised my hands in the air. Fingleton closed in on me. “Was that you shooting?”
+We came across the old road cut through the forest. The creature was still up ahead and heading north, but outpacing us. We followed it until we were out of the trees and onto the great flat pad of compacted gravel created for the mine. The metal structures that one serviced the mine stood dormant like ancient statues. The perimeter chain link fence rocked in the wind. The road led to a double wide gate swinging wildly and periodically smashing against the fence. Somewhere beneath the snow there must be a failed padlock, broken by the creature or some kids who had come up to the mine to mess around.
+
+The creature had disappeared. Ahead was the mouth of the old mine tunnel. At the entrance to the tunnel there was another gate, or at least there used to be. The steel gate had been ripped from its hinges and lay mangled and bent in the snow. The black void of the mine tunnel was now exposed. A trail cut into the snow like an irrigation ditch leading directly to the mine.
+
+“Keep your rifles pointed at the entrance,” I said.
+
+There was a small building to the right of the mine entrance. It housed electrical switchboards and a backup generator that would kick in if there was ever a power outage. The door was locked. I kicked it until it loosened from its hinges and with a final effort ripped it free. The generator was still there, mounted to the concrete floor. Up until five years ago the government had been running tours in the mine, but it failed to excite the same interest as sled dog rides up to the lake for ice fishing and so they stopped. I hoped the generator had some fuel in the tank and still worked. I pushed at the ignition and the machine came to life.
+
+Back outside Elliott and Fingleton had their guns pointed at the entrance. Talia stood behind them in her yellow suit. “I think the lights came on,” Elliott said. The string of lights on the roof of the tunnel had indeed come on.
+
+“Don’t get too close,” Fingleton said.
+
+“I won’t go far,” I said.
+
+At the entrance I could see down the tunnel until the bend about a hundred yards ahead. Light from the bulbs overhead spilled onto the walls and reflected off the dark steel rails and timber slats on the floor for the rail carts that once carried miners and coal. There was no sign of the creature.
+
+A warm breeze, like an exhaled breath, hit my face. I took off my gloves and held up my hands. The tunnel was warm. Not just warm compared to the blizzard outside, but warm like there was a heater blowing hot air down the tunnel. There was something hot in there.
+
+“It’s in there,” I said.
+
+“Can you see it?” Elliott said.
+
+“No.”
+
+“Then how do you know it’s in there?” Fingleton said.
+
+“I can feel it. The tunnel is hot. The creature is hot. The creature is in the tunnel.”
+
+“What do we do now?” Elliott said.
+
+“We go inside,” Fingleton said.
+
+\-------
+
+I didn’t like the plan and neither did Fingleton. The only one who was comfortable was Elliott, who seemed satisfied with his position at the rear of the party. Talia had proposed it.
+
+“The creature,” she said, “always sends the tail out first, it never comes by itself. If I go in first I will have my mask on and I will be safe. Anyone else might get infected. Once we know where the tail is, we know where the creature is. The rest of you can shoot it.”
+
+There was some logic to it, but it didn’t feel right. Fingleton paced about for a few minutes, going over it in his head. If this went sour he’d be the one they’d blame. Three grown men and a husky allow a teenage girl to lead them into danger, only for the girl to succumb as the rest watched on. It might be the best shot at finding and killing the monster, if it was even possible to kill it, but he would not allow it.
+
+“No,” Fingleton said finally. “The dog and Walker are up front and I am right behind them. The dog can smell it.”
+
+“His name is Boxer,” I said.
+
+“Boxer can smell it. He’s the one who will lead us to it. Talia and Elliott will stay near the tunnel entrance. You can go inside out of the wind, but not beyond the bend in the tunnel ahead. If it gets past us, use your weapons. If you get into trouble get out of its way.”
+
+And that was it. Fingleton overruled Talia. Boxer and I lead Fingleton into the mine.
+
+The tunnel walls were damp, the heat mixing with the cold from outside forming trickles of condensation. I had come down this tunnel for years, riding open carriages deep into the mountain to extract coal from the seam and riding back out with blackened hands and lungs and weary from the effort.
+
+It was different now. The mine was lifeless without the miners and the constant chatter and the grind of the metal wheels against the rails. The smell though, was the same. I hadn’t smelled it in years but the odour lit up the section of my brain where memory is stored. The creature shared the smell.
+
+It was quiet and still inside the tunnel, the constant whistling of the wind no longer in our ears. And it was warm. The heat combined with the closeness of the walls on all sides created a claustrophobia I had never felt when I worked the mine.
+
+Boxer reached the bend in the tunnel. “Hold him up,” Fingleton said, “I don’t want to lose him in the tunnel.”
+
+“He won’t go far without me.”
+
+“He didn’t wait out in the forest.”
+
+He had me there. “Boxer hold up.”
+
+Boxer stopped at the bend and we bunched closer together. I clicked my tongue at Boxer and he moved on. Ahead the tunnel forked into two and Boxer stopped.
+
+“Which way do we go?” Fingleton said.
+
+Boxer sniffed at the ground and at each tunnel and chose the tunnel to the right. We followed and it was getting so warm I unbuttoned my coat. Boxer turned and faced us. He sniffed the air and moved on.
+
+“It’s getting warmer,” I said.
+
+We crept deeper into the mine. The lights ended up ahead at a three way fork in the tunnel. Boxer reached the fork and stepped out of the light and into the darkness.
+
+“Boxer,” I whispered.
+
+Fingleton and I skipped down to the fork. Boxer was ahead and sniffing at the floor.
+
+“Which way do we go?” Fingleton said.
+
+“Boxer,” I whispered, but I could not see him.
+
+Fingleton pulled a small flashlight from his belt and searched each of the three shafts. The beam of light was weak and did not penetrate the tunnels far before the darkness swallowed up the light. I wished for my old helmet with the light, hung up on the wall of the cabin. I took off my glove and held my hand out to each of the shafts. The middle shaft felt the warmest.
+
+“This one,” I said. Fingleton trained his torch into the middle shaft and we moved forward, feeling at the rails on the floor with our feet. The heat softened and a coolness came off the walls.
+
+“This might not be the way,” I said.
+
+Fingleton’s torch illuminated a dead end. We could go no further.
+
+“Where is Boxer?” Fingleton said.
+
+We turned at a tapping sound. Fingleton shone his torch and caught the glow of Boxer’s eyes. He returned to my feet and pointed his nose back from where he had come.
+
+“Stay where I can see you this time,” I said.
+
+We followed Boxer back to the three way fork and Boxer led us to the shaft on the right. We felt our way down the tunnel and rounded another bend and ahead something glowed. On the left side of the shaft an enormous crater opened like someone had set off a bomb. The glow illuminated the tracks which bent into the shape of an ‘s’ at the entrance.
+
+“What the hell is that?” Fingleton said.
+
+“That is not part of the mine,” I said.
+
+We raised the barrels of our rifles and crept forward. At the edge of the opening a crater opened inwards and down. The inside glowed hot and somewhere at the bottom were glowing rivers of red. It was what you would expect to see if you peered down into a volcano about to erupt and send lava spewing into the sky. We pulled back our heads.
+
+I crouched back from the edge and blinked my eyes. With each blink I saw the red of the pit the way you do when a bright light lingers after it is shut off before going to sleep. But it was not all red. A black shape broke up the red. It was the creature. It was down there.
 
 “Did you see it?” I said.
 
-“Did I see what?”
+Fingleton did not respond. He stumbled backward and fell. From a sitting position he raised his rifle in the direction of the shaft. I turned and saw black limbs extend up from the hole and take a grip of the ground, followed by the body of the creature. It was like a spider extricating itself from a drainpipe. It lifted itself and stood over us. Its red eyes glowed red and hot. Boxer barked up at the creature.
 
-“George is gone. It went that way”
+Fingleton shot and I followed suit. We emptied our weapons into the creature and it let out a piercing wail and fell back into the shaft and disappeared.
 
-Fingleton, now beside me, kicked my rifle away and put his body between me and my weapon. “What have you done with him?”
+“Did we kill it?” Fingleton said.
 
-A second set of footsteps came bounding down from behind me. It was the deputy, Elliot. “Mark Potter has been shot. He’s dead.”
+“I don’t know.”
 
-“Get down on your knees, hands above your head,” Fingleton shouted. I complied and then my face was in the snow and there were knees on my back and my hands were in cuffs.
+I inched toward the shaft and watched as the arms of the creature reappeared. It was coming back for more.
 
-“You need to go after it,” I said. “It took George.”
+“Run,” I said.
 
-Fingleton was not in the mood to listen. He hauled me up and took me back to town.
+We ran back from the direction we’d come. We made it to the section of tunnel with lights overhead and I looked behind and saw the creature on the move and coming down the tunnel towards us. We were almost at the first fork when the lights above flickered and then went out. I collided with Fingleton and we both went to the ground.
 
-I explained what had happened at the station, but it wasn’t much use. Fingleton wasn’t buying it. It didn’t help that George’s rifle make and model matched my own. It would take some time to determine which gun fired the bullet that destroyed Mark Potter’s brain. And even when it did come it wouldn’t put the matter to bed. They could say I overpowered George and used it against Potter. For what reason would George have shot his friend?
+I heard Fingleton tapping against something plastic and his flashlight came on. The beam of light pierced the dark and he pointed it down the tunnel and grabbed me by the arm and with the other I scooped up Boxer. We were up and running and were through the fork when Fingleton stopped dead. The sound of footsteps echoed in the tunnel, but they were not ours. Fingleton searched with the flashlight and caught Elliott. He sprinted past us as if we weren’t there and headed deeper into the mine. He was going to the creature. Elliot’s head was covered in a ball of black. It had him.
 
-Chief Fingleton carried a look of satisfaction when he dismissed my version of events. When he woke that morning he had a mystery he could not solve. A missing boy and a fanciful story from a recluse and a couple of teenagers who had been drinking. I saw a weight lifted as he questioned my story and substituted it with his own version of events. Potter and Visser had come up to my cabin and there had been an argument. It was no secret there was bad blood between George and I. I had overpowered George and shot Potter. Then I had done god knows what to George. It was logical and explained everything and made it almost certain I had also disposed of Potter’s boy Steven the day before.
+“Stop,” Fingleton yelled.
 
-Fingleton and Elliott demanded I tell them what I had done with George, but I could only tell them the creature took him. The dark wolf-like animal hunting in the forest. I told them to go look at my cabin and the trees where they’d arrested me and they would see the charring. I told them to follow the tracks in the snow while they still could. It made no difference. They kept at me for a couple of hours trying to get a confession but they gave up and took me to the holding cell.
+We ran back to the fork and Fingleton shone his torch down the tunnel. Elliott stood before the creature. He turned to us. “It wants me to go with it,” he said.
 
-The holding cell is at the back of the station. Three concrete walls and steel bars on the fourth. There is a toilet and a sink and a single bed in the corner and a single small window above the bed. The holding cell was usually for drunks who hadn’t known when to say when and had ended up in a fist fight over some trifle. Elliott thrust me into the cell and closed the steel gate behind me. A set of keys jangled and the lock engaged.
+Elliott raised his rifle and turned it on us and there were flashes of light as he shot. I grabbed Fingleton and pulled him back down the tunnel and around the corner.
 
-I turned to Elliott. He smiled, satisfied with his day of police work. There were still two missing bodies out there somewhere, but they would be found or I would crack and tell them where they were.
+“Are you hit?” I said.
 
-“What did you do with Boxer?” I asked.
+“No, I don’t think so.”
 
-“He wouldn’t come. Last I saw he was sulking around that cabin of yours. We got no intention of going to get him either. If he doesn’t want to come, it’s on him.”
+“We have to get out of here.”
 
-“Let me ask you something,” I said.
+“What about Elliott?”
 
-“What?” Elliott said.
+“He’s gone.”
 
-“Lee Rutkowski, the hunter who went missing.”
+Fingleton rose and ran towards Elliott and the creature, refusing to believe he could not help. He reached the corner and more shots drove him back. Elliott cackled and it echoed off the walls. Then the creature growled and Elliott screamed.
 
-“What about him?”
+I grabbed Fingleton. “He’s gone. We have to go or we’ll join him.”
 
-“You never found his body, but did you find any charred trees while you were looking?”
+We raced down the tunnel to the exit, the flashlight jerking in Fingleton’s hand. Ahead Talia lay in a crumpled yellow mass in the middle of the rails. We got to her and Fingleton picked her up. We staggered the remaining distance to the entrance of the tunnel lighting our way ahead. Fingleton shot the flashlight back behind us but there was only an empty mine shaft.
 
-The smile left Elliott’s face. He clenched his teeth. “We found whatever you left for us to find.” Elliott clipped the keys to his belt and left.
+We spilled out into the snow. The icy wind took my breath away and I zipped up my jacket. Fingleton pulled the mask off Talia, who wiped away strings of sweaty hair from her eyes.
 
-The cell was cold and outside it was getting dark. I laid down on the bed and kicked off my boots. I hoped sleep would come. Tonight I was in the safest place in Canary Hill. I only wished Boxer was with me. I thought of him out there in the dark and hoped he was safe.
+“The tail of the creature, it came for us. It came for me first, but I put my mask on and it couldn’t get through. Then it went to Elliott,” she said. “And then the lights went out.”
 
-\-----------
+She pulled up her knees and buried her face in her arms. She didn’t need to be told what had happened. Elliott was not with us when we exited the tunnel and that told the story.
 
-Two things happened that resulted in my release from prison. The first was the analysis of the bullet retrieved from Mark Potter’s brain. Now the police knew it had come from George’s rifle. The second was the creature taking another person and this time there were witnesses to the event.
+“What do we do now Chief?” I said.
 
-Diana Fawns worked at the supermarket in town and lived with her husband Lewis in a small house fronting onto the lake at the edge of town. As Lewis told it he found himself outside in the dead of the night, torch in mouth and desperately trying to get the pilot light on their heating system to ignite. Diana had awoken in a bedroom that was an ice box. She nudged her husband who, despite the cold, was dead asleep.
+Fingleton looked at his watch. “It will be getting dark soon.”
 
-While Lewis worked, Diana provided moral support on the porch, rugged up against the cold. Lewis’s fingers numbed as he tried and failed to get a spark from the lighter. He rubbed the end of the lighter against the inside of his jacket and tried again and this time produced a flame and he used it to get the pilot light going. He turned the temperature dial and the heating system roared back to life.
+The storm had not abated. The wind whipped across the open ground between the mine and the forest edge. The corrugated iron roof on a nearby structure bowed upwards and slammed back down on its supports with a bang. The broken gate swung away from the fence only to be driven back by the wind, the metal clanging upon impact.
 
-“Success.”
+“We go back to town.”
 
-Diana went back inside. Lewis closed the cover on the heater and switched off the torch and trotted to the front door. He blew warm air into his hands and rubbed them together. He climbed the steps to the porch and kicked his boots against the railing and shook off the snow. At the door he stopped. There was a strange black cord about the diameter of his arm in the top corner of the doorway. The cord came from the darkness and he followed it backward to find its source, but the night was dark and it disappeared beyond the reach of the porch light.
+“We won’t make it back to town before dark,” I said. “But we could make it to my cabin. It will get us out of the weather.”
 
-Lewis entered the house. The cord snaked its way around to the left and disappeared into the kitchen, oscillating like a garden hose full of water as it went. Lewis reached out a hand to touch it when he heard his wife yell out. He went to the kitchen and found his wife standing by the sink with black tentacles wrapped around her head. He described it as if there were a black beehive covering her head.
+Fingleton nodded and he helped Talia to her feet. We rushed through the snow, watching behind for the black creature and its snake like emissary, but we didn’t see it again. Night came before we reached the cabin and we needed the flashlight for the last part of the journey.
 
-“What the hell?” Lewis said.
+Snow covered the cabin. Inside it was freezing. I lit a fire and a couple of candles and we huddled around warming our fingers.
 
-Lewis rushed to Diana and put his hands on her shoulders. He spoke to her but she did not respond. She did not seem to be in pain and she did not seem scared. He could not make out her expression but her body was calm. Then she spoke.
+Boxer collapsed on his bed of blankets and closed his eyes. Fingleton and Talia glanced around the inside of the cabin by the candle light. In all the years of living out in the forest I had never entertained any guest of any kind inside my home.
 
-“It wants me to come.”
+“I know it isn’t much,” I said.
 
-“What does?”
+“We’re glad to have it,” Fingleton said.
 
-“I have to go now.”
+“I’ll put on a pan of beans.”
 
-Diana turned and Lewis loosened his grip. Diana walked toward the door of the kitchen. Lewis put himself in the doorway and blocked his wife from exiting. Diana, denied access to the door by her husband, turned and took the biggest knife from the rack on the bench next to the stovetop. She turned back to her husband and buried the knife into his thigh. Lewis fell to the floor screaming. Lewis pulled the knife and blood came, first in drips and then with a rush. He limped to the bathroom and took a towel and tied it around the wound as tight as he could.
+I took the pan down from its hook and placed it on top of the stove. I pointed to the shelf behind where Talia stood and she moved for me and I took a couple of tins and opened them.
 
-In the house next door, which was a way up the hill, the screaming woke a twenty year old university student named Marek. Marek was lodging in Canary Hill as part of a study taking measurements of the permafrost for a research project. He donned his jacket and boots and ran down the hill to the house. He knew Lewis and Diana well, they had dined together on many occasions. This made for a welcome change for Marek who could not identify a single neighbour by name where he lived in the city.
+We ate in silence. The world outside was dark and the wind did not relent. I did not have enough plates for everyone, so I ate last and from the pan.
 
-Marek came in through the open door and followed the trail of blood to the bathroom where Lewis clutched at a blood soaked towel on his leg. Lewis asked after his wife, but Marek had not seen her. Marek lifted Lewis to his feet and helped him to his car. Marek got behind the wheel.
+When we finished, the cabin had warmed. I offered Talia my cot and covered it in a deer skin I took from the long box under the bed. She sat and leaned against the back wall of the cabin. She cradled her helmet like a teddy bear.
 
-“Where are you taking me?” Lewis said.
+“It’s not your fault, what happened to Elliott,” I said. “Your helmet worked like you said it would.”
 
-“You have to get to a hospital.”
+“You shouldn’t have come,” Fingleton said. He was like a stern father speaking down to a misbehaving child.
 
-“No, we have to find Diana. She walked out into the night.”
+“Leave the girl alone,” I said.
 
-Marek and Lewis drove the streets of Canary Hill looking for Diana. They found no one. Then Lewis remembered the disappearances in the forest and instructed Marek to take the road in that direction. They skirted the edge of the frozen lake and as the trees came into view they spotted Diana in the light of the headlights. Diana Fawns, in her white nightgown, no shoes and no jacket, in the dark and cold, and heading for the woods.
+“I don’t need you to speak for me,” Talia said. “I’m capable of speaking for myself and making my own decisions. I’m not a child.”
 
-The car came to a stop as Diana made it to the tree line. The two men exited the vehicle and called out to her. The headlights penetrated into the woods a way and the two men followed Diana and they saw it. There was a creature out there, but it reflected no light and was a dull black mass. They could not see what it was and guessed it might be a bear, but had no explanation for why the headlights did not illuminate it.
+“You are a child,” Fingleton said.
 
-Diana stopped before the creature and raised her head, the black tentacles still wrapped around her head and the cord leading from the tentacles into the forest and to the creature. Lewis limped toward his wife, calling at her to come back to him. In a flash the creature pounced and Diana Fawns disappeared. There was a rustle in the trees and in a moment the creature was gone. Lewis had seen bears before and this was no bear. He could not say what it was.
+“And you are not my father so stop speaking to me as if you are.”
 
-Elliott came to release me from the cell. He was pale and bore the face of a defeated man. The night before he had likely slept comfortably, safe in a world where everything made sense and problems had known solutions. And now he and Chief Fingleton had a problem they could not explain. An unknown creature was on the loose and killing the residents of their town. There was no procedure for this.
+Fingleton lowered his head and dropped his hands from his hips. He didn’t need to be told what happened to George Visser. The girl’s father had gone with the creature, the same as Elliott just had. “No, I’m not.”
 
-“The Chief wants to see you before you go,” Elliott said.
+Silence filled the room.
 
-Chief Fingleton was in no better mood than Elliott. He waved me into his office as he put down the telephone at his desk. I sat and Fingleton tilted his upper body forward and leant on his elbows and rested his mouth on his closed fists. He stared at the empty desk between us. It took a few moments before he raised his eyes to mine.
+“How did you get Mrs. Potter to agree to you going out in the storm?” I said.
 
-“I can’t let you go back up there,” he said.
+“I didn’t. I climbed out the window in the dark and went to the lake and waited. I figured you would be on foot in the weather.”
 
-“To my cabin? You can’t do that.”
+“I expected about as much.” I gave the girl a half smile, but her eyes were cast down on her plate.
 
-“I can and am. We issued the permit for your home up there and we are rescinding it temporarily. Those woods are now off limits to all civilians.”
+“Will we be safe here?” Talia said, looking up.
 
-“Someone else got taken?”
-
-“Last night. Diana Fawns.”
-
-He ran me through the details.
-
-“Where am I going to go? And Boxer?”
-
-“We found Boxer at the front door of the station this morning. We tied him up outside. I’ve made arrangements at the Canary Motel, you’ll have a room there, no charge. Go down and talk to Marian at the desk, she’s expecting you.”
-
-“You can’t do this.”
-
-“I just did. You go anywhere near the forest and I’ll arrest you. I’ve got bigger problems so I’m asking you for your cooperation.” Fingleton placed his palms on the desk. “I apologize for holding you.”
-
-“When can I go back up there?”
-
-“After we’ve dealt with it.”
-
-“What are you going to do?”
-
-Fingleton paused. “There’s weather coming in. When it clears, backup is coming up from the south and we’ll go up there and take care of it.”
-
-“You don’t even know what it is.”
-
-“This is my problem to solve. Take Boxer to the Motel and stay there. I’ve called a town meeting tonight at the hall, come along if you want. There are a lot of people with a lot of questions.”
-
-Fingleton swivelled in his chair and sighed and stared at the wall of his office. He waved me away with his hand and I left him with his thoughts.
-
-Boxer was curled up outside the front door and he raised his head and nuzzled his snout against my leg. He was tired. We walked together down the street, empty of people and cars. At the crossroad a cold wind hit me. The street signs swayed and dark clouds stretched across the sky. Fingleton was right, there was weather coming.
-
-Marian gave me two keys, one for my room and one for a small laundry room at the end where Boxer was to lodge. The no pets in rooms policy had no exceptions. Marian gave me a bowl and a blanket and I spread the blanket beside the bank of washers and dryers and sat with Boxer. The room was cold and the glass door rattled in the wind. It started to snow.
-
-The weather brought the dark early. I dozed and woke with a start at the sound of a tree branch breaking and falling to the ground. I checked the time by the clock on the wall, its face illuminated by the lights from the electronic coin slots on the machines. I left Boxer sleeping and went out into the snow.
-
-The meeting was already underway when I entered the hall. Around thirty of the residents of the town were in fold up chairs facing the front. Fingleton stood behind a podium flanked by Elliott. A few heads turned to me when I entered and lingered before turning back to Fingleton. I stood in the back rather than take a chair.
-
-May McKenna, who owned and ran a small café in town called the Blue and White, stood among the seated townspeople. She spoke into a microphone. ”Chief, can you tell us what is going on? Everyone I talk to has a different story of what is happening out there in the forest.”
-
-“It seems,” Fingleton answered, “there is some animal out in the forest. That is why there is a temporary ban on access. No one is to enter the forest until further notice.”
-
-“Are we safe in the town?”
-
-“We don’t yet have any report of this animal being seen outside the forest.”
-
-“Then how did it get Diana Fawns? I heard she was at home when it came.”
-
-“The Fawns house is adjacent to the forest.”
-
-“It isn’t in the forest. How far has it come?”
-
-“We don’t know.”
-
-“What happens if it gets you? Diana put a knife in Lewis’s leg and then she walked out to the forest in the freezing cold without her coat in the middle of the night.”
-
-“We also have reason to believe the animal breathed a form of poison or toxin that has an effect on the victim’s behaviour.”
-
-“So we’re not safe in our homes and we’re not safe around anyone who comes into contact with this thing?”
-
-“Our advice is to stay indoors, keep your windows and your doors shut and sealed as best you can.”
-
-“How many of these things are out there?”
-
-“Only one has been seen at any one time.”
-
-“How many are there?”
-
-“We don’t know.”
-
-“What do you know?”
-
-“There is something out there.” A small voice from the corner of the room. All heads turned. It was Janine Rutkowski, whose husband had gone out hunting and never came home. “You knew there was something out there when Lee never came home. And you did nothing.”
-
-“What are you going to do?” May McKenna shouted into the microphone.
-
-Fingleton paused. “We have requested assistance from down south. Unfortunately the weather down there is worse than it is here. We’ve been told the Stuart Bridge is impassable on account of fallen trees and high water levels. They need to wait until the weather clears.”
-
-“When is that going to be?” May spoke above the murmuring from the residents.
-
-“Monday at the earliest, but maybe a week.”
-
-“If you’d raised the alarm as soon as it took the kid we’d have the cavalry up here right now.”
-
-“What’s done cannot be changed.”
-
-“I’m leaving.” May put the microphone back into the stand. “I’m not waiting.”
-
-Fingleton held up his hands. “Our information is that the roads are impassable in this weather. And the storm is coming, it will get worse before it gets better. If you drive south now you are likely to get stuck and stranded.”
-
-The murmur in the audience rose to shouting and finger pointing. Fingleton lowered his eyes to the floor and held up his hands.
-
-May had taken several steps away from the microphone and towards the door. She turned back. “Your job is to protect us. What are you doing now? We can’t go anywhere and so we’re sitting ducks and you’re going to sit behind your desk and wait for us to get taken? How are we supposed to be ok with that?”
-
-Fingleton pushed back from the podium and stared at his feet. He closed his eyes and shook his head. After what felt like an hour he came back to the microphone. “At first light tomorrow Deputy Elliott and I are going into the forest to find this thing. Find it and kill it.”
-
-Elliott snapped his head to Chief Fingleton. This was not the plan. They were supposed to wait for backup. He looked like he would be sick.
-
-“And if it comes tonight?”
-
-“Call the station immediately.”
-
-“What if you can’t find it? Or what if you can and it does to you what it did to the others?”
-
-There was a pause. “I’m coming with you.” It was the voice of a girl. Talia stood in the front corner of the room. Her head barely rose above those seated around her. The wild hair and wide eyes from the night on the mountain was now a braided ponytail and a resolute stare.
-
-“Talia, no,” Fingleton said.
-
-“Why not? I’ve seen this thing too. And my father is out there somewhere. It’s my fight as much as it is yours.”
-
-“We are not asking anyone else to help.”
-
-“I don’t need you to ask. I’m volunteering.”
-
-“We cannot take you with us. This is police business, let us do our jobs.”
-
-“You’re wrong. It’s all our business.”
-
-Fingleton sighed. “This creature is a danger to the town. But if we let everyone loose in the forest to find this thing, we cannot do our job, which is to protect you. Please, we ask you all to go directly to your homes and stay there. Do not leave for any reason until directed otherwise. And if anything happens, call the station.”
-
-A couple at the back got up and left and others soon followed. May McKenna put the microphone back in the stand. There were no other options. If weather was coming it would be dangerous on the unsealed roads south, or for anyone coming north. And the forest was no place to be in a storm. Home and behind a locked door was the safest place to be.
-
-Mark Potter’s wife dragged Talia out by the arm and I guessed she was staying with her.
-
-The room emptied aside from Chief Fingleton and Elliott. I approached Fingleton.
-
-“I’ll go with you, me and Boxer,” I said. “I know those woods better than anyone.”
-
-Fingleton cleared his throat. “We don’t need you Walker. This is police business.”
-
-“Like hell it is. The girl is right, we’re all stuck up here without anyone to help us. If I let you two go out there in this weather you’ll get lost or worse before you ever lay eyes on this thing. You need me. And Boxer can smell it, you need him too.”
-
-“He might be able to help,” Elliott said.
-
-Fingleton rubbed at his face with his hands. “My duty is to protect, not to put in harm’s way.”
-
-“I know the risks. I’ve seen what it does. Whatever happens your conscience is clear. Mine won’t be if you go out there and don’t come back or you do come back but you don’t find this thing.”
-
-Fingleton looked to the ceiling. It was as if he was searching for a solution written above. He sighed. “Alright, you can come. First light at the station. But you come under my watch and play by my rules.”
-
-Fingleton strode to the exit and Elliott followed. I buttoned up my jacket and went back to the laundry room at the motel and lay by Boxer. We huddled on the floor wrapped in blankets. Outside the weather worsened. I didn’t sleep.
-
-Light came, filtered grey by the clouds. Snowfall lingered into the day and the postcard view of the lake and mountain from the motel was nothing more than a white haze.
-
-At the station a red truck pulled up and Fingleton exited. His wife was behind the wheel, ashen faced, with their two young children in the back, silent and still. Fingleton waved as the car indicated and turned a wide circle and went back the way it came. Fingleton tapped at the glass door of the station and out came Elliott.
-
-“No one called last night,” Elliott said.
-
-“Good,” Fingleton said.
-
-We drove to the edge of town where the police had put up a barricade to stop anyone taking the road around the lake to the forest. The barricade had blown over in the wind and we put it back.
-
-“We’ll walk from here,” Fingleton said.
-
-We clambered down the slope and walked out onto the lake and towards the woods.
+“I don’t know.” I said. I wanted to answer in a way that gave the girl comfort, but I figured she would see straight through me, so I gave her the unfiltered truth.
 
 [X](https://www.reddit.com/r/SleeplessFromSundown/)
