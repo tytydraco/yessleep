@@ -2,7 +2,7 @@
 Growing up, I never had many friends. I was known as the geek with the big glasses and pigtails.
 So, I started getting imaginative.
 I got bullied so badly to the point where I had to beg my parents to move cities.
-Me and my parents moved into a small house near the outskirts of Manitoba.
+Me and my parents moved into a small house near the outskirts of Montréal.
 
 
 Kind of in the country side of it.
