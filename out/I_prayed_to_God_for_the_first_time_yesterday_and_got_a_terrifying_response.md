@@ -118,4 +118,4 @@ I woke up in a cold sweat. My heart was beating faster than I had ever felt it b
 
 Before I could fully knock out, though, I heard the bedroom door creak open. "I've finally found you!" Kennedy said, before the sickening crunching of her limbs returned. She got into my bed and I didn't hear a peep for the rest of the night. 
 
-It's been a couple of years since that incident. While living with Kennedy has been tough, I still love my sister to death. I'll never abandon her, nor will she ever abandon me.
+While fully coming to terms with all this has been tough, I still love my sister to death. I'll never abandon her, nor will she ever abandon me.
