@@ -32,7 +32,7 @@ So the day passed by and i stayed vigilant. And at night, when i went to check t
 
 I checked every single corner of my apartment - it was too small for someone to hide. But there wasn't anyone but me. There wasn't anything behind the fridge either, just a solid, concrete wall. So i went to bed and decided to call my sister the next morning, to see if she knew about any good psychiatrists. I was probably in desperate need of professional help.
 
-But it kept happening. Every day, something different appeared inside the fridge. And i wasn't an illusion, it was real, edible food. It took me a while to find courage and actually eat it, though. Sometimes i opened the fridge to find leftovers of a dinner i never had, or eggs, or ice cream, and even beer packs. Sometimes it was frozen food like a lasagna, or a drink. And for God's sake, it happened almost daily to the point where i started getting used to it.
+But it kept happening. Every day, something different appeared inside the fridge. And it wasn't an illusion, it was real, edible food. It took me a while to find courage and actually eat it, though. Sometimes i opened the fridge to find leftovers of a dinner i never had, or eggs, or ice cream, and even beer packs. Sometimes it was frozen food like a lasagna, or a drink. And for God's sake, it happened almost daily to the point where i started getting used to it.
 
 Sometimes i just wasn't in the mood to cook and went to the fridge to check for anything new. I had eaten enough to know i wasn't going to get poisoned or die, even by eating some random yakisoba plate. And when the food came in dishes, they stayed with me! To the point where i had new plates and even cups almost every week. And when the food was good, it was always great to know i wouldn't have to worry about cooking something for myself. So i always went to it with a certain level of expectancy, to either be positively surprised or finding myself having to eat beans from a partially opened can.
 
@@ -44,7 +44,7 @@ And that's when i realized, i knew exactly to who that cake belonged to. The nei
 
 And i couldn't even give it back. What would i say? ''Here's your birthday cake kid, it just teleported right into my fridge''. I'm terribly sorry that boy had to go through his birthday without cake, but i had no way of explaining it. People would think i'm the one invading their apartments and stealing food.
 
-So i ate it, with a heavy conscience. 
+So i ate it, with a heavy conscience.
 
 But i also started to pay more attention, and even asking some questions cautiously, and i ended up confirming my theory. The food that appears inside my fridge belongs only to the residents of the building i live in. Stuff that they bought, or made, and just disappears but often they don't think much about it. And majorly, food that they eat.
 
