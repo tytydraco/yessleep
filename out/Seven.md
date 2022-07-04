@@ -405,7 +405,7 @@ I felt the melting ice on my back once more as I laid there taking my last intak
 I remembered then how we all reached our breaking point and went after eachother. 
 
 
-I struck Randy while his back was turned as he attacked Kyle. After some nights passed Hayley came after me with a knife to my side. 
+I struck Randy while his back was turned as he attacked Kyle. After some nights passed Hayley came after me with a broken glass to my side. 
 
 
 Kyle hindered anymore damage by breaking her neck. There was so much indifference in his eyes as he did so. 
