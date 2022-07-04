@@ -3,6 +3,7 @@
 
 
 
+
 I looked forward and there in the distance was the same man, this time in the middle of the road.
 He was moving and flailing all around, almost like dancing… but not quite…
 
@@ -101,4 +102,49 @@ It happened so fast she didn’t even have time to scream.
 
 Once he was finished he climbed down and walked back into the Forrest. 
 
-I sat there shocked for a second before I moved to the drivers seat and floored it until I saw a fork in the road. Left said university Blvd and right said highway, I turned left.
+I sat there shocked for a second before I moved to the drivers seat and floored it until I saw a fork in the road. Left said university Blvd and right said highway, I turned left. 
+
+
+
+
+
+
+
+Why did I turn left… I could’ve gotten back on the highway and just went back home. 
+
+What would I have told my parents? Or Hollys mom?
+
+What would I tell Hollys girlfriend…?
+
+A few more miles and I started to see street lights, a town, and eventually a saw directions to the university… 
+
+it wasn’t until I got to safety and other actual humans that I was able to notice the drivers seat was wet with hollys urine… I can’t blame her. 
+
+I arrived at the university and I parked my car waaay in the back. Normally as a woman I wouldn’t do this as it isn’t safe but I just couldn’t bear having to explain why the sunroof was ripped off and the windshield cracked and full of murky brown “blood”.  
+
+my parents had set up for Holly and I to have an overnight experience at the university, staying in the dorms. 
+
+I grabbed my duffel bag and hollys too… i didn’t want to leave her stuff in the car to get stolen. 
+
+I was about to head in when I realized I was covered in sweat, small bits of metal and glass and we’ll… hollys piss. 
+
+I grabbed some clothes and changed behind my car as fast as possible, I left the soiled clothes in the trunk. 
+
+I made my way inside, and a college kid at the front desk greeted me and checked my ID. 
+
+“AWESOME, it’s nice to meet you Mindy I’m Grayson and I see here you’re in Hall C room 109, you should be bunking with someone named Holly, who hasn’t checked in yet.”
+
+“Yeah I don’t think she’s coming… “ I whispered 
+
+“We’ll if she doesn’t you’ll have the room all to yourself, so score amirite?” He laughed
+
+I was too traumatized and exhausted by recent events to even reply.  
+
+“Alriiiiiiight… well it looks like I’ll be seeing you tomorrow, im running your tour group around campus!” He said while handing me a key card. “your room is just down that hall and to the left, you’re gonna go up to the 3rd floor and you’ll read the signs from there”
+
+
+“Thanks Gary” 
+
+“Uh it’s Grayson…”
+
+“Sure, George” I mumbled, walking down the hall, to the left, up the elevator, and following the signs to my room.
