@@ -320,11 +320,11 @@ I screamed, waking both Robby and Paul up. The shadow ran out of the room and do
 
 Paul didn’t find anyone, but we ended up calling the police to be safe. The police did an entire sweep of our house, including the attic and the crawlspace under the house, but they found nothing. We told them what happened and even some of the stuff that had happened prior. They were skeptical of the paranormal stuff but reassured us that no one, at least alive, was in the house.
 
-We didn’t sleep for the rest of the night. We have Robby and I’s priest coming to cleanse the house on Thursday, and we also have a meeting with a child psychologist out of caution for Robby. I am scared to go to sleep tonight. I think we all are, honestly.
+We didn’t sleep for the rest of the night. We have Robby and I’s priest coming to cleanse the house tomorrow. I am scared to go to sleep tonight. I think we all are, honestly.
 
 I have no idea where this could have all come from. Our home was not haunted or anything prior to the hurricane. But whatever this is came in with the water, and I will not stop until this thing is unable to hurt my family anymore.
 
-I’ll update everyone in a few days. Stay safe, everyone.
+I’ll update in a few days. Stay safe, everyone.
 
 * Lillian
 
