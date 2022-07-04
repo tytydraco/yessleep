@@ -82,7 +82,7 @@ He lazily pat the head of the goat which now rested on his lap. “No shit, kid.
 
 “Wait, Dr. Beverly Crusher?”
 
-“Yeah,”  he answered, solemnly looking off toward the barnicle. “Hell of a thing, ain’t it? *To boldly go…*fucking nowhere.”
+“Yeah,”  he answered, solemnly looking off toward the barnicle. “Hell of a thing, ain’t it? *To boldly go…* fucking nowhere.”
 
 I swallowed his pessimism and felt it course through me. 
 
