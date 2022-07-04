@@ -156,7 +156,7 @@ I peeled it off and tried to slow the spin of my mind with a dozen mental handho
 
 “What day is it, Bethany?”  She continued narrowing her eyes until it practically looked like she had found my stolen sleep and was angry about it.
 
-“It’s Staircase Appreciation Day. So Monday, obviously. You know, if we were this bad at reading calendars at Wesleyan, they probably would’ve sent us to Bryn Mawr.”  She smirked at what I assumed was supposed to be a clever quip. Fiona in the desk across from me frowned pointedly and sulked beneath a curtain of now burgundy bangs. I didn’t understand what was going on, but I vaguely remembered something about Bethany being evil. 
+“It’s Staircase Appreciation Day. So Monday, obviously. You know, if we were this bad at reading calendars at Wellesley, they probably would’ve sent us to Bryn Mawr.”  She smirked at what I assumed was supposed to be a clever quip. Fiona in the desk across from me frowned pointedly and sulked beneath a curtain of now burgundy bangs. I didn’t understand what was going on, but I vaguely remembered something about Bethany being evil. 
 
 “Right. So Staircase Appreciation Day…is that a cake celebration? Or bagels, or…”
 
