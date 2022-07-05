@@ -128,7 +128,7 @@ Jeff fell to the floor, blood gushing from his head like wine from a busted gask
 
 “Bang,” he said.
 
-I fired, but he vanished, and my bullets hit the wall behind him. I stooped and felt Jeff’s pulse—dead. Fucking *hell.* What the fuck just happened? Did the guy upstairs have a twin? That would be the only explanation that made sense, but I had a feeling if I went back upstairs, I wouldn’t find a corpse on the floor. What exactly were we—what was \*I—\*dealing with here? And where the *fuck* was backup?
+I fired, but he vanished, and my bullets hit the wall behind him. I stooped and felt Jeff’s pulse—dead. Fucking *hell.* What the fuck just happened? Did the guy upstairs have a twin? That would be the only explanation that made sense, but I had a feeling if I went back upstairs, I wouldn’t find a corpse on the floor. What exactly were we—what was *I*—dealing with here? And where the *fuck* was backup?
 
 I could get an answer to that last question, at least. I just needed to go outside and radio from the car, since our personal radios weren’t working. I ran out of the house and threw open the car door.
 
@@ -231,7 +231,7 @@ On the lawn and in the street stood half a dozen or so more officers. Among them
 
 He chuckled. “I hope *you* know the best is yet to come.”
 
-__
+___
 
 I’ve gotten a letter. It reads like this: “Hello, friend! I hope this letter finds you well. You sure had a blast as a pilot tester for my SUPER FUN HAUNTED HOUSE™, didn’t you? I’m glad to let you know that, thanks to the valuable feedback of you and your partner, I have dramatically improved the experience and am ready to bring the public in on the fun! Won’t you come to my GRAND OPENING EVENT? Don’t worry about the time or place—you’ll know soon enough! I hope to get the chance to play with you again!”
 
