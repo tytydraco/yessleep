@@ -2,7 +2,7 @@ I first started sharing my story last week in the post [Feathers in the Attic](h
 
 —
 
-Another week goes by. Jonah and I lie low in the motel room. He tries to keep up with his studies as I work on recovering from the worst of my injuries. We do talk, but not much. He keeps asking questions that turn me mute. He tries not to get frustrated by my silence, but the whole dynamic feels like we are sinking in slow-motion quicksand.
+Another week goes by. Jonah and I lie low in the motel room. He tries to keep up with his studies as I work on recovering from the worst of my injuries. We do talk, but not much. He keeps asking questions that turn me mute. He tries not to get frustrated by my silence, but the whole dynamic feels like we are sinking in slow quicksand.
 
 I can sort of limp around now. My ankle is the sturdy one, the knee will still take a while to get back to normal. I also managed to crack a rib at some point during my tumble down the stairs. That’s what I call it now. My tumble. Not the nightmare encounter with a laughing, disfigured entity in my old childhood home, no, it’s just lil’ clumsy old Ava as far as anyone else is concerned.
 

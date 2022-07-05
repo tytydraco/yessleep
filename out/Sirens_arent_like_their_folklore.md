@@ -79,7 +79,7 @@ He yelled his head off before leaving my house. I walked on around my house stre
 
 "Good luck with her," 
 
-They paid me then blocked me on everything. I looked at those words for awhile. My mind blank. I then felt multiple emotions at once. Anger,sadness,despair,confusion. What had they meant? Did they know what I was going through? Should I explain it to my friends? These thoughts ran through my head. At the end I felt numb. I was stuck with her. Whatever her was. I got up. Walked to me bed and fell asleep.
+They paid me then blocked me on everything. I looked at those words for awhile. My mind blank. I then felt multiple emotions at once. Anger,sadness,despair,confusion. What had they meant? Did they know what I was going through? Should I explain it to my friends? These thoughts ran through my head. At the end I felt numb. I was stuck with her. Whatever her was. I got up. Walked to my bed and fell asleep.
 
 I was in the same dream again,except I was closer to the boat. The woman was still facing away from me,I yelled,this time my voice came through clear and she turned to look at me. She was a black woman with wide brown eyes. She stared at me before reaching out her hand toward me,I tried to grip onto her hand but something pulled me down. She grew panicked instantly. She turned around and plunged her hands into the water to get me out. But I had sunk too far into the water for her to grab onto me.
 
@@ -95,6 +95,8 @@ The door of the basement shut with a sudden snap. Like the force closing the doo
 
 Once the entire basement floor was covered in water. It showed itself. A head of blond water drifted on the other side of the room. It stayed there for a moment. Not moving. It then started getting closer. But as it did. It grew. The hair showed a forehead,which showed a pair of eyes,which turned into a face,and so on. Once the thing was fully out of water I could almost tell exactly what it was.
 
-It was the woman from my dream,the woman I couldn't tell the exact features of at the bottom of the body of water I was in. Her eyes were covered in something,it was thick and oily. Her blonde hair was stained with green water and she was wearing a teal dress similar to the other girl in my dreams. She stood infront of me,barely a foot away. It became apparent she was a singing a song. She was singing some sort of Scottish lullaby. I felt more heavy. I felt tired almost. And I felt forward into her arms. I sank with her as she descended into the water,and my body began to be surrounded by cold,freezing,dirty water.
+It was the woman from my dream,the woman I couldn't tell the exact features of at the bottom of the body of water I was in. Her eyes were covered in something,it was thick and oily. Her blonde hair was stained with green water and she was wearing a teal dress similar to the other girl in my dreams. She stood infront of me,barely a foot away. It became apparent she was a singing a song. She was singing some sort of Scottish lullaby. I felt more heavy. I felt tired almost. And I fell forward into her arms. I sank with her as she descended into the water,and my body began to be surrounded by cold,freezing,dirty water.
 
 When I awoke,I was in the ocean. I was floating and staring into the lit night sky,and I felt content,and drifted back to sleep.
+
+Edit:If anyone has advice as to how to make my stories longer without seeming rushed as well,please tell me it.
