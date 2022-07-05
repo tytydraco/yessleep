@@ -230,6 +230,7 @@ On the lawn and in the street stood half a dozen or so more officers. Among them
 “I hope you rot in prison for the rest of your life,” I spat.
 
 He chuckled. “I hope *you* know the best is yet to come.”
+
 __
 
 I’ve gotten a letter. It reads like this: “Hello, friend! I hope this letter finds you well. You sure had a blast as a pilot tester for my SUPER FUN HAUNTED HOUSE™, didn’t you? I’m glad to let you know that, thanks to the valuable feedback of you and your partner, I have dramatically improved the experience and am ready to bring the public in on the fun! Won’t you come to my GRAND OPENING EVENT? Don’t worry about the time or place—you’ll know soon enough! I hope to get the chance to play with you again!”
