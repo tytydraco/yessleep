@@ -18,7 +18,7 @@ Jonah watches me with dead eyes, and I wait for the inevitable. I wait for him t
 
 I turn my head from him and say nothing. I study the patterns in the faux wood that lines the bed frame. I think maybe it was supposed to resemble light maple wood at some point, but the years have worn it down to a faded, grimy eyesore.
 
-“I know you think that driving me away with this half-silent-half-crazy bullshit is better than opening up and risking me leave anyway,” he lowers his voice to an intimate husk, sliding down to sit at my side, “But that’s not going to happen. I’m all in here. We’ve had three amazing years together. How many people our age stay together this long?”
+“I know you think that driving me away with this half-silent-half-crazy bullshit is better than opening up and risking me leaving anyway,” he lowers his voice to an intimate husk, sliding down to sit at my side, “But that’s not going to happen. I’m all in here. We’ve had three amazing years together. How many people our age stay together this long?”
 
 My skin breaks out in light shivers as Jonah wraps his arm around me, pulling me close. He smells like gold autumn leaves, shower gel, and the tiniest hint of a musty scent from the old stairwell in our building. There is nothing stopping the tears from flowing now, and I push my face into the nook of his shoulder. The broken toddler inside is alive and well, blindy grasping on to another body for a sense of warmth and security.
 
@@ -32,7 +32,7 @@ So here we are.
 
 I lift my head and use my free hand to shield my eyes from the morning sun. The rays splash out like a halo, giving the edges of the roof a vicious radiance. I look up at the old attic window and roof pipe beneath it. The window is closed, dust covering the pane and glass so completely I don’t think I could see inside even if my face was pressed against it.
 
-I don’t think it’s a good idea to go inside, but I can start letting Jonah in on what happened by showing him the back yard and telling him about Robin’s episode with the bird. He supports my weight as I try to keep the pressure off my knee as we walk. It takes us a lifetime to make our way through the front yard, along the perimeter of the house, and, finally, the backyard.
+I don’t think it’s a good idea to go inside, but I can start letting Jonah in on what happened by showing him the back yard and telling him about Robin’s episode with the bird. He supports my weight as I try to keep the pressure off my knee as we walk. It takes us a lifetime to make our way through the front yard, along the perimeter of the house, and, finally, to the backyard.
 
 My stomach sinks a little as I see how much more growth has mixed in with the trash since I was last here. The path to the aviary has managed to sprout tall weeds, when just two weeks ago it had been entirely flattened to the mix of pebbles and dirt that line the ground. Being as it was so well-trodden then, I have to assume that Robin (or someone else) came out to the aviary quite frequently.
 
@@ -44,11 +44,11 @@ The bars of the cages start poking out at odd angles whenever there is a gap in 
 
 I stand in the middle of the cage, turning slowly as I take in every minor detail of my old play space. Robin and I must have spent thousands of hours in and out of these cages, playing hide and seek, playing house, talking about our mother.
 
-“I have one very faded memory of myself, ma, and Robin. I lose more of the visuals with each passing year, but I remember the small details. I remember this cage in particular,” I gesture around me, “It was filled with about a dozen brilliant white doves. I remember my father complaining about it frequently. How it cost too much, how he hated cleaning it, and so on. Anyway, I remember my mom adored the doves. She often hummed as she cleaned the cages, the sound of her voice harmonizing with the coos around her. Robin and I were there too, following her around, relishing in the presence of this mystical woman that reigned supreme in our minds. Ma, mom, mother. Nothing felt half as good as having her home.”
+“I have one very faded memory of myself, ma, and Robin. I lose more of the visuals each year, but I remember the small details. I remember this cage in particular,” I gesture around me, “It was filled with about a dozen white doves. I remember my father complaining about it frequently. How it cost too much, how he hated cleaning it, and so on. Anyway, my mom adored the birds. She often hummed as she cleaned the cages, the sound of her voice harmonizing with the coos around her. Robin and I were there too, following her around, relishing in the presence of this mystical woman that reigned supreme in our minds. Ma, mom, mother. Nothing felt half as good as having her home.”
 
 My leg muscles grow weak and I feel myself buckling a bit, my ankle struggling to sustain the weight of my upright stance. Jonah rushes over, lowering his head to get through the short entrance of the cage. He is at my side in an instant, and I lean into him.
 
-“Ma would have us gather the feathers off the ground. She would help us too. The three of us would collect the white feathers, fill a bucket with water, and wash them out. Then ma would use them to make something beautiful, like a purse or a pen. I know she once made Robin a lovely straw hat that she lined with the feathers we cleaned together. I don’t remember this part, but Robin insists ma always told us to follow the birds. In times of trouble and darkness, for when she wasn’t around, we were supposed to follow her white doves. That’s why we spent so much of our childhood playing in these cages. It helped us feel close to her in some way.”
+“Ma would have us gather the feathers off the ground. She would help us too. The three of us would collect the white feathers, fill a bucket with water, and wash them out. Then ma would use them to make something beautiful, like a purse or a pen. I know she once made Robin a lovely straw hat that she lined with the feathers. I don’t remember this part, but Robin insists ma always told us to follow the birds. In times of trouble and darkness, for when she wasn’t around, we were supposed to follow her white doves. That’s why we spent so much of our childhood playing in these cages. It helped us feel close to her in some way.”
 
 I’m about to segue into the present, into my stay with Robin on that very first night, when the cage door slams shut behind us. A large rain cloud appears on the horizon, edging closer to obscure the sun.
 
@@ -58,7 +58,7 @@ I’m about to segue into the present, into my stay with Robin on that very firs
 
 I first hear the hiss to my right, barely audible above the panicked pounding in my chest. I jerk my head to look in the direction of the noise, detecting very slight movement in the tops of the tall wild grass. It starts far in the distance, and edges closer with a second hissing that runs so low it could be mistaken for a growl.
 
-“Jonah,” I call out, pulling myself off the ground, limping over to the other side of the cage, “Jonah something is coming from the grasss.”
+“Jonah,” I call out, pulling myself off the ground, limping over to the other side of the cage, “Jonah something is coming from the grass.”
 
 My boyfriend stops rattling the cage door and turns to face the shaking weeds. Two seconds later, a snake appears at the far side of the cage. The creature has a triangular black head the size of a human fist, polished scales, and two toxic-yellow eyes. Its thick, heavy torso appears to be endless as it slips into view one ring-fold at a time. I don’t know much about snakes, but this one doesn’t look real. It’s loosely reminiscent of a black adder picture I once saw in a school textbook, but it’s like the proportions have been wildly exaggerated.
 
@@ -72,7 +72,7 @@ This all happens in a matter of seconds, and I’m far too late as I run over to
 
 I raise my head in stupid, blind prayer as the brooding sky releases its first set of rain drops. Far from a downpour, the water mist kisses the skin on my face with gentle commiseration. My own tears mix with nature’s, as I open my eyes to see something that stifles the breath in my lungs.
 
-Giant, white wings spiral down toward my head at an incredible speed as the enormous deep dives into the enclosure from above. It cuts through the old metal bars with ease, iron-fist wings moving metal to make way for its enormous body. The bird’s red eyes flare as it clasps its talons on the head of the slithering heap of black. The snake lets out this high-pitched squeal, a sound I would never associate with an actual reptile. The white bird brings down its tremendous beak, slicing the snake’s head off with minimal effort. A horrible stench fills the aviary. It smells like a bag of old potatoes that has been left out to rot in the sun. A green liquid oozes out of the neck of the snake. I linger for a second, eyeing the bird as it prepares to take off into the sky.
+Giant, white wings spiral down toward my head at an incredible speed as the enormous bird deep dives into the enclosure from above. It cuts through the old metal bars with ease, iron-fist wings moving metal to make way for its enormous body. The bird’s red eyes flare as it clasps its talons on the head of the slithering heap of black. The snake lets out this high-pitched squeal, a sound I would never associate with an actual reptile. The white bird brings down its tremendous beak, slicing the snake’s head off with minimal effort. A horrible stench fills the aviary. It smells like a bag of old potatoes that has been left out to rot in the sun. A green liquid oozes out of the neck of the snake. I linger for a second, eyeing the bird as it prepares to take off into the sky.
 
 “Thank you,” I whisper to the sheet-white feathers as the creature raises its wings in flight. It does not acknowledge me. All in all, I am graced with its presence for less than a minute before it disappears into the heavy clouds. I barely even had a chance to look at it.
 
@@ -80,7 +80,7 @@ I run over to Jonah, pulling the snake corpse off his body. It’s lucky I hardl
 
 “Is this really the time and place, Ava?” Jonah’s weak voice interrupts me as I pull off his jeans.
 
-“Oh God,” I cry in relief as I press my face into his bare chest, trying not to panic as I notice the two thin, bloodless teeth marks that decorate his left peck,“You’re okay,”
+“Oh God,” I cry in relief as I press my face into his bare chest, trying not to panic as I notice the two thin, bloodless teeth marks that decorate his left peck, “You’re okay."
 
 “Not if you keep straddling me harder than that snake,” he mumbles back, but he is smiling through pale, cracked lips.
 

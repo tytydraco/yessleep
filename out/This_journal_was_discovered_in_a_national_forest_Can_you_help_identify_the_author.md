@@ -14,11 +14,11 @@ This was an adventure.
 
 He made me wear the boots while we worked on the farm that week to break them in. My mind raced with the possibilities. We had slept in a tent in the backyard dozens of times, but never in the woods. Thoughts of spotting wildlife, setting up camp, and the smell of eggs frying over an open fire filled every vacant moment of my day.
 
-And that’s exactly how it went. It was magical. We spent three days hiking beside a rushing stream, sleeping under the stars, and cooking delicious meals in the beaten-up iron skilled. At that age, I even enjoyed the novelty of going to the bathroom in the woods
+And that’s exactly how it went. It was magical. We spent three days hiking beside a rushing stream, sleeping under the stars, and cooking delicious meals in the beaten-up iron skilled. At that age, I even enjoyed the novelty of going to the bathroom in the woods.
 
 Over the years, my tomboyish ways softened a bit, but my love for the outdoors never faded. Dad and I went hiking or camping at least once a month until he passed away three years ago. I still go as often as I can. It makes me feel close to him. Occasionally, I find myself talking to the memory of him as I sit around the embers of my evening fire.
 
-Last year, I started to develop an interest in ultralight backpacking. If you’re not familiar, it’s essentially long-distance hiking with the least amount of gear and weight possible. You rely on carrying extremely low-weight gear in the lowest quantity possible. If you give me something to sleep in, something to sleep under, and something to cook with, I can live in the woods for weeks at a time.
+Last year, I started to develop an interest in ultralight backpacking. If you’re not familiar, it’s essentially long-distance hiking with the least amount of gear and weight possible. If you give me something to sleep in, something to sleep under, and something to cook with, I can live in the woods for weeks at a time.
 
 I still carry dehydrated food and a water ration with me, but otherwise, it’s the bare essentials. Three meals a day and enough water for two will get me started. The planning process always involves finding trails with available water sources. Boiling and bottling keep down on the amount I have to carry. My foraging skills are improving, but they aren’t up to a self-sustaining level quite yet.
 
@@ -28,7 +28,7 @@ I’ve been on the trail for four days now. This time, I’m planning to stay ou
 
 Time to set up camp for the evening,
 
-Laurie 
+Laurie
 
 \*\*\*\*\*
 
@@ -66,7 +66,7 @@ There was a lot of noise in the woods as well. A few breaking tree branches and 
 
 Some of the noises sounded almost rhythmic, though. There was a hand full of times I thought I heard the distinct rustling of footsteps in the leaves and foliage, but my mind must have been playing tricks on me. I even pulled out my night vision trail came and scanned the area surrounding my camp. Didn’t see a damn thing though. Other than trees, of course.
 
-Most of the animals in this forest bed down during the rain, anyway. Not to say something couldn’t have snuck away from its den for a midnight snack, but it wasn’t a good night to be out and about. I should know. It took me nearly a half-hour to secure the tarp over my hammock before I could get back into my waterlogged hammock.
+Most of the animals in this forest bed down during the rain, anyway. Not to say something couldn’t have snuck away from its den for a midnight snack, but it wasn’t a good night to be out and about. I should know. It took me nearly a half-hour to secure the tarp over my hammock before I could get back into my waterlogged sleeping bag.
 
 My damn sleeping bag is still soaked. Hope it dries out before bed tonight. I’m not hopeful.
 
@@ -84,13 +84,13 @@ March 22nd, 2022
 
 What the hell is going on?
 
-Two days ago, I turned on my phone to look through some pictures from the hike so far and it is filled with photos I had never taken. 
+Two days ago, I turned on my phone to look through some pictures from the hike so far and it is filled with photos I had never taken.
 
 I’d spent another day trying to hike toward the waterfalls before I saw them.
 
 There are more than forty pictures of me sleeping from various angles. I always sleep with the netting of the hammock zipped, but some of the pictures are of me with the zipper open. The dates on the pictures start on March 16th. Someone has been following me almost the entire time.
 
-A video on my from last night even shows someone taking the dehydrated food from my pack and dumping them on the ground. Brown work books grind the food into the ground. You can hear them breathing like a damn marathon runner the entire time.
+A video on my phone from last night even shows someone taking the dehydrated food from my pack and dumping them on the ground. Brown work books grind the food into the ground. You can hear them breathing like a damn marathon runner the entire time.
 
 The last picture was the worst. Whoever took the picture was holding a hunting knife inches from my neck.
 
@@ -102,7 +102,7 @@ Maybe I’ve lost them.
 
 To make matters worse, that shitty little wooden bridge was gone when I got back to the stream. I know I was in the right place because the log pilings in the stream are still poking out of the water.
 
-I’m going to have to swim or wade across. I hope I may it. What other option do I have?
+I’m going to have to swim or wade across. I hope I make it. What other option do I have?
 
 God help me,
 

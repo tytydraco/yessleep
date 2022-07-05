@@ -1,0 +1,14 @@
+So this happened a few months ago but I wrote it down at the time, and then kinda forgot about it. 
+
+So I bought salad a little while ago and I recently went to eat it, thought I should check the date on it. Date was the 16th, check my phone, it’s the 15th, cool. This was last night, and I’m sure it said the 15th. Today I decided to eat the rest of it, but it had turned bad, I was disappointed but it was supposed to go bad today so nbd. But I looked at the date on my phone, and it said it’s the 18th. (I’m writing this after midnight so it’s actually the 19th now.) Again I’m positive the date yesterday was the 15th. I would’ve noticed if it was the 17th yesterday because 17th is a birthday of someone important to me. It’s been in the back of my mind since. “Am I sure that was yesterday? Yes because things were weird with my roommate, it’s why we didn’t eat together, and I avoided her today” “am I positive that it was the 15th? Yes I very clearly remember the date on my phone, and the salad still had 1 day left, and I would’ve noticed the 17th” I don’t know what happened but somehow I skipped two entire days, over some cheap salad.
+
+Anyway I mostly forgot about this incident except it happened again. This time it was soymilk, and it was 5 days. Again I brushed it off, didn’t even bother to write it down. Although I had missed my sisters birthday so that sucks, I had to tell her I’d been sick. 
+
+And then it happened again. This time it was a week and I don’t know why I keep skipping so much time, but I’m a little scared. Maybe I should stop checking dates and see if it helps? I missed too much time at work and they fired me, so I’ll probably stop buying stuff that expires quickly anyway to save some money until I can get another job. I’ve also given up my dog, because he doesn’t seem to be getting fed during the time skips, I don’t want him to starve. 
+
+
+It’s been a month. An entire month lost. This time over sour cream. I missed job interviews and plans with family and friends. I don’t know how to live like this. I miss my dog. I’ve been trying to save money and I’m gonna buy a new fridge. 
+
+I’m scared. It’s been a year?? My mom died and I missed her funeral. I don’t even remember what food I was looking at that made it happen. I got a different fridge after the last time, but it clearly didn’t help. I don’t know what to do. Nobody believes me. Please if anyone can help me, please give me advice. Before I lose more time, before I lose what’s left of my life. 
+
+(I haven’t written in a long time and this is my first attempt at anything of this genre, but I hope y’all enjoy it.)
