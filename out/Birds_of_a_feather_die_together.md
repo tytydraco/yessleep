@@ -69,3 +69,5 @@ A numbness spreads through my aches and beatings as the horrible reality  of thi
 "Actually, with the new timeline and evidence we’ve uncovered, we no longer have enough probable cause to hold your father," detective Kleimer furrows his brows as he deals the final blow to one of the lowest days of my life.
 
 "We will be releasing Finch Fugler from custody by the [end of the week.](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/)”
+
+[READ PART 4 HERE](https://www.reddit.com/r/nosleep/comments/vrxzhc/fine_feathered_foes/)
