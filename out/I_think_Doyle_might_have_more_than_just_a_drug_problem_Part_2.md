@@ -1,6 +1,4 @@
- 
-
-Part 1:   [I think Doyle might have more than just a drug problem : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/uuse8a/i_think_doyle_might_have_more_than_just_a_drug/)   
+Part 1:   [I think Doyle might have more than just a drug problem : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/uuse8a/i_think_doyle_might_have_more_than_just_a_drug/)
 
 &#x200B;
 
@@ -32,7 +30,7 @@ My eyes teared up as I was hit with guilt, “I know dad, but he told me he didn
 
 My dad nodded, “understood son. I am going to get all of this information to the police as soon as possible. We’ll find Tracy. I promise”
 
-The next few weeks seemed to crawl by. News of Tracy’s disappearance began to spread like wildfire, and several city rules were created as part of an emergency mandate. For one, all citizens without prior approval would need to be inside by 8:00pm. For minors, it was 7. Citizens were also instructed to walk in at least groups of two. The campus was littered with both officers and the National Guard; they had been called in a week after Tracy’s disappearance. 
+The next few weeks seemed to crawl by. News of Tracy’s disappearance began to spread like wildfire, and several city rules were created as part of an emergency mandate. For one, all citizens without prior approval would need to be inside by 8:00pm. For minors, it was 7. Citizens were also instructed to walk in at least groups of two. The campus was littered with both officers and the National Guard; they had been called in a week after Tracy’s disappearance.
 
 My dad, startled by how close I was to encountering the Needle Man, hired a plainclothes officer to escort me to and from school. A 230 pound ex-marine, named Sergei. His menacing presence made most people keep their distance, the exception being Jenna and Pat. My loss of freedom was not even on my mind; just the mystery of how Tracy vanished without a trace. There was no evidence of a struggle anywhere on his planned route across campus. Detectives began to suspect that he didn’t even make it all the way to Grischa since Hampton street was far closer to the coffee shop and was a much easier scapegoat.
 
@@ -46,7 +44,7 @@ My family, as well as Jenna and Pat, were a crucial support system during this t
 
 “Yeah, I suppose that could be” I agreed, with little enthusiasm.
 
-“Any news from the FBI, Sergei” Pat inquired? 
+“Any news from the FBI, Sergei” Pat inquired?
 
 He looked over his shoulders with suspicion and responded quietly, “We might have a lead. Can you guys keep this to yourselves? ”
 
@@ -62,7 +60,7 @@ Our eyes moved upwards to see his hardened frown. We nodded again.
 
 Several circles of couches as well as many rows of tables lined the perimeter of the well-lit game room. Jenna sat on one of the couches, absent-mindledly doodling on her notebook. Sergei was sitting on a table, pretending to read a book while his eyes circled the room like a hawk. The middle of the room was reserved for a few pool and ping pong tables, one of which we were playing on. The closest wall to us had a large TV, which happened to be playing a 1-on-1 interview with none other than Mayor Thomas O’Brien. I watched the orange ping pong ball pass Pat’s paddle and bounce on the laminate floor as his attention became fixated on my dad.
 
-*“Joining us right here is Doyle Mayor, Thomas O’Brien. Thank you for joining us, Thomas.”*  
+*“Joining us right here is Doyle Mayor, Thomas O’Brien. Thank you for joining us, Thomas.”*
 
 *“Thank you for taking some time to speak with me, Sandra”*
 
@@ -82,7 +80,7 @@ I cringed as I watched the grilling proceed. My dad tried to appear calm but I c
 
 *“I understand that there is still work to be done, and we are making sure to prioritize key opportunities over the next four years”*
 
-*“Our next question: Based on several independent news sources, you have been reported to have close ties with a few big pharmaceutical manufacturers, specifically, the company Citiyen, which is now America's leading producer of both oxycodone and Buprenorphine. We can’t help but to feel that part of this drug crisis was facilitated by those very companies and the gateway opioids they provided to our citizens.”* 
+*“Our next question: Based on several independent news sources, you have been reported to have close ties with a few big pharmaceutical manufacturers, specifically, the company Citiyen, which is now America's leading producer of both oxycodone and Buprenorphine. We can’t help but to feel that part of this drug crisis was facilitated by those very companies and the gateway opioids they provided to our citizens.”*
 
 *“I can assure you, Sandra, that information is both dated, and grossly blown out of proportion. Any policies my team and I enacted around Citiyen and other pharmaceutical companies was strictly to get the most effective painkillers into our Pharmacies, Hospitals, and Dental Clinics. We fully trust the authority of Doyle’s medical staff to safely dose these drugs based on patient needs.”*
 
@@ -134,7 +132,7 @@ He continued “And that Citiyen deal was in place long before my time”
 
 He paused, ”Look, it’s complicated, I don’t know. Look Christian, I got another call coming up I gotta go” He took off his shoes and hurried upstairs.
 
-Days turned into weeks as the search continued for any evidence of the Needle Man to Tracy’s whereabouts; I was beginning to lose hope of ever finding him. It was May by the time I heard any news, mostly snippets of information either from my dad or through Sergei as he escorted me too and from classes. 
+Days turned into weeks as the search continued for any evidence of the Needle Man to Tracy’s whereabouts; I was beginning to lose hope of ever finding him. It was May by the time I heard any news, mostly snippets of information either from my dad or through Sergei as he escorted me too and from classes.
 
 “We have a bit of information” He told me one day after my final Statistics class of the semester.
 
@@ -144,11 +142,11 @@ Days turned into weeks as the search continued for any evidence of the Needle Ma
 
 “She died 20 years ago. Look, it's not much, but a motive could be forming here. Just stay hopeful, this case might be over soon” His hardened face nodded and gave me a small smile.
 
-Sergei was right, just a few days later, the Needle Man was captured. 
+Sergei was right, just a few days later, the Needle Man was captured.
 
-Again, Sergei was the one to deliver the news. We saw his mouth drop as he read a message on his phone.  “Holy shit! They caught him!” 
+Again, Sergei was the one to deliver the news. We saw his mouth drop as he read a message on his phone.  “Holy shit! They caught him!”
 
-I stood up from my chair and yelled, a little too loud for a library, “No fucking way! How do you know? Did they find Tracy?” It felt like most of the library heard me, and excited whispering started to pop up around the large room. 
+I stood up from my chair and yelled, a little too loud for a library, “No fucking way! How do you know? Did they find Tracy?” It felt like most of the library heard me, and excited whispering started to pop up around the large room.
 
 Jenna and Pat were similarly excited, we exchanged hugs and began badgering Sergei with questions.
 
@@ -156,7 +154,7 @@ Jenna and Pat were similarly excited, we exchanged hugs and began badgering Serg
 
 He returned a few minutes later “We found a guy who fit our description off of Hampton and South Street. The same needle gun and mask were found on him. 15 rounds of syringe ‘ammo’ as well. It looks like he didn’t resist arrest and has been cooperating with the officers, bastard’s in the interrogation room right now.”
 
-I quickly dialed my dad’s number to find that he was outside the interrogation room. 
+I quickly dialed my dad’s number to find that he was outside the interrogation room.
 
 “What’s going on Dad?” I asked quickly. “Did he say anything about Tracy?”
 
@@ -166,9 +164,9 @@ I quickly dialed my dad’s number to find that he was outside the interrogation
 
 “It seemed like he was there to buy heroin. Some guys around there said he was paying double or triple the street price. I’m glad they caught him when they did, it looked like he was preparing for another attack tonight”.
 
-A bittersweet feeling washed over, the Needle Man was finally caught. However, I assumed the worst for Tracy. Several weeks and he still hasn’t turned up. I shivered as I imagined the Needle Man disposing of his body in the Bay. 
+A bittersweet feeling washed over, the Needle Man was finally caught. However, I assumed the worst for Tracy. Several weeks and he still hasn’t turned up. I shivered as I imagined the Needle Man disposing of his body in the Bay.
 
-The weather was dark and foggy as Pat split up with Jenna, Sergei, and I. 
+The weather was dark and foggy as Pat split up with Jenna, Sergei, and I.
 
 Sergei and I dropped off Jenna and then we began the walk home.
 
@@ -190,7 +188,7 @@ He paused for a second as his eyes tilted upwards in thought, “Maybe these att
 
 **CH 8:**
 
-The next day was just as hazy and dark as the one before. Strange dreams filled my brain. I watched as a needle slowly squeezed into my thigh, filling me with its putrid, black sludge. I screamed and begged him to stop but I couldn’t move my body. He takes off his mask to reveal my dad standing before me with a twisted grin. 
+The next day was just as hazy and dark as the one before. Strange dreams filled my brain. I watched as a needle slowly squeezed into my thigh, filling me with its putrid, black sludge. I screamed and begged him to stop but I couldn’t move my body. He takes off his mask to reveal my dad standing before me with a twisted grin.
 
 “Sorry Son, Citiyen needed to test their new medicine. It’ll only hurt for a bit.”
 
@@ -198,35 +196,35 @@ I woke up in cold sweats as I jumped up screaming and frantically trying to pull
 
 I had a new group message with Jenna and Pat.
 
-***Patrick Casey****: Hey guys, I was going to go to a small party tonight to celebrate the end of the semester. Feel free to come as well. I know it's been a tough year so I figured it might be nice to unwind a bit.*
+***Patrick Casey***\*: Hey guys, I was going to go to a small party tonight to celebrate the end of the semester. Feel free to come as well. I know it's been a tough year so I figured it might be nice to unwind a bit.\*
 
-I groaned to myself at the thought of hanging in a room full of strangers and the meaningless small talk that came with it. My mood was still pretty glum from the past months so naturally, my plans included watching movies in my room while waiting for any information from Dad. 
+I groaned to myself at the thought of hanging in a room full of strangers and the meaningless small talk that came with it. My mood was still pretty glum from the past months so naturally, my plans included watching movies in my room while waiting for any information from Dad.
 
 Before I could finish typing out my thoughts I see a reply from Jenna.
 
-**Jenna Flynn**: *Sure, Pat sounds like fun! I don’t know if Christian and I have been to one college party all year lol. You’ll come too right Christian? 🥺* 
+**Jenna Flynn**: *Sure, Pat sounds like fun! I don’t know if Christian and I have been to one college party all year lol. You’ll come too right Christian? 🥺*
 
-I groaned again and threw my pillow across the room, resigning myself to accompanying Jenna.  
+I groaned again and threw my pillow across the room, resigning myself to accompanying Jenna.
 
-*Sure guys I guess I can make it out.* 
+*Sure guys I guess I can make it out.*
 
-They both ‘hearted’ the message.  
+They both ‘hearted’ the message.
 
-*Where is it btw?* 
+*Where is it btw?*
 
-**Patrick Casey:** *It’s on the west side of campus, near the garden and Cheshire square. We can meet at my dorm at around 8PM and head over together.* 
+**Patrick Casey:** *It’s on the west side of campus, near the garden and Cheshire square. We can meet at my dorm at around 8PM and head over together.*
 
-With my semester being completed and nothing else to occupy my time, my day dragged on with not much else to do but check my phone and wait for any updates on Tracy. I spent most of the day staring at a computer screen, trying to occupy my mind. 
+With my semester being completed and nothing else to occupy my time, my day dragged on with not much else to do but check my phone and wait for any updates on Tracy. I spent most of the day staring at a computer screen, trying to occupy my mind.
 
 I finally heard something around 4:00pm,
 
-Dad: *The detectives still haven’t gotten a name or confession off the guy. They’re doing a face scan soon. I’ll let you know what comes up.* 
+Dad: *The detectives still haven’t gotten a name or confession off the guy. They’re doing a face scan soon. I’ll let you know what comes up.*
 
 Jenna met me at my house around 7PM and we started our walk to campus.
 
-“Isn’t May supposed to be warm?” I asked out loud, feeling the micro rain particles coating my face. 
+“Isn’t May supposed to be warm?” I asked out loud, feeling the micro rain particles coating my face.
 
-“And sunny too,” Jenna added. “Maybe we should’ve just stayed in and watched a movie” 
+“And sunny too,” Jenna added. “Maybe we should’ve just stayed in and watched a movie”
 
 “We’ve only been walking like 15 minutes, Jenna, it’s not too late to flake” I laughed.
 
@@ -248,7 +246,7 @@ She grinned and shook her head, “I mean a real one. How about tomorrow night?�
 
 I felt a warmth swelling in my chest that, just for a second, erased all the negativity in my head. It even felt like the fog was beginning to clear up a little.
 
-We eventually made it to Stetson Hall and told Pat about our date. 
+We eventually made it to Stetson Hall and told Pat about our date.
 
 “It’s about time” he smiled as he clapped me on the back. There was a bit of sadness in his smile but I couldn’t quite place it.
 
@@ -274,10 +272,14 @@ The last one read: *What is Pat’s last name?*
 
 *Christian, get back home right now.*
 
-Startled, I looked back up at the entrance to the basement to see the light from upstairs disappear as a heavy metal door swung and was locked with a metallic *\*clink\**  
+Startled, I looked back up at the entrance to the basement to see the light from upstairs disappear as a heavy metal door swung and was locked with a metallic *\*clink\**
 
-Jenna and I began to panic and ran back up to the door. We began to frantically pound on the door. 
+Jenna and I began to panic and ran back up to the door. We began to frantically pound on the door.
 
-I noticed Jenna’s movements were slowing as her head started to bob up and down. I then noticed how drowsy I had become as well. 
+I noticed Jenna’s movements were slowing as her head started to bob up and down. I then noticed how drowsy I had become as well.
 
 My vision blurred once…. and then everything went black.
+
+&#x200B;
+
+Final:  [I think Doyle might have more than just a drug problem (Final) : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/vs0b6b/i_think_doyle_might_have_more_than_just_a_drug/) 
