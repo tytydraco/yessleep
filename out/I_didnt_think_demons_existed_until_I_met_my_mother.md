@@ -22,7 +22,7 @@ My eyebrows furrowed at the small writing on the box. It wasn’t my birthday, y
 
 Inside was a large photo album filled with pictures of me as a child with my father. Photos I’d never seen before. Birthday parties, my kindergarten graduation, dozens and dozens of photos of me with my father. But, it felt...off. It felt wrong to look at them. My eyes danced across the photos before I came to the realization there was one woman in the background of every single one of them that I’d never seen before. Never seen in person, never seen in pictures, I had never set eyes on this woman yet she was in every childhood picture, staring down at me with a large smile but it didn’t reach her eyes. They were empty. I don’t even know how to explain it. Her eyes were black. Not dark brown, *black.*
 
-I slammed the photo album shut and tossed it back into the box. That’s not real. It couldn’t be. I grabbed the whole box and stuffed it into the garbage can. I don’t know the woman in that pictures and I don’t want to know. Shaking my head hard, I ran to the bathroom to wash my face. Just before I turned the tap on, I gave myself a close look. The hair matched, the nose was similar, the full lips. No, no, no. She died. It’s not possible.
+I slammed the photo album shut and tossed it back into the box. That’s not real. It couldn’t be. I grabbed the whole box and stuffed it into the garbage can. I don’t know the woman in those pictures and I don’t want to know. Shaking my head hard, I ran to the bathroom to wash my face. Just before I turned the tap on, I gave myself a close look. The hair matched, the nose was similar, the full lips. No, no, no. She died. It’s not possible.
 
 *Oh, honey. It’s very possible.*
 
