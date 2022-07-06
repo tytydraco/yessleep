@@ -1,0 +1,15 @@
+This is an actual experience I had
+
+One day my step dad was supposed to take me to school. But for some reason the car wasn't working, but because the school was within walking distance, we decided it would just be better if I walked. So I started making my way towards my school, and then I saw the entrance to the Sewer tunnel. For context, I had already been in this tunnel before. One day me and my friends decided to walk through it and see if we would find anything, and we began regularly taking it home. I have to say though, it's a lot less scary going through the tunnel with someone.
+
+But for some odd reason, I had the stupid idea to walk through it, it would lead me to somewhere else that was close to the school that I would end up anyway if I walked the regular route so being full of dumb bravery, I decided to take the tunnel to school. I wasn't too far in when I got a call from my step dad saying that he got the car to work and asked if I wanted him to pick me up and take me the rest of the way. For some odd reason I felt that I was too far in, though looking back I really wasn't. And then he hung up, and I had lost the comfort of hearing someone else's voice.
+
+So I braved through the tunnel, and I had nothing but the repetitive gray color of the concrete, the rumbling of the cars above me, and the graffiti that occasionally lined the wall, becoming more and more scarce the farther from an entrance I was.
+
+And then eventually I heard singing, like the singing of a siren from old Tales about Sailors who would be taken away by the beautiful sea witches. I don't know where it came from, why they were singing in the tunnel, or if I was in danger. But I did know that I needed to get out of there, so I ran as far as I could through the tunnel with the only voice accompanying me being the singing of seemingly no one. That was when I knew for sure that I regretted not just taking my stepdad up on his offer to drive me the rest of the way.
+
+And then I came to my destination, the exit of the tunnel. The Voice becoming more distant, with the light coming closer. It fell as if being saved by god, approaching the light. I bumped my head on the now low ceiling, but that was the least of my worries. I crawled out of the hole that the tunnel I exited out of was in and ran to the sidewalk that led to the school. I saw another kid walking, and the thought that he had no idea what just happened to me hit me. He probably thought I had a regular walk to school as well, I envied him because the worst thing about his walk to school was probably that it was boring.
+
+I told my friends who I liked to go through the tunnel with about me going through the tunnel alone, I left out the singing part in fear that they wouldn't believe me, but at least they did praise me. I don't think it was worth having to listen to that awful and yet beautiful singing though.
+
+I wish I had just walked out of the tunnel and taken the ride from my stepdad.
