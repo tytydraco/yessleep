@@ -1,6 +1,6 @@
 I Couldn't Recover From This Trauma Since It Affected My Life It's Been 5 Years.
 
-In This 2 Years I've Been Affected By The Trauma And Horror I Faced The Reason Why I Don't Bike In The Forest Anymore I'll explain later.
+In This 5 Years I've Been Affected By The Trauma And Horror I Faced The Reason Why I Don't Bike In The Forest Anymore I'll explain later.
 
 I Go Biking At The Forest Cause. I Kinda Need To Exercise My Legs For My Healthy Routine To The Fact I Don't Have A Car To Use And My Town Is Always On Heavy Traffic.
 
