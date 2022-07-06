@@ -1,0 +1,28 @@
+My friend and I are still trying to process exactly what we saw the other day. We’ve talked it through countless times trying to logically figure out how this was possible. Hopefully someone on here can give us some thoughts and ideas as to what actually happened. 
+
+So I recently purchased a small bass boat and my first mate Legov and I have been super eager to explore the lake and its islands, as well as learn the fishing around it. We’re new to Tennessee. Yesterday on the 4th of July, we decided to go fishing in this very secluded part of the lake we named “no man’s land”, because of the low hanging bridge that prevents boaters from entering the section. My boat can make it underneath because of how small it is but I’ve never seen another boat in there. We decided to go deeper into the cove than we’ve ever been before. As we’re slowly trolling down the lake, the path before us splits into three forks and I ask which fork we should take. Legov immediately says “the middle one”, so we continue straight as the water changes from a large lake to a narrow “river like” path.  
+This is where a chain of events happened in quick succession and we’ve talked through it after the fact to try and recall the order of how this went down.  
+
+First, we heard a weird vocal-like noise coming from the woods beyond the shoreline, and we both tensed up and felt very uneasy. “What was that?” Legov asked.  “A dog” I said, as that was the first thing that came to mind. “I don’t think that was a dog” Legov answered immediately. Then we saw a bird high above us perching on a branch, staring at us. “Maybe it was that bird” Legov said. “Yeah, maybe….” I answered.  
+I’m not sure when it got into my hand, but at some point I drew my pistol and held it down at my side.  Legov held the fishing bow. We both had a very weird feeling as we drifted down the river, eyes glued to the bank. We came to a rotting pine tree that had fallen and was now half submerged in the water, sitting on the shoreline. Then it happened.
+
+We hear a very loud, heavy footed animal running through the woods getting closer to the water. At first I thought it was a deer, as it was almost prancing, but as it got closer and louder we both realized it was in fact not a deer. It was a very large, jet black canine. My brain thought “Oh, it must be a coyote”, but this was much bigger, like a huge German Shepard. And it was fast, like a black shadow, leaping through the trees and quickly approaching the bank that we were floating across from. It didn’t seem to have any texture and details though - almost like it was flat and blurry. We couldn’t see fur, or it’s face and eyes, just the outline of it’s body and tall wolf-like ears. But it was obviously the body of a canine.
+Adrenaline starting rushing through us and my brain raced thinking we were about to have to defend ourselves. It almost looked as if it were charging at us, but it was zig zagging and dodging through the trees toward the exact portion of shoreline we were floating past. We were scared but the 15 feet of water between our boat and the shoreline gave us some confidence. It would have to swim out to us and I didn’t see that as likely. It continued its leaping through the woods and quickly reached our portion of the shoreline. In one majestic, fluid motion, it leaped off the shore and dove into the water right under the half submerged pine tree in front of us.  “Stomp, stomp, stomp, SPLASH”. That was it. We held our breath as we waited to hear it swim or move toward us. Small ripples reached our boat from the splash. After the fact, Legov swears the splash should’ve been much bigger for a creature that size.
+
+“Watch for it to come back up!”  I whispered. I had never heard of canines being able to submerge themselves under water but here it was happening right in front of our eyes. We waited. Nothing. Silence. Just the subtle sound of the ripples it made slowly dissipating. We waited about 20 more seconds and still nothing. It was almost as if the entire forest had shut off. Silence.
+Our eyes were glued to the fallen pine tree it dove under. “Maybe it’s just standing in the water under the tree” Legov says. We get the courage to troll the boat a little closer to inspect the tree, but there’s nothing. No sign of anything.  
+
+At this point, we’re in complete shock. Stunned. It’s gone. How could it be gone? How does something that big just vanish, especially a huge creature like that. After 30 more seconds of silence, Legov breaks it with “You… saw what I saw right? 
+
+A shiver flashes down my spine.  
+
+“All of it” I reply. 
+
+“Really though, what the FUCK was that?!” Legov said. I replied “I think we saw a demon…” and we both nervously laughed. We stay floating near the shoreline in shock for a least another 10 minutes, hoping for a sign that we weren’t crazy. Legov scoured the waters looking to see if it would come up for air. It never did. How the hell could a big black wolf-like creature disappear into thin air, or water for that matter???
+
+Being skeptics, there has to be a logical explanation to what we saw, but we can’t find one. If it had just splashed the water and gotten out again: 1. We would have seen it walk away in whatever direction and 2. We would have heard it as anything putting weight on the leaves makes a loud noise. But it was just… silence… The loudest of silences.  
+
+We live in middle Tennessee if that helps at all.
+We’re still a little shaken up by this. 
+
+This 100% true. We are not bullshitting you. Any insight would be much appreciated.
