@@ -32,7 +32,7 @@ Laurie
 
 \*\*\*\*\*
 
-Marth 18th, 2022
+March 18th, 2022
 
 So I still haven’t found the waterfall. I’ve followed the maps I printed off before heading out. The first few days, everything looked exactly as it was described, but this afternoon the directions didn’t seem to match up. I was supposed to cross a wooden footbridge earlier this afternoon, but when I reached the stream, there was no bridge to be seen.
 
@@ -58,7 +58,7 @@ Stuff like that is getting more common these days. It’s a great way to mess up
 
 \*\*\*\*\*
 
-Mary 19th, 2022
+March 19th, 2022
 
 I didn’t sleep well last night. It started to rain around 2:00 AM and I had only set up the sleeping hammock for the evening. The weather report before I sat out showed clear skies and no precipitation, so I hadn’t tied the tarp overhead. Dad wouldn’t have been that lazy. I should have listened to him.
 
