@@ -26,7 +26,7 @@ He had only cleaned about a quarter of the equipment, the rest of it was still f
 
 I peeked into the refrigeration room. The unit that we had stored the woman's body inside was partially open. Now feeling very anxious, I hesitantly approached the unit and then slowly etched it open. The woman's eyes and her entire fucking forearm were missing. There was now doubt about it now, Brett was the culprit. I should've called the police than and there but irrational anger, and an overwhelming feeling of betrayal, encouraged me to confront Brett myself. I just wanted to know what the hell he was doing and why. Why was he doing something so goddamn ghoulish.
 
-I stormed out of the refrigeration room and screamed Brett's name. I roared that I now knew what he had been doing, and demanded that he comet to me and explain himself. But I received no reply. Hissing curses under my breath, I began my search. I thought to check the bathroom first, he was probably hiding out in there somewhere, doing god knows what with the body parts he'd torn off the woman.
+I stormed out of the refrigeration room and screamed Brett's name. I roared that I now knew what he had been doing, and demanded that he come to me and explain himself. But I received no reply. Hissing curses under my breath, I began my search. I thought to check the bathroom first, he was probably hiding out in there somewhere, doing god knows what with the body parts he'd torn off the woman.
 
 I braced myself before opening the door. The bathroom was quite dimly lit because the ceiling light had been on the fritz, and the power cut likely had not helped either. There were only two stalls, I checked the first one and found it empty. Then I checked the second one and found it to be locked. I banged on the door and shouted:
 
@@ -34,17 +34,17 @@ I braced myself before opening the door. The bathroom was quite dimly lit becaus
 
 I received no answer. I hit the door again.
 
-"Brett! I mean it!" 
+"Brett! I mean it!"
 
-But still, he didn't answer. 
+But still, he didn't answer.
 
-"Damn it..." 
+"Damn it..."
 
 I crouched down to look underneath the door and... christ what I saw in there will fucking haunt me for the rest of my life.
 
-It was the woman's forearm, only now it was a torn, ravaged mess. Most of the meet from the wrist up was gone. I covered my mouth and tried to stop myself from gagging as I reached out with my other hand to grab the arm, just what the hell had Brett done to it? As I brought it close to my face, I soon discovered, to my complete horror, why Brett had been stealing the body parts.
+It was the woman's forearm, only now it was a torn, ravaged mess. Most of the meat from the wrist up was gone. I covered my mouth and tried to stop myself from gagging as I reached out with my other hand to grab the arm, just what the hell had Brett done to it? As I brought it close to my face, I soon discovered, to my complete horror, why Brett had been stealing the body parts.
 
-There were teeth marks on the forearm. 
+There were teeth marks on the forearm.
 
 "Jesus fucking christ..."
 
@@ -64,32 +64,32 @@ He looked at me and he started to stammer.
 
 "Brett, you've been fucking eating dead bodies! Christ... you're a goddamn cannibal!" I shouted at him.
 
-He tensed up a bit, and for a brief moment, I saw anger anger flash in his dull green eyes.
+He tensed up a bit, and for a brief moment, I saw anger flash in his dull green eyes.
 
-"I can't help it Brett! I... I space out and I..." 
+"I can't help it Brett! I... I space out and I..."
 
-"No Brett! I'm calling the police, you need serious fucking help man." 
+"No Brett! I'm calling the police, you need serious fucking help man."
 
 I turned around and went to open the door, but Brett grabbed me from behind and fucking pulled me from the floor, and then slammed me onto the wall. Shit he was way stronger than he looked.
 
-"You're not calling anybody Ellis!" He hissed at me. God, I'd never realised how jagged his teeth were.
+"You're not calling anybody Ellis!" He hissed at me. God, I'd never noticed how jagged his teeth were.
 
-I kneed him in the stomach, and he recoiled away from me. I sprinted towards the door, opened it and then ran out into the corridor. I heard the bathroom door slam open behind me, and Brett start screaming at the top of his lungs. I ran into my office, looked the door and pushed a filing cabinet in front of it for good measure. 
+I kneed him in the stomach, and he recoiled away from me. I sprinted towards the door, opened it and then ran out into the corridor. I heard the bathroom door slam open behind me, and Brett start screaming at the top of his lungs. I ran into my office, locked the door and pushed a filing cabinet in front of it for good measure.
 
-I grabbed the phone and started to dial 999. I heard Brett behind my door, he started wrenching the door handle. But when that failed, he started slamming himself against the door, so hard that the fucking filing cabinet started shaking. Brett was screaming like a fucking wild-man.
+I grabbed the phone and started to dial 999. I heard Brett behind the door, he started wrenching the handle. But when that failed, he started slamming himself against the door, so hard that the fucking filing cabinet started shaking. Brett was screaming like a fucking wild-man.
 
-I heard the receiver over the phone. 
+I heard the receiver over the phone.
 
-"I need help! I'm the mortician at the Sheldale Funeral Home. My assistant's gone fucking psycho! I'm hiding out in my office and he's trying to knock the door down!" 
+"I need help! I'm the mortician at the Sheldale Funeral Home. My assistant's gone fucking psycho! I'm hiding out in my office and he's trying to knock the door down!"
 
 I suddenly heard a loud crunch come from the door. I looked and saw the blade of an axe peeking through the jagged hole it had made in the door. Brett had gotten the fucking fire axe. He punched his hand through the hole and pushed filing cabinet out of the way. I just dropped the phone and ran to the window, pulled it open and dived out, just in time too, as I heard Brett tear open the door.
 
-I ran across the car park. Whether Brett was chasing me, I didn't know, because I didn't want to look back to find out. I just fucking sprinted towards my car, dived in and sped away from the mortuary. 
+I ran across the car park. Whether Brett was chasing me, I didn't know, because I didn't want to look back to find out. I just fucking sprinted towards my car, dived in and sped away from the mortuary.
 
 ...
 
-I just drove home after that, locked all my doors and waited for the police to show up. When they did, they took me to local station to ask me a few questions, because Brett was long gone by the time the police arrived at the station. I told them all about what Brett had been doing. The body part stealing, the dead body cannibalism, how he'd hone savage and tried to kill me with an axe. 
+I just drove home after that, locked all my doors and waited for the police to show up. When they did, they took me to local station to ask me a few questions, because Brett was long gone by the time the police arrived at the mortuary. I told them all about what Brett had been doing. The body part stealing, the dead body cannibalism, how he'd gone savage and tried to kill me with an axe.
 
-I've just been hold up inside my house since andI haven't dared go back to the mortuary. The police are currently on a manhunt for Brett, but they still haven't located him. I just really, really fucking hope I don't have to see him ever again.
+I've just been hold up inside my house since and I haven't dared go back to the mortuary. The police are currently on a manhunt for Brett, but they still haven't located him. I just really, really fucking hope I don't have to see him ever again.
 
 What really creeps me out about this whole thing is how Brett was so easily able to hide his activities from me for so long. How he was able to so perfectly wear this mask of normalcy and likeability. Well I guess as the saying goes, you think you know a guy...
