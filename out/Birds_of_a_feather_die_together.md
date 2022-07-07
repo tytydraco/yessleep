@@ -60,7 +60,7 @@ I want to say it's nice to meet him, but I don't have the capacity to lie right 
 
 A numbness spreads through my aches and beatings as the horrible reality  of this man's words sinks in.
 
-"How is that possible?" my voice rings high, "My mother disappeared over a decade ago."
+"How is that possible?" my voice rings high, "My mother disappeared over fifteen years ago."
 
 "That's what we are trying to figure out," detective Kleimer says, pulling a state-issued notepad from his shirt pocket with one hand, clicking a ball pen with the other, "We are trying to establish a timeline of your mother's whereabouts since she went missing, as well as a list of suspects with incentive to harm her. We need to talk to both you and your sister about your mother’s disappearance."
 
