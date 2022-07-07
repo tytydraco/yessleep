@@ -11,15 +11,19 @@ jobs:
 
     steps:
       - uses: actions/checkout@v2
+      - uses: dart-lang/setup-dart@v1.3
     
       - name: Install modules
         run: pip install praw
 
-      - name: Execute
+      - name: Scrape
         env:
           REDDIT_ID: ${{ secrets.REDDIT_ID }}
           REDDIT_SECRET: ${{ secrets.REDDIT_SECRET }}
         run: python main.py
+      
+      - name: Index
+      - run: dart generate_index.dart
         
       - name: Push
         run: |
