@@ -23,7 +23,7 @@ jobs:
         run: python main.py
       
       - name: Index
-      - run: dart generate_index.dart
+        run: dart generate_index.dart
         
       - name: Push
         run: |
