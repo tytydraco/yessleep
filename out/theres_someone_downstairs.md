@@ -1,0 +1,19 @@
+This occurance happened to me when i was living by myself, im a very introverted person. I hate social interaction. Thats why i was living by myself, now i want social interaction 24/7. This event really... scarred me? Idk but it changed everything in my life. Lets cut to the chase.
+
+Just a year ago, im laying on my bed at around 9pm, its pitch black. I was watching a documentary on WW2. Before we start id like to mention that my tv has something called a skybox, that means that the tv downstairs could change the channel on the tv upstairs, you will probably already guess what happens now but oh well.
+
+So im watching tv upstairs, then the channels start changing. Kinda creeped me out but i thought it had something to do with connection or something i didnt have a clue then but i stand up with a huge sigh, walk towards the tv to try do some magic trick with the tv to try and "help" the tv, all of the 'smacking the sides' method, shit like that. It doesnt work. I shrug a little kinda knowing it wouldnt work. Oh well.
+
+The next day, i went downstairs first thing in the morning, i first noticed that the renote for the tv was, replaced? It wasnt where i put it. And im a very "OCD" type of person if you know what i mean. So i noticed this very quickly, all that day i couldnt stop thinking about the remote, i know its a bit "over the top" but it stressed me so much i had to stop my online interview to try and calm down.
+
+That night, same thing happened, i was even watching the next episode of the documentary which was streaming on tv that night. And the channels started to change, this time im terrified. I am litterally frozen in place. And thing is, it was so quiet i could hear something downstairs. I didnt know what it was but it almost made me shit myself. All night the channels kept changing every now and then, and same old, im frozen in place.
+
+I had a plan, it was an amazing plan. Although it probably would make the situation worse i just wanted to prove i wasnt going insane. When it got pretty late the next day, i turned the volume of the tv to the max, 100% volume, whatever it was or whoever it was downstair would absolutely make every wall, furniture piece covered in shit. Im still scared for hell but ill try my best, if something does happen i had my phone on me ready to dial 911 at any time.
+
+So, that night. As im laying down on my bed, watching the same documentary, next episode. I hear such a deafening screech coming downstairs, it was the tv... i could tell whoever was downstairs knew that i heard that. Without hesitating i dial 911, and explain that someone is in my house, i give them my address and try to keep the call as quiet as possible. Thats when i heard loud footsteps run up the stairs and stop exactly where my door was. I realise that my door has such a big space undersneath it, i see a single eye glare from underneath the door, i know it seen me, it stared straight at me, through me, through my soul.
+
+Thats when the eye disapeared and the feet underneath the door stood still. And the person started to bang on the door so aggresively that i though it would go down in one hit. The dispatcher on the phone obviously heard it and started trying to calm me down as i started screaming bloody murder. A few minutes of banging  and screaming came the police, they barge in through the front door that was supposedly unlocked, when i clearly remember to lock it everynight. They tackle the man down, who was completely naked, long black hair and beard. 
+
+The police say he was breaking his way in at exactly 10 pm every night, when i was watching the documentary.
+
+I always wonder if i hadnt called the police, if i ignored the fact that strange things were happening, i think myself lucky...
