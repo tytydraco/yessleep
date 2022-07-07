@@ -1,4 +1,4 @@
-name: yessleep
+name: Update archive
 
 on:
   schedule:
