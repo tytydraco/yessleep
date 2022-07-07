@@ -1,6 +1,6 @@
 This was about two years ago, in the middle of the summer. My friend Jim and his hetero-lifemate Mark(my asshole brother) went on vacation together, leaving their house empty. They had planned on boarding their two dogs while they were gone, but those plans fell through when the lady who ran the place hurt herself in a fall or something. So it came down to me to see to the safety of their dogs for the week.
 
-I was delighted to do it. They had a small sheltie named shadow and an enormous Great Pyrenees named Barkley. I love Barkley, he is the best dog. I regularly go over to their shared home to hang out with him and ignore the filthy humans present. 
+I was delighted to do it. They had a small sheltie named Lady and an enormous Great Pyrenees named Barkley. I love Barkley, he is the best dog. I regularly go over to their shared home to hang out with him and ignore the filthy humans present. 
 
 On night two of dogsitting I heard Barkley pawing at the door to go out. I grab leashes, hook the beasts up, and head out. I was watching Lady sniff a tree for a few minutes when I heard Barkley bark at something and go off sprinting. I shouted for him and braced the leash, only to hear the cord snap when tension was put into it. Barkley, sensing freedom, bolted like a stabbed rat, streaking along the long line of the property. I shouted and started after him and managed to trip on a branch obscured in the darkness and ate dirt. By the time I'd gotten up, I'd completely lost the dog.
 
