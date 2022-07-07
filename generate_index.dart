@@ -9,9 +9,7 @@ class ListItem {
   ListItem(this.name, this.url);
 
   @override
-  String toString() {
-    return '<li><a href="$url">$name</a></li>';
-  }
+  String toString() => ' * [$name]($url)';
 }
 
 class Index {
@@ -33,25 +31,18 @@ class Index {
   @override
   String toString() {
     return '''
-<html>
-<body>
-<h1>$title</h1>
-<p>file count: ${_listItems.length}</p>
-<p>
-${_listItemsString()}
-</p>
-<p>
-built by <a href="https://www.github.com/tytydraco">tytydraco</a> @ github.com
-<br />
-project: <a href="https://www.github.com/tytydraco/yessleep">yessleep</a>
-</p>
-</body>
-</html>''';
+## $title
+file count: ${_listItems.length}  
+${_listItemsString()}  
+
+built by tytydraco @ github.com  
+[yessleep](https://www.github.com/tytydraco/yessleep)
+''';
   }
 }
 
 void main() {
-  final indexFile = File('index.html');
+  final indexFile = File('index.md');
   final index = Index('r/nosleep archive');
 
   for (FileSystemEntity file in Directory('out').listSync()) {
