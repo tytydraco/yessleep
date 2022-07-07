@@ -2,7 +2,7 @@ I still remember the day I first became scared of getting pregnant.
 
 I was six. Mom and I were at the mall and ran across Mom’s friend Susan. They chatted while I played at the fountain nearby. Just as I began to grow bored, Mom scooped me up, and we headed for the exit.
 
-“Susan’s gotten a little fat since I saw her last time,” I remarked, oblivious at the time of how rude the comment was. 
+“Susan’s gotten a little fat since I saw her last time,” I remarked, oblivious at the time of how rude the comment was.
 
 Mom stopped and shot me a look of angered bewilderment, and for a moment. I thought I was in trouble. Then her expression softened.
 
@@ -34,11 +34,11 @@ She nodded. “Yes, even you.”
 
 The queasiness was back. What if they weren’t joking? What if…
 
-I gulped. 
+I gulped.
 
 “There’s a…living thing *inside* you? Like a parasite?” I’d read about parasites—as a kid, I got into a lot of books I wasn’t supposed to. I knew they took up residence in a person’s body and ate that person’s food and that they were really gross.
 
-“Not a parasite*,* Lucy,” Mom admonished. “A *baby.*”
+“Not a parasite, Lucy,” Mom admonished. “A *baby.*”
 
 “It’s all right, Martha,” Susan said. “Would you like to feel, Lucy?”
 
@@ -60,15 +60,15 @@ Time goes on, though, and things change.
 
 ___
 
-*Badum. Badum. Badum.* The rhythmic, drum-like sound echoed in the dark. I stood submerged to my waist in cold water, bubbles gurgling to its surface and popping like snapping teeth. 
+*Badum. Badum. Badum.* The rhythmic, drum-like sound echoed in the dark. I stood submerged to my waist in cold water, bubbles gurgling to its surface and popping like snapping teeth.
 
-The water stirred. Something splashed to my left. A sheer wall emerged from the black, approaching too fast to be avoided. The wall constricted around me, and I discerned it to be a hand, each of its fingers as large as a full-grown human. I shrieked, futilely pounding on flesh as it lifted me from the water. My captor’s face came into view. It was a baby. In its eyes, I saw something I thought no baby was capable of. 
+The water stirred. Something splashed to my left. A sheer wall emerged from the black, approaching too fast to be avoided. The wall constricted around me, and I discerned it to be a hand, each of its fingers as large as a full-grown human. I shrieked, futilely pounding on flesh as it lifted me from the water. My captor’s face came into view. It was a baby. In its eyes, I saw something I thought no baby was capable of.
 
 Hatred, pure and unadulterated.
 
 It began to cry.
 
-I jolted awake with a gasp. I wasn’t in bed. The surface beneath me was hard. I moved my hand and brushed something cool and smooth—the porcelain base of the toilet. 
+I jolted awake with a gasp. I wasn’t in bed. The surface beneath me was hard. I moved my hand and brushed something cool and smooth—the porcelain base of the toilet.
 
 A second later, I was glad to be where I was. Nausea struck, and I pulled myself up and heaved bile into the bowl. Then again. And again. The amount of puke flowing out of me felt like three times what I’d eaten in the last *week*, and it kept coming. It was like I was some kind of puke hose. Finally, it stopped, and I fell back, gasping for breath, throat burning, taste of vomit on my tongue. I went to the sink and attempted to drink, but my body refused it. I gargled and spat instead, until the taste was mostly gone.
 
@@ -106,11 +106,11 @@ His eyes narrowed.
 
 “Because...”
 
-He waited. I searched for the right words but couldn’t find them. 
+He waited. I searched for the right words but couldn’t find them.
 
 “Never mind.”
 
-We’d been down that road before, and it didn’t end well. Despite my evasion, Todd picked up on where I’d been about to go. 
+We’d been down that road before, and it didn’t end well. Despite my evasion, Todd picked up on where I’d been about to go.
 
 “He’ll have a good life,” he said. “I promise.”
 
@@ -120,7 +120,7 @@ Could you really promise something like that? There was so much that could go wr
 
 I kissed him on the cheek, running my hands through his soft, curly brown hair. “I love you too.”
 
-Todd turned out the light, and ten minutes later, he was snoring. I tried to join him, but I couldn’t. I tossed and turned beneath the sheets, my mind ablaze with apprehension about three months from now. After half an hour, I gave up. I opened a book and read a couple pages but couldn’t get into it, so I stared at the ceiling for a while and then got up to pour myself a glass of water. I brought it to my office, next door to the bedroom, and turned on my green desk lamp. Chaucer, our cat, lay stretched out on top of my laptop. He raised his orange head and yawned at me. 
+Todd turned out the light, and ten minutes later, he was snoring. I tried to join him, but I couldn’t. I tossed and turned beneath the sheets, my mind ablaze with apprehension about three months from now. After half an hour, I gave up. I opened a book and read a couple pages but couldn’t get into it, so I stared at the ceiling for a while and then got up to pour myself a glass of water. I brought it to my office, next door to the bedroom, and turned on my green desk lamp. Chaucer, our cat, lay stretched out on top of my laptop. He raised his orange head and yawned at me.
 
 “Let’s go, buddy. You know you’re not supposed to be up on the desk.”
 
@@ -128,11 +128,11 @@ I picked him up and put him down on the floor. He fussed a little but decided th
 
 The office door rattled. I looked at it. Shut. Had I shut it? I thought for sure I’d left it open.
 
-Chaucer meowed. Not from my feet, but from *outside* the door. It rattled again. He was out there, pawing at the wood. 
+Chaucer meowed. Not from my feet, but from *outside* the door. It rattled again. He was out there, pawing at the wood.
 
-*Meew.* 
+*Meew.*
 
-*What on Earth*? Could I really have imagined him sitting on the desk? Imagined the feel and weight of him in my arms when I lifted him? Mom did tell me pregnancy messed with her head sometimes, but she’d never mentioned hallucinations. 
+*What on Earth*? Could I really have imagined him sitting on the desk? Imagined the feel and weight of him in my arms when I lifted him? Mom did tell me pregnancy messed with her head sometimes, but she’d never mentioned hallucinations.
 
 Just another item to add to the list of “things to tell my doctor.” That list was starting to get long.
 
@@ -148,9 +148,10 @@ On the back of his paper, one of my twelfth-grade students had written a poem.
 
 *I’m gonna haunt you like an itch.*
 
-*You and me? We’re gonna have* fun*.*
+*You and me? We’re gonna have fun*.
 
 ___
+
 
 “You have to tell Dierdre,” Todd said.
 
@@ -178,13 +179,14 @@ But...
 
 *His* handwriting. *His* name on the front page of the essay.
 
-Todd was right. In this day and age, one couldn’t afford to take chances. 
+Todd was right. In this day and age, one couldn’t afford to take chances.
 
 “I’ll tell Dierdre,” I said.
 
 “I know you care about all your students, but you’re making the right choice,” Todd said. He gave me a pat on the belly. “After all, you’ve gotta keep your*selves* safe.”
 
 ___
+
 
 Doctor Dierdre Thompson tapped her pencil on her desk. “This is serious,” she said. “Timothy, why did you write this on the back of your English essay?”
 
@@ -222,11 +224,12 @@ He stood up. “It’s decided. Come on.” The three of them left the room, clo
 
 ___
 
+
 “Damnit!” I kicked the stall door, and it swung away from me, striking the partition wall. It swung back my way, and I kicked it again.
 
 This was such shit. Timothy didn’t deserve that, to be taken away from the life he’d built at this school and stuck in some *center*. Yet I’d been helpless to protect him from it. What kind of teacher was I? And did he even really write that? Did he *really*? Because the way he’d acted, it sure didn’t seem like he had. Could another student have forged it?
 
-The baby kicked the inside of my stomach. 
+The baby kicked the inside of my stomach.
 
 “*Damnit, damnit, damnit*!” I screamed, pounding the door with my fist. Why on *Earth* was someone like me, who couldn’t protect her own students, having a *baby*? What *fucking* right did I have to force someone into this world if I wouldn’t even be able to take *care* of them properly?
 
@@ -252,11 +255,11 @@ Pain ripped through my stomach. I cried out and doubled over, clutching myself. 
 
 *No,* I thought, heart suddenly pounding. *Oh God, no, no, no…*
 
-I was bleeding, *down there.* The front of my jeans was stained red. 
+I was bleeding, *down there.* The front of my jeans was stained red.
 
 *This can’t be happening, please, I can’t lose the—*
 
-I blinked. The blood was gone. I felt the jeans, but they weren’t wet. I’d imagined it? Christ, what was going *on* with me? 
+I blinked. The blood was gone. I felt the jeans, but they weren’t wet. I’d imagined it? Christ, what was going *on* with me?
 
 Thankfully, no one was around to witness what had happened. I hurried the rest of the way to the break room. Gertrude, a coworker—science teacher—was there, poring over a stack of student exams. She picked up her coffee mug and took a sip.
 
@@ -264,17 +267,18 @@ Thankfully, no one was around to witness what had happened. I hurried the rest o
 
 Gertrude looked up, and confusion set in on her face. “Lucy? Aren’t you supposed to be teaching right now?”
 
-“No, I’ve got class at two-thirty,” I said. 
+“No, I’ve got class at two-thirty,” I said.
 
 “Lucy?” Gertrude’s expression changed to concern. “Lucy, it’s three o’ clock.”
 
-“What?” 
+“What?”
 
 That couldn’t be. I looked at the clock on the wall and, with horror, saw that she was right.
 
 I’d lost forty-five minutes.
 
 ___
+
 
 I lay on a table. Leather straps cuffed my ankles, wrists, neck—the last one too tight. My breath came out ragged, hindered.
 
@@ -300,9 +304,10 @@ I fell into his arms, crying.
 
 ___
 
+
 Grading papers was therapeutic, a way for me to drown out everything else that was happening.
 
-I got to Tonya’s essay, and the memory of our last encounter broke through the spell. I cast the memory aside and continued. As usual, Tonya demonstrated impeccable skill for a high schooler—her ability to grasp the themes at the core of Joseph Conrad’s *Heart of Darkness* even made me*,* an English teacher, think of the book in ways I hadn’t before. I awarded her with an exceptionally rare ninety-nine out of a hundred and wrote some glowing words of praise beneath the score. Ashamedly, I looked at the rest of the stack with reluctance, confident that none of the remaining essays would live up to this one.
+I got to Tonya’s essay, and the memory of our last encounter broke through the spell. I cast the memory aside and continued. As usual, Tonya demonstrated impeccable skill for a high schooler—her ability to grasp the themes at the core of Joseph Conrad’s *Heart of Darkness* even made me, an English teacher, think of the book in ways I hadn’t before. I awarded her with an exceptionally rare ninety-nine out of a hundred and wrote some glowing words of praise beneath the score. Ashamedly, I looked at the rest of the stack with reluctance, confident that none of the remaining essays would live up to this one.
 
 I transferred it to the *graded* pile, and as I did so, I noticed something written on the back and flipped it over.
 
@@ -326,7 +331,7 @@ I scrambled and took my phone out of my pocket, bringing up the picture I’d ta
 
 “Lucy?” Todd said. I barely registered him talking. “Lucy, what’s wrong?”
 
-I stumbled away from the desk and fell onto the bed, bracing my throbbing temples. The room tilted, spun, objects uprooted from gravity, madly cartwheeling, slingshotting back and forth. Todd cried out, but the sound was far away. Self-loathing thoughts pelted me, stinging, bruising. 
+I stumbled away from the desk and fell onto the bed, bracing my throbbing temples. The room tilted, spun, objects uprooted from gravity, madly cartwheeling, slingshotting back and forth. Todd cried out, but the sound was far away. Self-loathing thoughts pelted me, stinging, bruising.
 
 *How? How did you miss it? The forger added that detail on purpose to see if you’d notice, and being the blind, stupid loser that you are, you consigned an innocent boy to suffer for nothing. There you are, showing off that deficiency of brain cells again. How’d you ever become a teacher?*
 
@@ -334,11 +339,12 @@ The objects in the room tittered and jeered as I lost consciousness.
 
 ___
 
-I woke in a bed that wasn’t mine, in a sterile white room surrounded by machines, something beeping beside me. 
+
+I woke in a bed that wasn’t mine, in a sterile white room surrounded by machines, something beeping beside me.
 
 *Another nightmare,* I thought. My breath quickened as I imagined a portal forming, that terrible entity crawling forth. The beeping quickened in sync.
 
-“It’s okay, Lucy. It’s okay.” Todd’s voice. He sat in a chair to my right, and when I saw him, the beeping slowed. 
+“It’s okay, Lucy. It’s okay.” Todd’s voice. He sat in a chair to my right, and when I saw him, the beeping slowed.
 
 It wasn’t a nightmare—I was in the hospital.
 
@@ -370,7 +376,7 @@ Todd swallowed, looked down. He couldn’t even look at me while making these ri
 
 I wanted to pound the table. I wanted to scream “fuck you.” Chaucer’s fluffy tail brushed against my leg, and I wanted to pick him up and throw him across the room. Then, from some other part of my mind, there came a creeping sense of doubt. The anger subsided.
 
-What if I *had* done this? I thought about the strange episodes I’d had, the hallucinations and loss of time. I’d been meaning to tell Todd about them, but now that he suspected me of *this,* I didn’t think I could. It would only serve to convince him all the more that I was the culprit. 
+What if I *had* done this? I thought about the strange episodes I’d had, the hallucinations and loss of time. I’d been meaning to tell Todd about them, but now that he suspected me of *this,* I didn’t think I could. It would only serve to convince him all the more that I was the culprit.
 
 Even with my own doubts, I wasn’t ready to accept that yet.
 
@@ -382,19 +388,20 @@ He looked into my eyes, and I felt dismay. He didn’t believe it was.
 
 ___
 
-Cold. Too cold. Wind blew past, fluttering my nightgown. 
+
+Cold. Too cold. Wind blew past, fluttering my nightgown.
 
 The yard. Sleepwalking again. I took a step toward the porch, and the bushes rustled at the edge of the yard. I turned just in time to see a man in black pants and a hoodie streak behind the side of the house.
 
-“Hey!” I shouted. 
+“Hey!” I shouted.
 
-I followed. The intruder was scrambling to get over the back fence. I sprinted at him. 
+I followed. The intruder was scrambling to get over the back fence. I sprinted at him.
 
 “Stop right there, Dylan! It’s you, isn’t it!”
 
-He went over. I cursed. I grabbed the top of the fence and attempted to hoist myself up, but the fence was taller than I was, and I was six months pregnant. 
+He went over. I cursed. I grabbed the top of the fence and attempted to hoist myself up, but the fence was taller than I was, and I was six months pregnant.
 
-*Meeeew.* 
+*Meeeew.*
 
 I stopped trying and turned around. Was that Chaucer? It couldn’t have been. We never let Chaucer outside.
 
@@ -404,7 +411,8 @@ The blood was pooling from Chaucer’s ripped-open torso. He looked at me, yello
 
 ___
 
-I stared at the white popcorn ceiling, unable to fall asleep. The light and traffic from outside our roadside motel—where we’d come to hide for the time being—didn’t help, but mostly it was my thoughts that kept me awake. Chaucer’s butchered corpse refused to leave me, there when I closed my eyes, there when I didn’t. And Dylan, his wicked grin, his final words to me on repeat. 
+
+I stared at the white popcorn ceiling, unable to fall asleep. The light and traffic from outside our roadside motel—where we’d come to hide for the time being—didn’t help, but mostly it was my thoughts that kept me awake. Chaucer’s butchered corpse refused to leave me, there when I closed my eyes, there when I didn’t. And Dylan, his wicked grin, his final words to me on repeat.
 
 *I’ll make you sorry.*
 
@@ -412,23 +420,23 @@ Todd doubted Dylan could find us here. We’d been as careful as we could be, bu
 
 *I’ll make you sorry.* I let him in when I sleepwalked outside and left the door unlocked. That’s how he got Chaucer. I let him in…
 
-Fuck—vomit incoming. 
+Fuck—vomit incoming.
 
 I rushed to the bathroom and spewed half my insides into the toilet, then sat gasping, looking at what had come out of me. An ugly mixture of orange liquid and brown bits, stinking like no tomorrow. Perfect metaphor for my life at the moment. I flushed and washed my hands and face in the sink.
 
 “*Stupid bitch.*”
 
-I jerked the faucet handle to the off position, heart racing. *Someone’s in here.* I looked at the shower, its glass door shut. Shakily, I reached for the handle. 
+I jerked the faucet handle to the off position, heart racing. *Someone’s in here.* I looked at the shower, its glass door shut. Shakily, I reached for the handle.
 
-“Hello?” I whispered. 
+“Hello?” I whispered.
 
 No answer, so I opened it. The shower was empty.
 
-The baby’s foot kicked inside me, slightly painful and entirely unexpected. At exactly the same time, “*Stupid* bitch*.*”
+The baby’s foot kicked inside me, slightly painful and entirely unexpected. At exactly the same time, “*Stupid* bitch.”
 
 I ran out of the bathroom. “Todd! Todd, wake up!” I screamed.
 
-The bedside lamp clicked on, and light filled the motel room. 
+The bedside lamp clicked on, and light filled the motel room.
 
 “Lucy, what is it?” Todd asked.
 
@@ -436,7 +444,7 @@ The bedside lamp clicked on, and light filled the motel room.
 
 “*Stupid bitch. Stupid bitch. Stupid bitch. Stupid bitch*!”
 
-I threw my hands to my ears, but it was useless. The voice wouldn’t stop. 
+I threw my hands to my ears, but it was useless. The voice wouldn’t stop.
 
 “*Stupid bitch, stupid bitch, stupid bitch, bitch,* bitch!”
 
@@ -470,17 +478,18 @@ The baby kicked again, again, again. “*Waaaaaaaaaaaaah!*” he yelled. *“You
 
 Pain. An explosion of agony, worse than I’d ever felt in my life. Stabbing, shooting, burning through my abdomen, as if someone had lit a fire within. I screamed and screamed, thrashing, clutching my belly and begging for it to stop. For *him* to *make* it stop.
 
-“*Do you believe me now? Do you?* Waaaaaaaaaaaaah*!*”
+“*Do you believe me now? Do you?* Waaaaaaaaaaaaah!”
 
 ___
 
+
 “*I see you looking at the floor,*” he said. “*I see everything you see. I’m sure those gears a-turning in your head are thinking—ha, generous word when it comes to you—I’m sure they’re thinking something like this*…*What if I fall onto my stomach and don’t catch myself? What if I keep doing it until this little lump inside me is no more? That about right*?”
 
-“Shut up*,*” I whispered.
+“Shut up,” I whispered.
 
 “*Maybe one of those pills you were looking up earlier will do it. What was it? Mifepristone? Illegal in the U.S. but not in Mexico. So, you’re thinking, maybe you and Todd should take a trip to Margaritaland. You’ll say you’re going shopping and slip down to the clinic to get the pill. But it’s not going to work. Do you know why?*”
 
-“Shut. Up*.*”
+“Shut. Up.”
 
 “*You’re awfully rude. Here, let me explain it for you.*”
 
@@ -515,6 +524,7 @@ Chaucer disappeared.
 “*From now on,*” my tormentor said, e*very time you see something, every time you hear something, every time you experience anything at all, you’re going to have to ask yourself—did that really happen*?”
 
 ___
+
 
 Todd returned from work at about 5:00 p.m. He took off his jacket and shoes and joined me in bed with a hug and a kiss.
 
@@ -572,9 +582,9 @@ I threw open the door and jumped out.
 
 Cut. Standing next to Todd’s car in a parking lot. He wasn’t in it.
 
-Cut. In a grove of trees by the river, out of breath. 
+Cut. In a grove of trees by the river, out of breath.
 
-One last cut. I found myself back home. There was blood on my clothes and Todd was nowhere to be found. 
+One last cut. I found myself back home. There was blood on my clothes and Todd was nowhere to be found.
 
 The baby hasn’t done or said anything since. But I know he’s in there, planning his next move.
 
