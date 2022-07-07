@@ -1,0 +1,29 @@
+It started so quietly. Small articles in the news about some crows in town going nuts on people at the malls or the gas stations. They were swooping down on people in droves, entire murders of the things attacking families with no real rhyme or reason. They weren’t causing any permanent damage either, not physically. There were a good number of people who just chose to stay in doors for a bit from the fear of having a bunch of possibly rabies induced birds pecking at your face. 
+
+But then it got worse.
+
+After two weeks of it, the first death occurred. A young taxi driver, Benjamin Peterson. He was working the night shift after his dispatcher couldn’t get a hold of him, so he sent another driver to his car's location. When he arrived, he knew immediately something was wrong. The windows in Benjamin’s cab were all shattered inward, and the hood was covered in the crows. He was so terrified to approach the car, but he did it anyway. He regretted that decision pretty quickly because what he saw, he later said, would haunt him for the rest of his life. Benjamin sat in the driver seat, his face completely hollowed out in a bloody, fleshy mess. A crow was perched on the seat behind his head, pecking at the bowl that was once his face. When the horror of the scenario finally surpassed, the other driver turned back to his car quickly and took off as he dialled for 9-1-1. The police showed up with animal control, but even then everyone was on edge with this situation. 
+
+Quickly, things escalated from here. The death toll  began to rise as the birds began to attack everything it found. The elderly, buses full of people…daycares. 
+
+They weren’t prejudiced, they were hungry.
+
+We were told to stay inside, and just coming out of this pandemic, it was hard to believe we were being forced back into this way of life. But there was something about hundreds of crows literally eating your skin if you stepped outside that was enough to entice us to abide by these rules that were put in place. 
+
+Until the crows learned how easy it was to get into our houses. 
+
+We would see them on the streets, on the telephone wires, *in* *our fucking cars*. No matter where we looked those scary *fucks* were there to haunt us. I heard the stories of them breaking windows and swarming into peoples homes, devouring anything they could reach and leaving just as fast. The CDC would later tell us that it was something to do with the pesticide in the farms just outside of town, but this shit was biblical if you ask me. 
+
+I thought this was the worst it could get. I hoped for that honestly. But of course, it had to get even worse. After the death toll entered the hundreds, for some inexplicable reason, they began to leave people alive. Beyond injured, but able to survive. The people who were hospitalised, most of them didn't survive long considering the doctors hadn’t had the proper treatment methods to help these people. Immediately, however, they were all tested for any unknown disease or abnormalities. They hadn’t shown any signs when they passed. 
+
+So when they came back, we weren’t prepared. When the streets full of these beastily crows began to fill up more with the shambling remains of their victims, there was absolutely no way of preparing. They attacked as fast and as ferocious as the birds would, but it was so much worse. Loved ones, children and parents, whoever the birds took into their murder seemed to have some memory of their past relations, as the people who turned seemed to be attacking only those who knew them. Within a month since Benjamin’s death, this whole town was run into the ground. Anyone who was still alive prayed for a miracle. We prayed it would be like the movies and one day a plane would fly overhead and put us out of our misery, but the longer we waited, the more we all began to accept that this day wouldn’t come. 
+
+As I write this, I try my hardest to keep it together. I don’t know who else is left, we can’t be many, but I know my time is coming to an end. I awoke last night and a single crow had made its way into my room. I felt it on my chest before I had even opened my eyes. As I stirred awake, I noticed its head quickly arching side to side, as if it were studying me. The sun had just begun to rise as this began, and the look of the creature had sent fear through every ounce of my body. I could have grabbed it, I could’ve thrown it off the wall and stomped on it until it was a messy pile of blood and feathers. I could have literally snapped the fucking things neck. But I didn’t. I just lay there, because if I’m being honest, I wanted to die. I had seen these things take everything. Everyone I loved, everything I lived for. So what happened next…I was grateful for it. The thing jabbed its beak into the side of my neck, devouring just enough flesh to leave its mark on me. I wanted to scream, to fight back as the pain took over, but I didn’t. I let this happen. It then used its feet to claw into my chest as it screamed a gutteral sound at me, its breath smelling like literal death and sewage. It ripped into my flesh and it tore at my face and when I was on the edge of finally letting it kill me…it flew away. 
+
+I thought I would pass away, and yet I didn’t. I felt myself falling into the abyss, but never leaving this plane of existence. 
+
+And then the feeling faded, and I stood from my bed, I went to the living room, and I began to write. For if I was the last one alive in this God forsaken town, which I very well could have been, I wanted to make sure someone wrote at least some semblance of what had occurred since Benjamin the cab driver. 
+
+I feel my body changing. I feel cold. I feel hungry, so unfathomably hungry. And I feel so fucking tired. I just want to die, and yet I know what’s coming is so far from that.
+
+I just hope if anyone comes here, they turn around and they leave before the crows find them.
