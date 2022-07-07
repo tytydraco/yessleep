@@ -80,4 +80,17 @@ Again, reader…I must feel the need to point out:
 
 SHE NEVER TOLD ME HER FUCKING NAME.
 
-PT. 1
+ I am livid, I am tired, I am frustrated.
+There is no reason for me to know who this woman is, despite her insistence and yet here, she is, day after day after everloving day.
+
+*****
+
+That night’s bar shift starts off as my usual ones do. I pour drinks for Bruce, Barbara and Patrick. I listen to their woes and offer comfort when needed. I am just starting to watch them leave and drift back into the night when I start hearing it. There’s an insistent rapping on the walls, beneath my feet, in my head. Everywhere and nowhere is overwhelmingly loud and I don’t like it. I search fruitlessly for the sound. If there is someone here messing with me, I need to find them. I have never liked being alone and the end of shift is always my least favorite part. I can’t recall another time this has happened though. All my memories of the bar are wholesome and rose-tinted but at this moment…someone is trying to infringe on my peace. Someone is trying to scare me and unfortunately for me, it’s beginning to work. I go from corner to corner, searching for who could possibly be there. Who doesn’t have something better to do than bother a single woman in her business? 
+
+I find no one and nothing there. 
+
+While I am searching behind the bar, I hear the door slam open, hitting the wall with a loud BANG. The door is too heavy to have opened on its own and all of my patrons know to make sure it clicks when they leave. I can’t let the door stay open too long. You never know who might try to come in.
+
+I run to the door, shutting it firmly and take in the room. It is finally blissfully silent but the unease remains. Regardless of if they are here now, someone was here. They had to be. Idly I debate with myself if the crazy woman has gone from being a petty irritant to actual physical harassment but she doesn’t seem the type to do so. I glance at the clock and though I still have about 15 minutes left, I lock the door and turn out the lights, wanting to maintain any sense of security I can get. I don’t want to believe someone is still in here but the discomfort and fear does not fade.
+
+I hate being alone.

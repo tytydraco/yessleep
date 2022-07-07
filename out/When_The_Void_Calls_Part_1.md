@@ -74,7 +74,6 @@ As I was drying off, I started to feel something else. At first I thought it was
 
 Startled, I turned around to find nothing was standing behind me. I turned back and got a good look in the mirror, seeing a fuzzy black shape towering over my from behind. I blinked and it went away.
 
-And this was just the beginning.  
+And this was just the beginning.
 
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/vt2ath/when_the_void_calls_part_2/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/vt4jwd/when_the_void_calls_part_2/)

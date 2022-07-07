@@ -10,7 +10,7 @@ I pressed the intercom on the concrete wall, hoping to hear something other than
 
 As a felon, I wasn’t someone that the guys usually treated the same way, so I can’t say that this was entirely unusual for him to not respond, but still, your job is your job. This particular assignment had been my way out early, and I was not keen to be stuck inside of a room for any longer than I had to be… even if it did mean being part of their expendable crew.
 
-I couldn’t take it anymore. Two hours late was unheard of, and they couldn’t possibly expect me to spend two shifts walking in that container every fifteen minutes. So even though leaving the room early was breaking protocol, I decided to go look for Sandra.
+I couldn’t take it anymore. An hour late was unheard of, and they couldn’t possibly expect me to spend two shifts walking in that container every fifteen minutes. So even though leaving the room early was breaking protocol, I decided to go look for Sandra.
 
 I walked down the hall, noticing a door open down the way. Doors weren’t open here. Doors were never open here. I glanced in the room, and saw the lamp was broken, and there had been signs of a struggle.
 

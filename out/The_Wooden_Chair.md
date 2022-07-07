@@ -16,6 +16,8 @@ I couldn't move, couldn't think, couldn't react on any impulse beyond the paraly
 
 I laid down on the floor on the opposite end of the room, as far away from the door as I could.  I started to get angry, wondering why anyone would do such a thing.  My sister liked to scare me when we were little, but that was a long time ago.  I felt a bit more comfortable now.  I huddled myself in the covers and layed back in the pillow, staring at the ceiling from the floor, and then I had a horrifying revelation - I'd never told anyone about the dreams.
 
-How could they have known to move the chair? I covered myself up and and tried to get to sleep.  I awoke during sunup, and I could hear Mom and Dad talking in the kitchen.  Then, I felt fingers tracing up and down my back.  Still half asleep, I kept shooing sissy away, and told her I'd be up soon, and to leave me be.  
+How could they have known to move the chair? I covered myself up and and tried to get to sleep.  I awoke during sunup, and I could hear Mom and Dad talking in the kitchen. I smelled sausage broiling in the greasy pan and syrup.  The familiar sensation of home seeped back into me. Then, I felt fingers tracing up and down my back.  Felt her breath on my neck.  She'd often try and wake me up in the summer.  Still half asleep, I shooed sissy away, and told her I'd be up soon, and to leave me be.  
 
 Then I heard her outside playing, and realized I was lying right next to the underside of the bed.   I ran out screaming.  My family laughed it all off.  However I recognize that I'm trapped.  I don't know what this boy wants, nor how to get rid of him.  The Lord's Prayer just seems to anger him.  Perhaps I ought to pray to the devil.
+
+I still have yet to sleep another night, and all I can ask myself is one single question — if the chair was up against my bed last night, then what could possibly come next?
