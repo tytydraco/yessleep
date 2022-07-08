@@ -2,7 +2,7 @@ I still have my decorations up. People keep saying that I’m crazy, but no one 
 
 But it seems like it’s been getting worse and worse every year…
 
-I still remember that day. The day that changed me forever—Halloween. I know it’s July, but it doesn’t matter. Holiday’s are one of our most common rituals and I’ve learned to fear what they protect us from. I’m here to warn you. And I hope my story sparks an interest in your heart that may one day save your life. 
+I still remember that day. The day that changed me forever—Halloween. I know it’s July, but it doesn’t matter. Holidays are one of our most common rituals and I’ve learned to fear what they protect us from. I’m here to warn you. And I hope my story sparks an interest in your heart that may one day save your life. 
 
 I guess I’ll get right into it…
 

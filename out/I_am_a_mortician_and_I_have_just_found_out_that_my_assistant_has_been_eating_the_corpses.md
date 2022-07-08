@@ -66,7 +66,7 @@ He looked at me and he started to stammer.
 
 He tensed up a bit, and for a brief moment, I saw anger flash in his dull green eyes.
 
-"I can't help it Brett! I... I space out and I..."
+"I can't help it Ellis. I... I space out and I..."
 
 "No Brett! I'm calling the police, you need serious fucking help man."
 

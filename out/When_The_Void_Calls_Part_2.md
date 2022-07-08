@@ -1,5 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/vsc7ji/when_the_void_calls_part_1/)  
-
+[Part 1](https://www.reddit.com/r/nosleep/comments/vsc7ji/when_the_void_calls_part_1/)
 
 Brittany and I carried on our affair for much longer than I ever expected.
 
@@ -61,4 +60,7 @@ I was released from the hospital a week later. The doctors told me that there wa
 
 I was over the moon when I checked my Facebook a couple days later and saw Brittany had sent me a friend request. I accepted it immediately. Along with the request, she'd sent a message.
 
-"Hey! I'm out of the hospital now. Now that we're both out, I have to ask... have you seen Him yet?"
+"Hey! I'm out of the hospital now. Now that we're both out, I have to ask... have you seen Him yet?"  
+
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vtx9tn/when_the_void_calls_part_3/)

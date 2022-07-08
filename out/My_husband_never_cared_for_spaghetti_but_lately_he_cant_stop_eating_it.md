@@ -64,7 +64,7 @@ I stood, horrified and grieved as my husband's limbs stretched, brown skin turni
 
 I burst through my front door at the same time as one of my neighbors. She was a teenager, no older than 16. She screamed at something in her doorframe, then flinched as she was covered in stringy bits of blood and pasta. Behind me, a wet slithering caught my attention. Whatever was left of Jackson's corpse was alive, and it was coming for me. I looked back to the girl, only to find her struggling on the ground, tendrils of pasta coming to wrap around her neck.
 
-The tendrils behind me pulsed then lunged, and I jumped out of the way. I jumped over them back into the house to get my keys and nearly tripped as I ran back off the porch to the car. I got in and started it, my bare feet pushing down on the gas pedal as I peeled out of the driveway and away from my home. 
+The tendrils behind me pulsed then lunged, and I jumped out of the way. I lept over them back into the house to get my keys and nearly tripped as I ran back off the porch to the car. I got in and started it, my bare feet pushing down on the gas pedal as I peeled out of the driveway and away from my home. 
 
 It was chaos outside, people clutching their stomachs and bursting from the inside out, masses of pasta slithering across the sidewalk and strangling whoever was in their way. I kept driving and then I saw it, long thick ropes of pasta stretching across the asphalt and leading into one building. 
 
