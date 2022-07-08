@@ -64,7 +64,7 @@ After he leads them to the edge of the boat, the fat man secures the tank on his
 
 Turning to the other sailor with a frown, the fat man seems to ask a question; this elicits a sheepish, embarrassed shrug from the taller man, at which point the duo engage in an exaggeratedly choreographed fight. They then grab hold of the diver’s tether in the following scene, working to pull him to the surface before laboriously lifting him up by the legs and dragging his corpse onto the deck. His helmet is lifted off to unveil his lifeless expression and eyes rolled back.
 
-The final focuses upon the fat sailor shaking the oxygen tank, then cutting it open to reveal that it was filled with rocks the entire time. He turns to his cohort with a scowl, who scratches his head and makes a puzzled face before they both performatively sigh in unison and shake their heads.
+The final scene focuses upon the fat sailor shaking the oxygen tank, then cutting it open to reveal that it was filled with rocks the entire time. He turns to his cohort with a scowl, who scratches his head and makes a puzzled face before they both performatively sigh in unison and shake their heads.
 
 **Title:** Last Dance
 
