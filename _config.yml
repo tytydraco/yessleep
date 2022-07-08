@@ -1,1 +1,8 @@
-theme: jekyll-theme-tactile
+title: yessleep
+description: A r/nosleep scraper and publisher in Markdown format
+url: https://tytydraco.github.io/yessleep
+github_username: tytydraco
+
+# Include files prefixed by underscores
+include:
+  - _*.md
