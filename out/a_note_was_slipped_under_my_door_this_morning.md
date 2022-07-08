@@ -1,0 +1,13 @@
+This   morning I woke up and made my usual coffee and toast. It was hot and   humid out, a typical July in the Midwest. I don't usually go to the   front door in the morning-- no reason if I'm not going anywhere-- but   today I heard a thump by the door, so I went to check. I thought it   might have been an animal or something, or maybe a package hitting the   door. To my surprise, there wasn't anything on the porch, no matter how   hard I looked. When I looked down, though, I saw it. A note, folded on   college-ruled notebook paper like a student wrote it. Looking at it, it   wasn't creepy or foreboding or anything like that, but when I read it,   well...
+
+Here's the note:
+
+Hi,   you don't know me, but I know you. I've known you for a while. Three   years, now. It is of upmost importance that you read this note   carefully. There is somebody watching you, somebody who has been   watching you for a long time, maybe you've noticed them here and there,   in your peripheral vision, in the shadows, in the dark. You would have   noticed them more when you were a kid. They were the monster under the   bed, in the closet. The eyes you saw in the dark outside your window.   The rustling you heard in the woods.
+
+Anyway.   You know who I'm talking about. Maybe you don't know you know, but you   know. You turned 21 a few months ago. That's when they started again  in  earnest, that's when you started noticing them again, like when you  were  a kid. They've been outside your windows, following you at the  grocery  store, hiding behind trees and watching you on your walks.
+
+They've   been in your house. I know because I saw them go in, through the  second  story window. I never saw them go out, so they might still be in  there.  With you. It is VERY important that you don't freak out right  now.
+
+Here's  what you need to do:  continue on as normal until 12:15 p.m, have your  coffee, have your  toast, watch the news for a bit and then your show.  Send your emails,  text your friends. Do not call anybody. Do not tell  anybody about this  note. Do not throw this note away, keep it in your  pocket. When 12:15  hits, walk calmly out the door. Go to your car. Get  in. Start the car.  Drive until you get to your favorite gas station.  Once there, get out  of the car. I will be there, waiting. I'll tell you  the rest when we  meet.
+
+That's it,  the end of the  note. It's 11:15 as I write this. I don't know what to  do. I can't stay  in the house with that thing, person, whatever it is,  whatever they  are. But, I can't just go to the gas station and meet  somebody who has  been watching me for three years, either. I have an  hour to decide.
