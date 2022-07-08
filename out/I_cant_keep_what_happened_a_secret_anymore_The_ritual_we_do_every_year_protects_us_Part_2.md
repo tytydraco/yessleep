@@ -5,7 +5,7 @@ I can’t sleep. The lights keep me awake at night; a dull orange glow pulsating
 
 And the buzz. The piercing white noise of electrical current flowing through dim lightbulbs. For months my decorations have been… safeguarding me. I don’t know if I’m crazy, but I know the ritual must continue. I can feel it in my heart. There has to be a reason to why we do these things.
 
-### Don’t you ever wonder?
+Don’t you ever wonder?
 
 It’s nearly been a full year and I can’t get what happened out of my mind. Celebrating Halloween every day has definitely taken a toll on my personal life, I haven’t gotten laid since… fuck it. I’m still alive. Besides, I can’t even get it up anymore. Waste of time anyway. 
 
