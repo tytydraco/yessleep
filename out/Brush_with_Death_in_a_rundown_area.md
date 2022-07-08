@@ -1,0 +1,13 @@
+This happened a couple of months ago. I live in a fairly large city on the East Coast. I'd been out for a couple of drinks after work but taking it easy on the beer as I was back in the next day. Finished up and decided to walk a few blocks to get the bus instead of getting a cab. It's night at this point. No stars. When I get to the bus stop I see a sign posted saying the route has been changed. Great.  
+  
+It's at this point I realise I've not really seen any cars go past for a while. And the street is deserted. The hairs on the back of my neck start prickling. There's such a strong sense of eyes on me. Staring and staring. I start walking and abruptly decide cut left onto a parallel street via an alleyway.
+
+When I come out of the alley I feel better. The bus stop for another route is on the block ahead so I start walking. After a moment I realise there's about woman about 10 yards in front of me heading in the same direction. We walk in tandem for a half minute when she looks round over her shoulder and there's a look of terror on her face that makes my blood run cold.  
+  
+I realise in that instant that there's something behind me.  
+  
+And she's seen it.  
+  
+Suddenly she bolts into a sprint, flat shoes hammering pavement. I don't waste time looking behind me at whatever it is. Adrenaline takes over and I start running in the same direction. She's really moving. After a few minutes i realise I'm in a part of town I don't recognise. She zigs and zags across streets and down some narrow pathways. I follow, trusting her instincts to navigate us out of this. I try to scream "I think we're okay!" but the booze and shortness of breath makes it come out as a sort of strangled, "Ithunkwerogay!!". But we must not be out of danger because suddenly she screams and jumps over a small fence into a darkened playground. It must be right on top of us. I mirror her moves and aim for the fence. I'm not athletic but instinct takes over and I vault it like a gymnast. I reach out a hand to her shoulder as a way of saying "great moves, buddy!" but she lets out another wail and I kick myself for being overly optimistic. Shit, are we going to die???  
+  
+She jumps the wall at the other end of the park. Disaster, she makes it over but I catch my knee on a lip and crash onto the curb. The last thing I see is my temporary comrade frantically pounding the door of a taxi and throwing herself inside. Better one of us makes it. She speeds off into the night. I turn around and whatever was chasing us is gone. A lucky escape but I still wonder how close death and danger was on our heels that night.

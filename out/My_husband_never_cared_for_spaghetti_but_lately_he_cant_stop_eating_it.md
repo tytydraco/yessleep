@@ -20,7 +20,7 @@ I ordered a standard spaghetti and meatballs for the both of us and watched with
 
 He was crying.
 
-Like actually crying. His shoulders were shaking, and he was sniffling, and he looked up at me while tears streamed down his cheeks. "This," he began, "This is what I've been looking for," he said, wiping his cheeks with his sleeves, "for my entire life." he said, then let out a sob that startled me. I stood up from my seat and placed a hand on his shoulder, but he shook it off and continued to shovel forkfuls of lukewarm pasta and bland sauce into his mouth. I sat back in my seat and watched in awe.
+Like actually crying. His shoulders were shaking, and he was sniffling, and he looked up at me while tears streamed down his cheeks. "Mikey," he began, "This is what I've been looking for," he said, wiping his cheeks with his sleeves, "for my entire life." he said, then let out a sob that startled me. I stood up from my seat and placed a hand on his shoulder, but he shook it off and continued to shovel forkfuls of lukewarm pasta and bland sauce into his mouth. I sat back in my seat and watched in awe.
 
 He didn't say a word on our drive back home. I asked if he was ok as he climbed into bed. He just stared at me for a minute before smiling and saying, "I've never been better, Mikey."
 
@@ -30,9 +30,9 @@ He stayed rooted to the computer chair all day and didn't get up until dinner ro
 
 It continued like this for a while and became more frequent too. Jackson would spend hours on the computer after work, and all day on it during weekends. He never went out on walks or offered to take me to some obscure bagpipe concert he found online or anything. He ate Spaghetti Teddy's at least one meal every day and, oddly... stopped going to the bathroom as often as he should. 
 
-He started wearing the strainer on his head a month or so after our first visit there. I thought he was just joking at first but then... he didn't stop wearing it. He just walked out the door with it one day for work, and I had to do a double-take. I ran out the door after him and told him that he'd forgotten to take the strainer off. He smiled at me over the top of the car and said "I'm not afraid of what other people think Mikey." he said and got in his car, and left while I stood bug-eyed on our front porch.
+He started wearing the strainer on his head a month or so after our first visit there. I thought he was just joking at first but then... he didn't stop wearing it. He just walked out the door with it one day for work, and I had to do a double-take. I ran out the door after him and told him that he'd forgotten to take the strainer off. He smiled at me over the top of the car and said "I'm not afraid of what other people think Mikey," and got in his car, and left while I stood bug-eyed on our front porch.
 
-It kept getting worse over the next few months. Eventually, Jackson wouldn't eat anything but Spaghetti Teddy's. And around town I started seeing them, people with strainers on their heads. Spaghetti Teddy's got more and more popular around town, to the point where the line would be out the door and onto the street. Because of this, it meant that Jackson would spend hours waiting in line, multiple times a day, for mediocre, lukewarm spaghetti.
+It kept getting worse over the next few months. Eventually, Jackson wouldn't eat anything but Spaghetti Teddy's. And around town I started seeing them, people with strainers on their heads. Spaghetti Teddy's got more and more popular, to the point where the line would be out the door and onto the street. Because of this, it meant that Jackson would spend hours waiting in line, multiple times a day, for mediocre, lukewarm spaghetti.
 
 I know what you're thinking but I honestly couldn't do anything to stop him. I tried convincing him to eat something, anything but Teddy's... but he just pushed it away. 
 

@@ -2,8 +2,6 @@
 
 &#x200B;
 
- 
-
 I took a sip of my coffee. Its bitter taste washed down my throat as I gazed upon the seemingly endless wasteland of the dark night. The gentle dance of the moonlight on my skin was something that was a benefit of working the night-shift. Other than the money, of course. No one would go out of their way to spend a night working, especially when you consider who you work for and what their business is.
 
 “Horthy!”
@@ -156,7 +154,7 @@ It was subject-7
 
 Subject-7 is a large predatory arachnid of the Scorpions family. While it belongs to the family of scorpions, it has a few key differences. Its size is that of a bicycle, while its size is not enough to cause any major dangers on its own, it still possesses an extremely poisonous stinger. Its claws are sharp and while they are incapable of cutting through bones or dense muscles and flesh, they are mostly used to pin down its prey and inject the venom into it.
 
-Its eyesight is similar to one which we, humans possess. Its almost def and its smelling is also similar to ours. While we state that it's almost def, it still can and will hear loud noises or people trying to sneak up on him.
+Its eyesight is similar to one which we, humans possess. Its almost deaf and its smelling is also similar to ours. While we state that it's almost deaf, it still can and will hear loud noises or people trying to sneak up on him.
 
 The venom is a muscle and nerve damaging chemical which after around 5-8 minutes(depends on person's size, weight, poison resistance, etc.) the victim’s muscles stiffen up to the level usually said to be around rigor mortis.(the state when a victim has been dead for hours or even a day and muscles stiffen up to a degree where even moving a finger becomes near impossible.)
 
