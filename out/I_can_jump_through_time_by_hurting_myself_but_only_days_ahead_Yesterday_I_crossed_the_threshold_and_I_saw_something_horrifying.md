@@ -324,7 +324,9 @@ That I hadn't been scooped out of my body, like I didn't matter–  and put to 
 
 I didn’t have a mouth to scream with, or a body to feel panic. But I did. I felt it deep, deep inside of me, pushing me further and further over the edge. I was screaming into my own head, and I didn’t stop until I felt it. 
 
-Pain. Real, genuine pain rattling my body. Oh god, my body. It was like coming up for air. When I opened my eyes, I was still screaming, curled up in my mother’s lap. My arm was still bleeding, and my mom was sobbing, struggling to wrap a bandage around it, but I could still feel how cold I’d been, the empty hole in my head getting deeper and deeper. Ignoring mom, and getting to unsteady feet, I found my laptop. I could still hear the melody of the song the girl had asked me to play. 
+Pain. Real, genuine pain rattling my body.
+
+Oh god, my body. It was like coming up for air. When I opened my eyes, I was still screaming, curled up in my mother’s lap. My arm was still bleeding, and my mom was sobbing, struggling to wrap a bandage around it, but I could still feel how cold I’d been, the empty hole in my head getting deeper and deeper. Ignoring mom, and getting to unsteady feet, I found my laptop. I could still hear the melody of the song the girl had asked me to play. 
 
 “Clara?” Mom was in my face, but I couldn’t explain it to her.  
 
