@@ -190,8 +190,6 @@ I have been very careful not to let him know I have been writing this. But I fea
 
 Because every hour I sit near him, my hands have been wrinkling up.
 
-Like prunes.
+[Like prunes.](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/)
 
 [SK](https://www.reddit.com/r/SimbaKingdom/)
-
-[X](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/)
