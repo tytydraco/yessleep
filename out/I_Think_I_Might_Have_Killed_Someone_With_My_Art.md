@@ -1,6 +1,10 @@
-Part 1
+Part One
 
- In a few minutes, this document will be the only *real* account left of the events that have plagued my community for the last two weeks. I stand in the center of these beat-up old stairs, gazing out an oddly placed window at a moon that resembles a ghoul, an omnipotent monster staring down at me in judgment. If I needed a sign, I’d say that’s it. I don’t need a sign, though; I’ve arrived at my current destination by pure fate. Tonight will most likely be the last I spend on Earth.
+(Part Two is [HERE](https://www.reddit.com/r/nosleep/comments/vs5mu6/i_think_i_might_have_killed_someone_with_my_art/))
+
+(Part Three is [HERE](https://www.reddit.com/r/nosleep/comments/vt3c90/i_think_i_might_have_killed_someone_with_my_art/))
+
+In a few minutes, this document will be the only *real* account left of the events that have plagued my community for the last two weeks. I stand in the center of these beat-up old stairs, gazing out an oddly placed window at a moon that resembles a ghoul, an omnipotent monster staring down at me in judgment. If I needed a sign, I’d say that’s it. I don’t need a sign, though; I’ve arrived at my current destination by pure fate. Tonight will most likely be the last I spend on Earth.
 
 For the record, I don’t believe in fate, and I sure as hell don’t believe in suicide. That said, once you hear my story, I’m pretty sure you’ll agree there’s no other way to interpret or end this living hell in which I find myself trapped. So where does that leave me and my beliefs?
 
@@ -38,7 +42,7 @@ Curious, I continued to play it cool. Inside the vial, a viscous, purple substan
 
 “The drug in the movie didn’t look anything like this. How would I even ingest this?”
 
-Portlock smiled, confident he had piqued my interest. 
+Portlock smiled, confident he had piqued my interest.
 
 “For the movie, I had to take some liberties. There are… proprietary issues.”
 
@@ -60,7 +64,7 @@ Yeah. For art.
 
 I agreed but didn’t hear from Benjamin again until after *Primordial’s* premiere nearly a year later. A Tuesday night showing on opening day of that year’s Beyondfest, it proved a thrill to see my work on the big screen at Hollywood’s historic Egyptian Theatre. Benjamin accosted me in the lobby afterward, surrounded by what I can only describe as a squadron of yes men and secret service-looking motherfuckers. It made me wonder just who this guy was in the “real” world. He shook my hand, squeezed my shoulder and actually patted my ass not once but twice. Later, one of his henchmen found me in the bathroom and handed me a posh velvet bag embroidered with a strange, cross-like design. Inside I found a bottle of purple, Syrian Brandy, a watch engraved with the same symbol, and a large, ornate key that’s bow shared the shape of the symbol on the bag.
 
-It was at that premiere that I met Carissa from *Shock*. She introduced herself to me while I stood around waiting to talk with Justin. I never ended up getting more than a quick pat on the back and an urgent, whispered, “We’ll talk,” from him while he made the rounds playing smiley glad-hands. 
+It was at that premiere that I met Carissa from *Shock*. She introduced herself to me while I stood around waiting to talk with Justin. I never ended up getting more than a quick pat on the back and an urgent, whispered, “We’ll talk,” from him while he made the rounds playing smiley glad-hands.
 
 “Don’t take it personally, that’s just Portlock.”
 
@@ -68,17 +72,17 @@ Carissa was covered in ink, stood about six-foot-three, and had straight, dark b
 
 Those two weeks laid the foundation for both of us to quit our day jobs. For the first time, I was able to devote one hundred percent of my time to my art. This was without a doubt the most productive period of my career, and looking back on it now I wish I had realized it wouldn’t last.
 
-That was not the case, though. Instead, I relied on a regular curriculum of cocaine and alcohol to keep me painting. And while my name accumulated a certain degree of notoriety in both the Horror and Indie film communities, the rest of the world remained closed off to me because of my association with those same subcultures. 
+That was not the case, though. Instead, I relied on a regular curriculum of cocaine and alcohol to keep me painting. And while my name accumulated a certain degree of notoriety in both the Horror and Indie film communities, the rest of the world remained closed off to me because of my association with those same subcultures.
 
-Things stayed at this new status quo for months, *Shock* a permanent home to my work and Carissa increasingly the only person I would confide in. The rest of the world felt... hostile. My family was back East, and the friends I’d made since moving to LaLaLand had become increasingly standoffish. Jealousy, Carissa suggested, and it was easier to believe that than admit what an arrogant cunt success had made of me. 
+Things stayed at this new status quo for months, *Shock* a permanent home to my work and Carissa increasingly the only person I would confide in. The rest of the world felt... hostile. My family was back East, and the friends I’d made since moving to LaLaLand had become increasingly standoffish. Jealousy, Carissa suggested, and it was easier to believe that than admit what an arrogant cunt success had made of me.
 
 Then came that meeting with Portlock about the sequel.
 
-So there’s the little glass vial in front of me, and despite my curiosity, I said no. Justin didn’t like that at all. He downed the rest of his Glenfiddich and excused himself to the restroom. I should have seen it coming, but twenty minutes later I was paying the tab and leaving empty-handed. Well, not completely empty-handed - he’d left the vial. 
+So there’s the little glass vial in front of me, and despite my curiosity, I said no. Justin didn’t like that at all. He downed the rest of his Glenfiddich and excused himself to the restroom. I should have seen it coming, but twenty minutes later I was paying the tab and leaving empty-handed. Well, not completely empty-handed - he’d left the vial.
 
-I hired a car back to *Shock* and sat transfixed by the stuff in the vial the entire ride, the headlights of oncoming traffic illuminating it in brief blue and purple flashes. Whatever it was seemed to move of its own accord, a viscous purple demon suspended in what looked like water, but I was betting was alcohol - the kind you used to strip paint with. It looked like something a muppet might get blasted on. I tried to remember the name Justin had used for it, but couldn’t. Instead, my mind gave the stuff a nickname: Lava - like the lamp it resembled. 
+I hired a car back to *Shock* and sat transfixed by the stuff in the vial the entire ride, the headlights of oncoming traffic illuminating it in brief blue and purple flashes. Whatever it was seemed to move of its own accord, a viscous purple demon suspended in what looked like water, but I was betting was alcohol - the kind you used to strip paint with. It looked like something a muppet might get blasted on. I tried to remember the name Justin had used for it, but couldn’t. Instead, my mind gave the stuff a nickname: Lava - like the lamp it resembled.
 
-When I got back to Carissa’s little living space in the rear of the gallery, I found a note that she’d be out late. Whatever - we certainly didn’t have anything exclusive, and I needed time to work. I fired up the paints, cracked two beers - I always open two at the onset of a session - and tried to continue a new piece I’d been struggling with. My juices had been dry of late, though, and I found myself distracted by the mystery Portlock had foisted on me. It only took about a beer and a half for my frustrations to get the better of my inhibitions, and the cap came off that vial. 
+When I got back to Carissa’s little living space in the rear of the gallery, I found a note that she’d be out late. Whatever - we certainly didn’t have anything exclusive, and I needed time to work. I fired up the paints, cracked two beers - I always open two at the onset of a session - and tried to continue a new piece I’d been struggling with. My juices had been dry of late, though, and I found myself distracted by the mystery Portlock had foisted on me. It only took about a beer and a half for my frustrations to get the better of my inhibitions, and the cap came off that vial.
 
 The lid was a screw-on, closed so tightly that it took me the better part of fifteen minutes to open it. Once I did, though, and the contents became exposed to the open air, all the liquid receded. I was confused, thinking there was a hole in the glass that the lid had somehow held in a vacuum, but no dice. I couldn’t for the life of me figure out *where the solution went*.
 
@@ -86,7 +90,7 @@ Without the suspension fluid, the contents dried up quickly. I mean, like, *inst
 
 From here, there was no going back. Yeah, it takes a special kind of moron to witness something like I’m describing and want to put it up their nose, but here we are and there I was. There’s just a part of my brain that finds it hard to say no to new drug experiences. I procured a credit card from my jacket pocket and chopped out two Ozzy-sized lines.
 
-It’s hard to look back and accurately describe what that first Lava trip felt like. In my mind’s eye, I can vividly remember walking down a street in a thick, rolling fog. To my right, I could just barely make out the tall, chainlink fence that surrounded the iconic Silver Lake Reservoir. On my left, a broken-blacktop road wound upward on a small hill, cars parked along both sides and rendering a single lane hardly big enough for one car to pass, let alone two. 
+It’s hard to look back and accurately describe what that first Lava trip felt like. In my mind’s eye, I can vividly remember walking down a street in a thick, rolling fog. To my right, I could just barely make out the tall, chainlink fence that surrounded the iconic Silver Lake Reservoir. On my left, a broken-blacktop road wound upward on a small hill, cars parked along both sides and rendering a single lane hardly big enough for one car to pass, let alone two.
 
 The neighborhood looked vaguely familiar. I strolled drunkenly down the center of the street counting porch lights until I found myself at a dead end. To my left, the sconce beside a large, double red front door flickered on and off. Strange, but I could swear this intermittence didn’t occur *until I noticed the house,* as though the house had chosen me.
 
@@ -104,7 +108,7 @@ Justin’s words heralded a darkness that, when I finally opened my eyes, reveal
 
 “Renn?”
 
-The image dissolved. My stomach dropped. I tried to stand but lost my balance and fell onto my hands and knees, expelling the contents of my stomach in one Herculean blast of vomit that hit the floor in front of me with such force, chunks ricocheted back at me, splashed against my face and neck. 
+The image dissolved. My stomach dropped. I tried to stand but lost my balance and fell onto my hands and knees, expelling the contents of my stomach in one Herculean blast of vomit that hit the floor in front of me with such force, chunks ricocheted back at me, splashed against my face and neck.
 
 “Renn! Jesus!”
 
@@ -112,11 +116,11 @@ I collapsed onto my side, rolled over onto my back and lay staring at the ceilin
 
 At some point, my senses relaxed and I once again became able to interact with my immediate surroundings. It was at this point I realized the look on Carissa’s face was not one of horror, but excitement.
 
-“Renn, this is *incredible*, baby!” 
+“Renn, this is *incredible*, baby!”
 
 Beside her, one of the new canvases Carissa had given me lay face-up on the floor, a hyper-realistic portrayal of the family room from my dream stretched across its surface - a room painted in blood, in the foreground the Red Woman from my vision, her neck slashed open and eyes gouged out.
 
-I felt sick. 
+I felt sick.
 
 “This is us rich, baby!”
 
