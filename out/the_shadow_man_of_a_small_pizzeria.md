@@ -1,0 +1,17 @@
+So I work at a pizza place that is like a three minute drive to a very haunted cemetery that was on ghost adventures at one point. We are also on a very busy road that has at least seen two deaths every month from drunk drivers, so I don't know if the shadow figure who watches us came from. I've only been working at the pizza place for a year, and almost every night he does something.
+
+He's a tall figure that I've heard speak sometimes. One time, both my managers had to leave, so they put me in charge of closing. I was pretty cool with that because who wouldn't want to blast their favorite music in the dining room speakers? So I saw someone in the kitchen, just staring at me and I heard a males voice asking me if I've cleaned the bathrooms. It didn't click in my mind it wasn't my manager because it was four am and I just got through a ten hour shift running off a monster and a slice of pizza. I looked up to see a tall man in the kitchen slowly into the darkness of it all. So I was like what the fuck and waited outside .
+
+Another time was when I was helping a customer carry out around 6 of our biggest pizzas and some of our food on our catering menu. Without giving away where I work, two of those pizzas could feed a class of twenty with a decent sized slice. Her car was in the back of our parking lot, which is always an absolute mess. While walking I felt the same feeling I feel around the spirit telling me to stay by the car for a couple a seconds to help the customer make sure evening is secure. I think he saved my life when a car came in speeding and nearly hit someone. It may be stupid bit I feel like I would have been killed.
+
+I don't think this spirit is evil. I just think the spirit may be lost or something . The building isn't old at all. I'm now only thinking about this because I was talking to my two managers about this. I'll share their stories since I'm certain they don't use reddit.
+
+So I'm going to call my manager Daisy. Daisy would do her run around before leaving to make sure everything is clean for the morning shift. She says that she always felt followed and that feeling is always followed up by some of our trays being thrown to the floor. Nothing was ever thrown at her, though. I feel like he's just trying to grab her attention. Or when she's sitting in the dining room doing paperwork, she absolutely refuses to look in the kitchen or any of the mirrors because even if he may be friendly, it's still unsettling.
+
+I never interact with the spirit because I'm scared that it could get dangerous even if he's friendly. I refuse to even close by myself. Should I even be worried about
+
+
+
+I don't think this spirit is evil. I just think the spirit may be lost or something . The building isn't old at all. I'm now only thinking about this because I was talking to my two managers about this. I'll share their stories since I'm certain they don't use reddit.
+
+So I'm going to call my manager Daisy. Daisy would do her run around before leaving to make sure everything is clean for the morning shift. She says that she always felt followed and that feeling is always followed up by some of our trays being thrown to the floor. Nothing was ever thrown at her, though. I feel like he's just trying to grab her attention. Or when she's sitting in the dining room doing paperwork, she absolutely refuses to look in the kitchen or any of the mirrors because even if he may be friendly, it's still unsettling.

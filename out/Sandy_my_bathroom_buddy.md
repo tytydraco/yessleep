@@ -142,7 +142,7 @@ The darkness retreated and I could just make out a hint of Mark's jeans as they 
 
 My bathroom door was open, the darkness entered. I saw eight glowing spheres as the light from the hallway reflected from them, and Mark hung like a rag doll from large mandibles. Then the door slammed shut.
 
-I was quite literally frozen in place. I couldn't move or comprehend what I had seen. It took my a good couple of hours before I sat up, my neck aching for the second time in as many weeks. 
+I was quite literally frozen in place. I couldn't move or comprehend what I had seen. It took me a good couple of hours before I sat up, my neck aching for the second time in as many weeks. 
 
 I managed to get myself to the kitchen, my eyes fixed on the bathroom door before it was out of sight. I ran the tap and rinsed the blood from my trembling left hand, then splashed water onto my face. 
 
@@ -164,6 +164,6 @@ She lived with me for a few more months, after which she died. I found her body 
 
 It wasn't all sad though, in death she left a gift in another tiny cocoon. 
 
-Today an uncountable amount of spiderlings hatched. As if it was planned that way, only one of them made a home in my bathroom. It has taken residence in the very corner of the doorframe where it was born, my new yet to be named guardian. The rest of them found their way out of the bathroom window. 
+Today an uncountable amount of spiderlings hatched. As if it was planned that way, only one of them made a home in my bathroom. It has taken residence in the very corner of the doorframe where it hatched, my new yet to be named guardian. The rest of them found their way out of the bathroom window. 
 
 If you happen to live in my neighbourhood, you too could find yourself with your very own bathroom buddy very soon.
