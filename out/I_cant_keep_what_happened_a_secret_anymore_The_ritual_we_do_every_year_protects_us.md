@@ -30,6 +30,4 @@ It stared at me. Into me. Through me. And then… it smiled at me. I was frozen,
 
 They say that we dress up once a year to scare the evil spirits away, and offer treats to pacify them. A ritual. So now, I celebrate Halloween every-single-day. I want to protect us… I want to protect you. Happy Halloween…
 
-Part 2:
-
-https://www.reddit.com/r/nosleep/comments/vu0qzz/i_cant_keep_what_happened_a_secret_anymore_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+Link: [Part 2](https://www.reddit.com/r/nosleep/comments/vu0qzz/i_cant_keep_what_happened_a_secret_anymore_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

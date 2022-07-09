@@ -48,3 +48,5 @@ Give it treats, or lose your life
 No way to run, no place for light”
 
 Stupid poem… soon, I’ll make my way in there. I guess it can’t hurt to have a pocket full of candy. Halloween is only a few months away.
+
+Link: [Part 3](https://www.reddit.com/r/nosleep/comments/vuwvjk/i_cant_keep_what_happened_a_secret_anymore_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
