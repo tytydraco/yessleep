@@ -161,7 +161,7 @@ How much time had passed? Why wasn’t I jumping back?  
 
 “You tell me.” 
 
-I'm not sure what relief would have left like when I didn’t have a body, but at that moment it was the tiniest splinter of light was slicing through. The voice was male—a guy my age. I didn’t know what to say at first. I wanted to laugh, cry, scream at him. I wanted to ask him his name, his age, where he went to school. I wanted to ask him more than I ever could. Instead, though, all that would slip from my phantom mouth was, “You’re here too?”  
+I'm not sure what relief would have felt like when I didn’t have a body, but at that moment it was like the tiniest splinter of light was slicing through. The voice was male—a guy my age. I didn’t know what to say at first. I wanted to laugh, cry, scream at him. I wanted to ask him his name, his age, where he went to school. I wanted to ask him more than I ever could. Instead, though, all that would slip from my phantom mouth was, “You’re here too?”  
 
 He sighed, and his sigh rattled, echoing off the walls. “Yeah. Though I don’t exactly know where ‘here’ is. Those guys aren’t talkers.” 
 
@@ -253,14 +253,17 @@ And if this was 2022…How far forward was this in my future? 
 
 Before I could speak, the door opened. 
 
-Footsteps, followed by a tinny ringing noise, and feedback from something I couldn’t see. It hit me, and I resisted against a cry. 
+Footsteps, followed by a tinny ringing noise, and feedback from something I couldn’t see.
 
+It hit me, and I resisted against a cry. 
 
 “Fuck!” Kenji yelled, “What was that?” 
 
 His voice was fading, and so was I. 
 
-Without a body, I was weightless, as my brain bled into oblivion. But it wasn’t just my thoughts. I saw flickers of my life flash in front of my eyes, only to be drowned, eaten up, by the rapidly growing tumour inside my head.  I was falling— and everything I was splintering. Just like Kenji said. 
+Without a body, I was weightless, as my brain bled into oblivion. But it wasn’t just my thoughts. 
+
+I saw flickers of my life flash in front of my eyes, only to be drowned, eaten up, by the rapidly growing tumour inside my head.  I was falling— and everything I was splintering. Just like Kenji said. 
 
 The name of my mother was suddenly lost, every instance before I was eighteen years old. Every birthday and Christmas, every I love you, I hate you, I don’t want to lose you. All of it. In my panic, as I struggled to pull away from the black hole which was growing inside my mind, I thought I was jumping back, but instead, I was jumping forward.  
 
@@ -284,7 +287,7 @@ So fucking cold.  
 
 I remember feeling cold and hollow, wrong. Like I’d been thrust below icy depths without an anchor.  
 
-The voices came closer, and this time I didn’t have my own inside voice, my thoughts weren’t mine. They were a mess of tangled and words that didn’t make sense. There were so many voices in my head, different languages, and numbers all coming together to create a singularity which existed inside me, shoving me back into my head.  
+The voices came closer, and this time I didn’t have my own inside voice, my thoughts weren’t mine. They were a mess of tangled words that didn’t make sense. There were so many voices in my head, different languages, and numbers all coming together to create a singularity which existed inside me, shoving me back into my head.  
 
 “Hey, can I play a song?” A girl yelled.   
 
@@ -312,7 +315,7 @@ Pushing me back.
 
 “What would you like me to play?”  
 
-I didn’t hear the name of the song, she requested, but did hear the melody, a pop song. It started up, and the girl squealed. “Yes! I heard this on a Tik-Tok!” 
+I didn’t hear the name of the song she requested, but did hear the melody, a pop song. It started up, and the girl squealed. “Yes! I heard this on a Tik-Tok!” 
 
  No.  
 
