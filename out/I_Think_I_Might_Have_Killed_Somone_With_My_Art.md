@@ -24,7 +24,7 @@ By my estimate, I’d been fucking a chick old enough to be my mother.
 
 “*Its Soil Be Murder*…”
 
-Carissa nodded. 
+Carissa nodded.
 
 “Portlock’s aesthetic has always been a bit too on the nose for me, but whatever. He gets the job done and people like his style, so what the fuck do I know?”
 
@@ -42,22 +42,21 @@ I did, of course, but that wasn’t the issue. Murdering people was. I shared th
 
 “There’s a hierarchy. You only do the leg work when you first come in. Pretty soon, you’ll have others below you to do all that.”’
 
-“I’d be happy to kill for you, Renn,” Sailor breathed into my ear, his breath so hot and bothered it made all the hair on my body stand at attention. 
+“I’d be happy to kill for you, Renn,” Sailor breathed into my ear, his breath so hot and bothered it made all the hair on my body stand at attention.
 
 “No need, kid. But I’ll keep your offer in mind.”
 
-I hadn’t been paying attention to where we were going, but outside I watched the Children’s Hospital come into view on our left. Because of this, when we hooked a right I knew it was onto Hillhurst. Los Feliz? I laughed when I remembered Glenn Danzig lived there; maybe he was a fungus vampire, too. 
+I hadn’t been paying attention to where we were going, but outside I watched the Children’s Hospital come into view on our left. Because of this, when we hooked a right I knew it was onto Hillhurst. Los Feliz? I laughed when I remembered Glenn Danzig lived there; maybe he was a fungus vampire, too.
 
-There was virtually nobody on the road, so after about another six minutes and a quick succession of turns, the famous Frank Lloyd Wright “Ennis House” rose in the distance. 
+There was virtually nobody on the road, so after about another six minutes and a quick succession of turns, the famous Frank Lloyd Wright “Ennis House” rose in the distance.
 
-“You’re kidding me,” I said, realizing our destination. Mr. Happy emitted an unexpected chortle   
- as he stopped on the side of Glendower Place.
+“You’re kidding me,” I said, realizing our destination. Mr. Happy emitted an unexpected chortle as he stopped on the side of Glendower Place.
 
 “It explains more than its share of mysteries,” Carissa said, turning around in her seat.
 
-The large, Spanish-Style Mansion with a red tile roof at 2475 Glendower Place was one of the first landmarks my morbid curiosity led me to back when I first moved to Los Angeles. Colloquially known as the “Los Feliz Murder Mansion,” this was the site of multiple murders over the previous century. The most famous of these incidents occurred when Dr. Harold Perelson killed his wife Lillian with a ball-peen hammer. The good doctor then attempted to kill his oldest daughter in the same manner. He failed and subsequently offed himself with a mouthful of poison. Visiting this place was a sort of 'rite of passage' in Los Angeles, so much so that the first person I befriended in town took me the night after we met. 
+The large, Spanish-Style Mansion with a red tile roof at 2475 Glendower Place was one of the first landmarks my morbid curiosity led me to back when I first moved to Los Angeles. Colloquially known as the “Los Feliz Murder Mansion,” this was the site of multiple murders over the previous century. The most famous of these incidents occurred when Dr. Harold Perelson killed his wife Lillian with a ball-peen hammer. The good doctor then attempted to kill his oldest daughter in the same manner. He failed and subsequently offed himself with a mouthful of poison. Visiting this place was a sort of 'rite of passage' in Los Angeles, so much so that the first person I befriended in town took me the night after we met.
 
-The house had been empty since the night of the murder in December of 1959, and even still had the Perelson’s furniture and possessions inside, complete with wrapped Christmas presents no one ever got to open. Back when I went nearly ten years ago now, the place was more of a ‘locals only’ legend. Over the last few years, however, a podcast and a bunch of youtube videos had given the house national exposure in the ever-burgeoning ‘internet sleuthing’ community. I remembered hearing something about the current owner not living there but keeping the house exactly as it was. 
+The house had been empty since the night of the murder in December of 1959, and even still had the Perelson’s furniture and possessions inside, complete with wrapped Christmas presents no one ever got to open. Back when I went nearly ten years ago now, the place was more of a ‘locals only’ legend. Over the last few years, however, a podcast and a bunch of youtube videos had given the house national exposure in the ever-burgeoning ‘internet sleuthing’ community. I remembered hearing something about the current owner not living there but keeping the house exactly as it was.
 
 The house sat on a hill, a large, oddly placed window near the center of its facade revealing the staircase that led to the second floor for all the neighborhood to see. When I visited way back when, there was a path around the back of the house that we used to get inside a broken window. With Carissa leading the way, we walked directly up the driveway and through the front door.
 
@@ -69,11 +68,11 @@ The house sat on a hill, a large, oddly placed window near the center of its fac
 
 Mr. Happy nodded in response and stopped in his tracks. Meanwhile, Carissa led me, Sailor, and Bowie through the kitchen and into a small room near the rear of the house. There she opened the door to a pantry and, ducking past the shelves, into a secret passage I would never have known was there until I was already inside it.
 
-We walked forward at a slight downward grade for at least ten minutes, which suggested we had entered the hillside the house sat upon. The way was dark, lit only by a light in the distance. When we reached it, I saw the bulb was one of those mechanic lights hung from a hook in the ceiling. Just below it was an old, beat-up wood door. 
+We walked forward at a slight downward grade for at least ten minutes, which suggested we had entered the hillside the house sat upon. The way was dark, lit only by a light in the distance. When we reached it, I saw the bulb was one of those mechanic lights hung from a hook in the ceiling. Just below it was an old, beat-up wood door.
 
 “Welcome home, Renn,” Carissa said as we stepped into a cavernous open space. I immediately saw the four walls were made of stone and lined along the bottom with chest freezers positioned one after the other. In the center was a high-topped table, kinda swanky, like something you’d see in a Silverlake Gastropub. Three men sat at the stools surrounding it; two I didn’t recognize. The third was Benjamin, the Producer.
 
-“Ah, there he is!” 
+“Ah, there he is!”
 
 Benjy stood and crossed to give me a hug.
 
@@ -99,10 +98,10 @@ I nodded yes while inadvertently shivering. The bugs beneath my skin continued t
 
 “It’s a trip. There are rooms hidden all over the place. Explore. But Renn,” Carissa’s regard sharpened, “You have one hour. After that, you’re either leaving here as one of us, or you aren’t leaving. And that would be a waste of a seriously epic talent.”
 
-I nodded and excused myself past Frick and Frack, walked back through the dark passage and exited the pantry. When I emerged into the foyer, Marcus nodded politely in my direction. I knew if I made any attempt for the door, it would be a painful mistake. With no further recourse, I wandered the Mansion. 
+I nodded and excused myself past Frick and Frack, walked back through the dark passage and exited the pantry. When I emerged into the foyer, Marcus nodded politely in my direction. I knew if I made any attempt for the door, it would be a painful mistake. With no further recourse, I wandered the Mansion.
 
-And that brings us back to where we began. The idea of living longer than the standard human lifespan was, of course, appealing. But I could feel how I had changed, and was afraid of how that might continue. The Deschidere controlled me now, was changing me into someone who enjoyed the act of taking lives. Of course, that’s how  the Process live with themselves. That’s what I was saying before, about the appetites we develop despite who we think we are. 
+And that brings us back to where we began. The idea of living longer than the standard human lifespan was, of course, appealing. But I could feel how I had changed, and was afraid of how that might continue. The Deschidere controlled me now, was changing me into someone who enjoyed the act of taking lives. Of course, that’s how  the Process live with themselves. That’s what I was saying before, about the appetites we develop despite who we think we are.
 
-So what do I do? I’m standing on this iconic Los Feliz staircase, staring out the window at the ghoul in the sky, and I don’t know. My phone doesn’t have service, but it shows me forty-two minutes have passed since Carissa’s warning. The scar on my back continues to throb, and I'm pretty sure I can feel the skin around it flaking. I pictured my entire back splitting down the middle, like a seam. Part of me wants to pull off my shirt and just reach around and give it a good yank, see if my skin does come off and reveal something underneath, like the eyeball I'd painted inside my palm. Or, I could run out the clock, then try to take out as many of my new friends as possible. Another part - the part that picked a rusty old screwdriver up off the floor of one of the rooms - thinks I should puncture my windpipe or jam it through my eye hard enough to try and hit my brain. None of those sound like particularly nice ways to go, but I don’t really have a choice, do I? 
+So what do I do? I’m standing on this iconic Los Feliz staircase, staring out the window at the ghoul in the sky, and I don’t know. My phone doesn’t have service, but it shows me forty-two minutes have passed since Carissa’s warning. The scar on my back continues to throb, and I'm pretty sure I can feel the skin around it flaking. I pictured my entire back splitting down the middle, like a seam. Part of me wants to pull off my shirt and just reach around and give it a good yank, see if my skin does come off and reveal something underneath, like the eyeball I'd painted inside my palm. Or, I could run out the clock, then try to take out as many of my new friends as possible. Another part - the part that picked a rusty old screwdriver up off the floor of one of the rooms - thinks I should puncture my windpipe or jam it through my eye hard enough to try and hit my brain. None of those sound like particularly nice ways to go, but I don’t really have a choice, do I?
 
 Shit. What would you do?

@@ -4,6 +4,8 @@ Part One
 
 (Part Three is [HERE](https://www.reddit.com/r/nosleep/comments/vt3c90/i_think_i_might_have_killed_someone_with_my_art/))
 
+(Part Four is [HERE](https://www.reddit.com/r/nosleep/comments/vukghn/i_think_i_might_have_killed_somone_with_my_art/))
+
 In a few minutes, this document will be the only *real* account left of the events that have plagued my community for the last two weeks. I stand in the center of these beat-up old stairs, gazing out an oddly placed window at a moon that resembles a ghoul, an omnipotent monster staring down at me in judgment. If I needed a sign, I’d say that’s it. I don’t need a sign, though; I’ve arrived at my current destination by pure fate. Tonight will most likely be the last I spend on Earth.
 
 For the record, I don’t believe in fate, and I sure as hell don’t believe in suicide. That said, once you hear my story, I’m pretty sure you’ll agree there’s no other way to interpret or end this living hell in which I find myself trapped. So where does that leave me and my beliefs?
