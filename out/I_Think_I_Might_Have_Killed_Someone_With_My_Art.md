@@ -18,7 +18,7 @@ So why don’t I just shut the fuck up and open my veins, spare everyone the sob
 
 \*\*
 
-My name is Reno Blade, Renn to my friends. No, that’s not the name my parents gave me, but it’s how I’ve identified myself since the eleventh grade, so fuck off. I have to have a weird, edgy name: I’m an artist in L.A. - a painter by trade. I work mainly with oils, sometimes mixed media. A couple years ago I met a writer/director named Justin Portlock and my life changed. Justin liked my work so much he contacted me with a proposal to commission my stuff for his movie.
+My name is Reno Blade, Renn to my friends. No, that’s not the name my parents gave me, but it’s how I’ve identified myself since the eleventh grade, so fuck off. I have to have a weird, edgy name: I’m an artist in L.A. - a painter by trade. I work mainly with acrylics, sometimes mixed media. A couple years ago I met a writer/director named Justin Portlock and my life changed. Justin liked my work so much he contacted me with a proposal to commission my stuff for his movie.
 
 I was, in a word, ecstatic.
 
