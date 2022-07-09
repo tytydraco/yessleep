@@ -11,3 +11,13 @@ I was stupid. I should have known. When Vivian said she would do something, she 
 I ran downstairs, alarmed at what I had just heard, and walked in on a gruesome scene. First, Vivian had grabbed a pair of scissors and torn Fiona’s clothes to ribbons. Then she completely butchered the Dutch braid I had done that morning to match hers. Then, she stabbed the scissors four times into Fiona’s stomach and finally, lodged the scissors into her neck. With tears rimming my eyes I asked her why she did it. “Because I’m Vivi! Me! And no one else.”
 
 I called my husband at work and told him everything while sobbing. Silence. Then he broke it. “Honey… we only have one daughter.”
+
+[UPDATE]
+
+This happened just yesterday. After posting the original story yesterday I rapidly lost all memories of Fiona. All I remember is her name and her appearance. I’ve realized she was all in my head. Right after I got off my computer, however, something happened. 
+
+I replied to a comment saying I had been avoiding Vivian. Yesterday though I decided to play with her. She loves Barbies, but she keeps her favourite ones in her closet so she doesn’t lose them. I went downstairs to the play area where Vivian was. “Mommy! Wanna play Barbies?” I smiled. “Sure, Vivi. Go upstairs and pick out the ones you want me to play with.” She ran upstairs as fast as a 6 year old could run. Suddenly I heard a high pitched squeal and a giggle. She came back down with 2 Barbies and an ear to ear grin. “Thank you, Mommy!” she said. “For what?” I asked with an eyebrow raised. “The new doll in my closet. The big one.”
+
+I walked upstairs and peeked in her closet and sure enough, there was a new doll in her closet. It looked just like Fiona but just a little more doll-like. I know for a fact I didn’t buy that because I’ve always despised life size dolls because of how creepy they are. A car pulling into the driveway alerted me that my husband was home. I picked up the doll and carried it downstairs just in time for him to open the door. “Vivi found this in her closet. Did you buy it?” I asked. He made a disgusted face. “No, that’s really creepy. I’ll sell it online, don’t worry, I know how much you hate those things.” But as I was getting Vivi ready for bed, I heard him talking in the living room. I poked my head out and saw that he had the doll next to him on the couch with a picture book in his hands.
+
+I spoke to him about it once Vivi was asleep. “I was reading Fiona her bedtime story,” he said. That’s not even the worst part. This morning I saw him dressing it in a matching outfit to Vivi’s and putting its hair into pigtail braids.
