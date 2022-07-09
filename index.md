@@ -1,5 +1,5 @@
 ## r/nosleep archive
-file count: 3049  
+file count: 3050  
  * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
  * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
  * [12 minutes](out/12_minutes.md)
@@ -417,6 +417,7 @@ file count: 3049
  * [Fear the Day the Sun Rises in the West PART 2 short](out/Fear_the_Day_the_Sun_Rises_in_the_West_PART_2_short.md)
  * [Feathers in the Attic](out/Feathers_in_the_Attic.md)
  * [Filling in the Holes](out/Filling_in_the_Holes.md)
+ * [Filming a Serial Killers Video Diary Part 2](out/Filming_a_Serial_Killers_Video_Diary_Part_2.md)
  * [FINAL I got some meat from this weird old guy that lives in my town you wouldnt believe what I found inside of it](out/FINAL_I_got_some_meat_from_this_weird_old_guy_that_lives_in_my_town_you_wouldnt_believe_what_I_found_inside_of_it.md)
  * [Final message before I pass out](out/Final_message_before_I_pass_out.md)
  * [Final update my wifes sleepwalking has become dangerous](out/Final_update_my_wifes_sleepwalking_has_become_dangerous.md)
@@ -552,8 +553,8 @@ file count: 3049
  * [How I became an only child](out/How_I_became_an_only_child.md)
  * [How long had the watching man stood there for](out/How_long_had_the_watching_man_stood_there_for.md)
  * [How me and my friends sneaked into the biggest naval base of the country](out/How_me_and_my_friends_sneaked_into_the_biggest_naval_base_of_the_country.md)
- * [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
  * [How the sausage is made](out/How_the_sausage_is_made.md)
+ * [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
  * [How To Exist](out/How_To_Exist.md)
  * [How to Survive Camping  a strip of skin](out/How_to_Survive_Camping__a_strip_of_skin.md)
  * [How to Survive Camping  the motherless](out/How_to_Survive_Camping__the_motherless.md)
@@ -2040,8 +2041,8 @@ file count: 3049
  * [Silence is Golden](out/Silence_is_Golden.md)
  * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
  * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
- * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
  * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
+ * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
  * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
  * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
  * [Sketchy interaction with neighboor named Gary](out/Sketchy_interaction_with_neighboor_named_Gary.md)
