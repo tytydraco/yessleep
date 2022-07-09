@@ -1,4 +1,4 @@
-Link: [Part 1](https://www.reddit.com/r/nosleep/comments/vssyse/i_cant_keep_what_happened_a_secret_anymore_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+### Link: [Part 1](https://www.reddit.com/r/nosleep/comments/vssyse/i_cant_keep_what_happened_a_secret_anymore_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 
 I can’t sleep. The lights keep me awake at night; a dull orange glow pulsating on and off. On. And off. Constantly burning away the shadow from my window, then letting me drown in darkness—over, and over again. I don’t like the dark as much as I used to anymore. It almost feels like I’m not alone when the shadows of the night wrap their cold fingers around me. 
@@ -49,4 +49,4 @@ No way to run, no place for light”
 
 Stupid poem… soon, I’ll make my way in there. I guess it can’t hurt to have a pocket full of candy. Halloween is only a few months away.
 
-Link: [Part 3](https://www.reddit.com/r/nosleep/comments/vuwvjk/i_cant_keep_what_happened_a_secret_anymore_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+### Link: [Part 3](https://www.reddit.com/r/nosleep/comments/vuwvjk/i_cant_keep_what_happened_a_secret_anymore_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
