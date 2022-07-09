@@ -4,7 +4,7 @@ She was just on the edge of the doorframe, I noticed her as I stepped out of the
 
 I wouldn't say I'm scared of spiders, I'd just rather they were outside my flat as opposed to making it their own. Alright, they kinda give me the heebie-jeebies!
 
-I went to my bedroom stood looked in the mirror, studying the bruises on my neck. I could hear my mum warning me of the dangers of letting strangers into my home.
+I went to my bedroom and looked in the mirror, studying the bruises on my neck. I could hear my mum warning me of the dangers of letting strangers into my home.
 
 One time I gave the slightest implication that I, a single grown man, occasionally have casual sex. It was *ever* so slight. But my mum doesn't miss a thing, cue the embarrassing lecture. 
 
