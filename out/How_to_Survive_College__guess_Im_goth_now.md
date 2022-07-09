@@ -8,7 +8,7 @@ I went to a club for the first time in my life.  I’m not sure whose idea it wa
 
 I have a lot of t-shirts and some blouses that might be okay at Sunday church I guess.  I might be sheltered but even I realize that they wouldn’t fit in at the club.  Cassie loaned me this sleeveless metallic leopard print thing.  It was low cut in the front.  She also loaned me earrings to go with it and even did my makeup.
 
-Don’t get the wrong idea, it’s not like I’ve never worn makeup before.  I had a boyfriend in highschool, right?  That’s just something you do when you have a boyfriend.  It’s just I always felt weird when I put it on.  Like I was a little girl playing with her mom’s makeup still, just putting on an act for all the grown-ups around me.  
+Don’t get the wrong idea, it’s not like I’ve never worn makeup before.  I had a boyfriend in highschool, right?  That’s just something you do when you have a boyfriend.  It’s just I always felt weird when I put it on.  Like I was a little girl playing with her mom’s makeup still, just putting on an act for all the grown-ups around me.
 
 I haven’t worn it since he died.  I guess I didn’t see a point.  I wasn’t dating, right?  But Cassie was like nah you gotta look good and she got out her makeup.  I tried to tell her I could use mine, but she didn’t like how it consisted of nothing but neutral, natural colors, and the next thing I know she’s putting on thick black eyeliner and gold glittery eyeshadow.  I didn’t think I could pull off those kinds of colors, but it did look good.
 
@@ -34,7 +34,7 @@ I can’t say I enjoyed myself.  Dancing looked fun, but there were too many peo
 
 Also someone spilled their drink down my cleavage.
 
-I figured that was it, I’d tried clubbing and it clearly wasn’t for me.  But I mentioned it at anime club with a couple people I’m starting to get to know and how it felt *weird* to be there.  
+I figured that was it, I’d tried clubbing and it clearly wasn’t for me.  But I mentioned it at anime club with a couple people I’m starting to get to know and how it felt *weird* to be there.
 
 Which was when katana boy jumped in with his theory that the club is harboring a *succubus* and that’s why it didn’t feel right, because - like him - I’m more in tune with the unnatural things happening on campus.
 
@@ -52,7 +52,7 @@ I still feel like I’m playing dress-up but this aesthetic is way more comforta
 
 Katana boy came with us, unfortunately.  He wouldn’t be so bad if he wasn’t trying to impress everyone all the time.  It’s grating.
 
-I felt uneasy as we were leaving campus.  Like that moment when you wake from a vivid dream and you have to reassure yourself of what is real and true.  I shook it off, attributing it as being the result of doing something new.  I’d only gone to the club two days ago and now I was going again, dressed all in black with fishnets on my arms, with a bunch of people I only sort of knew.  This felt entirely unlike me.  Surely that was why I felt so strange as we crossed campus, why the world around me felt so *alive*.  
+I felt uneasy as we were leaving campus.  Like that moment when you wake from a vivid dream and you have to reassure yourself of what is real and true.  I shook it off, attributing it as being the result of doing something new.  I’d only gone to the club two days ago and now I was going again, dressed all in black with fishnets on my arms, with a bunch of people I only sort of knew.  This felt entirely unlike me.  Surely that was why I felt so strange as we crossed campus, why the world around me felt so *alive*.
 
 Like it heard every footstep I made.
 
@@ -142,13 +142,13 @@ I sighed and said that would be fine.  Then, slowly, I got up and teetered to th
 
 Then I pulled the covers over my head and she left me alone after that.
 
-I did explain in the morning what was happening.  I mean, there was no avoiding it.  Cassie wouldn’t leave me alone until I did.  I told her about the laundry lady and how she made people that disrespected her work vanish.  That she was mad because I helped one of her victims and was looking for a way to retaliate.  
+I did explain in the morning what was happening.  I mean, there was no avoiding it.  Cassie wouldn’t leave me alone until I did.  I told her about the laundry lady and how she made people that disrespected her work vanish.  That she was mad because I helped one of her victims and was looking for a way to retaliate.
 
 “You have to warn people, then,” Cassie said urgently.
 
 I glanced around the cafeteria, spooked that someone would overhear.  The laundry lady’s words stuck in my mind.
 
-They know.  
+They know.
 
 I could only assume she was referring to the school administration.  The people covering all this up and presumably keeping the inhuman things in check.  If they could anger the laundry lady, then there was no telling what they could do to me.
 
@@ -156,7 +156,7 @@ I mean, besides expulsion, that is.
 
 “Yeah, yeah, I know,” I hissed, gesturing that she should lower her voice.  “It’s just, well, I kind of made everyone mad at me.”
 
-No one had said anything yet but I could just imagine that Maria had a back channel to let everyone in the Rain Chasers know how much I sucked.  
+No one had said anything yet but I could just imagine that Maria had a back channel to let everyone in the Rain Chasers know how much I sucked.
 
 “It can’t be that bad.”
 
@@ -200,15 +200,17 @@ Yay another thing to feel guilty for.  I never found that out about him.
 
 So they’re local and have enough money to pay the ridiculous housing costs.  *Neat*.  I couldn’t help but feel a little jealous.
 
-Then I sat around for a while until I worked up the nerve to message the Rain Chasers.  Despite my fears, Cassie was right.  They needed to know.  If they got mad and kicked me out and I went through the rest of my college career alone and unhappy, then that’s not far from my expectations, I suppose.  
+Then I sat around for a while until I worked up the nerve to message the Rain Chasers.  Despite my fears, Cassie was right.  They needed to know.  If they got mad and kicked me out and I went through the rest of my college career alone and unhappy, then that’s not far from my expectations, I suppose.
 
-I messaged the channel and told them that I had a problem that they needed to know about.  Our next meeting is this evening, so the floor will be mine.  Maria said she’d put me in the meeting agenda, so I guess she’s at least talking to me in public now, even if she’s just being professionally polite in her role as the club president.  It’s not very reassuring.  
+I messaged the channel and told them that I had a problem that they needed to know about.  Our next meeting is this evening, so the floor will be mine.  Maria said she’d put me in the meeting agenda, so I guess she’s at least talking to me in public now, even if she’s just being professionally polite in her role as the club president.  It’s not very reassuring.
 
-Then I unblocked Steven and warned him.  
+Then I unblocked Steven and warned him.
 
 He messaged me back.  I was back in my dorm room with Cassie, so I handed the phone to her and let her read it instead of me.  When she handed it back, the message had been deleted and his number was blocked again.
 
 I guess… I’ve got at least one person in my corner, no matter what.  That’s better than nothing.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/vusbn3/how_to_survive_college_the_swimmers/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
