@@ -1,3 +1,7 @@
+**Trigger Warning!**  
+
+.
+
 
 When I was 11, my Dad died unexpectedly from a massive heart attack. 
 
