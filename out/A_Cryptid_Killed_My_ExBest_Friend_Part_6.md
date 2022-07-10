@@ -1,4 +1,4 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/uxv7qa/a_cryptid_killed_my_exbest_friend/) [Part 2](https://www.reddit.com/r/nosleep/comments/v2zbxt/a_cryptid_killed_my_exbest_friend_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/v88tdw/a_cryptid_killed_my_exbest_friend_part_3/) [Part 4](https://www.reddit.com/r/nosleep/comments/vdfa1t/a_cryptid_killed_my_exbest_friend_part_4/) [Part 5](https://www.reddit.com/r/nosleep/comments/vinvsc/a_cryptid_killed_my_exbest_friend_part_5/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/uxv7qa/a_cryptid_killed_my_exbest_friend/) [Part 2](https://www.reddit.com/r/nosleep/comments/v2zbxt/a_cryptid_killed_my_exbest_friend_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/v88tdw/a_cryptid_killed_my_exbest_friend_part_3/) [Part 4](https://www.reddit.com/r/nosleep/comments/vdfa1t/a_cryptid_killed_my_exbest_friend_part_4/) [Part 5](https://www.reddit.com/r/nosleep/comments/vinvsc/a_cryptid_killed_my_exbest_friend_part_5/)
 
 &#x200B;
 
@@ -8,7 +8,7 @@ We met with Roy this week. Although, it took some convincing on Alma’s part. W
 
 &#x200B;
 
-“At least he seems to be doing well for himself,” I commented as it was ascending. 
+“At least he seems to be doing well for himself,” I commented as it was ascending.
 
 &#x200B;
 
@@ -18,7 +18,7 @@ We met with Roy this week. Although, it took some convincing on Alma’s part. W
 
 &#x200B;
 
-The doors opened and we stepped out. His place was located at the end of the hall. We knocked and soon heard the sound of several locks and a chain being undone. To call the man in front of us, a giant would be an understate. He was towering and pretty muscular to boot. 
+The doors opened and we stepped out. His place was located at the end of the hall. We knocked and soon heard the sound of several locks and a chain being undone. To call the man in front of us, a giant would be an understate. He was towering and pretty muscular to boot.
 
 &#x200B;
 
@@ -108,7 +108,7 @@ That made me want to smile. I was the same way with Jake.
 
 &#x200B;
 
-The story seemed innocent so far which made me worry. 
+The story seemed innocent so far which made me worry.
 
 &#x200B;
 
@@ -222,7 +222,7 @@ Roy came back in.
 
 &#x200B;
 
-“Yeah,” he replied and plopped into his armchair. 
+“Yeah,” he replied and plopped into his armchair.
 
 &#x200B;
 
@@ -276,7 +276,7 @@ At this point, I could feel myself growing steadily more nervous. Even though we
 
 &#x200B;
 
- Roy chuckled.
+Roy chuckled.
 
 &#x200B;
 
@@ -298,7 +298,7 @@ At this point, I could feel myself growing steadily more nervous. Even though we
 
 &#x200B;
 
-“I was by our fort, playing on our Gamegear.” 
+“I was by our fort, playing on our Gamegear.”
 
 &#x200B;
 
@@ -490,16 +490,20 @@ We turned our heads to her.
 
 &#x200B;
 
-So now we’re back at the hotel. We’ll be meeting another guy during the upcoming week to buy some guns from him. Then we’re going to try and find that tree. If new information comes to our attention, I’ll post about it. 
+So now we’re back at the hotel. We’ll be meeting another guy during the upcoming week to buy some guns from him. Then we’re going to try and find that tree. If new information comes to our attention, I’ll post about it.
 
 &#x200B;
 
 &#x200B;
 
-I guess we’re going to go face it finally. The thought of it is already frightening enough. What scares me, even more, is the fact I don’t know what are chances are against this thing. Even though Jake couldn’t hurt it, maybe with enough firepower, we can put this fucking thing down. If anyone has any ideas that can help us, we’re open to them. 
+I guess we’re going to go face it finally. The thought of it is already frightening enough. What scares me, even more, is the fact I don’t know what are chances are against this thing. Even though Jake couldn’t hurt it, maybe with enough firepower, we can put this fucking thing down. If anyone has any ideas that can help us, we’re open to them.
 
 &#x200B;
 
 &#x200B;
 
 Otherwise, if I don’t post again, you'll all know what [happened](https://www.reddit.com/r/StoriesFromRose/) to [us.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/vvjyd5/a\_cryptid\_killed\_my\_exbest\_friend\_finale/](https://www.reddit.com/r/nosleep/comments/vvjyd5/a_cryptid_killed_my_exbest_friend_finale/) (They tried their best.)
