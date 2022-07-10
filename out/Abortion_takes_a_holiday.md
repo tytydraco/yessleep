@@ -64,11 +64,13 @@ Daddy yelled, "Whar the fuck is my dinner Selma!?! You know how your Daddy gets 
 
 Daddy was probably on the 39th step which meant I was running out of time.
 
+Ace said, "Daddy's making husband noises. Probably be a good time to make a decision kid."
+
 "Okay Ace. You can stay."
 
 "YES!" replied Ace and then my stomach tingled and sorta glowed maybe and the sky grew cloudless. Lightning flashed and the cows mooed like they hadn't been milked in too long. Thunder shook the old house and I heard Daddy yell, "Whut the-" and then I heard him have a bad fall. Kinda like Ma's Christmas accident. When the thunder and Daddy settled I said, "Should I look Ace?"
 
-"Go to bed Selma. Tomorrow's the first day of the of the end of time. We're both still growing. We need our rest. Your Daddy'll be just fine," Ace said, the least angry I had heard him.
+"Go to bed Selma. Tomorrow's the first day of the end of time. We're both still growing. We need our rest. You leave your Daddy to me from now on. He won't squawk," Ace said, the least angry I had heard him.
 
 The old creaky house was silent a moment.
 
