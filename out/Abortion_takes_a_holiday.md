@@ -22,7 +22,7 @@ I think he meant that lady with the big eyebrow. I think her name was Paula. She
 
 Anyway, the people at the G-d school I went to on Sundays with Ma started giving me extra attention after she went to heaven on Christmas. Especially Pastor Fred.
 
-I was gonna tell Daddy that the Christmas baby might not really be a *real* Christmas baby. To tell you the trust I kept wondering if it was a *Fred* baby and I really was gonna mention it to Daddy but then G-d told me that that might not be such a good idea.
+I was gonna tell Daddy that the Christmas baby might not really be a *real* Christmas baby. To tell you the truth I kept wondering if it was a *Fred* baby and I really was gonna mention it to Daddy but then G-d told me that that might not be such a good idea.
 
 I used to think I was special talking to G-d. But G-d doesn't talk to me since I almost told Daddy on Fred. That's when the maybe Christmas baby, maybe not Christmas baby decided to start a conversation, It was last Sunday afternoon.
 
@@ -32,7 +32,7 @@ The voice came from inside me but I could hear it more better if I put my ear to
 
 "Selma?!?!," it repeated kinda angry, 'Do worms jump?'"
 
-"Well," I replied. "I can't really be sure. I never saw no worm around here jump unless you count Cousin Pud when he didn't let Daddy put an apple on his head and play race war, but I-"
+"Well," I replied. "I can't really be sure. I never saw no worm around here jump unless you count Cousin Pud when he let Daddy put an apple on his head and play race war, but I-"
 
 "Selma! Listen! Be quiet."
 
@@ -50,9 +50,9 @@ There was a rumble in my tummy. It felt... indignant. Pastor Fred taught me that
 
 "Okay Ace. If I let you stay in me will you tell me if you're Fred's or Daddy's?"
 
-Ace said, "I'm Satan's."
+Ace said, "I'm Satan's," and then started laughing like Daddy when he was drunk and there was nothing really funny.
 
-I was going to grab the pen and start stabbing Ace hard as I know how just when I heard Daddy's pickup park out in front. Then the front door burst open. Then I heard Daddy bellow, "Greetings from the land of beatings! Where's my little Selma?"
+I grabbed the pen on my bedside table I used to send out SOS' and was about to start stabbing Ace hard as I know how just when Daddy pulled in front of the house hard in his old pickup. Then the front door burst open. Then I heard Daddy bellow, "Greetings from the land of beatings! Where's my little Selma?"
 
 Daddy had gone to check on the still. That usually meant he would be real mad. Even at a winning lottery ticket.
 
@@ -68,6 +68,16 @@ Daddy was probably on the 39th step which meant I was running out of time.
 
 "YES!" replied Ace and then my stomach tingled and sorta glowed maybe and the sky grew cloudless. Lightning flashed and the cows mooed like they hadn't been milked in too long. Thunder shook the old house and I heard Daddy yell, "Whut the-" and then I heard him have a bad fall. Kinda like Ma's Christmas accident. When the thunder and Daddy settled I said, "Should I look Ace?"
 
-"Go to bed Selma. Tomorrow's the first day of the of the end of time. We're both still growing. We need our rest. Your Daddy'll be just fine. Let's just close our eyes and sleep."
+"Go to bed Selma. Tomorrow's the first day of the of the end of time. We're both still growing. We need our rest. Your Daddy'll be just fine," Ace said, the least angry I had heard him.
+
+The old creaky house was silent a moment.
+
+Then I said, "Ace?"
+
+"Yea, kid?"
+
+"I'm sorry I was going to stab you to death with a pen earlier."
+
+"Let's just close our eyes and sleep," Ace responded.
 
 So we did.
