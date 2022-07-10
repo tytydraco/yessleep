@@ -183,7 +183,9 @@ I don't want to go down that same route, I don't want him to find me like that.
 Maybe tomorrow I'll talk to him about it, or maybe I'll just try and be a little quieter.
 
 
-[X](https://www.reddit.com/r/ReggaejunkiegeeTales?utm_medium=android_app&utm_source=share)
+[A little backstory here](https://www.reddit.com/r/ReggaejunkiegeeTales?utm_medium=android_app&utm_source=share)
+
+Some useful links,
 
 [Mind.org](https://www.mind.org.uk/information-support/helping-someone-else/supporting-someone-who-feels-suicidal/useful-contacts/)
 
