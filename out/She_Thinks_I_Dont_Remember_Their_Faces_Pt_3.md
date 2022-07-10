@@ -44,7 +44,7 @@ I glance back to Sandra, her face is the best thing I have ever seen.
 
 “Where am I? Can I leave? I don’t want to be here.”
 
-Sandra shakes her head sadly, “You need to get better. I miss you so much, Alice but this is a good sign. I come every day at 9am and each day you have gotten better. I need you at home with me, why would you stop taking your meds? You know what happens when you do. “
+Sandra shakes her head sadly, “You need to get better. I miss you so much, Alice but this is a good sign. I come every day at 9am and each day you have gotten better. I need you at home with me, so badly. “
 
 I mutely shake my head. I do not know. I am not a good bartender. I was never a bartender. I must have said the last part out loud and Sandra’s eyes filled with tears. 
 
@@ -55,6 +55,25 @@ I did have a mother. I do not like her. Sandra does not like her either. I know 
 I ask Sandra when I can come home and she begins to fill me in on how long I have been here, why I am here. She couldn’t get through to me before this. Everyday I declined knowing her and preferred the imagined barflies’ company. My heart breaks for what I have done to her and I hope that I never manage to do this again.
 
 Visiting time is over. Sandra embraces me and promises me that I will be home soon. I know I will.
+
+I lay my head down when she leaves, wracking my brain for any clue as to how I got here. I can't remember anything past the fuzziness and nothing is clear. I begin to get a migraine and clench my eyes shut, willing it to leave. 
+
+I must doze off because when I awake, a man I have never seen before is standing before me. I begin to scream and he shakes his head before adopting a strained smile.
+
+"Now, Alice, is that any way to greet your favorite customer?"
+
+He advances closer, holding out a bottle. 
+
+"I know you're thirsty, it's so warm in here. You don't wanna get dehydrated, do you? Might miss work."
+
+There's a mocking tone that raises the hair on my arms and I feel the familiar tingling of fear in my spine as he begins to straighten his back, pushing the bottle closer.
+
+"Drink it, Alice."
+
+His tone leaves little room for argument.
+
+I drink it.
+
 
 \*\*\*\*\*
 
