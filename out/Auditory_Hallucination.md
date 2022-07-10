@@ -1,0 +1,19 @@
+I was originally going to post this on the r/ghosts sub but couldn't, so it's a copy paste so I dont have to type it all out again. To preface, I don't think I'm crazy, I've only ever had an experience like this once in my life, and I would say I absolutely believe in the paranormal and I've seen my fair share of unexplainable things.
+
+I found this sub just a few minutes ago (about 30) and went through the rules and I understand that this might be removed because of rule 3, but I just have to get it out there and maybe have some questions answered.
+
+A few years ago (2019), I was still living with my parents. For context, I've experienced a lot of things in my parents house, from seeing figures, doors closing on their own having the feeling that im being watched, like having fingers dig into the back of my head, and, well, sounds. 
+
+My old room was in the basement of their house and I didn't have a door to my room because the doorway was smaller than the average door, so I had a shower curtain up in its place. Behind the shower curtain is the stairway to the main floor. It's narrow and dark and I can't see the fourth step from where my bed is, as if I could see the stairs anyway since a pineapple shower curtain was a solid, and rather insecure door. There are 12 steps total.
+
+I was in bed at around two or two thirty doing my usual routine of not being able to sleep. I like spooky stuff but I wasn't watching anything spooky at the time, I was watching Oney or something like that, and i get that the guys on Oneys channel scream a lot, but my phone was basically pressed up against my face and all audio coming from one direction. But from the stairway, I heard a scream.
+
+A scream that was clearly from a woman coming from the stairway from my left side. I would have known if it came from my phone because it was so far from the left and so loud that basically every other sound drowned out. It was a deafening, blood curdling scream from a woman, like being stabbed, wailing and writhing in pain, it lasted maybe a second. The feeling it invoked was a feeling of dread and terror and left me paralyzed, the thought of moving, making a sound, and even breathing terrified me.
+
+I've seen my fair share of spooky flicks so naturally, I kept my goofy and terrified buns in bed and didn't move an inch. I didn't sleep that night and had every light on in my closest vicinity for the rest of the night.
+
+I felt like someone was watching me just before so I was looking at the shower curtain just before it happened. That classic feeling of someone or something staring daggers into the back of your head, not general uneasiness, genuine feeling of being watched. I can't explain it since nobody else heard it. The only thing I heard before it happened was some boxes and bags falling off the shelf from one of the neighboring rooms, nobody heard that either since my parents sleep on the main floor.
+
+I still remember the feeling because I feel it while writing this. My eyes water from recounting this moment and the spine chilling tingle sensation throughout my entire body. Like tiny needles resonating from my spine to my hands, feet, and ears.
+
+My parents didn't hear a thing, but I know what I heard. No, I'm not taking the piss, no, this isn't fiction, and no, I don't have any physical evidence. This is a very real experience that still haunts me three years later. I fully understand if everybody that reads this is skeptical since i have no evidence. I just want others opinions and if anybody else has experienced this, was it a hallucination, or am I not the only one that has experienced this phenomenon?
