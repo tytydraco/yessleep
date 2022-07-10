@@ -10,7 +10,7 @@ I know every regular and what they most need after a long day of whatever it is 
 
 Bruce, two fingers of whiskey, right at room-temp. Sometimes, if the bar gets too cold, chilling the glasses on the counter, I run the glass under a warm stream from the faucet and it makes it just right. It’s the little things that make me good at what I do.
 
-Barbara, a glass of white wine with a splash of water. No water, her teeth hurt for the rest of the day. 
+Barbara, a glass of white wine with a splash of water. No water, her teeth hurt for the rest of the day.
 
 Patrick, the cheapest vodka I got on the rocks with a Coors back. Not the classiest but I am not here to judge…much.
 
@@ -20,11 +20,11 @@ So this bitch- this absolute Karen- who keeps coming in and insisting she’s a 
 
 Every day it is the same story. I open at 8am. I wipe down the counters. I cut the limes and lemons and whatever the hell else I need to do before my REAL regulars start drifting in. But everyday, at 9am on the dot, she comes bursting in, a flurry of movement and LOUD that sets my teeth on edge.
 
-“Please!” she begs, pleading with me. 
+“Please!” she begs, pleading with me.
 
 “You must know me! You have to!”
 
-I always shake my head and offer empty platitudes. 
+I always shake my head and offer empty platitudes.
 
 “No, I’m sorry, I don’t, but that’s okay. Everyone was new sometime”
 
@@ -34,9 +34,9 @@ I always shake my head and offer empty platitudes.
 
 The answer is getting more and more terse. Shorter and more rude as the days go on. She never even orders anything! She just gets more emotional at each rebuff and storms out. The audacity. The straight entitlement of people nowadays to just assume their existence is known, that they are the precious thing held in a box of cotton, stowed away as an heirloom for future generations to bicker over.
 
-Oh, and another thing! An absolutely maddening, infuriating thing! She has never told me her name! She just expects me to know it! I have looked to make sure she doesn’t wear a name tag, a badge, a fucking glowing neon sign with her contact info. Nope. Nothing.  I may be good at remembering things, great even. Not even I can remember things you don’t tell me. I am not omniscient, I am just a woman who is reaching the end of my admittedly very short tether. 
+Oh, and another thing! An absolutely maddening, infuriating thing! She has never told me her name! She just expects me to know it! I have looked to make sure she doesn’t wear a name tag, a badge, a fucking glowing neon sign with her contact info. Nope. Nothing.  I may be good at remembering things, great even. Not even I can remember things you don’t tell me. I am not omniscient, I am just a woman who is reaching the end of my admittedly very short tether.
 
-So this woman interrupting that? Taking my pride and squashing it beneath her shoe like it was nothing? She can pound sand for all I care. She has never tried to give me anything, not a name, not a job, not any scrap of information and at this point, I am pretty sure it would be undeniably rude to start addressing her as “Hey, crazy lady, what’s shakin’?” 
+So this woman interrupting that? Taking my pride and squashing it beneath her shoe like it was nothing? She can pound sand for all I care. She has never tried to give me anything, not a name, not a job, not any scrap of information and at this point, I am pretty sure it would be undeniably rude to start addressing her as “Hey, crazy lady, what’s shakin’?”
 
 Today, though, today was different.
 
@@ -64,9 +64,9 @@ Her eyes watered again and she exhaled shakily.
 
 More disbelief on my end. I stared at her and started to take in small details that I hadn’t really gotten before in our normally much shorter interactions.
 
-Her blonde hair was brushed but windblown, like she had rushed to be here on time for our perverse little routine. Her eyes were still watery but now they looked alive with determination and honestly, they were the most beautiful shade of blue I had ever seen. If she hadn’t been a crazy stalker, I could see myself being attracted to her in another life. 
+Her blonde hair was brushed but windblown, like she had rushed to be here on time for our perverse little routine. Her eyes were still watery but now they looked alive with determination and honestly, they were the most beautiful shade of blue I had ever seen. If she hadn’t been a crazy stalker, I could see myself being attracted to her in another life.
 
-I awkwardly shifted to my left side, reaching for a glass and a rag, just to have something to do with my hands that had been digging into the bar top. 
+I awkwardly shifted to my left side, reaching for a glass and a rag, just to have something to do with my hands that had been digging into the bar top.
 
 “Well. Despite the quite frankly, intrusive and uncomfortable nature with which you have been coming in daily, if it helps get you off my back, yes, I am safe. I go home and I am safe there. I come here and I am safe here. Minus the crazy lady who keeps bursting in.” I said, attempting some humor to make myself feel like this wasn’t getting to be one of the more unsettling days I have had.
 
@@ -80,17 +80,18 @@ Again, reader…I must feel the need to point out:
 
 SHE NEVER TOLD ME HER FUCKING NAME.
 
- I am livid, I am tired, I am frustrated.
-There is no reason for me to know who this woman is, despite her insistence and yet here, she is, day after day after everloving day.
+I am livid, I am tired, I am frustrated. There is no reason for me to know who this woman is, despite her insistence and yet here, she is, day after day after everloving day.
 
-*****
+That night’s bar shift starts off as my usual ones do. I pour drinks for Bruce, Barbara and Patrick. I listen to their woes and offer comfort when needed. I am just starting to watch them leave and drift back into the night when I start hearing it. There’s an insistent rapping on the walls, beneath my feet, in my head. Everywhere and nowhere is overwhelmingly loud and I don’t like it. I search fruitlessly for the sound. If there is someone here messing with me, I need to find them. I have never liked being alone and the end of shift is always my least favorite part. I can’t recall another time this has happened though. All my memories of the bar are wholesome and rose-tinted but at this moment…someone is trying to infringe on my peace. Someone is trying to scare me and unfortunately for me, it’s beginning to work. I go from corner to corner, searching for who could possibly be there. Who doesn’t have something better to do than bother a single woman in her business?
 
-That night’s bar shift starts off as my usual ones do. I pour drinks for Bruce, Barbara and Patrick. I listen to their woes and offer comfort when needed. I am just starting to watch them leave and drift back into the night when I start hearing it. There’s an insistent rapping on the walls, beneath my feet, in my head. Everywhere and nowhere is overwhelmingly loud and I don’t like it. I search fruitlessly for the sound. If there is someone here messing with me, I need to find them. I have never liked being alone and the end of shift is always my least favorite part. I can’t recall another time this has happened though. All my memories of the bar are wholesome and rose-tinted but at this moment…someone is trying to infringe on my peace. Someone is trying to scare me and unfortunately for me, it’s beginning to work. I go from corner to corner, searching for who could possibly be there. Who doesn’t have something better to do than bother a single woman in her business? 
-
-I find no one and nothing there. 
+I find no one and nothing there.
 
 While I am searching behind the bar, I hear the door slam open, hitting the wall with a loud BANG. The door is too heavy to have opened on its own and all of my patrons know to make sure it clicks when they leave. I can’t let the door stay open too long. You never know who might try to come in.
 
 I run to the door, shutting it firmly and take in the room. It is finally blissfully silent but the unease remains. Regardless of if they are here now, someone was here. They had to be. Idly I debate with myself if the crazy woman has gone from being a petty irritant to actual physical harassment but she doesn’t seem the type to do so. I glance at the clock and though I still have about 15 minutes left, I lock the door and turn out the lights, wanting to maintain any sense of security I can get. I don’t want to believe someone is still in here but the discomfort and fear does not fade.
 
 I hate being alone.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vqkr1v/she_thinks_i_dont_remember_their_faces_pt2/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vravnc/she_thinks_i_dont_remember_their_faces_pt_3/)
