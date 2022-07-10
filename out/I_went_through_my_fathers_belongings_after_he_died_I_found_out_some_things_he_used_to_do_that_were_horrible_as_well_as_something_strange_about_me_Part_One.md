@@ -112,3 +112,5 @@ As well as this, some depicted some sort of chamber or vessel evidently used for
 
 
 ***\*\*\****
+
+[Next](https://www.reddit.com/r/nosleep/comments/vvgceb/i_went_through_my_fathers_belongings_after_he/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
