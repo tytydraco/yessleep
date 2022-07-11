@@ -1,137 +1,171 @@
-Part One
+Part Three
+
+(Part One is [HERE](https://www.reddit.com/r/nosleep/comments/vrd3e6/i_think_i_might_have_killed_someone_with_my_art/))
 
 (Part Two is [HERE](https://www.reddit.com/r/nosleep/comments/vs5mu6/i_think_i_might_have_killed_someone_with_my_art/))
 
-(Part Three is [HERE](https://www.reddit.com/r/nosleep/comments/vt3c90/i_think_i_might_have_killed_someone_with_my_art/))
-
 (Part Four is [HERE](https://www.reddit.com/r/nosleep/comments/vukghn/i_think_i_might_have_killed_somone_with_my_art/))
 
-In a few minutes, this document will be the only *real* account left of the events that have plagued my community for the last two weeks. I stand in the center of these beat-up old stairs, gazing out an oddly placed window at a moon that resembles a ghoul, an omnipotent monster staring down at me in judgment. If I needed a sign, I’d say that’s it. I don’t need a sign, though; I’ve arrived at my current destination by pure fate. Tonight will most likely be the last I spend on Earth.
+I quickly learned that if Carissa had a strong point, it was marketing. She revamped my entire image, dubbing these new pieces my “Slasher Cycle.” In keeping with this, she changed the gallery website to credit me as ‘The Official Biographer of the Silver Lake Slasher.’ I had to admire her audacity, even as I grew to loathe her. But the approach garnered much interest, with each new painting selling first day of display, all for the nifty price of $6,066.00.
 
-For the record, I don’t believe in fate, and I sure as hell don’t believe in suicide. That said, once you hear my story, I’m pretty sure you’ll agree there’s no other way to interpret or end this living hell in which I find myself trapped. So where does that leave me and my beliefs?
+With all the money coming in, I didn’t have to try very hard to convince Carissa I was on board. Carissa *wanted* to believe I’d gotten over my compunctions and now embraced this new chapter in our lives. Little did she know that when I approached her about hosting a show, my motives had absolutely nothing to do with money. If Portlock had been filming me this whole time, she *had* to be in on it. And if Carissa was helping Portlock make his movie at my expense, that meant our entire relationship amounted to little more than an adventurous fiction; one long-con performance in a cut-throat filmmaker’s master plan: a two-act meta-movie designed to turn an ordinary person into a monster.
 
-Fucked, that’s where.
+We inked the idea for the show by paying for a full-page ad in LA Weekly and another on Instagram. I smiled; everything was coming up Milhouse.
 
-Before I pull the ripcord, though, I have to set the record straight. Over the past fourteen days, I think that I've killed almost a dozen people. I’m the guy the L.A. papers dubbed “The Silverlake Slasher.” I never wanted to hurt anyone - certainly not a bunch of random people I’d never met. I didn’t have a choice, though. We all end up doing what we have to, sometimes very much in spite of what we want. Believe it or not, that can be true of killers, too. And after a while, well, this meat suit we walk around in can develop appetites, even for shit that repulses us. That’s what happened to me, albeit in a pretty roundabout way.
+That’s when I discovered just how deep Carissa’s betrayal ran.
 
-So why don’t I just shut the fuck up and open my veins, spare everyone the sob story, right? Well, way I figure it, I have to try and warn people because once I’m gone, I’m pretty sure The Process will just find someone else to fill my shoes. If I can save another human being from falling into the same horrible shit I did, maybe it’ll be at least one small way to try and make amends. Such a small action could never make up for the horrors I’ve committed, but the simple truth is, appetite or not, I wouldn’t wish this shit on anyone.
+Three days after returning to the Walsh’s I woke to discover several new paintings and a nasty cut across my left palm. In the previous night’s fog, I could clearly remember a man’s face, tall and thin and at least seventy years old. He’d been murdered - a story in the paper later that night would confirm this - but blood found at the scene suggested that he’d managed to take a piece off his assailant with a kitchen knife during the struggle. Upon waking, the paintings I found in the studio confirmed this: images of blood and gore, with one a close-up of the palm of my hand, cut deep and leaking blood. Inside the gash, a bloodshot eye stared out from between the layers of lacerated meat. The thing inside me finally coming to the surface.
+
+As I sat at the kitchen table shaking, I tried to drink my morning dose of Carissa’s tea. With the final mouthful, something caught in my teeth. Using my left pinky finger, I dislodged and recognized a tiny, purple flake. The lightbulb proved blinding: Carissa’s tea was made from Portlock’s drug. She’d been dosing me every day since the night of the first murder. Maybe before.
 
 \*\*
 
-My name is Reno Blade, Renn to my friends. No, that’s not the name my parents gave me, but it’s how I’ve identified myself since the eleventh grade, so fuck off. I have to have a weird, edgy name: I’m an artist in L.A. - a painter by trade. I work mainly with acrylics, sometimes mixed media. A couple years ago I met a writer/director named Justin Portlock and my life changed. Justin liked my work so much he contacted me with a proposal to commission my stuff for his movie.
+The next day was Thursday. I tried to play it cool. Not hard to do, considering how busy Carissa was with the move’s logistics. By the end of the weekend, we’d be in the new space, and I’d already convinced her that if I pitched in, we’d have the new *Shock* up and running by Wednesday. This meant a Thursday night show for my work was indeed a possibility.
 
-I was, in a word, ecstatic.
+\*\*
 
-Justin’s movie *Primordial Return* was grimy, B-Horror fair and I loved it. The story revolved around a painter in the L.A. scene who takes a strange drug and undergoes an eerie metamorphosis: he has almost immediate success with his art but, from there, begins to experience visions that slowly drive him mad and send him on a killing spree. Portlock commissioned me to do a series of paintings that would show the artist’s slow decline into what the audience would be left wondering was either insanity or something far more nefarious.
+There’s something I haven’t told you yet, but I very much need to now, before we continue. If you’re still reading this, maybe you believe me. I hope so; my experiences very much affect others, especially if you live in the Los Angeles area. As I proceed, you’ll see that the events that follow move the story out into a considerably larger scale. The thing is, though, from here things get weird. Well, *weirder*. I may lose some of you. Fine. Just remember, I tried to warn you.
 
-The film took off, and so did my career. *Shock* Gallery in Silverlake took an interest in my work as a result, and through an exclusive relationship with their space, my paintings began to sell. This was before I caught on to the power of social media as a conduit for sales. Now, Instagram and Big Cartel can keep artists flush, but for a Luddite like me, it was all *Shock* and its owner, Carissa. That relationship would eventually become... unhealthy, but I’m getting ahead of myself.
+Shortly after watching those videos of myself in the Walsh’s house, I had begun to experience a kind of tenacious lucidity during my blackouts. What’s more, when I did sleep, my dreams effectively became a conversation with the Lava. Yeah, I know, fungus as we think of it can’t talk. Only, that’s not exactly true. Guys like Terence and Dennis McKenna posited the idea of sentient fungus as far back as the 60s, but most people don’t listen to anyone who talks about stuff like that, and a lot of the ones that do tend to be burnt-outs. The first time I heard the ‘voice’ of the Lava in my dream, I woke up knowing I had 100% been listening to an actual living, thinking being. Because of this, I was finally able to learn a thing or two about it, given name Deschidere, or “opening” in its native Romania, where it grew wild among the Carpathian Mountains on the Southeast border of the historic region known colloquially as Transylvania.
 
-Several months after *Primordial Return* was released, Justin contacted me about working on a sequel. Of course I was interested, but when I learned that he wanted to make the film about *me*, emergency lights started going off. I met with him for his pitch, but in the end, the entire scenario had an eerie quality that felt a little too real, potentially *dangerous* even. I was supposed to play myself, hired by Justin to work on paintings for a sequel to the first film, only this time, I would find a mysterious package left at my door. Inside? You guessed it - a substance that turned out to be the drug from the first film. The kicker? Portlock revealed there was indeed a real drug his fictional one was based on, and I would be required to actually *take it* as I worked on the pieces for the film, tentatively titled “*Its Soil Be Murder.*”
+No, I’m not fucking kidding.
 
-“What you’re describing sounds like a documentary, Justin.”
+Put what you know about this region aside because it’s probably all Hollywood bullshit. Deschidere is a rare, sentient fungus that, when ingested, joins with its host to create a macro-consciousness. What’s that mean? It means Lava is a living, intelligent entity - a parasite, if you will - and once introduced into a host body, it burrows deep into the unconscious mind and awakens certain primal personality traits in order to perpetuate itself. This is apparently known as “The First Process” due to a pre-existing relationship early tribal humans in that geographic area had with the fungus. You see, Lava makes its host kill because the blood is the soil that yields more Lava. So yeah, that weird mold I’d seen at the Walsh place? More Lava. And I was willing to bet if I went back there again, all traces of it would be gone, harvested by Portlock.
 
-“Not exactly. Have I whet your appetite, Renn?” he asked, setting a small glass vial on the table between us.
+Now the second film’s title made sense; *Its Soil Be Murder* was a direct reference to Lava and how it grew from a combination of violence, blood and death. Not just death - *wrongful death*.
 
-Curious, I continued to play it cool. Inside the vial, a viscous, purple substance swam in slow motion. It looked like the paraffin wax in a lava lamp.
+\*\*
 
-“What the hell is this stuff?”
+I’d imagine it must seem fairly ludicrous that, after everything I have related to bring this story up to speed, I have yet to mention the police in any substantial capacity. That’s not embellishment or lethargy on my part. Quite the contrary; looking back now, I can tell you that despite my confusion and terror, my increasing success as an artist had instilled a hubris that made me careless. I didn’t give more than a perfunctory fuck about the fact that I had publicly launched a series of paintings based on intimate knowledge of recent crime scenes. If you think you can imagine the egomania that compelled me to do this, you are mistaken. All I wanted by that point was Portlock, and I wasn’t thinking about anything else. This was another *big* mistake, thinking myself invisible to the police.
 
-“Deschidere.”
+Turns out, the Walsh family had pervasive home security cameras. We’re talking every room. And based on a hunch, one of the detectives working the case had asked the monitoring company to keep them active. Once a day, Six Point Security would send the day’s feed from Casa Walsh to the LAPD. As time allowed, a cadet would toggle through every frame of that footage, eyes peeled for anything out of place. Seems this Detective - Arthur Gradanko - believed the old cop adage to be gospel:
 
-“Come again?”
+The killer always returns to the scene of the crime.
 
-“That’s what they call it in the country where it’s made. It means *Doorway*.”
+There was no way for me to know then that I was living on borrowed time. The general pulse of the department must have been rather chaotic, the crimes having kicked up all manner of social unrest. Because of this, the police struggled to keep up with the surveillance. But little by little, someone watched every second of that footage until the afternoon before the show, when Detective Gradanko got what he was hoping for.
 
-“The drug in the movie didn’t look anything like this. How would I even ingest this?”
+My face.
 
-Portlock smiled, confident he had piqued my interest.
+\*\*
 
-“For the movie, I had to take some liberties. There are… proprietary issues.”
+The day of the show, I had to keep myself from outright asking Carissa if she’d invited Portlock. I didn’t want to tip my hand in any way. If Justin didn’t show, it would be back to square one.
 
-“What does that even mean?”
+The doors opened at 9:00 PM, but we didn’t see anyone for over two hours.
 
-“Only one way to find out, Renn.”
+“I told you,” Carissa said flirtatiously, hiking up her skirt and maneuvering me into the back room, where she fucked me on my new worktable. Might as well get some use out of the thing.
 
-I should talk a little about Justin Portlock here. During the first film, I only met with him in person twice. All other communications, including the one where he introduced himself to me as a fan of my work, were through the internet. As I signed on and began to interact with his small production team, I found that no one talked about him, to a point I’d call obtuse, as though there was an air of unpleasantness that followed his name. When I asked questions about Justin’s background or previous work, a series of impossible-to-find short films listed on his website as “The Guillotine Cycle,” everyone ignored me. The only person who talked about him at all was an Executive Producer on the film who called me early on to tell me how excited he was that I had agreed to lend my paintings to the project.
+No sooner did we start going at it than the little bell on the door alerted us to our first visitor.
 
-“When I saw your work, I decided to invest another fifty thousand dollars in the film. Justin has always had a grand vision, but until he found you, I never believed he possessed the ability to realize our vision.”
+“Welcome, friend! Be right out,” Carissa called as she came, her voice quivering. I followed a minute or two later, and in less than five, we casually strolled into the gallery to meet our guest, beads of sweat still glistening on our foreheads.
 
-“*Our vision*?” I wondered but didn’t ask. None of my business, I figured. My first mistake.
+“Wow. I love the new place.”
 
-This Producer, Benjamin, was a rich man from Syria. His accent was so thick it made his voice sound like someone shaving leather on the other end of the line. Something about the cadence of his voice, and the way he hesitated while speaking - as if choosing his words with extreme precision - gave me an uneasy feeling.
+“Thank you, Detective.”
 
-“You must believe in Justin. You must help him realize this project. For the world. For Art.”
+My head snapped around and I made eye contact with a tall man, grayish hair, mid-to-late fifties. Dick Tracey’s chin mixed with DiCaprio’s brow.
 
-Yeah. For art.
+“Renn, this is Detective Gradanko. He’s the one I told you about.”
 
-I agreed but didn’t hear from Benjamin again until after *Primordial’s* premiere nearly a year later. A Tuesday night showing on opening day of that year’s Beyondfest, it proved a thrill to see my work on the big screen at Hollywood’s historic Egyptian Theatre. Benjamin accosted me in the lobby afterward, surrounded by what I can only describe as a squadron of yes men and secret service-looking motherfuckers. It made me wonder just who this guy was in the “real” world. He shook my hand, squeezed my shoulder and actually patted my ass not once but twice. Later, one of his henchmen found me in the bathroom and handed me a posh velvet bag embroidered with a strange, cross-like design. Inside I found a bottle of purple, Syrian Brandy, a watch engraved with the same symbol, and a large, ornate key that’s bow shared the shape of the symbol on the bag.
+“Who?”
 
-It was at that premiere that I met Carissa from *Shock*. She introduced herself to me while I stood around waiting to talk with Justin. I never ended up getting more than a quick pat on the back and an urgent, whispered, “We’ll talk,” from him while he made the rounds playing smiley glad-hands.
+“You know, the Detective I told you who stopped by a few days ago? The one working the Silver Lake Slasher case.”
 
-“Don’t take it personally, that’s just Portlock.”
+Carissa had not told me anything of the sort. My hackles went up; was she working for Portlock or the fucking cops?
 
-Carissa was covered in ink, stood about six-foot-three, and had straight, dark brown hair that hung to her ass. Dressed in an old Mercyful Fate T-shirt, black jeans and motorcycle boots, she proved a breath of fresh air in an otherwise anxiety-ridden social environment. We ended up ducking into the Pig N’ Whistle across the courtyard from the theatre and getting good and loaded before relocating to the afterparty, which was at someone’s hotel, I think. Long story short, I spent the next three nights with Carissa, and by the following weekend, had one of my paintings in her gallery. *Venom Face* was one of my earliest pieces, and not really representational of my current work at that time, but it sold in two hours and garnered four digits. I suppose it was the combination of that sale, the escalating success of the movie, and our deepening lust for one another that propelled Carissa’s decision to block out the following two weeks for an exclusive showing of my work.
+\*\*
 
-Those two weeks laid the foundation for both of us to quit our day jobs. For the first time, I was able to devote one hundred percent of my time to my art. This was without a doubt the most productive period of my career, and looking back on it now I wish I had realized it wouldn’t last.
+Shortly after Detective Gradanko appeared, the gallery became mobbed. I cornered Carissa and argued with her about withholding his visit from me, but she insisted she had told me.
 
-That was not the case, though. Instead, I relied on a regular curriculum of cocaine and alcohol to keep me painting. And while my name accumulated a certain degree of notoriety in both the Horror and Indie film communities, the rest of the world remained closed off to me because of my association with those same subcultures.
+“How the fuck would you even remember, Renn? You’re always blasted on one drug or another.”
 
-Things stayed at this new status quo for months, *Shock* a permanent home to my work and Carissa increasingly the only person I would confide in. The rest of the world felt... hostile. My family was back East, and the friends I’d made since moving to LaLaLand had become increasingly standoffish. Jealousy, Carissa suggested, and it was easier to believe that than admit what an arrogant cunt success had made of me.
+I had to bite my tongue, knowing what I did about her fucking tea, but I’d come too far and was so close to Portlock, I couldn’t blow it now. Amidst the crowd, I found it easy to avoid Gradanko. Flitting around the room, talking about my work, I played the role Carissa had created for me. What better way to avoid the shit storm amassing at my heels?
 
-Then came that meeting with Portlock about the sequel.
+“Yes, well, the intense nature of these crimes leaves imprints on our reality. My gift - really a curse - is to be able to interact with these imprints.” I told a gangly, androgynous hipster named Sailor who had cornered me in front of one of my latest pieces, an overhead view of a room saturated with blood.
 
-So there’s the little glass vial in front of me, and despite my curiosity, I said no. Justin didn’t like that at all. He downed the rest of his Glenfiddich and excused himself to the restroom. I should have seen it coming, but twenty minutes later I was paying the tab and leaving empty-handed. Well, not completely empty-handed - he’d left the vial.
+By 10:30, Gradanko had disappeared. I felt myself breathe a sigh of relief. But with relaxation came fatigue; my social mileage was way tapped out. I excused myself to dip into the back and do a couple lines to keep me going.
 
-I hired a car back to *Shock* and sat transfixed by the stuff in the vial the entire ride, the headlights of oncoming traffic illuminating it in brief blue and purple flashes. Whatever it was seemed to move of its own accord, a viscous purple demon suspended in what looked like water, but I was betting was alcohol - the kind you used to strip paint with. It looked like something a muppet might get blasted on. I tried to remember the name Justin had used for it, but couldn’t. Instead, my mind gave the stuff a nickname: Lava - like the lamp it resembled.
+Since we’d only been in the space for less than a day, there was quite a bit of work we still needed to do. Chief among those tasks was building a proper barrier between the public and private areas. For the moment, a thin, black sheet hung over the double doorway that opened into the supply room, at the rear left of which sat the door to the office and the small living space we planned to create. It was here I found Gradanko smoking a cigarette and looking through a small bureau Carissa used for invoices.
 
-When I got back to Carissa’s little living space in the rear of the gallery, I found a note that she’d be out late. Whatever - we certainly didn’t have anything exclusive, and I needed time to work. I fired up the paints, cracked two beers - I always open two at the onset of a session - and tried to continue a new piece I’d been struggling with. My juices had been dry of late, though, and I found myself distracted by the mystery Portlock had foisted on me. It only took about a beer and a half for my frustrations to get the better of my inhibitions, and the cap came off that vial.
+“This is a private area, capiche?”
 
-The lid was a screw-on, closed so tightly that it took me the better part of fifteen minutes to open it. Once I did, though, and the contents became exposed to the open air, all the liquid receded. I was confused, thinking there was a hole in the glass that the lid had somehow held in a vacuum, but no dice. I couldn’t for the life of me figure out *where the solution went*.
+“Yeah, yeah. Let me guess, this where you keep the photo references you use for your work?”
 
-Without the suspension fluid, the contents dried up quickly. I mean, like, *instantaneously*. The purple gelatin settled in the bottom of the vial and I watched as it began to crystalize. Fascinated, I tilted the glass forty-five degrees and used my index finger to tap out a little chunk, which turned to bluish flakes the moment it hit the table.
+“I don’t use photo references, Detective.”
 
-From here, there was no going back. Yeah, it takes a special kind of moron to witness something like I’m describing and want to put it up their nose, but here we are and there I was. There’s just a part of my brain that finds it hard to say no to new drug experiences. I procured a credit card from my jacket pocket and chopped out two Ozzy-sized lines.
+“Oh, right. You paint from, ahem, *visionary experiences*.”
 
-It’s hard to look back and accurately describe what that first Lava trip felt like. In my mind’s eye, I can vividly remember walking down a street in a thick, rolling fog. To my right, I could just barely make out the tall, chainlink fence that surrounded the iconic Silver Lake Reservoir. On my left, a broken-blacktop road wound upward on a small hill, cars parked along both sides and rendering a single lane hardly big enough for one car to pass, let alone two.
+He said this in a way that told me he thought I was full of shit.
 
-The neighborhood looked vaguely familiar. I strolled drunkenly down the center of the street counting porch lights until I found myself at a dead end. To my left, the sconce beside a large, double red front door flickered on and off. Strange, but I could swear this intermittence didn’t occur *until I noticed the house,* as though the house had chosen me.
+“The website calls you the ‘Official Biographer of the Silver Lake Slasher.’ To me, that implies you know him. Or, ah, maybe you *are* him. Eh?”
 
-I walked to the door and tried the knob. It turned the full one-eighty with hardly any effort and creaked open. I stepped into someone’s family room.
+I tried to play it cool but felt like a stoned teenager coming home late to find my parents still awake. Everything I did or said seemed to telegraph my secret in ten-foot-high, neon letters. Because of this, I let the Detective do most of the talking.
 
-To my left was a small runner table adorned with knick-knacks: car keys, a wallet, a half- drank bottle of red wine. Further ahead, a large picture window peeked through a small gap in long, blackout drapes. I remember creeping upstairs and the image of Nancy in the first *Nightmare on Elm Street* came to me, her deep footprints in the marshmallow stairs of Freddy’s dream house. The carpet didn’t just absorb the sound of my steps, it muffled the screams I could hear in the back of my head. Because it wasn’t my head anymore, it was a door to another me. A different me.
+Detective Gradanko took this opportunity to explain what he had on me and how he’d gotten it. His first visit might have been motivated by no more than the sheer audacity of my nom de plume, but with the advent of the Walsh’s security footage, he had me dead to rights.
 
-*“That’s what they call it in the country where it’s made. It means Doorway.”*
+His words.
 
-Justin’s words heralded a darkness that, when I finally opened my eyes, revealed I was back at Shock, Carissa shaking me awake. I’d fallen asleep on the couch; the digital clock on the wall and it said 1:23 AM.
+Of course, when I asked why they hadn’t already arrested me, I realized that Gradanko harbored some pretty interesting ideas about the scene that had sprung up around my work.
 
-“Renn, did you do this?” she demanded, terror twisting her face into a caricature.
+“I started as a cop back in New York. Summer of 1977, to be exact.”
 
-“Huh?” I raised my hands in front of my face and was horrified to see they were covered in dried blood. My heart leaped and my breath caught in my throat before I realized it was paint. I had flashes of working through the night, but also, of something else. An image came to me then, fleeting: a woman screaming, her hair wet and sticky with blood, thick black gore streaming from her eyes and nose, smearing across her face…
+When I confessed this meant little to me, he went on to explain that he’d come on board at NYPD during the Son of Sam murders. He’d been assigned to the unit that discovered the connection to Untermeyer Park in Yonkers and, subsequently, something called The Church of the Final Process, a name I recognized immediately as a derivation of the early Romanian’s “First Process” relationship with the Deschidere. The recognition was unexpected, and Gradanko took it as a sign of involvement.
 
-“Renn?”
+“Yeah. That’s what I thought. See, the city of New York may have served Berkowitz up a la carte, but some of us thought the connection to a larger Satanic Conspiracy was, you know, incontrovertible.”
 
-The image dissolved. My stomach dropped. I tried to stand but lost my balance and fell onto my hands and knees, expelling the contents of my stomach in one Herculean blast of vomit that hit the floor in front of me with such force, chunks ricocheted back at me, splashed against my face and neck.
+“Fascinating. And I suppose your video proves that I am… what? The *real* Son of Sam?”
 
-“Renn! Jesus!”
+“I think there’s a lot more people involved in this shit than most cops realize, and I’d say your recent brush with success goes a long way toward corroborating that. Let me show you something.”
 
-I collapsed onto my side, rolled over onto my back and lay staring at the ceiling. Carissa kept talking, but I couldn’t understand anything she said. The image of the Red Woman returned and with it this time that of a man, a dog, a bunkbed laying in splinters. Everywhere the vision showed me, the walls were coated in blood.
+Gradanko unlocked his phone and studied it for a moment, his fingers swiping over the screen until he stopped and held it out so I could see.
 
-At some point, my senses relaxed and I once again became able to interact with my immediate surroundings. It was at this point I realized the look on Carissa’s face was not one of horror, but excitement.
+Before me was a photograph of Carissa, there was no doubt about that. She stood surrounded by several others on the steps of what I took to be a church I knew right away was the same one in my painting. The same one in the painting on the wall during *Primordial Return*. On her left hand, clear as day, was a ring with the symbol I recognized from Benjamin the Producer’s sway bag.
 
-“Renn, this is *incredible*, baby!”
+“That’s your lady, right?”
 
-Beside her, one of the new canvases Carissa had given me lay face-up on the floor, a hyper-realistic portrayal of the family room from my dream stretched across its surface - a room painted in blood, in the foreground the Red Woman from my vision, her neck slashed open and eyes gouged out.
+I couldn’t hide my surprise at the image. The picture was black and white and grainy, no doubt a quick snap of a photo in an old file, mildewed and forgotten until this man’s obsession led him to find it.
 
-I felt sick.
+“What year is this from?”
 
-“This is us rich, baby!”
+“That’s the rub, kid. 1981. Hasn’t aged a day, has she?”
 
-“Are you fucking serious?” I asked, my hypnotic disgust broken by the audacity of her statement. I grabbed the painting, intent on destroying it. Carissa intervened.
+I didn’t know what to say; looking back, I now know this was the point where part of me figured it all out. But it was a deep part and one I wasn’t used to listening to unless I had a brush in my hand.
 
-“Renn! Whoah! Hold on a second! What’s the matter?”
+Carissa emerged from the back room, eyed us suspiciously.
 
-“This is… this is…” how could I tell her about the vision? How could I explain my sudden terror at the thought that this painting *had actually happened*? That I might have witnessed the scene, a ghostly memory forever staining the home where this woman and her family had once lived? It sounded insane.
+“Are you having a good time, Lieutenant?”
 
-“Renn, this is *you*, baby. You’ve found your voice. A few more of these, and I’ll finally be able to upgrade the gallery. There’s this enormous loft space in DTLA I’ve had my eye on for a couple months now. I think it’d be perfect for the new, improved *Shock*.”
+“Detective,” Gradanko corrected her as he took a defiant drag from his cigarette, then stubbed it out on the floor with his boot, “You can stop trying to butter me up. I know you’re in on your boyfriend’s little art project.”
 
-That was my first clue that Carissa might be more interested in me as a retirement fund than a boyfriend. How she could even think about selling this, let alone what sick fuck would want to buy it, I couldn’t even guess. If this had come out of me, I had way more serious things to worry about than the fucking gallery.
+Carissa fixed her icy stare on him. For a moment, she resembled a statue with a nearly perfect porcelain complexion. One that might turn you to stone if you met her gaze.
+
+“Do tell? What makes you think Renn is my \*ahem\* boyfriend?”
+
+“Save it, Morticia. You think I didn’t hear you too pounding away in the back room when I first came in? I can practically smell his cum running down the inside of your stockings.”
+
+“Classy.”
+
+“Way I figure it, you both set it up. Recon the victims, plan it out. He does the fun part; you take the photos.”
+
+“So you have her on camera, too?” I asked.
+
+“Maybe I do,” he lied. I wondered what else he’d said might be make-believe.
+
+“Oh, well, Lieutenant, if you have us on camera, I guess you should just arrest us, no?”
+
+I shot Carissa a *what the fuck* look, but she remained intent on our opponent. From the bureau behind me, I picked up the putty knife I’d used to cut up the canvas night before last. Fuck, this was escalating quickly.
+
+“It would be my pleasure. You’re both under arrest for murder. Happy?”
+
+“Very much,” Carissa said, holding out her arms to accept the cuffs; a smile spread across her face.
+
+“Wipe that smug grin off your puss, bitch. What’d you have to be happy about?”
+
+“Well, you said it yourself, Dee-tech-teev,” Carissa’s enunciation of Gradanko’s title sounded like a slap in the face, “look how well your little investigation into Sam went. You might have taken an arm, but The Process will always grow the limb back. Lot’s of limbs, ya know?”
+
+Gradanko’s face betrayed the wave of his utter frustration as it broke and rolled back. He jerked forward, grabbed Carissa by the wrists, and slapped on the first cuff. Before he could get the second, I saw the androgynous Hipster dip beneath the black sheet divider. He moved fast and silent, was up on the Detective just as he clasped that second cuff.
+
+“You have the right to remain silent-” he started but got no further as Sailor caught him by the hair with his left hand and dragged a straight razor across his throat with his right.
+
+“What the fuck?” I screamed, a geyser of blood spraying me in the face, neck and chest.
+
+“It’s time, Renn. Welcome to the Church of the First Process.”
