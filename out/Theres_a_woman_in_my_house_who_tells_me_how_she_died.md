@@ -22,7 +22,7 @@ Her eyes are great pits of nothingness, pools of the deepest, darkest night. And
 
 We are both crying now. 
 
-I blink, and she is at the window. The curtains move aside for her while her outline remains unmoving, unchanging. Impossibly, breah appears on the glass as she speaks. 
+I blink, and she is at the window. The curtains move aside for her while her outline remains unmoving, unchanging. Impossibly, breath appears on the glass as she speaks. 
 
 “Look.”
 
@@ -34,7 +34,7 @@ It advances, followed suddenly by a dozen or so others, borne out of thin, empty
 
 I look to the spirit, perhaps my guardian angel or just another lost victim like me, for guidance or encouragement or assistance. But she is gone. I am alone. 
 
-As if on instinct, at the moment the midnight maiden vanishes, my mind goes to my baby, on the other side of this wall. But this time there is no crying. There is nothing. 
+As if on instinct, at the moment the midnight maiden vanishes, my mind goes to my baby in the other room. But this time there is no crying. There is nothing. 
 
 I turn back to the window and stare out. I’m so tired, like I haven’t slept for days, and my body aches and longs for rest. 
 
