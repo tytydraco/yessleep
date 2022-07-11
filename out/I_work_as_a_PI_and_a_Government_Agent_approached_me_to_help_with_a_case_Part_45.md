@@ -1,5 +1,6 @@
 (First: https://redd.it/s648js
-Previous: https://redd.it/vrbs7v)
+Previous: https://redd.it/vrbs7v
+Next: https://redd.it/vvfp2c)
 
 It was impossible to know how many days I spent in the clinic. I slept, woke up confused, and let more blood be drawn if it was safe. Most times I only stayed awake long enough to drink some juice or eat something light. While I was out, my arm was covered in a cast. Every time I went back to sleep, someone came by to sign it. I could only tell time had passed by how cluttered the cast got. Most signatures were from creatures that been healed by the blood donations.  
 

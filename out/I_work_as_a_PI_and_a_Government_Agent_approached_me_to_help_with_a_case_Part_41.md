@@ -1,5 +1,6 @@
 (First: https://redd.it/s648js
-Previous: https://redd.it/vgvg7a)
+Previous: https://redd.it/vgvg7a
+Next: https://redd.it/vm1hlw)
 
 It’s been a very long time since I've gotten a day off. I planned on just hanging out on a Sunday. No accepting any cases, or going into the office. I didn’t even want to go out grocery shopping and instead just would order in some food. It was as if my partner could sense my plans. The moment I woke up and started to brush my teeth, I got a phone call from Nick. My hand hesitated for a moment over my phone. I caved and answered it. 
 
