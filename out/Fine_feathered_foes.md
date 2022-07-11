@@ -89,3 +89,7 @@ We both freeze in renewed horror as we hear a jingling noise coming from the pat
 “Heya darlin’,” I hear his horrible, old-smoker’s voice before I see him emerge from around the corner, “Was wonderin’ when you’d come home.”
 
 My father walks into view, pausing at the entrance of the cage with a giant set of keys that he sorts through with his dirty, [tobacco-stained fingers](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/).
+
+&#x200B;
+
+[READ PART 4 HERE](https://www.reddit.com/r/nosleep/comments/vwimi5/blood_off_a_ducks_back/)
