@@ -4,26 +4,29 @@ I ended up napping the first 57 minutes till my alarm rang and I found out the h
 
 I’d dismissed the email as a regular insult from Kavey about how much of a bad fit I was for the job, etc., but it wasn’t. I read it, and I started thinking this could help me find a way out. Here’s what it said:
 
-*HELLO “u/Temporary\_Pilot\_4915”;*
-
-*HAPPY THIRTY-NINTH JOB DAY. WE WOULD LIKE TO EXTEND A WARM WELCOME TOWARDS YOU AS WE HAVE NOT BEEN ABLE TO WELCOME YOU PROPERLY YET.*
-
-*PLEASE CLICK THE LINK BELOW TO RECEIVE YOUR GIFT.*
-
-*MANAGEMENT*
+>*HELLO “u/Temporary\_Pilot\_4915”;*  
+>  
+>*HAPPY THIRTY-NINTH JOB DAY. WE WOULD LIKE TO EXTEND A WARM WELCOME TOWARDS YOU AS WE HAVE NOT BEEN ABLE TO WELCOME YOU PROPERLY YET.*  
+>  
+>*PLEASE CLICK THE LINK BELOW TO RECEIVE YOUR GIFT.*  
+>  
+>*MANAGEMENT*
 
 I sure as hell didn’t *want* the welcome, but I didn’t think things could get worse at that point. I clicked the link, and one of those little sticky note gizmos popped up on my desktop.
 
-*LET’S PLAY A LITTLE GAME! HERE ARE THE RULES:*
-
-1. *THE NUMBER FOR JENKINS FROM HR IS 972.*
-2. *THE NUMBER FOR KUBIT FROM MANAGEMENT IS 334.*
-3. *THE NUMBER FOR THE CUSTODIAN IS 999.*
-4. *YOU MAY ONLY CALL ONE OF THESE NUMBERS.*
-
-*ONCE THIS IS DONE, YOU WILL RECEIVE ANOTHER GIFT.*
-
-*MANAGEMENT*
+>*LET’S PLAY A LITTLE GAME! HERE ARE THE RULES:*  
+>  
+>*THE NUMBER FOR JENKINS FROM HR IS 972.*  
+>  
+>*THE NUMBER FOR KUBIT FROM MANAGEMENT IS 334.*  
+>  
+>*THE NUMBER FOR THE CUSTODIAN IS 999.*  
+>  
+>*YOU MAY ONLY CALL ONE OF THESE NUMBERS.*  
+>  
+>*ONCE THIS IS DONE, YOU WILL RECEIVE ANOTHER GIFT.*  
+>  
+>*MANAGEMENT*
 
 This shit sucked, but I didn’t know what else to do. I’d exhausted every possible way to get out of my cubicle that I could think of: I’d tried to crawl over the three barriers, break the glass on them, look for a fake panel/opening on them or the floor, and every single time, I felt like every molecule of me gotten sucked into a vacuum and would end up sitting in my chair again. So I would play the “game” or whatever, because I was starting to think if I didn’t, I would never find my way out.
 
@@ -51,4 +54,4 @@ When I saw it, I had a full blown panic attack and literally fainted. I’ve nev
 
 Anyways, back to the weird monster thing; I’ve named it Frankenstein Junior.
 
-For some reason, it hasn't been able to cross over into the cubicle yet—it *could* be because I beat the timer on the code thing. I’m gonna stay in the cubicle until I can either find a way to break the glass and kill it, or else, I’ll have to play more of management’s games, I guess.
+For some reason, it hasn't been able to cross over into the cubicle yet—it *could* be because I beat the timer on the code thing. I’m gonna stay in the cubicle until I can either find a way to break the glass and kill it, or else, [I’ll have to play more of management’s games, I guess.](https://www.reddit.com/r/nosleep/comments/vw8dan/my_experience_with_time_loopsi_get_terrorized_by/?utm_source=share&utm_medium=web2x&context=3)
