@@ -1,5 +1,5 @@
 ## r/nosleep archive
-file count: 3128  
+file count: 3129  
  * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
  * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
  * [12 minutes](out/12_minutes.md)
@@ -1620,6 +1620,7 @@ file count: 3128
  * [My Dog Follows Me Everywhere](out/My_Dog_Follows_Me_Everywhere.md)
  * [My Dog Has Been Acting Weird](out/My_Dog_Has_Been_Acting_Weird.md)
  * [My dog has been doing the most terrifying things and I have no idea what to do](out/My_dog_has_been_doing_the_most_terrifying_things_and_I_have_no_idea_what_to_do.md)
+ * [My dog has human eyes](out/My_dog_has_human_eyes.md)
  * [My dog is scaring me](out/My_dog_is_scaring_me.md)
  * [My dog is too smart Part 2](out/My_dog_is_too_smart_Part_2.md)
  * [My dog isnt outside](out/My_dog_isnt_outside.md)
