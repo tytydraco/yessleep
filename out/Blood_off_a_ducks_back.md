@@ -1,4 +1,4 @@
-I first started sharing my two weeks ago in the post [Feathers in the Attic](https://www.reddit.com/r/nosleep/comments/vngwif/feathers_in_the_attic/). Since then, I’ve posted three updates, the last being [Fine Feathered Foes](https://www.reddit.com/r/nosleep/comments/vrxzhc/fine_feathered_foes/). If you’re a bit lost, look [here](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/) to find a chronological list of parts. Thank you!
+I first started sharing my story two weeks ago in the post [Feathers in the Attic](https://www.reddit.com/r/nosleep/comments/vngwif/feathers_in_the_attic/). Since then, I’ve posted three updates, the last being [Fine Feathered Foes](https://www.reddit.com/r/nosleep/comments/vrxzhc/fine_feathered_foes/). If you’re a bit lost, look [here](https://www.reddit.com/r/peculi_Dar/comments/vnkyf3/feathers_in_the_attic_series_hub/) to find a chronological list of parts. Thank you!
 
 –
 
@@ -8,13 +8,13 @@ My father looks different than the man in my memories. In my oldest fears - he i
 
 Finally, the lock cracks open and the door swings inward with a screech of the hinges.
 
-I feel like I should say something. I feel like this is my moment. Reunited with my childhood tormentor, the man who made the town believe mom was crazy, who never showed a drop of affection toward me and Robin. The man with the secret drawer. The one I’m convinced is a murderer. I should do something, say something. Unfortunately, reality is not as generous as the climax of a really good film. There is no spotlight, no dramatic pause. It is just me, sweaty and aching from the encounter with the snake, and Jonah, who I assume is on the brink of passing out. Now is not the time to dance with my demons, it is a time to flee.
+I feel like I should say something. I feel like this is my moment. Reunited with my childhood tormentor, the man who made the town believe mom was crazy, who never showed a drop of affection toward me and Robin. The man with the secret drawer. The one I’m convinced is a murderer. I should do something, say something. Unfortunately, reality is not as generous as the climax scene of a really good film. There is no spotlight, no dramatic pause. It is just me, sweaty and aching from the encounter with the snake, and Jonah, who I assume is on the brink of passing out. Now is not the time to dance with my demons, it is a time to flee.
 
 “We need to call 911,” I say, my voice surprisingly controlled, adult, “My boyfriend is hurt.” 
 
 “If he were a real man he’d shake it off,” my father avoids my eye, but gives Jonah a smile as he walks over and attempts to give him a hand. He steps around the oozing snake carcass as though it were a pile of horse manure, unpleasant but not atypical. 
 
-Jonah, eyes focused now, ignores the gesture, awkwardly pulling himself off the ground to stand firmly on two feet. He is practically naked, his plaid boxer shorts the only clothing item retaining his dignity. Though I am worried about him exerting himself so much right now, I am pleased by this cold treatment of my father. Jonah was the first person I told about the abuse, and he was also the first person who didn’t try to justify my father’s actions with phrases like “well he has been alone for a very long time” or “he has suffered a lot in his life”. 
+Jonah, eyes focused now, ignores the gesture, awkwardly pulling himself off the ground to stand firmly on two feet. He is practically naked, his plaid boxer shorts the only clothing retaining his dignity. Though I am worried about him exerting himself so much right now, I am pleased by this cold treatment of my father. Jonah was the first person I told about the abuse, and he was also the first person who didn’t try to justify my father’s actions with phrases like “well he has been alone for a very long time” or “he has suffered a lot in his life”. 
 
 “Atta boy,” my father laughs through smoke-worn lungs, rasping as he takes another drag of a cigarette that is almost entirely made up of ash at this point, “Hope yer keepin’ this one happy, Ava,” he adds, winking at me.
 
@@ -56,7 +56,7 @@ It is with these thoughts that I drift off to sleep, cozy in our embrace, caress
 
 —
 
-The room is almost entirely dark when I wake up, stricken with fear. The first thing I comprehend is a faint light coming from somewhere low, maybe through a crack in the door, illuminating just enough of the ceiling for me to see a myriad of shadows splayed across the tiled surface. The shadows are unmoving, but ominous, as though they could start moving, all at once, at any second.
+The room is almost entirely dark when I wake up. The first thing I comprehend is a faint light coming from somewhere low, maybe through a crack in the door, illuminating just enough of the ceiling for me to see a myriad of shadows splayed across the tiled surface. The shadows are unmoving, but ominous, as though they could start moving, all at once, at any second.
 
 The second thing I comprehend is far more disturbing.
 
@@ -68,21 +68,21 @@ I sit up, pulling back from my boyfriend as the jello cup I ate earlier threaten
 
 How long has he been lying like this? How long have his eyes been open?
 
-The muscles on Jonah’s lower face move mechanically as they pull his lips into a closed, wide smile. Only the result is not remotely my boyfriend’s ironic, or cheerful, or dorky smile. This is a smile I know from somewhere else entirely, from only the worst childhood nights and - most recently - from my first overnight visit at my childhood home.
+The muscles on Jonah’s lower face move mechanically as they pull his lips into a closed, wide smile. Only the result is not remotely my boyfriend’s ironic, or cheerful, or dorky smile. This is a smile I know from somewhere else entirely, from only the worst childhood nights and - most recently - from my first overnight visit at my family home.
 
 “What’s wrong, Ava?”  that low, raw imitation of a human voice. Like there’s an invisible force tugging at Jonah’s voice strings from somewhere in the shadows.
 
 For once, my gut reaction is not to sit around, waiting for it to pass. Maybe in my childhood home, but I’m in a very public place now. With doctors, nurses, and other patients. I already know I’m not crazy, maybe I don’t have to face this alone either. I make a move to hop out of the hospital bed, entirely forgetting the fragile state of my knee cap, but getting a very grim reminder as Jonah’s cold, rubbery hand latches onto my leg, pulling me back towards him. And though my instincts want to submit, to sink into the familiar comforts of fear-induced paralysis, I decide to kick back with all my might instead. I rise above the pain, and use my upper leg muscles to push Not-Quite-Jonah off me.
 
-It’s not smooth, or super efficient, but the monster’s hold is loosened for a split second, perhaps from surprise. This is enough of a window for me to lunge my upper body to the floor, landing with a dull thud, sending shots of pain through my elbows. I quickly get to my feet, and try to jog over to the door, though my footfall is slow and unsteady. I don’t look back, and I don’t feel Not-Quite-Jonah close behind me. 
+It’s not smooth, or super efficient, but the monster’s hold is loosened for a split second, perhaps from surprise. This is enough of a window for me to lunge my upper body to the floor, landing with a dull thud, sending shots of pain through my elbows. I quickly get to my feet, and try to jog over to the door, though my footfall is slow and unsteady. I don’t look back, and I don’t feel Not-Quite-Jonah behind me. 
 
 I’m out in the hallway now, racking my brains to remember which way the nurses station might be. The door to Jonah’s room is right up against the corner where two hallways meet. I have a choice of running left or right. Both paths look identical, with rows of doors and the odd extra bed lining the bleach white walls. The ceiling light of the hallway to my right starts flickering, and I’m left wondering if it’s a sign from heaven or hell.
 
 I decide to go the stable-lighting route as I turn from the flickering unknown and make my way down the left hallway. I walk as fast as I can, but I probably only manage the pace of an elderly person. I do look back once, but there is no one behind me. The further I go, the more secure I feel. The more grateful I am for being far from the claustrophobia of my childhood home. Somewhere to my right, I hear a patient snoring loudly from behind the door of a closed private room, and the sound of something so bizarrely normal fills me with enough courage and determination to move faster.
 
-I eventually reach the nurses station, shocking a handful of older ladies out of a card game.
+I eventually reach the nurses station, shocking a handful of ladies out of a card game.
 
-“There’s something wrong with Jonah, room 208,” I say, voice muffled over with panic, eyes darting around madly as I try to find a familiar face. The head nurse from the day shift had been so kind, she even bought our bullshit story of us being brother and sister, allowing me to stay past regular visitor hours. 
+“There’s something wrong with Jonah, room 208,” I say, voice muffled with panic, eyes darting around madly as I try to find a familiar face. The head nurse from the day shift had been so kind, she even bought our bullshit story of being brother and sister, allowing me to stay past regular visitor hours. 
 
 “What’s wrong dearie?” a kind-faced, older nurse asks.
 
