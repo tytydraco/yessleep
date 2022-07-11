@@ -1,5 +1,7 @@
+
 (First: https://redd.it/s648js
-Previous: https://redd.it/vpeyaz)
+Previous: https://redd.it/vpeyaz
+Next: https://redd.it/vs2z3d)
 
 A tall form came between us. He took a hold of the monster’s neck in a tight grip, and all the limbs of the beast clawed at him, tearing out hair and cutting his face. With some effort, he kept the pressure on until he finally cracked the neck of the creature. And to my shock, twisted the head right off. When he knew it was dead, he turned towards me, and he had a bright smile on his face that didn’t match the tone of the situation.  
 

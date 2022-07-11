@@ -1,5 +1,8 @@
+
+
 (First: https://redd.it/s648js
-Previous: https://redd.it/vk0v3q)
+Previous: https://redd.it/vk0v3q
+Next: https://redd.it/vpeyaz)
 
 I haven’t been getting a lot of sleep lately. Between my brain thinking up new nightmares, and supernatural creatures dropping by the office for different requests, I stayed up most nights. So when Nick called in the dead of night, I was still awake. His message very simple and short. Be by my door as fast as possible. Even when an infection had been raging inside a Hunter lab, he hadn’t rushed me like this. I got ready as fast as I could, and my front door swung open just as I reached for the handle. It smashed my face, knocking me back and causing stars in my vision for a couple seconds. Nick quick to apologize for nearly breaking my nose, but we couldn’t dwell on that. I shook it off, ready to see why he deemed it so urgent to drag me out of the house in the middle of the night. 
 

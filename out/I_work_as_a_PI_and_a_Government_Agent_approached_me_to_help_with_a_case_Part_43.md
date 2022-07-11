@@ -1,5 +1,6 @@
 (First: https://redd.it/s648js
-Previous: https://redd.it/vm1hlw)
+Previous: https://redd.it/vm1hlw
+Next: https://redd.it/vrbs7v)
 
 On Halloween, I received an invitation to a small party at The Corporation's office, of all places. Marsh sent an envelope with a visitor key, along with the short letter of how to reach a hidden karaoke room only a handful of people knew about. I felt flattered that he thought I was special enough to be trusted with such knowledge. I doubted there could be a karaoke room in the office though. This whole thing could be a weird trick he could be playing. The letter also instructed me to eat it after reading the contents, which I did not do.  
 
