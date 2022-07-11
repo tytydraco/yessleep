@@ -1,5 +1,5 @@
 ## r/nosleep archive
-file count: 3115  
+file count: 3117  
  * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
  * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
  * [12 minutes](out/12_minutes.md)
@@ -237,6 +237,7 @@ file count: 3115
  * [Bright Neon Lights](out/Bright_Neon_Lights.md)
  * [Brush with Death in a rundown area](out/Brush_with_Death_in_a_rundown_area.md)
  * [Burner Phone](out/Burner_Phone.md)
+ * [Burning flesh and damaged vocal cords werent in the job description](out/Burning_flesh_and_damaged_vocal_cords_werent_in_the_job_description.md)
  * [Cabin in the Woods](out/Cabin_in_the_Woods.md)
  * [Camp Pinewood where innocence goes to die](out/Camp_Pinewood_where_innocence_goes_to_die.md)
  * [Camp Pinewood Where innocence goes to die part 2](out/Camp_Pinewood_Where_innocence_goes_to_die_part_2.md)
@@ -564,8 +565,8 @@ file count: 3115
  * [How I became an only child](out/How_I_became_an_only_child.md)
  * [How long had the watching man stood there for](out/How_long_had_the_watching_man_stood_there_for.md)
  * [How me and my friends sneaked into the biggest naval base of the country](out/How_me_and_my_friends_sneaked_into_the_biggest_naval_base_of_the_country.md)
- * [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
  * [How the sausage is made](out/How_the_sausage_is_made.md)
+ * [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
  * [How To Exist](out/How_To_Exist.md)
  * [How to Survive Camping  a strip of skin](out/How_to_Survive_Camping__a_strip_of_skin.md)
  * [How to Survive Camping  the motherless](out/How_to_Survive_Camping__the_motherless.md)
@@ -1238,6 +1239,7 @@ file count: 3115
  * [I you see them change its probably too late](out/I_you_see_them_change_its_probably_too_late.md)
  * [Iele](out/Iele.md)
  * [If hell has a name it is déjà vu](out/If_hell_has_a_name_it_is_déjà_vu.md)
+ * [If I fall asleep he might kill me](out/If_I_fall_asleep_he_might_kill_me.md)
  * [If I wasnt born with a small penis I wouldnt know what corpses taste like](out/If_I_wasnt_born_with_a_small_penis_I_wouldnt_know_what_corpses_taste_like.md)
  * [If I where to tell anyone what I saw they would not believe me](out/If_I_where_to_tell_anyone_what_I_saw_they_would_not_believe_me.md)
  * [If locals suddenly start going missing you might have a vampire problem](out/If_locals_suddenly_start_going_missing_you_might_have_a_vampire_problem.md)

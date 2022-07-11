@@ -178,7 +178,7 @@ The only thing inside of it was a large wooden box. Atop this box, was a framed 
 
 It just felt... wrong. There was an aura to her in this photo. An aura of possessiveness.
 
-I took the picture from off of the box, and placed it front down on the floor, so that I didn't have to look at it any longer. Memories flashed in my mind. My aunt looming above me in my bedroom at night, embracing me with smothering excitement, whispering vicious lies about my mother and my grandparents into my ear, telling me she was the only one who loved me.
+I took the picture off of the box, and placed it front down on the floor, so that I didn't have to look at it any longer. Memories flashed in my mind. My aunt looming above me in my bedroom at night, embracing me with smothering excitement, whispering vicious lies about my mother and my grandparents into my ear, telling me she was the only one who loved me.
 
 I shook the memories away and opened the box. There was a diary inside, and beneath this diary, were several pieces of paper that had likely been torn out of the diary. My hands shaking slightly, I opened the diary and yes, several of the pages were missing, the pieces of paper in the box had to be them. But why had she torn them out?
 
@@ -186,7 +186,7 @@ I read through the entries, utterly horrified.
 
 My aunt had started the fire that killed my grandparents. She had written about how they had favoured my mother, giving her everything, while she was left all alone to rot in neglect. And to make matters worse, she had also been planning to kill my mother and father, so that she could gain custody of me and finally make me her "perfect son".
 
-I threw the diary away. My god, she was fucking insane. I didn't believe any of the shit she had written about my grandparents. My grandparents never neglected her at all. As my mother had always told me, my aunt was a spoiled, vicious cow who'd to raise hell if she couldn't have her way. She had fucking killed her own parents in cold blood over what was likely just a little tantrum, and she was fucking grown woman when she had done it too. Not to mention she had been fucking planning to kill my parents too and force me to be her son instead.
+I threw the diary away. My god, she was fucking insane. I didn't believe any of the shit she had written about my grandparents. My grandparents never neglected her at all. As my mother had always told me, my aunt was a spoiled, vicious cow who'd to raise hell if she couldn't have her way. She had fucking killed her own parents in cold blood over what was likely just a little tantrum, and she was a fucking grown woman when she had done it too. Not to mention she had been fucking planning to kill my parents too and force me to be her son instead.
 
 Why the hell was she so obsessed with me?
 
@@ -214,7 +214,7 @@ I was about to head back to the door, when I saw something on the ground. It was
 
 I felt a terrifying realisation begin to stir within me, but I tried to suppress it, but to no avail. I thought back to finding my briefcase open and my clothes scattered all about my room. And the bumps I had heard upstairs at night. And the pantry being raided. And the repairman... falling out of the window. My... closet door being wide open, when I hand't locked my bedroom door the night before. The... furry thing that my fingers had brushed against in the dark attic. And I recalled that time I had seen something moving around in the greenhouse as a child
 
- And I remembered what Stella had said in her diary of horrors.
+And I remembered what Stella had said in her diary of horrors.
 
 *"thrown him into the jungle, to be a stupid animal."*
 
@@ -232,7 +232,7 @@ I sprinted back into house, and then ran to my room to get my phone. I got to th
 
 He was massive. Well over six foot, and had a very strong, wiry build. His body was completely covered in long, shaggy hair. His only item of clothing was a pair of filthy trousers.
 
-He just stood there, staring at me with his icy eyes. They were filled contempt, hate and pained rage. Just mindless, desperate rage at everything. At the world. A world that he had been imprisoned from, and forced to watch from the confines of his prison.
+He just stood there, staring at me with his icy eyes. They were filled with contempt, hate and pained rage. Just mindless, desperate rage at everything. At the world. A world that he had been imprisoned from, and forced to watch from the confines of his prison.
 
 I held my hands up, in a likely futile attempt to calm the giant.
 
@@ -240,13 +240,13 @@ I held my hands up, in a likely futile attempt to calm the giant.
 
 I saw a picture frame of Stella on a small table near my bedroom door. I grabbed it and showed it to Elias.
 
-"Elias, she's dead. This horrible, horrible woman is dead! Its okay... you isn't around to hurt you anymore."
+"Elias, she's dead. This horrible, horrible woman is dead! Its okay... she isn't around to hurt you anymore."
 
 Elias stared at the picture for a second, and then his mouth curled up into a vicious grin, revealing, jagged, yellow teeth. I looked into his blue eyes, he wasn't even looking at me at all. He was just standing there, grinning and staring at the picture of Stella, as if he was remembering something, and savouring it.
 
 Then his eyes moved to me, and then to the picture. Then to me, and then to the picture again. His grin faltered, and turned into a hateful scowl.
 
-"Shit..." 
+"Shit..."
 
 He charged at me, I dropped the picture and ran towards the stairs. I felt the banister shake as Elias grabbed hold of it and charged up the stairs after me. I darted to the nearest room, tore open the door, leapt in and then locked it. I was in the manor library and there was a phone in here too.
 
@@ -266,20 +266,20 @@ A shadow appeared at the window. It was fucking Elias. He was standing on someth
 
 I jumped from the bed and ran for the door, just as I heard the window shatter. Lucky, I managed to unlock the door before Elias was able to fully get inside the room. I ran out of the room and towards the door I had locked before. I went to unlock it, but I felt Elias' arms wrap around me and lift me from the floor.
 
-His grip was like steel, no matter how much I struggled, it didn't faze him one bit. He carried me over to the window, and threw me out of it. I fell towards the conservatory, and broke through the panelling. Luckily, my fall was broken by one of the deck chairs, but my right leg and my left shoulder had been torn up by the glass. 
+His grip was like steel, no matter how much I struggled, it didn't faze him one bit. He carried me over to the window, and threw me out of it. I fell towards the conservatory, and broke through the panelling. Luckily, my fall was broken by one of the deck chairs, but my right leg and my left shoulder had been torn up by the glass.
 
-I rolled from the chair onto the floor, I was in absolute agony. My vision started to falter than, and I passed out soon after. 
+I rolled from the chair onto the floor, I was in absolute agony. My vision started to falter than, and I passed out soon after.
 
 ...
 
-When I awoke, I was still inside the conservatory, but now I was being tended to by a few paramedics. There was a lot of commotion around me. I could see a few armoured police officers by the door, discussing something. One of the paramedics noticed that I had awoken, and signalled to a few others. 
+When I awoke, I was still inside the conservatory, but now I was being tended to by a few paramedics. There was a lot of commotion around me. I could see a few armoured police officers by the door, discussing something. One of the paramedics noticed that I had awoken, and signalled to a few others.
 
 I was put onto a gurney and rolled out to the nearest hospital. I was told that I had lost a bit of blood, but that I was otherwise not too badly injured. My parents and my girlfriend arrived soon after. I told them all about what had happened. About Elias, and about all of the horrible things Stella had done. My mother had turned pale white, and just sat in the corner completely listless for ages. I couldn't imagine what she was feeling.
 
 An officer showed up eventually to question me on what had happened. I told him about the diary, about Stella's crimes and about Elias and what she had done to him. The police hadn't captured Elias, the officer had told me that he was gone by the time they had arrived at the manor house.
 
-It turned out that Elias had been born with ambras syndrome, also known as "Werewolf syndrome". Its that genetic condition which causes excessive hair growth all over the body, except for the palms and soles. Apparently, it had occurred a few times on my mother's side of the family, but never to the extant of Elias. 
+It turned out that Elias had been born with ambras syndrome, also known as "Werewolf syndrome". Its that genetic condition which causes excessive hair growth all over the body, except for the palms and soles. Apparently, it had occurred a few times on my mother's side of the family, but never to the extant of Elias.
 
-Now I will say that I do not hate Elias. Yes he tried to kill me, and likely tried to kill the repairman. But, at the end of the day, he was the real victim in all of this. He wasn't a monstrous freak. He was just a man who had the bad of luck of being stuck with a psychotic freak for a mother. This was all Stella's fault. She was the real monster in all of this. She had been the one who locked Elias up from the outside world, and forced him to be what he eventually became. My poor cousin never had a chance at all.
+Now I will say that I do not hate Elias. Yes he tried to kill me, and likely tried to kill the repairman. But, at the end of the day, he was the real victim in all of this. He wasn't a monstrous freak. He was just a man who had the bad luck of being stuck with a psychotic freak for a mother. This was all Stella's fault. She was the real monster in all of this. She had been the one who locked Elias up from the outside world, and forced him to be what he eventually became. My poor cousin never had a chance at all.
 
 I don't know where he is now. But a part of me secretly hopes that he can eventually be helped. Be allowed to be something else, instead of what Stella had forced him to be. But... Now, I just think its too late.

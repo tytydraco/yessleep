@@ -64,7 +64,7 @@ The next morning, Paul stared at me, transfixed.
 
 I had never gone to Paul’s room. I was too busy with my own ordeal.
 
-Aida and Diana had similar stories when they came down– one of us came to their room and said something along the lines of “Have you seen the basement yet? Let me show you?” and tried to lead them down there.
+Aida and Diane had similar stories when they came down– one of us came to their room and said something along the lines of “Have you seen the basement yet? Let me show you?” and tried to lead them down there.
 
 None of us opened the door. Diana, because she was tired and not in the mood to socialize, Paul, because he didn’t know me that well and thought I was acting strange. Aida, like me, had the feeling that the visitor at her door was NOT one of us. Paul and Diana were excited by this seeming confirmation that our AirBnB was haunted. Aida stared at me, her face grim.
 
@@ -74,7 +74,7 @@ We had plans and when by noon, Catie still hadn’t come downstairs, I volunteer
 
 I’m sure this won’t come as a surprise to you, but Catie wasn’t in her room.
 
-I heard steps above me on the third floor. I was much braver in the light of day, so I ascended the second flight of stairs, and went room to room on the third floor. No one was there, but it was cold, much colder than the second or third floors. I went back to the second floor, trying to fight the urge to glance over my shoulder.
+I heard steps above me on the third floor. I was much braver in the light of day, so I ascended the second flight of stairs, and went room to room on the third floor. No one was there, but it was cold, much colder than the second or first floors. I went back to the second floor, trying to fight the urge to glance over my shoulder.
 
 I paused in front of the door of the room above mine where I’d heard the crawling and mournful wail the past two nights. I considered it for a moment, and decided to open it. It was locked. Part of me was relieved.
 
@@ -138,7 +138,7 @@ I tried to remain silent, motionless.
 
 I sat up against the headboard with my hands over my mouth, focusing on breathing as quietly as possible as it pounded at the door. Eventually, the steps faded away.
 
-The next morning, Aida looked happy –  she was practically beaming. I realized that she looked different. Aida always wore her meticulously applied cat-eye eyeliner, and her purple lipstick, but this morning she had no makeup on. Her blue-black hair looked odd, her bangs that were usually carefully style and ended in a delicate point between her brows were hastily brushed off to one side. I had always admired how she presented herself, and wished I had the skill and patience. She didn’t look bad this morning, but she didn’t look like herself, either.
+The next morning, Aida looked happy –  she was practically beaming. I realized that she looked different. Aida always wore her meticulously applied cat-eye eyeliner, and her purple lipstick, but this morning she had no makeup on. Her blue-black hair looked odd, her bangs that were usually carefully styled and ended in a delicate point between her brows were hastily brushed off to one side. I had always admired how she presented herself, and wished I had the skill and patience. She didn’t look bad this morning, but she didn’t look like herself, either.
 
 Diane and Paul hadn’t come down.
 
@@ -160,7 +160,7 @@ Diane was nowhere to be found.
 
 Aida had yet to come back down from the room above the kitchen. I could hear tearing and wet chewing sounds coming from up the stairs. I locked the door wordlessly. I tried to fight back the bile rising in my throat.
 
-I tried to tell Paul we needed to leave. While it was still daylight. I didn’t want to leave our friends either, but we needed to come back with more people because terrible was going on. We were outmatched. We were probably outnumbered.
+I tried to tell Paul we needed to leave. While it was still daylight. I didn’t want to leave our friends either, but we needed to come back with more people because something terrible was going on. We were outmatched. We were probably outnumbered.
 
 Paul tried to convince me to stay. Surely there was an explanation. We couldn’t take the car and leave our friends here. He looked at me accusingly.
 
@@ -194,6 +194,6 @@ While he fiddled with the tools, selecting something long and sharp looking, I s
 
 I knew I’d have to come back for her later, there was no way I could move her in her current state.
 
-I ran up the stairs and my heart sunk when I found I was in a part of the house I had never seen before. It looked older, lacked the meticulous care applied to restoring and cleaning the rest of the place. I wondered which of the many doors led out, but the fact that one door was nailed shut served to both further dash my hopes, and answer that question. I limped – my leg was asleep – through the dusty hallway, I found a door where light seeped through two small windows and locked the door.
+I ran up the stairs and my heart sunk when I found I was in a part of the house I had never seen before. It looked older, lacked the meticulous care applied to restoring and cleaning the rest of the place. I wondered which of the many doors led out, but the fact that one door was nailed shut served to both further dash my hopes, and answer that question. I limped – my leg was asleep – through the dusty hallway, I found a room where light seeped through two small windows and locked the door.
 
-I’ve called the police. All I can do now, is wait, and hope I can either get one of the sealed windows open, or the police find me open before Paul or one of the other ‘residents’ do.
+I’ve called the police. All I can do now, is wait, and hope I can either get one of the sealed windows open, or the police find me before Paul or one of the other ‘residents’ do.
