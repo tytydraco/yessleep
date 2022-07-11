@@ -4,7 +4,9 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
 
-There was only one place I could go for possible answers. Only one person who might have any idea why this happened. And so I drove to him. Past the House of 1000 corpses once more, where that strange kid was outside again. I turned and noticed him. He was covered with mud? Blood? He just looked toward my car with a blank stare. I moved on. 
+[Part 5](https://www.reddit.com/r/nosleep/comments/vwg7z4/have_any_of_you_heard_of_the_viewmaster_that/) 
+
+There was only one place I could go for possible answers. Only one person who might have any idea why this happened. And so I drove to him. Past the House of 1000 corpses once more, where that strange kid was outside again. I turned and noticed him. He was covered with mud? Blood? He just looked toward my car with a blank stare. I moved on.
 
 I finally arrived back at Frank's house. Except maybe it wasn't. There were chains around the gate. A NO TRESPASSING sign was planted in the yard. Not just that. There was also a FOR SALE sign. No one lived there. And it looked like no one had lived there for a very long time.
 
@@ -70,7 +72,7 @@ We walked into his living room. He sat down in a chair and I took a seat on the 
 
 I reached into my purse, pulled out the View-Master, holding it out to him. Frank almost fell out of his chair leaning away from it like it was Kryptonite and he was Superman.
 
-“Good God, get that thing away from me! What the hell are you doing carrying that around??” 
+“Good God, get that thing away from me! What the hell are you doing carrying that around??”
 
 “Just stories? Can't hurt anybody?” I challenged.
 
@@ -136,11 +138,11 @@ He was quiet again and I wondered if he thought the tale was over. If so, he'd c
 
 He glanced toward the TV, which was on in the corner of the room. It was tuned to the Home Shopping Network. Finally, Frank began again, and told me that he and Sparkle had taken the View-Master home and sat it on a shelf. For years. And nothing strange had ever happened. Until that night of the dinner party.
 
-It had been a tuxes and evening gowns kind of shindig. Orchestral music playing in the background as the attendees conversed in various groups. But there had been one man who had not been paying attention to anyone else there. He was single-mindedly focused on the View-Master. It was Sparkle who had noticed him creeping slowly closer and closer to it. She saw him pick it up off the shelf, look at it in his hands for a few seconds, and slowly bring it up to his face. They had left the disc in it all those years, unfortunately. Sparkle had told Frank that as the View-Master neared the man's face, it began to glow red. He had looked into it for a few seconds, then dropped it. Then the man had run out of the room. No one knew him. Frank said that later they talked to everyone who was at that party and nobody knew the man, who invited him, or why he was there. But later they heard he had jumped out of a fifth story window. 
+It had been a tuxes and evening gowns kind of shindig. Orchestral music playing in the background as the attendees conversed in various groups. But there had been one man who had not been paying attention to anyone else there. He was single-mindedly focused on the View-Master. It was Sparkle who had noticed him creeping slowly closer and closer to it. She saw him pick it up off the shelf, look at it in his hands for a few seconds, and slowly bring it up to his face. They had left the disc in it all those years, unfortunately. Sparkle had told Frank that as the View-Master neared the man's face, it began to glow red. He had looked into it for a few seconds, then dropped it. Then the man had run out of the room. No one knew him. Frank said that later they talked to everyone who was at that party and nobody knew the man, who invited him, or why he was there. But later they heard he had jumped out of a fifth story window.
 
-At that point, The View-Master went back on the shelf and no one else messed with it. But see, Sparkle had seen him look into it. She'd never believed until the suicide. 
+At that point, The View-Master went back on the shelf and no one else messed with it. But see, Sparkle had seen him look into it. She'd never believed until the suicide.
 
-“Online there was an object that sounded like it could have been it,” Frank said. “Sparkle had started researching, you see. Much the way your David did.” 
+“Online there was an object that sounded like it could have been it,” Frank said. “Sparkle had started researching, you see. Much the way your David did.”
 
 “Supposed to be some relic of the ancient Egyptian gods. Of course I still didn't believe that crap. But Sparkle became obsessed. Eventually I came home to find her lying in a pool of blood. More blood than you'd think the human body could hold. And her full-length mirror was lying on top of her. Shattered. Shards of glass all over her. Eyes gouged out. Glass in her hands. After that, I was determined to get to the bottom of that View-Master. But I know now you see, Sparkle was in no danger...as long as she didn't believe. But once she believed...And then...”
 
@@ -150,7 +152,7 @@ He took a long beat before adding dramatically, “**I** started to believe.”
 
 So Frank decided the safe thing to do was to throw all the pieces in the trash and take the trash straight to the dump. It would be a mystery that would never be solved, but at least it wouldn't happen again. But then the next day he had walked into his living room to find the view-master reassembled, sitting on the table where he'd taken it apart the night before.
 
-“Now I know what you're thinking,” Frank started, although in truth I had no idea what I was thinking yet. “And you'd be right. I was drunk when I took it apart. Had I really taken it apart at all or just dreamed it? I didn't know for sure myself. I mean, it messes with your mind.” 
+“Now I know what you're thinking,” Frank started, although in truth I had no idea what I was thinking yet. “And you'd be right. I was drunk when I took it apart. Had I really taken it apart at all or just dreamed it? I didn't know for sure myself. I mean, it messes with your mind.”
 
 “I started to figure out some of the rules. Technically, I owned the house even though I didn't live there anymore. You couldn't get rid of it, but it stayed on the property. That's how I kept away from it. But later I found myself waking up over there. Then I started digging it up. So I come up with the fail-safes of locking it up and hiding the keys from myself. But the pull was getting stronger. I had to find someone else. I'm sorry about how it worked out but I thought you'd have years like Sparkle and me, maybe figure something out. Or pass it on yourselves. I knew I was out of time.”
 
@@ -192,7 +194,7 @@ Then David finished his pitch, his voice distorted and dragging, like a 45 rpm r
 
 Hearing that phrase again shocked me out my semi-trance. I grabbed the View-Master quickly with my right hand, while rolling down the window with her left.
 
-“No!! You're not real!!” I screamed at my husband's talking corpse, and slung the View-Master out the window. 
+“No!! You're not real!!” I screamed at my husband's talking corpse, and slung the View-Master out the window.
 
 I pulled the car over to the side of the road and slumped over the steering wheel, crying for I have no idea how long. I just couldn't do anything else at the moment. I was terrified to look up and see into that mirror again. But I knew I finally had to. Dreadfully, I opened my eyes. Oh so slowly. Instead of the mirror, I whipped around and looked into the back seat, ready to confront the thing pretending to be my husband. But whether it was David or not, it was gone. The back seat was completely empty.
 
@@ -205,3 +207,5 @@ I got home, pulled in my garage and got out of the car. As if compelled, I took 
 [Part 2](https://www.reddit.com/r/nosleep/comments/vbeml8/have_any_of_you_heard_of_the_viewmaster_that/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/vd2e6x/have_any_of_you_heard_of_the_viewmaster_that/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/vwg7z4/have_any_of_you_heard_of_the_viewmaster_that/) 
