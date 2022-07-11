@@ -1,4 +1,4 @@
-**Trigger Warning!**  
+**Trigger Warning! Suicide/Self-harm**  
 
 .
 
