@@ -124,4 +124,8 @@ I’ve relived that night over and over and over in torment, as if I were being 
 
 As the anniversary of that night approaches, I become more and more aware of the real world. At least, the world that was once reality for me. Year after year I beg the new inhabitants of my home to find a way to release me from this cycle. Year after year I am left alone, trapped in purgatory. Year after year I gain more control of the real world around me, as if the longer I sit in purgatory, the more I’m rejected by death. Some are more perceptive than others and my efforts only drive them away. Others only shiver when I walk by. Some scurry up the stairs after they turn off the lights. No matter how they reacted, they always left.
 
-I’ve become much more capable in the ten years since her death. I'm now able to possess someone's body for a short while and I’m writing this as a plea to anyone who is reading. When you feel like something is lurking in the darkness, watching you. When you feel the hairs on your neck rise. When electricity races down your back and commands your body to sprint up the stairs.  It may just be a plea for help.
+I’ve become much more capable in the ten years since her death. I'm now able to possess someone's body for a short while and I’m writing this as a plea to anyone who is reading. When you feel like something is lurking in the darkness, watching you. When you feel the hairs on your neck rise. When electricity races down your back and commands your body to sprint up the stairs.  [It may just be a plea for help.](https://williamroseberry.com/short-stories/do-you-ever-get-feeling-you-are-being-watched)
+
+&#x200B;
+
+[The Compendium](https://www.reddit.com/user/Manaravak/comments/vfv9j4/the_compendium_heres_where_i_keep_a_list_of/)
