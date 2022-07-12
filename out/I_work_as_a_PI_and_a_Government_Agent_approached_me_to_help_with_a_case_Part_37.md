@@ -1,5 +1,6 @@
 (First: https://redd.it/s648js
 Previous: https://redd.it/v6fs3x
+Next: https://redd.it/vbndz5
 Some child abuse in this one)
 
 Wasting no time, Nick got out of the car the moment we parked. I lagged behind a little due to his heels giving him a little boost in speed. I expected the warehouse to be locked and for us to have to use Nick's lock picking skills, but that didn't turn out to be the case. The door was slightly open, showing us how the dark building looked inside. It was as if Piper wanted us to just walk right in. Silently, we slipped in through the small opening, and dove right into danger unaware of what would greet us.
