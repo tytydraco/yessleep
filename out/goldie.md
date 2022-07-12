@@ -1,0 +1,31 @@
+ 
+
+My grandma brought us up on her memoir, fragmented across boardwalk popsicles and pb& js on the couch. When she’d babysit, the Eric Carle and Shel Silverstein books were left to collect dust. I’d cuddle up under a quilt that’d known her bed for longer than I had, lying awake listening to her tales of riding camels in Egypt and dogsledding in Alaska, fighting the sleep away to find out what happened next. The plot of her life was more riveting than any dream waiting for me. I still replay her stories in my mind when I can’t sleep.
+
+But my favorite story was the one she’d tell me on hard nights, when shadows peeked around hallway corners and thunderstorms shook her Massachusetts colonial. My heart would pound along with my tiny hand on the door, too terrified to look anywhere but forward. But she’d always emerge, rubbing the sleep out of her eyes and asking what I was doing up at this hour. Then she’d turn on the lights and put me on her lap in the crickety old rocking chair. “There’s no need to be scared,” she’d reassure me. “God is always looking out for the both of us. Let me tell you a story.” 
+
+I’d heard it countless times before, but I’d always nod, just wanting to stay in her arms forever.
+
+When my Grandma Jean was a child in the late thirties, she caught measles from a boy at school whom she’d passed notes with in class, along with half of her first grade class. When she came home one day, her neck riddled with red dots, she was locked outside while her mother boarded up her bedroom windows and removed the lightbulbs. Back then, she’d tell me, people thought that the way to prevent blindness in measles patients was to avoid exposure to light. She counted herself as one of the lucky ones: her friend Betty had been kept in the closet. Jean was brought breakfast and lunch in the mornings and dinner in the evenings, but could hardly see what she was eating half the time. Her only source of entertainment was her music box and her one stuffed animal, a tabby cat she called Goldie.
+
+The first night was long and cold, and she shivered in the pitch black, pulling the covers close to her chest. Feverish chills shook her tiny body, and without her lamp, she was too terrified of what might be out there in the nothingness of her room to close her eyes. She held Goldie close to her chest, and slowly began to feel a warmth different from the toy’s velvet pelt. She felt fur and whiskers brush against her face, and heard the soft, unmistakable purr of a cat. Being so delirious, Grandma Jean didn’t ask questions. She just held the cat tight, its body heat radiating through the room, until she finally drifted off to sleep.
+
+In the morning, there was Goldie in her arms, soft and sweet but indisputably plush. A fragment of light snuck in from underneath the door to her room, and when the toasty aroma hit her, she knew breakfast was ready. 
+
+Jean recovered remarkably fast, and two days later she’d returned to skipping rope and playing with her toys. She never felt as sick as she did that first night, and Goldie never purred.
+
+I was always enthralled by this story. I’d clutch my toy cat in my arms and feel safe knowing that she’d protect me just like Goldie protected my grandma. The story ended there until I got a little older, and could hear the rest.
+
+Grandma was eighteen when the Korean War broke out. Fresh out of highschool and craving adventure, she deterred her acceptance to college and signed up to be an army nurse. She worked day and night, tending to gunshot wounds and wrapping tourniquets. She was right on the front lines, and the gunfire seeped into her dreams. 
+
+But the worst part was the treatment from the soldiers. Most were kind and thoughtful, but many were crude, dismissing Jean because of her gender. They’d tell her to get back in the kitchen, or make crude remarks about how what they’d want to do to her figure. She’d try to brush the comments off as best she could and went about her work, but stayed wary.
+
+One day when the base was almost empty, one of the soldiers whistled at Jean, eyeing her up and down like prized cattle. He went on and on about how a pretty thing like her shouldn’t be wasting her time out here in the field. She turned to walk away, but he grabbed her arm and pinned her against the wall. As he leaned in, so close she could smell the egg in his breath, a meow followed by a scream filled the air. She looked down to see a tabby cat with its teeth deep into the soldier’s leg, digging its claws into his calf as he tried to shake it off, but to no avail. Jean ran off, unfazed by the blood gushing down his leg. It was nothing she hadn’t seen before. She was assigned to a different unit the next day.
+
+The tabby cat was there curled up besides her when she got the call that her oldest daughter had died in a car crash, barreled into by an aging man with beer on his breath. She was there when her husband passed, following her through the front door and sitting by her as she sobbed over his limp body. She was there for birthdays and funerals, for graduations and goodbyes.
+
+My Grandma Jean passed last week. The cancer had weaved its way all throughout her body, and she was tired. A few days before she went, when it was just us in the room, she’d lifted her finger to her lips as if to tell me a secret. With what strength she had, she lifted back the covers of her bed and a tabby cat poked its head out from underneath. The cat’s eyes stared at me intently, and we had an unspoken understanding. I’m glad that she got to comfort my grandmother in her last days. I don’t think my mother or the nurses ever saw the cat. I don’t think they were able.
+
+Last night I got home from the funeral, my feet sore and my eyes red. I collapsed on my bed and the sobs racked my body, but somehow through my wails I could hear a soft purr. The tabby was curled up besides me, gingerly licking my tears as they fell. 
+
+The ones you love never truly leave you. Even when they’re gone, parts of them will stay with you forever, keeping you safe from things far more terrifying than what goes bump in the night.
