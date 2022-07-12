@@ -1,0 +1,24 @@
+I just finished unloading boxes into my new house, it was a very quiet neighborhood no one really talked to each other, but I didn’t think anything of it. After finally settling down I decided to finally meet my neighbors next door, I go up to knock on the door when I see there’s no lights on or cars out front I figured they must not be home so I go back to my house. Then I notice a note on my front door “The cradlers shop” the note reads scribbled quickly in black inc. “ was this always here? Did the previous homeowner put this here?” I wondered as I fold it up and slip it into my pocket. I try to pay no mind to it as I walk inside and shut the door behind me.
+
+ Later that night I go out to eat I drive around trying to find places I recognize when I see a little shop round the corner that the sign says “The Cradlers shop” and my curiosity peaks as I pull in to the parking lot and walk in. A little tune chimes as I walk through the door when I see the man working the desk, although somehow he looks off one of his eyes is a slight grey-ish blue as if he’s blind in one eye and he has a long wooden pipe sticking out of his mouth like something you’d see in an old cartoon and he had old wrinkly fingers that were oddly crooked like something you’d need makeup or special effects for, the final thing that was odd about him was that he wasn’t sitting down just standing as if he never got tired.
+
+I’m so distracted by his appearance that I barely noticed him greet me when I come in his voice was grisly and stammered, I quietly say hi back and go to look around. It was all very antique, old tables, vases, and music boxes. however what catches my eye is a rocking chair in the corner of the store it’s brown and beaten up and I look for a price tag but there is none I take it up to the front desk and ask the man how much it costs he says “you can have it for free if you take it off my hands” I’m taken back by the answer but not surprised, it was worn down and probably not worth much anyway I take it back to my car thinking I got a steal “with a little bit of polishing up this will be as good as new” I said to myself. When I start driving I realize I still haven’t gotten something to eat as my hunger sinks in. I grab a bite and head home and I get a sickening feeling as if I’ve made a terrible mistake I try to ignore it as I get to my house and pull in to the driveway and take out the rocking chair from the back when I see a note tapped to the bottom of the chair. I take it off and read the note and it shows a list of instructions scribbled in the same hand writing and black inc as before
+
+Rule one:
+Don’t sit in the chair while it’s rocking while it’s rocking on it’s own
+
+Rule two:
+if you’re sitting in the chair and it starts rocking on its own stand up IMMEDIATELY
+
+Rule three:
+ if the chair starts rocking faster and faster each rock don’t sit down for the next hour
+
+Rule four: if the chair starts rocking fast but then gets slower and slower RUN she’s standing up
+
+Of course I don’t take this seriously, a rocking chair rocking by itself what a load of bologna. When i’m about to throw away the not I see something on the back I see a little note that reads “NEVER STOP THE CHAIR FROM ROCKING.” But of course I disregard this just like all the other notes and promptly throw it in the trash along with the note I found on the door “this all must be some big elaborate prank designed to scare the new owners.
+
+ I put the chair in the living room and go to sleep, however I’m woken up in the middle of the night by a loud creaking sound I go downstairs to check what it was when I see the chair slowly rocking as I feel that same sickening feeling I’m confused and scared but the rocking stops and I immediately take a slight sigh I couldn’t believe that note was real I didn’t know what to do it was the middle of the night the shop probably wasn’t open so I took the chair to a nearby bridge and threw it off.
+
+I watched it shatter as it hit the water and I go back home feeling as if a weight has been lifted off my back as I drive back home. When I get back inside I try to walk back to the stairs as I look to the living room I see it again the very chair I saw destroyed at the bottom of a river, but this time with a little note lightly placed on top reading “you can’t get rid off me.” Signed Lydia. I immediately start freaking out not knowing what to do. 
+
+I run to the trash can and get the note with the same instructions as before but this time I look closer in the bottom left there are times reading 10:00, 11:00, and 12:00 I look at my watch as it ticks to 11:00 and the chair begins to rock again but this time rocking fast but slowly stopping to halt I look at the note for further instructions and my heart sinks I’m frozen with fear and then it attacks me some invisible force starts scratching me and hitting me I try to scream and run but somehow deep down I knew it was to late for me.

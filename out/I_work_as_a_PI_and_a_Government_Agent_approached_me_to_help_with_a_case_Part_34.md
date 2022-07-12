@@ -1,5 +1,6 @@
 (First: https://redd.it/s648js
-Previous: https://redd.it/uw5tx9)
+Previous: https://redd.it/uw5tx9
+Next: https://redd.it/v2xk90)
 
 After the encounter with the ghost it was a bit difficult to get back on my feet again. I could tell Nick was worried about the aftermath of such a case. He was dropping by my apartment more often with small gifts or food. No matter how much I assured him I was fine, he would be at my door the next day with something in hand. What got me back into the office was when he dropped off an entire bag of oranges. There was no way I could eat these many so I brought them in for Jimmy and Tippie. They’ve done just fine without their boss for a few days. Aside from a pile of paperwork that still needed to be filed, the office was in running order.  
 

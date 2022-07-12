@@ -1,5 +1,6 @@
 (Previous: https://redd.it/v25fua
-First: https://redd.it/s648js )
+First: https://redd.it/s648js
+Next: https://redd.it/v6fs3x )
 
 “How do we beat them?” I asked, my hands sweating against the grip of my gun and not because of the heat. 
 

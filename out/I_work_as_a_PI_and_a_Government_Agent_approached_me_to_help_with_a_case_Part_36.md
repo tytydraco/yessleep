@@ -1,4 +1,6 @@
-(First: https://redd.it/s648js Previous: https://redd.it/v2xk90)
+(First: https://redd.it/s648js
+ Previous: https://redd.it/v2xk90
+Next: https://redd.it/v7b23h)
 
 On the last case, the cost of saving the world was that my hair got dyed. The purple was fading after a few days and yet Jimmy still had the nerve to make fun of it. I’d dropped by the office to bring milkshakes for her and Tippie as a reward for doing such a good job holding down the fort while I was busy. Tippie was very happy to get a treat. He finished it in record speed before he left, on the hunt for some more lost pets. He was a kind and honest creature that put all of his energy into returning animals to their families. Recently, we’d gotten him set up to fix any feral stray cats he was able to catch and release in order to combat the overpopulation in our city. 
 
