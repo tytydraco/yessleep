@@ -202,7 +202,9 @@ He was quiet for a brief moment before saying, "I think I know what you mean. I'
 
 "I know man, maybe we will have to call it quits for a bit and then pick it back up later. By then they will have moved on and nothing will ruin our playthrough anymore."
 
-I sighed, "You're right, this sucks. Alright man, let's disconnect and maybe play something else?"
+He sighed, "You're right, this sucks." 
+
+"Alright man, let's disconnect and maybe play something else?"
 
 "For sure… wait…" Stevie said in an uncertain tone.
 
@@ -548,7 +550,7 @@ I sprung into action and charged straight at him. There was a visible reaction o
 
 We clashed, fiercely. He never said a word and his fighting skills were ferocious. I tried to take every opportunity given to find my mark, but each was met with his defying steel. But opportunity ALWAYS presents itself, even in a fantasy world.
 
-Against his better judgment, Taldarin142 made an imperfect decision. He turned his body ever so slightly to the right, which allowed for me to counter his attack and thrust my blade directly into his side. I felt the resistance of my metal impaling him, flesh bone and all. He did not cry out in pain, but he did drop his blade and fall to his knees.
+Against his better judgment, Taldarin142 made an imperfect decision. He turned his body ever so slightly to the right, which allowed for me to counter his attack and thrust my blade directly into his side. I felt the resistance of my metal impaling him, flesh, bone and all. He did not cry out in pain, but he did drop his blade and fall to his knees.
 
 I gazed down at him for a few short moments. He sat with his head facing towards the ground and his hands on his lap, palms facing upwards. I pushed him over onto his side before walking to one of the sconces and picking it up.
 
