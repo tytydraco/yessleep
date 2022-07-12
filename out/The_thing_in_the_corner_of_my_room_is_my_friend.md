@@ -78,7 +78,7 @@ Usually when a murder in a house occurs it takes a while, possibly days for the 
 
 The only thing that was unusual was a large, black top hat on my bed, beside the spot I sat.
 
-Out of curiosity I picked it up and found it.
+Out of curiosity I picked it up and found a note in it.
 
 The note read,
 
