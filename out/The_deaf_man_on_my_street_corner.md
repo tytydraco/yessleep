@@ -4,7 +4,7 @@ There used to be one on my street corner.
 
 The house just stood there, shrubbery and all. Somehow, despite the air of decay that the yard seemed to have, the plants were thriving. 
 
-I drove by it every day on my way to work, and I always took note of how beautiful it was while waiting for the light to turn green. It was a bit off, though. Something about it just screamed off putting. However, I didn’t think much of it. Just shoved the thought away and told myself that I was just convincing myself there was something I should be scared of.
+I drove by it every day on my way to work, and I always took note of how beautiful it was while waiting for the light to turn green. It was a bit weird, though. Something about it just seemed very off putting. However, I didn’t think much of it. Just shoved the thought away and told myself that I was just convincing myself there was something I should be scared of.
 
 After all, it was a really nice house. 
 
@@ -32,7 +32,7 @@ This time, the man was outside watering his garden. I yelled hello, as per the d
 
 I thought that the last thing I expected was for him to look at me and wave back. The last thing I actually expected was for him to look exactly like my father did.
 
-My father who was… mostly deaf, and who owned the exact same coat that this man—my father—had been wearing. The gears in my head all clicked together at once, and I raced to get out of the car.
+My father, who was mostly deaf, and who owned the exact same coat that this man—my father—had been wearing. The gears in my head all clicked together at once, and I raced to get out of the car.
 
 When I looked up, the man was gone and the house was reduced to a burnt skeleton of what I’d just seen a moment ago. 
 
