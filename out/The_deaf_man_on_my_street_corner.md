@@ -8,11 +8,13 @@ I drove by it every day on my way to work, and I always took note of how beautif
 
 After all, it was a really nice house. 
 
-Even that man that lived there was nice. I never got a look at his face, but his outfit was nice. He had this hat, kind of like the ones paper boys wore back in the eighties, and he always wore this coat that reminded me of my father’s coat when I was younger. 
+Even that man that lived there seemed nice. I never got a look at his face, but his outfit was nice. He had this hat, kind of like the ones paper boys wore back in the eighties, and he always wore this coat that reminded me of my father’s coat when I was younger. 
 
-I always tried to talk to him, and he always seemed to just ignore me. At least, I thought he was ignoring me. 
+He was out gardening nearly every day. I always tried to talk to him, and he always seemed to just ignore me. At least, I thought he was ignoring me. 
 
 I told my mom about him over dinner one day, because I was annoyed that he just wouldn’t stop ignoring me. She, thankfully, informed me that he was probably deaf and not ignoring me. 
+
+I was surprised I didn’t realize sooner, seeing as my father was deaf.
 
 The next week, things got a bit odd. My mom was headed to town that day for some groceries, and offered to take me to work. 
 
