@@ -1,5 +1,6 @@
 (First:https://redd.it/s648js
-Previous: https://redd.it/v7b23h)
+Previous: https://redd.it/v7b23h
+Next: https://redd.it/vcet9n)
 
 I had my hands full, and for once it was due to family instead of work. After getting in contact with my sister's ex-boyfriend, who started raising two of her kids, he invited me over. I couldn't get over how big those two got while I was off setting up my P.I. firm. I couldn’t pick them up without their feet almost touching the ground, but we still tried. I regretted all the time we spent away from each other. Now that I hired Tippie, I could abuse his talent for transportation spells to see them whenever I wanted.   
 

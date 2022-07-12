@@ -1,5 +1,6 @@
 (First: https://redd.it/s648js
-Previous: https://redd.it/vcet9n)
+Previous: https://redd.it/vcet9n
+Next: https://redd.it/vgvg7a)
 
 My partner didn’t ask me for too many personal requests since he is a fairly private person when it comes to everything. For him to open up to ask something of someone else is a pretty big deal. We had just finished a small case when I noticed his odd mood. No danger to the job. Just running after some small fuzzy creatures in the woods all day to bring them back to their real home. I caught Nick stuffing his suit jacket with them, and I swear if they didn’t already have homes, he would have kidnapped them all. 
 

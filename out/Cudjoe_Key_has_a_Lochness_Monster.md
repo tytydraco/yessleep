@@ -1,0 +1,25 @@
+My grandparents and I go on vacation together every year to Florida. Usually, it’s in Captiva and Sanibel right off of Ft Myers, but this year we went to the Florida Keys to visit some family. So, the complete opposite side of the state. I turn 18 in a few days so it’s been nice getting to meet some cousins that I STILL hadn’t met yet. 
+
+It’s a cute area and there’s so much to do. I still prefer Captiva, but the Keys are very touristy so there’s more activities around. We’re staying at a “resort”, which is just a marina with houses on it so we’re right by the water and honestly it’s beautiful. The place we’re renting has life jackets, kayaks, and bikes, which I didn’t intend on using. But, I found myself awake still at 2am this morning so I decided to sneak out and go on a bike ride. 
+
+One thing about me that’s important to note is I’m absolutely fucking TERRIFIED of the ocean. It’s so pretty and I love the idea of the beach, but water scares the shit out of me. Only like, 3% of the ocean has been explored. Who’s to say megalodons aren’t still alive and well? Whales scare me more than anything because they’re so big and humans are so small, like at least 3 times smaller. But I digress. 
+
+As I was biking along the road, I would take some glances over to the water. It was still, peaceful, and just overall comforting. I smiled to myself a lot tonight (or this morning, rather) because I felt so at home. I guess it was all a trap based on what I’m about to tell you. 
+
+Around 2:25 or so, I looked over at the ocean again and saw a huge ripple go through the surface. I didn’t even want to know what kind of creature could make a wave that big. God forbid it was a whale. 
+
+Spoiler alert: it was not. Although I would’ve much rather that then what I saw. 
+
+You know how white people are always the dumbest people in horror movies and do the exact opposite of what they should? Yeah, I’m no exception. Dumb as fuck. I biked over to the edge of the marina and waited for another wave, but nothing happened. I thought I imagined it. So I sat on the ledge, took my shoes off, and put my feet in the water. Ahead of me was nothing but blue, and below nothing but clear. I could see my feet, but not the ocean floor. That was extremely unsettling to me, and I immediately got out as fast as I could. The moment I stood up, I saw nothing in the water. Okay, and? Yeah, I mean black, dark nothing. Which is a very big problem considering i could see through it just seconds ago. I just stared in shock. About 5 seconds pass, and I can see again, but realize it had been a figure going by. And a big ass figure at that too, considering how long it took to be out of sight. Then, another ripple. 
+
+This time, the water started spinning, like a whirlpool. The water parted in the shape of a tornado if that makes sense, I don’t know how to describe it (English is not my first language) but it dipped down so there was empty space in the center of this whirlpool. It had to have been at least 50 feet across. I almost shat myself when I saw the tail. It whipped above the surface and splashed back down into the sea, probably as big as a house. It was like when you look at something so horrible that you can’t bring yourself to look away. Just like that. I had never been more scared in my life, up until about 10 seconds later when this thing peeked it’s head above water. It was just enough that you could see it’s eyes, nothing more. Big, yellow, almost neon eyes. It’s skin was scaly and a deep deep blue, almost black. It’s gills looked like open wounds, all red and bloody. It didn’t have a nose, kind of like a Voldemort thing going on. Just slits for nostrils, but it wasn’t snake-like. I couldn’t move. I stood there crying and hyperventilating but trying my hardest to keep quiet. I just kept thinking in my head, “Don’t move, don’t move, don’t move, don’t let it see you”. 
+
+It did. 
+
+And it opened its mouth. 
+
+Razor sharp teeth like an angler fish’s the size of like my mattress or a really tall man or something. Unreal. It clamped its jaw down so hard the ground shook. And then I knew I was royally fucked. I grabbed the bike that was far too big for me and I jumped on, riding away as fast as I could. I didn’t look back even once, not even when I heard the noise it made. Think of a whale on PCP. Absolutely feral shit, I couldn’t believe it didn’t wake the whole neighborhood. My eardrums must’ve burst or something. By the time I made it back to the house at 2:58, the water was completely still and calm again. As peaceful as it was before. 
+
+It’s currently 3:41 and I’ve been doing research into this since I got home trying to figure out what the fuck I just saw. No sea creature matches ANY of that description, and how could it? That’s either a mutant or a supernatural thing. Not even a single local legend about it. 
+
+So, Cudjoe Key, you have your very own Lochness Monster, and I had the misfortune of meeting it myself.

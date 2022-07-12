@@ -1,5 +1,6 @@
 (First: https://redd.it/s648js
-Previous: https://redd.it/vbndz5 )
+Previous: https://redd.it/vbndz5 
+Next: https://redd.it/vgvg7a)
 
 Klein, speaking to himself, pulled at his hair as he walked over to the coffin, large syringe in hand. Using it to draw blood from Nick’s arm, he walked back to the table. My partner not moving in the slightest. The person sitting in the chair had their head down. Carefully lifting it he whispered something over to them. His face filled with grief. The one he spoke with had been a very beautiful woman, who'd looked to be dead for at least a few days. He stroked her hair as if she was just sleeping. Whispering promises as he took a strand of hair.  
 
