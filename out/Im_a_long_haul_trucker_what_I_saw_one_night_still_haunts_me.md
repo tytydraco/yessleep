@@ -46,7 +46,7 @@ I had begun to pull out the small, thin book of crosswords I carried around in t
 
 Two large men dressed in black suits entered the diner, both looking around before pointing in the direction of the man sitting by himself in the corner. I continued watching them as I ate.
 
-The man at the table was wearing a sweatshirt with the hood pulled over his head, his hands folded neatly on the table in front of him, like a man deep in prayer. It was hard to make out his expression because his face was obscured not only by the hood, but also from the long dark hair sweeping across the bridge or his nose, past his chin.
+The man at the table was wearing a sweatshirt with the hood pulled over his head, his hands folded neatly on the table in front of him, like a man deep in prayer. It was hard to make out his expression because his face was obscured not only by the hood, but also from the long dark hair sweeping across the bridge of his nose, past his chin.
 
 I swallowed, then took a sip of water as I watched the men in suits sit across from the hooded man.
 
