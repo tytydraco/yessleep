@@ -82,7 +82,7 @@ When I roll over, I am face to face with someone. Someone is crouched down at my
 
 *Click-click, click-click.*
 
-I jump from the bed, slamming my light switch up. Of course, it had disappeared as soon as the lights were on. I ran to the living room and then I just kinda stood there?
+I jump from the bed, and rush for the lights. Of course, it had disappeared as soon as the lights were on. I ran to the living room and then I just kinda stood there?
 
 I mean, I had to process what I had just witnessed. No signs of anyone in my house. Doors were still locked, cat sleeping lazily on the couch, nothing out of the ordinary. 
 
