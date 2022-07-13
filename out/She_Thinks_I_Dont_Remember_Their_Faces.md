@@ -97,3 +97,7 @@ I hate being alone.
 [Part 3](https://www.reddit.com/r/nosleep/comments/vravnc/she_thinks_i_dont_remember_their_faces_pt_3/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/vvyen6/she_thinks_i_dont_remember_their_faces_pt4/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/vwy7nl/she_thinks_i_dont_remember_their_faces_pt5/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/vy4tic/she_thinks_i_dont_remember_their_faces_pt6_finale/)

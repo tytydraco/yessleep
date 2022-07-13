@@ -83,3 +83,7 @@ Please help Alice.
 [2](https://www.reddit.com/r/nosleep/comments/vqkr1v/she_thinks_i_dont_remember_their_faces_pt2/)
 
 [3](https://www.reddit.com/r/nosleep/comments/vravnc/she_thinks_i_dont_remember_their_faces_pt_3/)
+
+[5](https://www.reddit.com/r/nosleep/comments/vwy7nl/she_thinks_i_dont_remember_their_faces_pt5/)
+
+[6](https://www.reddit.com/r/nosleep/comments/vy4tic/she_thinks_i_dont_remember_their_faces_pt6_finale/)

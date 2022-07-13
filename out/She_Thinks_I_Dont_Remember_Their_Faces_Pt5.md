@@ -31,3 +31,13 @@ It feels like a scooby-doo moment when they remove his mask and it’s the same 
 This may have been my big break in saving Alice. I can only hope it wasn’t too late… I can only pray that the man being pulled from the game does not mean that someone worse or more sinister will replace him in her “care”. 
 
 I am back at home, where the police told me to be while they investigate further. I begged to be allowed to go with them but they said it wouldn’t be safe for me to go with, should I be correct. I have turned over all of Alice’s posts and shared my fears that something is wrong as I have not seen any posts but mine on our shared account in a hot minute. I will update as soon as I can but please continue sending good vibes for Alice and praying for her safe release. I miss her so much and I know that some of you have been here with her from the beginning. I promise, I will not fail her again.
+
+[Part 1](https://www.reddit.com/r/nosleep/comments/vpux49/she_thinks_i_dont_remember_their_faces/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vqkr1v/she_thinks_i_dont_remember_their_faces_pt2/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vravnc/she_thinks_i_dont_remember_their_faces_pt_3/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vvyen6/she_thinks_i_dont_remember_their_faces_pt4/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/vy4tic/she_thinks_i_dont_remember_their_faces_pt6_finale/)

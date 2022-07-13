@@ -86,3 +86,7 @@ I am a great bartender.
 [2](https://www.reddit.com/r/nosleep/comments/vqkr1v/she_thinks_i_dont_remember_their_faces_pt2/)
 
 [4](https://www.reddit.com/r/nosleep/comments/vvyen6/she_thinks_i_dont_remember_their_faces_pt4/)
+
+[5](https://www.reddit.com/r/nosleep/comments/vwy7nl/she_thinks_i_dont_remember_their_faces_pt5/)
+
+[6](https://www.reddit.com/r/nosleep/comments/vy4tic/she_thinks_i_dont_remember_their_faces_pt6_finale/)

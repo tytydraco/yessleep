@@ -62,3 +62,13 @@ We have a long road ahead of us and I am unsure what consequences there will be 
 
 
 Alice finally remembers my face.
+
+[Part 1](https://www.reddit.com/r/nosleep/comments/vpux49/she_thinks_i_dont_remember_their_faces/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vqkr1v/she_thinks_i_dont_remember_their_faces_pt2/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vravnc/she_thinks_i_dont_remember_their_faces_pt_3/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vvyen6/she_thinks_i_dont_remember_their_faces_pt4/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/vwy7nl/she_thinks_i_dont_remember_their_faces_pt5/)

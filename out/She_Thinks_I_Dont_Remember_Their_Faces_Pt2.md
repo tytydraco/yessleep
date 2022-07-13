@@ -105,3 +105,7 @@ I commit that to memory. Brad has a name. [Brad exists.](https://www.reddit.com/
 [3](https://www.reddit.com/r/nosleep/comments/vravnc/she\_thinks\_i\_dont\_remember\_their\_faces\_pt\_3/)
 
 [4](https://www.reddit.com/r/nosleep/comments/vvyen6/she\_thinks\_i\_dont\_remember\_their\_faces\_pt4/)
+
+[5](https://www.reddit.com/r/nosleep/comments/vwy7nl/she_thinks_i_dont_remember_their_faces_pt5/)
+
+[6](https://www.reddit.com/r/nosleep/comments/vy4tic/she_thinks_i_dont_remember_their_faces_pt6_finale/)
