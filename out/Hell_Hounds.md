@@ -1,0 +1,15 @@
+Falling into a deep sleep is like submerging into water. One sinks in and descends further from the light. Floating in an irregular state. Floundering around hoping to learn to move anew. Now imagine your sleep to be an ocean as the waves carry you ashore. Each time the destination is unique. Some places can be a paradise. While others can be a hellish nightmare. 
+
+I never trusted people that claimed to have extra sensory perception. Rarely have I ever believed in the powers of the clairvoyant. Though this is sink into the depths of denial. Skeptic because the world told me it's the only way to stay afloat. I’ve been told to have a blind conviction in the occult is foolishness. 
+
+However, as I slide between the cool sheets I feel weightless. When I was twelve I dreamed of something different. I was behind my backyard near a hill that led to train tracks. As I crossed the asphalt into the grass I heard crows caw. Black wings fluttered through the sky. Above me was a murky grey sky. 
+
+Gently winds whispered through the trees. Lush green leaves rustled as the branches swayed. As I step onto the grass behind the pavement I mastered serenity. All to be taken by sounds of barking. Shock-like a cold chill of ice going down my esophagus whole overcame me. Up thereupon the tracks were dogs veiled in black. 
+
+With a ravenous hunger, they uplifted gravel as they vaulted downhill. Unsettling grass their paws ripped blades of foliage from its plot. I turned and ran toward my home as one circled behind and the other in front. Ensnared in a circle and left with no plan I hesitated. That was all it took before I was pounced on. The pain of the dogs tearing through my flesh jarred me awake. 
+
+Frantically I awoke swinging for the faces of the hounds. Fortunately, all I could swing for was air. As my heart rate came to a steady pulse I felt the sweat pop from my pores. Alas, it was all nightmare. About a week later I took my skateboard out to the alley behind my yard. I recently learned to ollie. I wanted to progress to a kickflip. So I practiced for about an hour on the asphalt. Then I heard panting and snarling. Though it was already too late. 
+
+Two black pit bulls came barreling down at me. Quickly they closed the distance. Perilously I continued to kick and push hoping to escape on my cheap skateboard. Though it could only carry me so far yet so slow. Finally, I fleeted from the board on foot. Heading away from home was my only reaction. As they got closer I felt the nose of one of the dogs against my calve. Without hesitation, I vaulted over a neighbor's gate. 
+
+These dogs were relentless as they gnawed at the gate. Barking, snarling, and snapping their jaws was about all they could do. For on this day I triumphed. Though I always wonder. Was that nightmare a premonition for a plausible alternative end? Could I just as well be the boy ravaged by canines as they chewed through my innards?

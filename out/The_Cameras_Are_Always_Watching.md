@@ -48,7 +48,7 @@ The first thing I noticed was that the lights around the office were blinking in
 
 there was someone on the live feed.
 
-I looked down the hallway, just outside of the room I was in, and there was a person peeking around the corner that lead to the other office space by the back door. It wasn't a natural kind of peeking, as natural as that can be. Their head was perpendicular to the wall they were peeking around, at a strange 90-degree angle. Where the head was, was unnaturally tall, seven feet above the ground. The thing had long black hair that drooped down to the floor, longer than seven feet, it made almost a pool of black tangled mess. The most terrifying thing of all, however, is that it couldn't be mistaken for a human. The thing didn't have a face. 
+I looked down the hallway, just outside of the room I was in, and there was a person peeking around the corner that lead to the other office space by the back door. It wasn't a natural kind of peeking, as natural as that can be. Their head was perpendicular to the wall they were peeking around, at a strange 90-degree angle. Where the head was, was unnaturally tall, seven feet above the ground. The thing had long black hair that drooped down to the floor, longer than seven feet, it made almost a pool of black tangled mess. The most terrifying thing of all, however, is that it couldn't be mistaken for a human. The thing didn't have a face.
 
 In place of a face, eyes, nose, a mouth, it had the large black lens of a dome camera instead. In the center blazed a large red LED light, blinking on and off, staring down the long hallway towards the room I was in. Even in broad daylight, it was hard to tell what it was with the blinking lights. The lights above made it almost disappear when they went out, save for the red light which still blinked out of rhythm with the ones above.
 
@@ -72,7 +72,7 @@ That paranoia had its own curiosity though. I remembered last Wednesday, the fir
 
 I found what I was looking for. There was someone in the small window leading into the other office. The lights began to blink in the office space beyond the door as they did over here the first time I saw the creature. In between the pulses, there was a single red light visible in the window. When the lights came back on, it was there, the thing with the camera face. It peeked through the small window connecting the two offices. The lights continued to pulse in the office, it just stood there for a short while.
 
-Finally, it moved, between one of the pulses I saw its head move THROUGH the door. Its body was half stuck in between the two offices, as it began pulling itself through without the door being opened. 
+Finally, it moved, between one of the pulses I saw its head move THROUGH the door. Its body was half stuck in between the two offices, as it began pulling itself through without the door being opened.
 
 And then my phone died. the battery had run out.
 
@@ -92,7 +92,7 @@ I looked up at the door, watching, waiting for the thing to come into view. The 
 
 Run up and close the door? I was on the right side for it. There wasn't any way that could work though if it was right next to the door. Jump through the window? I was on the ground floor, but I'd need to somehow get enough force to ram into it. Smash the window. Smashing the window was my only option.
 
-The lights went dark, no longer pulsing, off. I grabbed a chair and threw it at the window, not a crack. I heard a sharp sound from behind me, it sounded like someone saying *psst*. 
+The lights went dark, no longer pulsing, off. I grabbed a chair and threw it at the window, not a crack. I heard a sharp sound from behind me, it sounded like someone saying *psst*.
 
 When I turned around, I couldn't see the door. It was dark outside, raining, and the lights were all off. It was so quiet, so silent you could hear every drop of rain. I saw a red light in the doorway, blinking, staring at me.
 
@@ -102,7 +102,7 @@ I saw it, in the doorway. It was crawling underneath the door frame, bending dow
 
 I felt like screaming but was frozen with fear. It didn't move for a few moments. The only other way out was through the door it was standing in front of. It just stared at me, taking me in. It stood there for as long as the thunder rumbled. We stared at each other, perhaps waiting for one to make a move.
 
-Lightning fast, another lightning flash coated its body. It clambered onto the table in front of me on all fours. I saw a deep gaping maw appear on its face. The dome camera split in half, when it opened this god-awful mouth, I could see hundreds of human eyes within, watching me, staring at me. Blood poured from its mouth and onto the table in front of me.
+Lightning fast, another lightning flash coated its body. It clambered onto the table in front of me on all fours. I saw a deep gaping maw appear on its face. The dome camera split in half, when it opened this god-awful, mechanical mouth, I could see hundreds and hundreds of human eyes within, writhing, watching me, staring at me. Its maw extended deep into an unseen void that descended forever. I was gazing into a valley of stars, though it was just glints of light off of the iris of the eyes. Blinking, watching, recording, they all gazed upwards to a light that would never be reached.
 
 *MOVE!* My mind screamed, as its head gnashed towards mine. I ducked my head, scraping it against the creature's chin. I heard the crash of glass as its face reconnected at the center of the seam. I dove underneath the conference room table, rolled to the other side, and sprinted into the hallway. The thunder rumbled under my feet as I hooked around the door, towards the back door of the office, and towards my car. I could hear the thing fumbling behind me, the table sounded to almost being thrown across the room. I heard the scrape of metal on metal as it let out a howl so menacing it cut me to my soul. It sounded like a deep, metallic scream of a man in pain.
 
