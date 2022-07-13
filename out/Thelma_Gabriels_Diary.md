@@ -58,6 +58,6 @@ I'll be posting the seven entries a few at a time, but for now, here are the fir
 
 And those are only the first two entries, let me remind you.
 
-Trust me. 
+Trust me.
 
 **It only gets worse.**
