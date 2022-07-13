@@ -162,4 +162,4 @@ I turned to the side and lifted my sleeve showing him my scar.
 
 &#x200B;
 
-{ [PART 7](https://www.reddit.com/r/nosleep/comments/vjm3sn/whats_worse_than_a_psychopath_part_7/) }
+{ [PART 7](https://www.reddit.com/r/nosleep/comments/vjm3sn/whats_worse_than_a_psychopath_part_7/) }{ [PART 8](https://www.reddit.com/r/nosleep/comments/vui02y/hats_worse_than_a_psychopath_part_8/) }
