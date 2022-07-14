@@ -17,7 +17,3 @@ I stood in the dark hallway with a knife in my hand staring inside the room, hug
 He was unrecognizable, his face had turned into a mush of meat and I was finally satisfied. I didn’t bother cleaning up since nobody would be coming home for a week, I turned off the TV and went to sleep. 
 
 In the morning the smell of food woke me up. ‘what are the neighbours cooking for a smell to be so strong that I can feel it in my house’ I thought to myself while getting out of the bed. I started heading to the kitchen but froze in the doorway, I could feel my heart drop when I realized that the smell was coming from MY kitchen. I slowly and quietly walked to the kitchen and once again was hit with a wave of shock. He was standing at the stove cooking some type of soup. I immediately turned my head towards the living room where I had turned his body into a mush last night, it was clean… as if nothing had happened. My knees started to weaken from fear, I was about to collapse when he turned towards me “if you are awake start cleaning the house” he said in that disgusting and irritable voice of his.
-
-\*\*\*
-
-N: i wrote this last year to vent out my hatred and anger towards my dad lol its a bit cringe and badly written plus its not finished either but ive been going back to it once in a while to somehow finish it but i never got any ideas so i gave up. yeah im so nervous to post this for some reason lol but i kinda wanted to share it somewhere

@@ -299,7 +299,9 @@ The boy who I'd seen drop out of the sky finally had a name. 
 
 I cut into their back and forth. “What is Lux?” 
 
-Freddie lay back on the bed, letting out an exaggerated sigh. "Lux.” He shot me a look. “You know the stories which swear there's a secret society in every elite school and university? Well, they're correct." He grabbed a pillow and stuffed his face into the material, his words muffling, “Introducing Lux, your worst nightmare, and this school’s worst kept secret, especially when we get Flyers every month. Lux is a group of sociopaths led by the son’s and daughter’s of this school’s administration. They were bored one day, so they thought, hey, why don’t we start fucking with the kids below us?”
+Freddie lay back on the bed, letting out an exaggerated sigh. "Lux.” The boy shot me a look.
+
+"You know the stories which swear there's a secret society in every elite school and university? Well, they're correct." He grabbed a pillow and stuffed his face into the material, his words muffling, “Introducing Lux, your worst nightmare, and this school’s worst kept secret, especially when we get Flyers every month. Lux is a group of sociopaths led by the son’s and daughter’s of this school’s administration. They were bored one day, so they thought, hey, why don’t we start fucking with the kids below us?”
 
 Freddie threw the cushion at the wall, “And thus, Lux was born, and has been terrorising Eaton since before the First World War. When they choose you, they mark you two nights before their annual party– and depending on how you act that night, they will make the decision whether you join their circle, become a mindless guard or servant, and my personal favourite–”
 
