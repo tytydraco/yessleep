@@ -42,7 +42,7 @@ She flicked on the old light and made her was cautiously down the creaky stairs.
 
 She wanted to run back upstairs and shut the whole thing out of her mind but felt a cold hand push her gently from behind and swore she heard her grandfather’s voice mixed in with the tremble of the old copper pipes whisper ‘help me.’ She walked up to the freezer and slowly pulled the up and open. 
 
-What she saw would haunt her dreams for the rest of her life. Inside was my great-grandpa Morris! His body was cut into pieces, skin and muscle peeled back, barely recognizable, and completely eviscerated. She covered her mouth and screamed quietly into her hands in disbelief of the carnage. She looked around the horrible room, the situation piecing itself together I her head. “Oh no!” she exclaimed as she bolted up the stairs as fast as she could. 
+What she saw would haunt her dreams for the rest of her life. Inside was my great-grandpa Morris! His body was cut into pieces, skin and muscle peeled back, barely recognizable, and completely eviscerated. She covered her mouth and screamed quietly into her hands in disbelief of the carnage. She looked around the horrible room, the situation piecing itself together in her head. “Oh no!” she exclaimed as she bolted up the stairs as fast as she could. 
 
 She ran into the living room and saw me pulling another cookie to my face and slapped it out of my hand. I looked at her with a scowl before I realized how horrified her face was. She picked me up and held me close to her chest, eyes never leaving my great-grandma. 
 

@@ -61,3 +61,5 @@ And those are only the first two entries, let me remind you.
 Trust me.
 
 **It only gets worse.**
+
+PART TWO: [https://www.reddit.com/r/nosleep/comments/vym74e/thelma\_gabriels\_diary\_part\_2/](https://www.reddit.com/r/nosleep/comments/vym74e/thelma_gabriels_diary_part_2/)
