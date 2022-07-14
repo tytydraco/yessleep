@@ -1,8 +1,8 @@
 I didn't really know what I was getting into.
 
-I'm a recent police academy graduate and only just managed to join the force, moving to the town of Blackthorn, Ohio and joining up there.
+I'm a recent police academy graduate and only just managed to join the force, moving to the town of Blackthorne, Ohio and joining up there.
 
-Blackthorn. Not even the name sounded inviting.
+Blackthorne. Not even the name sounded inviting.
 
 But I decided to ignore that. You know, looks can be deceiving and all that. And unfortunately, I would get that particular maxim hammered into my brain very quickly. For a number of reasons.
 
