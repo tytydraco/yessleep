@@ -6,11 +6,11 @@ I should have known we were fucked from the jump. My gut sensed something off in
 
 I never would have flown on my own if my boss didn’t insist on his yearly ‘team-building’ exercises. That thought ran through my mind like a marathon runner. I hated air travel. I was scared of heights. I couldn’t even bear to look out the window. But that’s just life, sometimes, you know? You don’t get to go back and pull yourself out of the wrong place and wrong time. You just have to live with it. 
 
-**Switch the fucking engine, Gill.**
+"**Switch the fucking engine, Gill.**"
 
 The plane dipped. The luggage chutes opened. Oxygen masks deployed. People screamed. A man held on tightly to his daughter. The woman next to me started to pray. I didn’t recognize the religion, or the language, but it felt fitting given the circumstances. I joined her.
 
-“**We’re diving. We are diving, Gill.**”
+“**We’re diving. We are diving, Gill!**”
 
 I prayed for my mom. I prayed for my sisters. I prayed for all of the friends and family who would have to bury a box without a body. I never planned to die so young. The thought never entered my mind. But in the moment, it felt right, you know? Like it was my time. Like it always meant to go that way. Thousands of feet above the ground without a single loved one by my side.
 
@@ -61,3 +61,5 @@ And then they started to scream.
 An older gentleman got up from his seat and held his chest. He moved towards the restroom and collapsed halfway. Another man rushed to his side. An elderly woman screamed for her sister. Children bawled and howled uncontrollably. I looked down at my own hands, just to take in the light, and that’s when it hit me. 
 
 These weren’t my hands.
+
+"*Please sit down, Sir, we are almost there.*"
