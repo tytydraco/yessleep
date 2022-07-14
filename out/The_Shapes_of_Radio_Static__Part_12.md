@@ -564,6 +564,8 @@ I screamed as the car lurched and gravity seemed to disappear. Airborne, I flail
 
 The smell of gasoline hung in the air, and leaves crunched beneath my feet as I took anxious steps forward. I could hear rushing water, startled birds, and my hammering pulse, but no humans. I was hurt and lost, and I'd never felt more afraid in my life. Every last shred of thrill had vanished. I no longer wanted to be the main character in this cursed adventure.
 
+**Part 1** - [Part 2](https://www.reddit.com/r/nosleep/comments/vz756n/the_shapes_of_radio_static_part_22/)
+
 \-----
 
 [SR](https://www.reddit.com/r/skittishreflections)
