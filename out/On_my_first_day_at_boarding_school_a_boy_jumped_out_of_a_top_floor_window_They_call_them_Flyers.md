@@ -215,9 +215,7 @@ She was smiling, and then her smile was crumpling, twisting into a grimace, befo
 
 “Of course it would be now.” Sunny grasped at her hair like claws. She was talking at a pace which was almost impressive. “Because… because why wouldn’t it be, huh? I have decent grades, I'm actually making friends and joining clubs, and I’m even forcing myself to eat healthily.” She flung out her arm, gesturing to the wall. “Do you know how hard it is to eat three salad leaves a day?” 
 
-Sunny scoffed. “I found the cleanse on Google, and it told me I’d be feeling great after a while, but all I’m feeling is hungry. Hungry! I don’t feel like a new person, I just feel ravenous because guess what? Three salad leaves is not sustainable.
-
-Human beings can’t live on three goddamn salad leaves. What, do they think we’re squirrels?” Sunny came close to me, right in my face. “I’m not a squirrel.” The girl hissed, “And I refuse to eat like one!” She stuck her finger in her mouth, “See!” she said, “See, look! We have teeth! We have teeth to tear into meat, and this stupid cleansing diet wanted me to eat THREE salad leaves a day, and some weird looking Starbucks which looks like Plankton got put in a blender?”
+Sunny scoffed. “I found the cleanse on Google, and it told me I’d be feeling great after a while, but all I’m feeling is hungry. Hungry! I don’t feel like a new person, I just feel ravenous because guess what? Three salad leaves is not sustainable. Human beings can’t live on three goddamn salad leaves. What, do they think we’re squirrels?” Sunny came close to me, right in my face. “I’m not a squirrel.” The girl hissed, “And I refuse to eat like one!” She stuck her finger in her mouth, “See!” she said, “See, look! We have teeth! We have teeth to tear into meat, and this stupid cleansing diet wanted me to eat THREE salad leaves a day, and some weird looking Starbucks which looks like Plankton got put in a blender?”
 
 Sunny dropped to her knees with a sob, nestling her head in her lap. “I was so close.” She whispered, “Mr Mayer told me I could sing. He told me he could get connections, and I really thought… I thought I was finally going to get out of here…”
 
