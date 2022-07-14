@@ -169,3 +169,5 @@ I simply ran, willing my feet to match the pace of the beating of my heart. I co
 "Please!" I heard him yell.
 
 And then there was a gunshot. He screamed, and I fell to the ground.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/vyqb8r/strange_things_happen_on_the_redwater_familys/?utm_medium=android_app&utm_source=share)
