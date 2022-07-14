@@ -100,7 +100,7 @@ Diane emerged. She was walking, like a normal bipedal person. I must have imagin
 
 Diane cracked her neck on each side, stared and smiled at each of us, like she was taking in each of our faces for the first time.
 
-She shook her head slowly. She gave me a smile unlike the one she flashed at Paul and Aida. She winked at me. She smelled of old things. She looked disheveled and walked stiffy.
+She shook her head slowly. She gave me a smile unlike the one she flashed at Paul and Aida. She winked at me. She smelled of old things. She looked disheveled and walked stiffly.
 
 We looked around, the thing is, there was no door to the basement that we could find.
 
