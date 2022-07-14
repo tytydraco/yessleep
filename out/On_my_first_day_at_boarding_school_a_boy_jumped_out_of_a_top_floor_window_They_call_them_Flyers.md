@@ -59,7 +59,7 @@ The explosion of red in front of me set something off inside me, but I couldn't 
 
 “Come on, man. This is a new car! I’ve got other clients and there’s fucking brains splattered everywhere.” 
 
-He pocketed his phone before turning to me with a sickly smile. Then he turned to me with a smile. “You’ll get used to flyers,” The driver rubbed his chin, “Though I’ve gotta say, it’s a little early for ‘em. I expected them in September.”  
+He pocketed his phone before turning to me with a sickly smile. “You’ll get used to flyers,” The driver rubbed his chin, “Though I’ve gotta say, it’s a little early for ‘em. I expected them in September.”  
 
 It took me a second to piece together his words in my head.  
 
@@ -131,11 +131,11 @@ Like a boy hadn’t just thrown himself out of a six-story window.  
 
 I saw them sitting in groups as well as twos and threes, some alone, typing on laptops, and others leaning against a tree with a book in their lap. Looking at them smiling, laughing, talking amongst each other, I couldn’t see any hint that a boy was dead. They were in their own world, and I struggled to see how they chose to turn away from something so horrific. 
 
-Mrs Wiliamson was getting further and further away, more of a shadow under the lane afternoon sun—and I struggled to awkwardly run after her, stepping over girls sunbathing on their blazers, a group of kids engrossed in a curly haired girl playing Nintendo Switch. “Yes!” The girl punched the air with one hand, her thumbs stabbing buttons, “I finally did it!” 
+Mrs Wiliamson was getting further and further away, more of a shadow under the late afternoon sun—and I struggled to awkwardly run after her, stepping over girls sunbathing on their blazers, a group of kids engrossed in a curly haired girl playing Nintendo Switch. “Yes!” The girl punched the air with one hand, her thumbs stabbing buttons, “I finally did it!” 
 
 “Cheater.” A kid with glasses said, only for the group of them to erupt into laughter.  
 
-Walking faster, I almost tripped over a group of older kids sitting under the sun on a worn picnic blanket. But when I took a closer look, the first saw were only the centre ones in a large pattern-like formation spreading out across the grass—at least a dozen of them, boy’s and girl’s alike, sitting and standing around them. Unlike the ones in the middle, these kids held no expression, no smiles. 
+Walking faster, I almost tripped over a group of older kids sitting under the sun on a worn picnic blanket. But when I took a closer look, the first I saw were only the centre ones in a large pattern-like formation spreading out across the grass—at least a dozen of them, boy’s and girl’s alike, sitting and standing around them. Unlike the ones in the middle, these kids held no expression, no smiles. 
 
 They simply stood or sat with blank eyes. They reminded me of guards. My gaze flicked to the kids in the centre. There were six of them, and even they were sitting in formation, a pentagon; two girls, a blonde and a brunette sitting opposite each other, while two guys occupied the other spaces—and a sixth guy sitting in the middle. The way they were dressed was different to what I had seen. 
 

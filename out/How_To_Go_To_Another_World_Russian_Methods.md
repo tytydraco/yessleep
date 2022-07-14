@@ -69,7 +69,7 @@ Requirements :
 
 Steps :
 
-1. It is said that if you can contact the Deity Of Anime Artists (“Otaku”) First you must say the following prayer on any night you wish at exactly 3AM : 
+1. It is said that if you can contact the Deity Of Anime Artists (“Otaku”) You can go to the anime world of your choice. First you must say the following prayer on any night you wish at exactly 3AM : 
 “O great Otaku I offer you the gift of my leg, arm/hand, and iris/diaphragm and I ask you to take/deliver me to the world of the anime (Name of the anime you want to go too), Amen.
 
 NOTES :
