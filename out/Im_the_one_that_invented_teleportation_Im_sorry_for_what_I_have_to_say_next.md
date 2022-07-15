@@ -1,0 +1,15 @@
+So, as you know, for the last 25 years humankind has had the blessing of experiencing the technology of teleportation. It started out slow, with only being able to teleport Amazon packages to the customer (You know Bezos, having to get his fingers in every new technology). People started wondering why can't we teleport humans. Years went by with still no news of advancements in human teleportation.
+
+At this point we had done extensive testing on both of our customer models. Testing started with individual atoms. I still remember the day we successfully broke done an iron atom, I have never felt that high in my life. Just knowing that this technology was possible and that I hadn't wasted all of my life up to that point devoting myself to researching and experimentation of teleportation. We successfully moved to animal testing with lab rats first and eventually getting to Chimpanzees. At this point we were getting major pushback from various government agencies to move to human testing. I was the first volunteer, eager to be free of this burden.
+
+As the inventor of the technology, you have to understand. All I wanted was for my technology to reach as many people as I could. To give this life saving technology to everyone. Or, at least that's what I told myself. I put as much pressure as I could to get the technology for human teleportation out to the public. So, 10 years ago today, they released my Portal Buddy™ and Portal Buddy Deluxe™ to the world. 
+
+As I imagined, the world exploded with innovation. It was a new renaissance, baby. Suddenly, for $499 you could visit anywhere in the world anytime you wanted, literally. We released teleport safe rooms along with the PB and PBD, where teleportation wasn't possible to keep bank vaults, and other safe areas, safe. 
+
+There were obviously some deaths involved with people teleporting into the middle of drug deals or the ocean by mistake. Given all of this, people were happy. They were happy with the horrible lie we fed them. I just can't keep the lie up any longer, however. I have to tell you how the technology actually works.
+
+What you might know is that our PB teleporter system breaks down your atomic structure, converts the individual atoms to light particles, sends them to your chosen destination, converts the light particles back into their appropriate atoms, and restructures them to put you back on the other side. However, unfortunately this is not the whole story. There is a key detail we left out.
+
+The consciousness doesn't survive the break down process. Your perception of the world is gone. What is created on the other side is an exact clone with all of your memories and everything, but it's not you. You never wake up. 
+
+I can't handle having this information. My first self, the coward, went into the teleporter knowing that he would no longer have to deal with the pain, but a new self would. He started this whole cycle. Although now I see why he did. I'm using the PBD when I'm done writing this and letting my next self deal with this. Maybe Mirror_Face_ #234 can deal with it better. I'm so sorry for what I have done.
