@@ -131,11 +131,7 @@ Mrs Wiliamson was getting further and further away, more of a shadow under the l
 
 “Cheater.” A kid with glasses said, only for the group of them to erupt into laughter.  
 
-Walking faster, I almost tripped over a group of older kids sitting under the sun on a worn picnic blanket. But when I took a closer look, the first I saw were only the centre ones in a large pattern-like formation spreading out across the grass—at least a dozen of them, boy’s and girl’s alike, sitting and standing around them. Unlike the ones in the middle, these kids held no expression, no smiles. 
-
-They simply stood or sat with blank eyes. They reminded me of guards. My gaze flicked to the kids in the centre. There were six of them, and even they were sitting in formation, a pentagon; two girls, a blonde and a brunette sitting opposite each other, while two guys occupied the other spaces—and a sixth guy sitting in the middle. The way they were dressed was different to what I had seen. 
-
-They wore blazers in the relentless heat and weren’t breaking a sweat.  These guys did have expressions. The blonde girl was smiling at her phone, showing the brunette something on the screen, while the two guys leaned over some kind of book. 
+Walking faster, I almost tripped over a group of older kids sitting under the sun on a worn picnic blanket. But when I took a closer look, the first I saw were only the centre ones in a large pattern-like formation spreading out across the grass—at least a dozen of them, boy’s and girl’s alike, sitting and standing around them. They stood or sat with blank eyes, reminding me of guards. My gaze flicked to the kids in the centre. There were six of them, and even they were sitting in formation, a pentagon; two girls, a blonde and a brunette sitting opposite each other, while two guys occupied the other spaces—and a sixth guy sitting in the middle. The way they were dressed was different to what I had seen. They wore blazers in the relentless heat and weren’t breaking a sweat.  These guys did have expressions. The blonde girl was smiling at her phone, showing the brunette something on the screen, while the two guys leaned over some kind of book. 
 
 The kid sitting in the middle lay back on his elbows, his legs crossed, a dreamy smile on his lips. He wouldn’t be hard to spot in a crowd; dark red hair catching the sun, and pasty skin. I could tell just from looking at him that he oozed riches; that his parents only gave him the best, and he ruled the school, along with his inner circle.  
 
@@ -201,7 +197,11 @@ The girl jerked like she’d been shocked and lifted her head, blinking at me ra
 
 She was pretty with wide eyes and freckles, curly black hair framing a heart shaped face. She had been crying, judging from her smeared eyeliner and her attempt to hide her tears. "Oh, hello!" the girl swiped at her eyes, sniffling. "Bee, right? Yeah, they told me you were coming." She stretched her arms out. "Welcome to Eaton Academy! What are you, my third roommate?” The girl’s laugh was choked. 
 
-She grabbed the envelope and tore it up before holding out a hand, which was smudged red. From the door handle, I thought. The girl’s smile was bright, but it was fake. There were tears in her eyes she was failing to hide, her trembling fists at her sides. “I’m Sunny!” 
+She grabbed the envelope and tore it up before holding out a hand, which was smudged red. 
+
+From the door handle, I thought. 
+
+The girl’s smile was bright, but it was fake. There were tears in her eyes she was failing to hide, her trembling fists at her sides. “I’m Sunny!” 
 
 She seemed to say everything with expletives, her smile widening with every word. “I’m sure we’ll be great friends! For the next day, that is. But oh well!” 
 
@@ -301,15 +301,15 @@ I cut into their back and forth. “What is Lux?” 
 
 Freddie lay back on the bed, letting out an exaggerated sigh. "Lux.” The boy shot me a look.
 
-"You know the stories which swear there's a secret society in every elite school and university? Well, they're correct." He grabbed a pillow and stuffed his face into the material, his words muffling, “Introducing Lux, your worst nightmare, and this school’s worst kept secret, especially when we get Flyers every month. Lux is a group of sociopaths led by the son’s and daughter’s of this school’s administration. They were bored one day, so they thought, hey, why don’t we start fucking with the kids below us?”
+"You know the stories which swear there's a secret society in every elite school and university? Well, they're correct." 
+
+He grabbed a pillow and stuffed his face into the material, his words muffling, “Introducing Lux, your worst nightmare, and this school’s worst kept secret, especially when we get Flyers every month. Lux is a group of sociopaths led by the son’s and daughter’s of this school’s administration. They were bored one day, so they thought, hey, why don’t we start fucking with the kids below us?”
 
 Freddie threw the cushion at the wall, “And thus, Lux was born, and has been terrorising Eaton since before the First World War. When they choose you, they mark you two nights before their annual party– and depending on how you act that night, they will make the decision whether you join their circle, become a mindless guard or servant, and my personal favourite–”
 
 “Flyer.” I was speaking before he could say it. I swallowed hard, “But the teachers! Why don’t they stop it?”
 
-“They can’t.” Freddie said. “Either that, or they don’t want to. This whole place is a fucking slaughterhouse. I’ve been here since I was thirteen, and I still can’t get down there no matter what I do. They’ve got that place locked down. They treat us like game pieces." He scoffed.
-
-"They'll knock us over without a second thought-- but sometimes they continue to drag us across the board, which is worse than killing us. It's making us wait. giving us hope. Before they reveal their signature move." He looked up hopefully at Sunny, “Or Sunny could help me get down there and stop those bastards for good.” 
+“They can’t.” Freddie said. “Either that, or they don’t want to. This whole place is a fucking slaughterhouse. I’ve been here since I was thirteen, and I still can’t get down there no matter what I do. They’ve got that place locked down. They treat us like game pieces." He scoffed. "They'll knock us over without a second thought-- but sometimes they continue to drag us across the board, which is worse than killing us. It's making us wait. giving us hope. Before they reveal their signature move." He looked up hopefully at Sunny, “Or Sunny could help me get down there and stop those bastards for good.” 
 
 “Stop them?” Sunny laughed, “You mean give them another reason to make you a Flyer.”
 
