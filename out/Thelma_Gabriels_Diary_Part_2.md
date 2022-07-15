@@ -47,3 +47,5 @@ Worse and worse as it goes along. I knew kids were basically psychopaths at that
 Should I turn this in to the force or not?
 
 Well, maybe I shouldn't be asking that question yet, as you haven't seen **entries 5, 6 or 7 yet...**
+
+PART THREE: [https://www.reddit.com/r/nosleep/comments/vzf7xz/thelma\_gabriels\_diary\_part\_3/](https://www.reddit.com/r/nosleep/comments/vzf7xz/thelma_gabriels_diary_part_3/)
