@@ -1,0 +1,15 @@
+ 
+
+TRIGGER WARNING: this graphic story involves mental illness and suicide 
+
+I didn't have a lot at home, just the usual apartment in Soviet Russia. I figured I would do something with my life and go into the army. Due to my asthma, they denied me the front lines, but they gave me a sheet saying I could join a testing program. I was unsure about it at first, but I eventually signed the sheet. The first day they gave me a dark room with a loud bed and a little cramped space, but it's not that bad. It's free rent and I can keep a lot of my free time. On my first night they gave me this pill to make me more sleepy, and when I wanted to go to sleep the ceiling opened up and splashed me with very cold water. It became very frustrating and challenging for days of this torture. 
+
+3 months in, each time the water splashes onto me, it feels like my skin is getting tighter and tighter, like my eyelids don't feel like they're even there and I'm very wet and cold. Every now and then a doctor comes and checks my heart rate and my blood pressure and what exactly I am feeling. Every time I eat I throw up more than I even ate.
+
+4 months in, sometimes I get so frustrated I destroy everything around me, not wanting to eat… not wanting to sleep…. My eyelids have been bugging me so I took a dull razor and I slowly and roughly cut my eyelids off, trying to keep the blood away from my eyes. I covered them with electrical tape making it more painful.
+
+6 months in, I'm starting to hallucinate, seeing a little boy with his face burned off and his eyeballs hanging from his skull, whispering to me “sleep”. Over and over again but I couldn't sleep… I can never sleep. I scream to block the small child's voice from my head. I even cut piece by piece of my ears off just to block him out but he wont stop, i keep hearing him… now all i'm thinking is. What is my family going to think when they see me?
+
+9 months in, the doctor comes into the dark room to take care of my wounds and writes me a note telling me they are canceling the experiment in a few days. I was excited and couldn't wait to get the hell out of here. Those days turned into weeks, and weeks turned into months. I have not seen the doctor since he told me they are canceling the experiment and I'm stuck in the darkness with a little boy telling me to sleep. I already think they forgot about me. They're never gonna look for me or find me. I'm cold, wet, feeling so sick and my entire body hurts with blood and vomit all over me... I'm… alone.
+
+I decided today was my last day here… I took the plastic fork that had been covered in my vomit and I shoved it into my eye. As I felt my eyeballs split and gushing, and I felt blood flow down my face, down on my body and on the floor. I ignored the pain and pushed it further and further until I fell onto the floor sitting in what was already a pool of my own blood… for once I was warm… it felt like a warm bath. I never felt better. I was crying in relief that… this pain is finally over.

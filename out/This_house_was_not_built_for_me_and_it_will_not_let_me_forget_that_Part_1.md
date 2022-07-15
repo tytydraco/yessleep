@@ -1,4 +1,4 @@
-[Part 1] | 
+[Part 1] (https://www.reddit.com/r/nosleep/comments/vwir7s/this_house_was_not_built_for_me_and_it_will_not/) | [Part 2] (https://www.reddit.com/r/nosleep/comments/vzcp6z/this_house_was_not_built_for_me_and_it_will_not/)
 
 The house looked normal enough at the viewing. There wasn't any history of serial killers or rumours of ghosts, and the real estate agent mentioned that while the owner had died, it was in hospice and their son was putting it on the market since he lived in a different province. 
 
