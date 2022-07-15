@@ -2,7 +2,7 @@
 
 I was still in shock even though cutting my hand deep on the jewel brought me back to the current moment, somehow knowing deep down that my best friend was gone forever, and mind fog was threatening to take over. This was not the time to dissociate and check out. I needed to find my sister and get back to the store. 
 
-I pushed myself to my feet, still half heaving and hyperventilating with blood dripping down from my hand as I shoved the broken jewel and book into my backpack. I still hadn't even cracked the book open to look inside. My shoes were cacked in mud along with being soaked from falling, along with most of my body. I was shivering, but it wasn't cold. 
+I pushed myself to my feet, still half heaving and hyperventilating with blood dripping down from my hand as I shoved the broken jewel and book into my backpack. I still hadn't even cracked the book open to look inside. My shoes were caked in mud along with being soaked from falling, along with most of my body. I was shivering, but it wasn't cold. 
 
 I reversed my footsteps and was headed back north again, with the lake on my right. It was always my navigational tool in the city. If it was on the left, I was going south - right I was going north. 
 

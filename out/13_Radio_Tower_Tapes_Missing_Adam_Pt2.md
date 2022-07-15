@@ -1,5 +1,6 @@
   
 [Part1](https://www.reddit.com/r/nosleep/comments/vqr36q/13_radio_tower_tapes_missing_adam/?utm_medium=android_app&utm_source=share)
+
 Detective Stacy stared at the fabric he enclosed in a plastic baggie and leaned back against the vintage booth at the diner where we decided to meet at. I didn’t tell him about the tapes, I knew he’d take them, and I’d never get to find out what’s on those tapes. A part of me felt guilty for not handing them over, then another part of me told me, I was doing the right thing. Adam was my best friend the least I could do is find out who killed him or took him. as far as Detective Stacy had said, there was no body, which means either he’s still alive or the killer had hidden his body so well, the police couldn’t find it. 
 
 I sipped on my coffee, “are you going to have a search party for Adam in the forest?”

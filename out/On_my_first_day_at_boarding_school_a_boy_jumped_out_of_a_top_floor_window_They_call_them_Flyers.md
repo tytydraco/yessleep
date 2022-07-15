@@ -219,7 +219,7 @@ Sunny scoffed. “I found the cleanse on Google, and it told me I’d be feeling
 
 Sunny dropped to her knees with a sob, nestling her head in her lap. “I was so close.” She whispered, “Mr Mayer told me I could sing. He told me he could get connections, and I really thought… I thought I was finally going to get out of here…”
 
-She trailed off with a breath. “Maybe I could run away,” she scoffed. “I’m sure that hasn’t been tried before.”
+She trailed off with a breath. “Maybe I could run away. “I’m sure that hasn’t been tried before.”
 
 I thought back to the boy who had jumped out of the window, and the Vice Principal’s words. 
 
@@ -325,7 +325,7 @@ Freddie didn’t reply, and I realised from his expression– he had no idea. 
 
 “No.” She glared at the boy. To my surprise, she jumped up, strode over to her desk and brought up Spotify on her laptop, playing a song– It was upbeat and the girl started to dance. Well, it could have been dancing, though all I was watching was manic flailing to the beat. Sunny danced like nobody was watching her, whipping her head back and forth, her hair flying in a whirlwind. 
 
-She shuffled over to Freddie in jerking movements I couldn’t help smiling at. When he only shook his head, a smile pricking on his lips, she pouted. “Maybe Sunny doesnt want to help.” She said, panting. “Maybe Sunny is tired of hoping to get off here, and is waiting for them to get it over with? Maybe I want to join Lux! What else is there?”
+She shuffled over to Freddie in jerking movements I couldn’t help smiling at. When he only shook his head, a smile pricking on his lips, she pouted. “Maybe Sunny doesnt want to help.” She said, panting. “Maybe Sunny is tired of hoping to get out  of here, and is waiting for them to get it over with? Maybe I want to join Lux! What else is there?”
 
 Freddie arched a brow. “Not being a mindless minion for the rest of your life or diving out of your bedroom window?”
 
@@ -353,13 +353,13 @@ Sunny leaned back. "We don't know."
 
 “Yep.” Freddie said, “Welcome to Eaton. Where you're either a Flyer, a mindless minion, or on borrowed time."
 
-The two of them argued for a while, and Freddie left, promising to be back in the morning.Sunny went into the bathroom and didn’t come back out until I was lying in bed, replaying Daniel’s fall over and over and over again in my head. I was on the edge of slumber when Sunny climbed into bed, still sobbing into her pillows. I don’t remember falling asleep, but somehow I managed to– and a noise woke me up in the middle of the night. 
+The two of them argued for a while, and Freddie left, promising to be back in the morning. Sunny went into the bathroom and didn’t come back out until I was lying in bed, replaying Daniel’s fall over and over and over again in my head. I was on the edge of slumber when Sunny climbed into bed, still sobbing into her pillows. I don’t remember falling asleep, but somehow I managed to– and a noise woke me up in the middle of the night. The sound of the door creaking open. Immediately, I turned over in bed, but when I opened my mouth to speak, to cry out to my roommate, I found I couldn’t move. I couldn’t speak, my voice stuck in the back of my throat.
 
-The sound of the door creaking open. Immediately, I turned over in bed, but when I opened my mouth to speak, to cry out to my roommate, I found I couldn’t move. I couldn’t speak, my voice stuck in the back of my throat. I watched them circle her; six shadows in formation around her bed. I recognised the redhead, as well as another face bleeding into the flickering light of an orange flame. I knew his face, but an identity or a name wouldn’t surface in my head. They stayed with Sunny the whole night, unmoving, not speaking or making any noise. 
+I watched them circle her; six shadows in formation around her bed. I recognised the redhead, as well as another face bleeding into the flickering light of an orange flame. I knew his face, but an identity or a name wouldn’t surface in my head. They stayed with Sunny the whole night, unmoving, not speaking or making any noise. They just stood over, watching. 
 
-They just stool over, watching her. When light bled through the window showing the first signs of morning, they left– and I could move again. But I was so tired from the adrenaline I passed out soon after. 
+When light bled through the window showing the first signs of morning, they left– and I could move again. But I was so tired from the adrenaline I passed out soon after. This morning was weird.
 
-This morning was weird. Sunny is acting like herself, but when I look at her, she seems… different.  She was in the bathroom for a while this morning, and when she left our room to speak to Freddie’s, I found blood in the faucet. 
+Sunny is acting like herself, but when I look at her, she seems… different.  She was in the bathroom for a while this morning, and when she left our room to speak to Freddie’s, I found blood in the faucet. 
 
 Not just blood. 
 
