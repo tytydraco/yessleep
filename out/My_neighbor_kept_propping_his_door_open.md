@@ -58,6 +58,4 @@ We got extremely lucky and found a place within our range and a few days ago we 
 
 I looked at the final photo and my chest began to feel extremely heavy. My breath was becoming more shallow…I think I was having a panic attack.
 
-The photo was a shot of me from behind, most likely pretty recently…it read, ‘Hide-n-seek…’ And right below..one more note….
-
-‘P.s. you’re the seeker - Danny. Try to find me’
+The photo was a shot of me from behind, most likely pretty recently…it read, ‘Hide-n-seek…’ 
