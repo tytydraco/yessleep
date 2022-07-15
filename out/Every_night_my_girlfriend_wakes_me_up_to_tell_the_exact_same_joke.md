@@ -100,7 +100,7 @@ I ignored but she kept going. She had never been this insistent with anything be
 
 I got up in a sudden movement.
 
-''God dammit, Ellen.'' - I was ready for a discussion, but when i finally glanced at her, it was as if the strenght was drained from me.
+''God dammit, Ellen.'' - I was ready for a discussion, but when i finally glanced at her, it was as if the strength was drained from me.
 
 She wasn't smiling. She wasn't blinking. Just staring right at me, fixated like an animal. And her mouth was moving, slowly, and she didn't stop. ''*Knock, Knock''.*
 
@@ -112,15 +112,15 @@ I didn't know how to react, or what expression i had when i saw her but my heart
 
 *''Not me. So don't answer the door'' -* She said, weakly.
 
-Ellen slowly closed her eyes and layed down. I kept staring at her while she fell into what semeed to be a deep sleep.
+Ellen slowly closed her eyes and layed down. I kept staring at her while she fell into what seemed to be a deep sleep.
 
 I got up and and left. I walked downstairs and sat down at the couch in the living room, staring at the night sky outside and absorbing the quiet of the neighborhood. My heart was beating fast and it didn't slow down. I was too scared to sleep in the same room as my girlfriend, all because of a fucking Knock Knock joke. But it was unnatural. I thought about calling someone. I thought about it all being some kind of sleep-related issue, such as some type of sleep-walking. But it didn't make any sense.
 
 I felt so tired. And decided that early in the morning, i would call an old friend who's a psychologist and get the opinion of a professional. Something was wrong with Ellen.
 
-I stayed in the couch as the day rose, and once Ellen woke up, she was acting normal again. Even asked me why i wasn't in bed. I didn't answer. In fact, i didn't speak to her and simply left for work. She semeed very upset, but i wouldn't do anything about it. Once i got to work i called my friend, told him everything that was happening in as much detail as i'm describing now. He didn't seem as worried as i figured, but we agreed in making an appointment for next week. Now i just needed to convince Ellen to come with me.
+I stayed in the couch as the day rose, and once Ellen woke up, she was acting normal again. Even asked me why i wasn't in bed. I didn't answer. In fact, i didn't speak to her and simply left for work. She seemed very upset, but i wouldn't do anything about it. Once i got to work i called my friend, told him everything that was happening in as much detail as i'm describing now. He didn't seem as worried as i figured, but we agreed in making an appointment for next week. Now i just needed to convince Ellen to come with me.
 
-I received plenty of text messages from her. She semeed very worried, sad and even confused. She apologized a lot, and it broke my heart a little. I felt bad. I shouldn't have, but i answered her, and made her promise it wouldn't happen again. I also told her about the appointment, and she seemed reluctant but agreed to go with me. So we made up.
+I received plenty of text messages from her. She seemed very worried, sad and even confused. She apologized a lot, and it broke my heart a little. I felt bad. I shouldn't have, but i answered her, and made her promise it wouldn't happen again. I also told her about the appointment, and she seemed reluctant but agreed to go with me. So we made up.
 
 This was Ellen, after all. The girl i knew ever since i was six years old. The woman i loved and that had taken care of me for years. And as much as that strange behaviour creeped me out, she wasn't doing anything particularly frightening, or even dangerous. So for a brief while, i convinced myself i should give her another chance.
 

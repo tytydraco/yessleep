@@ -2,7 +2,7 @@ I’m not cut out for public speaking.  Maybe this is why I don’t do well with
 
 Kind of awesome how the only person that doesn’t actively hate me in the Rain Chasers is Katana Boy.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 “Hi,” I squeaked.  “I’ve, uh, got some, uh, bad news.”
 
@@ -16,7 +16,7 @@ I told her that I didn’t know for certain, but I thought it was likely.  This 
 
 “What about friends and family back home?” Patricia asked.
 
-I laughed.  I couldn’t help it - the mental image of her showing up back home was just too much.  I mean, I’m pretty sure that the old sheriff’s wife is the one that does all the laundry in their household.  Could you imagine someone showing up in *her* domain uninvited?  
+I laughed.  I couldn’t help it - the mental image of her showing up back home was just too much.  I mean, I’m pretty sure that the old sheriff’s wife is the one that does all the laundry in their household.  Could you imagine someone showing up in *her* domain uninvited?
 
 Try it, laundry lady.  *I dare you.*
 
@@ -50,7 +50,7 @@ I just stared at her.  What was I supposed to say?  I could barely talk about wh
 
 There was a lump in my throat.  I thought my inability to talk about the student that drowned was because of the shock of seeing someone die so close like that, but it wasn’t the first time I’ve seen someone die, was it?  The memory of my ex-boyfriend came into my head, unexpectedly, of his lifeless body being pulled through the snow with a chain around his neck.
 
-“My boyfriend died,” I said.  
+“My boyfriend died,” I said.
 
 It felt like I was pulling myself up onto a cliff edge.  One last burst of effort and then - then I was safe over the edge, panting and exhausted.
 
@@ -78,13 +78,13 @@ Then I started crying.  Maria awkwardly patted my shoulder and told me that it�
 
 “You know that there’s a campus counseling service you can go to, right?”
 
-She said I should think about it, because that’s kind of a lot to deal with and she’s not very good at this sort of thing.  She’d be here to listen, but she didn’t really know how to give advice very well.  Listening was all she could do - but only if I actually talked to her about things.  
+She said I should think about it, because that’s kind of a lot to deal with and she’s not very good at this sort of thing.  She’d be here to listen, but she didn’t really know how to give advice very well.  Listening was all she could do - but only if I actually talked to her about things.
 
 Which was a bit pointed.  It seemed like it was time to talk about the phone incident.
 
 “My roommate did it to me,” I said, after apologizing for what I did.  “I wasn’t angry at her though, so I guess I thought it’d be okay if *I* did it.”
 
-Maria looked confused, so I told her about Steven and how that ended.  
+Maria looked confused, so I told her about Steven and how that ended.
 
 “I guess I should tell her she can’t do that anymore,” I sighed in conclusion.
 
@@ -106,7 +106,7 @@ I froze in mid-bite of a chicken tender.  There was movement out there, but it w
 
 Something was moving through the air.  Through the rain.  Swimming through it, undulating up and down like a leaf being carried on a strong wind.  They stayed away from the lights so I could not see them clearly.  They were only dark shapes in the downpour, drifting gently through the night sky.
 
-“Look at that,” I said, marveling.  
+“Look at that,” I said, marveling.
 
 Was I seeing things?  I didn’t think I was.  Maria didn’t reply, so I glanced back at her.  She had headphones in.  I opened my mouth to call her name louder but I never got the words out.
 
@@ -152,7 +152,7 @@ Let me take a moment to explain how the rooms are laid out in the union.  The se
 
 The interesting feature is that the interior wall is half glass.  There’s shades you can close for some privacy, but mostly people leave them open.  You can see straight into the hallway.  Maybe this isn’t that unusual, but it’s important for what happened next.
 
-I heard voices approaching.  Two men.  The hair was standing up on the back of my neck and something about it just felt… off.  Uneasily, I pulled Cassie out of the middle of the hallway and towards where another hallway branched off.  We were almost to the corner when the men rounded the corner.
+I heard voices approaching.  Two men.  The hair was standing up on the back of my neck and something about it just felt… off.  Uneasily, I pulled Maria out of the middle of the hallway and towards where another hallway branched off.  We were almost to the corner when the men rounded the corner.
 
 Black slacks and white button-up shirts.  Badges on their chests.  Campus security.  I grabbed Maria’s wrist and pulled.  She followed me through the door of the room just across the hall and I shut it as quietly as I could behind me.
 
