@@ -359,7 +359,9 @@ I watched them circle her; six shadows in formation around her bed. I recognised
 
 When light bled through the window showing the first signs of morning, they left– and I could move again. But I was so tired from the adrenaline I passed out soon after. This morning was weird.
 
-Sunny is acting like herself, but when I look at her, she seems… different.  She was in the bathroom for a while this morning, and when she left our room to speak to Freddie’s, I found blood in the faucet. 
+Sunny is acting like herself, but when I look at her, she seems… different.  
+
+She was in the bathroom for a while this morning, and when she left our room to speak to Freddie about his plan, I found blood in the faucet. 
 
 Not just blood. 
 
