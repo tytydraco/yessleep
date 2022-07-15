@@ -68,7 +68,7 @@ Kaz looked down at me with his standard non-expression and said, “You are far 
 
 I closed my eyes and rubbed my temples. I was starting to get a monster headache. I sighed, “No, no, I’m perfectly calm. See? Look, I’m the calmest man alive. So, what’s in there, exactly, and how will it kill me?”
 
-Kaz proceeded to launch into lecture mode. He clasped his hands behind his back and said, “He was once a Navajo holy man, but he made a pact with the forces of evil in exchange for his remarkable abilities. He can change shape at will.  the likeness of any number of creatures from the natural world. He is no longer a mortal man.”
+Kaz proceeded to launch into lecture mode. He clasped his hands behind his back and said, “He was once a Navajo holy man, but he made a pact with the forces of evil in exchange for his remarkable abilities. He can change shape at will and adopt the likeness of any number of creatures from the natural world. He is no longer a mortal man.”
 
 I raised an eyebrow and said, “Yeah, that does sound bad. Where is this guy? Is he sleeping in that mud hut thingy? I mean, it’s the middle of the night and all, right?”
 
@@ -108,7 +108,7 @@ The skinwalker grinned down at me and said, “I wouldn’t mind some company fo
 
 The pile of dead branches in the firepit suddenly erupted in a crackling blaze, illuminating the immediate area in a flickering glow of orange and red. I slowly walked over to the fire, getting ready to spin around and run like hell for the door at the first sign of fuckery. Falling Sky held up his hands and said, “I won’t hurt you, little brother. Not tonight. Would you like some tea?”
 
-I abruptly realized there was a kettle bubbling away over the fire. I stared down at it and asked, “Uh, that depends, I guess. What kind of tea?”
+I abruptly realized there was a kettle bubbling away over the fire. I stared down at it and said, “Uh, that depends, I guess. What kind of tea?”
 
 He grinned at me again and croaked, “The kind that will open your mind to the spirit world.”
 
@@ -188,7 +188,7 @@ Kaz’s smile faded a bit, and he said, “Yes, what is it?”
 
 I grunted, “Um, he said to tell you that the dead are still following you. They’re waiting for you on the other side.”
 
-Kazimir’s face went stony, and he looked away from the unspoken questions in my expression. He said, “I have always suspected as much. But what is done cannot be undone. There is nothing more I can do.”
+Kazimir’s face went stony, and he looked away from the unspoken questions in my eyes. He said, “I have always suspected as much. But what is done cannot be undone. There is nothing more I can do.”
 
 He started marching away down the service tunnel, and I hurried to catch up. I wanted to ask Kaz what the skinwalker was talking about, but his grim expression forbade any more questions.
 
@@ -202,7 +202,7 @@ I snorted, “What, you can’t even look inside the habitat? What about the gue
 
 Kazimir frowned a little and said, “The succubus is not an exhibit. She is being contained because she once crossed Victor many years ago. I advise you not to look inside. There is a reason why it is forbidden.”
 
-Before he could react, I pulled up the shade and looked inside. The space inside appeared to be a glaring white void, formless, featureless, and empty with the exception of a massive, four post bed. It was draped with silken curtains and covered by a red velvet canopy. Miss Dahlia was laying on the bed with her head propped up by a heap of satin pillows. She appeared to be wearing nothing but a few strips of lacy material and a knowing smirk on her lips.
+Before he could react, I pulled up the shade and looked inside. The habitat appeared to be a glaring white void, formless, featureless, and empty with the exception of a massive, four post bed. It was draped with silken curtains and covered by a red velvet canopy. Miss Dahlia was laying on the bed with her head propped up by a heap of satin pillows. She appeared to be wearing nothing but a few strips of lacy material and a knowing smirk on her lips.
 
 The intercom was off, but as her lips moved, I could hear her voice in my mind. She said, “Come on in here, sugar. I know *exactly* what you need.”
 
@@ -214,7 +214,7 @@ I wasn’t aware I was punching in the door code until Kaz tore me away from the
 
 Kaz let go with a vague look of disgust on his face, and I straightened up my uniform with sharp, angry movements. I was mad, but only because he was right. No one wants to admit that they’re being kind of an idiot. It’s a tough pill to swallow.
 
-Kaz pulled the curtain across the window and canceled the entry code. He said, “Nefertiti is easily one of the most dangerous exhibits in this entire building. She knows all your secret longings and fantasies. Money, lust, power, she knows all your desires.”
+Kaz pulled the shade across the window and canceled the entry code. He said, “Nefertiti is easily one of the most dangerous exhibits in this entire building. She knows all your secret longings and fantasies. Money, lust, power, she knows all your desires.”
 
 I sighed, “From my vantage point, things were looking pretty good in there, if you know what I’m saying. What would’ve happened if you didn’t stop me?”
 
@@ -230,7 +230,7 @@ I gave him the side-eye and grunted, “Hm, yeah, perhaps. I just, you know... l
 
 I felt my face go red, and I sputtered, “Anyway, long story short, I should always cruise right past this door and never go in. Gotcha. What’s even in there?”
 
-“Death,” he said bluntly. “That room has not been entered since the day she arrived. Never go in there unless you are attempting a rescue. If you are fortunate, you may catch her before she begins to feed. If she is already occupied, you can use the silver nitrate to drive her away. Do not look her in the eye. Stay engaged with reality. Sing to yourself, count backwards from 100, recite poetry, yell and scream. Do anything you can to keep her out of your head. It is your only hope”
+“Death. That room has not been entered since the day she arrived. Never go in there unless you are attempting a rescue. If you are fortunate, you may catch her before she begins to feed. If she is already occupied, you can use the silver nitrate to drive her away. Do not look her in the eye. Stay engaged with reality. Sing to yourself, count backwards from 100, recite poetry, yell and scream. Do anything you can to keep her out of your head. It is your only hope”
 
 I let out a sarcastic laugh and said, “You know, sometimes I start thinking maybe the twenty-seven bucks an hour isn’t worth it, and then I remember what it’s like to be broke.”
 
@@ -244,11 +244,11 @@ I rubbed my aching shoulders and mumbled, “I think I need one, too, and I don�
 
 \#
 
-The night was dark, cloudy, and oppressively humid. The forecast had promised a band of violent thunderstorms to come racing through at some point overnight. If the pathways hadn’t been illuminated by decorative lamp posts, I wouldn’t have been able to see my hand in front of my face.
+The night had rapidly become dark, cloudy, and oppressively humid. The forecast had promised a band of violent thunderstorms to come racing through at some point overnight. If the pathways hadn’t been illuminated by decorative lamp posts, I wouldn’t have been able to see my hand in front of my face.
 
-We sat down at the gazebo beneath the willow tree, the thick of the starless gloom held at bay by a series of cheerful globe lights mounted to the ceiling. and Kaz pulled out his cigarette container. I held out my hand and said, “Gimme one of those things, wouldja? I’ve never smoked a cigarette before. I wanna see what all the fuss is about.”
+We sat down at the gazebo beneath the willow tree, the thick of the starless gloom held at bay by a series of cheerful globe lights mounted to the ceiling. Kaz fished in his pockets and pulled out his cigarette container. I held out my hand and said, “Gimme one of those things, wouldja? I’ve never smoked a cigarette before. I wanna see what all the fuss is about.”
 
-Kaz gave me a disappointed look and reluctantly passed one over. “It is very foolish to start at your age,” he admonished, and he passed me his lighter. “You are old enough to know better. Take it from Kazimir, you are better off without it.”
+Kaz gave me a disappointed look and reluctantly passed one over. “It is very foolish to start at your age,” he admonished, and he handed me his lighter. “You are old enough to know better. Take it from Kazimir, you are better off without it.”
 
 I muttered, “Not so sure I’m gonna live long enough for it to matter,” and spent a few moments puzzling over how to work Kaz’s lighter. I got it to light and dragged cautiously on cigarette, unsure of what to expect. I’d smoked a metric ton of weed since I was fifteen or so, but I’d always been leery of cigarettes. Personally, I’d never liked the smell. Beyond that, the smoking pit in highschool was a filthy patch of concrete where a bunch of mullet-head shop kids would gather to spit a lot, talk a bunch of tough-guy talk, and beat the almighty fuck out of each other over one petty grievance or another. I was a quiet, bookish kid who could neither tear apart a carburetor, nor take a hard punch and keep swinging back, so that wasn’t really my scene.
 
