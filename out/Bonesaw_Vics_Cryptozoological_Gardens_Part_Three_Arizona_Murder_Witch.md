@@ -162,7 +162,7 @@ He nodded to himself thoughtfully, still staring into the fire. His eyes were ha
 
 “It feels *good* to be powerful,” he whispered. “It feels *good* to wear the skin of the mountain lion, to live as they live beneath the blue sky. There’s no future, just here and now. I have killed and eaten men, many of them, and you know what? It wasn’t a crime. It wasn’t *murder*, if you understand what I mean. I was just eating, and all living things must eat. When I was wearing the skin of another creature, I was pure. I was at one with the world of wolf and deer, fish and fowl, and I was free. I miss those days, little brother. I miss them with all of my heart.”
 
-The skinwalker continued to stare into the fire. The weathered planes of his face were a roadmap of grief, longing, and regret by the dancing light of the fire. I shifted around uncomfortably on my log and clutched my silver necklace. You didn’t have to be a mind reader to feel the potential for unpredictable violence in the the skinwalker’s inner turmoil.
+The skinwalker continued to stare into the fire. The weathered planes of his face were a roadmap of grief, longing, and regret by the dancing light of the fire. I shifted around uncomfortably on my log and clutched my silver necklace. You didn’t have to be a mind reader to feel the potential for unpredictable violence in the skinwalker’s inner turmoil.
 
 I lifted it up for him to see and murmured, “Sorry to interrupt, but does this thing, you know, will it protect me from you? Because I seriously fucking hope so.”
 
