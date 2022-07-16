@@ -4,7 +4,7 @@ I also tried to look into the police and justice archives, and in reports from o
 
 Names and locations were changed or censored for safety. I do hope this is a hoax or a creative writing project wrongfully stored in the library archives, but it kind of scared me.
 
--
+—
 
 Oct 20th, 1975
 
@@ -16,6 +16,6 @@ Charles McRay is now awaiting for his appeal to be accepted by the Superior Stat
 
 One of our reporters said she had been able to read partially one copy of the book before the incident, a few years ago. The story was apparently a manual on how to create and take care of your imaginary friend.
 
--
+—
 
 Update: After looking for it for quite some time, I was able to obtain one of the copies of “Your New Imaginary Friend!” in Ebay. The book was old, dirty, dusty and looked like it had been sitting in the corner of a messy room for years. I’ll be reading it when I feel brave enough. I just need to be careful so my 7-year old doesn’t find it.
