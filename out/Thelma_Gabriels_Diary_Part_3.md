@@ -58,4 +58,4 @@ So that's the third last and second last entries. And as you would probably expe
 
 **right?**
 
-PART FOUR (FINALE): [https://www.reddit.com/r/nosleep/comments/w09mqw/thelma\_gabriels\_diary\_part\_4\_finale/](https://www.reddit.com/r/nosleep/comments/w09mqw/thelma_gabriels_diary_part_4_finale/)
+PART FOUR (FINALE): [https://www.reddit.com/r/nosleep/comments/w0aabk/thelma\_gabriels\_diary\_part\_4\_finale/](https://www.reddit.com/r/nosleep/comments/w0aabk/thelma_gabriels_diary_part_4_finale/)
