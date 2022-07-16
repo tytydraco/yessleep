@@ -1,0 +1,27 @@
+Before you scroll away thinking this is a post seeking out upvotes like all the rest, know that what happened to me could happen to you. No one is safe.
+
+For some context, my name is James, but people who know me call me Jimmy. I’m a 23-year-old New Englander, having lived in the region all my life.
+
+There’s not much particularly interesting or unusual about me. I grew up in the suburbs of an average sized town, had an ordinary childhood, and went off to a state college after high school graduation. As a kid, I was always interested in electronic circuitry, and I was planning to follow through with my interest by majoring in electrical engineering. Even my body is average, being 5’ 10” and 175 pounds. If the incident I’m going to talk about had never taken place, chances are I would’ve led a normal life, but of course, that didn’t happen.
+
+If you’re above the age of 21, and never got into underage drinking before then, you know what happens when you finally turn 21 and you suddenly have the freedom to legally purchase alcohol. Now although many of you might’ve had good enough decision making to avoid getting blackout drunk on your night of your 21st birthday, I did not. With the help of a few friends that were already impaired, I drank liquor and took shots of all varieties until I was passed out on the bottom bunk in my dorm.
+
+When I finally woke up, I couldn’t figure out where I was, until I realized I was floating in what seemed to be a void. The void was a peculiar color, which I can only describe as the shade you see when you close your eyes and look at a bright light while keeping them closed. As the memories of what I had partaken in the previous evening slowly came back to me, I came to the realization that I was most likely dead, or perhaps in a coma.
+
+As I tried to work out exactly what sort of state I was in, I began to get the feeling that I was being watched. I eventually figured out that I was able to turn my body in any direction I wanted, but I still couldn't locate the exact point the unknown gaze was originating from. Later, through trial and error, I found out that with physical and mental effort I could slowly move my body in whatever direction I was facing. I began to move down, as by that point I felt as though the gaze was coming from somewhere above me that I couldn't see.
+
+I continued to wade further down into the void, and as I did, the ever present feeling of being watched from above persisted. Additionally, I began to feel uncomfortably warm, like the feeling you get when you're sitting around a fire and get a little bit too close. My mind wandered to a depiction of hell, with the inferno waiting below me. I would soon find out, however, that my worries were senseless, as something much worse was waiting for me.
+
+At this point, I felt as though I had been floating and moving slowly through the void for hours, and I began to talk to it, asking why I was stuck in this limbo between life and death. As my voice echoed out of the abyss, I slowly began to despair, before I realized something; my voice couldn't have echoed back to me in the time and manner that it did...unless there was something solid and massive just beyond my field of view.
+
+Just as I came to this conclusion, I saw a gargantuan shape come into view from above and below me. As it became clearer, I could make out hollow black holes where eyes should've been that were the size of a small building. From below me, I could see the shape of a mouth appear, and from it expelled hot breath, the source of the heat. When I stared into the eyes of the abomination, I saw nothing.
+
+Then, it blinked.
+
+In the blink of those eyes, I saw every evil and destructive thing that has ever been, was and will ever be. I saw thousands of people massacred and brutally murdered in wars over land and resources. I watched single parents starve to the brink of death while their children cried and begged to be lifted from their state of suffering. I even observed as the world as I knew it fell into ruin, and innocent people were afflicted by disease to the point where they fell onto their hands and knees and prayed for death.
+
+Without speaking a single word, or harming a hair on my head, the monster before me broke my mind in two and did more harm to me than any temporal weapon ever could. I have seen horrors that no living human has ever imagined in their darkest daydreams or witnessed in their deepest nightmares. I knew the truth about death, and not just that it was inevitable for every being and living thing that would ever live. I understood that death was also the personification of pain and suffering, and that it would revel as it relived the suffering of all for eternity.
+
+It has been a bit over two years since that occurred. When I came to, I was screaming and crying, and I couldn't even begin to explain to my friends and family what had happened; they wouldn't understand anything, let alone believe me. I lied and told them all that I had a vague near-death experience as a cover story.
+
+Since then, I've been a husk of my former self. I've spent the past couple years living as a homeless man after dropping out of college, but I'd almost managed to convince myself that this was all a lie. That was, until I was brought to the hospital for a broken leg...and saw a woman screaming about how she had seen death.
