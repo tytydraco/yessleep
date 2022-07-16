@@ -57,3 +57,5 @@ But anyway, here are entries 5 and 6. The seventh and final entry will be posted
 So that's the third last and second last entries. And as you would probably expect from a diary like this one, I can assure you that the last entry is without a doubt the strangest. I remember rereading it a few times myself in disbelief. There was no way that could have *really* happened...
 
 **right?**
+
+PART FOUR (FINALE): [https://www.reddit.com/r/nosleep/comments/w09mqw/thelma\_gabriels\_diary\_part\_4\_finale/](https://www.reddit.com/r/nosleep/comments/w09mqw/thelma_gabriels_diary_part_4_finale/)
