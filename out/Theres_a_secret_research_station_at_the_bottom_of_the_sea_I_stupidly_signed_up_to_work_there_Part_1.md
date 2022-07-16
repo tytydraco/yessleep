@@ -1,6 +1,4 @@
-Part 1, Part 2, Part 3 
-
-*(trigger warning for suicide)*
+**Part 1**, [Part 2](https://www.reddit.com/r/nosleep/comments/w0kkui/theres_a_secret_research_station_at_the_bottom_of/), Part 3 *(trigger warning for suicide)*
 
 **DAY ONE**
 
