@@ -206,7 +206,7 @@ The problem with that is, I didn’t drink the water or eat the food. I had alco
 It's beyond tragic and I will never forget about any of this for as long as I am alive. The names the other couple used turned out to be false and no one’s been able to find them. I can't understand why this would happen, but those people were definitely there with us. That’s the one part of our stories that matched up, though. Neither of us can remember exactly what they looked like. 
 
 
-Out of everything that happened, I think the fact that they’re still out there somewhere still bothers me. Also, as I sleep in this hospita bed healing I have horrible night terrors. They are of pain and suffering. 
+Out of everything that happened, I think the fact that they’re still out there somewhere still bothers me. Also, as I sleep in this hospital bed healing I have horrible night terrors. They are of pain and suffering. 
 
 
 There is always a reoccurring theme to them: The black liquid and the haunting voices are there and I'm always falling in the darkness endlessly until I wake up. I wish I could tell you more but that is all I know. 
