@@ -1,4 +1,4 @@
-[Part 1] (https://www.reddit.com/r/nosleep/comments/vwir7s/this_house_was_not_built_for_me_and_it_will_not/) | [Part 2] (https://www.reddit.com/r/nosleep/comments/vzcp6z/this_house_was_not_built_for_me_and_it_will_not/) (Final)
+[Part 1] (https://www.reddit.com/r/nosleep/comments/vwir7s/this_house_was_not_built_for_me_and_it_will_not/) | [Part 2 Final] (https://www.reddit.com/r/nosleep/comments/vzcp6z/this_house_was_not_built_for_me_and_it_will_not/)
 
 I should not have left my stuff in that house. Only whatever was still in their boxes were safe. 
 
