@@ -38,7 +38,7 @@ No service. *You can't be serious*. I racked my brain for solutions. Okay, I mig
 
 That's when I heard it. It sounded like a little girl crying. *No no no. Why now? Think about this Pete. You don't know what this thing is or what it's capable of. It could be mimicking a child. Yeah, that's it. It's just another attempt to draw you out. If not, someone else will save her.*
 
-The crying intensified. *Okay, it couldn't hurt to go check.* I slid back towards the door. It began to sound like someone was unsuccessfully trying to keep quiet while crying. A whimper. Then came a bellowing inhumane wail. Hearing that froze me in place.
+The crying intensified. *Okay, it couldn't hurt to go check.* I slid back towards the door. It began to sound like someone was unsuccessfully trying to keep quiet while crying. A whimper. Then came a bellowing inhuman wail. Hearing that froze me in place.
 
 I kept silent for about thirty seconds. The whimpering hadn't ceased. Finally, my eye met the peephole. There was nothing in sight. I could still hear the whimpering. What was I going to do?
 
@@ -98,7 +98,7 @@ She looked down. "The sea monsters got them."
 
 "Is that where all this blood came from?" I asked. She nodded without making eye contact.
 
-A couple hours passed. We heard a lot of fucked up things. Inhumane wails, the cracking of bones, raw tearing of flesh, and screams...so many screams. At one point there had been pounding by someone trying to get in. They begged us. We didn't budge, and shortly after heard them get torn to shreds. Then we heard another inhumane wail shortly after.
+A couple hours passed. We heard a lot of fucked up things. Inhumane wails, the cracking of bones, raw tearing of flesh, and screams...so many screams. At one point there had been pounding by someone trying to get in. They begged us. We didn't budge, and shortly after heard them get torn to shreds. Then we heard another inhuman wail shortly after.
 
 Ava and I continued to hold each other close. I meant to comfort her but my vision was becoming a little spotty. I checked my shirt tourniquet. It had soaked through and was leaking. I was losing blood, and fast.
 
