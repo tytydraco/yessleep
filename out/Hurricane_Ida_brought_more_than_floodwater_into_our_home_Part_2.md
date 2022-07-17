@@ -122,9 +122,9 @@ I shuddered when he said that.
 
 “Maybe so,” Father Jackson. “Whatever the case may be, everything should be gone now. But if anything still lingers, please let me know as soon as possible.”
 
-And with that, Father Jackson got in his car and left. 
+And with that, Father Jackson got in his car and left.
 
-“So much for my idea that we should let Robby’s conversations give us insight,” Paul said. 
+“So much for my idea that we should let Robby’s conversations give us insight,” Paul said.
 
 “No kidding,” I responded.
 
@@ -298,7 +298,7 @@ Louis dug himself deep with the crawlspace, so much so that I could no longer se
 
 As soon as I got inside, Paul walked me over to the kitchen.
 
-“I called a psychic that a buddy from work recommended,” Paul said. “She will come by on Wednesday.”
+“I called a psychic that a buddy from work recommended,” Paul said. “She will come by on Tuesday.”
 
 “Oh, good,” I said. “Hopefully she can help figure out what is going on here. By the way, I finally found out what happened to Gabriela.”
 
