@@ -326,8 +326,6 @@ I have no idea where this could have all come from. Our home was not haunted or 
 
 I’ll update in a few days. Stay safe, everyone.
 
-* Lillian
-
 **UPDATE:** Robby came up to Paul and I while we were talking with a piece of paper.
 
 “This is what I saw on my bed last night,” Robby said as he showed us [this.](https://imgur.com/a/aEEkgW8)
