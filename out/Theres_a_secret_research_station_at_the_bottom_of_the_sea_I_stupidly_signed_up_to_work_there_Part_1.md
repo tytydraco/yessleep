@@ -1,4 +1,4 @@
-**Part 1 (current)**, [Part 2](https://www.reddit.com/r/nosleep/comments/w0kkui/theres_a_secret_research_station_at_the_bottom_of/), Part 3; *trigger warning for suicide*
+**Part 1 (current)**, [Part 2](https://www.reddit.com/r/nosleep/comments/w0kkui/theres_a_secret_research_station_at_the_bottom_of/), [Part 3](https://www.reddit.com/r/nosleep/comments/w1iquc/theres_a_secret_research_station_at_the_bottom_of/); *trigger warning for suicide*
 
 **DAY ONE**
 
