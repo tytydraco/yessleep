@@ -1,12 +1,10 @@
 I’m an arctic researcher. During my last expedition, I found something that shouldn’t exist– an abandoned military barracks at the end of the world. The strange thing is, the barracks isn't listed on any maps of the area, nor does it appear on any of our satellite imaging. It's as though I stumbled across an anomaly. Something that is, but shouldn’t be.
 
-When I entered the barracks, I found the place in disarray. Beds, tables, chairs– everything inside was scattered and broken. Despite no evidence of casualties, I couldn't shake the feeling that something awful had taken place, and so I set to work attempting to determine who had resided there. 
+When I entered, I found the barracks in disarray. Beds, tables, chairs– everything inside was scattered and broken.  I spent two hours scouring the place for clues as to who had lived there, but I came up empty handed. There simply didn't appear to be anything in the way of personal effects. No old photographs. No discarded electronics. Nothing at all.
 
-I spent two hours scouring the barracks, but came up empty handed. There simply didn't appear to be anything in the way of personal effects. No old photographs. No discarded electronics. Nothing at all.
+I gave up my hunt and decided to get on with the rest of my expedition. As I opened the door to leave however, something caught my eye. A journal. It had been stuffed inside a pillow case, it's spine just barely visible from my angle of view. 
 
-Deciding that it would need remain a mystery, I gave up my hunt and continued on my way. As I opened the door to leave however, something caught my eye. A journal. It had been stuffed inside a pillow case, it's spine just barely visible from my angle of view. 
-
-Upon inspection, it contained only a single entry. Nothing more. It seemed to be written in earnest however, and assuming that's the case, it may be the most terrifying thing I’ve ever read.
+Upon inspection, it contained just a single entry. Nothing more. It seemed to be written in earnest however, and assuming that nothing inside was falsified, it is without a doubt the most terrifying thing I’ve ever read.
 
 I’ve transcribed it below. Please be warned, the contents are disturbing.
 
@@ -220,7 +218,7 @@ However, I did find the bunker.
 
 It was located a hundred yards away, buried beneath the arctic snow, and appeared to have collapsed in upon itself. Its blast doors were badly warped, better resembling pieces of crumpled tinfoil.
 
-It's difficult to say for certain what caused that damage, but it looked as if something had struck the bunker with the force of an atomic bomb. Whatever it was, one thing is clear to me: something was desperate to get inside.
+It's difficult to say for certain what caused that damage, but it looked as if something had struck the bunker with the force of an atomic bomb. Whatever it was, it was desperate to get inside.
 
 
 &#x200B;
