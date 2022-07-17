@@ -32,7 +32,7 @@ Looking back, I don't know why I was so desperate to prove it myself without any
 
 I thought I would catch the second hoax.
 
-I'd set up my phone to record Michael breaking into the house, but when we came downstairs in the morning the battery was dead. And it turned out to be doubly pointless, since this hoax wasn't even upstairs.
+I'd set up my phone to record Michael breaking into the house, but when we came downstairs in the morning the battery was dead. And it turned out to be doubly pointless, since this hoax wasn't even downstairs.
 
 When Mom and Dad opened their bedroom door in the morning, a bucket of red paint fell on them, Carrie-style. And of course we kids got the blame. And that's when I actually told them about Michael Makenda.
 
