@@ -1,0 +1,39 @@
+&#x200B;
+
+My name is Liam Woods. I have been living life normal for the past 23 years. This world in which I live. It isn’t the same one that I have been living in. Let me start at the beginning. I had a shift where I work, which happens to be a small gas station on the corner. That night I didn’t get off until 11:30. Which was our closing time. I was exhausted and eager to get home, it was 11:23, I decided to start closing early. It was about closing time once I had finished doing the routine check, and was about to leave, but a customer barged in the door. I sighed, “Sir, we’re closed.” he stared blankly at me. “Sir?” He continued to stare, As he was staring, I couldn’t help but notice the uncanny look on his face, he looked human, well.. Almost.. human.. like something was missing. I knew something was off, and I was feeling scared, uneasy. I then looked up at the clock, 11:32. I was getting impatient, and feeling anxious, I was about to say something to the man, but when I looked down at the man he was gone.
+
+&#x200B;
+
+I was beyond frightened at this point. I hustled out of the door, and ran to my car. I drove home as quickly as I could. I went home, and sat in my room, frightened. I watched the tv until I eventually fell asleep. I woke up the next morning. I had already forgotten about the whole ordeal that happened the previous night. I got up to go brush my teeth, and get ready. I headed out, and drove to work shortly after. I continued my shift as normal. Nothing seemed out of the ordinary, other than a few annoying customers. The clock was working fine. Then my manager came in. He told me that I needed to work my shift to 11:30, because my co-worker wasn’t feeling well.
+
+&#x200B;
+
+I remembered the night before, what happened near closing time. The strange man, but I told myself that it couldn't be a big deal, right? It was only one night. Maybe my mind was playing tricks on me, and the man wasn't real. I didn't think much of it. "Ok, sir." I said. Eventually It was nearly closing time. I began to feel a bit anxious, but I tried to brush it off. I couldn’t stop thinking about the man. closing time came around, so I decided to pack up. As I was about to leave however, I saw someone walking towards the store. My heart dropped.
+
+&#x200B;
+
+The same man barged in. This time looking even more distorted than yesterday. I knew he wasn’t human, I looked up at the clock. I was hoping when I looked down he would be gone. But when I did, he was only closer. His eyes stared into my soul. I knew whatever this thing was, it wasn’t friendly. “Leave now! O-or I’ll call the cops!” I said. He only came closer, and stared deeper into my eyes. My heart was pounding harder than it ever has. This.. thing.. Looked human, but I knew it wasn’t. It was emotionless, soulless. I was pleading for this to end. I stood there, petrified, for what seemed like ages, I saw the "man" raise his arm and try to choke me, but I grew a pair, and ran out of the store. I could hear him chasing me. The loud fast footsteps. The night seemed darker than it should be, I didn't pay too much attention to it though.
+
+&#x200B;
+
+I got into my car and drove home. I got home, I was extremely scared. I decided to dial 911, and report assault. I dialed, nothing happened, not even a ringtone. The call button wasn’t working. My phone instantly died. It was at 30 percent, how? Everything seemed different, like.. like I wasn’t in the reality I was supposed to be in. I eventually passed out in my bed. I woke up the next morning. I was sleeping in my bed, everything seemed normal, my phone was working, and my alarm clock was working. I was relieved, but I looked out my window, and the sky seemed as it did last night. I panicked, but I reassured myself, it’s just a stormy day, It has to be, but last night felt so.. real. I convinced myself that it had all been a bad dream. I continued on with the day.
+
+&#x200B;
+
+Today I was going over to see my parents. I got ready, and headed out. My parents' house was only down the street, so I didn’t need to drive. I exited my house, and started on walking. Everything seemed off as I was walking, and I couldn't put this to the side, I instantly thought about last night's “dream”. Everything was screaming at me to run back to my house, but I wanted to check on my parents. Usually this early in the morning, the birds are chirping, and the sun is out, but I hear no birds, and the sky is storm gray. All of the houses had their lights off, and inside was pitch black, like a void of some sort. I hurried up my pace.
+
+&#x200B;
+
+I was getting very freaked out. I was contemplating running back to my house, but I needed to check on my parents, what if they are scared for me, I couldn't be a coward and leave them, so I started sprinting to my parents house, when I got there I was relieved to see that their lights were on. It was strange, however, because they were the only house in the whole neighborhood whose lights were on, and the only house that looked somewhat normal, I put that to the side. I knocked on the door. I waited a while, then I knocked again. I began to grow impatient. I was getting very scared, nobody was answering the door. I was about to sprint back to my house, but I saw the door open. My mom opened the door, “Hello.. Liam.” She said. As soon as I saw her, I ran. That wasn’t my mom. Those facial features make no sense. The way she talked, she never spoke like that.
+
+&#x200B;
+
+As I was running I heard a deathly screech coming from behind me. I heard the loud and fast steps of whatever that thing was chasing me. I didn’t stop to look. I ran down the street, towards my house “I've been running for minutes, where is my house?” I thought. “Whatever, that doesn't matter. I need to keep running.” I thought. I kept running down the street, but it never ended. I decided to go into a random home, it was better than running for God knows how long. Or maybe running was the better option. I ran into the home. I attempted to knock, but the door swung open. I went in, and slammed the door shut. I hadn’t stopped to think for one moment what could be inside of the house.
+
+&#x200B;
+
+I was surprised by the look of the house interior. It was fully lit, unlike how it was outside. an old song was playing on an old stereo. A delicious meal was laid out on the table. I had a bad feeling about the inside of this house, but I took the chances. It surely couldn’t be worse than those creatures outside, right?... Right? I needed to call the police, something was happening, something that I couldn’t comprehend. I opened my phone, I went to contacts and dialed 911. Nothing happened. I realized that I was all on my own, nobody can help me, I don’t like this house's vibe, I know something is inside, so I tried to exit.
+
+&#x200B;
+
+I couldn’t exit. It was as if it was locked from the outside. I felt very uneasy about this house, but I forced myself to continue, after all, what else would I do? As I was walking through, I couldn’t help but notice the strange layout of the house, as if it was built in the early 60’s. I instantly knew that this wasn’t a normal house, but there was nowhere else I could go. I saw the upstairs, I got an ominous feeling about it. I longed to be out of this strange place, I longed for the life I was living a few days ago. As I was looking up the stairs, from the dining room, I heard someone call my name. I ran upstairs faster than I could even think. I ran into the nearest door. It was an old bedroom. This is where I am now. Hiding under the bed. I can hear the creature wandering the house, calling my name. It will find me soon, this is my last attempt to call for help. I believe that man from the store did something to me, he sent me to this place. I don't know where I am.
