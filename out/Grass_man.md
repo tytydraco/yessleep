@@ -1,0 +1,26 @@
+I was a counselor at a local summer camp in my town every summer for a little over two years. My last week at camp was spent with one of the younger groups of boys and another counselor, Joshua Beanstalk. 
+Joshua had been working there for around six years at that point, started working as soon as he turned eighteen. Camp was his home away from home despite the stress of being a counselor. The majority of us feel this way, camp was always a place filled with wonder and smiles. 
+
+I was with Joshua for some of the events of that week but a few passages have been taken from his journal.
+We were two days into week four of camp without issues. The boys were all getting along and were excited to be going on the first hike of the week. The property is beautiful, many cliffs and steep hills to overlook the natural beauty. It’s something you can’t get at home in the city or suburbs. Some of those steep hills are included in the trails. They’re always covers with leaves and mossy rocks making it extra slippery. I was walking close to some of the boys with a fear of heights and falling towards the back, Joshua at my tail. To get to the top of the cliffs there was a small ledge we had to pull the boys over. I hoisted myself over onto the grassy landing and reached out an arm for Joshua to grab. “I’m good I do this all the time,” Joshua ushered my hand away from him. I watched as he hoisted himself up as I did. He got to the top successfully but after one step he tripped and fell hard into the ground below him with a loud thump. I laughed at him for his overconfidence. “Shut up.” He got back on his feet revealing a bloody skinned knee which was stained green by the grass. I let out an “oooo”. “I’ll be fine,” He bent down to help one of the boys up.
+
+The rest of the hike went as planned. The boys enjoyed adventuring around the property. That night I went back home to do laundry and sleep, leaving Joshua alone in the cabin with the campers. 
+
+The next part will be from his journal.
+Week 4 Day 2 11:30 PM
+I skinned my knee while hiking today. I cleaned it pretty well but after getting back to the cabin I noticed a blade of grass sticking out. I went to take it off but it was stuck inside one of the deeper scratches. I tried to pull it but it felt like ripping off a finger nail or having a chunk of hair pulled out of your sunburnt scalp. I kept pulling, I assume it would be like a hangnail, rip it off and the pain will most likely be gone. The grass finally lost its grip on my knee and I pulled it out the wound that was now leaking blood once again. On the end of the grass was small vines, I couldn’t tell if it was roots or my veins. They were bloody and dripping onto my open wound. I brushed the blood off my knee revealing more grass sprouts. I grabbed tweezers i had for splinters and tried taking them out one by one. It seemed like everyone i pulled out cause five more to grow in its place. The pain eventually got to me and I gave up. I’m going to sleep, I’ll deal with it in the morning.
+
+Week 4 Day 3 2:28 AM
+I just woke up. My bed is filled with grass, everything is covered. My arms, my legs, it’s spreading to my face. It’s spreading to the pencil i’m holding. It’s not stopping, it’s only spreading faster.
+I tried pulling some off of me, it’s all grass. I’m all grass. There’s not even any blood anymore, just chlorophyll and the smell of cut grass. I’m sc
+
+End of Joshua’s journal entry.
+
+If you leave property for the night you have to be back by 8:20 am. Normally by then all the cabins are away and walking around camp finishing breakfast and going to flagpole to officially start the day. When I arrived I noticed my group wasn’t there, neither was Joshua. I asked around. Turns out they hadn’t left the cabin all morning. 
+
+I walked back to the cabin with two other counselors to check on them. Opening the door I was slapped in the face with the fresh smell of grass. The satisfying smell of hard work mowing every few sundays. The smell of nostalgia. What I saw behind the door was no happy child dream, it was a nightmare of the present. All 8 bunks were lined with small body shaped lumps of vines and grass. Some still had exposed skin with roots digging deep into their flesh. Those were the boys of my cabin. Almost everything had grass rooted deep inside it. 
+
+I ran to the back of the cabin where the counselors sleep to see if Joshua was in the same condition as the piles of green that should’ve been young boys. Upon entry there was nobody. I noticed Joshua’s been was covered in the narrow vegetation. Whatever sheets were left and not turned to greenery were thrown around as if whoever was sleeping there rushed to get out of bed. The only other thing in that room moved was Joshua’s journal with a few blades sticking out of the sides. Next to it was what looked like it used to be a pencil before developing into a lump of grass. 
+
+I quit working at the camp after that, i took a few other counselors with me. 
+Joshua was never found. I have my theories, I think about him a lot. If he didn’t end up like the boys he may be hiding out there somewhere as a grass man.
