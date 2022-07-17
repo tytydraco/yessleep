@@ -1,0 +1,39 @@
+I have lived in the same small town since I was born and riven down the same roads my whole life. Known the same people and gone to the same schools. Nothing has ever really happened here, so I never imagined something like this was possible.
+
+Back in my freshman year of high school I was an airsoft fanatic. So, when a new student, Jackson (fake name ofc), arrived with a love for the game, we became quick friends. We got together to practice all the time and being dumb highschoolers we came up with some very stupid methods of practicing our airsoft skills. The most notable of which was clearing buildings.  However, we knew our houses to well and required a new building to clear.  When Jackson proposed the idea of clearing the abandoned radio station a few miles through the woods from his house I barely questioned the idea. We were both pretty good at room clearing and I had driven past it so many times it seemed harmless. But we should have known better...
+
+On our first trip out to the building Jackson and I went during daylight with our pocketknives to a little preliminary scouting.  We searched through the main rooms of the building and got the general idea of what we were looking at. A one-story building with a crawl space in the ceiling and few offices and corridors branching off from a main room in the center. The windows were all missing and all the doors were locked, with a large open area at the back of the whole thing where the loading dock must have been in the past.  Everything was covered in dust and mold and most of rooms appeared to have been untouched for years.
+
+About three weeks later Jackson and I convinced our parents to allow us to have and overnight together at his house. Later that night we opened his bedroom window tied a rope to his bed frame and repelled down the two stories and into his backyard before making our trek into the woods.  This time armed with the ever-dangerous weapon BB-guns. This trip also went without a hitch as there was a lot of moonlight and many people were driving up and down the nearby road only a couple hundred yards away. We cleared the whole building, simply finding mold and an area some idiot college students had used to do heroin as evidenced by the drug paraphernalia lying around on the floor. This trip sealed our fates as now we had gained enough confidence to undertake another incursion later that year.
+
+I wish he had never gone on this third and final trip as things might be different now and a grey shape might not have flitted between the buildings beside my car as I drove home tonight. I might not be staring out my window now hurrying to write this all down as the footprints appear in the snow in my front yard and wrap around towards the back...
+
+We decided to make this third trek of our in the middle of winter break since our parents were readily willing to let us have an overnight without the threat of school the next morning. Once again, the window opened, and Jackson and I repelled ourselves down into his backyard the crunch of the freshly fallen snow the only sound in the night. We made our way through the woods and sat at the very edge watching the building from about fifty yards away. Our eyes straining looking for any kind of movement.
+
+"Did you see that I?" mouthed to Jackson.
+
+"What?" came the almost inaudible response.
+
+I thought the darkness was just playing tricks on me but at the same time I was sure I saw someone walk past one of the windows in a room at the edge of building. We waited another fifteen minutes but saw no movement, so we proceeded with caution.  Edging up to the side of building and sneaking our way up to the closest door.  We had unlocked this exterior door during our last excursion in preparation for this trip and slid inside the main room. We quickly swept the main room this time using our airsoft guns as our weapon for full effect. We checked the latter to the crawl space to make sure the dust hadn't been disturbed and then prepared to begin clearing the rest of building.
+
+"I'll cover all the rooms in front of us while you clear the bathrooms behind us really quick." I directed Jackson.
+
+He turned to leave but before he could even finish his first step, \*click\*.
+
+We both stopped dead in our tracks and turned our attention towards the sound.  It was coming from a doorknob.  The doorknob: the one connected to the room I thought I had seen movement in. But that was weird because that room was locked from our side of the door, the door was made of solid steel because it was the radio room, and the only other exit was that open window socket on the outside of the building. It still makes me shudder to think about what happened next. To both mine and Jackson's horror.  The handle began to turn, and the metal of the door was turning with it. The metal was being bent in a tight circle surrounding the handle.  Then with a loud shearing sound the handle came free, and the door swung open about two feet. we both immediately shown our flashlights on the opening to display, nothing. But there was undeniably something there.
+
+"POLICE, HANDS WHERE I CAN SEE THEM." Shouted Jackson as he wracked the slide on his airsoft Glock and began strobing his flashlight.
+
+However, contrary to a drugee on heroin, bolting or falling on the ground, the creature swung the door all the way open and began to move. Jackson and I bolted for the loading dock opening and vaulted over the small wall built there to dock trucks before sprinting for the woods.  Upon entering the woods, we both covered ourselves with leaves and waited about twenty yards back from the edge to see if anything crossed the fifty-yard space between the edge of the woods and the building. Nothing happened for a moment and then without a sound a black silhouette shot across the open area to the edge of the woods with inhuman speed. Covering the space in less than two seconds, before standing at the edge of the woods and peering deep into the dark, searching. Then it was gone as suddenly as it had appeared.
+
+Jackson and I began the trek home by a different route, sticking to a giant open field and walking back-to-back so as to hopefully see our death coming before it would arrive and maybe giving us a chance to react.  We saw nothing the whole walk home and made it back inside through his basement doors throwing caution to the wind as clambered inside. I slid the door closed behind us.
+
+\*tap\* \*tap\* \*tap\* Came a sound from the other side of the door.
+
+We both froze grabbing our knives and flinging the door open to see nothing on the other side. Except. Another pair of footprints in the snow following ours right up to the door. We quickly tracked the prints around the corner and into Jackson's backyard only to watch them disappear into thin air twenty yards deep into his backyard.  We hurried back inside and boarded up for the night before falling asleep in his room.
+
+The next morning, we went into the basement to discover half of our gear was missing.  Over the next year Jackson discovered that something has been living in his attic and found all of our missing gear up there except for a knife I carried on a necklace.  We moved on with our lives and agreed not to share the story ever, or to always pass it off as fiction.  Well last year I finally told someone the story and the next morning I found my knife on hanger in my closet where I normally hang my shirts.  So, I know I would have seen it. Last month Jackson and his father both "went on vacation" or at least that is what the school is telling us. I don't think he was that lucky.
+
+I hope no one ever goes near that building again and that the stories are never shared after this.  However, I have run out of time to write as I just heard the sound of shearing metal coming from my basement.
+
+\- B. B.
