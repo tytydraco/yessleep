@@ -4,7 +4,7 @@ PART TWO: [https://www.reddit.com/r/nosleep/comments/vym74e/thelma\_gabriels\_di
 
 PART THREE: [https://www.reddit.com/r/nosleep/comments/vzf7xz/thelma\_gabriels\_diary\_part\_3/](https://www.reddit.com/r/nosleep/comments/vzf7xz/thelma_gabriels_diary_part_3/)
 
-Following the advice given to me on Part 2 of this whole affair, I decided to search the database for any record of a Miss Thelma Audrey Gabriel. I didn't actually find anything useful though, which actually kind of fits given what I read in this particular diary entry.
+Following the advice given to me on Part 2 of this whole affair, I decided to search the database for any record of a Miss Thelma Denise Gabriel. I didn't actually find anything useful though, which actually kind of fits given what I read in this particular diary entry.
 
 It's the weirdest one too. And honestly? It leaves me with a lot more questions than answers in regard to what happened to her and her whereabouts today. And I STILL don't know who planted the damn thing in my backyard!
 
@@ -30,7 +30,7 @@ Me: Oh, that's nice.
 
 Carolyn: So what seems to be the problem, officer? \*laughs\*
 
-Me: Actually, there is no problem. This isn't even anything to do with legalities, or anything to do with the department at all. I was just curious if you knew anything about a Thelma Audrey Gabriel?
+Me: Actually, there is no problem. This isn't even anything to do with legalities, or anything to do with the department at all. I was just curious if you knew anything about a Thelma Denise Gabriel?
 
 Carolyn: ... Where did you get that name?
 
@@ -68,7 +68,7 @@ But enough with my ramblings. Let's get onto the final entry.
 
 *Goodbye diary, and hello whoever finds this in the future!*
 
-*-Thelma Audrey Gabriel*
+*-Thelma Denise Gabriel*
 
 I started to wonder if that's how the thing ended up in my backyard - she wished it there. But then again, if this really happened, it happened in 1961, and I was born in 1995. Thelma, if she existed, was born in 1954.
 

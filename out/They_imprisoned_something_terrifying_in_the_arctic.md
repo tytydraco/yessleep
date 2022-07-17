@@ -1,14 +1,14 @@
-I’m an arctic researcher. During my last expedition, I found something that shouldn’t exist– an abandoned military barracks at the end of the world. The strange thing is the barracks isn't listed on any maps of the area, nor does it show up on any of our satellite imaging. It's as though I stumbled across an anomaly. Something that shouldn’t be, but is.
+I’m an arctic researcher. During my last expedition, I found something that shouldn’t exist– an abandoned military barracks at the end of the world. The strange thing is, the barracks isn't listed on any maps of the area, nor does it appear on any of our satellite imaging. It's as though I stumbled across an anomaly. Something that is, but shouldn’t be.
 
-When I entered the barracks, I found the place in disarray. Beds, tables, chairs– all of it was scattered everywhere, tipped over, or badly damaged. It looked like somebody had let a bull loose inside the building, and I couldn’t shake the feeling that foul play had occurred. Oddly enough, despite the dozen or so beds, there wasn’t a single indication of who’d lived there.
+When I entered the barracks, I found the place in disarray. Beds, tables, chairs– everything inside was scattered and broken. Despite no evidence of casualties, I couldn't shake the feeling that something awful had taken place, and so I set to work attempting to determine who had resided there. 
 
-No old photographs. No discarded electronics.
+I spent two hours scouring the barracks, but came up empty handed. There simply didn't appear to be anything in the way of personal effects. No old photographs. No discarded electronics. Nothing at all.
 
-Nothing at all.
+Deciding that it would need remain a mystery, I gave up my hunt and continued on my way. As I opened the door to leave however, something caught my eye. A journal. It had been stuffed inside a pillow case, it's spine just barely visible from my angle of view. 
 
-That is, nothing save for an old journal. I found it jammed between one of the floorboards, partially frosted over and covered in a heap of snow from the nearby shattered window. The text inside was just barely legible, and it contained a single entry. Nothing more. It seemed to be written in earnest, however, and assuming that nothing in the entry was falsified, it may be the most terrifying thing I’ve ever read.
+Upon inspection, it contained only a single entry. Nothing more. It seemed to be written in earnest however, and assuming that's the case, it may be the most terrifying thing I’ve ever read.
 
-I’ve transcribed it below. I’ll warn you ahead of time that the contents are… disturbing.
+I’ve transcribed it below. Please be warned, the contents are disturbing.
 
 &#x200B;
 
@@ -150,7 +150,7 @@ There's a low screech from high in the distance. I open my mouth. Raens cut me o
 
 “Pretty good," I say, moving to unsling my rifle.
 
-He puts a hand on mine as if to say *don't you fucking dare.* Then he smiles and adds, "Keep it on safe. I don't want you panicking and putting a bullet through me."
+He puts a hand on mine as if to say *don't you fucking dare.* Then he adds, "Keep it on safe. I don't want you panicking and putting a bullet through me."
 
 "Why?"
 
@@ -166,15 +166,15 @@ They streak toward the bunker.
 
 He thumbs over his shoulder, and I almost miss it in the creatures’ blinding light, but Thales' sun has risen again. It’s pulsing. Shuddering. It’s rising from the horizon and *spinning* as its molten rays tear away from it and hurtle toward the creatures.
 
-They react, but not fast enough. Thales' weapon is gruesome in its efficiency, in its totality for destruction. The blazing arrows snap through the air like heat-seeking missiles, finding their marks and engulfing the creatures in flames. One by one they fall to the ground. One by one the trumpets that could shatter mountains are made silent.
+They react, but not fast enough. Thales' weapon is gruesome in its efficiency, in its totality for destruction. The blazing arrows snap through the air like heat-seeking missiles, finding their marks and engulfing the creatures in flames. One by one they fall to the ground. One by one the trumpets that could shatter mountains are made *silent*.
 
-Soon, the sky is clear. Soon, the arctic outpost at the end of the world is quiet again, and I’m left alone with Raens, trembling in a snowfall of ash. “Were those things…” The word is on my lips, but it almost feels blasphemous to say. Something floats onto my shoulder. It's white and smeared with soot, and I think it might be a feather.
+Soon, the sky is clear. The arctic outpost at the end of the world is quiet again, and I’m left alone with Raens, trembling in a snowfall of ash. “Were those things…” The word is on my lips, but it almost feels blasphemous to say. Something floats onto my shoulder. It's white and smeared with soot, and I think it might be a feather.
 
 “Angels,” Raens says, standing up. “At least, that’s our best guess. They’ve been making the rounds every couple weeks or so, ever since Thales got his hands on Subject 21. Tricky things. Never fall for the same weapon twice.”
 
 Raens says the last bit as if he’s giving them some kind of begrudging respect, and all I can think about is the ringing in my ears. The fact that after this, we’re fucked. If angels are real, and if God is real, then that means Hell is real, and right now it's looking like the premiere destination for both of us. “We just murdered… " I breathe. "A hundred angels...”
 
-“Murdered? I wouldn’t bet on it.” Almost on cue, fallen feathers begin to coalesce all across the ashen snow, vibrating violently. They hover for the space of a heartbeat, and then altogether they shoot upward, piercing the sky like gunshot and leaving glowing pillars in their wake.
+“Murdered? I wouldn’t bet on it.” Almost on cue, fallen feathers begin to coalesce all across the ashen snow, vibrating violently. They hover for the space of a heartbeat, and then altogether they shoot upward, piercing the sky like gunshots and leaving glowing pillars in their wake.
 
 The pulsating sun slows, then falls back beneath the horizon. Darkness finds us again.
 
@@ -182,9 +182,11 @@ The pulsating sun slows, then falls back beneath the horizon. Darkness finds us 
 
 My heart is beating so fast it *hurts*. My body is covered in goosebumps and I'm trying to tell myself that I'm dreaming. That this is some left-over Sunday school trauma working its way out of my system.
 
-"This is *not* what I signed up," I sputter. "I mean holy shit, Raens. I’m not going to sentence myself to an eternity in damnation– *because clearly that exists now*\\–just to satisfy some government curiosity or one man’s vendetta or… or…” I cast about for the words but there’s nothing there. I’m too scared. Too weighed down by the overwhelming immensity of the situation to properly formulate my thoughts.
+"This is *not* what I signed up," I sputter. "I mean holy shit, Raens. I’m not going to sentence myself to an eternity in damnation– *because clearly that exists now*–just to satisfy some government curiosity or one man’s vendetta or… or…” 
 
-“Thought you didn’t believe in God?” Raens says with a smile, pulling out a fresh smoke. He passes the pack to me, and this time I can’t take one fast enough. "Agnostic, wasn't it?"
+I cast about for the words but there’s nothing there. I’m too scared. Too weighed down by the overwhelming immensity of the situation to properly formulate my thoughts.
+
+“Thought you didn’t believe in God?” Raens says with a grin, pulling out a fresh smoke. He passes the pack to me, and this time I can’t take one fast enough. "Agnostic, wasn't it?"
 
 “That was before I saw an army of angels get picked out of the sky like *birds.*”
 
@@ -192,13 +194,13 @@ Raens lights his smoke, then mine, and then he sits down in the snow. "That's a 
 
 It takes me a second to answer because I can't believe how relaxed he is. I want to grab him and scream that we're the bad guys, but before I can muster the rage he pats the snow beside him. "Take a seat, kid. I've been here a few years so there ain't much that surprises me. Not these days."
 
-I stay where I am. My chest is heaving like a bellows, and I don't know if what I just saw or the cigarette, but I feel light-headed and woozy. I'm afraid if I sit down I'll black out. "What's Thales' deal?" I say, and the demand in my voice surprises me. "I mean, is he like some kind of occult monster? Militant atheist?"
+I stay where I am. My chest is heaving like a bellows, and I don't know if what I just saw or the cigarette, but I feel light-headed and woozy. I'm afraid if I sit down I'll black out. "What's Thales' deal? I mean, is he like some kind of occult monster? Militant atheist?"
 
 "Thales, an atheist?" Raens laughs, sucking back on the nicotine like it's the sweetest taste in the world. "Far from it. Might be the most God-fearing Christian I've ever met, now that you mention it."
 
 "I'm not tracking."
 
-"No, I suppose you wouldn't be. Thales is a complicated man and not without his faults, but one thing you can't deny is that the man is *devout.* Grew up in the Bible belt. Reads his book every night. Hell, rumor has it he used to moonlight as a preacher in days past."
+"No, I suppose you wouldn't be. Thales is a complicated man and not without his faults, but one thing you cannot deny is that the man is *devout.* Grew up in the Bible belt. Reads his book every night. Hell, rumor has it he used to moonlight as a preacher in days past."
 
 “A preacher?" I scoff. "Why would a *preacher* want to murder God?"
 
@@ -216,6 +218,14 @@ That's where the entry ends. I haven't been able to locate any further logs, or 
 
 However, I did find the bunker.
 
-I found it several hundred yards away, buried beneath the arctic snow. It was mangled, appearing to have collapsed in on itself. The steel doors were roughly ten inches thick but bent and twisted like twin pieces of tin foil. It's difficult to say for certain what caused the damage, but it looked as if something had struck the place with the force of an atom bomb. Something that really wanted to get inside. 
+It was located a hundred yards away, buried beneath the arctic snow, and appeared to have collapsed in upon itself. Its blast doors were badly warped, better resembling pieces of crumpled tinfoil.
 
-Either that, or something that wanted to get [out](https://www.reddit.com/r/TalesFromTheCryptid).
+It's difficult to say for certain what caused that damage, but it looked as if something had struck the bunker with the force of an atomic bomb. Whatever it was, one thing is clear to me: something was desperate to get inside.
+
+
+&#x200B;
+
+&#x200B;
+
+
+Either that, or desperate to get [out](https://www.reddit.com/r/TalesFromTheCryptid).
