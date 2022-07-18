@@ -330,4 +330,6 @@ I’ll update in a few days. Stay safe, everyone.
 
 “This is what I saw on my bed last night,” Robby said as he showed us [this.](https://imgur.com/a/aEEkgW8)
 
-Part 2: [https://www.reddit.com/r/nosleep/comments/vr6fkp/hurricane\_ida\_brought\_more\_than\_floodwater\_into/](https://www.reddit.com/r/nosleep/comments/vr6fkp/hurricane_ida_brought_more_than_floodwater_into/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/vr6fkp/hurricane_ida_brought_more_than_floodwater_into/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/w1xw2i/hurricane_ida_brought_more_than_floodwater_into/)

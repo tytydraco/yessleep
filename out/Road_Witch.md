@@ -10,13 +10,13 @@ That’s right, a witch. She had the hat on and everything. I didn’t think the
 
 &#x200B;
 
-Here’s where trouble began to rear its ugly head. First off it was raining and Google Maps wasn’t working right and yes, I always make sure it’s up to date. Anyway, it kept losing its signal. Maybe it was because I was going through a lot of tunnels. In any case, I didn’t have a clue where to go. This may have been manageable in the daytime. 
+Here’s where trouble began to rear its ugly head. First off, it was raining and Google Maps wasn’t working right and yes, I always make sure it’s up to date. Anyway, it kept losing its signal. Maybe it was because I was going through a lot of tunnels. In any case, I didn’t have a clue where to go. This may have been manageable in the daytime. 
 
 &#x200B;
 
 &#x200B;
 
-Night though is another matter which brings me to the next thing which was that it was too dark for me to read the signs. I don’t know what it is with the lack of streetlights on that highway, but that needs to change asap. I kept driving with only a vague idea of where I was headed. Every so often, I would glance at my phone to see if the app was working right. I even reset my phone to no avail.
+Night, though is another matter which brings me to the next thing which was that it was too dark for me to read the signs. I don’t know what it is with the lack of streetlights on that highway, but that needs to change asap. I kept driving with only a vague idea of where I was headed. Every so often, I would glance at my phone to see if the app was working right. I even reset my phone to no avail.
 
 &#x200B;
 

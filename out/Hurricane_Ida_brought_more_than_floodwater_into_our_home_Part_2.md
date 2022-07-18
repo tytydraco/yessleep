@@ -329,3 +329,5 @@ We’re leaving for Biloxi soon, and I am praying this psychic can help us pinpo
 But I will say: Paul and I noticed this part, and we’re actually terrified about this revelation.
 
 The angry lady was Gabriela.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/w1xw2i/hurricane_ida_brought_more_than_floodwater_into/)
