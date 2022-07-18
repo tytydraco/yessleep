@@ -21,8 +21,8 @@ Thats when i realized. My family dog was gone. He hadn't even made a noise to al
 
 I brought myself to look at it fully, not just its face, and i realized its legs. The front two legs were covered in gore, aswell as most of its hide. And the back two... it was standing upright, like a human.
 
-I didn't care anymore. I booked it in one direction and i heard that deathly clicking peirce the air. Closely following were the loud and fast stomps of its hooves, its blood dripping wet on the ground. 
-
+I didn't care anymore. I booked it in one direction and i heard that deathly clicking peirce the air. Closely following were the loud and fast stomps of its hooves, its blood dripping wet on the ground. I think it must have been going pretty fast cause i heard the thump
+of it hitting a tree, thats probably the only reason im alive 
 I saw the lights of my town and screamed loudly for help. I could hear it getting closer, and fast. I managed to get through the gate to the woods in time and shut it fast. 
 
 I didn't look back after that.

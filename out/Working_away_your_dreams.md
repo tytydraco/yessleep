@@ -1,18 +1,18 @@
 I wake up before my alarm most days.
 
-Then I sleep for 20 more minutes until the sound bothers me enough to fall out of bed with a complaint. 
+Then I sleep for 20 more minutes until the sound bothers me enough to fall out of bed with a complaint.
 
-The complaint is less about being awake and more about why I'm awake. 
+The complaint is less about being awake and more about why I'm awake.
 
-Any desire I had to be done hard working by the books guy has long since left. Any that does remain even in smidgens will be given away to others. 
+Any desire I had to be some hard working by the books guy has long since left. Any that does remain even in smidgens will be given away to others.
 
-Giving away things I care about is part of my job. 
+Giving away things I care about is part of my job.
 
-Some may call it self sacrifice, others may call it stupidity, but I call it necessity. 
+Some may call it self sacrifice, others may call it stupidity, but I call it necessity.
 
-I'm not some rich brat. I don't have scholarships and I live in the States. 
+I'm not some rich brat. I don't have scholarships and I live in the States.
 
-So I need a pattern to follow. A job. A routine. 
+So I need a pattern to follow. A job. A routine.
 
 When a routine becomes well, routine enough, it becomes a part of your internal clock.
 
