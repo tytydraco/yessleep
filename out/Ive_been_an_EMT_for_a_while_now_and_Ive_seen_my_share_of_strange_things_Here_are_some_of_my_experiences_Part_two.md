@@ -1,4 +1,4 @@
-Hello again, everyone. You all seemed to really enjoy my last story about what is, admittedly, one of the creepiest experiences of my life. I'm glad! Silver linings and what-not. I'll link the prior post here, once I'm not on mobile. Thank you all for the kind words and compliments. I've I figured I'd gather you all around the virtual campfire and share another story, if you'll have me. 
+Hello again, everyone. You all seemed to really enjoy my last story about what is, admittedly, [one of the creepiest experiences of my life.](https://www.reddit.com/r/nosleep/comments/vy8i6a/ive_been_an_emt_for_a_while_now_and_ive_seen_my/?utm_medium=android_app&utm_source=share) I'm glad! Silver linings and what-not. Thank you all for the kind words and compliments. I've I figured I'd gather you all around the virtual campfire and share another story, if you'll have me. 
 
 For those of you that are new, I've been an EMT for a good many years now. I've seen a lot. Good, bad, funny, sad and smelly. I work in a pretty high call volume agency, so you name it, I've probably seen it. That said, there's been many times where I've seen things that I still struggle to wrap my head around. Things that didn't quite add up, things that didn't make sense, and some things that, to be frank, *creeped me the fuck out.*
 
@@ -61,7 +61,7 @@ This is out of character for my partner. Normally we both sit in the back, get t
 
 I try to get a history from the guy on the way to the hospital but he's not responsive. He just sobs into his hands the whole way there. Vitals are stable, but elevated. Heart rate and blood pressure are up, obviously, but not alarmingly so. I call it in to the ER as an "altered mental status" due to the lack of patient interaction, because I basically have nothing else to go on. 
 
-We get to the ER and if it wasn't for my patient's reaction, I'd have thought I'd imagined it. But as we're unloading this dude, I hear *another* scream, just faintly, as if it was several blocks away. I'd normally have shrugged it off as my imagination, but my patient just starts shaking and crying loudly. He's inconsolable at this point, and the receiving providers ended up having to give him a little something to calm him down. We get him settled, and I return to my ambulance. I go up to my partner, who still has a look of bewilderment on his face.
+We get to the ER and if it wasn't for my patient's reaction, I'd have thought I'd imagined it. But as we're unloading this dude, I hear *another* scream, just faintly, as if it was coming from several blocks away. I'd normally have shrugged it off as my imagination, but my patient just starts shaking and crying loudly. He's inconsolable at this point, and the receiving providers ended up having to give him a little something to calm him down. We get him settled, and I return to my ambulance. I go up to my partner, who still has a look of bewilderment on his face.
 
 "What the fuck was that all about?" I ask him.
 
@@ -99,7 +99,7 @@ He gestured to the room, which was now empty.
 
 I was kind of shocked. The guy seemed totally stable on the way to the hospital. I mean, shit happens, but still. Kevin continued.
 
-"He was slumped over in the corner, and he had no fingernails. It looked like the dude tried to *claw* his way out of the room, man. Scratch marks all over the wall and shit. His head was just...wrong, at this odd angle, just staring up at the opposite corner of the room. He looked terrified, eyes practically bulging out of his head."
+"He was slumped over in the corner, and he had no fingernails. It looked like the dude tried to *claw* his way out of the room, man. Scratch marks all over the wall and shit. His head was just...wrong, at this odd angle, just staring up at the opposite corner of the room. He looked terrified, eyes just bulging out of his head."
 
 I could visibly see the chills rising on my friend's arms as he spoke. This is not an easy man to shake; former military, dudes been an RN in the ER for 10+ years and has seen it all. Not much left to shake him, really. What he said next gave *me* chills, and still does to this day.
 

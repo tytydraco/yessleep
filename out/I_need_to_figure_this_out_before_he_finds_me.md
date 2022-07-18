@@ -1,3 +1,6 @@
+
+Part One -
+
 It all started when I woke up, confused, in a hospital room. I turned to meet the gaze of a dark-haired man with stubble on his chin and cheeks. He looked as if he hadn’t slept in days. 
 
 My medical team told me I had been in an accident and sustained a traumatic brain injury. I’d had several surgeries to fix the damage and had been in a coma for weeks. I might never recover my memory. They said my name was Grace and I was married. They introduced the man across the room as my husband, Adrian. 
@@ -55,3 +58,5 @@ I packed up some clothes, my computer, and the few credit cards I had access to.
 It’s been a few hours since then. I left the motel and I can’t say where I am. It occurred to me that Adrian could be watching the credit card statements, and I don’t want to take that risk.
 
 I don’t know what to do. I feel stuck. I have nowhere to go. I’m so scared right now. I have gotten a few texts from Adrian, wanting to know where I am, but I can’t answer them. I don’t want him to find me. What happened to Grace? What happened to Katrina? Am I crazy? Someone please help me figure this out before Adrian finds where I am.
+
+Part [two](https://www.reddit.com/r/nosleep/comments/w24hqr/i_need_to_figure_this_out_before_he_finds_me_part/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
