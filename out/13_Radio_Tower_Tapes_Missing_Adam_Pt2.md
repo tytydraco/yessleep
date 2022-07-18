@@ -118,3 +118,4 @@ Detective Stacy yanked the note from my hands, “what do you know about the man
 “No, he’s been doing the same thing with me,” he replied and slipped the paper in another zip lock baggie. “This is a threat; your life is in danger.” He handed both the shimmery fur and the note off to some crime scene tech and told them where he got them. 
 
 My head throbbed, and the insistent sirens wasn’t doing much to help. I rubbed my aching temple. It had been a long day, and when I glanced into my car, the tapes were still there. this guy in the hoodie didn’t take them, did he not know? or was he just warning me? either way, I felt a chill run down my spine, and fear twisted my gut.
+[Part 3](https://www.reddit.com/r/nosleep/comments/w28979/13_radio_tower_tapes_missing_adam_pt_3/?utm_medium=android_app&utm_source=share)
