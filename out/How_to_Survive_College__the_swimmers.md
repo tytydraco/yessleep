@@ -218,7 +218,7 @@ I wrote down some notes on the creatures, including what Maria told me about the
 
 So I showed her the rules.  We added a few more.  There’s still a couple I’m not sure on, but the list is really starting to take shape now.
 
-She wants to show it to the rest of the Rain Chasers.  And you know what?  I think it might be time to do exactly that. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+She wants to show it to the rest of the Rain Chasers.  And you know what?  I think it might be time to [do exactly that](https://www.reddit.com/r/nosleep/comments/w2ixvt/how_to_survive_college_the_rain_changes_things/). [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
