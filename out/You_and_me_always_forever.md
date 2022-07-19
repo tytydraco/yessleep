@@ -116,7 +116,7 @@ I shook it off. "All I'll say on the subject is I'm very happy, alright?"
 
 "Good enough for me," she said with a wink.
 
-I paused for moment. "Yesterday something weird happened, though. And again today." 
+I paused for a moment. "Yesterday something weird happened, though. And again today." 
 
 I was hesitant to open the doors on crazy, especially as it involved her deceased brother. But she told me to *'spit it the fuck out'*, and that prompted me to tell her what had happened the night before and earlier that day. 
 
