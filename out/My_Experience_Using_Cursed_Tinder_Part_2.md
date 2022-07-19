@@ -1,4 +1,4 @@
- Part 1: [https://www.reddit.com/r/nosleep/comments/w1oh1a/my\_experience\_using\_cursed\_tinder\_part\_1/](https://www.reddit.com/r/nosleep/comments/w1oh1a/my_experience_using_cursed_tinder_part_1/)
+Part 1: [https://www.reddit.com/r/nosleep/comments/w1oh1a/my\_experience\_using\_cursed\_tinder\_part\_1/](https://www.reddit.com/r/nosleep/comments/w1oh1a/my_experience_using_cursed_tinder_part_1/)
 
 The next afternoon, I was working from home answering customer enquiries, doing my best to put the whole experience out of my head, when I got a new notification of activity from tinder. I’ve got to admit: when I saw it, I very nearly shit myself.   
 It was nearly an hour later before I could bring myself to reopen the website. When I finally did go back, I found, to my relief, tinder had returned to its normal look. No red screen, or glitching, or creepy and unsettling profiles showing up in the browsing section. 
@@ -19,7 +19,7 @@ Our conversation started with basic things, both of us awkwardly introducing our
 Esther didn’t act like she was bothered by this, though. She said she thought I was sweet, and admitted to feeling about as shy as I did at the time.   
 I spent the next few days getting to know her, and against all my expectations, we actually hit it off. We were both somewhat introverted and quiet, and sometimes preferred to be around ourselves than other people. 
 
-Asking her more about herself, I found out we also both shared a similar passion and taste for adventure. On most of my free weekends, my hobbies were anything ranging from surfing to skydiving. Before long, Esther and I were discussing our favourited thrill-seeking activities and where we went for them. Esther’s favourite was rock climbing around the Appalachian mountains.   
+Asking her more about herself, I found out we also both shared a similar passion and taste for adventure. On most of my free weekends, my hobbies were anything ranging from surfing to skydiving. Before long, Esther and I were discussing our favourite thrill-seeking activities and where we went for them. Esther’s favourite was rock climbing around the Appalachian mountains.   
 She even thought it was cool that I worked at an antique shop, and pressed me until I told her more about it. 
 
 Esther was turning out to be one of the few people I’d ever met on tinder who I felt like it was easy to talk to. 
@@ -196,7 +196,7 @@ It took every bit of courage I had not to freak out again, but I didn’t. Even 
 
 Its hideous attempt at a smile steadily returned and expanded. It began to affectionately coddle me, its clawed hands drawing faint lines of blood across my face as I felt it grope blindly at my cheeks and mouth, gurgling and drooling all over me as it did. 
 
-I couldn’t stop thinking about how Esther had said it was like a baby, and how easily babies got upset, and what it could do to me if it got upset enough. So I tolerated all of this, and I patted it and stroked its head, swallowing back the bile and vomit that repeatedly rose up into my throat and mouth. I cooed softly and told it what a wonderful creature it was in a voice I would have never expected to hear myself making. I did everything in my power to keep it from becoming upset again. 
+I couldn’t stop thinking about how quickly it changed, how easily it had gotten upset, and what it might do to me if it got upset again. So I tolerated all of this, and I patted it and stroked its head, swallowing back the bile and vomit that repeatedly rose up into my throat and mouth. I cooed softly and told it what a wonderful creature it was in a voice I would have never expected to hear myself making. I did everything in my power to keep it from becoming angry again. 
 
 The next few hours were some of the longest hours in my life. Honestly, at a certain point, I began to sort of dissociate myself from what was going on. Like I was both witnessing and experiencing these events simultaneously. 
 
@@ -213,7 +213,8 @@ Then her lips moved from my ear to my mouth, too quickly for me to protest.
 I didn’t push her away. I couldn’t. I was kissing her back before I even knew what I was doing.   
 Yeah, we had sex again. I know I should have really kicked her out but I also knew such an action was against the dating rules I was supposed to follow. Plus, the high brought on from her intoxicating presence temporarily pushed the prior traumatic experience to the far back of my mind. 
 
-Esther had taken on a kind of glow since the previous night and her body was impossibly flexible. I could see the veins of her wrists and arms darkening as she wrapped them around my neck. Something indescribable seemed to have animated her body, and she practically brimmed with energy.
+Esther had taken on a kind of glow since the previous night and her body was impossibly flexible. I could see the veins of her wrists and arms darkening as she wrapped them around my neck.   
+Something indescribable seemed to have animated her body, and she practically brimmed with energy.
 
 We spent the rest of the morning together cuddled up on the bed. I let her talk to me, telling me more stories about her world and then what worlds she was, apparently, planning on exploring after she left mine.   
 We talked about plenty of other things, too, however neither of us spoke about what had happened the previous night. When she’d asked if I had a good sleep, I thought for a second. then claimed to have slept like a log. 
@@ -240,5 +241,4 @@ So far, he hasn’t responded to any of my attempts to try to contact him. I hav
 
 I’m starting to worry something might have happened to him. 
 
-Those otherworldly tinder dates, they can get quite nasty sometimes.   
- 
+Those otherworldly tinder dates, they can get quite nasty sometimes. 
