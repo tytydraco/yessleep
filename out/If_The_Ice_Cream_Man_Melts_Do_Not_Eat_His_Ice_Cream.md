@@ -182,7 +182,9 @@ There was a dim light peering from the back of the truck.
 
 After seeing the truck, my stomach grumbled. I craved the ice cream that was in that truck. My tongue wanted to jump out into the truck and drown itself in its ice cream. *Maybe he came back because he has more ice cream!* I excitedly told myself.
 
-I quickly put on a shirt and slowly creaked my bedroom door open, hoping none of my parents heard it. I crept down the stairs and with steady hands I slowly opened the front door. When I walked outside, I could feel the cold air that came from the truck cutting through the heat of the summer night. I walked cautiously to the back of the truck to where the light was coming from. The back of the truck looked like that of an ambulance and I could see through the two windows the ice cream man sitting down looking occupied. He was eating ice cream! I could see him slowly eating from below him with a spoon.
+I quickly put on a shirt and slowly creaked my bedroom door open, hoping none of my parents heard it. I crept down the stairs and with steady hands I slowly opened the front door. When I walked outside, I could feel the cold air that came from the truck cutting through the heat of the summer night.
+
+I walked cautiously to the back of the truck to where the light was coming from. The back of the truck looked like that of an ambulance and I could see through the two windows the ice cream man sitting down looking occupied. He was eating ice cream! I could see him slowly eating from below him with a spoon.
 
 My cravings overcame me and I became jealous that he hid the ice cream. *I caught him!* I thought. *He doesn’t have enough ice cream for us because he just eats it all!*
 
@@ -197,3 +199,9 @@ When the ice cream saw me he dropped the spoon and instantly stood up, his back 
 That once creeping smile that the ice cream man always wore was nowhere to be found. Instead he had a look of rage, veins popping out from his forehead and an exaggerated frown. His teeth were rugged and no longer white. His bottom jaw pushed outward and drool dripped down his newly rugged chin. He heavily breathed and grunted as he walked hunched over towards me. I struggled to stand up and watched in horror as he walked up to the end of the truck.
 
 The ice cream man stared down at me for what seemed like eternity. He snorted at me and then slammed the door shut. I then heard the sound of the emergency break release and the truck sped off. The heat from the exhaust bounced off my leg and got rid of the surrounding cold the truck had left. Thoughts raced through my mind, *Who was I going to tell? How did Maggie get like that?* But my most alarming thought was, *Why is my leg melting right now?*
+
+Somehow I couldn't feel anything happening to my leg. I remembered how the ice cream man kept everything in his truck frozen and when Maggie had touched the ice cold jar of lemonade her arms shifted back to normal. I quietly ran inside and put ice cubes in a bag. *Well, here goes nothing* I shrugged and applied it to my leg. My leg then shifted back to normal almost instantly.
+
+Of course this had never happened to me or Maggie until we had eaten that mans ice cream. I should have just stuck with buying Maggie's lemonade.
+
+If you ever see your ice cream man start to melt, please... don't eat his ice cream.

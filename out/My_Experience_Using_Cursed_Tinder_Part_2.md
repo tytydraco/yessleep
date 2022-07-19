@@ -1,3 +1,5 @@
+ Part 1: [https://www.reddit.com/r/nosleep/comments/w1oh1a/my\_experience\_using\_cursed\_tinder\_part\_1/](https://www.reddit.com/r/nosleep/comments/w1oh1a/my_experience_using_cursed_tinder_part_1/)
+
 The next afternoon, I was working from home answering customer enquiries, doing my best to put the whole experience out of my head, when I got a new notification of activity from tinder. I’ve got to admit: when I saw it, I very nearly shit myself.   
 It was nearly an hour later before I could bring myself to reopen the website. When I finally did go back, I found, to my relief, tinder had returned to its normal look. No red screen, or glitching, or creepy and unsettling profiles showing up in the browsing section. 
 
@@ -17,7 +19,7 @@ Our conversation started with basic things, both of us awkwardly introducing our
 Esther didn’t act like she was bothered by this, though. She said she thought I was sweet, and admitted to feeling about as shy as I did at the time.   
 I spent the next few days getting to know her, and against all my expectations, we actually hit it off. We were both somewhat introverted and quiet, and sometimes preferred to be around ourselves than other people. 
 
-Asking her more about herself, I found out we also both shared a similar passion and taste for adventure. On most of my free weekends, my hobbies were anything ranging from surfing to skydiving. Before long, Esther and I were discussing our favourite thrill-seeking activities and where we went for them. Esther’s favourite was rock climbing around the Appalachian mountains.   
+Asking her more about herself, I found out we also both shared a similar passion and taste for adventure. On most of my free weekends, my hobbies were anything ranging from surfing to skydiving. Before long, Esther and I were discussing our favourited thrill-seeking activities and where we went for them. Esther’s favourite was rock climbing around the Appalachian mountains.   
 She even thought it was cool that I worked at an antique shop, and pressed me until I told her more about it. 
 
 Esther was turning out to be one of the few people I’d ever met on tinder who I felt like it was easy to talk to. 
@@ -129,7 +131,7 @@ I’d looked at her and chuckled. ‘What, you have another one? Seriously?’
 She nodded eagerly and pointed at herself. ‘I’ve been chosen for something special. I have a wonderful creature growing inside of me. A long time ago, its mother decided I should have the honour of being the one to carry its offspring.’
 
 ‘You’re pregnant?’ From what she said, it was the first thing I assumed.  
-‘Not exactly pregnant. See, this child, it's not from my species.  And it’s more ancient than I am. ’  
+‘Not exactly pregnant. See, this child, it's not from my species. And it’s more ancient than I am.’  
 ‘It’s quite harmless, really,’ she continued, quickly trying to reassure me as she saw my eyes widen. ‘I like to think of it more like I’m.. It’s surrogate.’ She smiled. ‘Sort of. It kicks, it makes me want to eat weird stuff. I talk or sing to it sometimes to help it relax and go to sleep. It has been… Restless since I came here.’ She giggled. ‘I think it wants to get out and cause more mischief.’ 
 
 I remembered, involuntarily, the moment at the fair where I thought I saw something poking out of her nose, something that she had so absentmindedly pushed back up inside of her. 
@@ -140,7 +142,7 @@ I was, admittedly, back to being spooked at that point. Her words had finally ma
 Had any other woman said this, I believe I would have reacted more. But it wasn’t any other woman. Every time I allowed myself to look into those deep, hazel eyes of hers, I completely lost my train of thought. It’s like I said before. There was something about Esther that made her impossible to resist. She just kept disarming me. I wasn’t sure there was anything she could have said at that point that could have really scared me away from her. I know it sounds crazy, but I doubt she would have had such a different effect on any of you. Being around her, it took me out of my right mind.   
 So I decided it wasn’t that much more out there than the things she already told me, and I tried for a little enthusiasm as I told Esther I was happy for her.   
 I’d added, somewhat uneasily, ‘But wouldn’t that be kind of unpleasant? It kind of sounds like, um, some kind of parasite or something. No offense.’   
-She shook her head quickly. ‘You don’t have to worry about offending me. I do understand how strange this all must sound to you. Also, to answer your question, it’s not like that. It’s a privilege for one of them to choose you. It doesn’t hurt me; actually, it's quite the opposite. My child is the reason I was able to escape from the religious home I was born into.  After I was chosen to be the carrier of it, I started to change, to get stronger. After a while, I was developing powers I never would have dreamed of having before then.’ She twirled one finger idly around a strand of her hair. ‘For the first time in my life, I was able to stand up to my parents. They couldn’t stop me from leaving. No one could.’ She giggled. ‘They were all too scared.’ 
+She shook her head quickly. ‘You don’t have to worry about offending me. I do understand how strange this all must sound to you. Also, to answer your question, it’s not like that. It’s a privilege for one of them to choose you. It doesn’t hurt me; actually, it's quite the opposite. My child is the reason I was able to escape from the religious home I was born into. After I was chosen to be the carrier of it, I started to change, to get stronger. After a while, I was developing powers I never would have dreamed of having before then.’ She twirled one finger idly around a strand of her hair. ‘For the first time in my life, I was able to stand up to my parents. They couldn’t stop me from leaving. No one could.’ She giggled. ‘They were all too scared.’ 
 
 ‘After that, I was able to use my powers to explore the world, to see things I’d never dreamed of seeing. This child I’m carrying saved me from a lifetime of enslavement to my family. And it gave me a purpose, because it needs me to help it find the things it requires to grow and pupate in power.
 
@@ -238,4 +240,5 @@ So far, he hasn’t responded to any of my attempts to try to contact him. I hav
 
 I’m starting to worry something might have happened to him. 
 
-Those otherworldly tinder dates, they can get quite nasty sometimes.
+Those otherworldly tinder dates, they can get quite nasty sometimes.   
+ 
