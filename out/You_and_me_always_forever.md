@@ -252,7 +252,7 @@ Without warning his hands closed around my neck and he pushed his whole body wei
 
 "Ben... please..." 
 
-He grinned, bearing his perfect teeth. 
+He grinned, baring his perfect teeth. 
 
 "Please what?" he hissed. "Help you? I am babe. I'll put you out of your fucking misery." 
 
