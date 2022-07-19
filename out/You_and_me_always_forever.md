@@ -100,7 +100,7 @@ I closed my eyes. There was the slightest sensation of something brushing agains
 
 The box I had started to fill was overturned, the contents spilled across the floor. I switched off the music and headed towards the front door, grabbing my keys on the way. I had to get out of the flat. 
 
-As I took the elevator down to the ground floor I took my phone out of my pocket and went to speed dial Ben, but thought better than to bother him with more craziness. Instead, I text Jenna to see if she was free for coffee. We met at the Caffè Nero we frequented after our gym sessions, taking back the lost calories.
+As I took the lift down to the ground floor I took my phone out of my pocket and went to speed dial Ben, but thought better than to bother him with more craziness. Instead, I text Jenna to see if she was free for coffee. We met at the Caffè Nero we frequented after our gym sessions, taking back the lost calories.
 
 "So, how's it going with Ben?" she asked, drinking a chai latte.
 
@@ -198,7 +198,7 @@ The framed picture of Ash and I in Barcelona stood upright, a scrap of paper bel
 
 It was Ash's handwriting. I was done. 
 
-I grabbed a few items of clothing from my wardrobe and stuffed them into a gym bag with my phone, wallet, and keys. I put my shoes on without doing up the laces and rushed out of my apartment. I'd probably seen too many scary movies to make rational decisions, but taking the stairs seemed like the safer option. Elevators usually broke down in those moments. 
+I grabbed a few items of clothing from my wardrobe and stuffed them into a gym bag with my phone, wallet, and keys. I put my shoes on without doing up the laces and rushed out of my flat. I'd probably seen too many scary movies to make rational decisions, but taking the stairs seemed like the safer option. Lifts usually broke down in those moments. 
 
 I descended as quickly as possible, it was a miracle that I didn't trip. I didn't stop until I was out of the main building and could feel the cool night air on my face. Only then did I allow myself to sit down on the dirty street and hyperventilate, a couple of late night passers by avoiding me like the plague. 
 
