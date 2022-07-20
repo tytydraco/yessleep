@@ -283,7 +283,7 @@ The security manager kept talking.
 
 I was going through my mind trying to figure out what was happening here, all I wanted was information about the building and suddenly I'm filing some report.
 
-'Ehh, it was.. today... probably about noon!?' I just said the first thing that came to mind.
+'Ehh, it was.. yesterday... probably about noon!?' I just said the first thing that came to mind.
 
 'Great, and there were three teenagers?
 
