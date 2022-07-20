@@ -1,4 +1,4 @@
-Prison wasn’t as bad as I thought it was going to be when I went in. I got six years for distribution and a few other related charges but once I was in, the warden gave me a choice: serve the full six in a normal wing or serve tone in a specialty block. He didn’t give me a ton of details about G2-Block though I got the gist of it. I’d be a guinea pig for testing pharmaceuticals and, in return, I’d get a reduced sentence.
+Prison wasn’t as bad as I thought it was going to be when I went in. I got six years for distribution and a few other related charges but once I was in, the warden gave me a choice: serve the full six in a normal wing or serve one in a specialty block. He didn’t give me a ton of details about G2-Block though I got the gist of it. I’d be a guinea pig for testing pharmaceuticals and, in return, I’d get a reduced sentence.
 
 I accepted the deal.
 

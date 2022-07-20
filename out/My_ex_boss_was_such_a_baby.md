@@ -78,7 +78,7 @@ I sighed. "Have to grab a file that his highness insists I work on tonight. Bloo
 
 She chuckled. "No rest for the wicked as they say." 
 
-"Yel! Underneath this handsome exterior I'm green and pointy!" I made claws with my hands. She laughed, it echoed around the empty reception hall and she covered her mouth like a naughty child. 
+"Yep! Underneath this handsome exterior I'm green and pointy!" I made claws with my hands. She laughed, it echoed around the empty reception hall and she covered her mouth like a naughty child. 
 
 "Stop it, you," she said, trying to calm herself down. I called the lift and stepped inside, pressing floor 5. 
 

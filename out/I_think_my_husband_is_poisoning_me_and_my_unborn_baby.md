@@ -51,7 +51,7 @@ As for me, I was too busy screaming to notice. The pain felt unbearable, and I d
 
 As we speak, I'm lying in bed, in more pain than I've ever experienced throughout my entire life. I keep hearing these voices, repeating in my head that this baby was a mistake and that I need to get rid of it. The voices keep telling me that the thing in my stomach is a monster, that my husband is forcing me to lie here in my own misery.
 
-The baby tried to kill me tonight. I know it. That has to be what happened. Those cuts? Those are the claws I felt before. It wants me dead. A mother knows her child. This is not mine.
+The baby tried to kill me tonight. I know it. That has to be what happened. Those cuts? Those are the claws I felt before. It wants me dead. This is not my child.
 
 I'm going to relax for a bit and reply to some comments. I probably won't fall asleep for a few hours, so I'll try my best to remain active. I'll update if I find anything else out.
 
@@ -60,3 +60,15 @@ Edit 2: There was a knife under my pillow. Did Jake plant that there? I'M FREAKI
 I didn't DO ANYTHING! I have been asleep — sleep that I am CERTAIN HE CAUSED!! — and in constant pain. Jake is going insane. I need to get away but I don't know how. I'm so tired. I feel like I'm going to pass out any minute. I am not crazy. I know what he did to me. I know this thing inside of me isn't my baby. I know it.
 
 I am never wrong.
+
+Final edit: They are all calling me insane. They are telling me I need to be locked up. They are saying I am crazy. The police are against me. My friends are against me. Everyone is against me.
+
+Why can't they realise it wasn't my fault? Why can't they see what he did to me? Why do they believe him? I did nothing wrong. I did what I had to do to escape. This pain is maddening. No one believes me. They were expecting me to birth a monster.
+
+I tried reaching out to Mia like everyone told me to (I stopped caring about what my husband would do to me), but she said she cannot speak to me anymore after what I did. She said that Jake told her what happened. She said that she pitied me for the voices in my head. Nobody is listening to me. I have no one. Maybe that's why I did it. I was alone. Alone with a killer brewing in my stomach.
+
+The tiredness is getting worse. I feel so dizzy, but I haven't eaten or drank anything he gave me. I don't know what he's doing to me, but he's doing something. I will figure it out. I will prove to the world that I am not insane.
+
+I did not murder my child. I simply killed the beast inside of me. I would never harm a baby. I have morals. I loved my unborn child dearly. I truly, genuinely did. But it turned into a demon. I did what I had to do to save myself and everyone else.
+
+After all, a mother knows best.
