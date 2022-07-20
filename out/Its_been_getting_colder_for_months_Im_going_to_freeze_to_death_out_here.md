@@ -1,6 +1,6 @@
 Gosh, my mind is so cooked I cant even remember the year this started but I can recall the month. Here we go.
 
-Back in mid April from however long ago it was. The News channels began reporting of a slight breeze all across the U.S. It wasn't super unusual, due to the increase of poor weather, I was listening to the news on my freshly bought 80's mobile home in a raggedy old trailer park. It smelled of old cigarettes' and week old thanksgiving ham. I had to scrape together whatever earnings I could find from my low education McDonald's job.
+Back in mid April from however long ago it was. The News channels began reporting of a slight breeze all across the U.S. It wasn't super unusual, due to the increase of poor weather, I was listening to the news in my freshly bought 80's mobile home in a raggedy old trailer park. It smelled of old cigarettes' and week old thanksgiving ham. I had to scrape together whatever earnings I could find from my low education McDonald's job.
 
 My job was something I can only describe as nightmarish. Flipping burgers made me come home smelling like a dog that had only been showered once every 5 years. It was horrid, I hated it. It made me very depressed, although my savings weren't enough for therapy.
 
