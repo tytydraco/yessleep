@@ -1,5 +1,5 @@
 ## r/nosleep archive
-file count: 3925  
+file count: 3927  
  * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
  * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
  * [12 minutes](out/12_minutes.md)
@@ -1341,8 +1341,8 @@ file count: 3925
  * [I think that there is someone else living in my house](out/I_think_that_there_is_someone_else_living_in_my_house.md)
  * [I Think The Clouds Are Trying To Tell Me Something Is Coming](out/I_Think_The_Clouds_Are_Trying_To_Tell_Me_Something_Is_Coming.md)
  * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
- * [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
  * [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
+ * [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
  * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
  * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
  * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -2146,6 +2146,7 @@ file count: 3925
  * [My girlfriend thinks Ive been controlling her but I swear I havent](out/My_girlfriend_thinks_Ive_been_controlling_her_but_I_swear_I_havent.md)
  * [My Girlfriend Wears Too Much Makeup and Now I Think I Know Why](out/My_Girlfriend_Wears_Too_Much_Makeup_and_Now_I_Think_I_Know_Why.md)
  * [My girlfriend went hiking Her texts dont sound like her and I think something is terribly wrong](out/My_girlfriend_went_hiking_Her_texts_dont_sound_like_her_and_I_think_something_is_terribly_wrong.md)
+ * [My girlfriend would answer one question every night in her sleep Part 2](out/My_girlfriend_would_answer_one_question_every_night_in_her_sleep_Part_2.md)
  * [My girlfriend would answer one question every night in her sleep Part 3](out/My_girlfriend_would_answer_one_question_every_night_in_her_sleep_Part_3.md)
  * [My girlfriends ex just wouldnt leave us alone](out/My_girlfriends_ex_just_wouldnt_leave_us_alone.md)
  * [My girlfriends face is slowly starting to melt](out/My_girlfriends_face_is_slowly_starting_to_melt.md)
@@ -2395,6 +2396,7 @@ file count: 3925
  * [My wife hasnt been herself lately](out/My_wife_hasnt_been_herself_lately.md)
  * [My wife heard a skinwalker in our house last night](out/My_wife_heard_a_skinwalker_in_our_house_last_night.md)
  * [My wife insisted on a home birth](out/My_wife_insisted_on_a_home_birth.md)
+ * [My wife isnt the same anymore](out/My_wife_isnt_the_same_anymore.md)
  * [My Wife Locked Me in the Basement](out/My_Wife_Locked_Me_in_the_Basement.md)
  * [My wife ran away and I cant even go looking for her](out/My_wife_ran_away_and_I_cant_even_go_looking_for_her.md)
  * [My wife started craving strange food I think it is getting worse](out/My_wife_started_craving_strange_food_I_think_it_is_getting_worse.md)
@@ -3028,8 +3030,8 @@ file count: 3925
  * [The eyeless lady](out/The_eyeless_lady.md)
  * [The Eyes In The House](out/The_Eyes_In_The_House.md)
  * [The EyeSpye App](out/The_EyeSpye_App.md)
- * [The Faceless Man](out/The_Faceless_Man.md)
  * [The faceless man](out/The_faceless_man.md)
+ * [The Faceless Man](out/The_Faceless_Man.md)
  * [The family shots 1](out/The_family_shots_1.md)
  * [The Family Tradition](out/The_Family_Tradition.md)
  * [The Farm](out/The_Farm.md)
