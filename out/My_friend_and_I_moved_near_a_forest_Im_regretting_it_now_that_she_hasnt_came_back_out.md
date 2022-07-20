@@ -30,8 +30,8 @@ It's 9am now, she didn't come home last night, I stayed up waiting, but eventual
 
 I'm sure you can imagine my worry, and it's leading my mind to stupid places. I stopped believing in superstitious tales years ago, yet here I am, wondering if maybe the fae took her, or if that really was Bean Nighe by the lake. It's making it feel like the house is haunted, like something is watching me but I can't see it. Is this how she felt?
 
-Im writing this to pass the time, and I've decided that if she isn't back by 10am then im going to go look for her myself, no matter how intimidating the trees are now. I'm scared of what I'll find, but if something bad did happen, then surely an animal will be responsible, not a fairy.
+Im writing this to pass the time, and I've decided that if she isn't back by 10am then im going to go look for her myself, no matter how intimidating the trees are now. I'm scared of what I'll find, but if something bad did happen, then surely an animal will be responsible, not a fairy. That's assuming that I don't wuss out and wait another few hours, hoping she'll miraculously return.
 
-Is it a little selfish that im worrying about how I'll get home? Since she was the only one who could drive? It feels a little selfish.
+Is it a little selfish that im worrying about how I'll get home? Since she was the only one who could drive? It feels a little selfish. 
 
 I'll try to update you all once I find her, but that's assuming that the signal is still working by then.
