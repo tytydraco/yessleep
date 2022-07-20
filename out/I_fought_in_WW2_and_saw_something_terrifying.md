@@ -1,0 +1,19 @@
+
+
+I’m one of the last WW2 Veterans and I saw something horrifying. I’ve had therapy. They tell me it’s not real but I know what I saw. I was in Russia and we were fighting for Moscow. Soon new and improved forces came and pushed back the nazis. We started chasing down the Germans. We realized that we were winning. The Soviet Union was going to push back Germany. All of a sudden the Germans stood there ground, We did the same. It was winter and the Nazis weren’t ready for it but they had something. “Entfessle die Geheimwaffe! “ said a Nazi Officer. We couldn’t understand them and didn’t think much of it at first. We hear something coming, something big.   
+
+        
+We couldn’t believe our eyes. It was a figure, a large figure but I couldn’t make anything out. One of the other soldiers said “ It must be some sort of trick, Stand your ground.” We all started shooting. The figure started to get overwhelmed by our bullets and fell to the floor. “Now continue firing on the Nazis” Our general commanded. But then a soldier walked towards the figure and the figure grabbed him. This is when I saw what the figure looked like. It was tall, Skinny, and slimy. It had sharp arms so it could climb mountains. “Fire!” Yelled our commander. We started to fire but the bullets bounced off the creature as it started to run towards us. I immediately booked it and left all the soldiers for dead. I heard screams and retreat signals. Other soldiers were running as the creature caught up to them and stabbed them with its sharp arms. I watched in horror as I ran behind a tree. 
+          
+“Wir werden jetzt Taje Moskau!” I overheard a Nazi commander say. “If only I could understand them.” I thought to myself. I hid behind that tree for hours maybe even days when I heard the creature return. No Nazis, the creature was by itself. It seemed mad as it stabbed a tree aggressively. I knew I had to leave as it was destroying a ton of trees I started to slowly walk away when suddenly I heard silence. “Had it left?” I thought to myself. I turned around to see it sneaking up on me. 
+
+
+I ran faster than I ever ran with it right behind me. I knew these woods it didn’t. I ran into Moscow and saw a Nazi flag be brought down. I didn’t have time to process it I continued to run. I ran and jumped in a river and started swimming as fast as possible but it could swim faster. I barely made it out of that freezing cold river. But The mister started struggling the longer it was in the water. It couldn’t stay in water forever. I lost it now knowing this info. I headed back to Moscow very carefully. I knocked out a soldier and stole his clothes. I found out he was very high up in military and I was able to access top secret files that they kept. I opened a file and read through them very carefully and found something absolutely terrifying. 
+
+There was a photo of a room full of these creatures frozen. There were hundreds of them. They were found in Siberia. I realized that I had access to a helicopter, I had never driven one but it was worth a shot. I jumped in and figured out how to move. I started to fly, it was very messy but I figured it out. I was able to make it to a Russian camp in Siberia and gathered some troops telling them the situation. But when had a solution, Liquid Nitrogen. It could freeze this creature. fortunately, we had a lot of it. 
+
+
+We then noticed Nazis in the distance, they had pushed all the way to Siberia.
+They released another one and we throughly buckets of liquid nitrogen at it. It started to freeze up and roared as we froze its head. With the Nazis main force being gone we pushed them all the way to Berlin. 
+
+I moved to the states after that, being afraid of global warming. But just recently I heard screaming outside. I went outside and saw people running. And I saw it again. My heart popped out of my chest. Surely this isn’t real …Right?
