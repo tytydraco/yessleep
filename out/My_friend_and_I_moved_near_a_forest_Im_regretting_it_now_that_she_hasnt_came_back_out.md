@@ -1,0 +1,37 @@
+I'm from Scotland, the city of Glasgow, to be specific. It's not the best place on earth, but certainly not the worst either - my childhood was a mixed bag between good and bad. The thing about Glasgow, is that it gives you a taste of nature, without actually letting you have it. The place is filled with old factories and buildings, corner shops take up most space, and the newer buildings are just eye-sores; there are very few areas of the city that are beautiful, nature reserves and parks being two. 
+
+I could go on and on about how the city lacks, and how it thrives, but that isn't why I'm making this post. I should give a little more context though, shouldn't I?
+
+I'm from the city, but my paternal grandparents are not. My grandfather is Irish and my grandmother is from the highlands. I think this is where my appreciation for nature came from.
+
+My grandfather was born on a small island called the Inis Bó Finne, you can search it up if you want, but you won't find anything of interest. It was mostly known for it's fishing and farming, and had a population of about 100 when my grandfather was born, but nowadays most people have moved to the mainlands. The only buildings remaining are from fisherman and those who care enough to take care of their old family homes. To give you an exact demographic, only 11 people lived there in 2011 - and I guarantee that atleast 2 of them probably had my last name. We would visit there for his nostalgia reasons, and one of my cousins even had a wedding there. It's a very beautiful place, and is dominated by fields and hills.
+
+I don't really know where my grandmother came from, but her first language was Gàidhlig. Her family were spread across the country, many lived in the city themselves, but a few took up camp in Skye, and some in Oban. It was rare we went to see them, my grandmother wasn't as close to her family as my grandfather was to his, but I can remember her trips much more distinctly. We would drive rather than take a ferry, which meant we'd see all of the forests as we went past. This would be relaxing, except she would tell us wild stories about the fae, kelpies, selkies, and banshees. It put the fear of life into me at the time, and I was always cautious about going out alone, or stepping in fairy rings, but nothing ever happened, so I reckoned that maybe it was all just fiction.
+
+Recently a great aunt of mine died, from my grandmothers side, I didn't really grieve her, but she had no children and gave my grandmother her house. I was in a bit of a rough spot with my mental health (and still am, I guess) so I practically begged to be allowed to stay there, just for a few months, until eventually she agreed, with much hesitation.
+
+I decided to bring my friend, Georgie, she was having a bad time with being fired from her job, and we had always been inseparable, so I thought it only fair that I offered to bring her with me. Not to add on that she can drive and I can't, which is extremely useful in this situation.
+
+So about a month ago we left for the hills. I warned her of all the bugs, lack of signal, and lack of heat that we were walking into, but for the most part the drive was uneventful. We joked around, listened to music, but mostly we were in silence. It was only after we were driving past a lake that I noticed something off, in the distance there was a woman by the edge of the water, washing clothes. I couldn't really see her much, just the silhouette, but there was no better time for me to freak Georgie out. The story of Bean Nighe, the Scottish Banshee who washes clothes by the river as an omen of death.
+
+I had heard different stories growing up, but I told her of the old woman who would wash the clothes of the person fated to die, and it really freaked Georgie out. I wasn't too concerned myself, I assumed there must've just been a village around somewhere and this woman was especially old fashioned. It did put an edge on the rest of the drive, the forests suddenly seemed much darker. I tried to lighten the mood, but Georgie wasn't having it, she was so tense.
+
+Eventually we get to the house, it's a little run down, but not half as bad as I had expected. As of today I've sorted out the fireplace issue we were having, and we're kind of adjusting. Key word being kind of. It's located just a bit off of a small town, but I couldn't tell you the name of it, I've seen it of course, but I'm as good at writing Gàidhlig as fish are at walking. The locals haven't spoken to us much, only when we go over to buy produce.
+
+Georgie has been strange, she was fine for a while, a little worse for wear, but she had always been a city girl, so it made sense. We spent the first few days getting used to our new space and neighbours, until I suggested we go explore the forest a bit. There was nothing better to do, and it really was a pretty place, so off we went. It was sort of magical, going through all of those ancient trees, but Georgie didn't seem half as impressed. I only got a real reaction out of her after I teased her about stepping into a fairy ring, which led to her getting annoyed and storming back to the house - I think she was just frightened actually.
+
+You can imagine my surprise when, the next day, she went right back into the forest - and didn't come back out until evening. This has been recurring, every two days, at exactly 3pm, she'll head into the trees, and come back at about 8 pm. She won't sleep in between these visits, yet comes back looking as energetic as a four-year-old.
+
+Originally I had thought she was struggling to sleep in the new environment, and taking naps in the forest helped - but then she started muttering things. There was no sense to what she was saying, it was just random, sometimes she was talking to her sister, and sometimes she was reciting books she had read. It was all incredibly strange, and quite creepy. 
+
+I debated following her many times, but kept chickening out at the last second.
+
+It's 9am now, she didn't come home last night, I stayed up waiting, but eventually passed out. It was the knocks on the window that woke me up, I think I might have imagined them though because no one was there when I checked. I've been looking at the forest for a little over 40 minutes now, hoping she'll come out.
+
+I'm sure you can imagine my worry, and it's leading my mind to stupid places. I stopped believing in superstitious tales years ago, yet here I am, wondering if maybe the fae took her, or if that really was Bean Nighe by the lake. It's making it feel like the house is haunted, like something is watching me but I can't see it. Is this how she felt?
+
+Im writing this to pass the time, and I've decided that if she isn't back by 10am then im going to go look for her myself, no matter how intimidating the trees are now. I'm scared of what I'll find, but if something bad did happen, then surely an animal will be responsible, not a fairy.
+
+Is it a little selfish that im worrying about how I'll get home? Since she was the only one who could drive? It feels a little selfish.
+
+I'll try to update you all once I find her, but that's assuming that the signal is still working by then.

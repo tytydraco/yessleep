@@ -35,3 +35,28 @@ Jake has been heavily monitoring my texts and notifications these days, so I can
 But it's more than that. I swear he's poisoning me. I swear the thing brewing in my stomach is not my baby. A mother knows, and I know it. 
 
 I'm going to go back to sleep. I'll edit this post when I wake up again. I hope someone can give me some advice. Any recommendations help.
+
+
+Edit 1: Hi. I just woke up about 20 minutes ago. It's been ten hours now, and I'm so grateful for all of the comments and suggestions. For everyone saying that this is abuse — I know it is. I want to seek help, but I'm too tired to do anything. I can't get out of bed. I can move, but everything's stiff and overall, I feel extremely weak. I want to escape, to run away, but I simply can't get out of bed. 
+
+Calling a hotline is pointless. He wants to listen to all of my conversations. Going on an abuse website is pointless. He has access to all of my accounts. Jake lets me use Reddit because he thinks it's a funny app. I always log out beforehand though so he doesn't see anything on my screen.
+
+Additionally, my parents are out of the question. My mom passed just over a year ago, and my dad wants nothing to do with my grandchild. I think he's too lost in mourning to want anything to do with myself or my baby.
+
+Now that I tackled the comments, here is an update. I first woke up, about 3 hours ago, screaming. Honestly, there wasn't anything unusual about that except for the short amount of time I had slept.
+
+Jake was the first one to discover why I woke up so early. The moment he heard the scream, he came rushing in. He told me that because I'd only slept 7 hours instead of my usual 15-17, he wasn't prepared with my water. He ran to the bedside to help me, to calm me down, to help me relax. I guess that was when he noticed the stickiness of my shirt.
+
+As for me, I was too busy screaming to notice. The pain felt unbearable, and I didn't know what was going on. According to him, there were three thin gashes on my stomach, and he tried to treat it as I fought him, crying hysterically. In all honesty, what happened in this time felt like a blur, so I'm simply retelling what Jake told me. He said other things as well, but I can say with confidence that it didn't happen. My head is blurry, but it isn't that blurry.
+
+As we speak, I'm lying in bed, in more pain than I've ever experienced throughout my entire life. I keep hearing these voices, repeating in my head that this baby was a mistake and that I need to get rid of it. The voices keep telling me that the thing in my stomach is a monster, that my husband is forcing me to lie here in my own misery.
+
+The baby tried to kill me tonight. I know it. That has to be what happened. Those cuts? Those are the claws I felt before. It wants me dead. A mother knows her child. This is not mine.
+
+I'm going to relax for a bit and reply to some comments. I probably won't fall asleep for a few hours, so I'll try my best to remain active. I'll update if I find anything else out.
+
+Edit 2: There was a knife under my pillow. Did Jake plant that there? I'M FREAKING OUT!! THERE WAS NEVER A KNIFE UNDER MY PILLOW BEFORE!! Jake is calling me a MAD WOMAN, that I tried to kill my own child! He is saying that he knew I was insane the moment I started talking about a "demon baby" but that he didn't think I could do this. He is pinning this on me.
+
+I didn't DO ANYTHING! I have been asleep — sleep that I am CERTAIN HE CAUSED!! — and in constant pain. Jake is going insane. I need to get away but I don't know how. I'm so tired. I feel like I'm going to pass out any minute. I am not crazy. I know what he did to me. I know this thing inside of me isn't my baby. I know it.
+
+I am never wrong.
