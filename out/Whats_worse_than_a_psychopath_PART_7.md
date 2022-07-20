@@ -300,4 +300,4 @@ We didn’t manage to find the solution for the next three hours we talked and a
 
 &#x200B;
 
-{ [PART 8](https://www.reddit.com/r/nosleep/comments/vui02y/hats_worse_than_a_psychopath_part_8/) }
+{ [PART 8](https://www.reddit.com/r/nosleep/comments/vui02y/hats_worse_than_a_psychopath_part_8/) }{ [PART 9](https://www.reddit.com/r/nosleep/comments/w1hb64/whats_worse_than_a_psychopath_part_9/) }{ [FINAL PART](https://www.reddit.com/r/nosleep/comments/w33qiy/whats_worse_than_a_psychopath_final_part/) }
