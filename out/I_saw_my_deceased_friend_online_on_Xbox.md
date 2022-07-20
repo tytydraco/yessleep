@@ -1,6 +1,6 @@
 I saw my dead friend online on XBOX.
 
-Where do I even start? I am scared, and for all I know, I am screwed. Typing this is my only way of coping with this situation. I can’t even leave the house until the police arrive, especially when he is outside. The police are taking forever, and eventually, that front door won’t hold it anymore. 
+Where do I even start? I am scared, and for all I know, I am screwed. Typing this is my only way of coping with this situation. I can’t even leave the house until the police arrive, especially when HE is outside. The police are taking forever, and eventually, that front door won’t hold it anymore. 
 
 I should’ve never messaged my friend (Alex) back, especially since he is very much dead. “Alex” messaging me should’ve been the first red flag. Anything related to Alex still hurts to talk about. Part of me believes that his death was definitely not a suicide. We were close, and I knew him to be an enthusiastic, funny person. People say that being funny can be a mask for depression but I knew this wasn’t the case. We made all sorts of promises that we’d have eachothers back. 
 
