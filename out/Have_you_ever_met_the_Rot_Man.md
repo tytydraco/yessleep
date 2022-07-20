@@ -58,7 +58,7 @@ He paused, to reach back into his mouth, and pulled, ever so lightly. He placed 
 
 It hurt, seeing him like this. It was like someone else had taken Aaron's body for a test drive and totaled it.
 
-I planed on leaving that night when he went to bed, but he never did. Instead, he paced back and forth, back and forth, barefoot, leaving greasy footprints on the wooden floor while making a faint squelching sound as he walked. I watched him warily as I sat up with a book in my lap. There was no way I was planning to close my eyes or turn my back on him.
+I planned on leaving that night when he went to bed, but he never did. Instead, he paced back and forth, back and forth, barefoot, leaving greasy footprints on the wooden floor while making a faint squelching sound as he walked. I watched him warily as I sat up with a book in my lap. There was no way I was planning to close my eyes or turn my back on him.
 
 Finally, in the early morning hours, he turned to me, that putrid smile on his face visible in the bright moonlight. He began moving erratically, tensing up and making strange repetitive motions. The last remaining semblance of what had been my loving fiancé, his skin, began to melt away like tissue paper in the rain.
 

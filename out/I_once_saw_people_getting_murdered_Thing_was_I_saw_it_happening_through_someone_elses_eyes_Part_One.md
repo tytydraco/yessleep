@@ -149,3 +149,5 @@ I snapped and looked to her. “Uh... Yeah... um... fuck, I don’t know...” M
 “Honey, what were they talking about with you being at the schoolhouse today?” I sighed and told her the truth; that I was trying to look for him after I’d seen on the news that he was missing. Obviously, I didn’t mention the whole “I saw him get stabbed to death while in the bathtub” part. Not only did I know she wouldn’t believe that, but I still wasn’t sure I did, either; despite being all but directly told that it was true.
 
 She just hugged me close, "I'm sorry, honey. It's gonna be okay." I just stood there, stiff in my mother's arms for what felt like hours. I don't really know whether it was because of the shock that I'd just been told that my crush was found murdered, the fact that I'd *seen* it happening (but didn't, or *couldn't* do anything about it), or the fact that, deep down, a part of me knew that it wasn't long before I'd hear the same thing happening with Sarah and Francine, but my head went completely blank.
+
+[Next](https://www.reddit.com/r/nosleep/comments/w39kjc/i_once_saw_people_getting_murdered_thing_was_i/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
