@@ -2,7 +2,7 @@ Note: If you are under the age of 20 and experience any of these symptoms while 
 
 At this point, side effects ONLY occur if you watch this show, but I can’t be sure.
 
-Symptoms include: A pulsing headache, visual disturbances, a nosebleed, nausea and vomiting, you are suddenly hot to the touch/leaving scorch marks where you have been standing/sitting.
+Symptoms include: A pulsing headache, visual disturbances, a nosebleed, nausea and vomiting, and you are suddenly hot to the touch/leaving scorch marks where you have been standing/sitting.
 
 -
 
