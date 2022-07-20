@@ -2,11 +2,11 @@ This may sound strange but hear my out please, i’ve been at this airport for l
 
 &#x200B;
 
- I had to get on a plane to New Jersey for a new job interview, im moving there soon and i need a job asap, im in Minnesota at MSP. I was supposed to be boarding at 6:50am and i got there at around about 4:00am. I was so tired so i decided to get a coffee and as soon as i sat down i fell asleep after messaging my family that i arrived safely since im flying alone.
+I had to get on a plane to New Jersey for a new job interview, im moving there soon and i need a job asap, im in Minnesota at MSP. I was supposed to be boarding at 6:50am and i got there at around about 4:00am. I was so tired so i decided to get a coffee and as soon as i sat down i fell asleep after messaging my family that i arrived safely since im flying alone.
 
 &#x200B;
 
-I woke up to the barista coming over to ask if i was okay and I checked the time, 8:41am. I was so stressed i immediately jumped up and ran to the nearest desk, on the way there i noticed all the tvs with the boarding times had random destinations that i didn’t see earlier but that was the least of my concern; My job interview was at 2:45 and i needed to book a flight ASAP. I got to the desk sprinting past everyone and finally when i got to the desk i took a breath. 
+I woke up to the barista coming over to ask if i was okay and I checked the time, 8:41am. I was so stressed i immediately jumped up and ran to the nearest desk, on the way there i noticed all the tvs with the boarding times had random destinations that i didn’t see earlier but that was the least of my concern; My job interview was at 2:45 and i needed to book a flight ASAP. I got to the desk sprinting past everyone and finally when i got to the desk i took a breath.
 
 “Unfortunately the next flight to EWR is at 6:15pm“
 
@@ -30,7 +30,7 @@ i didn’t know what to say, i thought to myself if this is some sort of sick jo
 
 ”what the heck is wrong with you people?”
 
-I walked away and went to the nearest bathroom to get a drink out of the taps, i had enough off this bullshit, the water tasted sour, almost bitter. I looked in the mirror and thought something looked off about me, like when your face just looks odd for no reason. I had enough of the weird occurrences  and went to find the nearest boarding gate which was New York, people were sat waiting patiently so i found a spot and waited.
+I walked away and went to the nearest bathroom to get a drink out of the taps, i had enough of this bullshit, the water tasted sour, almost bitter. I looked in the mirror and thought something looked off about me, like when your face just looks odd for no reason. I had enough of the weird occurrences  and went to find the nearest boarding gate which was New York, people were sat waiting patiently so i found a spot and waited.
 
 &#x200B;
 
@@ -52,7 +52,7 @@ I got so freaked out i just turned away and waited.
 
 more time passed, by now i wasn’t even checking the time anymore, could’ve been up to 4 hours that i was sat down waiting for someone to move, then the speaker announced:
 
-”to our fellow passengers on the flight to New Mexico, we will be boarding now” 
+”to our fellow passengers on the flight to New Mexico, we will be boarding now”
 
 I waited for someone to move, i turned to the same girl and asked if shes not getting up to board.
 

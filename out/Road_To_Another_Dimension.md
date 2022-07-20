@@ -1,4 +1,4 @@
- Some of you may be wondering, given the title, if I actually did travel to another dimension.
+Some of you may be wondering, given the title, if I actually did travel to another dimension.
 
 Let me give you the story of my experience. My brother, along with my friends, are now gone, killed by those...things, as I can only describe them. I just wish, I hadn't gone down that road, then everything would've been normal. I just wish, it was all just a nightmare. But it was all real. Very fucking real.
 
@@ -46,7 +46,7 @@ While waiting, the driver pulled up in front of me and asked if I was okay. I di
 
 A police car arrived.
 
-He began to ask questions. The guy who spotted me, chimed in. "I think this guy drank too much. He said he saw blue things come out of a building with weird symbols, and rip his family and friends apart and start eating them." Of course, that was part of the explanation. The cop found it funny, but had to take it seriously. I was being serious, and told him everything that happened. I even showed him that sign with the forested area, and told him there was a road there last night, and we went into it. Both the driver and policeman saw the sign, but they both thought I was going nuts.
+The cop came out and began to ask questions. The guy who spotted me, chimed in. "I think this guy drank too much. He said he saw blue things come out of a building with weird symbols, and rip his family and friends apart and start eating them." Of course, that was part of the explanation. The cop found it funny, but had to take it seriously. I was being serious, and told him everything that happened. I even showed him that sign with the forested area, and told him there was a road there last night, and we went into it. Both the driver and policeman saw the sign, but they both thought I was going nuts.
 
 I was arrested under suspicion of drunk driving and negligent homicide, and perhaps, even murder. After arriving to the police station, I was being interrogated of the incident, so I told them everything that had happened. Of course, the cops didn't want to believe me. But there was one policeman, the chief himself, who was surprised at my story. Of course, my suspicions were confirmed when he then asked me this one question.
 
@@ -54,7 +54,7 @@ I was arrested under suspicion of drunk driving and negligent homicide, and perh
 
 I then recalled what I saw that night. "Yes. I did see a full moon, along with an ocean. We went on top of a hill that appeared long and curving." I said. "I see." The chief said. "He might as well be innocent." the chief then told the others. "Wait, what?" asked the cop that arrested me. "How the hell is this guy innocent? There's blood on his car." I thought it was going to be the end of me at that moment. I'll be in jail for a murder I did not commit. "Since you don't believe me, I suggest we have this young man take a lie detector test, as well as few psychological tests, and get a measurement of breath from him if he's drunk. From what I'm seeing, he doesn't look drunk." the chief then explained.
 
-"What's that?" one of the cops noticed, looking at me. He walked up to me and saw something on my face. He rubbed it off, and saw that it was that black, tar-like substance. Not to mention the tear on my shirt that was clearly visible. The cop then instructed me to give me the shirt, as they hand me a new one, while taking the black substance for testing.
+"What's that?" one of the cops noticed, looking at me. He walked up to me and saw something on my face. He rubbed it off, and saw that it was that black, tar-like substance. Not to mention the tear on my shirt that was clearly visible. The cop then instructed me to give them the shirt, while they hand me a new one. They also took the black substance for testing.
 
 A few hours have passed.
 
