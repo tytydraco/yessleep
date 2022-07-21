@@ -1,3 +1,5 @@
+[Part II.](https://www.reddit.com/r/nosleep/comments/w4rjku/three_people_died_in_the_woods_last_summer_and_im/)
+
 I have told no one about this incident, the only people who know where the ones that were there that day. I am sharing here because I honestly don’t know what else to do, as I don’t feel comfortable sharing with police or my family.
 
 It started in the summer; my cousins and I usually travel every July to my aunt’s house. We called her the cool aunt, because she was closer to our ages, and had a big house that we would all pile in for a few weeks, usually we just hung around, watched TV, and acted stupid around the house.
@@ -26,7 +28,7 @@ My cousins climbed into their seats through the back of the two door Bronco as t
 
 “This car doesn’t have an AUX, and there is only a radio” I responded. “Tough luck, and stop complaining.”
 
-It felt like we had been driving for hours. The sun was setting and the road getting more narrow, windy, and remote. We really were in the middle of nowhere. I had looked up the place my phone before we left, but the location wasn't really registering on Google. It looked like it was in the middle of endless acres of private property, not other addresses or roads around, except the one cabin at the end of the road we were on. 
+It felt like we had been driving for hours. The sun was setting and the road getting more narrow, windy, and remote. We really were in the middle of nowhere. I had looked up the place my phone before we left, but the location wasn't really registering on Google. It looked like it was in the middle of endless acres of private property, not other addresses or roads around, except the one cabin at the end of the road we were on.
 
 The driving continued, and soon I was having trouble keeping up with my aunt, and my stomach dropped as I realized I wasn’t even catching the occasional glimpse of the truck’s rear around any of the corners anymore. I was hoping no one else had noticed.
 
@@ -52,7 +54,7 @@ Thank god, I thought. I ripped the phone out of Sloane’s hands and waited for 
 
 “Aunt Shel?” I yelled “are we lost? I thought we couldn’t get lost out here?” I jokingly shouted to her, feeling good that it wasn’t my fault if we were. No response. I could see the exhaust from the tailpipe coming out, the engine was still on, but the windows rolled up, tinted so we couldn’t see what was inside. Suddenly, the car started moving. Slowly forward, almost more like rolling then driving. It was slowly heading down a slope towards a ditch on the side of the road. Sloane looked at me conveying with her face wtf is going on. I could only look back at her with my best expression to relay I have no idea. The truck inched ahead, like in slow motion and ‘crashed’ gently into the ditch.
 
-We were all staring, in total confusion. 
+We were all staring, in total confusion.
 
 “Stay inside the car” I said to Trinity and Sloane.
 
@@ -72,7 +74,7 @@ We were all staring, in total confusion.
 
 With the cab light on we looked into the truck – completely empty, engine still running, and a thick pool of blood saturated the passenger seat. Trinity had blood smeared all over her hands, part of her face, and her cloths as she had crawled right into it. She noticed it now in the light and started screaming.
 
-“Be quiet” Sloane yelled. We were in disbelief. 
+“Be quiet” Sloane yelled. We were in disbelief.
 
 "Shelbey!!" Trinity screamed. We searched around the car. Nothing. I looked at the driver's side of the door - it was clean, and the door was also locked. No blood anywhere except the passenger seat. Something was not right, and I had the sudden urge to run. I grabbed both the girls’ arms and ran for the Bronco.
 
@@ -136,9 +138,9 @@ I thought to myself how this didn’t make any sense. We were less than a minute
 
 “There is something out there,” she mouthed, “listen.”
 
-We were quiet. No sound. It was so quiet we couldn’t even hear the normal chatter of crickets and frogs. 
+We were quiet. No sound. It was so quiet we couldn’t even hear the normal chatter of crickets and frogs.
 
-"There is nothing out there, you are all seeing things, and hearing things, and I get that you are scared, but..." 
+"There is nothing out there, you are all seeing things, and hearing things, and I get that you are scared, but..."
 
 I stopped talking. I heard it. A rustling coming from behind the car. We stood still. It was fast, and sounded small, with little footsteps – like how a bird scurries in the underbrush. And then a louder crash like a branch breaking from a tree. This was not something small. We instinctively all jumped into the backseat and crouched down below the windows. We didn’t say a word but the noises continued, getting louder.
 
@@ -152,22 +154,22 @@ We screamed, a long arm reached in towards us but it was too tight for it to get
 
 “Wait, look!” Trinity was pointing. About 100 meters in front of us, off the road, was the dark, vacant, shape of a cabin. We ran towards it. As we approached a noise startled us – it was a sound so hallow, broken, and frightening, to this day I can’t really even fully describe the terror it evoked in me. It was a howl, coming from the trapped animal/creature/thing, in the car. The howl sounded as viscous as a lion’s roar, and as lonely as a wolf’s. It wasn’t just a cry, but we realized immediately that it was a call. In the distance, shortly after the creature howled, we heard the return of the howl, from what sounded like at least a dozen calls in response.
 
-We ran to the cabin. There was a porch that wrapped around the house, and we climbed the stairs to get to the front door.  
+We ran to the cabin. There was a porch that wrapped around the house, and we climbed the stairs to get to the front door.
 
 “The door is locked!” Trinity yelled.
 
-“Try the window!” I responded. 
+“Try the window!” I responded.
 
-“There are no windows…” Sloane yelled to us both. We started scrambling. It was still pitch black but as we ran around the house a dim, old, motion sensor light turned on and we could see a little better. We were looking for an entry but there was nothing. 
+“There are no windows…” Sloane yelled to us both. We started scrambling. It was still pitch black but as we ran around the house a dim, old, motion sensor light turned on and we could see a little better. We were looking for an entry but there was nothing.
 
-“Here!” I yelled, “I found a back door!” The back door was locked but it was more like a screen door – not heavy like the front door, but clear plastic and the frame kind of already was dented enough to pry open. I looked around, I needed something flat to wedge in-between the frame and the door. There was another set of steps leading down from the porch, I ran down, frantically searching for something. 
+“Here!” I yelled, “I found a back door!” The back door was locked but it was more like a screen door – not heavy like the front door, but clear plastic and the frame kind of already was dented enough to pry open. I looked around, I needed something flat to wedge in-between the frame and the door. There was another set of steps leading down from the porch, I ran down, frantically searching for something.
 
-“We need to get in!” Trinity yelled. 
+“We need to get in!” Trinity yelled.
 
-“I know give me one second!” searching, I saw it. There was a pick axe I picked it up and swung it over my head, and started running up the stairs. I aimed for the part of the door that was bent, to try and wedge it open when suddenly, before I could even try to pry it the door swung open. 
+“I know give me one second!” searching, I saw it. There was a pick axe I picked it up and swung it over my head, and started running up the stairs. I aimed for the part of the door that was bent, to try and wedge it open when suddenly, before I could even try to pry it the door swung open.
 
-"What is going on?!" It was a woman, old, in a long blue night gown. She looked at me, then my cousins, and then back at me. 
+"What is going on?!" It was a woman, old, in a long blue night gown. She looked at me, then my cousins, and then back at me.
 
-"Get inside!" she yelled. 
+"Get inside!" she yelled.
 
 Without thinking, we all ran for the door towards the woman. I dropped my axe on the ground and rushed inside after my cousins (bad decision number 5).
