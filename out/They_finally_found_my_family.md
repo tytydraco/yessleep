@@ -426,7 +426,7 @@ But the answers I found were so insidiousness I only wish now I’d ran from the
 
 “No.” I pictured my parents floating in the cistern and bit my tongue to keep from crying.
 
-“I understand,” I said. “You finally found my family.”
+“I understand,” I said. [“You finally found my family.”](https://www.reddit.com/r/thespookyplace/)
 
 &#x200B;
 
