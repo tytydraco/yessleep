@@ -94,7 +94,7 @@ I slowly rose to my feet.
 
 I shook my head and went into the hallway. I heard her shout my name in protest, but I was already committed. I needed to at least look through the peephole. I needed to know if maybe it was just a normal person, a delivery man, or solicitor. I needed it to be a normal person, or else I thought I would have lost a little bit of my mind, if I hadn’t already.
 
-The hallway was dark despite the bright day. The windows around it were opaque, so the small amount of light that found its way in was harshly diffused. I stood before it for a moment, afraid to go further. The knock came again and I jumped from the sound. I almost lost my nerve, but I clenched my teeth and approached the door.
+The hallway was dark despite the bright day. The windows around the door were opaque, so the small amount of light that found its way in was harshly diffused. I stood before it for a moment, afraid to go further. The knock came again and I jumped from the sound. I almost lost my nerve, but I clenched my teeth and approached the door.
 
 I felt like I was in a state of fugue. Everything seemed animated and preternatural. The peephole watched me like the glistening eye of a predator. My mother’s voice came to me from another dimension. It called my name like a question. My grandmother giggled somewhere far away. In a trance, I touched my forehead to the wood, placing my eye around the eye of the door, meeting my predator head on and looking into its soul.
 

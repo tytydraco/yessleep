@@ -173,3 +173,5 @@ I called my sister, on my cell, when I got to my room to ask how things were goi
 "Yeah, sorry" I lied, scratching a weird rash on my hand
 
 Am I going crazy Reddit? I've been sitting here typing this with Periwinkle for the past few hours. How am I going to last another week if this is day 2? Please any advice or experience with these things is helpful.
+
+[the next day](https://www.reddit.com/r/nosleep/comments/w44jqr/i_agreed_to_housesit_for_my_parents_in_my/?utm_medium=android_app&utm_source=share)
