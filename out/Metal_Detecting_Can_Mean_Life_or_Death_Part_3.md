@@ -86,6 +86,10 @@ My mind was so focused on the county workers as being the ones who concocted thi
 
 I think about dialing 911 again but then I realize that they will never find me in time and all i'll do is say "my wife Katie did this to me along with her mother" - then what will happen to my kids - Foster care?
 
-My mother has struggled with emphysema for years and is probably laying down on the couch as the kids run a muck of the house.
+My mother has struggled with emphysema for years and is probably laying down on the couch as the kids run a muck of the house, which makes me shake my head in despair knowing that she couldn’t be a guardian for my kids.
 
-My consciousness starts to fade as I think why Katie did this to me.
+I should be focusing on how to get out of these woods, but instead I think why Katie did this to me?
+
+My next best move has to be to get water and get medical attention for my arm.
+
+I’ve become close to my dog’s veterinarian, that I have paid thousands of dollars to pay for everything from diabetes to a broken paw, so I’m sure if I paid him enough money he would stitch me up and give me antibiotics.  Most of all - using the vet would keep the cops out of this.

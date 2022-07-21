@@ -8,7 +8,7 @@ The smell of charred flesh is always the first one. Not just any charred flesh. 
 
 I left no survivors. The next day, my parents had me shipped away to a new home. They said my new family would help me manage my symptoms, but I think they were just scared. Everyone is. Nothing new.
 
-My new family didn’t pay much attention to me. They were cold and distant. Their skin was sagged with age, hair as white as bone and eyes pitiless black. They only wanted me so that people would stop asking why they hadn’t had children, or some other messed up shit like that. I kept out of there way.
+My new family didn’t pay much attention to me. They were cold and distant. Their skin was sagged with age, hair as white as bone and eyes pitiless black. They only wanted me so that people would stop asking why they hadn’t had children, or some other messed up shit like that. I kept out of their way.
 
 I’d seen the truth of what I could do, and even at the tender age of nine, I understood that I had to control it. First, I learned to block out the voices. They were always there, tearing me down and inflicting vicious wounds on my psyche. But, somehow, I guess I managed it.
 
