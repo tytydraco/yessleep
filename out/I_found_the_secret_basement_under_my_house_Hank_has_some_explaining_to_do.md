@@ -1,0 +1,41 @@
+I moved into this house five years ago, and today I found out it had a secret basement. I'd finally got round to doing the renovations. Saving up for mortgage deposit damn near emptied my bank. Rebalancing the books took a few years and a promotion from *Junior* to *Senior* Data Scientist with a Silicon Valley I worked for remotely. Once I had, the next step was finally fixing the place up. Took me a while - materials and labor cost a fair bit, after all. That's also why I decided to try and do as much as I could myself even though I know fuck all about DIY.
+
+Mom and Dad helped me find the house and chipped in a bit on the down payment. Maybe if I'd told them about my renovation plans instead of trying to make it a surprise they'd have stopped me. A family friend, Hank, hooked me up. Wasn't a realtor but knew people about town, managed to convince the seller to hold off before it hit the market and got snapped up by some rich cubicle monkey from the city looking for a summer home. I didn't meet the previous owner. Didn't think to ask. I thought I'd struck gold when I took the keys, but now I'm starting to connect the dots. I never saw who used to own the place, Mom and Dad handled all the paperwork, and I'm guessing it was Hank.
+
+I did one afternoon of DIY, and now I'd happily let the bank keep the house and mortgage as long as they let me leave town. This is the first house I've owned, the second I've ever called home, and I don't feel safe in either. I've lived in Marathon all my life and decided long ago I'd never move away. All that’s changed. After today I'd take living literally anywhere else, even Pyongyang or Kabul.
+
+I found the door to the secret basement by total accident. Carrying my Dad's sledgehammer up the stairs, I slipped and dropped the damn thing. It thudded back down the staircase and embedded itself in the wall at the bottom. The hole left when I pulled it out exposed the wall cavity within.
+
+I couldn't ignore the handrail, or the fact the "wall cavity" was wide enough to walk down. That's of course what I did, and I found the door to the basement at the end of the secret corridor.
+
+My honest first thoughts? Annoyed, but quietly hopeful this meant the house had more space than on the plans. If I knocked out his wall the living room would be much bigger, adding thousands to the property value. If it had an entire basement then…well, that could potentially be a whole extra floor. I hadn't been planning to flip the house, I wanted to live in it, but the chance to add an additional floor would add so much to the listed value I might not be able to resist.
+
+The door wasn't ominous, you understand. It looked like the rest of the doors in the house, albeit dusty and behind on several paint jobs. When I picked up on this fact I also realized the back wall of the "wall cavity" was the same blue-and-white striped wallpaper I'd found hidden underneath the stucco panels I'd removed from the living room. This meant the new wall had been installed long after the house was built.
+
+"The plot thickens…" I muttered to myself, wrapping my fingers around the door to the basement.
+
+I was only down there for five minutes. That was more than enough for my thoughts about flipping the place for a profit changed to fantasies about burning it down. On my descent down the basement steps I walked, but coming back up them I was sprinting and screaming. 
+
+The smell hit as soon as I opened the door. Dank, musty, a hint of sweetness to it that suggested mold or rot. It didn't perturb me. I just figured nobody had been down there in years, maybe a raccoon got in and died. Wrong on both counts, by the way.
+
+The last not-terrified emotion I had today was the mild relief when my prying fingers found a switch on the cold wall in the dark. As soon as the basement was flooded with light from the grimy bulb I yelled. Not in fear at first, just in surprise. I'd not expected the room to be furnished. I don't know what I'd expected in the 200 square ft secret floor of my home, but it wasn't a rickety table with a small electric grill and chipped dinner plate. It wasn't a cooler in one corner with a dark liquid overflowing in a trickle down one side. It definitely wasn't a small TV displaying a static-laced CRT rendition of the local news.
+
+When I saw the beat-up TV, my gaze drifted to the wall behind it. I made another noise then, a kind of half-yelp, half-moan. This time it *was* out of fear, but not the full-on heart palpitation causing horror I'd feel by the time I'd reached the top of the stairs again. There were several hatches on the basement ceiling, complete with ladders that presumably lead to other "wall cavities" around my home. That's how whoever lived down here got around the house. I never went back in to see if I could find any of the holes they'd used to take the pictures.
+
+There were dozens of them pinned all over the walls. Polaroids, all of them half-blurred and bordered by the black of the wall or ceiling around the holes, each a peep-shot through one of the many voyeur ports hidden in my house. Every picture was of me. Sleeping, eating, showering, shitting, even fucking during mine and Alison's brief fling three years or so back.
+
+I started yelling when I noticed just how far back in my timeline these pictures went. The ones on the wall behind the bed were from when I moved in five years ago. Then I turned around to look at the ones directly behind me, and saw straight away that even though they were through peepholes, they *weren't* taken in my house. They were taken in my parent's house, the one I grew up in. The most recent photo I saw was of me moving DIY tools I had no idea how to use into the living room. The oldest was of me when I was about five.
+
+When I saw that one, of me sitting by the Xmas tree opening the Nintendo 64, a photo I'd seen so many times but from the angle of Mom's camera on the couch, I started screaming for real. My high-pitched shrieks coincided with the moment the bed started squeaking.
+
+I hadn't paid the bed much attention after turning on the light. The Polaroid wall-to-wall-to-wall-to-wall collage of my entire life took up pretty much all my focus. I did notice the bed when the mattress creaked though. Something was moving underneath the grey, stained, moth-eaten blankets. My screams doubled in volume when the thing in the writhing folds sat up. By the time it turned toward me and spoke, I could feel the warmth of piss rivering down my inner left thigh.
+
+"What are you doing in my room, little brother?"
+
+I've never run so fast in my life. I didn't catch too good of a look at it. My flight-or-flight response kicked in pretty much the moment I heard the first raspy, crackling syllable. The hunched, rakish figure I managed to glimpse before hurtling myself back up the stairs was waxy, yellowish, and all bones with little muscle. What hair it did have on that lumpy scalp was thin, patchy, the kind of hair usually seen in those undergoing early chemotherapy or nuclear fallout exposure. The smell got worse when it spoke, wafting out its rotting throat from between chipped, blackened teeth. The eyes? From my short look into them, I remember small, shriveled things, puckered reddish orbs harboring wall-angled pinpoint pupils. 
+
+None of that is why I physically can’t bring myself to think too much about the thing living in its own filth under my house all these years, though. It's not even the photos, although speculating about those too long does start an onset of panic attack spiraling. The reason I got in my car this morning and haven't stopped driving until I pulled over 13 hours later to write this, is that something in that yellow, waxen, pustular face was harrowingly familiar.
+
+I tried calling Mom, Dad, and Hank dozens of times on the road. None of the three picked up, but that was my fault. I shouldn't have left those ranting half-crazed voicemails after the first calls weren't answered. They're probably making arrangements right now, covering all this up again. I've got so many questions. Problem is, if I want to get answers I'll have to head back into town. Back to where that man, no, that *thing* that was living in my basement is.
+
+I don't know if I can bring myself to go back there, but I have to know - why did it call me little brother?
