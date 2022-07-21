@@ -62,4 +62,4 @@ No matter how hard I tried, they wouldn’t listen. I woke up my brother and exp
 
 I might update later, I’m not sure. Goodbye for now. 
 
-Sorry if grammar or anything else is bad, my phone is laggy. I’m not sure why..
+Sorry if grammar or anything else is bad, my phone is laggy. I’m not sure why..[Update here.](https://www.reddit.com/user/ConsistentZombie7157/comments/w3zisf/a_reddit_user_posted_a_survival_guide_this_is/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

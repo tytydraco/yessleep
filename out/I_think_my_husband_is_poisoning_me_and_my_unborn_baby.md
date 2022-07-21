@@ -69,6 +69,6 @@ I tried reaching out to Mia like everyone told me to (I stopped caring about wha
 
 The tiredness is getting worse. I feel so dizzy, but I haven't eaten or drank anything he gave me. I don't know what he's doing to me, but he's doing something. I will figure it out. I will prove to the world that I am not insane.
 
-I did not murder my child. I simply killed the beast inside of me. I would never harm a baby. I have morals. I loved my unborn child dearly. I truly, genuinely did. But it turned into a demon. I did what I had to do to save myself and everyone else.
+I did not murder my child. I simply killed the beast inside of me. I would never harm a baby. I have morals. I loved my unborn child dearly. I truly, genuinely did. I still do. But it turned into a demon. I did what I had to do to save myself and everyone else.
 
 After all, a mother knows best.
