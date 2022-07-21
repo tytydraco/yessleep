@@ -594,7 +594,7 @@ Then, on Friday afternoon, I was going to put a book in my locker when I saw the
 
 My hands shook as I unstuck it and began to read.
 
-*I’m sorry I hurt you. I hope one day we can be friends. But I understand if that’s not possible. You’re a nice guy and one day you’ll find someone who deserves you. Don’t try and contact me. I’ve gone away.*
+*I’m sorry I hurt you. You’re a nice guy and one day you’ll find someone who deserves you. Don’t try and contact me. I’ve gone away.*
 
 There were no kisses but there was a P.S.
 
