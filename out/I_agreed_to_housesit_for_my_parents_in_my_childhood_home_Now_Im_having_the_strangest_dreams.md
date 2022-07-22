@@ -258,3 +258,5 @@ I hung up, and called my mom on my cell.
 "You called me on the landline and it cut off, so I'm calling you here"
 
 "I called you... Right. Phil I can't really talk right now. I'll call you in the morning to see how... Things are. I love you. Good night." Beep.
+
+[The next day](https://www.reddit.com/r/nosleep/comments/w50yzp/i_agreed_to_housesit_for_my_parents_in_my/?utm_medium=android_app&utm_source=share)
