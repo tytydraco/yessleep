@@ -114,4 +114,192 @@ We were all excited of course when they came back. We mostly weren't allowed nea
 
 I remember my dad sitting us down to talk after that. Zeke was so mad and called the wolves all sorts of names. He had landed on "monsters" at some point, and my dad flushed, calling all of us to sit down.
 
-"Just because something is dangerous doesn't mean it is evil. Just because you don't think the same way as it does, doesn't make it a monster." He started "That mentality is why your mother and I do what we do. So many people see a pitt bull and see a scary monster. So many people would kill..." He tapered off and took a breath. Continuing more calmly "So many people get scared and would rather
+"Just because something is dangeroues doesn't mean it is evil. Just because you don't think the same way as it, doesn't make it a monster." He started "That mentality is why your mother and I do what we do. So many people see a Pitt bull and see a scary monster. So many people would kill..." He tapered off and took a breath. Continuing more calmly "So many people get scared and would rather do a creature harm than try to understand it, to help it. The truth is, those creatures are often just as afraid of us."
+
+He stopped and turned to Zeke. "So no Zeke, I won't go kill those wolves to make you happy, same as I wouldn't kill you to make someone else happy. They're almost strong enough, and we'll release them come spring"
+
+My dad kept good on his word and brought them back to the same area he had found them, hoping they would find their pack.
+
+As I was going about my morning routine, I thought about all those animals, and wondered why my parents had so few now comparatively. My thoughts ran back to my initial call with my dad, and I began to wonder again if they were sick or something.
+
+After I finished, I tried calling Sarah & Zeke. Neither of them answered, but they probably were at the park by now and wouldn't want to draw suspicion. Although I imagine Christine and the kids missing would have drawn enough. I was worried for them.
+
+Jerry still wasn't back, so I took the opportunity to do some research on the ol' internet. Someone had suggested I look into the history of the land.
+
+I couldn't find anything before that. No strange disappearance, no murders, no Native American burial grounds. In western Virginia (not West Virginia), I figured maybe even a Civil War battle. The closest one was 40 miles away.
+
+The prior owners were farmers who moved to Florida to retire before my parents bought the place. Nothing weird there.
+
+I googled my dad and got nothing, just some of those "there are 4 Pauls in your area" ads by background check sites.
+
+On a whim, I decided to Google Mr. Smiles - well "Randall Schmidt Virginia obituary", I doubt the former would have gotten me anything. I was going to read his obituary and see if I could find anything out there, but... I couldn't find one.
+
+I checked the local papers and nothing. I even scanned through 2 months worth of obits from around the time he had died. Nothing.
+
+I don't know what made me do it, but I searched for "Randall Schmidt missing".
+
+POLICE ABANDON SEARCH FOR LOCAL MAN AFTER FINDING CAR IN ROANOKE
+
+Mr. Randall Schmidt was reported missing last month by long time friend and local celebrity, Paul Wilkins. Wilkins says he last saw Schmidt two weeks before his reported disappearance. He grew concerned when the 73-year-old man stopped answering his calls and didn't show up for a weekly visit.
+
+The article went on, but ended by saying police had fished Schmidt's car out of the Roanoke River, and suspected he had drowned and been carried downstream.
+
+My dad had told me he was dead, and that they had buried him in the family cemetery. That's hard to do if his corpse is floating down to Albemarle Sound. The cemetery is on the property.
+
+The afternoon had sped by while I investigated, and it was almost 3 pm. My family would still be at the parks.
+
+I debated taking a trip out to the cemetery, but before I could make up my mind, Jerry was knocking on the door.
+
+I hesitated a minute and then opened the door with a:
+
+"Hey there Jeremiah Daniel!"
+
+"Yes, yes. Still me, Philip Stephen" he sounded tired
+
+"Did you find Brian?"
+
+"Yeah, but I had to get him to a hospital. Oh, he'll be fine, don't worry. Wish I would've gotten out there sooner."
+
+"Out...where? How did you know where he was?"
+
+"Look I didn't put him there if you're wondering. There are just... Only so many places he could have been. I'll explain but I need a nap" he sniffed the air "and we could both use a shower" he chuckled
+
+I wasn't going to argue, so he took one of the downstairs bathrooms and I took my parents' bathroom. As I changed, the mirror from my dad's office fell on the ground, maybe from a pocket. I could have sworn I left it on the desk.
+
+ I grabbed some of my dad's clothes and tossed them in my room.
+
+Jerry was waiting for me in the kitchen.
+
+"The hell is that line of salt doing in dad's office? And who broke the observation window?"
+
+I was caught so off-guard. A thousand ideas started swimming in my head.
+
+"No, no, no, don't get all anxious on me. I can feel it in the air. Just breathe. Salt. Window. What happened?"
+
+I tried my best to calm down and reiterate the events of my first post. Mirror me, the window, the salt line. I even threw in the glass shard, Pork, and the mirror from dad's desk. I was a bit wary of Jerry, but I figured if he was the thing tormenting me, I wouldn't be giving him any extra information.
+
+"You saw... yourself? Weird... I figured Ruthie was in Florida..."
+
+"Who?"
+
+"I... Dad should really be the one to talk to you about all this. I don't think I am the right person."
+
+I was getting mad now. "Jerry, you know my least favorite part of the scary story? The part where someone withholds crucial knowledge for some no reason and it gets everyone killed. Talk."
+
+He looked just as mad. "I said it's not my job! If you wanted to know, you should've come home some time in the past 12 freaking years you entitled jerk."
+
+When he stopped talking, he almost looked confused instead of mad. That threw me off guard.
+
+"Phil, I think we need to settle down. Look I can explain some stuff, but dad will do it better. I think... Maybe I can stay in the guest house and you can read some of the papers from the off-limits shelf. I ought to be far enough away then to be outside the area of effect."
+
+It was a word salad to me and I was still frustrated, but I heard that he was going to talk to me, and he reminded me about that off-limits bookshelf. I could start getting some answers at least.
+
+"Okay tell me what you know"
+
+"I know I need to get down to the basement and see if everything is OK. I need you to..." He glanced at my tool belt "why are you carrying around a hammer and a carving fork?"
+
+"Iron and silver. You know, like the stories say" I laughed, but he tensed.
+
+"Phil, can you put the hammer on the counter while we talk?"
+
+That made me want to do exactly anything but put the hammer on the counter.
+
+"Why?"
+
+"I think some of what we're going to talk about might bother you, and I don't want you to be rash"
+
+Okay so maybe this wasn't Jerry, but he was definitely afraid of the hammer. I didn't want to give up my advantage.
+
+"I'm not going to assault you with a hammer, Jerry." As long as you're really Jerry, I thought.
+
+"Look I know this is putting you on edge, but I have to insist you put down the hammer. That's the deal. Hammer or answers, what do you want?"
+
+Damn. The answers were more important right then. I set the hammer down and backed away. I could maybe get to it in a scuffle.
+
+"I need you to break the salt line. I can't do it."
+
+Hammer please? I glanced at it and he interrupted.
+
+"It's not what you think. I _could_ cross it, but you wouldn't like what would happen after that."
+
+Was he threatening me? Why the vague comments?
+
+"Ugh stop! I can FEEL you getting ready to go for the hammer over there. Look, your wrist. Let me fix it. Show of good faith."
+
+I looked at my wrist where he had grabbed me the other day. Green pus drooled from a swollen blob.
+
+"Another day or two and you're going to have to amputate.".
+
+Ugh, I felt like I was in control a few minutes earlier. Now I had no hammer and an arm on the chopping block. I held it out.
+
+He touched a finger to the blob, and I felt a cooling sensation.
+
+"There. It'll take a bit to get back to normal, but you won't die."
+
+"Why did you do that to me?" I snapped.
+
+"I didn't mean to. It was taking all my focus just to keep myself stuck in that chair. I wasn't in control, not fully. If I have to cross that salt line or you smash me with that thing" he nodded at the hammer, "I won't be in control at all"
+
+"What are you?"
+
+"I'm your brother"
+
+I stared at him.
+
+"I know you think I'm a monster or something, but I've always been this way. At least as long as you've been alive."
+
+"Cut the crap, Jerry"
+
+"I'm a human ghost possessing something more dangerous."
+
+"Possessing an absolute looney toon is more like it"
+
+"Look I know it's crazy, but it's just because you don't remember. Mom and dad wanted you to have a normal life."
+
+"And so they did what? Erased my memories? Come on Jerry this is crazy."
+
+"No your memories are there, you just can't access them, just like you can't see the broken window without looking in a mirror. It's there Phil, you just... Can't see it"
+
+I wanted to reject what he was saying, but it made sense. I stepped on a shard of glass, that wasn't in my head.
+
+"Say I believe you. What next?"
+
+"I need to go check the basement, so I need you to break the salt line. The door to the basement is in dad's office, but I guess you can't see that either."
+
+The steel door.
+
+"I... What is in the basement?"
+
+"Wolf cubs" he said
+
+"I think I need to come with you."
+
+"You don't have to, Phil, this is all new to you."
+
+"I have to...but who is Ruth? One of the... Wolf cubs?"
+
+"Yes and no. She's our older sister."
+
+"We don't have a..." I couldn't finish the sentence. His eyes were looking at me with such deep pain, and for a minute, I felt it too.
+
+"She made me like this." He said
+
+We made a plan to take a nap and then head down to the basement. I fed the dogs and locked up the house. Before we went to sleep, I caught my brother in the hall.
+
+"I feel bad I didn't ask this earlier, but what happened to Brian?"
+
+"Mild concussion and dehydration, he may have an ankle sprain. He'll be fine, but it could've been much worse."
+
+"How did you know where he was?"
+
+"He was in a holding cell in the center of the property. I was supposed to add him to the security system's access list, but I was indisposed. He must've gotten trapped there when mom and dad armed the system."
+
+"The alarm system? That doesn't make sense"
+
+"You think dad only has an alarm system with all these wolf cubs running around?" He smirked
+
+We parted and took our naps.
+
+So as I write this, I'm about to go down to the basement with my either crazy or supernatural brother, or both, and maybe meet my long lost sister?
+
+I didn't sign up for this, but I think I have to do this if I am going to remember. Wish me luck, Reddit. Hopefully I'll update tomorrow..
