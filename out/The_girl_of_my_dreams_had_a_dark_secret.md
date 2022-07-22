@@ -584,11 +584,13 @@ But I had to see her.
 
 I had to.
 
-Only, she wasn’t there.
+Only, she wasn’t at school that day.
 
-The rest of the week passed, and still nothing.
+The rest of the week passed. There was still no sign of her at school.
 
-The weekend was looming and with it the terrifying prospect of me returning to the graveyard. It was the only thing I could think of. The only place she might be.
+And every night, I woke up stifling screams because, deep in sleep, I had been trapped again in the tomb, and this time she was there, just out of reach.
+
+Soon, the weekend was looming, and with it, the terrifying prospect that I needed to return to the graveyard. It was the only thing I could think of. The only place she might be.
 
 Then, on Friday afternoon, I was going to put a book in my locker when I saw there was a note taped to the front.
 
@@ -600,4 +602,4 @@ There were no kisses but there was a P.S.
 
 *I’ve hidden the evidence.*
 
-And that’s how she left me, the girl of my dreams. The girl of my nightmares.
+And that’s the last I ever heard from her, the girl of my dreams who became the girl of my nightmares.
