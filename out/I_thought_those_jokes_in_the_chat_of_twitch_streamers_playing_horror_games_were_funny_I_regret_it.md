@@ -1,0 +1,15 @@
+This happened a while back, for context, I love watching people play horror games. I'd never have the courage to play horror games myself, especially alone, watching someone else playing it lets me know I'm not alone. Watching this stream, however, has never made me feel more alone.
+
+I just got off a late night shift at my retail and setting down the takeout I bought on the way back, I grabbed my laptop to watch another horror game stream. This particular streamer, played only horror games. He was funny, he was nice and he was terrified of all the games he played. I popped into his stream and watched while I ate. This stream was unsurprisingly long, lasting throughout my dinner, washing my dishes and writing essays for my college classes.
+
+I was immersed in my writing, so much so that I drowned out the noises of the stream. Finishing the essay, I suddenly remember the stream running in the background. I look at the time, 02:37, 4.5 hours of streaming. The chat's going as fast as it's ever gone before. I type one message, "Nice stream", and I see there's no delay between the messages. Where were the mods? Weren't they doing anything about the chat? 
+
+Then I actually read the chat. "BEHIND YOU." "TURN AROUND." "GET OUTTA THERE." I always found those anxiety inducing messages funny, seeing him react with a slow turn, grabbing a baseball bat next to his desk. The amount of these messages made it less funny and more confusing. I look at the camera and there is no reaction. He continues with the game, carefree and unsuspecting.
+
+I look behind him. There's a figure that obviously shouldn't be there. Is this a prank? Will he shout 'gotcha!' at the camera before laughing and tearing off a poster on the wall? The figure takes a step forward and suddenly, this all seems too real. The proportions are just a bit too off to be human, like one of those AI generated images. It all felt like a dream, like I was prying into a nightmare that wasn't mine, like I wasn't meant to see this.
+
+The camera is turned off, only leaving the game in the background. The character on it stops moving before being attacked by a monster in the game. Gruesome sounds filled the stream. Screams and sounds of flesh tearing and ripping with no comfort of a girlish shriek to remind me its fiction. At this point I'm not sure if the sounds came from the microphone or the game.
+
+Then the chat stops, for just a second. Then it explodes with "HELLO????" "SOMEONE CALL 911" "ARE YOU ALIVE???". The stream continues on the game over screen. I close my laptop and crawl into my bed, almost hiding underneath the covers. I fall asleep and the next morning the channel doesn't exist anymore. The tab I was previously on is instead an error message.
+
+I don't even know if this was real. It felt surreal at the time but as soon as I woke up, it feels like I could recall every little detail. I'm haunted by this, years later and sometimes I lay awake at night, brain itching to find out what happened but every time I search for this guy it's as if he never existed. It feels like I'm going insane thinking about this.
