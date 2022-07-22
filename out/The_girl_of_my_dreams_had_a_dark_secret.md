@@ -600,4 +600,4 @@ There were no kisses but there was a P.S.
 
 *I’ve hidden the evidence.*
 
-And that’s me. I’m a kid who spends all his time hurting and thinking about the girl of my dreams. The girl of my nightmares.
+And that’s how she left me, the girl of my dreams. The girl of my nightmares.
