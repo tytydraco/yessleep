@@ -218,4 +218,4 @@ All this looked and felt more than just insane. Hector mentioning the summoning 
 
 When I turned my head, I was filled with joy. Kaley was crouching behind Clara and cutting the rope on her arms. The shotgun I took from the captain’s car was sitting on the floor next to her. I knew I needed to keep quiet so that I don’t alert the cult members even though I believe they wouldn’t have reacted even if they heard her. When she freed Clara’s arms, she gave her another knife which she used to cut the rope off of her legs. While she was cutting the rope, Kaley crouched up to me, hugged me, and kissed me.
 
-{ [FINAL PART](https://www.reddit.com/r/nosleep/comments/w409cw/whats_worse_than_a_psychopath_final_part/) }
+\[ [FINAL PART](https://www.reddit.com/r/nosleep/comments/w5lum5/whats_worse_than_a_psychopath_final_part/) \]
