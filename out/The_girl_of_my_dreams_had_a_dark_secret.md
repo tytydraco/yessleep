@@ -586,7 +586,7 @@ I had to.
 
 Only, she wasn’t at school that day.
 
-The rest of the week passed. There was still no sign of her at school.
+Or the next. 
 
 And every night, I woke up stifling screams because, deep in sleep, I had been trapped again in the tomb, and this time she was there, just out of reach.
 
