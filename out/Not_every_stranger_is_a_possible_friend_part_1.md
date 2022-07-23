@@ -22,11 +22,11 @@ He walked away from Carlos. I saw him get into a Lexus that was parked in a red 
 
 "Well, I know I can get you up to your room," I said. "Come on."
 
-I helped him up the stairs. When I worked in retail, I had to assist legally blind customers once or twice. Carlos was new to the thing, so we had to move very slowly. I had to help him find the keyhole in his door and catch him when he tripped over the threshold. 
+I helped him up the stairs. When I worked in retail, I had to assist legally blind customers once or twice. Carlos was new to the thing, so we had to move very slowly. I had to help him find the keyhole in his door and catch him when he tripped over the threshold.
 
 The apartment was a decent size. Too big for one guy, really. But there was no one else there. The lights were all on. When I asked Carlos where everyone else was, he shook his head. "Ivan has them."
 
-"Has them where?" I asked. There were pictures of a big happy family on the wall. Carlos must have at least a dozen cousins. There was a painting on the wall that looked like something Jackson Pollack would have done. It was cool. 
+"Has them where?" I asked. There were pictures of a big happy family on the wall. Carlos must have at least a dozen cousins. There was a painting on the wall that looked like something Jackson Pollack would have done. It was cool.
 
 Carlos sat on his couch staring at the coffee table in front of him. Except that he wasn't staring at anything. "This is such a fucking shit," he said.
 
@@ -66,7 +66,7 @@ Carlos sat back and closed his eyes. Again, he was silent for a minute or two. I
 
 "I'm gonna show you something," he said. "Come on."
 
-Carlos stood up and walked around the sofa. He was still fumbling a little, but not all that much. He walked a little haltingly, like blind people who use those sticks to feel around. But all he had was his hands. 
+Carlos stood up and walked around the sofa. He was still fumbling a little, but not all that much. He walked a little haltingly, like blind people who use those sticks to feel around. But all he had was his hands.
 
 He led me into his room. "Sorry, I know I need to clean here," said Carlos, stepping over a pile of dirty clothes. Don't ask me how he could do that. A calendar of women in bikinis hung on the wall and a bong sat on a messy desk next to an unmade bed. He was a single man in his early 20s, all right.
 
@@ -74,7 +74,7 @@ Carlos stood in front of his closet. He grabbed my hand and placed it on the han
 
 "Will it help me understand what's going on here?" I asked. He didn't answer. I looked into his eyes as if expecting to find the answer there, but of course they didn't register anything. So I opened the door.
 
-I would have been fine with a portal to another dimension or maybe even a guy with a knife, but what I found instead was a closet full of boxes and shoes and other random crap. Except for one thing: everything in the closet was made out of teeth. Molars, fangs, front teeth, tiny animal teeth, everything in the closet appeared to have been constructed by some weirdo taking the teeth out of animals of varying species and gluing them together so that they perfectly formed the shape of a normal object. There were even clothes made out of teeth, although I didn't touch them to see if they still felt like fabric. I gasped, noticed that even the inside of the door and its handle were made out of teeth, and slammed the door shut. 
+I would have been fine with a portal to another dimension or maybe even a guy with a knife, but what I found instead was a closet full of boxes and shoes and other random crap. Except for one thing: everything in the closet was made out of teeth. Molars, fangs, front teeth, tiny animal teeth, everything in the closet appeared to have been constructed by some weirdo taking the teeth out of animals of varying species and gluing them together so that they perfectly formed the shape of a normal object. There were even clothes made out of teeth, although I didn't touch them to see if they still felt like fabric. I gasped, noticed that even the inside of the door and its handle were made out of teeth, and slammed the door shut.
 
 "You okay?" he asked. I was bent over with my hands on my knees, taking deep breaths. There is something so deeply unsettling to me about teeth, especially so many of them so close together. Where did all those teeth even come from?
 
@@ -112,8 +112,10 @@ He nodded. "I know my place."
 
 I went back to my apartment, turning the lights off in Carlos' apartment before I left. Before I went to bed, I called my  fiancée and told her a little bit about what happened. Not the full story, of course, but I told her that I was thinking about calling out of work tomorrow so that I could help somebody I didn't really know. She asked if I was doing it out of empathy for him or fear that whoever hurt him would come for me next. I think her point was that it's noble to help people, but you'll stretch yourself thin if you try to save everyone. She has a way of putting things into perspective.
 
-I'm typing this before bed. I've already texted my boss to ask if I could take tomorrow off. My birthday was last week and the company gives us the option to take the day off on our birthday. Since I didn't do that, I just asked if I could have the day off now. She said that's fine. It's a mostly healthy work environment. 
+I'm typing this before bed. I've already texted my boss to ask if I could take tomorrow off. My birthday was last week and the company gives us the option to take the day off on our birthday. Since I didn't do that, I just asked if I could have the day off now. She said that's fine. It's a mostly healthy work environment.
 
 Perhaps I will go to help Carlos tomorrow. I am a little afraid of Ivan, but I don't think I've ever made a decision out of fear that I haven't regretted. If he gets everything he wants and moves in with Carlos, that might threaten our entire neighborhood. The best way to avoid toxic people is to insulate yourself with good people. Ivan won't be satisfied even if Carlos and his family let him move in. I'm just not sure that Carlos and I will be enough to stop him by ourselves.
 
 I can hear my housemate cooking dinner right now. He's a night owl. It smells good. I hope I can sleep [tonight](https://www.reddit.com/user/_Cu_Chulainn17).
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/w5rvp1/not_every_stranger_is_a_possible_friend_part_2/)
