@@ -1,0 +1,18 @@
+know it's pretty common for people to brush away the shower curtain to make sure nobody's hiding behind it, but nobody ever prepares themselves for when somethings actually there. 
+
+I'd lived in the same house for 13years, ever since I was born. At the end of eighth grade, my family and I moved about 10 minutes away to a slightly bigger house in the same neighborhood. I didn't mind, given we weren't far from where we used to be, it wasn't much of a change from me. I remember being excited to decorate my room when the realtor showed my parents the pictures. 
+"Eleanor, look! This will be your bedroom!" My mom said. 
+The room was bigger than the one I grew up in, so I was excited. It was a pretty nice house, and I know my parents got a good deal on it too. But one of the rooms needed some serious renovations. It was the second floor bathroom. It was discolored, rusty almost. It was super dated and the shower tiles were stained a dark brown. We finally moved in, and about 2 years later we finally got to remodel that bathroom. It now had brand new tiles and a nice fresh coat of gray paint, along with gorgeous countertops and a double sink vanity. I was so excited to take a shower in the new bathroom, because the shower was seriously SO nice. I made sure to turn on the central fan to help with the fogging and steam. I enjoyed a nice 15 minute shower. When I was done, I turned off the water and stepped out to dry off. That's when I noticed how fogged the mirrors were. I didn't think much of it at first, until I saw something written on the top corner of the right mirror. 
+"Leave"
+I was freaked out, but thought it was my mind playing tricks on me so I just went back to my room. The following day, I took another shower. It was a quick one this time because I felt a little uneasy in the bathroom. When I stepped out to dry off, I saw it again. It still said leave, but now the mirror adjacent to it said "now". 
+Leave now? 
+Surely it had to be my brother tricking me. I went into his room to ask him about it, because our parents weren't home. 
+"Haha very funny Hunter. Next time stay out of the bathroom when I'm showering"
+"What?" He asked in response. 
+"The writings you left on the mirror" I replied. "Real funny"
+"Eleanor I have no idea what you're talking about. I just got home from work a minute ago."
+I had been out of the shower for at least 5 minutes, so now I was scared. I immediately dragged him to the bathroom to show him. The writing was gone, but the shower tile was stained a dark brown, just like it was before we renovated. How could this be? It was fine when I got out of the shower. Both of us lacking an explanation, decided to tell our parents when they came home and just forget about it. 
+It wasnt until the third day that things took a turn for the worse. I went to take my shower, and as I pulled the curtain back, a pale hand with freakishly long fingers & dirty uncut nails grabbed my wrist. I screamed, and the hand released me. I immediately backed up. Not knowing what to do, I was completely vulnerable. My parents had taken my brother on a tour of our local college, leaving me completely alone. I decided to pick up the closest thing I could find to use as a weapon, and settled on a flat iron. I ripped the curtain back, and there was nobody there. But there was writing on the wall, in the same color that the tiles were stained. I soon realized it was blood. "You should have left when I asked." And the lights flickered, and then went out. 
+
+News broadcast from 4 days later...
+"The manhunt for missing teen Eleanor murphy has continued. Search parties spread out across the entire county searching for any leads or signs of life."
