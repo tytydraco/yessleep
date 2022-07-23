@@ -6,7 +6,7 @@ Finding the moment just, I decided to give my uncle a call, if only to thank him
 
 “R-really?” he finally sputtered.
 
-“What: **really?**” I asked lightheartedly.
+“What: *really?*” I asked lightheartedly.
 
 There followed a lengthy pause. My uncle’s voice was monotone when he answered.
 
@@ -30,23 +30,23 @@ I opted to disregard his sudden peculiar state and play along.
 
 “You see it too?”
 
-“Of course I see it,” I said, uncertain whether my amusement ought to be concern. “It’s **there**.”
+“Of course I see it,” I said, uncertain whether my amusement ought to be concern. “It’s *there*.”
 
 Another pause, longer.
 
-“Alice... **Normal** people don’t see it.”
+“Alice... *Normal* people don’t see it.”
 
-“You mean, they don’t **notice** it?”
+“You mean, they don’t *notice* it?”
 
-“No,” he sighed deeply. “I mean they **can’t** see it. It doesn’t **exist**. I mean it **does**, just not to **them**.” When he felt my confusion he added: “I know this is your first time visiting my cabin, but I can assure you there isn’t supposed to be any lighthouse there. There never was for me until very recently.”
+“No,” he sighed deeply. “I mean they *can’t* see it. It doesn’t *exist*. I mean it *does*, just not to *them*.” When he felt my confusion he added: “I know this is your first time visiting my cabin, but I can assure you there isn’t supposed to be any lighthouse there. There never was for me until very recently.”
 
 I chuckled to myself.
 
 “Perhaps they built it over the winter,” I offered. “After all, you only just opened up the shack for summer last week. You’ve been away in the city the remainder of the year.”
 
-“No no. Nobody ever built it. It doesn’t **really** exist!”
+“No no. Nobody ever built it. It doesn’t *really* exist!”
 
-“I’m **not normal** then, am I not? Seeing as I’m seeing it...”
+“I’m *not normal* then, am I not? Seeing as I’m seeing it...”
 
 “Well, you’re the only other person I know who has.”
 
@@ -68,7 +68,7 @@ I shook my head.
 
 “So you’ve not talked to them about it at all?” I exclaimed.
 
-“Most certainly not. I was... **prepared**. Quite serendipitously so too.”
+“Most certainly not. I was... *prepared*. Quite serendipitously so too.”
 
 “Prithee, tell me why not,” I responded sarcastically, frustrated by his seemingly purposeful lack of clarity.
 
@@ -94,7 +94,7 @@ I felt exasperated, the migraine that had pestered me since dawn now exacerbated
 
 “I really can’t explain...”
 
-“Then **try**.”
+“Then *try*.”
 
 It felt to me he was beating around the bush, stalling, like there was something more.
 
@@ -110,7 +110,7 @@ My uncle sighed again, clearly ambivalent about something.
 
 “I’m... I’m not sure I follow...” I began. Nonsensical and lackluster though my uncle’s postulations were, there was a seriousness underlying them that simply couldn’t be ignored.
 
-“That written account is precisely a hundred years old, but that’s not all. I found a discarded painting, caked in cobwebs, predating the journal by another hundred years. It’s a depiction of a lighthouse. **The** lighthouse. It reoccurs periodically. So it appears.
+“That written account is precisely a hundred years old, but that’s not all. I found a discarded painting, caked in cobwebs, predating the journal by another hundred years. It’s a depiction of a lighthouse. *The* lighthouse. It reoccurs periodically. So it appears.
 
 “I need to know now, the door at its base, is it open? Is the entrance open?”
 
@@ -134,7 +134,7 @@ Asking why he took interest in something as mundane as a door was pointless. I d
 
 “Who?”
 
-“**The lighthouse keeper.**”
+“*The lighthouse keeper.*”
 
 “Who’s that?”
 
@@ -144,21 +144,21 @@ Asking why he took interest in something as mundane as a door was pointless. I d
 
 “What’s any of that got to do with me?” I blurted out after fruitless reflection.
 
-“Granted few and far between, it’s well known within the family that over the years there have been... acciden- **No**, fuck this, I can’t...” My uncle stopped, audibly overcome with emotion.
+“Granted few and far between, it’s well known within the family that over the years there have been... acciden- *No*, fuck this, I can’t...” My uncle stopped, audibly overcome with emotion.
 
 The sun suffocated in a thick veil of grey then, and the cold swooped down on me with great fervency.
 
-“**Uncle Barry?**”
+“*Uncle Barry?*”
 
 I waited anxiously, the questions swirling around in my head plenty.
 
-This seemed real enough. The lighthouse was, wasn’t it? I mean, obviously it was real. After all, there it was, right? Right **there**. But was it **real** real, the type of real my uncle propounded it was? The type that wasn’t **really** real for most but for some was? Was that really what it was?
+This seemed real enough. The lighthouse was, wasn’t it? I mean, obviously it was real. After all, there it was, right? Right *there*. But was it *real* real, the type of real my uncle propounded it was? The type that wasn’t *really* real for most but for some was? Was that really what it was?
 
-Was the Keeper **real** too? And what if the Keeper was?
+Was the Keeper *real* too? And what if the Keeper was?
 
 I didn’t want to talk to any keeper. I didn’t want to be disturbed while on my solo break. I didn’t wa-
 
-“I didn’t want it to be one of my children,” Barry continued. “I knew it was merely a matter of time before it revealed itself to someone else, given that I would never return. So I sent you there under the pretense of spending a nice relaxing weekend. **Fuck**. I’m so- I- Fuck, fuck, fuck, fu- **What the hell have I done?**“
+“I didn’t want it to be one of my children,” Barry continued. “I knew it was merely a matter of time before it revealed itself to someone else, given that I would never return. So I sent you there under the pretense of spending a nice relaxing weekend. *Fuck*. I’m so- I- Fuck, fuck, fuck, fu- *What the hell have I done?*“
 
 His breaths were heavy. Short. Almost mimicking the ocean’s to-and-fros.
 
