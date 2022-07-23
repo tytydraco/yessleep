@@ -287,3 +287,7 @@ I craned my neck to look down the hall and out the front window, I saw the taill
 The footsteps continued and my eyes widened as I realized where they were headed.
 
 They were headed towards the [stairs](https://www.reddit.com/r/thespookyplace/).
+
+&#x200B;
+
+[Part 3 final](https://www.reddit.com/r/nosleep/comments/w64r2h/they_finally_found_my_family_final/)
