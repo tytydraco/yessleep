@@ -303,3 +303,5 @@ We parted and took our naps.
 So as I write this, I'm about to go down to the basement with my either crazy or supernatural brother, or both, and maybe meet my long lost sister?
 
 I didn't sign up for this, but I think I have to do this if I am going to remember. Wish me luck, Reddit. Hopefully I'll update tomorrow..
+
+[into the basement](https://www.reddit.com/r/nosleep/comments/w5uipw/i_agreed_to_housesit_for_my_parents_in_my/?utm_medium=android_app&utm_source=share)
