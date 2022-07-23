@@ -1,0 +1,13 @@
+Have you ever heard this story before? The story of the waiting woman. This is a story I've heard from quite a few soldiers that have come back from war or fleeing their home country to get to somewhere safer or people talk about her and always these people will die in a couple weeks after they have seen her getting closer to them.
+
+The story goes that when your time is coming you will see a beautiful woman dark black hair like the nights sky, eyes blue like sapphires, skin that looks white like cream and a beautiful floor length black dress, features soft and eyes even softer. These men describe her beauty like a longing and a gentleness that you can feel. She has been through sorrow many times before.
+
+Some of the guys speculate she is a lover that is lost to time always seeking for someone's embrace. Others say she lost a loved one to the war that she never got to see again and now she wants to make sure that when you finally pass she will be there with you so you don't go out alone. Others say she is a kind spirit there to ease your passing and let you know your time is coming and not to be afraid but to accept her and she will be there to help.
+
+There is a reason I tell of this story is because I saw her a couple of weeks ago. It was just an ordinary day. I was on my way to grab a coffee from Costa before I got into work and I looked across the road and there she is in all her stunning beauty. There are truly no other words that come to mind except breath taking and I hadn't realised at the time it was her until I went across the road and almost like she was a magnet and I was as well she sort of hovered away from me
+
+I felt an almost longing when I saw her. I don't know what it was it felt like if I could touch her the world would be made right. But I found that every day she would be a bit closer not by much maybe a few steps but she would start to close the distance between us and I could see the sadness of those eyes even though she never wept. Her eyes took on an almost watery consistency like she was always just about to cry but she never did. It was like she was determined to make sure I knew she was there for me.
+
+I knew in that moment that my time was nearing its end but I just thought I would jot this down as right at this moment she is standing beside me almost waiting for me to embrace her and be by her side and I know when I go she will make my last moments as peaceful as possible and I'm OK with that.
+
+Good bye.
