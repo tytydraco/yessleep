@@ -1,4 +1,6 @@
- Oh boy was I naive at that time, a youngster so foolish to assume he’d struck a fortune just by scrolling down through his inbox. I was ecstatic with eyes filled with glee when the money came.
+ 
+
+Oh boy was I naive at that time, a youngster so foolish to assume he’d struck a fortune just by scrolling down through his inbox. I was ecstatic with eyes filled with glee when the money came.
 
 I never thought that could have happened– let alone so easily and effortlessly, at least not without some kind of twist. I cannot deny it happened all right, yet I also cannot deny that the *twist* was beyond imagination. It was a twist that makes some sense only if you ask someone in an asylum for assistance in clarifying such incoherence.
 
@@ -232,8 +234,10 @@ This was all a year ago. Throughout the years, I have been hallucinating. I occa
 
 These mysterious emails hold enormous power. Whatever you do, don’t listen to them.
 
-What should do right now, however, is to block the following email address– 
+&#x200B;
 
-**moneyislife155@gmail.com** 
+Do not pay any mind to emails sent by an address starting with "moneyislife155"
+
+&#x200B;
 
 This lottery remains a mystery. A mystery yet to be solved. If anyone knows anything, please contact me. I don’t know how much longer I have and how much longer I can keep up with this.
