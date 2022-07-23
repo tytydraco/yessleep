@@ -295,7 +295,7 @@ A name which suddenly fit Princess Rapunzel.
 
 “You can.” Rapunzel hissed. She cradled his face. “It’s five minutes, Roman! You can hold on for five minutes, can’t you?”
 
-He only offered her a sickly smile. “And what happens if end up like Charming? Like Jasmine, and Snow White? Fuck, they took Snow today. Tomorrow, its fucking Aladdin and Eric, and then me. It starts with skin, then brain, and finally...”
+He only offered her a sickly smile. “And what happens if I end up like Charming? Like Jasmine, and Snow White? Fuck, they took Snow today. Tomorrow, its fucking Aladdin and Eric, and then me. It starts with skin, then brain, and finally...”
 
 “That’s not going to happen.” She gritted out. Rapunzel marched forwards and grabbed me. “Come on, Emma.”
 
@@ -323,17 +323,17 @@ Rapunzel nodded. “That’s right.” She whispered.
 
 When the ride started, I waved to Rapunzel, but she didn’t wave back. I still remember her pale face lit up in the glow of animatronic dolls coming to life. 
 
-When the song started, I focused on the Princesses words and stared hard at the running water below me. There were two orderlies, but both of them were focused on the kids at the front. As the ride slowly drifted towards the first funnel and I was greeted to yet another wall of dolls coming to life in sharp twitching movements, I grabbed at my seatbelt. 
+When the song started, I focused on the Princesses words and stared hard at the running water below me. There were two orderlies, but both of them were focused on the kids at the front. As the ride slowly drifted towards the first tunnel and I was greeted to yet another wall of dolls coming to life in sharp twitching movements, I grabbed at my seatbelt. 
 
 The world was enveloped in black, only lit up by faded white light, and when the kids at the front started screaming, I pulled my seatbelt apart and jumped up. 
 
 Everything was spinning and my legs wouldn’t move properly, but somehow, I managed to plant one foot on the side of the ride. Flynn told me the ride was close to the ledge, so I only had to step off—and with his words echoing in my head, I made sure the orderlies weren’t looking before stepping off the ride.
 
-At first, I was off balance, and I thought I was going to fall into the water, but I caught myself. The ride continued without me, and I ducked, just like Rapunzel had told me. One the ride one heading towards the second tunnel, I blindly walked on the ledge, scanning for the hole. It was too dark; I couldn’t see anything. 
+At first, I was off balance, and I thought I was going to fall into the water, but I caught myself. The ride continued without me, and I ducked, just like Rapunzel had told me. Once the ride one heading towards the second tunnel, I blindly walked on the ledge, scanning for the hole. It was too dark; I couldn’t see anything. 
 
 I remember being frustrated, stamping, looking for the magical hole, when the ground left my feet. I cried out, but my scream was swallowed up as I plunged, my body slipping into nothing. 
 
-Flynn and Rapunzel had promised me it would be like flying, but it didn’t feel like flying. I lost all my breath in a scream, and I wasn’t floating like I thought I would. I was slicing through air at a pace I could barely keep up with. They said it would take a while for me to land, because of the fairy dust, but when I opened my eye there was no sparkling fairy dust.
+Flynn and Rapunzel had promised me it would be like flying, but it didn’t feel like flying. I lost all my breath in a scream, and I wasn’t floating like I thought I would. I was slicing through air at a pace I could barely keep up with. They said it would take a while for me to land, because of the fairy dust, but when I opened my eyes there was no sparkling fairy dust.
 
 There was just the dark.
 
@@ -365,7 +365,7 @@ Before I could stop myself, I stumbled onto the pile and reached for the jacket,
 
 The monster had woken up.
 
-But it didn’t eat me. I was shaking, spitting, making the same sound as my mom’s lawnmower. The red light turned green, followed by a screams. They were deafening, sending me to my knees. It was a girl, her cries rattling my skull. There wasn’t just her scream. The sound of my mom’s lawnmower continued, and I slammed my hands over my ears. I couldn’t hear my own cry. I couldn’t hear it.
+But it didn’t eat me. It was shaking, spitting, making the same sound as my mom’s lawnmower. The red light turned green, followed by a screams. They were deafening, sending me to my knees. It was a girl, her cries rattling my skull. There wasn’t just her scream. The sound of my mom’s lawnmower continued, and I slammed my hands over my ears. I couldn’t hear my own cry. I couldn’t hear it.
 
 But I wouldn’t listen to it. I couldn’t. When her screams died down and the ground stopped shaking, rumbling, the light turned red once again—and I risked a peek between my fingers once again. 
 
