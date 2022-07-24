@@ -272,7 +272,7 @@ I gently stroked his back with my finger, and he closed his eyes with a smile. "
 
 He looked up at me. "Honestly, I don't think I'll ever meet anyone else special enough." 
 
-- - - -
++
 
 A few days went by and seeing Solomon was a given. I was happy to have him as a friend, and I appreciated that he didn't always treat me like a child. He'd tell me things as they were, truths that most adults would hide or sugar-coat. But I always felt he had an underlying responsibility to look out for me too. I was a child, and I could act like one. 
 
