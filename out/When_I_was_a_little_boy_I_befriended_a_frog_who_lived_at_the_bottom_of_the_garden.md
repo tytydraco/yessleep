@@ -52,7 +52,7 @@ It sounded like a man, but it wasn't a deep voice like my dad's. It was soft, an
 
 "Down here!" 
 
-There was a frog sitting on my chest, softly croaking. Just a normal, greenish yellow frog with mottled skin. It's mouth was kind of upturned into a smile. A water beetle scurried in front of it and its tongue quickly flicked out to eat it 
+There was a frog sitting on my chest, softly croaking. Just a normal, greenish yellow frog with mottled skin. It's mouth was kind of upturned into a smile. A water beetle scurried in front of it and its tongue quickly flicked out to eat it.
 
 "Excuse me," it said, swallowing it down. I sat up and it hopped off my chest. 
 
