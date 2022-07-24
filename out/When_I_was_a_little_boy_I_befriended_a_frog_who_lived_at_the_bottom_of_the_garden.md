@@ -458,7 +458,7 @@ I bawled, but it was mostly relief. I believed him.
 
 He gently tapped on my hand. "I know, little one. But I can help you." 
 
-I made to kneel and Solomon leapt from my hand. By that point I wasn't only shivering from fear, but cold. The rain wasn't letting up. 
+I got up to kneel and Solomon leapt from my hand. By that point I wasn't only shivering from fear, but cold. The rain wasn't letting up. 
 
 "How?" I asked.
 
