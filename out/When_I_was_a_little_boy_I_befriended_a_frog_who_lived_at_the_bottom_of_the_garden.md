@@ -392,7 +392,7 @@ As I started to cry my dad came into view. He was holding a hammer, the head of 
 
 I ran back into my room as I heard my dad on the staircase, slamming the door shut. There was a chest of drawers just to the side and, being young and stupid, I thought I might be able to push it over to stop him from getting in. The reality was it didn't move an inch. He burst in, making me scream. 
 
-"Time to be with your whore mother!" he snarled, swinging the hammer down. I managed to duck out of the way and it smacked into to side of the drawers. I was on my hands and knees crawling to my bed. I wanted to go underneath it, like it would fool him. That silly childish logic again. I didn't get far though. 
+"Time to be with your whore mother!" he snarled, swinging the hammer down. I managed to duck out of the way and it smacked into the side of the drawers. I was on my hands and knees crawling to my bed. I wanted to go underneath it, like it would fool him. That silly childish logic again. I didn't get far though. 
 
 He picked me up by the scruff of my *Thomas the Tank Engine* pyjamas. He held me up by one hand, the other holding the hammer high above. The lightning revealed strands of blonde hair matted to the head with blood. He grinned in such an evil, hateful way. 
 
