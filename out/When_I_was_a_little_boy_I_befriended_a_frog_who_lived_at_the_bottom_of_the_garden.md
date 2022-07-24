@@ -434,7 +434,7 @@ I slowly crawled out of the bush and got to my feet, heading left and limping th
 
 "Little one!" 
 
-I couldn't see him at first, but I could tell i was close to the pond by the sound of the rain as it hit the surface. With a flash, I saw him there on the edge. I fell to my knees and collapsed to my side. 
+I couldn't see him at first, but I could tell I was close to the pond by the sound of the rain as it hit the surface. With a flash, I saw him there on the edge. I fell to my knees and collapsed to my side. 
 
 "Solomon!" I cried, reaching out with my good hand. I held it upright and he hopped onto it with a croak. 
 

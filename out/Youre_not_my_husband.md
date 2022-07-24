@@ -1,0 +1,21 @@
+Rye. Flan. Swedes. The holy trinity.
+
+'Just a few more steps' I told myself as I bumbled along at a crows pace across the field of wheat towards my household. It was a dreary, grey day in the English countryside and I had just finished playing 'apple pippen' with the lads. I was making my way back home into the arms of my loving wife and children, they'd missed me. Truth be told, I'd been spending too much time pippen for apples lately and not enough time relishing the apples of my eye (the family). But, atlas, I was on my way now and I pledged to doing better.  My rucksack was filled with their favourite feast, rye, flan, swedes, 'the holy trinity' is a family saying of ours to describe these pickings.
+
+The crows pace I was travelling at became the swoop of a buzzard as I hurried up, an unsettling feeling spread over my body. Buzzards. They were here. I had seen these great birds of prey daily on my usual walk to the twine factory where I work or to my selfish games of apple pippen with the boys, they meant no bother... but today, it felt different. Their squawks felt more urgent, annoyed even. I consider my self a stout old boy but in this moment I felt tiny, smaller than a worm. "SQUAWK SQUAWK SQUAWK" There were three of them. "Where is your beloved, lone buzzard my sweet?" I coo to one of them, hoping to soothe their anger. A bead of sweat marauders from my glistening furrowed brow down to my trembling, thin lip. 
+
+Suddenly it hits me, they're after the flan. See, buzzards aren't on a plant based diet, they're looking to devour flesh. Any flesh. The flan did contain some small pieces of flesh but I was confused, they're large birds and there are three of them, surely the measly offering of flesh held within the flan wouldn't satisfy their hunger? I wondered if perhaps a family of mice, voles, even shrews had been following me, that would explain why the buzzards seemed interest. I checked behind, no animals in sight. "O...o....o....o...k...k...k...ay then, take the f...f...f....fl....fl...flan" I stuttered to the buzzards. They squawked in defiance, it wasn't the flan they wanted. My lip started to tremble at the speed of a rollercoaster which is also what I felt like I was on. 
+
+I start to run as fast as I can, tripping over barley, maize and turnips as I sprint. Sprint, sprint, sprint. 'Just a few more steps' I tell myself again, but this time I am crying.
+
+The whole field goes black, I fall to the ground, what is happening, won't somebody help me? I call out for help, HELP, HELP!!!!!!! I am crying my eyes out.
+
+They're here.
+
+"Peck peck peck peck peck peck peck" I knew in this moment I would probably die, they had invited their friends and too many buzzards to count were pecking at my flesh ferociously. A glimmer of hope washed over me like the suds of a shower as I remembered the pocket knife I had in my back pocket, somehow I manage to free my arm from the buzzards peck, I suppose it was the adrenaline, seeing my life flash before my eyes, thinking that I will never see the missus and the little 'uns again. I brandish the blade at the buzzards, hoping this will scare them off. To be honest with you, I did expect them to flap their wings away, to retreat. Now they team up, each using their beak to grab onto the blade of the weapon, they brandish the blade at me now, they have full control now. They continue pecking until I am a bloody pulp. Eventually they become full, bloated, satisfied and they swoop off, not before giving me a few pecks of the eyeball for good measure.
+
+I don't remember how I got home, I suppose I did 'the butterfly' along the ground until I reached my household home. "Our Tracey" I stammer, weak, defeated.
+
+"You're not my husband" why are you speaking like him? She angrily spits, venomly. Yes I am! I fall to the floor. I crawl to the kitchen and see myself, sitting at the table, enjoying a feast... even though I am now partially blind I can make out the shapes of the food. Rye, flan, swedes. The holy trinity. 
+
+I suppose I shouldn't have gone apple pippen.
