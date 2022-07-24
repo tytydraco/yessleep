@@ -1,6 +1,4 @@
-*“[Woman]drags her heavy body through mythology, crowned with curls of snakes.” —Hannah Williams*
-
-THE BLACK SHUCK—the archetypical ghostly black devil dog appearing variously the world over—is in its most famous rendition the ghost of all animals crushed under carriage wheels, and perhaps now those of cars and trucks. It is the ghost of *all* roadkill animals.
+THE BLACK SHUCK—the archetypical ghostly black devil dog appearing the world over—is in its most famous rendition the ghost of all animals crushed under carriage wheels, and perhaps now those of cars and trucks. It is the ghost of *all* roadkill animals.
 
 Not one.
 
@@ -27,6 +25,8 @@ Once a chick gets snatched that'll be the end of her, at least as she knows hers
 The streetlights now have all gone out.
 
 She stops across the parking lot and I snuff my cigarette and frown.  
+
+Can't have shit in Dayton. 
 
 Wonder how we can propagate so much evil, if shit like her can just *manifest* like that. Maybe they're not powerful enough to stop everyone all the time, and it's enough to do it here and there. Make everyone think twice before they lose the lottery. Or maybe she's where it all goes.  
 
