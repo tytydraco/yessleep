@@ -2,7 +2,7 @@ A quick note before we begin. The names, locations and dates have been altered t
 
 Now let’s start on our story;
 
-It was a gruesome sight, and one that shook me to the core. The victims, an elderly couple had been killed with a kitchen knife and the murder had been carried out with such ferocity that it was difficult to comprehend. They were lying face down on the floor in their little cabin and looked more like discarded waste from an abattoir than deceased humans. 
+It was a gruesome sight, and one that shook me to the core. The victims, an elderly couple had been killed with a kitchen knife and the crime had been carried out with such ferocity that it was difficult to comprehend. They were lying face down on the floor in their little cabin and looked more like discarded waste from an abattoir than deceased humans. 
 
 I tried to count the wounds, but they were too numerous. The blood was everywhere and had turned the pale carpet a dark red. I shuddered and felt an icy sensation shoot down my spine and thanked God that it wasn’t me lying there or someone close to me. 
 
