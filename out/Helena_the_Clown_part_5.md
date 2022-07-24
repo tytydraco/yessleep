@@ -57,3 +57,11 @@ Who knows what would have been of them, if they fate would have been different? 
 &#x200B;
 
 Next time, I shall try to conclude all this tragic story. It would be a tough one, but bare with me. For now, take care of yourselves and your loved one. Good Night... Ruxandra is out.
+
+&#x200B;
+
+Part 6 (Outside Nosleep) [https://www.reddit.com/r/Helena\_The\_Doll\_Clown/comments/w74gdz/helena\_the\_clown\_part\_6/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/w74gdz/helena_the_clown_part_6/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
+&#x200B;
