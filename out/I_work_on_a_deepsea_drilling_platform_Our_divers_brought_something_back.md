@@ -170,7 +170,7 @@ Bill was thrown backwards by the explosion.  He was physically blown off his fee
 
 The rest of us were left in a state of shock.  For a long time all I could do was stare at the carnage.  The other tenders were picking themselves up off the deck.  One by one they checked themselves, gathered their wits, and then froze when they saw the wreckage.  The airlock hatch was split half-open.  The gap was now maybe four inches wide.  Emerging from this gap was a wedge-shaped splatter of blood and human body parts.  I imagined the pattern a spray can would make, if you agitated a giant can full of human paste.
 
-I won’t go into the rest.  Our divers are all dead.  Some of the tenders are hurt.  Bill was fished out of the water.  Also dead.  Rescue helicopters arrived promptly, but they had little to offer.  Now I’m watching gagging men swab blood off the deck and pick up splattered human remains to seal in plastic bags.
+I won’t go into the rest.  Our divers are all dead.  Some of the tenders are hurt.  Bill was fished out of the water.  Also dead.  Rescue helicopters arrived promptly, but they had little to offer.   I’m watched gagging men swab blood off the deck and pick up splattered human remains to seal in plastic bags.
 
 And the thing.  The gremlin.  I forwarded the video to my bosses and the Coast Guard.  I don’t know what, if anything, they’ll do about it.
 

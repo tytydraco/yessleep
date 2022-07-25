@@ -1,5 +1,3 @@
-[Part 2 Final](https://www.reddit.com/r/nosleep/comments/w7uwo7/oneway_ticket_to_hell_please_part_22_final/)
-
 "And the great dragon, the serpent of old, called the Devil and Satan, who deceives the whole world, was cast down to the earth; and with him were his angels cast down."
 
 I've always been drawn to the occult, to legends and stories of demons and spirits that can't find peace. I'm not a religious person, I don't believe in miracles, but I do believe that evil exists on this earth. And when I say that, I don't mean the evil that man has wrought, but that evil in its purest form, the rot that slowly causes a rift in our souls, devouring violently, until there is nothing left but depravity and death.
