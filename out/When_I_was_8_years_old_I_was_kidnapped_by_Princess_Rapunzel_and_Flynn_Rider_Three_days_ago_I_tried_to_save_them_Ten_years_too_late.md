@@ -365,9 +365,11 @@ Before I could stop myself, I stumbled onto the pile and reached for the jacket,
 
 The monster had woken up.
 
-But it didn’t eat me. It was shaking, spitting, making the same sound as my mom’s lawnmower. The red light turned green, followed by a screams. They were deafening, sending me to my knees. It was a girl, her cries rattling my skull. There wasn’t just her scream. The sound of my mom’s lawnmower continued, and I slammed my hands over my ears. I couldn’t hear my own cry. I couldn’t hear it.
+But it didn’t eat me. It was shaking, spitting, making the same sound as my mom’s lawnmower. The red light turned green, followed by screams. They were deafening, sending me to my knees. It was a girl, her cries rattling my skull. There wasn’t just her scream.
 
-But I wouldn’t listen to it. I couldn’t. When her screams died down and the ground stopped shaking, rumbling, the light turned red once again—and I risked a peek between my fingers once again. 
+The sound of my mom’s lawnmower continued. 
+
+But I wouldn’t listen to it. I couldn’t. When her screams died down and the ground stopped shaking, rumbling, the light turned red once again—and I risked a peek between my fingers. 
 
 The conveyor belt was moving, I realised, and on it, bleeding into the dark, was a girl in a dress I recognised. Her screams were replaced with a melodic voice I knew all too well. I’d seen the movie so many times. I recognised her black hair, her pale white skin. Her face was illuminated in eerie light, a wide smile prickling her lips.
 

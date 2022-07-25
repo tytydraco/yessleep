@@ -1,5 +1,3 @@
- 
-
 While writing this , my hands are shaking and i can just hope that this reaches the right audience in time.
 
 So , you hear a high pitch loud scream at 2-3pm ? Well most of the people who had the pleasure of experiencing this phenomenon called the police or tried to look out of the window to see what is going on. But if you like to live , I would suggest you to follow these rules.
@@ -33,3 +31,5 @@ So , you hear a high pitch loud scream at 2-3pm ? Well most of the people who ha
 The "game" ends when the sun starts to raise , then you officially made it and after that there is no need to worry anymore. After the sun raised you will see a note laying on the ground on which is written "-. --- - .... .. -. --. / .. ... / .-. . .- .-.. / -... . / .- .-- .- .-. . / ..-. .-. .. . -. -..".
 
 Good luck surviving in this cruel world. I wish you all the best.
+
+EDIT: I meant am not pm it of course occurs in the night.

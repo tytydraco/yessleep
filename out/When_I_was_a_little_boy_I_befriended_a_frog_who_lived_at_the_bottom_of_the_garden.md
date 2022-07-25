@@ -52,7 +52,7 @@ It sounded like a man, but it wasn't a deep voice like my dad's. It was soft, an
 
 "Down here!" 
 
-There was a frog sitting on my chest, softly croaking. Just a normal, greenish yellow frog with mottled skin. It's mouth was kind of upturned into a smile. A water beetle scurried in front of it and its tongue quickly flicked out to eat it.
+There was a frog sitting on my chest, softly croaking. Just a normal, greenish yellow frog with mottled skin. Its mouth was kind of upturned into a smile. A water beetle scurried in front of it and its tongue quickly flicked out to eat it.
 
 "Excuse me," it said, swallowing it down. I sat up and it hopped off my chest. 
 
@@ -158,7 +158,7 @@ It nodded and turned its head to the pond. "Yes, that's my home. Please come and
 
 I nodded. "Definitely. But I'll have to be careful nana doesn't see me." 
 
-It laughed warmly again. "I understand. Just to be safe, maybe its best if you don't tell nana, or mum, or even Henry Collins about me. They might *not* understand. Does that sound reasonable?" 
+It laughed warmly again. "I understand. Just to be safe, maybe it's best if you don't tell nana, or mum, or even Henry Collins about me. They might *not* understand. Does that sound reasonable?" 
 
 I nodded. "I don't think anyone would believe me anyway." 
 
