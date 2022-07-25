@@ -174,7 +174,7 @@ I won’t go into the rest.  Our divers are all dead.  Some of the tenders are h
 
 And the thing.  The gremlin.  I forwarded the video to my bosses and the Coast Guard.  I don’t know what, if anything, they’ll do about it.
 
-I’ve been staring at the screens for days now.  Barely sleeping.  Barely eating.  Just watching.  Waiting for a glimpse of its lizard scale hide or over-wide eyes.  Because I know it’s on the rig.  One hundred and eight meters of ultra-deepwater, dynamically positioned, semi-submersible offshore drilling machinery. Untold miles of pipes, screws, valves, wires, pumps, and a million other things for it to fuck with.  Ninety-eight souls on board.  Less five, now.
+I’ve been staring at the screens for days now.  Barely sleeping.  Barely eating.  Just watching.  Waiting for a glimpse of its lizard scale hide or over-wide eyes.  Because I know it’s on the rig.  One hundred and eight meters of ultra-deepwater, dynamically positioned, semi-submersible offshore drilling machinery. Untold miles of pipes, screws, valves, wires, pumps, and a million other things for it to break.  Ninety-eight souls on board.  Less five, now.
 
 And oil.  Oh Jesus… The oil.
 
