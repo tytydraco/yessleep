@@ -58,7 +58,7 @@ Command: “Command Houston, this is Command Bravo. Acknowledged. Please stand b
 
 Sound sensors on various nasa instruments, particularly the ones on the Hubble, which was pointed at Othalim-b at the time, picked up what sounded like a chorus of human screams emanating from the black hole. Some on earth even heard the sounds, though the earth’s atmosphere distorted the sound to make it sound like a mix of gutteral roars and divine trumpets. 
 
-The sound caused mass hysteria across Europe that led to panic and mass stampede, with thousands dying in Paris due to people stampeding to find shelter. The volume of the sound was so great even at a distance that is caused cases of severe deafness in Canada, it split the ground in California, and collapsed skyscrapers in Beijing. 
+The sound caused mass hysteria across Europe that led to panic and mass stampede, with thousands dying in Paris due to people stampeding to find shelter. The volume of the sound was so great even at a distance that it caused cases of severe deafness in Canada, it split the ground in California, and collapsed skyscrapers in Beijing. 
 
 World governments were baffled, and it was all across the internet, a video of the sound shaking the air and swaying buildings in Beijing becoming the most watched video not just on YouTube, but on the entire internet, just two hours after being posted.
 
