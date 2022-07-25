@@ -1,0 +1,15 @@
+how do i even start this.. um i’m sure you’re all familiar with the uncanny valley right? that weird psychological phenomenon where you see things that aren’t human but look human and it creeps you out? well about a week ago i was driving on some long stretch of road through the midwest. i was coming home from my sisters farm and i was about six hours into driving when i saw a road sign 
+
+“you’re now entering uncanny valley west” 
+
+what an odd name for a town? the place place itself looked normal. bars, comic stores, churches, i even saw a middle school. but something about it creeped me out. i was low on gas and stopped at a station to refill the tank. when i walked into the connivence store to pay i realised there was nobody to give money to. i looked around before yelling “umm hello?!” but no one answered. the air was still and all i could hear was the hum of the electric lights. i sighed and slipped 40$ on the table. “i’m too tired for this” i thought. 
+
+i kept driving through the town and i stopped at a bar hotel, i couldn’t go on like this. i needed a nap. when i walked into the bar it was surprisingly popular, considering it was 9 pm on a wednesday. the blue neon lights made it look lively. i sat down at the bar and noticed the odd collection of folks in between drinks. the shelf filled with vodka and scotch and whatever they were all separated by dolls. as i was looking at this the bar tender came up to me “howdy, what’ll it be” i stuttered a bit but managed to say “uh can i get a room and a beer” “sure pal, coming right up” 
+
+he wasn’t kidding when he said that. i pulled out 120 to pay and the beer was already there. he was looking down at me and although i couldn’t see him that well his stare felt cold. “120? pshh. on the house. we don’t get many vIsitors” when he said visitors it sounded distorted and also oddly animatronic, but i brushed it off as a voice crack. i started drinking my beer when the bar tender spoke again “so Geoffrey” i didn’t remember telling him my name? eh. my brains fried “what brings u to uncanny valley” he paused “um west” i looked up at him. this was the first time i saw his face. he had thin lips and big ears not to mention the biggest eyes i’ve ever seen. his head was also wide and round and it felt.. eery. “late night stopover” i said vaguely “u should stay a few extra nights”i looked down and didn’t say anything.
+“real estates cheap”
+i looked back up at him and he was staring right at me. “u can join us” that sent shivers down my spine. i started frantically looking around out of instinct and i realised everyone in the bar was staring and they all had the same face. thin lips big eyes big ears.  i swear i also saw the dolls heads move. i grabbed my keys and sped out of there asap. i Immediately reported my paranoias the the police but they didn’t believe me because “uncanny valley west doesn’t exist”
+
+i know what i saw
+
+i hope you guys believe me.
