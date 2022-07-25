@@ -2,7 +2,7 @@ name: Update archive
 
 on:
   schedule:
-    - cron:  '0 */1 * * *'
+    - cron: '0 */1 * * *'
   workflow_dispatch:
 
 jobs:
@@ -12,7 +12,7 @@ jobs:
     steps:
       - uses: actions/checkout@v2
       - uses: dart-lang/setup-dart@v1.3
-    
+
       - name: Install modules
         run: pip install praw
 
@@ -21,10 +21,12 @@ jobs:
           REDDIT_ID: ${{ secrets.REDDIT_ID }}
           REDDIT_SECRET: ${{ secrets.REDDIT_SECRET }}
         run: python main.py
-      
+
       - name: Index
-        run: dart generate_index.dart
-        
+        run: |
+          dart pub global activate inc
+          inc -i index.base.md -o index.md
+
       - name: Push
         run: |
           git config --global user.email "yessleep@github-action-yessleep.com"
