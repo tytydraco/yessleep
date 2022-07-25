@@ -8,7 +8,7 @@ I walked around the kitchen, living room, stairs –
 
 Wait – I stopped so abruptly that I nearly tripped myself.
 
-This house was one story. There was no second floor visible from the outside and I was fairly certain that these stairs were NOT here when I got here, I was sure of it. The staircase looked like it fit with the house, and since staircases don’t appear out of nowhere, I thought maybe I was so nervous that I just losing my damn mind. I decided to check my paperwork – it did say this was a one story. Maybe it was just an attic or crawlspace and I'd missed it before? There was a small landing with just a door at the top. I figured it’d be good to check it out in case I got questions about it.
+This house was one story. There was no second floor visible from the outside and I was fairly certain that these stairs were NOT here when I got here, I was sure of it. The staircase looked like it fit with the house, and since staircases don’t appear out of nowhere, I thought maybe I was so nervous that I was just losing my damn mind. I decided to check my paperwork – it did say this was a one story. Maybe it was just an attic or crawlspace and I'd missed it before? There was a small landing with just a door at the top. I figured it’d be good to check it out in case I got questions about it.
 
 As I stepped through the door, it was like stepping back in time. I also felt pressure in my ears as if I were on an airplane making a landing. 
 
@@ -32,9 +32,9 @@ Something was down there that I needed. It was old, ancient maybe. It needed me,
 
 It felt good to be needed. 
 
-It felt right, descending into the darkness. Its elation was infectious, it vibrated through the air. No, elation isn’t the right work – it was the yearning of something hollow, dangerous, looking to be full. It was needful.
+It felt right, descending into the darkness. Its elation was infectious, it vibrated through the air. No, elation isn’t the right word – it was the yearning of something hollow, dangerous, looking to be full. It was needful.
 
-I was terrified, I knew something horrible was down there, and I kept continuing towards it against my will – in my mind, fear and self-preservation were fighting a losing battle against whatever it was down there that had its hooks in me, pulling towards it. The air was electric with its excitement.
+I was terrified, I knew something horrible was down there, and I kept continuing towards it against my will – in my mind, fear and self-preservation were fighting a losing battle against whatever it was down there that had its hooks in me, pulling me towards it. The air was electric with its excitement.
 
 My foot began to disappear into that horrid, beautiful, foreboding, darkness.
 

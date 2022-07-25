@@ -1,0 +1,29 @@
+
+
+[Previous Chapter](https://www.reddit.com/r/nosleep/comments/v65m30/indigo_bloodchapter_four/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+Well, since my last post, a lot has come to light, and a lot of it may not be very good.
+
+While I’m at it, I may as well bring you all up to speed regarding my grandmother appearing in my grandfather's house. I was finally able to confront her face to face. I was able to look at the old hag who attacked me as a child. I thought I was ready for pretty much anything. Another mind probe, her enraged spirit to come charging towards me screaming, something like that. Let me tell you what I wasn’t prepared for: seeing her translucent form sitting on the old sofa, holding an old photo of her and Grandpa's wedding, a bittersweet smile spreading over her face, and tears running down her cheeks. 
+
+Then she looked up at me, and the hateful, enraged witch encountered by my nine-year-old self was nowhere to be seen. Instead, there was...well, my Grandma. Everything positive you might associate with the word. She stood up and I instinctively flinched, again thinking back to that time. Her response was one of shame. She slowly, cautiously stepped forward--why she needed to step is beyond me--and held her arms open. She didn't force anything, didn't even seem to expect me to return the gesture, but seeming to hope I would.
+
+I’m not ashamed to admit that I cried like a baby when I hugged her. So many years had been spent not knowing who my grandmother was, living in fear of her, only for her to have me at her mercy and hug me as any grandmother would. After spending a minute or so crying in her arms as she tearfully whispered apologies to me, I eventually let go, offering a small smile to her. It was then that she sat me down, then began to explain the details of this whole thing to me. 
+
+The Weavers, as mentioned before, are a hive mind cult, and my grandfather used to lead them. Not only that, but he was the one who created the “Stitching” process that made them into a hive mind, though it had started innocently. Members of the group would “contribute” some of their memories, and allow their conscious minds to be woven together, independent but linked all the same. The idea was to make a process by which people could understand one another better, empathize with them, and create emotional bonds with one another that would put them on equal footing. No conflict, no resentment; everyone would be able to live in peace with each other. The foundation of the Stitching? The book. 
+
+That's why I’ve been able to track other Indigos with it. Anyway, she explained that certain members of the Weavers weren't content with simply creating bonds. No, they wanted--what else?--control, to have people not sharing, but *carrying* their thoughts and goals, adhering to them without question, even believing that they were their own thoughts. The worst offender was a man named Timothy Alberich. Control wasn’t good enough for him, though. He wanted to use Stitching to make “extensions” of himself, move his mind into people's bodies when he was near death. Alberich hypnotized my aunt, 12 at the time, into letting him try to “Weave” one of his followers’ minds with hers, but it ended up being too much for her, and she died. Grandma and I think it was his way of getting back at my grandfather for trying to keep his goals down. 
+
+Long story short, she died, my grandmother went berserk and killed many of them, but Alberich twisted her mind, made her think my grandfather was responsible, and that his next male descendant would serve as his vessel. She attacked my grandfather and he was forced to put her down. Disgusted with Alberich, he tried to kill him, only to find that he had already accomplished his goal of creating “extensions”. Instead of killing him, he took something from his mind and wove it into the book, something needed to perfect the Stitching. My grandfather fled with the book and his remaining daughter, my mom. When she (Grandma) attacked me, it was under the assumption that Grandad had possessed or brainwashed me. I guess my counter-probe was what snapped her out of it. 
+
+When all of this was told to me, I needed time to come to terms with it, which Grandma gave me time to do. I thought I had figured out why they needed the book, but after thinking about that one Weaver whose arm I tore off, it began to fall into place. 
+
+Being one mind with many bodies was useful and all, but it didn't do much good to be in charge of bodies that were on a slow but inevitable path to decay, and the same applied to Alberich’s own body. If he died, the entirety of the Weavers would die, being connected to him. 
+
+Before I could say anything else to Grandma, I saw that she had changed her expression. Now the enraged witch from my childhood was standing in front of me, only this time, her wrath wasn’t directed at me. 
+
+She looked past me out the window, and I didn't need to be told who had arrived. Outside, pale blue eyes glowing in the dark, were thirty or so Weavers, just standing eerily still. I knew why they were here, and I knew why they weren't coming in, not yet. They knew Grandma was here. 
+
+I then heard a voice (or “voices”) speak into my head, causing me to clutch my head in agony. They spoke in a tongue I hadn’t heard before, but somehow recognized as the “psychic Braille” the book was penned in. They said, *Give us the book. Let us all be one.* The people out there just stood, perfectly still, eyes glowing and never blinking. 
+
+I know I can’t give them the book. No, Alberich can’t Stitch my mind thanks to the mind probe, but I can’t let him have the missing piece, whatever it is. I need to learn more about how to use my abilities for combat purposes, that much is certain, because the voices have been getting impatient. Wish me luck, everyone.
