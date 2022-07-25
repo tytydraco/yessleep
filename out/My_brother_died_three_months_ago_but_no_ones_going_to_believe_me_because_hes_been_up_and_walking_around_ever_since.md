@@ -1,3 +1,6 @@
+  
+[Part Two](https://www.reddit.com/r/nosleep/comments/w7zhe4/my_brother_died_three_months_ago_but_no_ones/?utm_source=share&utm_medium=web2x&context=3)
+
 Let me start this by saying that ghosts aren’t real. I can tell you that for absolutely certain, because I’m psychic. That’s not what I actually call myself—I sorta just default to “I do weird shit sometimes”—but, I figured I’d use the most culturally relevant word for clarity’s sake. Or is that “empath” now? I don’t know what the fuck the kids are calling it these days. Anyway, I see dead people. Or at least, I see the things that make our meatsuits work, and I can promise you the only time they are ever visible, audible, tangible, *fathomable*, to anyone—even the people who say they can talk to dearly departed granny for you (and more on *them* later)—are in the seconds it takes for us, or whatever constitutes “us” to leave here, and move on to whatever there is, when we die. That’s it. I don’t think anyone in the year of our lord 2022 would blame anyone for not wanting to stick around, but yeah, this is the one thing I can say for certain: I don’t know if there’s an afterlife, but I do know that human essence leaves, at least in a form we can recognize as a human essence, as fast as fucking possible the moment we die, leaving nothing but a body behind. No one seems to want to stay here after the bar closes, if you know what I mean.
 
 “But, MumNamedMeAfterACar,” you say, “what about those haunted B&Bs that report translucent ladies in white appearing at the tops of the stairs to terrify guests?” Or “wait, but what about that time I saw a man come through my wall?” Not ghosts, kiddies. Sorry about it. They’re either just stories, or, on the rare occasion there’s actually documented activity, well…
@@ -43,3 +46,7 @@ If I don’t update this, then everything is fine. If I do—everything could st
 No ghosts. I promise. Nothing to be afraid of there.
 
 Bodies, however. Those I’m not so sure about.
+
+&#x200B;
+
+&#x200B;
