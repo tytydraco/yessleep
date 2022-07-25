@@ -6,7 +6,7 @@ This continuation to my story about the worst (and also best) job I ever had beg
 
 I lurched into the shower and let the water beat down on my aching flesh until it started to run cold. After I got dressed, I popped some Tylenol, crawled onto the couch, and prayed that I would either start to feel better, or simply die and be released from my suffering. After a while, the agony receded a bit (and I didn’t pass away) leaving me no choice but to haul my poor carcass off the couch and go to work.
 
-The guards at the door seemed especially hostile that evening. I could almost taste their pent-up aggression in the air. As I limped through the big double doors, one of them said, “I’m kinda surprised to see you, kid. Didn’t think you’d be coming back.”
+The guards at the entrance seemed especially hostile that evening. I could almost taste their pent-up aggression in the air. As I limped through the big double doors, one of them said, “I’m kinda surprised to see you, kid. Didn’t think you’d be coming back.”
 
 I grimly ignored him and made my way across the wide, empty expanse of the lobby. Kaz was already waiting at the service entrance, a heavy steel door that was marked EXIT to keep the guests from getting curious about what was on the other side. I checked my watch and shook my head at him in irritation.
 
