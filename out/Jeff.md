@@ -1,4 +1,4 @@
-Hi. I'm Tiffany. I am a sixteen year old girl and I live in a small neighborhood of an anonymous Maine town. I have a little brother named Brian, ten, and Shelley and Tim, my parents. 
+Hi. I'm Tiffany. I am a sixteen year old girl and I live in a small neighborhood of an anonymous Maine town. I have a little brother named Brian, ten years old, and Shelley and Tim, my parents. 
 
 We have many hobbies: my father loves hiking in the mountains, my mother takes care of the lawn, I draw ... Then there is my brother, who loves spending time playing online games, where there are chats with which to converse between users. My mom says he doesn't like it, but my dad isn't of the same opinion. He says that as long as Brian only talks to his friends, there is nothing wrong with that. But overall my parents are both so busy that they rarely check what Brian does in his games. 
 
