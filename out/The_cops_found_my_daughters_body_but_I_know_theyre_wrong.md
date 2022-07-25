@@ -24,7 +24,7 @@ But today is different from the usual. I know from the look on their faces, that
 
 I take a bottle, "*tequila*" says the label, and then I  start drinking and crying. 
 
-My little Lisa, your body is not that they're found, I know. You are with your dad, you and he are very similar, and your eyes are the same as his. Both of you left me alone, and now I'm like this, this sad and lonely woman drunk on her couch, in an empty house.
+My little Lisa, your body is not where they're found "you", I know. You are with your dad, you and he are very similar, and your eyes are the same as his. Both of you left me alone, and now I'm like this, this sad and lonely woman drunk on her couch, in an empty house.
 
 Both of you wanted to escape from me, I gave you all my love and time and like rats, you escaped. You were two ungrateful people. You deserved this. Now that you two are in the depths of the lake where you won't escape from me, tomorrow I will be with you.
 
