@@ -1,0 +1,27 @@
+I'd like to preface this story by warning people that this story does contain light mentions of previous drug use.
+
+About 8 years ago, my boyfriend had this best friend who was going through a divorce. His wife had tired of his bad habits and she had pretty much kicked him out of their house. So, my boyfriend and I agreed that he could come stay with us in our guest apartment for a little while.
+
+Everything was going well with them staying with us, though I was skeptical as to whether or not he had really kicked his bad habits. The fact that he was also constantly trying to go over to his soon to be ex's house to get back with her, alarmed me a little since she probably would have taken him back sooner otherwise.
+
+About 3 weeks or so into him staying with us, my boyfriend and I thought of him being lonely up at our other house and decided to invite him down with us for some margaritas. So we texted him to come down. We waited about an hour or so, but we hadn't heard back yet. We tried calling him after a couple more texts, but still nothing. So, we just figured that he was back over at his ex's house or something. We just eventually decided to go up to the other house to check on him.
+
+Once we arrive back at our other house we noticed that his car was there, so thankfully he wasn't off harassing his wife. We knocked on his apartment door, but he didn't answer there, so we figured he was over at our place next door, chilling in the living room and watching TV, as he often did.
+
+We found him where we thought he'd be as we walked through our front door and into the living room area. But he wasn't sitting on the couch and watching TV like we expected. Instead, he was laying on his side on the living room floor, between the couch and a tall bookshelf. At first, he was laying so still that I honestly wasn't sure if he was unconscious or heaven forbid, dead.
+
+I instantly ran over to him, calling out his name frantically. Relief washed over me when he moved, flailing the arm he wasn't laying on. When I knelt beside him, I could hear him sort of mumbling something that I couldn't make out. As I leaned in order to hear him better though, I realized that his words were incomprehensible and slurred. I knew right then what was happening to him, so I called 911.
+
+I gave the dispatcher our address first and then I informed her that the person I was calling about was having a stroke. Help arrived within 20 minutes, thankfully. He was taken to the hospital and immediately admitted into the ICU. On our way to the hospital, my boyfriend told me about how his best friend had been having small, mild episodes like that over the last couple of weeks. My boyfriend had tried taking him to the hospital, but his friend refused to even go in at all. Because he ignored those warning episodes and didn't seek help, the big one finally hit him. My boyfriend didn't tell me because his friend made him promise not to tell anyone.
+
+He was in the ICU for a little over a day when I happened to be driving by the hospital during work, so I stopped to visit him. I did in home care then and I wore scrubs to work, often with my keys on a lanyard around my neck, which happens to look exactly as a nurse at the hospital would look. I was so used to dressing like that everyday for work, that the thought of me looking like one of the nurses didn't even occur to me as I ring the bell to be let into the ICU.
+
+Just as a nurse was coming to the door to let me in, I happened to look over and I noticed a woman standing in the window to a waiting room on my left. She had medium colored frizzy hair that fell just past her shoulders. But it was her eyes that I'll never forget. They were dark, with this intense sorrow and fear in them. The worst part about those sorrowful eyes peering through that plexiglass window at me though, were the large dark circles underneath them. To this day, I've never seen dark circles like that. Somehow I knew right then, that it was the guy's wife.
+
+I walked into the ICU following the nurse and came upon my boyfriend's best friend, awake and restless and fidgeting in his hospital bed. He was trying to pull his catheter tube out and the nurse had to stop him. The nurse injected something into his IV line, then gave me an assuring not as she turned to leave the room.
+
+I said all the right things that I knew to say. I told him I was sorry for what he was going through and that I sincerely hoped he'd get better. Then I said goodbye and left as he was starting to drift off. As I was leaving the room, the nurse was leading the woman into his room that I had noticed upon entering into the ICU. Before I reached the ICU's main doors, I heard the woman began to sob as the nurse informed her that her husband was in fact, positive for drugs.
+
+He died the next day, unable to recover from the major stroke that he had suffered. Drug abuse over years and years had finally done him in. That utterly sorrowful and terrified look and his wife's eyes is something that will stay with me forever as I fear I may have been the last person to speak to him when he was conscious. I blame the fact that I was wearing scrubs and a lanyard for me getting let in to see him first. I really didn't mean for that to happen, I honestly didn't.
+
+I guess I wrote this story as a reminder to all that the consequences of damaging your life and body not only affects you, but also those around you who love and care for you.
