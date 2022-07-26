@@ -246,7 +246,7 @@ I took in a big breath. "Oh yes, and I have a name already. A good one!"
 
 It's little mouth smiled again. "Oh my, I can't wait to hear it." 
 
-My nana and I used to watch a particular film together, quite a lot. As a kid, I loved it. I need you to remember that. I was kid. Because it's a *bad* film. But kids aren't as critical, and cynical as adults. They can see past the flaws and focus on the best bits. That's my excuse anyway. 
+My nana and I used to watch a particular film together, quite a lot. As a kid, I loved it. I need you to remember that. I was a kid. Because it's a *bad* film. But kids aren't as critical, and cynical as adults. They can see past the flaws and focus on the best bits. That's my excuse anyway. 
 
 *King Solomon's Mines*. 
 
