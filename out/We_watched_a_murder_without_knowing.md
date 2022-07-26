@@ -1,0 +1,13 @@
+Last summer me and my friends went to summer camp. Everything was normal for the first three days. We did our activities, made dens and overall just had a really good time. On the third night however, things were VERY different.
+
+We were in our dorms chilling for the night. At around 11pm we heard a noise coming from outside. We brushed it off thinking it was the foxes again as they do this every night. Then we heard a blood curdling scream. We all looked over to our window and started to move towards it. My friend Tom grabbed the camp walkie talkie incase we needed to call the camp security. As we got to the window we looked out and was shocked.
+
+There, standing less than 5 feet away from our cabin window were two men, one holding something in his hand. We couldn’t see much through the window as it was cold that night and so things were fogged up. We decided to go outside to get a better look. We all got on our coats and shoes and went out the door. As we began to turn the corner to see what was happening we all stopped at the same time.
+
+We looked at each other and said, “you feel it too huh?” Something just was telling us all to get out of there now. We wanted to look but as soon as we turned the corner we all felt this invisible force pushing us back. We all agreed to listen to our gut and go back inside the cabin. From what we saw though, we thought it was best to call camp security to be on the safe side. They told us they will be 10 minutes.
+
+Whilst we waited we looked through the fogged up window. The two men looked to be fighting and all of a sudden one stopped moving and fell to the ground. The other man dropped whatever object he was holding and knelt down beside the other man. Then he leaned over him and began to bite him. We looked at each other in disgust. Once we looked back though, he was gone. We shivered. Something was off.
+
+As we looked through the window trying to see where he had gone a piece of paper was thrust onto it. It had 4 words on it: I know you saw. It was as we looked closer we saw it wasn’t written in pen…it was written in blood. We all stood their frozen in fear. The piece of paper was then removed and a creature with nothing but a black face and metal jaw covered in blood stood behind it. The creature looked through the window, staring at us. It then put its finger on its lip and made a quiet sign, then walked off. 
+
+The next morning we found out that the guy who had fallen over was killed by a creature…the creature we stared at. The creature had made a hole in the guys body and ripped out the heart…

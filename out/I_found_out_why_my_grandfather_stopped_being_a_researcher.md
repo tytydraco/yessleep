@@ -1,17 +1,3 @@
-~~It's a sick story about human torture.~~ Somebody must have hidden the old book deep within the crate. When I first saw it, I felt nothing but a sense of curiosity. Now, I can't help but wonder if the contents are true. It makes me ask what else the government is hiding from me.
-
-My family lived in the same house for years now. Before me, it belonged to my father, and before him, it belonged to his father, and so on. It was purchased early in the 19th century and refurnished around the end of the 20th century.
-
-Shortly after my father died, the house became mine. He'd been stuck to the hospital for three years and his death wasn't surprise. I'd gotten most of my grief and goodbyes out then, so when it eventually happened I found a dull ache in my heart, but not a lot of pain.
-
-The whole ordeal made me forget about the house. It was never something we brought up, nor anything I thought over. I moved to the Netherlands in my twenties, and I had no intentions of going back.
-
-I was free to do as I pleased with the house. I didn't have any other siblings, and my mother passed away a few years back. Yet, it seemed I wasn't alone in my thoughts when I decided what to do with the old place.
-
-I know it was completely in my head, but I couldn't shake off the dull feeling there. The best way I could describe it was the opposite of nostalgia, not the notion but the sensation you'd get from it. When I looked around the house, seeing the same things I'd seen as a child, I found myself thinking that it was too late, and that this belonged in the past.
-
-I decided to sell it, but before I did that I wanted to look through the cellar and the attic. As the house was old, I wondered if I'd find anything of hidden worth in it. Perhaps an old painting or jewelry that had been forgotten.
-
 I found the book in the corner of my attic. It was hidden at the bottom of a wooden box filled with cables. I really do think somebody went out of their way to make it as hard as possible to spot. It begged the question why they didn't simply destroy it.
 
 Three hundred yellow pages connected to the black rim of the book. The cover had been signed. I saw that it belonged to my grandfather, Arthur Williams. He'd passed away when I was still a child, yet I'd seen a few portraits and old pictures of the man. He had been a respected scientist, and in every picture he carried a stern look, only aided by his thick black mustache. His name intrigued me to read further.
