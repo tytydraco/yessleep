@@ -144,3 +144,4 @@ Slowly I pulled out my phone and put it to my ear, “did you hear that?”
 “I did, I need you to come down at the station, now.” he said in his demanding voice. 
 
 I hung up and as soon as I knew I wasn’t going to deal with some vine thing, I hurried and started the engine as quickly as possible and pulled away from the diner’s parking lot. before long I was halfway to the station, but I felt like was being watched now, not by the man in the hoodie but by the forest. I felt like the tree’s overhead were watching me like some guards waiting for me to make a move. This almost felt like when my parents died, I gripped my hands on the steering wheel and kept going.
+[Part4](https://www.reddit.com/r/nosleep/comments/w87wm8/13_radio_tower_tapes_missing_adam_pt4/?utm_medium=android_app&utm_source=share)
