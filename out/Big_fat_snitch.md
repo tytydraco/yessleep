@@ -1,4 +1,3 @@
-(Authors note, all my stories are written on mobile, so my apologies for typos!)
 
 Our house has been like this ever since mom left. Quiet, creepy, calm, repeat. She left with a realtor she’s been seeing- or whatever, i couldn’t give less of a crap.
 
