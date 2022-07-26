@@ -1,0 +1,31 @@
+My mother’s house is haunted, I know this as a fact. It was built in the 1930s in a very rural area. Even as a young child, I’ve always been able to interact with the spirits there. Not all the time was it audible conversation, it could be as simple as opening my closet and seeing a face peering at me through my clothes. Or it was the feeling of being watched by a curious spirit, hearing the giggling of a child that wasn’t there, or seeing a person that no one else seemed to know was standing right next to them.
+
+I mostly left them be, and they’d do the same. Of course, no one in my deeply religious family believed me until I described, none other than, my (also deeply religious) great-great grandmother - whom I’ve never seen. They say she spent hours upon hours praying so loud, you could hear her from outside. I think they kind of just brushed it off as me having an active imagination, though. 
+
+It had been a few years since I had an encounter, until the beginning of this year. The bathroom was being renovated, and the spirits were awoken. The latest spirit tied to the house joined the rest in 2018, and could only be described as malevolent. I know this, because I know the man he used to be; truly evil and scary at times, even when he was alive.
+
+For months, I felt uneasy in my own home. I was being watched - even in the shower, and touched by no one at random times. I heard thumps and creaks that seemed much more amplified at night. I was hardly ever able to use the bathroom at night, as I felt heavily unwelcome in there - even during the day. I only ever felt somewhat safe in my room, but never completely.
+
+It had been a few days since I’d been able to sleep properly, or at all. I kept tossing and turning in my bed, unable to get comfortable. I guess I finally managed to doze off, because suddenly I was in a large, dimly lit corridor. The light came from only one source: the end of the corridor.
+
+I reluctantly followed the two walls, which stretched up farther than I could see with the low light. As I got closer to the light source, the walls narrowed closer together, making my path grow smaller, until it was that of a normal hallway. The light grew brighter, but it wasn’t blinding. Instead it was more of a warm yellow, and there was a room where it was coming from. 
+
+As I stepped into the room, the walls towered over me again; this time flooded with the warm light as far as the eye could see. The room was cylindrical, and massive. Inside the room was a single figure, I crept closer to get a better view. Their back was facing me, and I could only see a hooded grey robe that cascaded to the floor. “I have been waiting for you, traveller; watching from a distance, waiting for the moment we meet again.” A man’s voice filled the entirety of the room.
+
+I was caught off guard, frozen in my tracks. Again? I scoured every part of my memory, trying to remember the man, or this place. “There is no point in trying, for you won’t find what you seek. I made sure of that. We never meet twice in one lifetime, and you will only remember when you truly need to.” He said, almost like he could read my thoughts. I was confused. Twice in one lifetime?? How many times had I been to this place? Why will this be my final time?
+
+“Who are you, what do you want with me?!” I managed to yell. He turned slowly, his voice continuing to fill the massive room. “Who I am - my name - is not important. I am only here to help,” we were now facing each other, but I couldn’t see a face in the hood of his robe. “You only need to know that this will be our final meeting.” He sounded almost.. saddened by this. 
+
+“Final? Why am I even here?” I asked, this time calmer but still uneasy. “I am here to warn you.” His voice sounded worried now. “You need to leave the place your body is resting as soon as possible, for I fear your safety is coming to an end.  I have seen your past, present, and future -  and I fear that your time in the mortal realm is coming to an end.“ 
+
+I was left speechless, unable to understand the information the faceless man had just given me. He said nothing else for a few moments, giving me time to process. He turned away from me again, leaving me to my thoughts.  Finally, I was able to compose myself.
+
+“How do you know that I can see spirits? That’s not something I go around telling people. Besides, the spirits around me aren’t going to hur-“ he raised one hand, interrupting me before I could finish. “That was before, when the spirit of your great grandmother was able to control the newest one of the collection. Recent events have caused him to grow restless and angry.” Of course… the renovations…
+
+“He was an evil man, and an even more so in death. Of course, you already know this. You could sense it all along, surely you have felt his attacks..” His voice sounded sad again. It was true, I have been feeling them. He turned to face me again. “Our time here is nearly over, I must return you to your body soon. This time will be different; you will remember this meeting, but you will think of it as merely a dream.
+
+“Only when you are in mortal danger will the entirety of our meeting be revealed again.” There was that word again: mortal. I stayed quiet, confused by what he had just said. “It is time for you to return. Goodbye, my pet.” He embraced me, and I woke up dazed from my night’s rest. The sun was up, and I could just barely remember the weird dream I had. 
+
+That was a few months ago, I’ve since moved out of my mother’s house. (not due to the faceless man’s warning, as I’d forgotten at that point - but just because I felt it was time.) It’s been 2 months, and everything was fine at first. I’ve had no encounters with spirits so far, and doubted that I would - until this week. 
+
+I’m writing this, because I remember now my final meeting with the faceless man. I fear the worst, as I’ve been hearing thumps and creaks in the night. I feel someone watching me, even while I shower. I’m being touched by no one at random times. I feel uneasy using the bathroom at night. I only feel safe in my room, but I fear that will soon change too.

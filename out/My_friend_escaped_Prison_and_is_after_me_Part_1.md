@@ -22,7 +22,9 @@ So, we just winged it and ran out, we were running for a bit when we realized we
 
 And then suddenly I felt frozen, like the temperature dropped from 66 Fahrenheit to below freezing and before I could react I was standing in front of the playground.
 
-"What happened?" Matt Asked.Why are you asking me? I have no clue you idiot" I replied
+"What happened?" Matt Asked.
+
+"Why are you asking me? I have no clue you idiot" I replied
 
 "Oh, yeah fair point you are pretty dumb" Matt said
 
@@ -32,15 +34,11 @@ And then suddenly I felt frozen, like the temperature dropped from 66 Fahrenheit
 
 "Oh, yeah were back" Matt said
 
-"Aun, If they ask what happened don't tell them anything, also come on over today we gotta see what happened today, it was pretty weird" Matt whispered,
+"Aun, If they ask what happened don't tell them anything, we gotta see what happened today, it was pretty weird" Matt whispered,
 
-"Ok, when do you want me to come?" I asked.
+"Ok" I Said.
 
-"Around 7 O' clock, ok?" he asked.
-
-"Alright, I'll come over" I replied.
-
-After we left the park it was around 4:30, so I just went home and played some games and talked to my friends, when it was getting around 6:30 I left home and started heading to Matt's house when I heard a voice.
+After we left the park it was around 4:30, so I just went home and played some games and talked to my friends, when it was getting around 6:30 I decided to head to Matt's place to figureout what happened earlier today when I heard a voice.
 
 "Don't go to his house, he's planning something that includes you" The voice said.
 
@@ -48,9 +46,13 @@ After we left the park it was around 4:30, so I just went home and played some g
 
 "I'm Nick, the savior of kids like you, and trust me you will regret it later on" Nick replied.
 
+"Ok So? Why should I listen to you?" I asked Nick
+
+"Listen to me this once Aun, if I turn out to be wrong you can ignore me later on in life" Nick said
+
 "All right, I'll trust you this one time but if you're lying I won't trust you again" I told Nick
 
-"Ok, child go home now" Nick demanded.
+"Ok, Aun go home now" Nick demanded.
 
 And just with that I was headed home again. But it wasn't that bad staying home and relaxing was fun even though Matt was mad at me, I didn't really care but he was mad-mad for some reason, I didn't know why but then I remembered what Nick said, maybe he was right, and he could've just saved me from some trouble.
 
