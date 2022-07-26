@@ -33,3 +33,7 @@ The "game" ends when the sun starts to raise , then you officially made it and a
 Good luck surviving in this cruel world. I wish you all the best.
 
 EDIT: I meant am not pm it of course occurs in the night.
+
+yours , 
+
+White
