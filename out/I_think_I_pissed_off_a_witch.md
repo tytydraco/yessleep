@@ -46,4 +46,6 @@ Tues, June 26
 
 My wife isn't feeling well today, so there probably won't be much update. 
 
-I did think to post the note here, maybe someone could read it. It's not in my pants, so I'll update later once I get it from my truck.
+I did think to post the note here, maybe someone could read it. It's not in my pants, so I'll update later once I get it from my old truck.
+
+I found another couple interested in the house. Doing a walkthrough tomorrow evening. I want this property off my back, and if someone will just pay cash outright for it, that would be great.
