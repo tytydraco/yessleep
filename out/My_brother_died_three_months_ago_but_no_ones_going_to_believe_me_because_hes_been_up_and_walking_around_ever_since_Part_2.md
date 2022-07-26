@@ -1,6 +1,6 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/w73sxc/my_brother_died_three_months_ago_but_no_ones/?utm_source=share&utm_medium=web2x&context=3)
 
-I was really hoping I wouldn’t have to update this today. Max is definitely dead. I’m currently sitting in my car at a JavaStop stealing wifi and avoiding my sister’s calls. I texted her this morning and told her that something came up at work, and suggested I pay for a taxi service to bring Max—or whatever that *thing* is—home. Jamie used periods in her brief responses to me, so I know I’m in trouble whenever I decide to show up tonight. *If* I decide to show up tonight. I think her girlfriend volunteered to make the trip instead—they’ve only been together six months so it’s probably going to be awkward. But awkward beats horrifying and that’s what it would’ve looked like had I gone.
+I was really hoping I wouldn’t have to update this today. Max is definitely dead. I’m currently sitting in my car at a JavaStop stealing wifi and avoiding my sister’s calls. I texted her this morning and told her that something came up at work, and suggested I pay for a taxi service to bring Max—or whatever that *thing* is—home. Jamie used periods in her brief responses to me, so I know I’m in trouble when I decide to show up tonight. *If* I decide to show up tonight. I think her girlfriend volunteered to make the trip instead—they’ve only been together six months so it’s probably going to be awkward. But awkward beats horrifying and that’s what it would’ve looked like had I gone.
 
 There are two things I now know for sure: There is something very wrong with this new Max.
 
@@ -66,7 +66,7 @@ And then he pulled a Nokia—a fucking *Nokia—* out of the pocket on the front
 
 I had been feeling pretty weirded out by this point, but it was the wink that pushed me from slightly freaked to full-on afraid. It reminded me of Max on the gurney back in March.
 
-Still, I ignored the sinking feelings in my gut telling me to *walk away,* I took the Nokia from him. And that’s when I caught his nametag: J. Fairweather.
+Still, ignoring the sinking feelings in my gut telling me to *walk away,* I took the Nokia from him. And that’s when I caught his nametag: J. Fairweather.
 
 I froze. There was no way. A coincidence, surely.
 
@@ -78,7 +78,7 @@ Shaking now, I put the phone to my ear. “H-hello?”
 
 No. The voice on the other end of the call was Max. I scrunched my eyes closed.
 
-“What are you talking about?”  Was all I could muster.
+“What are you talking about?”
 
 “*James! The day at the picnic! I thought for sure you’d remember him, he leaked all over you!”*
 
