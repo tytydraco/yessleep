@@ -28,4 +28,4 @@ I was left speechless, unable to understand the information the faceless man had
 
 That was a few months ago, I’ve since moved out of my mother’s house. (not due to the faceless man’s warning, as I’d forgotten at that point - but just because I felt it was time.) It’s been 2 months, and everything was fine at first. I’ve had no encounters with spirits so far, and doubted that I would - until this week. 
 
-I’m writing this, because I remember now my final meeting with the faceless man. I fear the worst, as I’ve been hearing thumps and creaks in the night. I feel someone watching me, even while I shower. I’m being touched by no one at random times. I feel uneasy using the bathroom at night. I only feel safe in my room, but I fear that will soon change too.
+I’m writing this, because I remember now my final meeting with the faceless man. I fear the worst, as I’ve been having trouble sleeping. I’ve been hearing thumps and creaks in the night. I feel someone watching me, even while I shower. I’m being touched by no one at random times. I feel uneasy using the bathroom at night. I only feel safe in my room, but I fear that will soon change too.
