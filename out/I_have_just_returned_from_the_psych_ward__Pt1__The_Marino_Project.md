@@ -28,3 +28,5 @@ Nobody believed me. I got so upset about that, I attacked a politician when I to
 Nobody looked at it. Nobody thought it was real. Everyone says it a birth mark. I know it’s not. How could that be a birth mark? I know what I’ve seen is true. 
 
 I don’t know if I can take it anymore. I’m going to go find that thing. And I will get revenge.
+
+Part 2: https://www.reddit.com/r/nosleep/comments/w8qv9r/the_leak_pt2_the_marino_project/?utm_source=share&utm_medium=ios_app&utm_name=iossmf

@@ -1,3 +1,5 @@
+Mon, June 25
+
 I don't know if I even believe this myself. I feel like I'm going insane.
 
 My wife and I house flip. We buy a house, empty it out, pretty it up, and sell it. We bought a house in Jan of 2019 for a little under 28000. It had asbestos ceiling, so we had it torn out and the house emptied out, but we can't do as much as we used to. We were about to have to take a hit on this house, but we found a young couple woth kids that wanted to owner finance. We got them to sign for 90000, which was great. They paid deposit and have been paying monthly.
@@ -38,3 +40,10 @@ There's a bunch more, but you get the picture.
 When we were doing yet another walk through yesterday, the not-buyer picked up a folded piece of paper off the window sill and handed it to me. The top was covered in black wax. It was just a paper with more random symbols on it. I apologized to the not-buyer and explained I thought I'd cleared everything out, and stuck it in my pocket.
 
 I don't believe in this stuff. I don't believe in this.
+
+
+Tues, June 26
+
+My wife isn't feeling well today, so there probably won't be much update. 
+
+I did think to post the note here, maybe someone could read it. It's not in my pants, so I'll update later once I get it from my truck.
