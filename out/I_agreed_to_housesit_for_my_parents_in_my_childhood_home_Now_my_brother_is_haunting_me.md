@@ -277,3 +277,5 @@ She looked at me quizzically, and the question hung in the air for a few minutes
 I'm not sure if anyone noticed the strange woman getting out of my truck bed.
 
 I hate to cut off the story here, but I have to take care of some things before heading to the airport tonight. I promise I'll fill you in on my conversations with the creature and my uncle as soon as I get a chance!
+
+[the final part](https://www.reddit.com/r/nosleep/comments/w9fgga/i_agreed_to_housesit_for_my_parents_i_think/?utm_medium=android_app&utm_source=share)
