@@ -46,7 +46,7 @@ I could see Stapleton shift a bit with what seemed like discomfort.
 
 Stapleton scoffed, “You could call him that.” 
 
-I watched the men move around my boat for a good thirty minutes before Dr. Stein and his assistant Nicole Jenson showed up. It was at that point that I started to actually wonder if we weren’t overloading my boat. Stein was another tall dark headed man. His hair was combed back neatly, and he had a thin black mustache on his upper lip. He wore a pair of cargo shorts and a Hawaiian themed polo shirt. Despite his flashy appearance. He didn’t say much when he stepped on the boat. 
+I watched the men move around my boat for a good thirty minutes before Dr. Stein and his assistant Samantha Nicole Jenson showed up. It was at that point that I started to actually wonder if we weren’t overloading my boat. Stein was another tall dark headed man. His hair was combed back neatly, and he had a thin black mustache on his upper lip. He wore a pair of cargo shorts and a Hawaiian themed polo shirt. Despite his flashy appearance. He didn’t say much when he stepped on the boat. 
 
 “Mr. Stein.” Stapleton greeted. 
 

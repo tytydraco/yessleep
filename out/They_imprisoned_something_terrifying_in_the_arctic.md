@@ -66,17 +66,21 @@ I’d heard the name before. The man was supposedly a genius, a real marvel with
 
 “Not for six years.”
 
-“Suit yourself.” He lights it up and takes a deep drag. For the first time, I notice the dark bags beneath his eyes, the lines infesting his cheeks, his forehead. Raens looks like a man at the end of his rope. Exhausted.
+“Suit yourself.” He lights it up and takes a drag. For the first time, I notice the dark bags beneath his eyes, the deep lines infesting his cheeks, his forehead. Raens looks like a man at the end of his rope. Exhausted.
 
-“Never used to smoke,” he tells me, pocketing his lighter. “Bad habit with no real upsides, but then I got posted here and it was like I needed something– anything to look forward to.” He breathes out a plume, shaking his head. “Cigarettes became my breath of fresh air. Ain’t that funny?”
+“Never used to smoke,” he tells me, pocketing his lighter. “Bad habit with no real upsides, but then I got posted here and it was like I needed something, anything to look forward to.” He breathes out a plume, shaking his head. “Cigarettes became my breath of fresh air. Ain’t that funny?”
 
-“A little. So, that’s it then? You and I are stuck out here guarding some… mad scientist?”
+“So, that’s it then? You and I are stuck out here guarding some… mad scientist?”
 
-“We’re not here to guard shit. We’re contingencies.”
+“We’re not here to guard anybody. We’re contingencies.”
 
 “For what?”
 
-“Subject 21. If it escapes, we do our best to slow it down and buy time. Then we die.”
+“Subject 21. If it escapes, we do our best to slow it down and buy time."
+
+"Then what?"
+
+Raens shrugs. "Reckon we just die."
 
 I open my mouth, but the words are still trying to catch up to the conversation. “Hold on. What's Subject 21?”
 

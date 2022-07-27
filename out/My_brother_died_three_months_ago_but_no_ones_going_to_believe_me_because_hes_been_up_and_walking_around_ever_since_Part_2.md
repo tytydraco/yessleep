@@ -1,5 +1,7 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/w73sxc/my_brother_died_three_months_ago_but_no_ones/?utm_source=share&utm_medium=web2x&context=3)
 
+[Part Three](https://www.reddit.com/r/nosleep/comments/w911pj/my_brother_died_three_months_ago_but_no_ones/?utm_source=share&utm_medium=web2x&context=3)
+
 I was really hoping I wouldn’t have to update this today. Max is definitely dead. I’m currently sitting in my car at a JavaStop stealing wifi and avoiding my sister’s calls. I texted her this morning and told her that something came up at work, and suggested I pay for a taxi service to bring Max—or whatever that *thing* is—home. Jamie used periods in her brief responses to me, so I know I’m in trouble when I decide to show up tonight. *If* I decide to show up tonight. I think her girlfriend volunteered to make the trip instead—they’ve only been together six months so it’s probably going to be awkward. But awkward beats horrifying and that’s what it would’ve looked like had I gone.
 
 There are two things I now know for sure: There is something very wrong with this new Max.
