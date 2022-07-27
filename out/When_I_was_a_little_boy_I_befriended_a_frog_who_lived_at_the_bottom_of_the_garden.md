@@ -482,7 +482,7 @@ He shook his head. "Not if you're fast. And clever. I *know* you're clever."
 
 I started crying again. "But I'm just a little boy." 
 
-Solomon sighed. "Oh, little one. I wish I could hug you. You're so much more than *'just a little boy'*. Before I met you, I was just a little frog. But you made me special, because *you* are special. Believe in yourself, little one." 
+Solomon sighed. "Oh, Ben. I wish I could hug you. You're so much more than *'just a little boy'*. Before I met you, I was just a little frog. But you made me special, because *you* are special. Believe in yourself, little one." 
 
 I mustered a small smile and stroked Solomon on his back. "We make each other special, don't we?" 
 
