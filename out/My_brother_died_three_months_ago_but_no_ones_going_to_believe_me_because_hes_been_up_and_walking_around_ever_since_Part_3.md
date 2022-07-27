@@ -138,6 +138,6 @@ But if any of you read my story, and take me seriously, remember this:
 
 There is no such thing as ghosts.
 
-But there are such thing as warnings.
+But there are such things as warnings.
 
 If you’re lucky enough to get them from time to time, listen. One of them may be your last chance.
