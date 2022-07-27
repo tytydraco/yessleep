@@ -16,7 +16,7 @@ We make it a tradition to eat at every new restaurant that opens in our town, so
 
 It was your typical Italian-American restaurant--pictures of rosy-cheeked chefs on the wall, those red and green plastic cups, and table cloths that were somehow sticky despite the restaurant being new. Jackson grabbed one of the menus, and I saw his face screw up. As the restaurant's name implied, spaghetti was the only thing on the menu. 
 
-I ordered a standard spaghetti and meatballs for the both of us and watched with unwavering amusement at Jackson's waning enthusiasm. The food was finally set down in front of us, and I pursed my lips. Mediocre. "Looks like this one is another dud, huh?" I said after the first bite. Jackson didn't say anything, and I looked up at him...
+I ordered a standard spaghetti and meatballs for the both of us and watched with amusement at Jackson's waning enthusiasm. The food was finally set down in front of us, and I pursed my lips. Mediocre. "Looks like this one is another dud, huh?" I said after the first bite. Jackson didn't say anything, and I looked up at him...
 
 He was crying.
 
@@ -38,7 +38,7 @@ I know what you're thinking but I honestly couldn't do anything to stop him. I t
 
 One night, when Jackson was down on another pasta coma, I snuck downstairs to his laptop. I've never been one to invade his privacy, but I can't bear to see him go on like this. I opened his laptop only to be met with a lock screen. He'd never needed one before, always the "I got nothin' to hide," kinda guy. I swallowed and tried my name, then my birthday, then his birthday. I typed in Teddy's for the last attempt and sure enough, it worked.
 
-His desktop was just filled with folders and documents, and his search history wasn't any better. Words like Pastafarianism and Flying Spaghetti Monster were littered throughout his history. He'd been on forums talking with other people who'd "found the light," and were looking to "disentangle themselves," I looked at the documents spread across his desktop, and it was more of the same. Manifestos and hymns all to this... Flying Spaghetti Monster. 
+His desktop was just filled with folders and documents, and his search history wasn't any better. Words like Pastafarianism and Flying Spaghetti Monster were littered throughout. He'd been on forums talking with other people who'd "found the light," and were looking to "disentangle themselves," I looked at the documents spread across his desktop, and it was more of the same. Manifestos and hymns all to this... Flying Spaghetti Monster. 
 
 I shut his laptop and tried to stay quiet as I climbed back upstairs to bed. Jackson was still sound asleep, but I was wide awake for the rest of the night.
 
@@ -46,7 +46,7 @@ I noticed his stomach when he got into bed the other night.
 
 It was bloated and bulging, and he got into bed with a wince. Then it hit me. "Honey..." I started, placing a hand on his thigh, "When was the last time you used the bathroom?" I asked tentatively. Jackson just shook his head, "I can't do that, Mikey." he said, "my body is a temple; I need to ensure it remains full and pure." he said. I shot him a look, "Jackson, no, get up and go use the restroom now. This isn't good for you." I said, feeling like I was scolding a child.
 
-He shook his head, "Didn't you hear what I said, Michael?" he said using my full name, something he only did when he was irritated. "This temple... I cannot taint it," he stated. I blinked at him and looked into his eyes, searching for signs of joy. But all I found was cold determination. I nodded slowly and turned.
+He shook his head, "Didn't you hear what I said, Michael?" he said using my full name, something he only did when he was irritated. "This temple... I cannot taint it," he stated. I blinked at him and looked into his eyes, searching for any signs of mirth. But all I found was cold determination. I nodded slowly and turned.
 
 Time drug on slowly after that, and I watched as Jackson grew sicker and sicker with each passing day. Jackson had been withdrawn before, but soon he'd stopped talking to me completely. And I swear I could hear him muttering words like 'heretic' and 'false worshipper' under his breath. He stopped going to work and spent most on his laptop or at Teddy's. He'd started sleeping on the couch too...
 
@@ -54,7 +54,9 @@ Last night, I decided that I'd had enough. I went downstairs to Jackson to find 
 
 I'd never seen him like this before.
 
-He stood abruptly, and I took a step back. "Why did you do that?" he asked drawing closer, and I struggled for an answer. "You're not yourself anymore," I said as I backed past the staircase into the kitchen. Jackson smiled all teeth and said, "I've never been more myself--hell more alive than I have been these past few months." he said. He crossed into the beam of the kitchen light and I saw him for what felt like the first time in a while. His eyes were sunken and bloodshot, the strainer on his head was covering his matted unwashed hair, and his stomach was bulging in a way that looked painful and just... wrong. I felt tears well up in my eyes as his smile dropped into a scowl. "I'm about to be reborn, we all are," he said, spreading his arms out at his sides "and you heretics will live in our world or perish!" he yelled.
+He stood abruptly, and I took a step back. "Why did you do that?" he asked drawing closer, and I struggled for an answer. "You're not yourself anymore," I said as I backed past the staircase into the kitchen. Jackson smiled all teeth and said, "I've never been more myself--hell more alive than I have been these past few months." he said.
+
+Jackson crossed into the beam of the kitchen light and I saw him for what felt like the first time in a while. His eyes were sunken and bloodshot, the strainer on his head was covering his matted unwashed hair, and his stomach was bulging in a way that looked painful and just... wrong. I felt tears well up in my eyes as his smile dropped into a scowl. "I'm about to be reborn, we all are," he said, spreading his arms out at his sides "and you heretics will live in our world or perish!" he yelled.
 
 What happened next happened lightning-fast and slow at the same time.
 
