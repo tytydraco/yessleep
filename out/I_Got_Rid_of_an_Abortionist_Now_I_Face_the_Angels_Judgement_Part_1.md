@@ -18,9 +18,9 @@ I went to church.
 
 I contributed to the community.
 
-I fought tooth and nail to protect the innocent and the defenseless!  
+I fought tooth and nail to protect the innocent and the defenseless!
 
-I’m going to go slowly because I want all of you to understand, as I write this: I know *now* what I did was awful. 
+I’m going to go slowly because I want all of you to understand, as I write this: I know *now* what I did was awful.
 
 I know it now because I can see, with 20/20 hindsight, where I was misled.
 
@@ -34,19 +34,19 @@ Firstly: I am against abortion. I make that obvious with my bumper stickers and 
 
 But I took it too far. I fell in with the wrong people.
 
-I was in a chatroom on our private ‘Army of God’ website (That’s the wrong crowd I mentioned).  
+I was in a chatroom on our private ‘Army of God’ website (That’s the wrong crowd I mentioned).
 
 Sal was the man who had gotten me into this group. I met him when I was protesting outside an abortion clinic.
 
 With a tan suit, crocodile leather shoes and a walking stick that had a crescent moon ornament on the top, he looked like a preacher.
 
-He introduced himself as “Sal Lous,” and on the Online Army of God website, I knew him by Sal19\_72\_30L.  
+He introduced himself as “Sal Lous,” and on the Online Army of God website, I knew him by Sal19\_72\_30L.
 
 Sal helped me in so many ways to ‘Protect Babies’ and maybe I should have taken my ‘Pro-Life’ stance a bit more literally, but… Let us just say he helped me ‘Get Rid’ of an abortion doctor in my local area.
 
 We had planned to drive him out of town and business and we had done that. However, the fallout was something that I wasn’t ready for.
 
-It had been a few weeks since the abortionist had left and I was getting ready for my morning shopping. 
+It had been a few weeks since the abortionist had left and I was getting ready for my morning shopping.
 
 I had just gotten into my car and pulled out of the driveway when I spotted a black car driving down the street in my rear-view mirror. I had never seen this car before, but as it drove closer and closer, I realized something was amiss.
 
@@ -58,7 +58,7 @@ Luckily I had my seat belt, but the airbags had deployed and I was battered, bru
 
 My ears were ringing as I pushed myself away from the deflating airbag, dust filled the cabin and I coughed.  I tried to roll down the window, only to discover it had shattered.
 
-The car had spun around, facing the other direction entirely now, as I realized the other vehicle, though damaged, was still running.  
+The car had spun around, facing the other direction entirely now, as I realized the other vehicle, though damaged, was still running.
 
 A rev of a battered engine filled my ears as my eyes locked on those of the crazed driver.
 
@@ -76,13 +76,13 @@ Not right away.
 
 My car tumbled and I screamed as I felt myself get tugged right, left and center by the seat belt whipping me around.
 
-Glass peppered my body. My skin was cut, stabbed, my arms wrenched from their sockets and my head was pounded in so many directions I couldn’t count them!  
+Glass peppered my body. My skin was cut, stabbed, my arms wrenched from their sockets and my head was pounded in so many directions I couldn’t count them!
 
-When everything stopped moving, I had trouble breathing and was hanging from my seat belt upside down. 
+When everything stopped moving, I had trouble breathing and was hanging from my seat belt upside down.
 
-Blood dripped into my eyes as I gasped to get air into my lungs.  
+Blood dripped into my eyes as I gasped to get air into my lungs.
 
-It was only then, as immeasurable pain wracked my body that I finally lost consciousness. 
+It was only then, as immeasurable pain wracked my body that I finally lost consciousness.
 
 I saw a great tunnel, but it was brief, to say the least.
 
@@ -96,7 +96,7 @@ At the end of the tunnel was a bright light and soon enough, I heard voices.
 
 “Oh, right. Mortal friendly forms, everyone!” Sisoe’s voice chimed in.
 
-I opened my eyes to the sight of three angels wearing white robes.  
+I opened my eyes to the sight of three angels wearing white robes.
 
 There was a beautiful female angel. She had white hair and black wings. Her eyes were a golden yellow and she smiled warmly at me.
 
@@ -104,7 +104,7 @@ To her right was a male angel with black hair and white wings, though he had the
 
 I was overjoyed at the time to see angels.
 
-A third angel came into view. I was unable to tell if this angel was male or female. Their nose and entire face appeared far too angular and rigid to be natural. Almost as if someone had brought a crystal to life and carved it into an angel’s shape.  
+A third angel came into view. I was unable to tell if this angel was male or female. Their nose and entire face appeared far too angular and rigid to be natural. Almost as if someone had brought a crystal to life and carved it into an angel’s shape.
 
 Its skin appeared to flash and reflect in the bright light of the white area we stood in and its wings were a honey-like color, almost translucent as they moved around me.
 
@@ -138,7 +138,7 @@ My face fell, "is something wrong?"
 
 Synidores approached me, their hands clasped behind their back, looking down at me.
 
-While I was on the ground before, I must admit, the three angels were much more imposing than any person I had ever met. They all had to stand over seven or eight feet tall. 
+While I was on the ground before, I must admit, the three angels were much more imposing than any person I had ever met. They all had to stand over seven or eight feet tall.
 
 “You are in Purgatory, as you call it, awaiting final judgment,” Synidores stated.
 
@@ -152,7 +152,7 @@ While I was on the ground before, I must admit, the three angels were much more 
 
 “Uriel?” I asked.
 
-Sisoe nodded, “He’s… Well, you humans described him as ‘Pitiless.’” 
+Sisoe nodded, “He’s… Well, you humans described him as ‘Pitiless.’”
 
 “He follows the law of God, precisely, and he is called upon when someone is morally gray,” Synidores turned to me, “As you are.”
 
@@ -174,15 +174,15 @@ I looked at the three angels, “How can I choose between you three?”
 
 “But,” Sisoe continued, “We made a pact with the evil woman!” She boasted.
 
-“Yes, we three are the protectors of infants,” Sisynios confirmed.  
+“Yes, we three are the protectors of infants,” Sisynios confirmed.
 
 I gasped, smiling wide, “W-We’re the same?!”
 
-Synidores held out their hand, “Not exactly… Our task can only begin at birth, when infants take their first breath. We watch over the children at their most vulnerable.” 
+Synidores held out their hand, “Not exactly… Our task can only begin at birth, when infants take their first breath. We watch over the children at their most vulnerable.”
 
-Sisoe nodded, “Yes, it’s where we protect them from Lilith, who must kill children by God’s decree - if she cannot kill a mortal child, then she must kill one of her own.” 
+Sisoe nodded, “Yes, it’s where we protect them from Lilith, who must kill children by God’s decree - if she cannot kill a mortal child, then she must kill one of her own.”
 
-“Used to,” Sisynios added, “Luckily, such pacts have been rendered moot with the enlightenment.” 
+“Used to,” Sisynios added, “Luckily, such pacts have been rendered moot with the enlightenment.”
 
 “I mean, I would like a woman’s touch, personally,” I said, looking at Sisoe, who I had taken a liking to more so than the other two angels, “Uh… No offense to you, Synidores.”
 
@@ -206,9 +206,9 @@ Sisoe nodded, “As best I can be.”
 
 “I didn’t mean to-” I was cut off.
 
-“Leave it as it is. Best to apologize in person, later, should you get the chance,” Sisynios stated as he too vanished. 
+“Leave it as it is. Best to apologize in person, later, should you get the chance,” Sisynios stated as he too vanished.
 
-Sisoe smiled, “It’s okay. Synidores expects more people to grasp that angels don’t normally have a gender… I guess you disappointed them, being as devout as you are.” 
+Sisoe smiled, “It’s okay. Synidores expects more people to grasp that angels don’t normally have a gender… I guess you disappointed them, being as devout as you are.”
 
 I nodded, “I… Right, sure. Angels don’t make babies, so why would you need gender? Sorry.”
 
@@ -242,29 +242,29 @@ I looked at Sisoe, who was reading the book carefully.
 
 Not a human sort of snort or grumble, but it sounded like a feral growl, like what I would expect from a large cat.
 
-“Very well,” Sisoe closed the book, “I think our consultation is finished, you’ve chosen me and I’ll do my very best,” Sisoe winced, “Even though Synidores would have been a much better option.” 
+“Very well,” Sisoe closed the book, “I think our consultation is finished, you’ve chosen me and I’ll do my very best,” Sisoe winced, “Even though Synidores would have been a much better option.”
 
 “What?” I asked, now worried.
 
-“It’s alright,” Sisoe smiled, “We’ll handle it.” 
+“It’s alright,” Sisoe smiled, “We’ll handle it.”
 
-The bright light vanished and soon I was standing in a strange and eerie forest of some kind.  
+The bright light vanished and soon I was standing in a strange and eerie forest of some kind.
 
 Large violet trees stretched high into a sky, seemingly frozen all around us in eternal twilight.
 
 Sisoe began to walk forward, “Follow me.”
 
-We reached an open area, where a pair of stone podiums stood.  
+We reached an open area, where a pair of stone podiums stood.
 
 Sisoe moved to the right podium, opening my Book of Life.
 
 There, I saw on the far left podium another book appear.
 
-Before us was a giant stone podium, what I would imagine a judge's bench looked like. 
+Before us was a giant stone podium, what I would imagine a judge's bench looked like.
 
 White flames erupted from behind the podium, and emerging from them was a truly horrific sight! A giant dragon-like creature appeared. It had black horns and a large, was heavily muscled and clad in bronze scales. Its eye sockets were empty, filled only with a pair of burning coals.
 
-Massive red scaled wings, three sets of them, stretched out behind the creature as a colossal bronze tail coiled around the entire judge’s bench.  
+Massive red scaled wings, three sets of them, stretched out behind the creature as a colossal bronze tail coiled around the entire judge’s bench.
 
 The creature reached out a pair of large clawed hands towards another copy of my Book of Life.
 
@@ -280,7 +280,7 @@ I screamed in horror at the mere sight of the creature, nearly falling to the gr
 
 “Yes,” Sisoe said, standing upright.
 
-“**What are you doing, wearing that ridiculous form before me**?” Uriel said, almost insulted, “**Remove it this instant!**” Uriel ordered, “**We’ve no reason to hide or coddle the mortal and even less reason to appear like the little monkey people,”** he said, glancing over the pages of my book**, “Besides I see no reason to hide the magnificent form God, Our Father, gave you to appease those who stand before His judgment**.”
+“**What are you doing, wearing that ridiculous form before me**?” Uriel said, almost insulted, “**Remove it this instant!**” Uriel ordered, “**We’ve no reason to hide or coddle the mortal and even less reason to appear like the little monkey people,”** he said, glancing over the pages of my book\*\*, “Besides I see no reason to hide the magnificent form God, Our Father, gave you to appease those who stand before His judgment\*\*.”
 
 Sisoe sighed, turning to me, forcing a smile, “I promise, the form you see next to you will be me, okay?”
 
@@ -288,7 +288,7 @@ I blinked as Sisoe’s beautiful form vanished.
 
 Now, standing next to me was a similar creature to Uriel.
 
-She towered over me, massive black wings spread wide, covered in mostly black scales. Her form was entirely covered in those horrific black scales, but in swirling patterns over her smooth skin were golden scales mixed through them.  Her feet appeared as golden lizard-like paws, and a large black scaled tail with a spiral of gold sat behind her under her white robes. 
+She towered over me, massive black wings spread wide, covered in mostly black scales. Her form was entirely covered in those horrific black scales, but in swirling patterns over her smooth skin were golden scales mixed through them.  Her feet appeared as golden lizard-like paws, and a large black scaled tail with a spiral of gold sat behind her under her white robes.
 
 A long lizard-like neck rose another foot from her shoulders and her head was that of a sizeable featherless bird! A massive golden beak and golden horns adorned her head and she turned to me, the edges of her fleshy face turning into a smile as she looked down on me, “Still me!”
 
@@ -298,7 +298,7 @@ I gasped, horrified still, “Y-You’re not an angel!”
 
 I swallowed hard. Was I trapped in a nightmare?
 
-Sisoe’s black scaled hand with its golden claws gently stroked my hair, “Shh, shh, I know, I know. We’re rather off-putting for your kind.” 
+Sisoe’s black scaled hand with its golden claws gently stroked my hair, “Shh, shh, I know, I know. We’re rather off-putting for your kind.”
 
 “W-what now?” I asked, still shaking.
 
@@ -310,7 +310,7 @@ Sisoe’s black scaled hand with its golden claws gently stroked my hair, “Shh
 
 “B-Below?!” I shouted, “Y-You mean you might have Lucifer persecute me?!” I cried out.
 
-“No mortal,” Uriel said indifferently, his ember eyes tracking over the book before him, “For if the Morning Star were to preside over your persecution, or anyone’s, I can confirm not a single judged soul would traverse to Heaven,” he smiled, “Ah, perfect. No, I shall choose a more fitting persecutor.” 
+“No mortal,” Uriel said indifferently, his ember eyes tracking over the book before him, “For if the Morning Star were to preside over your persecution, or anyone’s, I can confirm not a single judged soul would traverse to Heaven,” he smiled, “Ah, perfect. No, I shall choose a more fitting persecutor.”
 
 At the other podium, black flames erupted and standing there was an Angel of sorts.
 
@@ -320,9 +320,9 @@ He wore long robes from his shoulders to his feet, a stained leather butcher's s
 
 From his forehead, a pair of horns grew, reaching out a few inches before they swept back over his bald head, ending in twisting pointed ends behind his skull.
 
-“Uriel,” a soft voice reverberated through the air. The voice was oddly calm and disturbingly so, “What an unpleasant interruption to my work down below. I hope this is not some random whim from which you have decided to pull me from my infernal practices?” 
+“Uriel,” a soft voice reverberated through the air. The voice was oddly calm and disturbingly so, “What an unpleasant interruption to my work down below. I hope this is not some random whim from which you have decided to pull me from my infernal practices?”
 
-Uriel smiled, “No, not all. This will prove to be the most interesting judgment for some time,” he struck a single claw down onto the stone bench, “**The Trial of Charity Higgins shall commence**!” 
+Uriel smiled, “No, not all. This will prove to be the most interesting judgment for some time,” he struck a single claw down onto the stone bench, “**The Trial of Charity Higgins shall commence**!”
 
 Everyone, even the darker angel, fell silent.
 
@@ -337,3 +337,5 @@ I turned to the other angel, concerned as he seemed to be grinning maliciously, 
 My eyes widened, “Did he say…?”
 
 “Yes,” Uphir said, grinning wide at me, “*Head Infernal Physician, Uphir,”* he bowed to Uriel and Sisoe and me, “[At your service](https://www.reddit.com/r/The_Guardian_Temple).”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/w9bofu/i_got_rid_of_an_abortionist_my_actions_were_laid/)
