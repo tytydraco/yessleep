@@ -49,3 +49,9 @@ My wife isn't feeling well today, so there probably won't be much update.
 I did think to post the note here, maybe someone could read it. It's not in my pants, so I'll update later once I get it from my old truck.
 
 I found another couple interested in the house. Doing a walkthrough tomorrow evening. I want this property off my back, and if someone will just pay cash outright for it, that would be great.
+
+-
+
+I went to Walmart (that's all that's nearby) to pick up my medicine, and when I got back, my wife was sitting on the kitchen floor crying hysterically. She found the damn note. We are followers of Christ, and seeing that freaked her out. She burned the note in the kitchen sink.
+
+I don't know what that means, or whether that's a good thing or a bad thing, so advice is welcome. It burned, so I kind of think it's a good thing. Or maybe I've seen too many movies.
