@@ -110,4 +110,6 @@ Lorne averted his eyes. "So you can't do anything."
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/vwhduz/strange_things_happen_when_theres_a_storm_on_the/?utm_medium=android_app&utm_source=share)
 
+[Part 3 | Stormchasing](https://www.reddit.com/r/nosleep/comments/w9d95f/strange_things_happen_on_the_redwater_familys/?utm_medium=android_app&utm_source=share)
+
 [X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)

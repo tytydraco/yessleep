@@ -1,23 +1,55 @@
-I was like 12 years old when this happened to me, one day my older brother was found dead, everyone said he committed suicide, even I thought that, but one day all of that changed.
+I couldn't get over how happy I was, whoever I was anyway. I tried wriggling my hands out of the chains, but they wouldn't budge. My arm sockets felt like they were being pulled out, but I still smiled. Then, the two men who chained me slammed the van doors shut and got into the front of the van. They set off onto the road, and the rocking of the van chafed my wrists, but that was fine. I was happy.
 
-My mom handed me a box of audio recordings left behind from my brother to me. He wrote a message to me, explaining why he is dead and that it could happen to me.
+"We're so screwed!" said one of the men. He wore one of those Micheal Myers masks you'd find in a Halloween shop. He sat in the front seat, his shoulders hunched.
 
-I decided later that night I would listen to the first one, it was called “Log 1”
+"Yeah, no kidding, Greg!" said the man in the seat beside him. He wore a Jason mask from what appeared to be the same shop. Both masks had *Spooky Costumes Halloween Shop* printed on the Label. I had my mask from the same shop sitting beside me—a Jigsaw mask, with the details fading off it.
 
-Log 1: I have been having these nightmares… there is the same shadowy figure every single night, I don’t know what it wants, it just keeps getting a little closer every time, then it happened, it and its friends appeared.. At first I thought it was a dream, but this was completely real. It's like they want me to go insane.
+"Hey, maybe we wouldn't be so screwed... IF YOU DIDN'T LET TEDDY GET BIT!" screamed Greg. "We've got a smiler in the back of our van!" he said. It appeared he had forgotten about me until now, and he turned to see me smiling brightly at him.
 
-I was confused on what he was talking about, so I just shrugged it off and went to sleep but I seemly had the same dream that he did, this shadowy figure just kept getting a little closer but unlike my brother, I had a pretty good idea of what this thing wanted, It wanted me dead just like my older brother..
+"Hi! Could you take these chains off? They're real pain-" I started, but the other man cut me off.
 
-I woke up in the middle of the night in a panic, it got too close to me, I decided to listen to “Log 2” after, cause I knew my brother wasn’t just having some nightmare, that shit was real and was fucking terrifying.
+"Crap, Jerry, gas him!" Greg said, shutting the window separating them and me. I could barely hear what they were saying through the glass.
 
-Log 2: if you are hearing this then I am most likely dead, little bro, if this happens to you next, I want you to try to survive unlike I could, the adults won’t believe you, please don’t go to our parents, they will just get more aggressive.
+"...Get him to Barb...See what she can do..." said one of the two men. A hissing sound filled the van, and I saw a black garden hose stuck through the window, green gas gushing out of it. The gas slowly crept toward me, silently inching closer and closer. The gas radiated a smell of rotten egg. Still smiling brightly, I struggled in my chains, helplessly stuck as the gas reached me. Then, as I faded into unconsciousness, the smile disappeared. My cheeks ached. They had felt like they had been slowly ripping apart while I was grinning earlier. Then everything faded to black.
 
-I was confused why did the logs changed so much, there isn’t any advice on this one either, so I listened to “Log 3” right after
+I woke up strapped to a table. As I regained consciousness, my smile began to reappear. I tried to get up, but straps glued me to the table. A lady standing over me jumped, and Greg and Jerry took a step back.
 
-Log 3: Little bro, I have a good understanding of how to keep these things from killing me, but I don’t know how long I can keep this up. There is one underneath your bed, that one comes up only 2 times a night but its random, all you have to do is to pretend to sleep, pretend until you heard it go back underneath the bed, there is one that will bang on your door about 4 times before it opens the door forcefully, just sit still, it can’t see you if you sit still, that one comes randomly, I don’t know how many times, it was different every night. Ok now for the final one, the one that appears in your dreams before this all happens, the shadowy creature only appears once a night and is more dangerous than the others, for this one you have to not look at it, it won’t attack if you don’t look at it, that's all for now little bro, I hope you survive this unlike I could…
+"How long has he been in this state?" asked the lady standing over me.
 
-This one had a lot more info, I did everything he told me to do, I lost a lot of sleep because of it, My parents began to notice that I looked so tired that they took me to the hospital, I had no choice but to tell them on what was happening, I told them about the audio logs my brother left me, they wanted to listen to themselves.
+"About, uh, twenty minutes, Barb," said Greg. Barb nodded and went to get a needle.
 
-After someone listened to the logs, they told me that I was just hallucinating the whole thing because of what my brother was saying, but I knew that this shit was actually happening. The next day, the doctor that listened to the logs had passed last night, this confirmed to me that this was actually happening, but then they told us that, it looked like he committed suicide, I knew he didn’t, those creatures did that to him and made it look like he died because of suicide.
+"But it's been more than an hour." I blurted. Barb suddenly turned fearful, backing away from me.
 
-Eventually they left, I don’t know why but they did, maybe they got bored because they couldn’t get to me or they found a different, unsuspecting victim, it's most likely the second one. I hope they can survive just like I did…
+"Barb..." started Jerry.
+
+"Are you insane! He's gonna turn any minute now! Get the hell out." she said.
+
+"You can help him. Just give him the shot!" said Greg, raising his arms in anger.
+
+"No, no, NO! You heard him. It's been over an hour! Are you dumb or something? He's too far gone. We can only give him a cure once he's turned," she said.
+
+"What are you talking about?" I asked Barb, who jumped when I spoke.
+
+"Oh god, I can already see its claws. Get it to the cells. Maybe that'll hold it." Barb said, ignoring me. It turned out that the table I was on had wheels since Greg and Jerry started to rush me down the hallway. A few minutes into our journey, I felt a burning sensation all over my skin and ripping between my toenails and fingernails. Still beaming, I screamed, and my eyes widened. They felt like they were about to burst. I must have looked insane, smiling toothily and my eyes comically wide.
+
+"Oh crap, it's starting," said Greg, whimpering. Jerry didn't whine. He had his eyes set at the end of the hallway, sprinting toward it. The colours around me started to feel warmer, and shapes began to morph into something else. Again, I remembered who I was. But I didn't forget again. I vaguely felt the straps break free. Then all the pain just stopped. Greg and Jerry disappeared, leaving me in the middle of the shelter. But was I at the shelter? Yes, yes, I was. Barb was here. She was the doctor there. I remembered running in here after raids and almost laughed aloud from fond memories. I felt so good, like there was nothing that could hurt me. Like I was in heaven. The only things missing were those I had lost.
+
+"Teddy?" said a familiar voice behind me. I looked back and cried in happiness when I saw my friend standing behind me.
+
+"Diana? Diana! I thought you were dead!" I cried, jumping off the table to hug her. As soon as I wrapped my arms around her, though, she disappeared. My smile vanished. I stared at my hands, had I done that?
+
+"Teddy?" asked another voice behind me.
+
+"Mia," I said. I turned to see her standing there, beckoning for a hug. I ran toward her, but she disappeared in my arms as Diana had. "Mia! Mia! NO!" I screamed. *What kind of heaven is this if I can't have them back?* I thought. The next was my mother, then my father, my sister and my childhood friends. More and more appeared, all of the people I had lost just out of reach. Crowds of people rushed toward me, but I couldn't touch one of them or talk to them. The worst part was when they called my name. They sounded desperate, like they needed me. But I couldn't save them. I wasn't strong enough. The more I ran, the more frantic I became. Each time one of them disappeared beneath my fingers, my pain increased. Then, another person I had been searching for my entire life appeared: Lana, a fellow raider I had lost to the smilers. She stood at the end of the hallway, beckoning to me.
+
+I started to walk toward her, my pace quickening as I got closer. Lana stood at the end of the hallway, smiling, and I took another step forward.
+
+"Lana! I'm coming!" I yelled, starting to sprint toward her. Lana's smile brightened. Closer and closer I got, and I finally reached Lana. My fingers brushed against her cheek when I suddenly was slammed to the side by none other than my childhood friend Liam. He wrestled me to the floor, holding a needle in his hand. Before shoving him off, he injected whatever was inside it into my neck, and I stumbled backward, shocked Liam would do something so horrible to me. Then, Liam's face started to shimmer. The bright colours around me began to fade into the original grey I was used to, and I slowly started to understand what had happened. Lana's face started to shimmer too, and her body shortened. The sudden changes made me feel sick, and I closed my eyes. I could feel myself slipping back into the real world.
+
+"Teddy! Fight it!" screamed a voice, muffled as if they were far away.
+
+"NO!" I screamed, unwilling to leave the heaven I was in, not for anything in the world. I was so close to getting Lana back, getting everyone back. The colours around me started to brighten again.
+
+"Teddy, you're a smiler-" the voice suddenly changed to someone else, Stuart, my brother-in-law. "Teddy? Teddy, come and save me! Teddy!" screamed Stuart. He was standing at the threshold of the room opposite me, beckoning. *Let them go.* Said a small voice in the back of my head. *I'm a smiler. You know what happens when you get infected. Stuart's a hallucination!* I cried to myself. I got up, and the colours started to fade again. Finally, I was close enough to the real world to hear the people around me. I realised I had been fighting against the cure and stopped struggling. Then, finally, the colours around me turned back to normal, and the people around me morphed into who they were.
+
+"Theo!" cried Greg, rushing toward me. He hugged me, and I turned and saw who sat in Lana's place, Jerry. He had a long gash across the side of his face, exactly where I had brushed against Lana's cheek. I looked down the hall where I had come from and saw a pile of bodies. Something had ripped the meat off their bones. I wiped my tears away, but something else rubbed off my hand. I raised it into the light and screamed when I saw blood there. When I realised I felt like I had eaten a massive amount of food, I threw up onto the floor beside me. I had been the one who killed those people. The crowds that rushed toward me were innocent lives I had taken. Then, I realised. I was a monster now, even without the smiler virus. I retracted Greg's hug and cried.
