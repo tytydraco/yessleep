@@ -408,3 +408,7 @@ The guy was still standing there smiling, smiling and just staring at me.
 Hairs all over my body stood on end.
 
 His mouth grew wider and His eyes flashed a bright yellow as he turned and darted into the office slamming the door behind him.
+
+[X](https://www.reddit.com/r/ReggaejunkiegeeTales?utm_medium=android_app&utm_source=share)
+
+[Part 4, Finale](https://www.reddit.com/r/nosleep/comments/w97gct/whatever_we_have_awakened_in_the_old_bell_tower/?utm_medium=android_app&utm_source=share)
