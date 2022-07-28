@@ -248,8 +248,6 @@ He raised his voice "We are not looking for her! Not now! Even from up here we c
 
 I hesitated, then nodded. There was nothing we could do for now, and I didn't want to be stuck here overnight. We could call for help when we got back to our cars.
 
-–
-
 The hike out was rough. The terrain had seemed flat on the way in, but it had actually been going slowly downhill. The way back was all uphill. This wouldn’t be a problem except that it began to rain, and the trail quickly turned into a muddy stream. The water managed to soak through our boots, and made everything slippery. The conditions forced us to move more slowly, and we would periodically slip and start to slide down the trail.
 
 "We need to move faster," Derek said, grunting as he pushed his boots deeper into the mud to get up a small hill.
