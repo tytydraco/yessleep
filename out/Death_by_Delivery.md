@@ -198,4 +198,4 @@ I nod again at her suggestion. “Thank you.”
 
 Part 2: [https://www.reddit.com/r/nosleep/comments/w90d07/death\_by\_delivery\_part\_2/](https://www.reddit.com/r/nosleep/comments/w90d07/death_by_delivery_part_2/)
 
-Part 3 & Epilogue: [https://www.reddit.com/r/nosleep/comments/w90iyw/death\_by\_delivery\_part\_3\_epilogue/](https://www.reddit.com/r/nosleep/comments/w90iyw/death_by_delivery_part_3_epilogue/) 
+Part 3: [https://www.reddit.com/r/nosleep/comments/w9ygmj/death\_by\_delivery\_part\_3/](https://www.reddit.com/r/nosleep/comments/w9ygmj/death_by_delivery_part_3/)

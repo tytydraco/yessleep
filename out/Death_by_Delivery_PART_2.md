@@ -72,4 +72,4 @@ It’s time.
 
 Part 1: [https://www.reddit.com/r/nosleep/comments/w74vwl/death\_by\_delivery/](https://www.reddit.com/r/nosleep/comments/w74vwl/death_by_delivery/)
 
-Part 3 & Epilogue: [https://www.reddit.com/r/nosleep/comments/w90iyw/death\_by\_delivery\_part\_3\_epilogue/](https://www.reddit.com/r/nosleep/comments/w90iyw/death_by_delivery_part_3_epilogue/)
+Part 3: [https://www.reddit.com/r/nosleep/comments/w9ygmj/death\_by\_delivery\_part\_3/](https://www.reddit.com/r/nosleep/comments/w9ygmj/death_by_delivery_part_3/)

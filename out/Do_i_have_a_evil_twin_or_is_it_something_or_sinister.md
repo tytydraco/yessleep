@@ -1,0 +1,17 @@
+So I have been thinking about this one for a while now and cant quite wrap my head around it and or a logical explnation for it. One night i had snuck out around 1145 to go to a pool in the town homes right next to my apartment complex becuase my some of my friends were there and they told me that i should come. When i arrived there we hung out for a solid 20 minutes before me and 4 friends got into one of our friends car and proceeded to drive around. After we drive around the three drop me and my friend M off at the townhouses to which we then walk back to my apartments to get our friend J about 15 minutes after we get J i tell both of them that i am too tired to keep walking around since at this point its about 130 in the morning.
+
+&#x200B;
+
+So my J and M walk me home they  proceed to walk to M's house in the town houses. About 5 minutes after me getting home and laying down i get a call from M in a frantic but quiet tone J and M start baraging me by saying things such as " your still at home right"  " you better not be fucking with us " " I swear to god if your fucking with us ". To all of these questions i am puzzled to why they are asking me these questions so i ask " yeah why wouldnt i be im really tired and was about to go to sleep" to which they respond in shaking voices" we are looking at you right now " 
+
+&#x200B;
+
+After hearing this i didnt even know what to think they i was really confused im thinking what the hell do you mean your looking at me. So i ask them just that i said " what do you mean your looking at me " they responded with " we cant explain it but we are looking at someone or something that looks exactly like you down to the same clothes you were wearing today and the acne you have " now i think that they are messing with me but then suddlenly they hang the phone up so now i am like ok so they really are messing with me i wait a minute then i get a call back from M.
+
+&#x200B;
+
+He is saying that they had to run because whatever looked like me started to approach them at a alarming rate so they hung up the phone and ran and then they say that it is just standing next to a street light starring at them while they are outside of M's house about to go in. All through this im still thinking that it isnt true so i tell M send me a video of whatever looks like me. i was expecting to hear them say that they were just messing with me and trying to scare me. But 30 seconds after i tell M to send me a video of whatever looks like me i open in snapchat one of most unsettling sights i have ever seen it was literally if someone had copy and pasted me from that day and put me next to that street light. I couldnt even explain the multiple emotions i was going through. But shortly after i sit there on the call with M in complete silence they say " so now you beleive us? "  and i reply " yes i do " with chills still running through my body M tells me that they are about to go inside the house and they have to hang up.
+
+&#x200B;
+
+The next day i heard about what happened after J had to walk home about 2 hours later J says they saw a weird looking guy with shorter messy greasy brown hair a leather jacket a retro video game t-shirt and he is drinking a monster outside M's house under the same street light whatever looked like me was. I still cant wrap my head around this and provide any logical explanation for it.

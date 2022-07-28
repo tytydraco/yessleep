@@ -1,0 +1,13 @@
+Back when I was in fourth grade me and my friends would make up random stories during recess. My friend Tina (not her real name) loved to make up scary stories to tell,so I decided to make one up to. I was telling them that this shadow figured was standing over me one night just staring at me and I told them that the shadow man said “Don’t tell no one or they to would be cursed”. They got scared but Tina did not she just laughed it off, I guess she knew it was fake. I went back the next day to school and Tina was not there,my friends were joking about how the shadow man had gotten her but I just told them I made the whole thing up. A couple days went by without hearing anything about Tina. 
+
+Me and my friends were getting worried about Tina. After about a week or two Tina came back but something was off about her. Me and my friends could tell that something was off. Tina just stopped talking to us,she was scared of the bright lights,and loud sounds. One day I had gotten recess detention for play fighting with another student. I had to go into the class were Tina was but the class was dark. I sat down and had to right an essay and I looked over my shoulder and I could see Tina just staring at me, I got goose bumps, the way she said at me was scary. I had to get up to sharpen my pencil when I heard footsteps beside me I turned around to see Tina standing behind me.
+   
+Her hand started to move closer and closer to my neck until she started choking me while saying “YOU CURSED ME BITCH!” I could see the teacher running over trying to stop Tina from choking me to the death.
+   
+After that day I was never the same.My family had to move because Tina family was giving my family death threats. I couldn’t sleep,I had nightmares of Tina just killing me to the point I need therapy because I actually thought I had cursed Tina. 
+
+Years went by and my old friend had told me that Tina was diagnosed with schizophrenia and she was never “cursed” by me. Tina told my old friends that it was joke and did it because she hated me.    
+
+After hearing that I still did not change back into my old self I still stayed scary. Even at my new school it was hard to make friends. What if I made the same mistake telling someone a scary story and then end up being cursed. But when I do make friends my parents would be all weird about it and run whole ass background checks are them and their family’s. I mean it’s weird but it helps me not go through the whole situation again. 
+
+Me (14F) now is still scared to tell scary stories watch them and make friends. I just can’t believe she lied to me and ruined my childhood by saying I cursed her.

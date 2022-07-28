@@ -1,0 +1,13 @@
+I apologize in advance for any mistakes I may make while writing this, I'm extremely shaken up and I honestly don't know what to do. If anyone has advice, please help. Something weird is going on and I think I'm in danger.
+
+In my town, there are shadows. I know that may not seem alarming, but it's known to steer clear of these shadows at all costs. They lurk in places you'd least expect them; in corners of the libraries, the cinemas, sometimes even restaurants. They can move about, but they usually tend to reside in the same places I've noticed.
+
+If you try not to acknowledge them, you should be fine.  But if you accidentally interact with them, well… no one knows exactly what happens to you. In short, you just vanish. This has been going on for years and it's unclear why, but this has became our normal. They're like parasites, feeding off of the fear of the town and multiplying as they take more people.
+
+No one knows what happens to the people that get taken and there's nothing we can do to stop this. Recently, however, some of the people that went missing have started showing up again. They seem so different now, though.
+
+My husband, for instance. He went missing three years ago and randomly showed up last month. I clearly welcomed him back in with open arms, he's the love of my life after all. He isn't able to talk about what happened or where he went, claiming something bad will happen to whoever finds out. He barely eats and always looks disheveled, and within the last week I've noticed he leaves the house at 3am every single night. 
+
+Last night I decided to stay up for when he returns to maybe ask where he went. I thought perhaps I was just paranoid, would've made sense given the circumstances, but at 4:34am I saw him walking back to the front door, mouth and hands coated in what looked like a crimson liquid. I was in our bedroom, which is upstairs, so I wasn't sure if maybe it was just a light shining on him in a weird way given it was dark, but when we made eye contact my stomach dropped. He looked surprised at first, but then shook his head and continued on inside the house. I instinctively locked our bedroom door and was on high alert for the rest of the night. At some point I heard him try the bedroom door, but to no avail so he retreated back downstairs.
+
+I'm writing this at 2:57am the night after that happened and my husband hasn't left the house yet. He was acting normal all day, refusing to acknowledge anything happened, but I can't stop replaying the words "something bad will happen to whoever finds out". I'm not sure what's going to happen, but there's been a shadow at my door for the last 5 minutes and I'm so scared for 3am to come.
