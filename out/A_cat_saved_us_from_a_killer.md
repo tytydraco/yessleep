@@ -1,4 +1,4 @@
-Last Saturday was a miracle. If didn't go to the library Saturday, I would have been killed. Everyone was in real danger. I am glad that I went to the library Saturday. This day will hunt me forever.
+Last Saturday was a miracle. If I didn't go to the library Saturday, I would have been killed. Everyone was in real danger. I am glad that I went to the library Saturday. This day will hunt me forever.
       _______________________________________________
 
 I love going to the library to study because I hate studying at home alone. It's one of my favourite libraries because it's quiet and close to my home, so I can easily go there with my bicycle.
@@ -17,7 +17,7 @@ While I was still on my knees, I turned to look behind me; the road was so quiet
 
  I turned my head to look at the cat, but something weird happened. The cat's eyes were no longer blue, but they were white, and the cat looked not normal at all. This time, the cat was standing on the ground and there was a shadow of a person, not a cat.
 
- Then suddenly, I hear the cat meowing in a weird way. The cat said "Run!" a few times. It said it like a human voice.
+ Then suddenly, I hear the cat meowing in a weird way. The cat said "Run!" a few times. It said it like a deep human voice. 
 My heart was beating non-stop, so I took my bicycle and ran to the library as fast as I could. But the cat didn't leave me. She started running after me very fast. I was so terrified and I felt that I may have fallen off the bike again because I kept looking behind me most of the way.
 
  Fortunately, I lost the cat and finally entered the library.
