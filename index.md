@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4303
+file count: 4306
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -204,6 +204,7 @@ file count: 4303
 * [Am I a Monster for making my Family listen to classic music](out/Am_I_a_Monster_for_making_my_Family_listen_to_classic_music.md)
 * [Am I a Monster for not marrying my girlfriend](out/Am_I_a_Monster_for_not_marrying_my_girlfriend.md)
 * [Am I Being Abducted](out/Am_I_Being_Abducted.md)
+* [Am I crazy or do I need help](out/Am_I_crazy_or_do_I_need_help.md)
 * [Am I going into some sort of psychosis why the hell is everything changing around me](out/Am_I_going_into_some_sort_of_psychosis_why_the_hell_is_everything_changing_around_me.md)
 * [Am I going mad A character from my favourite game has become real and no one believes me](out/Am_I_going_mad_A_character_from_my_favourite_game_has_become_real_and_no_one_believes_me.md)
 * [Am I Okay Or Is Something Coming For Me](out/Am_I_Okay_Or_Is_Something_Coming_For_Me.md)
@@ -728,8 +729,8 @@ file count: 4303
 * [HELP NEEDED BEING TORMENTED BY A GODDESS](out/HELP_NEEDED_BEING_TORMENTED_BY_A_GODDESS.md)
 * [Help The Piggy Killers are hungry](out/Help_The_Piggy_Killers_are_hungry.md)
 * [HENTAI](out/HENTAI.md)
-* [Her Part one](out/Her_Part_one.md)
 * [Her Part One](out/Her_Part_One.md)
+* [Her Part one](out/Her_Part_one.md)
 * [hes a runner hes a track star](out/hes_a_runner_hes_a_track_star.md)
 * [Hes been watching ever since](out/Hes_been_watching_ever_since.md)
 * [Hes in my house](out/Hes_in_my_house.md)
@@ -1481,8 +1482,8 @@ file count: 4303
 * [I think that there is someone else living in my house](out/I_think_that_there_is_someone_else_living_in_my_house.md)
 * [I Think The Clouds Are Trying To Tell Me Something Is Coming](out/I_Think_The_Clouds_Are_Trying_To_Tell_Me_Something_Is_Coming.md)
 * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
-* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
+* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -2361,6 +2362,7 @@ file count: 4303
 * [My Friends Plastic Surgeon Stalked me](out/My_Friends_Plastic_Surgeon_Stalked_me.md)
 * [My friends roommate killed herself My friend has not been able to sleep afterwards](out/My_friends_roommate_killed_herself_My_friend_has_not_been_able_to_sleep_afterwards.md)
 * [My Friends Saved Me That Night](out/My_Friends_Saved_Me_That_Night.md)
+* [My friends uncle passed away and turns out that he owns a massive warehouse in the middle of downtown where he has been accumulating tons of things for the last 70 years It is creepy as hell](out/My_friends_uncle_passed_away_and_turns_out_that_he_owns_a_massive_warehouse_in_the_middle_of_downtown_where_he_has_been_accumulating_tons_of_things_for_the_last_70_years_It_is_creepy_as_hell.md)
 * [My girlfriend and I were chased by a satanic cult in the Appalachia mountains of West Virginia](out/My_girlfriend_and_I_were_chased_by_a_satanic_cult_in_the_Appalachia_mountains_of_West_Virginia.md)
 * [My girlfriend didnt want me to see her apartment now I know why](out/My_girlfriend_didnt_want_me_to_see_her_apartment_now_I_know_why.md)
 * [My Girlfriend Drives Uber and Has Gone Missing](out/My_Girlfriend_Drives_Uber_and_Has_Gone_Missing.md)
@@ -3315,8 +3317,8 @@ file count: 4303
 * [The eyeless lady](out/The_eyeless_lady.md)
 * [The Eyes In The House](out/The_Eyes_In_The_House.md)
 * [The EyeSpye App](out/The_EyeSpye_App.md)
-* [The faceless man](out/The_faceless_man.md)
 * [The Faceless Man](out/The_Faceless_Man.md)
+* [The faceless man](out/The_faceless_man.md)
 * [The family shots 1](out/The_family_shots_1.md)
 * [The Family Tradition](out/The_Family_Tradition.md)
 * [The Farm](out/The_Farm.md)
@@ -3341,6 +3343,7 @@ file count: 4303
 * [The Garbage Man on Lantern Street](out/The_Garbage_Man_on_Lantern_Street.md)
 * [The Ghost Car of Snake Road](out/The_Ghost_Car_of_Snake_Road.md)
 * [The ghost in the garden wont leave me alone](out/The_ghost_in_the_garden_wont_leave_me_alone.md)
+* [The Ghost in the Glory Hole](out/The_Ghost_in_the_Glory_Hole.md)
 * [The Ghost Light by RMH](out/The_Ghost_Light_by_RMH.md)
 * [The ghost of an old lady](out/The_ghost_of_an_old_lady.md)
 * [The Ghost of Lockout](out/The_Ghost_of_Lockout.md)
