@@ -1,7 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/w7meq0/i_got_rid_of_an_abortionist_now_i_face_the_angels/)
 
- 
-
 Standing there next to a giant lizard-like angel on my right, another feathery fallen angel to my left, and a hulking fiery monster who called himself an Archangel before me, I was beyond terrified.
 
 I expected St. Peter and a giant golden gate. Maybe a line. Folks always assume there’s a line.
@@ -16,7 +14,7 @@ Sisoe turned to me, smiling wide with rows of bright white teeth contrasting wit
 
 “I object, Archangel! Uphir is intimidating my charge!” Sisoe snapped.
 
-Uriel’s claw knocked on the stone, causing the ground to shudder, “**Sustained**,” Uriel turned to Uphir, “Watch your tone, Fallen One. Trust me, you will wish to remain for this case. I anticipate this will be far more than the standard dull affair.” 
+Uriel’s claw knocked on the stone, causing the ground to shudder, “**Sustained**,” Uriel turned to Uphir, “Watch your tone, Fallen One. Trust me, you will wish to remain for this case. I anticipate this will be far more than the standard dull affair.”
 
 “Dull affair?” I asked.
 
@@ -34,7 +32,7 @@ Uriel narrowed his eyes on Uphir.
 
 Or, at least, I thought I had thought that to myself.
 
-Uriel turned to me, “Persecution. We are not your human court.” 
+Uriel turned to me, “Persecution. We are not your human court.”
 
 I gulped, feeling a sinking sensation through my body.
 
@@ -50,11 +48,11 @@ I bowed, “Thank you, Archangel.” I said, hoping humility would go far.
 
 Uphir grinned as Sisoe walked past the podium with my Book of Life in her hands.
 
-Sisoe cleared her throat, looking over the book, “Doting mother, caring and contributing member of her community. Charity Higgins attended church regularly, ensured her children and husband adhered to the word of Our Father, the Christian Protestant teachings, and donated her free time to many efforts that matched her name, Charitable.” 
+Sisoe cleared her throat, looking over the book, “Doting mother, caring and contributing member of her community. Charity Higgins attended church regularly, ensured her children and husband adhered to the word of Our Father, the Christian Protestant teachings, and donated her free time to many efforts that matched her name, Charitable.”
 
-I smiled, hearing Sisoe speak of me that way, though I realized then that I was undoubtedly dead.  
+I smiled, hearing Sisoe speak of me that way, though I realized then that I was undoubtedly dead.
 
-I wouldn’t see my children or husband again. Not even my uncle or my friends from our church group!  
+I wouldn’t see my children or husband again. Not even my uncle or my friends from our church group!
 
 I couldn’t help but let a few sobs leak out of my mouth.
 
@@ -64,7 +62,7 @@ I smiled, “Thank you.”
 
 Sisoe grinned, “You did well in many ways.”
 
-Uphir held my book in his thin hands for a moment, looking it over. He closed it, leaving it on his lectern, and approached the same spot before Uriel. Uphir turned to Sisoe and me and slowly clapped, smiling indignantly.  
+Uphir held my book in his thin hands for a moment, looking it over. He closed it, leaving it on his lectern, and approached the same spot before Uriel. Uphir turned to Sisoe and me and slowly clapped, smiling indignantly.
 
 My face fell. What did that demon see? Uphir looked so confident now, and I had the slow and creeping realization that if he was satisfied, if he won, then I was going to Hell.
 
@@ -72,23 +70,23 @@ My face fell. What did that demon see? Uphir looked so confident now, and I had 
 
 Uriel listened intently.
 
-“Perhaps, maybe too much?” Uphir asked, “Crusaders were an interesting lot… Some fought for God. Some fought for their honor. Some fought to kill heathens. Or at least whom they thought were heathens. All but reading a few passages different from the other, and one becomes a heretic!” Uphir laughed, “Mortals are… feckless that way.” 
+“Perhaps, maybe too much?” Uphir asked, “Crusaders were an interesting lot… Some fought for God. Some fought for their honor. Some fought to kill heathens. Or at least whom they thought were heathens. All but reading a few passages different from the other, and one becomes a heretic!” Uphir laughed, “Mortals are… feckless that way.”
 
-Uriel’s eyes narrowed, “**Get on with it, Uphir**.” 
+Uriel’s eyes narrowed, “**Get on with it, Uphir**.”
 
 Uphir held a hand up, “But, as with all things, Charity here is not without sin,” Uphir said, moving back to my book, “A dark and ominous stain on these otherwise pristine pages. Sisoe spoke of Charity’s free time. But what, exactly, did she do in that free time? Could it be the same as our misguided and overly prideful Crusaders? Thinking they were doing God’s Will when in fact,” Uphir grinned to me, “They undermined it? Went against it? Did things not required of them?”
 
 My lip quivered, and Sisoe placed her claw under my chin, speaking out, “I object! More intimidation.”
 
-“**Get to your point, Uphir**,” Uriel said, his fiery eyes on me, “She knows what did, exactly what she did, now… Explain how it outweighs her good works.” 
+“**Get to your point, Uphir**,” Uriel said, his fiery eyes on me, “She knows what did, exactly what she did, now… Explain how it outweighs her good works.”
 
-“Charity not only used her faith to harm others but that harm dove deep. Deep enough to take a living child from her father and drive an otherwise good doctor to commit the most heinous of sins: To kill,” Uphir said, walking over to Sisoe's podium, “Moreover, I know how easily she joined one of my fallen brethren.” 
+“Charity not only used her faith to harm others but that harm dove deep. Deep enough to take a living child from her father and drive an otherwise good doctor to commit the most heinous of sins: To kill,” Uphir said, walking over to Sisoe's podium, “Moreover, I know how easily she joined one of my fallen brethren.”
 
 “W-What?!” I gasped.
 
 “The fact you could not see him for what he was doesn’t shock me,” Uphir explained, “Saleos is, indeed, very good at what he does,” Uphir said as he moved back to stand before Uriel, “Shall I show you, Archangel?”
 
-Uriel nodded, and I swear, I saw a slight grin on his maw.  
+Uriel nodded, and I swear, I saw a slight grin on his maw.
 
 “Then, let us paint the scene!” Uphir opened my book and ripped a page out.
 
@@ -128,9 +126,9 @@ Sal smiled, “How kind of you. Yes, I’d love to join you.”
 
 “Livin’ the dream,” Jim chuckled, “What was your name again, Mister?”
 
-“Oh, not Mister, please, that’s my father,” Sal grinned, “My name is Sal Lous. Nice to meet you.” 
+“Oh, not Mister, please, that’s my father,” Sal grinned, “My name is Sal Lous. Nice to meet you.”
 
-For some reason, I felt a weird pang in the back of my head. It wasn’t how I recalled feeling at the time, but that name, hearing Sal say it, made me feel uneasy this time.  
+For some reason, I felt a weird pang in the back of my head. It wasn’t how I recalled feeling at the time, but that name, hearing Sal say it, made me feel uneasy this time.
 
 Sal took a seat and sighed in relief, clutching his cane in both hands, “Legs and back are not what they used to be.”
 
@@ -216,7 +214,7 @@ I typed in response, “It is!”
 
 “How are you finding the group?” Sal asked.
 
-“It’s brilliant!” I responded. 
+“It’s brilliant!” I responded.
 
 “Praise Be!” Sal responded first, with many others responding.
 
@@ -236,7 +234,7 @@ Everything whirled around once more, and I found myself standing at the kitchen 
 
 I had told my son, Jeremy, about the girl. I couldn’t remember her name exactly like I had blocked it out or something. I referred to her as ‘The Target,’ and that became our code.
 
-“You know her?” I asked Jeremy. 
+“You know her?” I asked Jeremy.
 
 Jeremy shrugged, “I guess so. I’ve seen her. She kind of keeps to herself.”
 
@@ -250,7 +248,7 @@ Jeremy was a football player and, most importantly, a well-liked boy in school. 
 
 The scene melted and reformed around me once more, and I found myself walking in my business meeting clothing.
 
-I knew where I was headed. It was a few months later, and I was called into the principal's office for my son’s ‘Behavior.’  
+I knew where I was headed. It was a few months later, and I was called into the principal's office for my son’s ‘Behavior.’
 
 I had an idea of what it was and was ready to go into full ‘Army of God’ mode.
 
@@ -276,7 +274,7 @@ Jeremey turned away from her.
 
 “I didn’t do it,” Jeremy argued.
 
-“Oh, listen, I know that! Plus, you’re our best chance at the state championships!” Principle Bethany gushed, “So trust-you-me when I say we don’t want this going public, and we also don’t want this getting out of hand, so here’s what I *have* to do,” Bethany said, smiling, “We’re going to ‘suspend’ the team while we ‘investigate,’” Bethany said, liberally using her air quotes, “And we’re going to find her to be a little liar and she’s going to be expelled for it likely. If Dr. Singh complains, the district will settle out of court to keep this all nice and quiet.” 
+“Oh, listen, I know that! Plus, you’re our best chance at the state championships!” Principle Bethany gushed, “So trust-you-me when I say we don’t want this going public, and we also don’t want this getting out of hand, so here’s what I *have* to do,” Bethany said, smiling, “We’re going to ‘suspend’ the team while we ‘investigate,’” Bethany said, liberally using her air quotes, “And we’re going to find her to be a little liar and she’s going to be expelled for it likely. If Dr. Singh complains, the district will settle out of court to keep this all nice and quiet.”
 
 "Two weeks suspension?!" I shouted, "That's ridiculous!"
 
@@ -290,21 +288,21 @@ I turned to Dr. Singh, “And you’re going to have to answer for what *you* ha
 
 After that, when I got to the car with Jeremy, he turned to me, “Mom, I swear, it was just teasing, but it got out of hand and-”
 
-I hugged him, “Oh, I’m so proud of you!” I looked him dead in the eye, “Listen, you and all your friends can come over for a party this weekend, okay? But before the party, we’re all going to have to agree that no one admits to even *seeing* that girl, okay? Don’t worry. Mommy will protect you and all your friends!” 
+I hugged him, “Oh, I’m so proud of you!” I looked him dead in the eye, “Listen, you and all your friends can come over for a party this weekend, okay? But before the party, we’re all going to have to agree that no one admits to even *seeing* that girl, okay? Don’t worry. Mommy will protect you and all your friends!”
 
 Jeremy nodded, “O-Okay, mom. Thanks.”
 
 Once we got home, I started to prepare for a party. I called all the parents, who were all very upset about this whole ordeal.
 
-But I spoke to each of them, explaining how ‘The Target’ had it out for our boys, and soon enough, I had all the parents on my side.  
+But I spoke to each of them, explaining how ‘The Target’ had it out for our boys, and soon enough, I had all the parents on my side.
 
 One of the boy’s fathers told me that it was his son’s birthday that weekend, which was a lucky break for us, I had thought! I explained to his father as I felt the situation needed to be presented: That “The Target” was a liar and that none of the boys had ever seen her that day. He was on my side quickly.
 
-When I logged in later that night, Sal was already chatting with me.  
+When I logged in later that night, Sal was already chatting with me.
 
 “Charity! I want to say that your story touched me! Also, it turns out there haven’t been any real charges or the like yet… Also, as a little FYI: it seems all the footage in the school’s cameras that day is… ‘corrupted,’” he explained.
 
-I beamed, “Oh, Sal! Thank you. You’re the best!” 
+I beamed, “Oh, Sal! Thank you. You’re the best!”
 
 “No need to thank me, just doing my part,” Sal typed out, “You did yours. The rest will likely take its course over the next couple weeks.”
 
@@ -312,9 +310,9 @@ A whirlwind caught me again, and I celebrated with Jeremy at home after just rec
 
 Yes, with no evidence and all the boys having the same story of a typical day of locker room hijinks after an average day of practice, the Target got expelled for lying.
 
-I hoped at that time that the doctor and their family were going to move or that he’d close up shop. That was my goal, of course. 
+I hoped at that time that the doctor and their family were going to move or that he’d close up shop. That was my goal, of course.
 
-But the little bitch jumped online and started posting terrible lies and stories on her Facebook! 
+But the little bitch jumped online and started posting terrible lies and stories on her Facebook!
 
 Sal, of course, was on the case! As we're all the Army of God folks.
 
@@ -335,3 +333,5 @@ I was taken aback at first, but I bounced back, “Well, that doesn’t shock me
 The scene melted away, and I was on my knees with Sisoe at my side. Her hands were clasped together in worry.
 
 “Tsk, Tsk, Tsk,” Uphir said, looming over me, “Causing a little girl to kill herself…?” Uphir’s smile grew as I could feel the weight of his shadow pressing upon me, “[How *hypocritical*](https://www.reddit.com/r/The_Guardian_Temple)*.”*
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wa7anc/i_got_rid_of_an_abortionist_now_i_face_my_final/)
