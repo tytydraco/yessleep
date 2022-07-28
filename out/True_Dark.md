@@ -1,0 +1,29 @@
+Curious how when one sense is obscured, the others will heighten to allow you to continue making way through the world around you. A loss of hearing can make you more perceptive, and notice things that others may not; and a loss of sight can make a major difference to the things you hear, the things you smell, and the things you can touch. 
+
+It’s dark. It’s unfathomably dark. Not the sort of darkness where the small bits of light that manage to crawl through the smallest of cracks eventually allow your eyes to adjust, to see even just outlines of the things in front of you; but the sort of darkness where no matter how long you sit there, how long you focus on the same spot, your eyes never adjust. A sort of true darkness, the one otherwise only experienced in the depths of a cave. 
+
+You put your hand directly in front of what feels like it should be your right eye, but you remain blind. No outline, no essence of your own body, as though the darkness has performed a silent, painless amputation. 
+
+Your other senses are working overtime to compensate for the loss of sight. Slowly but surely your hearing becomes far more attuned than usual; you hear the dripping of water from somewhere around you, to your left perhaps? A scuttling noise brings your attention away from the dripping, but unlike the dripping noises, it feels almost impossible to identify *where* that noise is coming from. It feels as though it’s all around you, moving in circles in your own mind. Spiders? Rats? It’s oddly hard to make a guess.
+
+Your sense of touch is quickly catching up too, running your hand along the floor lets you feel almost every imperfection in the stone floor. The coarse, grainy texture seemingly becomes only more and more bumpy as your sense of touch becomes more and more attuned, almost to the point of discomfort - it isn’t a texture you’d like to become particularly familiar with. 
+
+Another thing about the darkness is that it is not a kind mistress for the mind. Your brain isn’t used to such prolonged, extraordinary darkness, it begins to try filling in the gaps. Imagining odd shapes, faces? *Things* in the darkness that you’re sure aren’t really there. You would have heard it by now if you weren’t alone, right?
+
+You stand, sitting in the same spot, hearing the same dripping and scuttling, and feeling the same awful grainy textures of the floor were certainly responsible for your brain going into overdrive. 
+
+Scuttling sounds again, you feel as though they became more frantic but every second passing makes it harder and harder to entirely trust your mind. You try to close your eyes, to calm yourself down, but there’s no difference to the choking darkness around you; and somehow having your eyes closed makes you far more nervous although there’s no change in what you can’t see. 
+
+Reaching your hand out you find a wall, a similar grainy texture to the floor but with some indents make of a somewhat smoother material - the image of bricks comes to mind, and the sense of something even slightly familiar calms you somewhat. Something else for your brain to do instead of inventing things existing in the dark. The dripping continues, almost certainly to the left, your hand follows the wall to find it goes in the same direction your sense of hearing is begging you to go. You’re glad to have some sort of direction, an incentive to move. 
+
+One step forward, and another. You rely entirely on your other senses, trying to block out how claustrophobic the dark feels despite the seemingly open space in front of you. Focus. Focusing on how the wall feels under your hand, how the dripping is louder with every step forward, how the floor feels mercifully stable underfoot. God even paying attention to the scuttling you still cannot entirely pinpoint to a direction. Focus on anything but the dark.
+
+A drip on your head, you take a step back and hold out your hand until you feel a drip on it. Compared to the prior constant rough feeling of the wall, the water feels smooth, like silk compared to sandpaper. Almost instinctively, your hand follows the drips up to find a source. Only a small ways up though, your hand feels something new, something that feels smooth and wet to the touch. You trace along the surface of this new object, it forms a cone shape in your head - ending in a sharp point. Further up now your hand reaches, another new texture, one that makes your blood run cold.
+
+Fleshy, warm, moist. Already unpleasant to the touch, but that isn’t what sends your heart down to your stomach. It’s the fact that whatever you have found in the dark is moving. Slight movements under your hand, as though breathing impossibly silently. Your ears pick up on a symphony of noises - scuttling again, a low growling noise, the sound of something moving along the rough floor. And no matter how much you beg to yourself, the darkness continues refusing you any respite in the form of sight. 
+
+Before you can move, there’s a sudden movement in front of you. And a second later, a pain greater than you have ever felt before erupts from the hand that’s been leading you through the darkness. A second of what feels like pulling before it’s replaced with nothing, just the white-hot pain racing through your arm. You stumble backwards, falling to the floor and scrambling backwards as much as you can until your back makes contact with the familiar wall. You hold your arm up to your face, yet you still cannot fathom even the slightest image of what may be in front of you, it’s impossible to know if the darkness truly has swallowed a part of you. 
+
+Movement in front of you again, sounding like something come straight for your prone self. You close your eyes fearing the worst.
+
+But it makes no difference in the dark.

@@ -238,7 +238,7 @@ I couldn’t think of a rebuttal to that.
 
 &#x200B;
 
-“Our tractor had an ‘accident” and I sent him to get a new one.”
+“Our tractor had an "accident” and I sent him to get a new one.”
 
 &#x200B;
 
