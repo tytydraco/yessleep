@@ -12,7 +12,7 @@ If you see her at the restaurant, sitting at the last table looking by the windo
 
 It became part of the folklore of the place, weirdly the restaurant gained popularity for the tragedy and lots of people went to have dinner there. But it stopped after the first two suicides. 
 
-And its always girls, young women, old women, it doesn’t matter. Men can’t see her, no men has ever seen her. But the women who claimed to have seen and talk to her, always kill themselves in the verge of a bad breakup. Weirdly, their relationships or even marriages are dream-like, but in a matter of weeks or months, it crumbles. And it drives them crazy, absolutely insane, they shout that they cant deal with the ache. 
+And its always girls, young women. Men can’t see her, no men has ever seen her. But the women who claimed to have seen and talk to her, always kill themselves in the verge of a bad breakup. Weirdly, their relationships or even marriages are dream-like, but in a matter of weeks or months, it crumbles. And it drives them crazy, absolutely insane, they shout that they cant deal with the ache. 
 
 When I heard about the ‘’the girls of the ache’’ like they called it, I always classified it as bullshit and mere coincidence, collective hysteria, something like that. A boring town needs this type of stuff to happen to spice things up a little bit. 
 
