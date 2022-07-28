@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4291
+file count: 4292
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1476,8 +1476,8 @@ file count: 4291
 * [I think that there is someone else living in my house](out/I_think_that_there_is_someone_else_living_in_my_house.md)
 * [I Think The Clouds Are Trying To Tell Me Something Is Coming](out/I_Think_The_Clouds_Are_Trying_To_Tell_Me_Something_Is_Coming.md)
 * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
-* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
+* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -1632,6 +1632,7 @@ file count: 4291
 * [I will never visit my grandma for Christmas again](out/I_will_never_visit_my_grandma_for_Christmas_again.md)
 * [I will not be ignored](out/I_will_not_be_ignored.md)
 * [I wish I didnt sleep ever](out/I_wish_I_didnt_sleep_ever.md)
+* [I wish I had never hiked the Mounthome Trail](out/I_wish_I_had_never_hiked_the_Mounthome_Trail.md)
 * [I wish I had never returned home](out/I_wish_I_had_never_returned_home.md)
 * [I wish I hadnt visited that website](out/I_wish_I_hadnt_visited_that_website.md)
 * [I wish I never became a trucker](out/I_wish_I_never_became_a_trucker.md)
@@ -2908,10 +2909,10 @@ file count: 4291
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
-* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
+* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
@@ -3545,8 +3546,8 @@ file count: 4291
 * [The old man](out/The_old_man.md)
 * [The Old Schoolhouses Curse](out/The_Old_Schoolhouses_Curse.md)
 * [The one time I dont lock my door](out/The_one_time_I_dont_lock_my_door.md)
-* [The One Who Follows](out/The_One_Who_Follows.md)
 * [The one who follows](out/The_one_who_follows.md)
+* [The One Who Follows](out/The_One_Who_Follows.md)
 * [The only time I encountered sleep paralysis](out/The_only_time_I_encountered_sleep_paralysis.md)
 * [The only time I gave a one star Uber rating](out/The_only_time_I_gave_a_one_star_Uber_rating.md)
 * [The Only Warning About Pendle Hill Part 1](out/The_Only_Warning_About_Pendle_Hill_Part_1.md)
