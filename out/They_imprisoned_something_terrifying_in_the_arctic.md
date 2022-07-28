@@ -30,9 +30,9 @@ I look back at the sunset. A pit of unease grows in my stomach. The shape of it 
 
 “Lently?"
 
-"S'pose so."
+"Yeah."
 
-"He's dead and gone."
+"Dead and gone."
 
 I stare at Raens waiting for him to crack a smile, to tell me he’s fucking with me, that this is all a joke. A little hazing for the new guy. But instead he sighs, looks away– wipes the back of his glove against his eyes. “Look on the bright side, kid. The isolation pay is fantastic, ain’t it?”
 
@@ -204,11 +204,13 @@ I stay where I am. My chest is heaving like a bellows, and I don't know if it’
 
 "No, I suppose you wouldn't be. Thales is a complicated man and not without his faults, but one thing you cannot deny is that the man is *devout*. Grew up in the Bible belt. Reads his book every night. Hell, rumor has it he used to moonlight as a preacher in days past."
 
-“A preacher?" I mutter. "Why would a preacher want to murder *God*?"
+“A preacher?" I mutter. "Why would a preacher want to murder God?"
 
 "Same reason any good Christian does anything," Raens says, blowing smoke into the sky. "Cause' God told him to."
 
-I open my mouth to reply but the words aren’t there. A thousand questions are ricocheting around my mind like bullets, but I can’t seem to grab hold of a single one. Instead, I take him up on his offer. I sit down next to Raens, and I reach out my hand. “On second thought,” I tell him, “I *will* take that cigarette.”
+I open my mouth to reply but the words aren’t there. A thousand questions ricochet around my mind, but I can't seem to grab hold of a single one. Instead I stumble onto the snow next to Raens. I shake my head. Reach out a quivering hand.
+
+“On second thought,” I tell him, “I will take that cigarette.”
 
 
 &#x200B;
