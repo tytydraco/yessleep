@@ -130,7 +130,7 @@ The heart rate machine, the window, the glass of water, the mirror in the corner
 
 The doctor leaned over me and opened my eyes wide, dragging a small flashlight from side to side. I didn’t bother following it. The only thing I could focus on was the man smiling in the reflection of his glasses. Laying down on a bed wearing the same white gown, just like me.
 
-\------------------------------------------------------------------------------------------------------------------------------------
+\---------------------------------------------------------------------------------------------------------------------------
 
 Reading the patient's journal was interesting, but also terrifying. To actually witness someone spiraling this far down into madness. The patient had an accident a few years ago, which had entirely ruined his face. The doctors tried their best to patch it up but there was no use even trying.
 
