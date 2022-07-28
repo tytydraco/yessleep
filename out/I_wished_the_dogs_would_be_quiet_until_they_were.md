@@ -4,7 +4,7 @@ Fair warning, **this is a long one, folks**. Eight pages. Buckle up.
 
 And if anyone in East Texas wants to tag along, message me. We're taking as many people as we can get.
 
-\-----------------------------------------------------------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------------------------------------------------------
 
 My hands tugged down at the pillow on my head. It didn’t help.
 
@@ -28,7 +28,7 @@ At fifteen I was probably too old to still wear the pink My Little Pony pajamas 
 
 Silence.
 
-I opened my door the same time my little sister opened hers. Her ten-year-old frame peeked nervously around the edge of her white door frame across from mine, eyeing me over the small gap that separated our rooms and led to the kitchen. Before either of us could step onto the five feet long, four feet wide landing of carpet that separated us, my father’s shadow burst into the kitchen, shotgun in hand.
+I opened my door the same time my little sister opened hers. Her ten-year-old frame peeked nervously around the edge of her white door across from mine, eyeing me over the small gap that separated our rooms and led to the kitchen. Before either of us could step onto the five feet long, four feet wide landing of carpet that separated us, my father’s shadow burst into the kitchen, shotgun in hand.
 
 “Stay in your rooms, lock your doors.” He commanded mid-stride; my mother’s smaller frame quickly waddled behind him in a purple nightgown.
 
@@ -150,11 +150,11 @@ A half hour went by before I had the courage to move to Melissa’s room. I was 
 
 Even traversing the tiny gap between our rooms scarred my heart forever. James’s body was crumpled against the end of the island. One arm missing at the shoulder, both orbital sockets replaced with a long, horizontal gash. His bottom jaw hung by one joint, unfortunately the one furthest from me. I got to see how few teeth remained in there. Didn’t see my uncle or whoever the third person was, I didn’t want to. I didn’t want to go look for my dad, or Daisy, or Rose. I shut the door to the carnage, retreated in with my mom and sister, crouched in the corner with them. Fear, grief, and injustice felt in silence for so long finally received voices. We bawled in huddle anguish. The pain of living, the guilt of surviving, we wept in victorious misery.
 
-\-----------------------------------------------------------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------------------------------------------------------
 
 It’s been one year. Three things happened after that night:
 
-My baby sister lives with Mimaw in Seattle
+My baby sister lives with Mimaw in Seattle.
 
 My mother hasn’t been sober since.
 
