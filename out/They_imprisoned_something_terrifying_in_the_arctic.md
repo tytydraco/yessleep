@@ -188,25 +188,28 @@ My heart is beating so fast it *hurts*. My body is covered in goosebumps and I'm
 
 I cast about for the words but there’s nothing there. I’m too scared. Too weighed down by the overwhelming immensity of the situation to properly formulate my thoughts.
 
-“Thought you didn’t believe in God?” Raens says with a grin, pulling out a fresh smoke. He passes the pack to me, and this time I can’t take one fast enough. "Agnostic, wasn't it?"
+“Thought you didn’t believe in God?” Raens says with a grin, pulling out a fresh smoke. "Agnostic, wasn't it?"
 
-“That was before I saw an army of angels get picked out of the sky like *birds.*”
+“That was before I saw an army of angels get picked out of the sky like *birds*.”
 
-Raens lights his smoke, then mine, and then he sits down in the snow. "That's a fair point. On the bright side, shift's almost over and our relief should be coming over the hill pretty quick. You hungry?"
+Raens lights his smoke, and then he sits down in the snow. "Look on the bright side, shift's almost over and our relief should be coming over the hill pretty quick. You hungry?"
 
-It takes me a second to answer because I can't believe how relaxed he is. I want to grab him and scream that we're the bad guys, but before I can muster the rage he pats the snow beside him. "Take a seat, kid. I've been here a few years so there ain't much that surprises me. Not these days."
+It takes me a second to answer because I can't believe how relaxed he is. I want to grab him and scream that we're the bad guys, but before I can muster the rage he pats the ground beside him. "Take a seat, kid. I've been here a few years so there ain't much that surprises me. Not these days."
 
-I stay where I am. My chest is heaving like a bellows, and I don't know if what I just saw or the cigarette, but I feel light-headed and woozy. I'm afraid if I sit down I'll black out. "What's Thales' deal? I mean, is he like some kind of occult monster? Militant atheist?"
+I stay where I am. My chest is heaving like a bellows, and I don't know if it’s what I just saw or the cigarette, but I feel light-headed and woozy. I'm afraid if I sit down I'll black out. "What's Thales' deal? I mean, is he like some kind of occult monster? Militant atheist?"
 
-"Thales, an atheist?" Raens laughs, sucking back on the nicotine like it's the sweetest taste in the world. "Far from it. Might be the most God-fearing Christian I've ever met, now that you mention it."
+"Thales, an atheist?" Raens laughs, laughs hard enough that he starts coughing. "Far from it. Might be the most God-fearing Christian I've ever met, now that you mention it."
 
 "I'm not tracking."
 
-"No, I suppose you wouldn't be. Thales is a complicated man and not without his faults, but one thing you cannot deny is that the man is *devout.* Grew up in the Bible belt. Reads his book every night. Hell, rumor has it he used to moonlight as a preacher in days past."
+"No, I suppose you wouldn't be. Thales is a complicated man and not without his faults, but one thing you cannot deny is that the man is *devout*. Grew up in the Bible belt. Reads his book every night. Hell, rumor has it he used to moonlight as a preacher in days past."
 
-“A preacher?" I scoff. "Why would a *preacher* want to murder God?"
+“A preacher?" I mutter. "Why would a preacher want to murder *God*?"
 
 "Same reason any good Christian does anything," Raens says, blowing smoke into the sky. "Cause' God told him to."
+
+I open my mouth to reply but the words aren’t there. A thousand questions are ricocheting around my mind like bullets, but I can’t seem to grab hold of a single one. Instead, I take him up on his offer. I sit down next to Raens, and I reach out my hand. “On second thought,” I tell him, “I *will* take that cigarette.”
+
 
 &#x200B;
 
