@@ -4,9 +4,9 @@ In the darkness, all was peaceful. But then, something changed. Something dramat
 
 This haggard skeleton, covered in mud, walked to the nearest house. A young womans, Sophia's. Sophia had recently met a man in a local nightclub, she woke up with a hangover. The man, still lying on the bed, from the night before. And the night before that. In fact, he'd been there for the last few weeks. Their relationship developed, and this one night, they both left to sit on a hill and watch the sun rise.
 
-The skeleton, who has since been named 'The Bone', walked to this house. Past plant pots, decoration, and as the wind blew, it walked to the front door. Knocking over every plant pot, or anything that made the garden look nice or presentable. The Bone dug its hook into the front door, unlocked it from the inside, and opened the door, slamming the door behind it. It walked up the stairs, and into the bathroom, jumping into the shower.
+The skeleton, who has since been named 'The Bone', walked to this house. Past plant pots, decoration, and as the wind blew, it walked to the front door. Knocking over every plant pot, or anything that made the garden look nice or presentable. The Bone dug its hook into the front door, unlocked it from the inside, and opened it, slamming the door behind it. It walked up the stairs, and into the bathroom, jumping into the shower.
 
-It came out, dripping with water, as some sort of facial structure became visible. It walked around, searching the house for anything to take, or just to look at. It found a black fedora, and place the hat firmly on its head. With that, he was prepared to leave.
+It came out, dripping with water, as some sort of facial structure became visible. It walked around, searching the house for anything to take, or just to look at. It found a black fedora, and placed the hat firmly on its head. With that, he was prepared to leave.
 
 Sophia returned home that night, with her new man - Colin. Laughing, and chatting, they entered their house and saw something terrifying. A monster walking down the stairs, as though everything was normal. Sophia screamed, Colin held her.
 
@@ -26,7 +26,7 @@ The tally was counting the people who had died at the hands of this skeleton.
 
 I closed my laptop, I've read enough for one night. I turned out my light, then got scared and turned on my lamp. I couldn't sleep, tossing and turning all night, so I decided to take a peak through my curtains, out to my window. I looked across my back garden as the rain pounded against the ground. Splashing my window, water kept falling from the sky. And past my plant pots, I saw something which I had not looked properly at for many years. Since I was at least 14. A tree house.
 
-Since I got banned from going in there - a three month ban - I have never returned. Something felt a little off about it, besides, I had no interest in that tree house anymore. To explain why I got the ban, to put it short, I got caught smoking and drinking alcohol with some of my friends in there. I haven't touched a cigarette either, though the same can't be said for the alcohol. Anyway, that is beside the point.
+Since I got banned from going in there - a three month ban - I have never returned. Something felt a little off about it, besides, I had no interest in that tree house anymore. To explain why I got the ban, to put it short, I got caught smoking and drinking alcohol with some of my friends in there. I haven't touched a cigarette since, though the same can't be said for the alcohol. Anyway, that is beside the point.
 
 I decided I would revisit the tree house, as I couldn't sleep, when would be a better time than at 2:37 in the morning? I slipped on my coat and my slippers, and walked across the wet grass, leading to the tree house.
 
@@ -44,4 +44,4 @@ A muddy, soaked skeleton, stood firmly in my back garden. Still. Staring. I stay
 
 It raised its hook again.
 
-I woke up in the past. At first it was odd, but as confused as I was, I got used to it. I waited around 30 years for this website to be developed, and now it is time to tell this story. I knew most people wouldn’t believe me, so I thought my best chance was to wait for this and tell my story here.
+I woke up so many years in the past. At first it was odd, but as confused as I was, I got used to it. I waited around 30 years for this website to be developed, and now it is time to tell this story. I knew most people wouldn’t believe me, so I thought my best chance was to wait for this and tell my story here. I've considered finding this skeleton before it can hurt anyone else. Perhaps I'll summon it somehow? I'm not sure. What if it messes up what happened to me? Then I'll never have come to be in this time at this age, with the knowledge of what had happened. Meaning, I may have stopped 'The Bone', but I'd just be back in the future again. In that case, I might have to relive the experience. That's assuming that I would go back to the future. Perhaps I should?

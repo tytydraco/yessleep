@@ -296,7 +296,9 @@ We started this tale with the jokey premise of a ghost in a gloryhole and we end
 
 Do I really need to go into the gory details of what happens on my side of the dividing wall? Just know that I have confirmed the existence of ectoplasm
 
-I walk over to the women’s restroom and prop the door open to let in what little light there is. Using my cell phone flashlight, I make my way to the second stall. The water in the commode has long since evaporated. I take a seat on the toilet, put my elbows on my knees and my chin in my hands. To the left of my head is the glory hole. I hear heavy breathing from the other side. There is the flicker of spectral movement. Something like a trick of the light.
+I walk over to the women’s restroom and prop the door open to let in what little light there is. Using my cell phone flashlight, I make my way to the second stall. The water in the commode has long since evaporated. I take a seat on the toilet, put my elbows on my knees and pull out my phone and upload everything that you've just read. 
+
+To the left of my head is the glory hole. I hear heavy breathing from the other side. There is the flicker of spectral movement. Something like a trick of the light.
 
 I inhale, blow the breath out through my nostrils, and wait for the ghost to come.
 
