@@ -140,7 +140,7 @@ On Thursday, my supervisor told us a new customer would come to take a tour of t
 
 The UPS guy left even earlier than normal. He was making weird jokes the whole time. I think he liked seeing us scramble around trying to get every order boxed up before he left. This, even more than the walls turning to teeth, told me that reality was not operating by the usual rules. Normally, my supervisor would never have allowed this. She would complain or told UPS to send us another driver or something. But instead we all just went along with it. I purposely went just a little slower than everyone else and I think the driver noticed.
 
-After he left I made for the janitor's closet. The door was locked. I knocked, feeling somewhat silly. But Ren opened it and motioned me inside. We were still wearing our purple gloves. I needed to ask him what the hell these things even were. They looked like something out of a kids' TV show. 
+After he left I made for the janitor's closet. The door was locked. I knocked, feeling somewhat silly. But Ren opened it and motioned me inside. We were still wearing our purple gloves. I needed to ask him what the hell these things even were. They looked like something out of a kids' TV show.
 
 "How does this work?" I asked. Carlos' mother's hand was still frozen in that position. She said she was ready for us.
 
@@ -169,3 +169,5 @@ Except it's not over. Carlos' brothers and sisters are still in Ivan's dollhouse
 I'm sitting on my couch typing this and trying to stay in the present. I spent today processing what happened. Tonight I'll order some food and watch something, maybe an old Bruce Lee movie. I checked my whole house (except for my roommate's room) to see if anything was turning to teeth, but Carlos assures me that's not necessary. He told me to try to enjoy my weekend and we would talk again soon. It's hard knowing that the rest of his family are still prisoners, but we won this battle, anyway.
 
 I saw Carlos' mother this afternoon. She's staying in the apartment alone for now. I guess the teeth in the closet don't bother her all that much. She says her favorite thing about being back is getting to use a real bathroom again. Sometimes it's the simple [things](https://www.reddit.com/user/_Cu_Chulainn17).
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wausu9/not_every_stranger_is_a_possible_friend_part_3/)

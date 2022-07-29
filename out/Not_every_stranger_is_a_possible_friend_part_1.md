@@ -119,3 +119,5 @@ Perhaps I will go to help Carlos tomorrow. I am a little afraid of Ivan, but I d
 I can hear my housemate cooking dinner right now. He's a night owl. It smells good. I hope I can sleep [tonight](https://www.reddit.com/user/_Cu_Chulainn17).
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/w5rvp1/not_every_stranger_is_a_possible_friend_part_2/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wausu9/not_every_stranger_is_a_possible_friend_part_3/)
