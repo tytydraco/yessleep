@@ -76,7 +76,7 @@ I passed out soon after.
 
 *.                                                         *
 
-I woke up in the hospital, i looked around, and no one was there, my hand was in a cast and I was hooked onto IVs. I was scared, I yelled for a nurse, and eventually she came, my dad and sister came also, my dad looked concerned and asked me questions, and my sister gave me a look, one that screamed ‘don’t say things you’re not supposed to say’ and I tried to  explain to my dad what happened, but he looked at me like I was insane, the doctors said it was probably a dream, but my dad does remember me asking him for the keys to the small room.
+I woke up in the hospital, i looked around, and no one was there, my hand was in a cast and I was hooked onto IVs. I was scared, I yelled for a nurse, and eventually she came, my dad and sister came also, my dad looked concerned and asked me questions, and my sister gave me a look, one that screamed ‘don’t say things you’re not supposed to say’ and I tried to  explain to my dad what happened, but he looked at me like I was insane, the doctors said it was probably a dream, but my dad remembers me asking him for the keys to the small room.
 
 They later told me that I ‘slipped outside and broke my wrist, and had a dog come and bite me’ and how ‘a concussion makes people forget things sometimes’ but I know it’s all crap.
 

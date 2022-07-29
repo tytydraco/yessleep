@@ -55,3 +55,12 @@ I found another couple interested in the house. Doing a walkthrough tomorrow eve
 I went to Walmart (that's all that's nearby) to pick up my medicine, and when I got back, my wife was sitting on the kitchen floor crying hysterically. She found the damn note. We are followers of Christ, and seeing that freaked her out. She burned the note in the kitchen sink.
 
 I don't know what that means, or whether that's a good thing or a bad thing, so advice is welcome. It burned, so I kind of think it's a good thing. Or maybe I've seen too many movies.
+
+
+Fri, June 29
+
+I haven't seen my wife since Wednesday morning. Or, hadn't, I guess.. My cellphone has been in our room. I put my phone on to charge in our room Tuesday night, fell asleep on the couch, and when I went in Wednesday morning to check on my wife, she ran at me. I haven't seen her move like that in years. I shut the door and backed up. I guess she stopped because nothing happened.
+
+Every time I've walked toward our bedroom door since,  she starts screaming at me. A horrible, screeching sound. But just now, when I went to try again, she didn't scream. She's not here. I don't know where she went. I grabbed my phone and went back to the living room. 
+
+It's so quiet.
