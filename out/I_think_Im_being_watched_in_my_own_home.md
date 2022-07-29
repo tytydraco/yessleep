@@ -9,7 +9,7 @@ Week 2 Tuesday, I came home about 10pm and decided to make dinner for myself and
 My dogs begin barking and growling and chasing it under the stairwell. I just assumed I am seeing things and go back to tending to my dinner. 
 I couldn’t help but take a quick glance back and I saw it stand up to open the basement door.
 
-It was about 6,2 and had black thin hair only going up to it’s ears. It wasn’t wearing anything but it wasn’t human it did have Norman “parts” it was a thin torso, long arms, long legs and a thin head. 
+It was about 6,2 and had black thin hair only going up to it’s ears. It wasn’t wearing anything but it wasn’t human it did have Normal “parts” it was a thin torso, long arms, long legs and a thin head. 
 
 As any SANE person I take my dogs out in the car and drive to my sisters to “visit” my sleeping nieces. I must of driven for about an hour until I Calmed down and processed what I saw, I can’t drive back at least not alone. 
  
