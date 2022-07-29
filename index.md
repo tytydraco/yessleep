@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4343
+file count: 4344
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -732,8 +732,8 @@ file count: 4343
 * [HELP NEEDED BEING TORMENTED BY A GODDESS](out/HELP_NEEDED_BEING_TORMENTED_BY_A_GODDESS.md)
 * [Help The Piggy Killers are hungry](out/Help_The_Piggy_Killers_are_hungry.md)
 * [HENTAI](out/HENTAI.md)
-* [Her Part One](out/Her_Part_One.md)
 * [Her Part one](out/Her_Part_one.md)
+* [Her Part One](out/Her_Part_One.md)
 * [hes a runner hes a track star](out/hes_a_runner_hes_a_track_star.md)
 * [Hes been watching ever since](out/Hes_been_watching_ever_since.md)
 * [Hes in my house](out/Hes_in_my_house.md)
@@ -1497,8 +1497,8 @@ file count: 4343
 * [I Think The Clouds Are Trying To Tell Me Something Is Coming](out/I_Think_The_Clouds_Are_Trying_To_Tell_Me_Something_Is_Coming.md)
 * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
 * [I Think There is A Reason No Ones Heard of the Breaking Wheel Cartel](out/I_Think_There_is_A_Reason_No_Ones_Heard_of_the_Breaking_Wheel_Cartel.md)
-* [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
 * [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
+* [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -2947,8 +2947,8 @@ file count: 4343
 * [Side Effects](out/Side_Effects.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
-* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
@@ -3212,8 +3212,8 @@ file count: 4343
 * [The Cabin in the Woods](out/The_Cabin_in_the_Woods.md)
 * [The Cabin Just Outside of Town](out/The_Cabin_Just_Outside_of_Town.md)
 * [The Call of Two Waterslides](out/The_Call_of_Two_Waterslides.md)
-* [The Call](out/The_Call.md)
 * [The call](out/The_call.md)
+* [The Call](out/The_Call.md)
 * [The calls](out/The_calls.md)
 * [The Cameras Are Always Watching](out/The_Cameras_Are_Always_Watching.md)
 * [The Cannibal Boss](out/The_Cannibal_Boss.md)
@@ -3882,6 +3882,7 @@ file count: 4343
 * [Theres a weird smell in my house](out/Theres_a_weird_smell_in_my_house.md)
 * [Theres a woman in my house who tells me how she died](out/Theres_a_woman_in_my_house_who_tells_me_how_she_died.md)
 * [Theres a wormhole in my closet Its gotten bad and I dont know what to do](out/Theres_a_wormhole_in_my_closet_Its_gotten_bad_and_I_dont_know_what_to_do.md)
+* [Theres a youtuber who sounds exactly like me but I dont have a YouTube channel](out/Theres_a_youtuber_who_sounds_exactly_like_me_but_I_dont_have_a_YouTube_channel.md)
 * [Theres always something out in the wilderness Might not be an animal but there is something](out/Theres_always_something_out_in_the_wilderness_Might_not_be_an_animal_but_there_is_something.md)
 * [Theres an Abomination in my Basement Crawl Space](out/Theres_an_Abomination_in_my_Basement_Crawl_Space.md)
 * [Theres an airconditioned armored transport vehicle heading into Hell](out/Theres_an_airconditioned_armored_transport_vehicle_heading_into_Hell.md)
