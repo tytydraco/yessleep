@@ -8,7 +8,7 @@ For a while I didn't know if it was his rule or his parents. Honestly, I didn't 
 
 One time I had to piss really bad. All the bathrooms were taken except the one in his Tyler's parents’ room. I'd never actually been in their room before. There were two doors in there, I didn't know which was for the bathroom, and grabbed the knob nearest to me. Before I could turn Tyler's dad grabbed my arm.
 
-"Marco. Do not go in the closet," he said, glaring at him.
+"Marco. Do not go in the closet," he said, glaring at me.
 
 "I'm sorry sir. I was hoping this was the bathroom," I replied.
 
