@@ -208,7 +208,7 @@ But unlike Daniel, she might actually be right.
 
 "Hey, look! We found my cello case!"
 
-The case was in a hole. A freshly dug hole, from the looks of it. I could see a shovel covered in dirt leaning against a nearby tree. It was super deep, if I fell in, I wasn't sure I would be able to climb back up. 
+The case was in a hole. A freshly dug hole, from the looks of it. I could see a shovel covered in dirt leaning against a nearby tree. It was super deep, if I fell in, I wasn't sure I would be able to climb back up.
 
 "How...did it get in there?"
 
@@ -226,7 +226,7 @@ But I grabbed the end of the cello case she told me to, and lifted it. It wasn't
 
 "See, that wasn't so bad!"
 
-She dusted the soil off the case, then put the strap on one shoulder and carried it on her back. The case was nearly as tall as she was, and I wondered how she could've possibly lost something that huge. 
+She dusted the soil off the case, then put the strap on one shoulder and carried it on her back. The case was nearly as tall as she was, and I wondered how she could've possibly lost something that huge.
 
 "Let's head back. The sun's setting, and you don't wanna be here when it gets dark unless you know this place well."
 
@@ -358,7 +358,7 @@ She didn't say anything, she just gave me that same mischievous smile she gave m
 
 "See ya later!"
 
-She ran off before I could ask any more questions. 
+She ran off before I could ask any more questions.
 
 So now I'm sitting in my room, wondering what the fuck was in that case, and why Heather paid me three hundred dollars to put it on someone's doorstep, and why the police here don't even care about the people in the woods who are eating their own hands. I've been staring at the money she gave me for half an hour.
 
