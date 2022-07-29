@@ -14,7 +14,7 @@ I guess nothing more than the story as it was told to me.
 
 -------------  
 
-**SEPTEMBER 29th, 1989." 
+**SEPTEMBER 29th, 1989.**
 
 You've never seen anything like Yellowstone in autumn.  A world captured in amber, a vast theater alive with the changing of seasons.  The trees, burnt orange, released their leaves in great trickles that blanketed the ground, crunching underfoot like the spines of dead insects.  Halloween was just around the corner, and you could taste it on the wind -- it rode the air like birdsong, sweet but imperceptibly ripe, like a candy apple gone to corruption.  
 

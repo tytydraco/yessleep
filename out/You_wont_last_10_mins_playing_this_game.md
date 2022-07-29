@@ -2,7 +2,7 @@ We all have seen these pop up ads that say "You won't last 10 minutes playing th
 
 ***************************************************************
 
-I re-adjusted my glasses for what felt like the hundredth time as I pondered over a math problem. It was late at night, the clock confirming it by showing that it was almost 1 am. I had a math exam in a few hours and I still had a lot of material to revise.
+I re-adjusted my glasses for what felt like the hundredth time as I pondered over a math problem. It was late at night, the clock confirming it by showing that it was almost 1 am. I have a math exam in a few hours and I still had a lot of material to revise.
 
 I closed my math note book as I couldn't focus anymore. I looked towards the empty bed on my left. It was Jeffrey's, my roommate. He was probably on the roof taking a cigarette break from all the studying. We had rented a room in an apartment near the school so that it saved us travel expenses. 
 
