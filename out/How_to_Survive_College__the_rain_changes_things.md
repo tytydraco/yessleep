@@ -8,7 +8,7 @@ Turns out that Grayson signed up for Irish folk dancing classes that the univers
 
 Anyway, I’ve now got a standing invite for the game night that Katana Boy hosts on Fridays and they’re making sure to let me know if there’s anything impromptu going on.  Which is how I found out for a second time that Patricia was up to something.
 
-‘Did Patricia remember to invite you?’ the message read.  
+‘Did Patricia remember to invite you?’ the message read.
 
 It was from one of the members that was taking particular care to make sure she asked me about every single thing going on, as there was no private channel to invite me to, all the invitations were made through an absurd word of mouth system.
 
@@ -16,7 +16,7 @@ Not that I’m one to talk.  I grew up in a small town, after all.
 
 I messaged Patricia and asked what was going on.  Maybe it was nothing bad, I told myself.  She said she’d help take care of the laundry lady situation, after all.  And she agreed to meet up with me to talk in person.
 
-She was asking people to join her in the power plant, she said when we arrived at the dining hall in her dormitory, and my blood ran cold.  
+She was asking people to join her in the power plant, she said when we arrived at the dining hall in her dormitory, and my blood ran cold.
 
 “It’s fine,” she said hastily, seeing the look on my face.  “It won’t be like last time.”
 
@@ -36,11 +36,11 @@ She at least had the self-awareness to give herself a somewhat embarrassed laugh
 
 “I broke my own rule,” she said.  “I admit it.  But I was just - after that boy died I thought I had to make it right - and don’t you see?  This could save everyone!”
 
-She’d been experimenting since drinking the water.  She’d been in the steam tunnels.  Gone out while it was raining.  Nothing has happened to her.  Nothing at all.  
+She’d been experimenting since drinking the water.  She’d been in the steam tunnels.  Gone out while it was raining.  Nothing has happened to her.  Nothing at all.
 
 “Aren’t you worried about side effects or something?” I asked.
 
-Her proposal sounded *very* tempting and if I, who knows better than to drink from that damn pool, was tempted, then the other Rain Chasers wouldn’t hesitate.  
+Her proposal sounded *very* tempting and if I, who knows better than to drink from that damn pool, was tempted, then the other Rain Chasers wouldn’t hesitate.
 
 “All my friends have had a drink at this point.  Nothing has happened to anyone,” she replied with a shrug.
 
@@ -78,13 +78,13 @@ Please don’t think I was being mean, but I wanted to make sure Cassie had exha
 
 “I did and, uh, well.” She took a deep, shuddering breath.  “Please come get me.”
 
-Then she hung up and I didn’t have any way to keep arguing. Probably just as well.  I was out of ideas anyway.  I took a deep breath and consulted my map of the steam tunnels.  I could use them to get there, I reasoned, and that would keep me out of the rain.  I couldn’t shake the unease I felt every time I glanced out the window.  
+Then she hung up and I didn’t have any way to keep arguing. Probably just as well.  I was out of ideas anyway.  I took a deep breath and consulted my map of the steam tunnels.  I could use them to get there, I reasoned, and that would keep me out of the rain.  I couldn’t shake the unease I felt every time I glanced out the window.
 
 It’s not normal for there to be no wind.  We have a lot of wind here, especially when it rains.  Perhaps this rain was no more dangerous than any other, but the quiet and calm way it was coming down was enough of a departure from normal that it concerned me.
 
 I didn’t want to walk in it if there were alternatives, even if that alternative was taking my chances with a ghost.
 
-If you’re like Ashley, why didn’t *you* call for a ride, well, I did think of it.  But I was getting creeped out just thinking of running that short distance between the dorm doors and the road.  
+If you’re like Ashley, why didn’t *you* call for a ride, well, I did think of it.  But I was getting creeped out just thinking of running that short distance between the dorm doors and the road.
 
 Also I wanted to make sure the steam tunnels would be relatively safe so I could convince Cassie to follow me back through them.
 
@@ -102,7 +102,7 @@ She’d stopped pacing at my arrival, at least.  She took a deep breath and glan
 
 She gestured helplessly at the car outside.  I nervously walked over to the glass doors, keeping close to the wall so I’d at least have something solid at my back.  Perhaps it was pointless, but it made me feel slightly less apprehensive.
 
-I stared out into the darkness, trying to make out the interior of the car.  It took a moment to comprehend what I was looking at.  
+I stared out into the darkness, trying to make out the interior of the car.  It took a moment to comprehend what I was looking at.
 
 The driver’s arms were coming out of her back.  They started on either side of the spine and bent over her shoulders, the elbows at her ears, her hands resting on the steering wheel.
 
@@ -136,7 +136,7 @@ I amended that by admitting that I really didn’t know what would happen.  Thes
 
 “Will you come with me?” she whispered.
 
-The ride wasn’t restricted to one person, after all.  There was no reason I couldn’t come with her.  
+The ride wasn’t restricted to one person, after all.  There was no reason I couldn’t come with her.
 
 I told her I would.
 
@@ -150,11 +150,11 @@ I elbowed Cassie.  I was only here to help.  She had to fulfill the social oblig
 
 The car started moving.  Cassie slipped a hand over and grabbed mine.  Her fingers were tight enough that it hurt.
 
-I think I almost prefer dealing with something like the swimmers or the steam ghost.  With those, there’s a brief moment of blind terror at the realization that something is trying to actively kill you.  Then the adrenaline kicks in and maybe it just paralyzes me, but at least then I don’t *feel* that much anymore.  It’s like all the emotion and sensation is smothered under a thick blanket and I’m just casually observing the world around me.  
+I think I almost prefer dealing with something like the swimmers or the steam ghost.  With those, there’s a brief moment of blind terror at the realization that something is trying to actively kill you.  Then the adrenaline kicks in and maybe it just paralyzes me, but at least then I don’t *feel* that much anymore.  It’s like all the emotion and sensation is smothered under a thick blanket and I’m just casually observing the world around me.
 
 In the back of that car… it was like all I *could* do was feel my fear.  A thousand useless thoughts ran through my head, asking me if I’d made the right choice, if this was going to really turn out like it did in the stories.  And I know Cassie was thinking the same thing, judging by the grip she had on my hand.  I squeezed back as hard as we sat in silence, watching the girl’s arms sway back and forth and she maneuvered the car around campus.
 
-She took us to where Cassie’s class was and parked the car.  She sat there for a moment and Cassie shifted, getting ready to exit.  I gestured at her phone.  She hastily checked the screen.  
+She took us to where Cassie’s class was and parked the car.  She sat there for a moment and Cassie shifted, getting ready to exit.  I gestured at her phone.  She hastily checked the screen.
 
 Our ride wasn’t showing as completed.
 
@@ -200,7 +200,7 @@ She licked her lips and didn’t reply.
 
 “You know,” I said tentatively.  “I saw someone die.  These creatures - these inhuman things - I saw someone die because of them.”
 
-She stared at her desk, strewn with candy wrappers, for a long moment and I thought she wouldn’t answer at all.  
+She stared at her desk, strewn with candy wrappers, for a long moment and I thought she wouldn’t answer at all.
 
 “My roommate… the one before you,” she finally whispered.  “She told me.  She had a run-in with the traveling river and after that, she started seeing all sorts of things.  Like once you’ve seen one occurrence, all the rest are so much easier to spot.”
 
@@ -219,6 +219,8 @@ I knew what Cassie would say next.  I knew exactly what she’d say.  I crept cl
 “I’m the only one that still remembers her on campus,” she whispered.
 
 I didn’t know what to say, so I just held her hand for a long time while she cried.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/watzgt/how_to_survive_college_a_hole_in_the_world/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
