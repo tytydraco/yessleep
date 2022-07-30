@@ -84,10 +84,12 @@ But that isn’t the only reason why I’m writing all this down on Reddit. Oh n
 
 Because, you see, this itch is burning through my body like fire. And I can’t help scratching. It’s getting easier now to scratch, because of how my hands are slowly curving into scaly gray claws. Harder to type though. I’m starting to struggle getting those last few words out.
 
-But I still keep on going. Writing on Reddit helps me focus. Focus on trying to get out of here and getting that help I so desperately want.
+I'm running out of time too. The stones are squeezing me alive; that little pocket of air is slowly getting smaller--from the outside. And every hour, as I type, more stones are tumbling down around me from above, and I hear the hiss of the baby dragonoids and the scrape of their new claws on the rocks.
 
-Because I can’t help thinking how nice it is to stretch those wings slowly erupting from my back and bursting out of my prison like a wrecking ball. I’m sure I am strong enough now, unlike my weak human self.
+Just now, one of them has poked their heads through the cracks, the human long gone. All I can see is that ashen gray snout twisting into a victorious smile.
 
-[And most importantly, s-sometimes (Dan, focus!)  I love watching the world burn.](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+Each hiss, each roar, each tumble is sending shivers up my spine.
+
+[I wish I can transform faster](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [SK](https://www.reddit.com/r/SimbaKingdom/)
