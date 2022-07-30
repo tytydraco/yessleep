@@ -122,7 +122,7 @@ I finished writing her answer to my question, and I looked up from my notepad to
 
 “What did you do?”
 
-“I took my father’s hammer and nails from his toolbox. As I hammered the nail into my left hand, blood spattered on the walls and floor. I managed to nail it onto a makeshift cross on the wall of my bedroom. I lapsed in and out of ecstasy as I crucified myself. When I attempted to nail my right hand onto the cross, I fainted from the pain.”
+“I took my father’s hammer and nails from his toolbox. As I hammered the nail into my right foot, blood spattered on the walls and floor. I managed to nail it onto a makeshift cross on the wall of my bedroom. I lapsed in and out of ecstasy as I crucified myself. When I attempted to nail my right hand onto the cross, I fainted from the pain.”
 
 Although I was horrified by her recollection of self–crucifixion, I attempted to appear unaffected, so I would not offend her. *What child tries to crucify herself?* It made me profoundly uncomfortable. Nevertheless, I asked her another question.
 

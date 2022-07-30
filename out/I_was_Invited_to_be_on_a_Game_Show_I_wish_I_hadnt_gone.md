@@ -229,3 +229,7 @@ I looked at the envelope, and sure enough, it said my name on the front. At firs
 *"Dear Maddox. You won't get off that easy. Maybe you can come onto the show again:)*
 
 *\~ Mr. Davidson."*
+
+&#x200B;
+
+[X](https://www.reddit.com/r/kazthemurphyfan/)
