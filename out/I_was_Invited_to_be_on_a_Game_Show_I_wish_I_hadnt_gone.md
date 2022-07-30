@@ -192,7 +192,7 @@ I got up as fast as I could and took another look at Pat, who was still on the f
 
 "Good ass right hook, ow..." Pat says, hurt. I drop my knife and start to run up the stairs. I look at him again.
 
-"I'm getting the hell out of here, I think he'll give you the money by default, don't worry," I say down to him. I turn away to the door and hear him say something, but I couldn't hear him over the sound of the loudspeaker coming back on.
+"I'm getting the hell out of here, I think he'll give you the money by default, don't worry," I say down to him. I turn away to the door and hear him say something, but I couldn't tell what he was saying over the sound of the loudspeaker coming back on.
 
 **"Come on Pat, kill him! You had it there, just..."** Mr. Davidson starts speaking again, at first sounding joyful as he did nearly this whole time, but now beginning to sound angry and just outright... Evil.
 
