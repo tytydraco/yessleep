@@ -480,7 +480,7 @@ The man cleared his throat.  “It is an old model, so we expect blips—includ
 
 “Think of it like this.” The man said. “Imagine you went to sleep a long time ago, and suddenly you wake up inside a shell of steel made to entertain.” 
 
-He clucked his tongue, “Kid, our performers aren’t supposed to have self-awareness. If they did, it would drive them crazy—and would you blame them? Years spent in relaxing slumber only to find their body has gone. Every self-aware moment in a body which has stopped will make you regret ever hoping to be set free. And why you want to escape?” 
+He clucked his tongue, “Kid, our performers aren’t supposed to have self-awareness. If they did, it would drive them crazy—and would you blame them? Years spent in relaxing slumber only to find their body has gone. Every self-aware moment in a body which has stopped will make you regret ever hoping to be set free. And why would you want to escape?” 
 
 His laugh sent shivers down my spine. “You are entertaining children, allowing them to bask in a fantasy of their own mind.”
 
