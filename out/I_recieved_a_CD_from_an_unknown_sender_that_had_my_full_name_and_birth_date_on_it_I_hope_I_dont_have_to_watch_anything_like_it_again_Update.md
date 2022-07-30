@@ -265,13 +265,13 @@ I was sitting in a room with light grey walls. The room was the size of an avera
 I walked up to the grey metal door, thinking I could get out of the room. I turned the knob, but it wouldn't budge. I looked back at the hole to see if the eye was still peeking through the hole. That was when the tapping stopped. A long string insect, like a very thin snake, crawled out of the hole. It slithered around the hole for a few seconds, then it began to slither towards me. I assumed it was something malicious the man with the tall head sent after me. A pit formed in my stomach. I knocked on the door. No answer came from outside. I knocked again. No answer. The snake was about midway to where I was standing.
 
 
-A series of gunshot bangs rang out outside the room. A couple loud booms caused the room to vibrate. I glanced back at the snake. It had paused in its tracks, hanging on the wall to the left of the door. A voice called out to me from outside the room.
+A series of loud bangs that sounded like gunshots rang out outside the room. A couple loud booms caused the room to vibrate. I glanced back at the snake. It had paused in its tracks, hanging on the wall to the left of the door. A voice called out to me from outside the room.
 
 
 "If anyone is in there, make sure you are far from the door"
 
 
-I stepped back from the door. I walked back towards the chair, then I stood up against the wall at the back of the room. Another minute of gunshots later, there was a banging on the door. Followed by an ear piercing metallic screech. The door was pushed off its hinges and fell to the ground with a thud. A man in what looked like SWAT gear, but a bit heavier, stood outside the doorway. A cloud of dust occupied the space behind him. The silhouette of a tall figure ran by. It's speed was unnatural and chilling. The man in the heavy suit spoke.
+I stepped back from the door. I walked back towards the chair, then I stood up against the wall at the back of the room. Another minute of gunshots later, there was a banging on the door. Followed by an ear piercing metallic screech. The door was pushed off its hinges and fell to the ground with a thud. A man in what looked like SWAT gear, but a bit heavier, and unmarked, stood outside the doorway. A cloud of dust occupied the space behind him. The silhouette of a tall figure ran by. It's speed was unnatural and chilling. The man in the heavy suit spoke.
 
 
 "You aren't supposed to be here," he said. "Not that it's your fault. Please stay calm. We're going to get you home."
@@ -334,7 +334,7 @@ I woke up to the morning light. Looking at the window, I saw a cloudy sky outsid
 "Victim 80."
 
 
-Alexandria walked into the living room. I followed behind. She pressed a button on the console, ejecting the 2022-07-26 CD. The nostalgic feelings were gone. I recalled all the moments I hung out with the man. Each of them were clear. The man was no longer in any of them. Alexandria grabbed the CD and stood back up. She observed the front of the disk.
+Alexandria walked into the living room. I followed behind. She pressed a button on the console, ejecting the 2022-07-26 CD from the console. The nostalgic feelings were gone. I recalled all the moments I hung out with the man. Each of them were clear. The man was no longer in any of them. Alexandria grabbed the CD and stood back up. She observed the front of the disk.
 
 
 "We were tricked by him. He put himself into our memories so we'd think he was our friend this whole time," she said.
