@@ -1,4 +1,4 @@
-It was a chill Tuesday morning when I found it on my doorstep. A DVD case without a cover. Inside the case was a cover-less CD with small black writing on it. I picked the CD case up so I could get a better look at the CD.
+It was a chill Tuesday morning when I found it on my doorstep. A DVD case without a cover. Inside the case was a blank CD with small black writing on it. I picked the CD case up so I could get a better look at the CD.
 
 
 "2022-07-26 - Andrew Matthews - Birthday: 2003-05-14"
@@ -248,3 +248,6 @@ I'm just too confused right now. And there's nowhere to go. Not even the police 
 
 
 As for the man with the tall head situation, I have no idea what to expect. All I know is that whatever this is, it's the real deal. It's currently around 1:30 PM July 27th. Not too long before 1:53 PM and 5:23 PM… I'll see how things will go. Hopefully I'll get out of this without any pain.
+
+
+[Update](https://www.reddit.com/r/nosleep/comments/wc5uv3/i_recieved_a_cd_from_an_unknown_sender_that_had/)

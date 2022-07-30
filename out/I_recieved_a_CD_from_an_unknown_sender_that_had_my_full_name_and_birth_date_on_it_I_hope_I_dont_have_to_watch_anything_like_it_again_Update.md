@@ -1,3 +1,6 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/w9kzrk/i_recieved_a_cd_from_an_unknown_sender_that_had/)
+
+
 This came up so sudden. It started with me finding a CD with my name and birthdate on it. I watched the video on it and saw creepy things I am now about to be faced with… as the video threatened. A man with a tall head starred in the video. The video was of him… well I'm not sure what he was doing exactly, but it sounded dangerous. The police were notified. This is the update.
 
 
@@ -343,7 +346,7 @@ Alexandria walked into the living room. I followed behind. She pressed a button 
 "Yeah, so we'd let our guards down. I still don't know what he wanted," I said.
 
 
-Alexandria flipped her hair back while holding the CD in her right hand. She walked over to the wall I was standing beside. She put the shiny side of the CD against the wall, then she scraped the CD up and down against the wall repeatedly. She scratched it for at least 10 seconds. I was relieved, hoping this was over.
+Alexandria flipped her hair back while holding the CD in her right hand. She walked over to the wall I was standing beside. She put the shiny side of the CD against the wall, then she scraped the CD up and down against the wall repeatedly. She scratched it for at least 10 seconds. I was relieved. Hopefully this is over, I thought to myself.
 
 
 She observed the back of the CD.
@@ -379,7 +382,7 @@ A minute later, he responded. To my excitement.
 "Oh god. I'll scratch the pieces up then. I'm glad I'm safe. My parents hugged me hard when they saw me lol"
 
 
-At around 11, Alexandria went back home. At 4 PM, she told me her kitchen was going to be rebuilt. Redone too, as it might as well have been anyway.
+At around 11, Alexandria went back home. At 4 PM, she told me her kitchen was going to be rebuilt. Redone too, as it might as well have been anyway, according to her.
 
 
 The following day, I visited her house to play video games. At one point, she asked me to get something from her room. She told me it was in her closet. I went up to her room to go look for it. As I was sifting through stuff in her closet, I found a DVD without a cover. It had a CD inside it.
@@ -391,7 +394,7 @@ The following day, I visited her house to play video games. At one point, she as
 I was curious as to how Alexandria didn't notice this. I took the CD out of its case. As I attempted to flip it around to check the back of it for scratches, it fell out of my hands and landed on the floor. I didn't hesitate to drag the CD back and forth across the floor repeatedly, scratching it to oblivion.
 
 
-I picked the CD up and took it downstairs to show Alexandria. I told her I found it in her room. I held it in front of her. She asked me if she could see it. I handed it to her. As she looked at the front of the disk, she developed a look of disgust. She turned it around.
+I picked the CD up and took it downstairs to show Alexandria. I told her I found it in her room. I held it in front of her. She asked me if she could see it. I handed it to her. As she looked at the front of the disk, she developed a look of disgust. Then she turned the disk around.
 
 
 "I already scratched it," I said.
