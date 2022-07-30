@@ -4,7 +4,7 @@ A r/nosleep scraper and publisher in Markdown format
 
 # Website
 
-Access the website for the archive [here](https://tytydraco.github.io/yessleep).
+Access the official website for the archive [here](https://yessleep.tytydraco.xyz).
 
 The [index.md](index.md) file is generated via the [inc](https://www.github.com/tytydraco/inc) project.
 
