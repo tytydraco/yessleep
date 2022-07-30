@@ -222,7 +222,7 @@ The next day there was a knock at my door at about 10 AM. At first, I was startl
 
 "Yeah, that's me. Is that for me?" I point at the envelope.
 
-"There's a letter here for you. I don't know who it's from," he hands me the envelope, and I take it. "Have a good day!" The mailman says to me as he walks off my porch. I wave at him as I close my front door and walk into the kitchen.
+"This letter *is* indeed for you. I don't know who it's from," he hands me the envelope. I take it, at first ambivalent about it. "Have a good day!" The mailman says to me as he walks off my porch. I wave at him as I close my front door and walk into the kitchen.
 
 I looked at the envelope, and sure enough, it said my name on the front. At first, I was confused, why would anybody send me a letter? I open it carefully and pull the letter out. I unwrap it and read it. My heart sinks when I read it.
 
