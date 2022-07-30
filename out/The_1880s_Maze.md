@@ -167,7 +167,7 @@ I'm just too scared to contact the priest to find out what else is hidden there.
 
  who is that man wearing a high-top hat with a frock coat who saved David? What is this maze? Why do they want to kill David? 
 
-The only common this we saw, me and David, was that man.
+The only common thing we saw, me and David, was that man.
 
 So If I didn't listen to the man, do you think David would have been dead?
 
