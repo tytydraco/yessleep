@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/w7meq0/i_got_rid_of_an_abortionist_now_i_face_the_angels/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/w7meq0/i_got_rid_of_an_abortionist_now_i_face_the_angels/)
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/w9bofu/i_got_rid_of_an_abortionist_my_actions_were_laid/)
 
@@ -6,7 +6,7 @@
 
 I remember shaking and feeling as if my world was crashing down around me.
 
-Uphir’s moment of triumph was interrupted by Sisoe, “Charity was misled!” She called out.  
+Uphir’s moment of triumph was interrupted by Sisoe, “Charity was misled!” She called out.
 
 Uphir leaned away from me, returning to his lectern, “Misled? She seemed *more* than capable and culpable. I saw little to no misleading parties,” Uphir stated matter-of-factly.
 
@@ -20,7 +20,7 @@ Uriel’s voice boomed, “**Silence!”**
 
 Uphir and Sisoe turned to Uriel, with Sisoe jumping slightly from Uriel’s mighty voice.
 
-“Evidence,” Uriel demanded, turning to Sisoe, “Such an accusation requires evidence.” 
+“Evidence,” Uriel demanded, turning to Sisoe, “Such an accusation requires evidence.”
 
 Sisoe steadied herself and cleared her throat, “I call forth, to our presence, the one who goes by the mortal name of Sal Lous.”
 
@@ -30,9 +30,9 @@ Uphir smiled, “To call forth a Duke of Hell, even to this realm, from another,
 
 “A Duke of Hell?” I asked, confused, “Sal isn’t a duke. He’s a preacher.”
 
-Sisoe nodded, “See? She was deceived!” 
+Sisoe nodded, “See? She was deceived!”
 
-“Humans know the devil comes in many forms. Their judgment to follow those who claim to be one thing and remain another is their responsibility to bear,” Uriel lamented, “However, if you’re stating that somehow Charity Higgins’ free will was subverted or greatly influenced by demonic magics or misdeed, then that changes the narrative,” his maw turned up into a delighted grin, “Oh, but this is the *most* interesting judgment I’ve presided over in millennia! I do hope this isn't the last of this sort.” 
+“Humans know the devil comes in many forms. Their judgment to follow those who claim to be one thing and remain another is their responsibility to bear,” Uriel lamented, “However, if you’re stating that somehow Charity Higgins’ free will was subverted or greatly influenced by demonic magics or misdeed, then that changes the narrative,” his maw turned up into a delighted grin, “Oh, but this is the *most* interesting judgment I’ve presided over in millennia! I do hope this isn't the last of this sort.”
 
 Uphir nodded and moved to the center of the room. He drew a circle on the floor and within it, I watched him begin to spell out letters: S A L E O S.
 
@@ -50,7 +50,7 @@ The figure turned to me and I saw a wide smile before the familiar face of Sal a
 
 I swallowed hard, confusion turning to fear as he spoke more crassly to me.
 
-“You outdid my wildest expectations, I must say. I knew you were passionate, but,” Sal wagged his finger at me, “Shame, shame, little one! Such a naughty little girl to cause such heartache.” 
+“You outdid my wildest expectations, I must say. I knew you were passionate, but,” Sal wagged his finger at me, “Shame, shame, little one! Such a naughty little girl to cause such heartache.”
 
 Sisoe glared at Sal, “Duke Saleos admitted to it! He manipulated her and led her astray!” Sisoe accused.
 
@@ -58,9 +58,9 @@ Sal narrowed his eyes on Sisoe and those eyes turned black as a smoke-like beard
 
 “Manipulate? I only guided Charity to her own truth!” Sal bellowed.
 
-“W-What are you?!” I shouted, horrified by the sudden change in Sal’s appearance.  
+“W-What are you?!” I shouted, horrified by the sudden change in Sal’s appearance.
 
-Sal’s black eyes focused on me, “**I am Duke Saleos, Nineteenth Spirit of the Seventy Two enslaved by the King of Fools, Solomon, Herald of Creation and commander of thirty legions of the infernal armies**.” 
+Sal’s black eyes focused on me, “**I am Duke Saleos, Nineteenth Spirit of the Seventy Two enslaved by the King of Fools, Solomon, Herald of Creation and commander of thirty legions of the infernal armies**.”
 
 I swallowed hard, “Y-You were our ‘Army of God’ leader. Y-You talked about how children being born was a sacred act of God.”
 
@@ -88,7 +88,7 @@ Sal laughed, “Manipulated her?” he grinned, “I merely offered her access t
 
 Sisoe’s face went pale, “Saleos has given his testimony. He may leave now-”
 
-Uphir quickly held his hand up, “I object to Saleos’s dismissal! It is clear Saleos is aware of more sin weighing on Charity Higgins' soul.” 
+Uphir quickly held his hand up, “I object to Saleos’s dismissal! It is clear Saleos is aware of more sin weighing on Charity Higgins' soul.”
 
 Uriel knocked his mighty claw on the stone table, “Speak of this sin, Duke of Hell, then you may leave. The less time I spend looking over you, the better.”
 
@@ -100,7 +100,7 @@ Uriel pointed a clawed finger at Saleos, “It is only by my grace and patience 
 
 “I-” before I could speak, Sisoe was quick to interrupt me.
 
-“She did no more than *you* did to her. That’s not misleading!” Sisoe argued. 
+“She did no more than *you* did to her. That’s not misleading!” Sisoe argued.
 
 Saleos turned to Uphir, “Enjoy her soul. She’s a sweet thing,” before he turned to Sisoe, “Unlike Charity Higgins, Jeremey Higgins is her son. What is it you angels demanded of mortals? Ah! *Respect Thine Father and Thy Mother*, yes?” Saleos said with a mocking laugh.
 
@@ -130,7 +130,7 @@ Sisoe was pacing back and forth.
 
 I swallowed hard, “S-Sisoe?”
 
-“Yes, yes, I…” Sisoe turned to me, “Oh, prepping you. Right. I’m so sorry. Okay…” she knelt before me and smiled, “We’re okay so far. Everyone sins and makes mistakes. We must compare your sin to your good works and prove that sin is outweighed.” 
+“Yes, yes, I…” Sisoe turned to me, “Oh, prepping you. Right. I’m so sorry. Okay…” she knelt before me and smiled, “We’re okay so far. Everyone sins and makes mistakes. We must compare your sin to your good works and prove that sin is outweighed.”
 
 “O-okay,” I stammered, still nervous.
 
@@ -144,7 +144,7 @@ I heaved a sigh, “The party. The party where I made sure all the boy’s stori
 
 “Okay, that’s good. Your intentions are clear. We need to present that to give context to your son's actions,” Sisoe stood up, looking around, “Sisynios, Synidores? Are you there? I could use a little advice.”
 
-Sisynios appeared first, looking up to Sisoe, “Oh, we’re dropping the mortal friendly forms? Lovely!” Sisynios stretched and I watched as they turned into a male negative of Sisoe. A muscular form with razor-sharp claws and a hawk-like beak, but their scales were white with flecks of gold and their horns and claws were golden like Sisoe. 
+Sisynios appeared first, looking up to Sisoe, “Oh, we’re dropping the mortal friendly forms? Lovely!” Sisynios stretched and I watched as they turned into a male negative of Sisoe. A muscular form with razor-sharp claws and a hawk-like beak, but their scales were white with flecks of gold and their horns and claws were golden like Sisoe.
 
 I swallowed hard, “H-Hi.”
 
@@ -154,14 +154,13 @@ I nodded, looking around curiously before a bright flash filled my vision.
 
 A mighty crystal-like being appeared before me, with a ring of rotating eyes circling its entire form. Six rigid crystal wings spread from behind it as it floated near me. A head sat on the body, eyeless and nooseless, with only a mouth on its otherwise smooth and pearl-like face. It appeared as if it were a moving quartz statue.
 
-“Charity,” the voice of Synidores echoed from its mouth, “It is I, Synidores, *be not afraid*.” 
+“Charity,” the voice of Synidores echoed from its mouth, “It is I, Synidores, *be not afraid*.”
 
 I was stunned by their appearance and knelt, “H-Hello, Saint Synidores. I’m sorry if my comments offended you.”
 
-“Stand, I am no deity,” Synidores explained, “I should apologize for being so easily offended. I dislike being pressed into mortal definitions of gender and biology.” 
+“Stand, I am no deity,” Synidores explained, “I should apologize for being so easily offended. I dislike being pressed into mortal definitions of gender and biology.”
 
-I gave a nod, “I’m… Well, I’m learning a lot today.”  
-
+I gave a nod, “I’m… Well, I’m learning a lot today.”
 
 Synidores form appeared to turn to Sisoe, “Are you having difficulty?”
 
@@ -179,7 +178,7 @@ Sisynios placed his hand to his chin, “Well, that is cruel, but nothing terrib
 
 “To the point where she committed suicide?” I had to emphasize.
 
-Sisynios hemmed and hawed, “The girl’s choice to take her life is unfortunate and while your son may have started the bullying, it’s hard to place her death on either of your shoulders specifically.” 
+Sisynios hemmed and hawed, “The girl’s choice to take her life is unfortunate and while your son may have started the bullying, it’s hard to place her death on either of your shoulders specifically.”
 
 I sighed in relief.
 
@@ -197,7 +196,7 @@ A bell rang and Sisoe turned to the other two angels.
 
 “You mean… I might survive?!” I gasped.
 
-Synidores’s form seemed to nod, “Yes. But be warned: Should you be judged, your judgment will stand should you not change your ways. Upon your true and final death, you will forego further judgment.” 
+Synidores’s form seemed to nod, “Yes. But be warned: Should you be judged, your judgment will stand should you not change your ways. Upon your true and final death, you will forego further judgment.”
 
 “What does that mean?” I asked.
 
@@ -219,7 +218,7 @@ Uphir appeared impatient, “I do have other places to be, you know.”
 
 “Time matters not here, you know this,” Uriel growled, “As I stated, I have found the watcher angel who shall give us the vision of your son’s actions, performed at your direction.”
 
-The angel standing near Uriel was what I would imagine an ordinary angel would be. He was mostly human, with large white wings behind his back. He wore a blindfold and was dressed in red and silver robes. His brown hair was short and a bronze headband wrapped around his hairline. Though he appeared tall, around six foot five, he was dwarfed by Uriel’s size. 
+The angel standing near Uriel was what I would imagine an ordinary angel would be. He was mostly human, with large white wings behind his back. He wore a blindfold and was dressed in red and silver robes. His brown hair was short and a bronze headband wrapped around his hairline. Though he appeared tall, around six foot five, he was dwarfed by Uriel’s size.
 
 “State your name and purpose,” Uriel ordered.
 
@@ -263,7 +262,7 @@ My eyes went wide, tears filling them, as the ‘Do it’ chants grew louder and
 
 Jeremy’s face was beet red and he looked around, frightened and confused.
 
-The chants began to shift quickly as Jeremy showed hesitation, “Pussy! Pussy! Jeremy’s a Pussy!” 
+The chants began to shift quickly as Jeremy showed hesitation, “Pussy! Pussy! Jeremy’s a Pussy!”
 
 Someone pushed Jeremy forward, “Do it pussy! What are you, gay?!”
 
@@ -279,7 +278,7 @@ I was stunned into silence.
 
 Uphir walked to Uriel, “Clearly, this one is destined for my domain.”
 
-Uriel turned to Sisoe, “What say you to the persecutor, Uphir?” 
+Uriel turned to Sisoe, “What say you to the persecutor, Uphir?”
 
 Sisoe took a deep breath, “Charity had no idea what had happened, nor that it had been so severe.”
 
@@ -295,13 +294,13 @@ Uphir’s hand moved from the book.
 
 Uphir’s grin grew vicious once more.
 
-“Save souls?” Uriel’s voice boomed, “**Do you truly think a soul, something so potent, so everlasting and immortal, would be wasted on a pregnancy where the child has not yet even drawn their first breath**?” 
+“Save souls?” Uriel’s voice boomed, “**Do you truly think a soul, something so potent, so everlasting and immortal, would be wasted on a pregnancy where the child has not yet even drawn their first breath**?”
 
 I turned to Uriel, shocked, “W-What?”
 
 “Are mortals so ignorant these days to ignore even their own laws?” Uriel growled, “Your faith clearly describes the act of life in your books, ‘*He breathed into his nostrils the breath of life and it was then that the man became a living being.’”*
 
-I was dumbfounded, “W-What do you mean, my laws? Those are God’s laws, aren’t they?” 
+I was dumbfounded, “W-What do you mean, my laws? Those are God’s laws, aren’t they?”
 
 Uriel rolled his burning ember-like eyes, “Hell would overflow would the Almighty, Blessed be He, accept but *one* faith. He has written: *Truly I tell you, whatever you bind on earth will be bound in heaven and whatever you loose on earth will be loosed in heaven,”* Uriel rose from his seat, “Meaning that whatever your faith’s law, that faith you shall be judged upon, either the just deeds or the sins therein.”
 
@@ -324,3 +323,5 @@ Tears filled my eyes.
 “W-Wait! I was faithful! I went to church! I-” I was cut off as I felt the ground vanish beneath me, and to my abject horror, I began to fall.
 
 As I fell, I heard Uriel’s booming voice echo, **“**[**For these sins, Charity Higgins, your soul shall burn**](https://www.reddit.com/r/The_Guardian_Temple)**.”**
+
+[Part 4 (Final)](https://www.reddit.com/r/nosleep/comments/wbuoe1/i_got_rid_of_an_abortionist_and_i_burned_in/)
