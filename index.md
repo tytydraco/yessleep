@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4401
+file count: 4402
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -774,8 +774,8 @@ file count: 4401
 * [How I became an only child](out/How_I_became_an_only_child.md)
 * [How long had the watching man stood there for](out/How_long_had_the_watching_man_stood_there_for.md)
 * [How me and my friends sneaked into the biggest naval base of the country](out/How_me_and_my_friends_sneaked_into_the_biggest_naval_base_of_the_country.md)
-* [How the sausage is made](out/How_the_sausage_is_made.md)
 * [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
+* [How the sausage is made](out/How_the_sausage_is_made.md)
 * [How to be more human](out/How_to_be_more_human.md)
 * [How To Exist](out/How_To_Exist.md)
 * [How To Go To Another World Russian Methods](out/How_To_Go_To_Another_World_Russian_Methods.md)
@@ -1426,6 +1426,7 @@ file count: 4401
 * [I shouldnt have gone for that bike ride](out/I_shouldnt_have_gone_for_that_bike_ride.md)
 * [I shouldnt have gone to the nude beach](out/I_shouldnt_have_gone_to_the_nude_beach.md)
 * [I shouldnt have vandalized my teachers house](out/I_shouldnt_have_vandalized_my_teachers_house.md)
+* [I Shouldnt Have Watched A Tape I Found](out/I_Shouldnt_Have_Watched_A_Tape_I_Found.md)
 * [I shouldve stayed inside](out/I_shouldve_stayed_inside.md)
 * [I Signed Up for some Strange Expirments Now Im not sure who I am PART TWO](out/I_Signed_Up_for_some_Strange_Expirments_Now_Im_not_sure_who_I_am_PART_TWO.md)
 * [I signed up for some strange expirments PART ONE](out/I_signed_up_for_some_strange_expirments_PART_ONE.md)
@@ -2986,10 +2987,10 @@ file count: 4401
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
-* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
+* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
