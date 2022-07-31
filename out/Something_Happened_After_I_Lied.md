@@ -1,0 +1,13 @@
+Something happened after I lied. I was in my college art class with my friends and we were sharing ghost stories when we were kids. Monica told her first about how, at age seven, she went missing in the morning inside her house and her parents found her on top of a tree on the lawn. Troy shared his story that, at age ten, he spotted a body floating in a pool in a hotel but, when he turned away for a few seconds, it disappeared.
+
+I knew that I could come up something better and make them believe it. It makes me feel better when I tell something made up and I want people to feel amazed and weirded out. After Troy finished his tale, my mouth began talking on its own.
+
+In my story, my family and I were attending my aunt's funeral services in the evenings. I was six years old and got bored because there were no kids of my age around. After the second session was over, my mom gave me a notebook and pencil from my school backpack and ordered me to go near the tree behind the church and draw it since I couldn't stop complaining. I obeyed and left while Mom and Dad were busy talking to other adults.
+
+I walked up to the tree and sketched it. Then, out of nowhere, a girl walked up behind and greeted me. She told me her name was Sylvia and asked if I could play hide and seek with her. I wasn't sure if she came with her parents for the funeral or if she lived around here, but I accepted her invitation. Putting my forehead against the tree, I closed my eyes and counted down from ten to one and went looking for her. I searched her everywhere, including the top of the tree, but she hasn't showed up. I got worried that something bad might have happened.
+
+It may have been fifteen minutes before Mom and Dad went looking for me. They asked me what I was doing and I told them about the Sylvia girl. It weirded them out because they told me a girl with the same name was murdered around here years ago.
+
+After I finished my tale, my friends' reactions went quiet. Some parts of the story were true since I actually attended my aunt's funeral, but the rest were lies and I achieved my victory. It wasn't long until later, after I came home and told Mom about it, I received something unexpected.
+
+"Oh, honey," Mom said, "we were watching you playing with a girl from a distance and you told us her name was Sylvia. We couldn't find her after she went hiding. When we told the priest about the girl, he said something about a child with the same name who got murdered by her father in the area years ago. We told you about this later, but your memories may have gotten mixed up."
