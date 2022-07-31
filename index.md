@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4419
+file count: 4421
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -780,8 +780,8 @@ file count: 4419
 * [How I became an only child](out/How_I_became_an_only_child.md)
 * [How long had the watching man stood there for](out/How_long_had_the_watching_man_stood_there_for.md)
 * [How me and my friends sneaked into the biggest naval base of the country](out/How_me_and_my_friends_sneaked_into_the_biggest_naval_base_of_the_country.md)
-* [How the sausage is made](out/How_the_sausage_is_made.md)
 * [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
+* [How the sausage is made](out/How_the_sausage_is_made.md)
 * [How to be more human](out/How_to_be_more_human.md)
 * [How To Exist](out/How_To_Exist.md)
 * [How To Go To Another World Russian Methods](out/How_To_Go_To_Another_World_Russian_Methods.md)
@@ -1414,6 +1414,7 @@ file count: 4419
 * [I Saw Something In My Fathers Friends Shed That Wasnt a Motorcycle](out/I_Saw_Something_In_My_Fathers_Friends_Shed_That_Wasnt_a_Motorcycle.md)
 * [I saw something in my kitchen Last Night Now I need Answers](out/I_saw_something_in_my_kitchen_Last_Night_Now_I_need_Answers.md)
 * [I Saw SOMETHING in the African Bush](out/I_Saw_SOMETHING_in_the_African_Bush.md)
+* [I Saw Something in the Water that Scared the Sharks Away](out/I_Saw_Something_in_the_Water_that_Scared_the_Sharks_Away.md)
 * [I saw something in the woods last Friday Now I have to go into hiding while I still have my Life](out/I_saw_something_in_the_woods_last_Friday_Now_I_have_to_go_into_hiding_while_I_still_have_my_Life.md)
 * [I saw something outside my window and I dont think it was human](out/I_saw_something_outside_my_window_and_I_dont_think_it_was_human.md)
 * [I saw something strange in the water](out/I_saw_something_strange_in_the_water.md)
@@ -1743,6 +1744,7 @@ file count: 4419
 * [I work as a PI and a Government Agent approached me to help with a case Part 50](out/I_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_50.md)
 * [I work as a PI and a Government Agent approached me to help with a case Part 5](out/I_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_5.md)
 * [I work as a PI and a Government Agent approached me to help with a case Part 7](out/I_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_7.md)
+* [I work as a security guard for a company that takes jobs no one else will Part 7](out/I_work_as_a_security_guard_for_a_company_that_takes_jobs_no_one_else_will_Part_7.md)
 * [I work as a waitress at a diner and I think one of our regulars might be the devil](out/I_work_as_a_waitress_at_a_diner_and_I_think_one_of_our_regulars_might_be_the_devil.md)
 * [I Work As A Zookeeper For The Amarillo Zoo And I Know What The Creature Is](out/I_Work_As_A_Zookeeper_For_The_Amarillo_Zoo_And_I_Know_What_The_Creature_Is.md)
 * [I work as an arson detective The Blomquist case will forever haunt me](out/I_work_as_an_arson_detective_The_Blomquist_case_will_forever_haunt_me.md)
@@ -2499,8 +2501,8 @@ file count: 4419
 * [My Husbands Last Visit](out/My_Husbands_Last_Visit.md)
 * [My Idiot Mobster Husband Killed The Wrong Guy Now Our Whole Family Is Paying The Price](out/My_Idiot_Mobster_Husband_Killed_The_Wrong_Guy_Now_Our_Whole_Family_Is_Paying_The_Price.md)
 * [My idiot roommate didnt pay the power bill](out/My_idiot_roommate_didnt_pay_the_power_bill.md)
-* [My imaginary friend Timmy](out/My_imaginary_friend_Timmy.md)
 * [My Imaginary Friend Timmy](out/My_Imaginary_Friend_Timmy.md)
+* [My imaginary friend Timmy](out/My_imaginary_friend_Timmy.md)
 * [My Imaginary Friend](out/My_Imaginary_Friend.md)
 * [My internet posts are in a diffrent universe](out/My_internet_posts_are_in_a_diffrent_universe.md)
 * [My job is watching a woman trapped in a room Part Two](out/My_job_is_watching_a_woman_trapped_in_a_room_Part_Two.md)
@@ -3001,8 +3003,8 @@ file count: 4419
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
+* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
@@ -3831,8 +3833,8 @@ file count: 4419
 * [THE VALUE OF HER SKIN](out/THE_VALUE_OF_HER_SKIN.md)
 * [The Voice in My Head is My Friend](out/The_Voice_in_My_Head_is_My_Friend.md)
 * [The voices in my head told me more than I wanted to know](out/The_voices_in_my_head_told_me_more_than_I_wanted_to_know.md)
-* [The voices](out/The_voices.md)
 * [The Voices](out/The_Voices.md)
+* [The voices](out/The_voices.md)
 * [The Wait](out/The_Wait.md)
 * [the waiting woman](out/the_waiting_woman.md)
 * [The Wandering Woman](out/The_Wandering_Woman.md)
