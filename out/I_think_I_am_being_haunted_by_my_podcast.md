@@ -18,6 +18,10 @@ But... at some point the voices started. I could hear them everywhere, constantl
 
 And now I'm CERTAIN I've seen one of them. I don't know how else to explain it. They.... I mean they aren't... I'm going to have to explain this to you in person.
 
+~~The last person I tried to get to help me said i was overreacting this isn't scary enough to keep me from sleeping my trauma wasn't enough for them~~
+
+This isn't me just hallucinating from a lack of sleep. If I sleep for longer than a couple of hours, I risk dying. I've come too close to death so many times now. ~~The bruises oh God and that time I woke up feeling a hand on my throat? The comments that week~~
+
 I need your help. Can you call? I know it's been years. But I don't know who else to trust with this kind of secret. You're the only other person who remembers what happen that night. I don't think it's related, but... I don't know who else to turn to at this point who won't instantly try to talk me into a 72 hour hold.
 
 I hope you still check this email. If you do, give me a call at 404-44x-xxxx

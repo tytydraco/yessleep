@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4424
+file count: 4425
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -79,8 +79,8 @@ file count: 4424
 * [A Hysteric letter](out/A_Hysteric_letter.md)
 * [A kid shows up in the parking lot every time it rains](out/A_kid_shows_up_in_the_parking_lot_every_time_it_rains.md)
 * [A late night chat with an online AI bot](out/A_late_night_chat_with_an_online_AI_bot.md)
-* [A Letter From McLeans](out/A_Letter_From_McLeans.md)
 * [A Letter from McLeans](out/A_Letter_from_McLeans.md)
+* [A Letter From McLeans](out/A_Letter_From_McLeans.md)
 * [A lions roar](out/A_lions_roar.md)
 * [A Little Off the Top Part 1](out/A_Little_Off_the_Top_Part_1.md)
 * [A little sound and a little light will keep it away](out/A_little_sound_and_a_little_light_will_keep_it_away.md)
@@ -2177,6 +2177,7 @@ file count: 4424
 * [Me and my buddies visited an old abandoned cave](out/Me_and_my_buddies_visited_an_old_abandoned_cave.md)
 * [Me and my friend went diving She never came back up](out/Me_and_my_friend_went_diving_She_never_came_back_up.md)
 * [Me and my friend went hunting then got hunted](out/Me_and_my_friend_went_hunting_then_got_hunted.md)
+* [Me and my friends went hiking we lived to regret it](out/Me_and_my_friends_went_hiking_we_lived_to_regret_it.md)
 * [me and my girlfriend played hide and seek and theres something wrong](out/me_and_my_girlfriend_played_hide_and_seek_and_theres_something_wrong.md)
 * [me and my husband were in a car crash 12 years ago no one remembers it but me](out/me_and_my_husband_were_in_a_car_crash_12_years_ago_no_one_remembers_it_but_me.md)
 * [Meat](out/Meat.md)
@@ -3005,8 +3006,8 @@ file count: 4424
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
+* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
@@ -3283,8 +3284,8 @@ file count: 4424
 * [The Cabin in the Woods](out/The_Cabin_in_the_Woods.md)
 * [The Cabin Just Outside of Town](out/The_Cabin_Just_Outside_of_Town.md)
 * [The Call of Two Waterslides](out/The_Call_of_Two_Waterslides.md)
-* [The Call](out/The_Call.md)
 * [The call](out/The_call.md)
+* [The Call](out/The_Call.md)
 * [The calls](out/The_calls.md)
 * [The Cameras Are Always Watching](out/The_Cameras_Are_Always_Watching.md)
 * [The Cannibal Boss](out/The_Cannibal_Boss.md)
@@ -3836,8 +3837,8 @@ file count: 4424
 * [THE VALUE OF HER SKIN](out/THE_VALUE_OF_HER_SKIN.md)
 * [The Voice in My Head is My Friend](out/The_Voice_in_My_Head_is_My_Friend.md)
 * [The voices in my head told me more than I wanted to know](out/The_voices_in_my_head_told_me_more_than_I_wanted_to_know.md)
-* [The Voices](out/The_Voices.md)
 * [The voices](out/The_voices.md)
+* [The Voices](out/The_Voices.md)
 * [The Wait](out/The_Wait.md)
 * [the waiting woman](out/the_waiting_woman.md)
 * [The Wandering Woman](out/The_Wandering_Woman.md)
