@@ -1,8 +1,8 @@
 I was sitting on a bench on a ferry. It was raining; dark clouds were covering the sky. Raindrops were dancing in small puddles on the wooden platform. To my left, the grey mist was floating in the dense pine forest over giant ferns and bushes. To my right, the rough sea was producing angry waves as far as eyes could see. The continuous up and down movement was making me feel dizzy. I should have taken a pill for my motion sickness but I had been late for my ferry and it had slipped my mind. Anyway, the chilly wind helped me a bit. The world around me was strangely relaxing. There were only a few people on the ferry. I could see a man in a grey raincoat watching the water and an old man, reading his soaking wet book. I was wondering if the letters were still visible.
 
-‘Do you have a fire?’ - A man wearing a hoodie asked me.
+‘Hey, don't you have a lighter?’ - A man wearing a hoodie asked me.
 
-‘No, I don't. But if you find one, good luck with that!’ - I said while hundreds of raindrops were bombarding my face as I was looking up at him.
+‘No, I don't. But if you find one, good luck with that!’ - I said while hundreds of raindrops were bombarding my face as I was looking up at him, squinting.
 
 Because what I had read about Black Rain (located between Washington State and Canada) was that it rained almost every day. Well, I did not mind. I would get used to it because rainy weather made me relaxed and sleepy anyway.
 
@@ -10,15 +10,21 @@ As time passed, I was getting more and more nervous. I just hoped I would never 
 
 Anyway, my name is Mark Marsh and I was heading to the island as I got a new job as a social worker. I just wanted to earn money with a normal job and wanted to discontinue what I had done before. I needed a new life.
 
-James Andrew the mayor told me that the town needed someone to supervise the too young and to take care of the too old. As I had no criminal records and I had a clean history (apart from shoplifting with my friends time by time), I was qualified for the job. Oh, if the police had known more about me, I would have been sitting in prison already.
+James Andrew the mayor told me that the town needed someone to supervise the too young and to take care of the too old. As I had no criminal records and I had a clean history (apart from shoplifting with my friends time by time), I was qualified for the job.
 
-After the interview, he also told me that he would contact me soon. That was sooner than I expected for he called me after three hours saying that I could start preparing. While I was packing my things, something about the offer unsettled me but I tried to be positive.
+So having arrived, I went to the town hall to meet the mayor in person. The town hall was a brown, one-story wooden building with two long hallways. There were offices on both sides. In the mayor’s chamber, the walls were covered by different preserved heads of animals with glass eyes. They were looking at me threateningly and I started to feel very uncomfortable. However, I tried not to show it. I had never understood how people could use trophies like these as decoration. I would never do that. These heads were once part of a living entity. Whenever you looked into their eyes, what you saw was the last second of their life. The expression of death. On the other hand, there were some old photos on the wall, telling stories of the history of the town which I was not familiar with at all yet.
 
-So I went to the town hall to meet the mayor in person. The town hall was a brown, one-story wooden building with two long hallways. There were offices on both sides. In the mayor’s chamber, the walls were covered by different preserved heads of animals with glass eyes. They instilled the fact in me that I was talking to a professional hunter. They were looking at me threateningly and I started to feel very uncomfortable. However, I tried not to show it. I had never understood how people could use trophies like these as decoration. I would never do that. These heads were once part of a living entity. Whenever you looked into their eyes, what you saw was the last second of their life. The expression of death. On the other hand, there were some old photos on the wall, telling stories of the history of the town which I was not familiar with at all yet.
+‘As I have already told you, your main task is to perform some regular checks on the people. You mentioned you had previous experience with helping people, however, you didn't go into the details much.
 
-‘As I have already told you, your main task is to perform some regular checks on the people. Don’t worry about these folks, there is absolutely nothing wrong with them. Our only worry is isolation. You know…this is a small island in the ocean. People can sometimes feel lonely here since they don’t have much contact with the outside. We just need to check if they don’t feel too lonely, or aren’t depressed. Talk to the old people, do some shopping for them, manage their utilities, walk their pets, clean up their house and so on. Some parents might need someone to babysit sometimes as well.
+'Oh, just as I told you, I helped a lot of old, vulnerable people. I am quite popular in my neighbourhood and the old folks always ask me to help with their everyday things' - I lied.
 
-‘Is there something else?’
+'Well, our people are a bit different here. I mean don’t worry about them, there is absolutely nothing wrong with the locals. Our only worry is isolation. You know…this is a small island in the ocean. People can sometimes feel lonely here since they don’t have much contact with the outside. We just need to check if they don’t feel too lonely, or aren’t depressed. Talk to the old people, do some shopping for them, manage their utilities, walk their pets, clean up their house and so on. Some parents might need someone to babysit sometimes as well.
+
+‘Is there something else? I mean, breastfeeding or folding nappies?’
+
+'I am sorry, what did you just say?'
+
+'Uhm...nothing?'
 
 ‘The rest can still wait a bit.’ – he sighed. Then he looked towards the window and then quickly back to the door. It was a sign of concern. We did not know what to do, or which direction to take and instead, we just looked away. Something made him anxious and he did not want to talk about it yet. Then he went to his desk and took a list from it.
 
@@ -56,7 +62,7 @@ Inspector?! Am I under arrest?’ – I asked.
 
 ‘They disappeared. Nobody was found here even though everything seemed to be normal. It was like an ordinary day: their breakfast was prepared, the fire was still smoking, and tables were set for the meal. People said they had vanished into thin air. Like those folks in Roanoke. Have you heard of their story sir?’ – he asked, looking at me with curiosity.
 
-‘Yes, I did. A group of British settlers was left on an island for a while until further supplies arrived. When the ship returned, everybody had gone, leaving no trace.’
+‘Yes, I did. As a kid, I was a UFO fan and read about a lot of mysterious stories. A group of British settlers was left on an island for a while until further supplies arrived. When the ship returned, everybody had gone, leaving no trace.’
 
 ‘Exactly sir. If you want to get some history lessons, just go to John Dewey’s bookshop. The crazy old man is the master of local history. Be careful, though, once you get into a conversation, he will never stop. But I am sure that he will be able to tell you much much more than I have just said.’
 
@@ -80,7 +86,7 @@ Noah's dark green Jeep arrived exactly at 8 o’clock just as it was discussed. 
 
 The clouds and the trees covering the sky above the road made the area dark. Even though it was morning it felt like late evening. As we continued our way, there were fewer and fewer trees but the darkness did not want to go away. Noah offered me a map from the gloves compartment and I took it out to study it as I had been unable to buy one on the mainland. Nowhere else was I able to buy a map of Black Rain on the mainland, I do not know why. From the map, it seemed that there was a main street which crossed the middle of the island. The town had a town centre. The eastern part of the island was mountainous and contained dense forests. Then I stared at a lake depicted to the north. The first place where we were heading was a breakfast and brunch bar on a smaller street, called A La Maison. When we finally arrived, I peered at the brick building with four windows set into it. Through the glass, I could see some people inside having their breakfast.
 
-Inside, the place was pleasantly warm. There was a larger room at the end of the place where stairs led to a lower level. On the top of the stairs, signs indicated where the restrooms were. I could smell the fresh coffee in the air accompanied by  French toast and eggs while we found an empty table. As I do not usually have much of an appetite this early, I thought for a moment if the aroma of food had me made hungry, it could be some kind of trick. But I was sure that I would still come back to this place. A blond waitress in a black and white uniform came to our table and smiled.
+Inside, the place was pleasantly warm. There was a larger room at the end of the place where stairs led to a lower level. On the top of the stairs, signs indicated where the restrooms were. I could smell the fresh coffee in the air accompanied by French toast and eggs while we found an empty table. As I do not usually have much of an appetite this early, I thought for a moment if the aroma of food had me made hungry, it could be some kind of trick. But I was sure that I would still come back to this place. A blond waitress in a black and white uniform came to our table and smiled.
 
 We both ordered ham and eggs and were waiting for it to be done.
 
@@ -114,9 +120,9 @@ Before Noah could answer anything, I couldn't help but notice the girl again. Sh
 
 ‘I have changed and I don’t care about your misery, bitch!’ - I said and started going to the bathroom.
 
-‘2500 dollars in cash.’ - she said and stopped me by leaning to the wall with her arm.
+‘2500 dollars in cash. Buried in a garden. Easy access.’ - she said and wanted to stop me with her arm by leaning to the wall. How naive.
 
-‘Not interested.’ - I said.
+‘Not interested.’ - I replied.
 
 ‘You will never change, asshole!’ - she shouted but I closed the door behind me and did my business.
 
@@ -164,7 +170,7 @@ When we arrived at the lakeside, there were already some patrol cars. Yellow cri
 
 ‘Where is she?’ – Noah asked one of the sergeants. The man showed us the way towards the lake. As we were approaching the crime scene, I felt my heart in my throat. I saw Frank standing at the lake in the company of two police officers. Another person was taking photos of something on the ground. When we got there I realised what it was.
 
-Although the body was already decayed, the silhouettes of her face were still visible. They told the observer that once she had been a pretty, attractive girl who must have been the dream of many men. She was half naked, her trousers were taken off. The terrible thought that she might have been raped crossed my mind for a moment. Her face was already lifeless but her soul must have been in the heavens – this is how I tried to reassure myself.
+Although the body was already decayed, the silhouettes of her face were still visible. They told the observer that once she had been a pretty, attractive girl who must have been the dream of many men. She was half naked, her trousers were taken off. The thought of what terrible thing they might have done to her crossed my mind for a moment. Oh, fuck. Poor little sweetheart.
 
 But it wasn’t just the body that shocked me.
 
@@ -172,6 +178,8 @@ It was her.
 
 The girl, who had been following me.
 
-She was right. I wouldn't and couldn't change, I was an idiot. I decided I would help her. Provided she would tell me where the money was, of course.
+She was right. I wouldn't and couldn't change, I was an idiot.
+
+I decided I would help her. Provided she would tell me where the money was, of course.
 
 After all, that's what I had always made for a living. Getting shit done for the Dead. And it seemed I would have a hell of a lot of work there.
