@@ -406,13 +406,16 @@ Her look of disgust vanished as she observed the back of the CD.
 "Okay, good," she said. She handed the CD back to me. "If I get another one of those, I'm ready to just scratch the hell out of it. Against a wall, across the floor, with car keys, whatever. I know snapping won't help, so I won't be snapping it," she continued.
 
 
+By the sound of it, she was already prepared for if any of what had happened ever happened again. But I wanted to know why she came up with the idea before we were told it was what we had to do anyway.
+
+
 "How did you come up with the idea of scratching the disk before we were told to scratch the disks?" I asked.
 
 
 "That's just what I thought about doing to it. It was a bad video, and I wanted to make sure no one would ever have to see it again," Alexandria said.
 
 
-"Of course. Oh, and, why didn't your parents come with you to my house?" I asked.
+"Of course," I said. Then I remembered something. Her parents hadn't come with her to my house. I wanted to ask her about that. "Oh and why didn't your parents come with you to my house?" I asked.
 
 
 "They… it's… I'm not comfortable talking about them right now, but they told me they thought I'd be safer where there's more police and less threatened destruction," Alexandria said.
