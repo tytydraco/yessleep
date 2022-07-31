@@ -26,4 +26,6 @@ I need your help. Can you call? I know it's been years. But I don't know who els
 
 I hope you still check this email. If you do, give me a call at 404-44x-xxxx
 
--Mel
+\-Mel
+
+Part II: [https://www.reddit.com/r/nosleep/comments/wcnnzd/i\_think\_i\_am\_being\_haunted\_by\_my\_podcast\_part\_ii/](https://www.reddit.com/r/nosleep/comments/wcnnzd/i_think_i_am_being_haunted_by_my_podcast_part_ii/)

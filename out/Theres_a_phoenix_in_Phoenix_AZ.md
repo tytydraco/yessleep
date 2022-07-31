@@ -400,7 +400,7 @@ As I got closer the words that just seemed to mingle into one big inaudible echo
 
 *"What the fuck are you?"* I heard someone yell. *"Kill him!"* screamed another. 
 
-I heard a whine to my right and saw Milo curled up by a rock. He looked up at me with his puppy eyes and my heart broke. One of His back legs was bleeding. It was a gunshot wound.
+I heard a whine to my right and saw Milo curled up by a rock. He looked up at me with his puppy eyes and my heart broke. One of his back legs was bleeding. It was a gunshot wound.
 
 "Oh, Milo," I said quietly, stroking his head. "I'll come back for you, but I need to go help daddy." 
 
