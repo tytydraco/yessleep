@@ -40,7 +40,6 @@ Before going home for the night, I hug her and promise I'll visit her soon. Out 
 We live in a rural area where an acre away behind our house stands the woods. A few houses down the road opposite of us is where my aunt lives. It's an old white house that sits around a gentle road bend. A good walk would take you there. I don't mind doing this.
 
 
-
 Almost every day, as promised, I would drop by my aunt's house to say hi, even when it's school. And I would spend time with her into the late afternoon just to keep company. Mom and dad work late night shifts anyway, so I'm not too worried. 
 
 
