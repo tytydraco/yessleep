@@ -27,3 +27,7 @@ She shrugged and wandered off to Sam’s room. I felt at ease until I overheard 
 “I think she knows,” Lily said in a hushed voice, “I don’t want her to be on to me, it’ll ruin everything.”
 
 My jaw dropped, all of my suspicions confirmed. She’s plotting something, something awful, and she knows I know.
+
+
+
+Edit: LINK TO PART 2- https://www.reddit.com/r/nosleep/comments/wcjcls/my_son_has_a_new_girlfriend_and_i_am_afraid_for/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
