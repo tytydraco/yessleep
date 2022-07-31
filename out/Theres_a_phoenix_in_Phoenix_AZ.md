@@ -58,7 +58,7 @@ My initial thought was to take a step back and refuse the handshake. The importa
 
 "Jacob," I said, smiling. "Jake. Pleasure to meet you." 
 
-+ 
+•
 
 The next day I went back to the trail earlier, before it got too hot. I took a different route this time. As far as the scenery goes, it doesn't change all that much. You're guaranteed rocks, cacti, and lizards wherever you go. It's still one of my favorite getaways regardless. 
 
@@ -142,7 +142,7 @@ We swapped numbers and I scratched Milo behind the ear. 
 
 "Thanks for the ride, Jake," said Santi. He made a move to get out of the car, then quickly turned and pecked me on the cheek. I was beaming all the way home. 
 
-+ 
+•
 
 A few nights later Santi and Milo came over. 
 
@@ -212,7 +212,7 @@ I lightly placed a trembling hand on Santi's head, stroking his warm hair. Then 
 
 "Santi, please wake up." 
 
-+ 
+•
 
 Santi laid on my couch, a cold wet cloth draped across his forehead. Milo was curled up asleep at his feet. I knelt by his side, a bag of ice pressed against the underside of my forearm which was bright red and sore. We just stared at each other in silence for a moment. Then he reached out and took one of my hands, shaking his head. 
 
@@ -242,7 +242,7 @@ I put my hand on the side of his face, feeling my eyes glaze over a little. He h
 
 "I'm a phoenix." 
 
-+ 
+• 
 
 A few months went by, Santi and I were very much in a forbidden lockdown relationship. In absence of conventional dates we spent our time together shared between our respective homes, sneaking around like naughty kids. 
 
@@ -328,7 +328,7 @@ Santi moved his body forward like he was going to give chase and I gripped his a
 
 He looked at me, his eyes intense, a flash of red within his hazel irises. "They don't know what *I'm* capable of." 
 
-+ 
+•
 
 That evening we had dinner at mine. Mrs. Ruiz had left a care package of brownies so we had dessert. There was even a little bag of beef jerky with a label that just had a paw print drawn on it. 
 
@@ -358,7 +358,7 @@ He nodded. "I have, güero. But then I meet people like you and it makes it wort
 
 We made love that night, I felt the closest to him yet. When he truly let himself go, not having to hide what he is, his eyes would burn and his skin would radiate against me. It was scary at first, but I came to crave it. It was the most intensely passionate sex I'd ever had.
 
-+ 
+•
 
 A few weeks passed. After our encounter with Green and Blue, we'd found alternative locations to hike. Not that I was paranoid or anything, but I felt better leaving it for a while. And it wasn't like Phoenix had a shortage of trails. 
 
@@ -498,7 +498,7 @@ It lowered its head to meet mine, its eyes a constant flicker of flame. I cried 
 
 All I can remember before waking up at home the next day is gaining consciousness somewhere over Phoenix. I could feel the cool night air against my skin as the city lights flew by hundreds of feet below. I looked down to see Milo asleep in my arms, and closed my eyes to join him. 
 
-+
+•
 
 I never saw Santi, or should I say what he became again. At least up to this point. I do often wonder where he went. There surely can't be *that* many places for a creature of his size to go unnoticed. But I'm no expert on the subject, I have no idea if such creatures are bound by the laws of nature and science. I have no idea if it's even Santi anymore.
 

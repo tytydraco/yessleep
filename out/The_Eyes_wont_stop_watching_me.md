@@ -1,0 +1,31 @@
+How do I even begin this? I know I’ll sound crazy, but I’m not. Please, bear with me, no matter how bizarre this may sound.
+
+It all started when I was twelve, so almost nine years ago now. My foster sister, Marley, and I were riding our bikes through a forest near my neighbourhood when we fell. I don’t know if I hit a rock or my wheels slipped off the trail, but the next thing I knew I was rolling down a steep slope into a lower part of the forest. I’d felt Marley try to grab onto my hand but she ended up being dragged down with me. I genuinely thought I was going to die, and Marley did too, with the stones and branches cutting and bruising us. It felt like it was going on forever, but as I neared the bottom of the slope, I saw something. Some things. Five pairs of eyes staring at me with such emotion, but I still cannot figure out what emotion it was. There were no bodies, no faces, that these eyes belonged to. They were just *eyes*. Me and Marley both narrowly missed landing on jagged rocks at the bottom and when we sat up and looked at each other, we just screamed and burst into tears.
+
+She was covered head to toe in blood, scratches, and various injuries, and her skin was almost completely purple, blue, and green; nothing like her usual natural golden skin tone. She said I was the same, and I could tell by looking at my hands and legs. Our clothes were torn and grass stains, splinters, and dirt stung our cuts. It wasn’t long before we both couldn’t see through our tears, but just as my vision began to become clear again, I saw the eyes once more. There were six pairs this time, but I blinked and they were gone. At the time I was more concerned about my injuries and assumed I was imagining them -possibly from a brain injury I had most likely just endured- and so I stood up and dragged my bike out of the woods with Marley following behind me. We didn’t say a word until we were back onto our street.
+
+It was only then that we noticed the blood we’d once been covered in was… gone. Our hundreds of deep cuts were now just a few scratches and our bruises minimal too. We were shocked to say the least, and confused, but more grateful that we were okay. When we entered our house, my mother fussed over us and threw away our torn clothes. I can’t imagine how she would’ve reacted if we’d showed up looking like we did when we reached the bottom of that slope.
+
+Over the years, we came to the conclusion we must’ve over exaggerated it in our heads from the shock and fear, but we never forgot it. I couldn’t forget those eyes either. I know I saw them, and I still do see them. 
+
+As a teenager I liked taking risks. I loved the adrenaline of doing thrilling things, but Marley not so much. Whenever I did something impulsive or dangerous, I saw the eyes. Each time there’d be one more pair. I’ve been to the doctor about it, I’ve talked to therapists, I’ve had brain scans, and they all say I’m perfectly fine. I don’t hallucinate other things and I’m not a paranoid person. I learnt to ignore them despite the uneasy feeling I got when I saw them, and the dreams I’d have of them. I say ‘dreams’ because they weren’t really nightmares, nothing particularly bad or scary happened when I saw them, but they always freaked me out.
+
+I don’t tell people I see them, I know what they’ll say. It’s not just a creepy story anymore, it sounds psychotic. “Yeah, I see these pairs of eyes staring at me sometimes, I’m normal though.” Wouldn’t that just sound weird?
+
+Recently, however, I had to tell someone. A few weeks ago there was a fire in my apartment. It had begun in someone else’s apartment on the top floor and I lived a floor below them. I woke up to the sound of screaming from outside, the footsteps of people racing down the stairs in fear, and the fire engines’ sirens in the distance. My first thought were my pets. I managed to pick up my dog and one of my cats and get them to safety, but I had to go back for my other cat. As I searched my apartment, shouting ‘Sadie!’ as loud as possible, I started to feel lightheaded. I reached my door but it had locked itself when it shut and I collapsed before I could unlock it. The last thing I remember seeing before I passed out were the eyes. There were possibly hundreds of pairs, or maybe less, maybe more, I don’t know. All I know is *I saw them*. 
+
+When I awoke the next day, I was in hospital. I wasn’t burned, I’d just suffered from minor smoke inhalation. I left hospital that same day and was completely unharmed. It also turned out Sadie had ran out the apartment whilst I was taking my other two pets downstairs, so they were all safe too. I had had an unusual dream that night, though. It was of the eyes, but this time they were whispering too. Still no mouths, no bodies, no faces, but they were all talking to me at once. I was in a forest surrounded by them, drenched in blood, but as their words grew louder and their stares wider, the blood turned into water and I was suddenly in a warm pool. When I looked around, it seemed like I was in a hot spring, and there were thousands more all around me. I’d never felt so calm, so relaxed, so safe. It was like heaven, until the heat became too much and I woke up. 
+
+I haven’t stopped thinking about it - the eyes, the dream I had, all of it. 
+
+Today I decided to tell Marley. I’ve been staying at her apartment, which we’ve discussed as maybe being a long term thing (we both like having a roommate). We were watching TV, I was on my phone and she was on her laptop, when I said, “Hey, Mars? Can I tell you something, but you have to promise not to think I’m crazy. I’ve had it checked out, I’m fine, but I really need to tell someone.”
+
+She nodded and was visibly intrigued, so I told her. I told her everything, starting from when we were twelve and I saw them for the first time. When I finished talking, she smiled and said, “Dulcie, I don’t think you’re crazy at all.”
+
+“You don’t?” I replied, relieved.
+
+“Nope.”
+
+“Why not?”
+
+“Because,” she leant forward and whispered, staring deep into my eyes, “I see them too.”

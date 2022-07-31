@@ -1,4 +1,6 @@
-  The day was as miserable as I felt- ash gray clouds smothering a gloomy sun. The stuffy afternoon made the already dilapidated structure lurking at the end of the neighborhood look even more run down. Bare wood showing where paint had been stripped away, cracked and stained four panel windows, a lawn overgrown, slowly consuming long abandoned toys and debris, the passing sidewalk swallowed by autumn leaves. Even the other houses in the neighborhood, all in better condition, seemed to keep their distance.
+[Part II](https://www.reddit.com/r/nosleep/comments/wct9b6/my_grandmothers_doll_collection_part_2/)
+
+The day was as miserable as I felt- ash gray clouds smothering a gloomy sun. The stuffy afternoon made the already dilapidated structure lurking at the end of the neighborhood look even more run down. Bare wood showing where paint had been stripped away, cracked and stained four panel windows, a lawn overgrown, slowly consuming long abandoned toys and debris, the passing sidewalk swallowed by autumn leaves. Even the other houses in the neighborhood, all in better condition, seemed to keep their distance.
 
 Work had dried up; dad lost his job again, but that’s not terribly surprising considering how he logged more hours with bottles than anything else. After another yet another argument, he got a little handsy with mom.
 
@@ -6,7 +8,7 @@ To grandmother’s house we go, then.
 
 We piled out of the old beat-up station wagon: Mom, looking pretty haggard after the two day drive; my younger siblings Ryan and Sophie, squinting in the too-bright light at the building before them; and then there’s me, doing the same and wondering if we’d have been better off in that roach infested motel.
 
-Mom gave us a weak smile, turning her face just enough to look at us, but not enough to reveal the bruise hidden by her frazzled hair. “We’re here!” she said with what excitement she could muster. 
+Mom gave us a weak smile, turning her face just enough to look at us, but not enough to reveal the bruise hidden by her frazzled hair. “We’re here!” she said with what excitement she could muster.
 
 “Where’s Grandma?” Ryan asked, toe-ing at the decaying leaves with one tiny sneaker.
 
@@ -100,7 +102,7 @@ Or did she hear it too?
 
 “Oh how lovely darling,” Grandma said, smiling that warm, toothy smile.
 
-“Grandma!” Sophie shouted then. “Can we go out and play?” 
+“Grandma!” Sophie shouted then. “Can we go out and play?”
 
 Grandma’s smile disappeared. “I don’t know, dear.” She looked to Mom. “It’s rather dangerous out.” I watched her mouth something to Mom-
 
@@ -116,9 +118,9 @@ The subsequent grumbling from them was silenced by popsicles Grandma produced fr
 
 And so, we spent the rest of the day in the house, exploring all the nooks and crannies, which isn’t to say there was much. By bedtime, I was genuinely tired, and the day’s events hadn’t helped. I settled into one of the twin beds, while Sophie and Ryan split the other.
 
-Sleep came quickly, but it didn’t hold. The house was old; it groaned with every passing gust, and the antics of my siblings didn’t help.  
+Sleep came quickly, but it didn’t hold. The house was old; it groaned with every passing gust, and the antics of my siblings didn’t help.
 
-*Creeeeaaaaakkkk.* 
+*Creeeeaaaaakkkk.*
 
 The floorboard squealed from the pressure of a step.
 
@@ -146,13 +148,13 @@ I laid down to take my own advice, but just as I was drifting off, the creaking 
 
 It came from the hall.
 
-Carefully, I slipped out of bed. Getting to the door without stepping on the worst of the floorboards proved challenging, but soon enough I stood in the hall. 
+Carefully, I slipped out of bed. Getting to the door without stepping on the worst of the floorboards proved challenging, but soon enough I stood in the hall.
 
-*Creeeeaaaaakkkk.* 
+*Creeeeaaaaakkkk.*
 
 Now from below.
 
-At this hour, the house was even more menacing. I followed my ears, making my way gingerly down the stairs. 
+At this hour, the house was even more menacing. I followed my ears, making my way gingerly down the stairs.
 
 As I reached the bottom, I noticed the basement door. Earlier, I might have missed it on account of the darkness, or because of how tired I was, or both; now, an orange glow came from under it. I crept up to the door and put my ear against it.
 
@@ -174,15 +176,15 @@ Except that each and every last doll was staring straight at me.
 
 In the dim red light, the eyes of the dolls drilled into me, locking me in place, freezing my blood. In the flickering light, they seemed to tremble and sway.
 
-I couldn’t move, I couldn’t think. I wanted to run, I wanted to 
+I couldn’t move, I couldn’t think. I wanted to run, I wanted to
 
 *Help*
 
-But what did that even mean? 
+But what did that even mean?
 
 Breath caught in my throat, I fell back onto my ass, and the jolt shook me just a bit from my stupor. I could see at the end of the basement, a small figure hunched over a table- backlit by the candlelight.
 
-Grandma. I could hear her uttering something I didn’t quite understand, but the longer she went on, the worse I felt- 
+Grandma. I could hear her uttering something I didn’t quite understand, but the longer she went on, the worse I felt-
 
 The whole basement swam as she tended to whatever project lay on her table. I could see her small, withered fists pushing and jerking at a humanoid shadow cast on the wall before her, the umbrage twisting and writhing with each curse, every motion, until finally it fell still, the orange candlelight stabilized.
 
@@ -190,7 +192,7 @@ With the end of… whatever… Grandma did, the dolls fell to stillness and sile
 
 She turned. Her normally warm eyes were colder and more terrifying than that of the dolls’, her gaze practically crushing me in place.
 
-“Claudie!” her voice, a harsh whisper. “You shouldn’t be down here!” 
+“Claudie!” her voice, a harsh whisper. “You shouldn’t be down here!”
 
 “W-what are you doing?”
 
@@ -217,3 +219,5 @@ The question came level, even. The frenzy of the previous night long gone.
 “Yeah,” I said.
 
 *Help.*
+
+[Part II](https://www.reddit.com/r/nosleep/comments/wct9b6/my_grandmothers_doll_collection_part_2/)
