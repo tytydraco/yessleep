@@ -1,5 +1,7 @@
 [Part II](https://www.reddit.com/r/nosleep/comments/w4uvxx/three_people_died_in_the_woods_last_summer_and_im/).
 
+[Part III](https://www.reddit.com/r/nosleep/comments/w6nrdm/three_people_died_in_the_woods_last_summer_and_im/)
+
 I have told no one about this incident, the only people who know where the ones that were there that day. I am sharing here because I honestly don’t know what else to do, as I don’t feel comfortable sharing with police or my family.
 
 It started in the summer; my cousins and I usually travel every July to my aunt’s house. We called her the cool aunt, because she was closer to our ages, and had a big house that we would all pile in for a few weeks, usually we just hung around, watched TV, and acted stupid around the house.

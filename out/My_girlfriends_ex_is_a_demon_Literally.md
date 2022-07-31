@@ -88,7 +88,7 @@ The rest of their argument seemed distant to me. I felt like I was in a world I 
 
 “Just go away.” Sarah spoke with arms crossed.
 
-“Not how you felt during *convocation.”* He said with what sounded like genuine hurt, “The opposite, in fact.”
+“Not how you felt during *convocatio.”* He said with what sounded like genuine hurt, “The opposite, in fact.”
 
 “That was different.” She muttered.
 
