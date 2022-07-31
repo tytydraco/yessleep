@@ -4,7 +4,7 @@ You must know that the only world I ever knew was my house, because the entire p
 
 They told me that this town is inhabited by unknown creatures, and whoever dares to escape this town mysteriously disappears. But since I was ignorant at that time, I thought they were just telling me a story to scare me out of going out in fear of losing me. But I  still hated being locked in that house since I'll often get bored very quickly.
 
-So I decided one day to sneak out of the house without my parents knowing, and so I did that and it was the biggest mistake of my life. One day, my dad was fixing his and my mom's bedroom door and my mom was cooking lunch, and so I decided to execute my plan. When I went out, man, it was the best feeling ever!
+So I decided one day to sneak out of the house without my parents knowing, and so I did that and it was the biggest mistake of my life. The day after, my dad was fixing his and my mom's bedroom door and my mom was cooking lunch, and so I decided to execute my plan. When I went out, man, it was the best feeling ever!
 
 And after a few moments of peace and silence, I decided that I will secretly go out of the house everyday to discover this place, and so I did that. Since I was a little scared from the story that told me my parents yesterday, I only stayed for a few minutes just admiring nature.
 
@@ -16,7 +16,7 @@ One night, I was with my friends in small food shop, I remember that a BIG snake
 
 I got to the road that I told you before, and I encountered a man riding a horse that stopped when I got there and I remember exactly that he let out an evil laugh that caused a series of events I almost got PTSD from.
 
-When he let out that laughed, I was sort of confused, I did not know why was he laughing and my gut told me that this man is no joke. I was beginning to feel a sense of very severe dread that I almost passed out. I immediately sprinted to my house and was hearing the gallops of his horse behind me.
+When he let out that laugh, I was sort of confused, I did not know why was he laughing and my gut told me that this man is no joke. I was beginning to feel a sense of very severe dread that I almost passed out. I immediately sprinted to my house and was hearing the gallops of his horse behind me.
 
 I ran and ran and was beginning to feel that something is off. Why was it taking so long to get to my house? am I being influenced by some sort of invisible force that is altering my sense of time? That's when it hit me.
 
@@ -54,3 +54,7 @@ And those rules are :
 8. If any of your family members appears to have been lost or missing, do not try to search for them.
 9. Do not trust your watch's time when going out, even your sense of time whether it is slowed down or normal. Try only coming back the fastest you can.
 10. It is very often to see a family member or a friend when going out. But do not try to interact with them in any way.
+
+The only thing we know about them is :
+
+They are highly intelligent shapeshifting creatures/entities who can 'infect' a part of their prey's mind, and will try to get their prey to interact with the infected half to take over their mind and kill them.
