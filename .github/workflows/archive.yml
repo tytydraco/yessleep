@@ -17,5 +17,6 @@ jobs:
         with:
           repo_token: ${{ secrets.GITHUB_TOKEN }}
           automatic_release_tag: archive-${{ steps.date.outputs.date }}
+          prerelease: false
           files: |
-            *
+            out/*.md
