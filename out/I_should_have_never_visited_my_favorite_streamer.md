@@ -10,7 +10,7 @@ In their blogs, they always had a positive mindset and tried to share it with ev
 They would always be very supportive in their reaction videos and I think a lot of people saw that as sobering, since they never wanted to put anyone down and encouraged their fans to create their own content. The fans did as well, dedicating their own creations to them. 
 
 
-They had an episodic blog, which they named The Positive Air, they created it to share anything they found wholesome and gave motivational speeches to help us grow while relating to our struggles
+They had an episodic Livestream, the name didn't matter. they created it to share anything they found wholesome and gave motivational speeches to help us grow while relating to our struggles
 
 
 The community is active, full of heartfelt messages tagged to the images and videos by the fans and idle conversation based around our idol. I wanted to be a part as well, joining the chats and discussing their videos. I would always get very excited when they joined the message boards and they would even reply to some of my thoughts. The more times they spoke to me directly, the more admiration I had for them. 
