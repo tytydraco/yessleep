@@ -1,5 +1,7 @@
 [Part II](https://www.reddit.com/r/nosleep/comments/wct9b6/my_grandmothers_doll_collection_part_2/)
 
+[Part III](https://www.reddit.com/r/nosleep/comments/wd9k05/my_grandmothers_doll_collection_part_3/) 
+
 The day was as miserable as I felt- ash gray clouds smothering a gloomy sun. The stuffy afternoon made the already dilapidated structure lurking at the end of the neighborhood look even more run down. Bare wood showing where paint had been stripped away, cracked and stained four panel windows, a lawn overgrown, slowly consuming long abandoned toys and debris, the passing sidewalk swallowed by autumn leaves. Even the other houses in the neighborhood, all in better condition, seemed to keep their distance.
 
 Work had dried up; dad lost his job again, but that’s not terribly surprising considering how he logged more hours with bottles than anything else. After another yet another argument, he got a little handsy with mom.

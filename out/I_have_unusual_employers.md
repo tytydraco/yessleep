@@ -120,7 +120,7 @@ Before Noah could answer anything, I couldn't help but notice the girl again. Sh
 
 ‘I have changed and I don’t care about your misery, bitch!’ - I said and started going to the bathroom.
 
-‘2500 dollars in cash. Buried in a garden. Easy access.’ - she said and wanted to stop me with her arm by leaning to the wall. How naive.
+‘2500 dollars in cash. Buried in a garden. An old bloke's savings. Easy access.’ - she said and wanted to stop me with her arm by leaning to the wall. How naive.
 
 ‘Not interested.’ - I replied.
 
