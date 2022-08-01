@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4459
+file count: 4461
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -754,8 +754,8 @@ file count: 4459
 * [HELP NEEDED BEING TORMENTED BY A GODDESS](out/HELP_NEEDED_BEING_TORMENTED_BY_A_GODDESS.md)
 * [Help The Piggy Killers are hungry](out/Help_The_Piggy_Killers_are_hungry.md)
 * [HENTAI](out/HENTAI.md)
-* [Her Part one](out/Her_Part_one.md)
 * [Her Part One](out/Her_Part_One.md)
+* [Her Part one](out/Her_Part_one.md)
 * [hes a runner hes a track star](out/hes_a_runner_hes_a_track_star.md)
 * [Hes been watching ever since](out/Hes_been_watching_ever_since.md)
 * [Hes in my house](out/Hes_in_my_house.md)
@@ -1009,6 +1009,7 @@ file count: 4459
 * [I died three times and came back Each time something followed me](out/I_died_three_times_and_came_back_Each_time_something_followed_me.md)
 * [I discovered F13 on my keyboard](out/I_discovered_F13_on_my_keyboard.md)
 * [I discovered something evil living in my mattress](out/I_discovered_something_evil_living_in_my_mattress.md)
+* [I dissected the male mind What I found should frighten all women Part 1](out/I_dissected_the_male_mind_What_I_found_should_frighten_all_women_Part_1.md)
 * [I dont care that I cheated on my ex](out/I_dont_care_that_I_cheated_on_my_ex.md)
 * [I dont have fucking cholera](out/I_dont_have_fucking_cholera.md)
 * [I dont know how I ended up in the ocean](out/I_dont_know_how_I_ended_up_in_the_ocean.md)
@@ -1108,6 +1109,7 @@ file count: 4459
 * [I Found Out What Happens To People Who Get Lost In Ikea](out/I_Found_Out_What_Happens_To_People_Who_Get_Lost_In_Ikea.md)
 * [I Found out What The Secret Lever Does](out/I_Found_out_What_The_Secret_Lever_Does.md)
 * [I found out why my grandfather stopped being a researcher](out/I_found_out_why_my_grandfather_stopped_being_a_researcher.md)
+* [I found out why my grandpa keeps drapes over his mirrors](out/I_found_out_why_my_grandpa_keeps_drapes_over_his_mirrors.md)
 * [I Found Out Why My Wife Immigrated From JapanBut Now Ill Never Leave](out/I_Found_Out_Why_My_Wife_Immigrated_From_JapanBut_Now_Ill_Never_Leave.md)
 * [I found some home videos from my childhood in my parents attic](out/I_found_some_home_videos_from_my_childhood_in_my_parents_attic.md)
 * [I found something awful below the cult stronghold Part 4](out/I_found_something_awful_below_the_cult_stronghold_Part_4.md)
@@ -2527,8 +2529,8 @@ file count: 4459
 * [My Husbands Last Visit](out/My_Husbands_Last_Visit.md)
 * [My Idiot Mobster Husband Killed The Wrong Guy Now Our Whole Family Is Paying The Price](out/My_Idiot_Mobster_Husband_Killed_The_Wrong_Guy_Now_Our_Whole_Family_Is_Paying_The_Price.md)
 * [My idiot roommate didnt pay the power bill](out/My_idiot_roommate_didnt_pay_the_power_bill.md)
-* [My imaginary friend Timmy](out/My_imaginary_friend_Timmy.md)
 * [My Imaginary Friend Timmy](out/My_Imaginary_Friend_Timmy.md)
+* [My imaginary friend Timmy](out/My_imaginary_friend_Timmy.md)
 * [My Imaginary Friend](out/My_Imaginary_Friend.md)
 * [My internet posts are in a diffrent universe](out/My_internet_posts_are_in_a_diffrent_universe.md)
 * [My job is watching a woman trapped in a room Part Two](out/My_job_is_watching_a_woman_trapped_in_a_room_Part_Two.md)
@@ -3032,8 +3034,8 @@ file count: 4459
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
+* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
