@@ -1,6 +1,8 @@
+ 
+
 **Part one: We both wanted to live.**
 
-&#x200B;
+(Around 4.4k words 4400)
 
 I took a sip of my coffee. Its bitter taste washed down my throat as I gazed upon the seemingly endless wasteland of the dark night. The gentle dance of the moonlight on my skin was something that was a benefit of working the night-shift. Other than the money, of course. No one would go out of their way to spend a night working, especially when you consider who you work for and what their business is.
 
@@ -94,7 +96,7 @@ I said as I turned my head back to the corpses.
 
 He asked, mockingly.
 
-“How does it feel knowing that when you die, your parents will only receive a phone call and your mangled corpse. If, of course, the people bother spending time to try to find out which one is yours.”
+“How does it feel knowing that when you die, your parents will only receive a phone call and your mangled corpse. If, of course, the people bother spending time trying to find out which one is yours.”
 
 I said as I picked up a severed arm from the ground and threw it into a bucket.
 
@@ -154,11 +156,11 @@ It was subject-7
 
 Subject-7 is a large predatory arachnid of the Scorpions family. While it belongs to the family of scorpions, it has a few key differences. Its size is that of a bicycle, while its size is not enough to cause any major dangers on its own, it still possesses an extremely poisonous stinger. Its claws are sharp and while they are incapable of cutting through bones or dense muscles and flesh, they are mostly used to pin down its prey and inject the venom into it.
 
-Its eyesight is similar to one which we, humans possess. Its almost deaf and its smelling is also similar to ours. While we state that it's almost deaf, it still can and will hear loud noises or people trying to sneak up on him.
+Its eyesight is similar to one which we humans possess. It's almost deaf and its smell is also similar to ours. While we state that it's almost deaf, it still can and will hear loud noises or people trying to sneak up on him.
 
 The venom is a muscle and nerve damaging chemical which after around 5-8 minutes(depends on person's size, weight, poison resistance, etc.) the victim’s muscles stiffen up to the level usually said to be around rigor mortis.(the state when a victim has been dead for hours or even a day and muscles stiffen up to a degree where even moving a finger becomes near impossible.)
 
-Subject-7 then consumes its prey and leaves nothing behind. Subject-7 is highly aggressive and is more than capable of a max speed of 52 km/h. It is advised to try to enter a high ground, as unlike its usual counterpart in the scorpion family, it has a hard time crawling up on anything. While it's highly aggressive it will not bother to chase someone for a long period of time, as it tries to preserve as much energy as it can. Its exoskeleton is one of high durability and it is noted that it can withstand high caliber rounds. It's most advised that it not be taken upfront as it's more than capable of taking you down.
+Subject-7 then consumes its prey and leaves nothing behind. Subject-7 is highly aggressive and is more than capable of a max speed of 52 km/h. It is advised to try to enter a high ground, as unlike its usual counterpart in the scorpion family, it has a hard time crawling up anything. While it's highly aggressive it will not bother to chase someone for a long period of time, as it tries to preserve as much energy as it can. Its exoskeleton is one of high durability and it is noted that it can withstand high caliber rounds. It's most advised that it not be taken upfront as it's more than capable of taking you down.
 
 Subject-7 slowly walked into the room which we were hiding in. It stopped in the middle of the room. I could hear its chelicerae(its mouth part) moving. It most likely feasted not long ago and was seeking a place where it could rest.
 
@@ -190,7 +192,7 @@ I asked as I laughed.
 
 I switched from happy laughter to sarcastic.
 
-“Yea, knowing your skills I already said my prayers.”
+“Yea, knowing your skills! I already said my prayers.”
 
 He just rolled his eyes.
 
@@ -204,7 +206,7 @@ Lauri put his hand on my shoulder.
 
 “How the fuck would I know?”
 
-We both laughed a bit. The red lights were starting to turn into a darker colour of red. I gently hit Lauri’s side with my elbow and pointed at the lights.
+We both laughed a bit. The red lights were starting to turn into a darker color of red. I gently hit Lauri’s side with my elbow and pointed at the lights.
 
 “They are running out of electricity. Subject-22, perhaps?”
 
@@ -222,21 +224,19 @@ The ground began to shake. We looked at each-other and I could clearly see Lauri
 
 “Hurry, we gotta get the hell out of here before the thing arrives!”
 
-His voice cracked, fear erupted from his eyes and face. He was not known to be easily scared, so whatever it was, he was afraid of it.
-
-Lauri said as he threw his gun onto the ground and began recklessly running. I Had no idea what we were running from but I knew enough not to ask any questions until we reached safety. I tried to keep up with him, but soon we got separated.
+Lauri said as he threw his gun onto the ground and began recklessly running. His voice cracked, fear erupted from his eyes and face. He was not known to be easily scared, so whatever it was, he was afraid of it.I had no idea what we were running from but I knew enough not to ask any questions until we reached safety. I tried to keep up with him, but soon we got separated.
 
 I looked around trying to find him but by now, the lights were almost out. I didn’t know what to do so I tried to think what would be the next logical step to take. I thought about what to do next, but found nothing that would seem logical and also not kill me.
 
 I would have continued thinking if I didn’t hear loud thuds behind me. I turned and my face ran cold. A hulking monstrosity without a head. It was Subject-66.
 
-Subject-66 is a tall, humanoid shaped being. It lacks a head and a neck. While it seemingly lacks all things which are associated with the head(Hearing, smelling, seeing, tasting) are present(other than the taste, as of the time of writing this the organization has no way to test if it’s capable of eating and if so, can it feel its taste.) Subject-66 is capable of forging a large, steel axe out of its own or its victims blood, which it uses to decapitate its victims. It’s important to note that while Subject-66 is usually calm, it can and will often enter an enraged state where it goes on a killing spree. It is highly recommended that if you are targeted by Subject-66 you either play dead or go onto your knees and cover your head with your hand, as it seems that subject-66 aggression is triggered by its “view” of the head.
+Subject-66 is a tall, humanoid shaped being. It lacks a head and a neck. While it seemingly lacks all things which are associated with the head(Hearing, smelling, seeing, tasting) are present(other than the taste, as of the time of writing this the organization has no way to test if it’s capable of eating and if so, can it experience taste.) Subject-66 is capable of forging a large, steel axe out of its own or its victims blood, which it uses to decapitate its victims. It’s important to note that while Subject-66 is usually calm, it can and will often enter an enraged state where it goes on a killing spree. It is highly recommended that if you are targeted by Subject-66 you either play dead or go onto your knees and cover your head with your hand, as it seems that subject-66 aggression is triggered by its “view” of the head.
 
-I had no time to do either. The only thing I could do was simply try to jump out of its swing, but I failed and it managed to land a deep and long cut through my upper chest. It then grabbed me by the neck and threw me to the end of the hallway down the stairs. I tried to dig my nails into the ground so that I might not fall down, but it was an unsuccessful try. I began falling down. I cursed the one who thought it would be a great idea to spare money by not putting anything around the stairs to stop someone from accidentally falling down.
+I had no time to do either. The only thing I could do was simply try to jump out of its swing, but I failed and it managed to land a deep and long cut through my upper chest. It then grabbed me by the neck and threw me to the end of the hallway and down the stairs. I tried to dig my nails into the ground so that I might not fall down, but it was an unsuccessful try. I began falling down. I cursed the one who thought it would be a great idea to spare money by not putting anything around the stairs to stop someone from accidentally falling down.
 
-I landed on my side and I could feel my arm immediately burning. It shattered into tiny bits and began injecting its pain across my body. I managed to crawl to a wall and lay there. I knew Subject-66 would not give chase as it was not known to be one to go out of its way to kill someone.
+I landed on my side and I could feel my arm immediately burning. It shattered into tiny bits and I could feel the pain seeping  across my body. I managed to crawl to a wall and lay there. I knew Subject-66 would not give chase as it was not known to be one to go out of its way to kill someone.
 
-As I laid there, blood coming out of my chest, arm broke, legs tired and hurt, I’m not ashamed to admit, I began crying. The pain was unbearable and I knew I wouldn’t make it. I was weeping on the ground, not even quietly. If whatever wants to come and finish me, let it hear me. Pain and suffering awaited me if nothing came. The warm tears crawled down my face as more joined them. If nothing comes, I still have a pistol. I can drive a bullet through my skull if I'm left with no other choice.
+As I laid there, blood coming out of my chest, arm broke, legs tired and hurt, I’m not ashamed to admit, I began crying. The pain was unbearable and I knew I wouldn’t make it. I was weeping on the ground, not even quietly. If whatever wants to come and finish me, let it hear me. Pain and suffering awaited me if nothing came. The warm tears crawled down my face as more joined them.
 
 I heard something moving throughout the hallway of the lower level. It slowly approached me. I’m not one to admit it, but I had no idea what Subject it was. It was something I can’t really describe. It was a beast, the size of a dog, maybe a German Shepherd? It had many large eyes on its face. It had a large beak like a maw. It had sharp teeth in its mouth and even larger eyes. I think a total of eight? That’s how many I cared to count. I closed my eyes and accepted my fate. I was hoping that it wasn’t one of the torture bastards which tortured its victim for hours.
 
@@ -250,7 +250,7 @@ The void was cold. It had nothing in it. I was expecting something to happen. I 
 
 But then….
 
-I awoke. I was confused. How was I alive? I looked around to see where I was, but I was still down at the bottom floor. My wounds were gone, my arm didn’t hurt any-more. I stood up and looked around. I saw the thing still laying there, its blood already drying up on the floor and its corpse. I was trying to figure out what happened, but suddenly my body revolted against me. I began puking up some kind of dark liquid. I fell to my knees as more of that dark thing left my stomach trough my mouth. My whole body was shaking. I tried getting onto my legs, but I was to week. Then, I heard its voice.
+I awoke. I was confused. How was I alive? I looked around to see where I was, but I was still down at the bottom floor. My wounds were gone, my arm didn’t hurt any-more. I stood up and looked around. I saw the thing still laying there, its blood already drying up on the floor and its corpse. I was trying to figure out what happened, but then I heard a voice.
 
 “Welcome. Mortal.”
 

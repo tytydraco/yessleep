@@ -1,5 +1,3 @@
-**Reupload because of phone issues. Also what I was going to put in a seperate post is also part of this one as I had it wriiten out today and decided to put it as part of this one.** 
-
 I was awoken by the sound of a loud thump on the roof. “It’s Santy” I thought. I really wanted to get up to greet him but I decided not to as I didn’t want to spook him so I stayed in bed and listened. I heard his footsteps on the roof approach the chimney. I heard the bang of him landing in the fireplace after coming down the chimney. I heard the rattling of the presents he was placing under the tree and I heard the sound of his chewing as he ate the cookies my brother and I left out for him. 
 
 My brother, 9 at the time and I, 11 at the time shared a room. Our beds were right beside each other, only a bedside locker between us. He always had a night light on. 
@@ -16,7 +14,7 @@ I sat up quickly and rubbed my eyes. I got a good look at him. He was like what 
 
 “That’s not fair” I said. “I’ve been very good this year”
 
-“Ho Ho Ho, is that so?” 
+“Ho Ho Ho, is that so?”
 
 He took out a long light green poece of paper and scrolled down through it
 
@@ -366,6 +364,6 @@ She led me upstairs to what looked to be her younger brother’s room. There was
 
 “Are you gonna make me go back out there myself?”
 
-“No. I think you should stay with m. It is safer for you.”
+“No. I think you should stay with me. It is safer for you”
 
 “Thanks a million. I really didn’t want to go alone again“

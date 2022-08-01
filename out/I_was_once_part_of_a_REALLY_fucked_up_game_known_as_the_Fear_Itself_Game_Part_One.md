@@ -253,3 +253,5 @@ In all honesty, up to then, I'd not really *feared* what I'd face in the next ro
 I could feel my eyes start to burn with tears. I knew I was essentially done for now. I'd lose; the game, my life, but worst of all, I'd lose *her*. She'd slowly and painfully die of cancer, and she wouldn't even get a decent burial. And it would be all my fault. All because I cracked.
 
 *Because I was afraid.*
+
+[Next](https://www.reddit.com/r/nosleep/comments/wd4pdl/i_was_once_part_of_a_really_fucked_up_game_known/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
