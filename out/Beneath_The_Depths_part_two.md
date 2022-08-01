@@ -33,3 +33,5 @@ My grandfather, in shock, took a moment to react as he helped the man out of the
 The Ichthyologist’s teeth were chattering. He was in shock and unable to speak. The objects in the water drew closer as my grandfather looked on in horror. As mangled pieces of what remained of the diving team brushed against thick brush and wet soil, he already understood, what the men in yellow did not.
 
 [part one](https://www.reddit.com/r/nosleep/comments/vzcciw/beneath_the_depths/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part 3](https://www.reddit.com/r/nosleep/comments/wd9pny/beneath_the_depths_part_three/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
