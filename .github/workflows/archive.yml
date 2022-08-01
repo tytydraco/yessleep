@@ -9,8 +9,13 @@ jobs:
   archive:
     runs-on: ubuntu-latest
     steps:
+      - name: Get current date
+        id: date
+        run: echo "::set-output name=date::$(date +'%Y-%m-%d')"
+        
       - uses: marvinpinto/action-automatic-releases@latest
         with:
           repo_token: ${{ secrets.GITHUB_TOKEN }}
+          automatic_release_tag: archive-${{ steps.date.outputs.date }}
           files: |
             *
