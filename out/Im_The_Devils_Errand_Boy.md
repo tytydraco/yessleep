@@ -241,3 +241,5 @@ The devil smiled, “you should look into that yourself, if they didn’t like t
 I think the devil branded me. 
 
 I better get started on getting that guitar, hoping its not going to cost me much, perhaps I could buy it from this Albert guy, the one who made the deal with the devil just as I had done. now I’m the devil’s errand boy. Fantastic.
+
+[Part two](https://www.reddit.com/r/nosleep/comments/we71x9/im_the_devils_errand_boy_part_2/?utm_medium=android_app&utm_source=share)
