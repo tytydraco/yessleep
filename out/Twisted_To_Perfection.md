@@ -1,8 +1,6 @@
- 
-
 **Part one: We both wanted to live.**
 
-(Around 4.4k words 4400)
+&#x200B;
 
 I took a sip of my coffee. Its bitter taste washed down my throat as I gazed upon the seemingly endless wasteland of the dark night. The gentle dance of the moonlight on my skin was something that was a benefit of working the night-shift. Other than the money, of course. No one would go out of their way to spend a night working, especially when you consider who you work for and what their business is.
 

@@ -1,8 +1,8 @@
- (reupload, also, this is a lot more bloody/gorey then the last one)
+&#x200B;
 
 **Part 2: There Is Something Very Wrong With My Body, With My Soul.**
 
-(3.2k words 3200)
+&#x200B;
 
 “What?”
 
