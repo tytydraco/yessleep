@@ -85,7 +85,7 @@ Why did he trust me?
 
 That’s what I kept thinking. Why did he trust that I would save him? I did nothing when the suited man had grabbed him. I let those bastards shove me into The Scarlett Room, and I didn’t fight back. I failed to save his brother.  
 
-So, why were his eyes wide with desperation and hope, that I wouldn’t make that same mistake? I led Jasper here. I had been the one to make that stupid post and brought him to the slaughter.  So, in my twenty years of life, I had somehow indirectly led three innocent people to a fate worse than death. And now I too was going to die. Or more specifically, I was drowning in my own self-pity.
+So, why were his eyes wide with desperation and hope, that I wouldn’t make that same mistake? I led Jasper here. I had been the one to make that stupid post and brought him to the slaughter.  So, in my 18 years of life, I had somehow indirectly led three innocent people to a fate worse than death. And now I too was going to die. Or more specifically, I was drowning in my own self-pity.
 
 You’re allowed to throw yourself a fucking pity-party when you’re sitting on emaciated skulls and ancient blood.
 

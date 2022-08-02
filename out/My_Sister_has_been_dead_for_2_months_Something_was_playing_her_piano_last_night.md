@@ -107,3 +107,7 @@ I look back at Kacy, pointing at my dad, my lips quivering.
 "Wh... Why is dad here? Why does he look so... So weird?"
 
 "You didn't know?" Kacy takes another step forward to me as her smile starts to fade into a look of confusion. My heart sinks as she proceeds to say; "Dad killed himself a day after I died."
+
+&#x200B;
+
+[X](https://www.reddit.com/r/kazthemurphyfan/)
