@@ -10,7 +10,7 @@ Then, out of nowhere, she just showed up a few nights ago; she stood outside our
 
 She visited again last night. She stood outside my window just like she has every night this week. Her eyes, which were sunken and oddly angled as if they were melting, seemed to stare into nothingness. I am careful not to look at her for too long.
 
-My wife’s missing person case is still open, and seeing her now, I doubt it will ever be closed. I wouldn’t define her current state as ‘living’, but I don’t think we’ll ever find her body. Would the police even believe me if I told them?
+My wife’s missing persons case is still open, and seeing her now, I doubt it will ever be closed. I wouldn’t define her current state as ‘living’, but I don’t think we’ll ever find her body. Would the police even believe me if I told them?
 
 The thing that is in part my wife seems to follow a routine. When it comes, it places a hand against the window and taps gently. When I ignore it, it places a second hand, a third, a fourth – all mismatched and in varying states of damage and wear and taps more frantically. It does this most nights, sometimes while it moans and whispers from some of its many mouths while tongues loll from others. Even though part of me is used to it by now, the sight of it coupled with the sound of those layered voices speaking no language I’ve ever heard still sends shivers down my spine. 
 
