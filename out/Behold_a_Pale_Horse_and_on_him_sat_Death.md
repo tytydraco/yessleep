@@ -1,0 +1,19 @@
+
+
+There are some hazards that come with my job, most of which come from the chemicals we use. All of the chemicals, if breathed condense and turn to a solid in our lungs. The lungs collapse and at that point we beg for death to be quick. This being said, every crew member is required to wear a full face gas mask, so in order for everything to seal to our face we have to be clean shaven. 
+
+There is one chemical in particular that we are not allowed to shave the same day we use it because if any particles from the chemical gets into the blood stream it can cause hallucinations, crystallize in the blood stream and lead to death as the crystal tear open the veins. Now today we have to work with this chemical. I shaved last nights so any nicks I had are fully closed.
+
+We arrived at the site at 6:30 this morning. We get out of the van and put on our masks. We do a quick fit test to make sure everything is sealed my two guys are good. We have adjustable straps on our head and neck in order to ensure a proper fit. Anytime we have to use this chemical we say a prayer before we start. 
+
+My guys and I go in to the site and begin the necessary demolition. We are reaching over our heads and removing the ceiling in order to expose the issue we were hired to fix. Tim is my second in command and my best crew mate. He reaches above his head to grab the drywall hanging loose and pulls, the drywall comes down easy and so do the razor blades and broken shards of glass from the bathroom above.
+
+I hear the scattering of objects hit the ground followed by a silence that was so quiet it was deafening. Tim walks over to me calm and collected and I see blood dripping down his face. He was cut. I tell him to wait in the van so when we begin to use the chemical he will be safe. 
+
+We finish exposing the issue. My other crew mate, Carl, and I walk out to the truck and slide open the side door. Looking at us with its cold steel face is a small metal safe. I type in the 16 digit number and slowly open the safe to expose the black velvet cushioning and centered gently upon it is a small vial of white liquid. We have dubbed the chemical with the name Pale Horse because of how fast death will come if not handled properly. 
+
+I put on my rubber glove and grab Pale Horse. I slowly turn and walk back into the site, the dark brown dirt is exposed and above us is the parasite affecting the site. This chemical must be dumped on the center of the ground, as soon as it touches a natural surface it instantly vaporizes and kills any living specimens in the area. I pour slowly. I watch as all of the chemical drops to the ground. The air around us turns white. I hear Carl next to me start to scream! He claims to see the skeletons closing in on him! In the next minute, the screams of agony begin as his veins are shredded inside of his body. I turn quick to leave the site and set the vial back in the safe. I have to go back in. I do one more fit test of my mask and make my way into the dense white smoke. 
+
+His body is laying in the center. I kneel down to pick him up and notice a small cut on his thumb. I scoop my arms around him and as I stand up I hear a snap…
+
+I hold my breath. I feel the rush of toxic air touch my skin. The sweat is dripping down my face. My heart is pounding. If I breath I die. The 13ft walk from the center of the site to the door is the longest walk I have ever had to do. I walk to the back of the van and set Carls body in. I take of my mask and take a long deep breath of fresh air. I look back at the menacing white mist and hear a cackle come from inside. I check myself over for cuts or blood. Nothing. I escaped, just barely.
