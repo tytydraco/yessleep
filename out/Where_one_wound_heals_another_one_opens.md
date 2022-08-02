@@ -72,7 +72,7 @@ The darkness was endless beyond the door; I could barely make out the figure. If
 
 “Where the fuck is Mallory, Chase? Is she okay?”
 
-“She’s fine, Leon. We’re busy right now, though. I’ll have her give you a call later tonight.” As he closed the door, Leon wedged his arm into the gap. 
+“She’s fine, Leon. We’re busy right now, though. I’ll have her give you a call later tonight.” As he closed the door, I wedged my arm into the gap. 
 
 “She missed pickup, Chase. Her week was supposed to start today.” 
 
@@ -82,7 +82,7 @@ The darkness was endless beyond the door; I could barely make out the figure. If
 
 He pushed, but I managed to wrestle the door open.
 
-The droopy figure of Chase stood there stupidly,  helpless and out of breath. He looked like a toothpick, his bare chest sunken, his baggy cargo shorts barely hanging on to his bony hips. But it was his eyes that were most disturbing–they were a milky pink, like two partially sucked gumballs. It made me shudder as I walked into the home.
+The droopy figure of Chase stood there stupidly,  helpless and out of breath. He looked like a toothpick, his bare chest sunken, his baggy cargo shorts barely hanging onto his bony hips. But it was his eyes that were most disturbing–they were a milky pink, like two partially sucked gumballs. It made me shudder as I walked into the home.
 
 “For God’s sake. I knew it. You two are using again!” I stormed down the hall and into the darkness.
 
@@ -96,7 +96,7 @@ The droopy figure of Chase stood there stupidly,  helpless and out of breath. He
 
 \*\*\*
 
-An odd funnel of air hit me, with every creaking step it got progressively warmer. The air seemed to cling to my body like a layer of honey, carrying a gurgling stench of wet laundry. A sickly hissing sound could be heard from the dying furnace off in the distance. I could make out the source of the light now— numerous candles were laid across the floor with no discernable pattern. Piercing red orbs of light were found in every corner of the room. The heat lamps were radiating waves of sweltering heat that made the walls sweat. When I finally got to the bottom of the stairwell, she was lying there, face up.
+An odd funnel of air hit me, with every creaking step it got progressively warmer. The air seemed to cling to my body like a layer of honey, carrying a gurgling stench of wet laundry. A sickly hissing sound could be heard from the dying furnace off in the distance. I could make out the source of the light now— numerous candles were laid across the floor with no discernable pattern. Piercing red orbs of light were in every corner of the room. The heat lamps were radiating waves of sweltering heat that made the walls sweat. When I finally got to the bottom of the stairwell, she was lying there, face up.
 
 “Mallory!” I cried.
 
@@ -120,11 +120,11 @@ I didn't see them at first, the fury was blinding my concentration. All I could 
 
 Acidy liquid came up out of my throat as I watched a group of them wiggle out of her eyes. 
 
-I made a sound I had never made before, akin to a yelp from a tiny dog. The sound escaped from my quivering lips and was met by a high-pitched hiss
+I had never made that sound before. It was akin to a yelp from a tiny dog. It escaped from my quivering lips and was met by a high-pitched hiss.
 
 “See what you’ve done now?  You’ve angered *them*. You fool.”
 
-Chase crept up alongside her body as I found myself further and further away. I could feel the little boy inside of me urging me to run. 
+Chase crept up alongside her body as I found myself further and further away. I could hear the little boy inside of me, urging me to run. 
 
 “What the fuck, Chase?”
 
@@ -132,11 +132,11 @@ There was a knocking coming from the walls that I couldn't pinpoint in the shado
 
 Chase wrapped an elastic band around Mallory's arm and jabbed her with a syringe. The contents slowly drained out of the needle. The hissing intensified as the ripples became stronger, I could see the little hairs on their bodies as my eyes adjusted to their figure. They dived inside of her. In and out. Sucking and sucking until they waved their thin frames from side to side in a temporary, triumphant jiggle before proceeding to feed again. I noticed now that the bruises seemed to be moving, ever so slightly.
 
-“*Feast*,” Chase encouraged in a breathy whisper. “Take it all away —the chemicals, the toxins, the dependency.” He laid down beside Mallory and strapped himself up before sinking a needle into his arm. 
+“*Feast*,” Chase encouraged in a breathy whisper. “Take it all away —the chemicals, the toxins, the dependency.” He laid down beside Mallory and strapped himself up before sinking a needle into his own arm. 
 
-Another frenzy of loud knocks sent my gaze upwards. From the basement window above, I could see them pounding,  desperately trying to get in. They were much more visible given the numbers of them crowded by the window. Their bodies were clear like jellyfish, their mouths twisting and turning, their tiny teeth spread out and swirling like the head of a beautiful flower. Long, puffy tubes of flesh that looked as big as your hand.
+Another frenzy of loud knocks sent my gaze upwards. From the basement window above, I could see them pounding, desperately trying to get in. They were much more visible given the numbers of them crowded by the window. Their bodies were clear like jellyfish, their mouths twisting and turning, their tiny teeth spread out and swirling like the head of a beautiful flower. Long, puffy tubes of flesh that looked as big as your hand.
 
-It was enough to send me scampering up the stairs. Going off memory, I felt around the pitch-dark room. A picture frame tumbled from the wall, the glass shattering on impact. I felt an electric shock of pain as my hip collided with the bench in the foyer. It felt like an eternity before I finally felt the knob to the front door. Once free from the house, I did not breathe until I was back in my vehicle. 
+It was enough to send me scampering up the stairs. Going off memory, I felt around the pitch-dark room. A picture frame tumbled from the wall, the glass shattering on impact. I felt an electric shock of pain as my hip collided with the bench in the foyer. It felt like an eternity before I finally found the knob to the front door. Once free from the house, I did not breathe until I was back in my vehicle. 
 
 It was a long ride home.
 
@@ -144,7 +144,7 @@ It was a long ride home.
 
 I received a phone call a couple of hours later. Mallory was apologizing profusely, reassuring me that everything was okay, that she was trying something new that seemed to be working. She promised to make it up to me and the kids.
 
-When she arrived the next morning she looked amazing. Her hair looked fuller, her smile radiant. The bags under her eyes seemed to be gone, but the bruising was impossible to hide. There was a speckle of dark purple around her collar bone that poked out of her cardigan.
+When she arrived the next morning she looked amazing. Her hair looked fuller, her smile radiant. The bags under her eyes seemed to be gone, but the bruising was impossible to hide. There was a speckle of dark purple around her collar bone, sitting above the neckline of her cardigan.
 
 “I know it's a little…out of the box, Leon. But I’m telling you, it's been working, like nothing else I’ve tried before. That gnawing feeling, you know, that urge that picks away at you….it’s completely gone. It’s been amazing. I finally feel free.”
 
@@ -154,7 +154,7 @@ The kids were gathering up their things upstairs, their excited voices traveling
 
 “That’s part of it…for now. At least until we build up enough clientele and have a large enough stable.”
 
-Leon shot a puzzled look in her direction. “What the fuck are you talking about, Mallory?”
+I shot a puzzled look in her direction. “What the fuck are you talking about, Mallory?”
 
 “A stable, you know. I guess you could call it our new business venture,” she smiled. “It’s not too late to invest. We already have a handful of clients, those people that you saw yesterday.” She stopped by the front window and flashed an open palm to Chase, indicating 5 more minutes. He looked unimpressed.
 
@@ -166,7 +166,7 @@ She leaned in and hugged me tightly. I suddenly felt warm. “Thanks again for c
 
 There was playful cooing coming from the top of the stairs followed by frantic footsteps as the girls raced down.
 
-“Grab your things and head to the car,” Mallory ordered. They hugged their dad goodbye and ran to the vehicle.
+“Grab your things and head to the car,” Mallory ordered. They hugged me goodbye and ran to the vehicle.
 
 ”What exactly were those things, anyway?” I asked. Peering out the front window, Ally was showing Chase her brand new keyboard. 
 

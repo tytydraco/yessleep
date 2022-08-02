@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4500
+file count: 4501
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1096,8 +1096,8 @@ file count: 4500
 * [I found a place where the sky ends](out/I_found_a_place_where_the_sky_ends.md)
 * [I found a strange book in a clients library Now Im not sure Ill make it out alive](out/I_found_a_strange_book_in_a_clients_library_Now_Im_not_sure_Ill_make_it_out_alive.md)
 * [I found a strange notebook in my car after getting fired from my job](out/I_found_a_strange_notebook_in_my_car_after_getting_fired_from_my_job.md)
-* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
+* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I found a usb stick  The Long Face](out/I_found_a_usb_stick__The_Long_Face.md)
 * [I found a VHS in a VCR I boughtI wish I hadnt hit play](out/I_found_a_VHS_in_a_VCR_I_boughtI_wish_I_hadnt_hit_play.md)
 * [I found a video game that shouldnt be real and I think its going to kill me](out/I_found_a_video_game_that_shouldnt_be_real_and_I_think_its_going_to_kill_me.md)
@@ -2687,8 +2687,8 @@ file count: 4500
 * [My Son and I Are Stranded In The DesertAnd The Howling Wont Stop](out/My_Son_and_I_Are_Stranded_In_The_DesertAnd_The_Howling_Wont_Stop.md)
 * [My son asked me to check the closet for monsters I didnt need to](out/My_son_asked_me_to_check_the_closet_for_monsters_I_didnt_need_to.md)
 * [My son got a sock monkey for his birthday from my grandmother Im scared now because of what its done to him](out/My_son_got_a_sock_monkey_for_his_birthday_from_my_grandmother_Im_scared_now_because_of_what_its_done_to_him.md)
-* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
+* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life.md)
 * [My son has been gone for 2 weeks He recently came back home and I dont think this is my son Part 1](out/My_son_has_been_gone_for_2_weeks_He_recently_came_back_home_and_I_dont_think_this_is_my_son_Part_1.md)
 * [My son has been talking to a friend on his new phone and its scaring me](out/My_son_has_been_talking_to_a_friend_on_his_new_phone_and_its_scaring_me.md)
@@ -3062,8 +3062,8 @@ file count: 4500
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
+* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
@@ -3811,6 +3811,7 @@ file count: 4500
 * [The shape of the clouds in the sky are predicting how people are going to die](out/The_shape_of_the_clouds_in_the_sky_are_predicting_how_people_are_going_to_die.md)
 * [The Shapes of Radio Static  Part 12](out/The_Shapes_of_Radio_Static__Part_12.md)
 * [The Shapes of Radio Static  Part 22](out/The_Shapes_of_Radio_Static__Part_22.md)
+* [The Sheriff of Sheolton Killed Me Part 2](out/The_Sheriff_of_Sheolton_Killed_Me_Part_2.md)
 * [The Shrinker Bunker](out/The_Shrinker_Bunker.md)
 * [The Silencing](out/The_Silencing.md)
 * [The Silhouette](out/The_Silhouette.md)
