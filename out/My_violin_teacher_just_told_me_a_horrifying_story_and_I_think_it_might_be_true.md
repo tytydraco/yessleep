@@ -30,7 +30,7 @@ I could do nothing but sit with rapt attention and aching heart as her low, melo
 
 *Viola wondered how she’d do this if she wasn’t permitted to touch an instrument. While her room was always filled with the sweet sound of her parent’s music, her father would firmly tell her that her fingers were too delicate to hold down the strings. Viola thought her hands were plenty strong, and one day she decided to prove it to herself beyond any doubt.*
 
-*It was late at night, several hours after the last plaintive notes of her father’s song had faded. Viola had complained vehemently about how tightly her father was binding her arms and legs, in a clever bid to have them loose enough that she could slip out. Her heart raced, her delicate fingertips trembled. Viola had never broken a rule. She was unsure of why she did so now, but felt driven by the music she felt quivering in her soul like a bird, wings beating desperately at the bars of a silver cage. She’d dreamed many times of colorful tapestries, of musical notes dancing their way across an expanse of greens, blues and pinks, and each dream ended with her reaching out her hands as the notes danced out of her reach.*
+*It was late at night, several hours after the last plaintive notes of her father’s song had faded. Viola had complained vehemently about how tightly her father was binding her arms and legs, in a clever bid to have them loose enough that she could slip out. Her heart raced, her delicate fingertips trembled. Viola had never broken a rule. She was unsure of why she did so now, but felt driven by the music she felt quivering in her soul like a bird, wings beating desperately at the bars of a silver cage. She’d dreamed many times of colorful tapestries, of musical notes dancing their way across an expanse of greens, blues and pinks, and each dream ended with her reaching out her hands as the notes danced out of her grasp.*
 
 *Not tonight, Viola told herself determinedly. She swung her pale legs over the side of her foam bed, cringing at how slender and bony they looked in the muted moonlight coming in through the tinted glass. Her tiny feet made no sound as she padded across the swathes of thick carpeting towards the door. The antique doorknob was locked from the outside, this she knew.*
 
@@ -40,7 +40,7 @@ I could do nothing but sit with rapt attention and aching heart as her low, melo
 
 *She didn’t want to wake up the next day as a 16 year old having never made the sweet music that surrounded her from birth.*
 
-*Even if she could just touch that legendary instrument, she felt as though it would somehow bestow upon her the knowledge it had gleaned from years of use. She firmly set her jaw in determination as she pulled out the soap key she’d crafted. It had taken a lot of thought, but she’d been saving soap scraps for long enough that she could place them in the ceramic soap dish in her bathroom. She rested that on the top of her baseboard heater and stirred it with a hairpin until it was smooth. Pouring it was a challenge for her shaking fingers, but she was left with a perfect mold of the key her father used to lock her door. When sShe’d dropped the hairpin in last to add more sturdiness. Now it was time for the final test.*
+*Even if she could just touch that legendary instrument, she felt as though it would somehow bestow upon her the knowledge it had gleaned from years of use. She firmly set her jaw in determination as she pulled out the soap key she’d crafted. It had taken a lot of thought, but she’d been saving soap scraps for long enough that she could place them in the ceramic soap dish in her bathroom. She rested that on the top of her baseboard heater and stirred it with a hairpin until it was smooth. Pouring it was a challenge for her shaking fingers, but she was left with a perfect mold of the key her father used to lock her door. Then she’d dropped the hairpin in last to add more sturdiness. Now it was time for the final test.*
 
 *The key scraped slightly as she inserted it into  the lock. Her father had installed the knob backwards so that it could easily be unlocked from the opposite side, and a key could be used from the inside to let out the keyholder after their nightly serenades. Viola felt a twinge of guilt rush through her as she twisted slowly…*
 
@@ -72,7 +72,7 @@ Click.
 
 *Somehow she knew it was her brother thanking her. As she stood shakily, still clutching the broken neck of The Instrument, she felt the tune change, and she heard what the music was telling her.*
 
-Run\*.\*
+Run.
 
 *As Viola turned and frantically stumbled down the sloping staircase to the arched door of the main foyer, her mind reeled. She gripped the bannister, guided only by the moonlight slipping through the glass. Halfway down,a voice stopped her in her tracks. Her father’s words rang out behind her, and sent chills of terror and hoplessness down her spine. She could hear that now all-too-familiar jubilant smile in his voice, even if she dare not turn around to view it.*
 
