@@ -18,7 +18,7 @@ I couldn't even decide which emotions to process. Rage or fear? Was I being thre
 
 &#x200B;
 
-"Please do," I interjected, with maybe a little more snark than was necessary. 
+"Please do," I interjected, with maybe a little more snark than was necessary.
 
 &#x200B;
 
@@ -121,5 +121,7 @@ I tried to say 'thank you', but my throat was dry and raspy. I simply responded 
 Still, that weird knowing smile. She tilted her head. "Alright, let's give it a minute and get you hydrated, then make sure you're not just gonna snap and try to stuff me into an air vent or something. Then, I'll give you the grand tour."
 
 &#x200B;
+
+Five minutes later, after two more bottles of water and a handcuff key, Parker was ushering me out of the hotel room into the hall. "This way, my dear. I have such sights to show you."
 
 [\[JM\]](https://www.reddit.com/user/JhonaMonroe)

@@ -176,7 +176,7 @@ I nodded in his direction and made for the door. The breeze blew hard and consta
 
 In my room I thumbed at my phone. Everything I knew about Martindale Holiday Park was in the manilla file Derek had given me in the office. Photos of the camp as it was and as it is, but there was no mention of fire or girls flinging themselves from the cliff edge. I searched online now. On blogs and forums and anywhere that mentioned the park. I scrolled hurriedly, skimming until I found it.
 
-*The ghosts of Martindale* was the title. I read on. Lone girl haunts the bluff at Martindale Holiday Park. Marina Stafford, a 21 year old girl lost her life in August 1963, two years after fire ripped through the camp and killed five. At the lookout above the camp her ghost can be seen standing alone at sunset. 
+*The ghosts of Martindale* was the title. I read on. Lone girl haunts the bluff at Martindale Holiday Park. Marina Stafford, a 21 year old girl lost her life in August 1963, two years after fire ripped through the camp and killed five. At the lookout above the camp her ghost can be seen standing alone at sunset.
 
 Another article. Last letter of Marina. Marina Stafford sent a letter by post the day before her death, the letter received by her best friend Sophie three days hence. In the letter Marina writes about the wonderful time she is having. The article quoted from the letter: “this place is such a sun trap, if I stay here much longer I’m sure to turn into a lobster.”
 
@@ -300,8 +300,10 @@ I felt her hand slip away from mine and I stood alone on the cliff edge. The las
 
 I walked back up the slope. The tents and the buildings and the lights were all gone. I took off the necklace, turned dull and old, and put it in my pocket. I went to the pool, adorned again with the dragon, and retrieved my jacket and buttoned it up against the cold. The group of boys and the fire were gone. I climbed the fence and went to the car. At the lookout I saw the shadows of a few people, turning to leave.
 
-I brought the necklace back with me to the city. In the evenings I hold it in my hand, rubbing the dull metal with my thumb. I dream of her always. Of Marina and Martindale and the setting sun. 
+I brought the necklace back with me to the city. In the evenings I hold it in my hand, rubbing the dull metal with my thumb. I dream of her always. Of Marina and Martindale and the setting sun.
 
-I bought a ticket back to The Isle. I’m going this weekend. I don’t know what I will do, only that I want to see her again. 
+I bought a ticket back to The Isle. I’m going this weekend. I don’t know what I will do, only that I want to see her again.
 
 Maybe one day you will find yourself on the Isle. If you do, take the Dawson road south to the lookout. At sunset look out to the old site of Martindale and you might see a lone figure at the edge. Or you might see two, holding hands and watching the sunset.
+
+ [X](https://www.reddit.com/r/SleeplessFromSundown/)
