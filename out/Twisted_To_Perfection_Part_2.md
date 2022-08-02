@@ -1,4 +1,4 @@
- 
+ (reupload, also, this is a lot more bloody/gorey then the last one)
 
 **Part 2: There Is Something Very Wrong With My Body, With My Soul.**
 
