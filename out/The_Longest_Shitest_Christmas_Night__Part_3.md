@@ -86,7 +86,7 @@ But it wasn’t. After “hours” of walking, I found a small frozen lake. Ther
 
 “Shut it. Liam, eat”
 
-I quietly moved closer to get a better look. The three teens and the boy were sitting around a campfire. There was a rank smell. What I witnessed made me vomit. It wasn’t a sight for an 11 year old’s eyes but I couldn’t look away either. “Karolina was right about them” I thought. 
+I quietly moved closer to get a better look. The three teens and the boy were sitting around a campfire. There was a rank smell. What I witnessed made me vomit. It wasn’t a sight for an 11 year old’s eyes but I couldn’t look away either. “Karolina was right about them” I thought. “That poor kid”
 
 “Go on, Liam. Eat” said the other teen. “It wasn’t easy my first time either but you have to”
 
@@ -104,11 +104,11 @@ The girl laughed
 
 “F-fine o-okay
 
-He fook a bit and hesitantly swallowed 
+He fook a bite and hesitantly swallowed 
 
 “Ew, T-that tasted t-terrible”
 
-“Don’t worry, you’ll love it once you finish the arm”
+“Don’t worry, you’ll love it once you’ve finished the arm” said the other teen
 
 The other 3 started eating too. 
 
