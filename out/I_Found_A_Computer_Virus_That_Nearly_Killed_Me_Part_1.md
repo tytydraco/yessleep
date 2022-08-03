@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/wff5u9/i_found_a_computer_virus_that_nearly_killed_me/)
+
+&#x200B;
+
 DIELINE.EX
 
 "What's that?" I remember Jim asking from the next cubicle over.
