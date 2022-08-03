@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4565
+file count: 4568
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1277,6 +1277,7 @@ file count: 4565
 * [I just came across the Bridge Game](out/I_just_came_across_the_Bridge_Game.md)
 * [I just found out I have a brother that my parents keep locked in the attic](out/I_just_found_out_I_have_a_brother_that_my_parents_keep_locked_in_the_attic.md)
 * [I just had one of the most disturbing dreams in recent memory](out/I_just_had_one_of_the_most_disturbing_dreams_in_recent_memory.md)
+* [I just jumped out of my moms car I think](out/I_just_jumped_out_of_my_moms_car_I_think.md)
 * [I just matched with my dead wife on Tinder Part 3](out/I_just_matched_with_my_dead_wife_on_Tinder_Part_3.md)
 * [I just matched with my dead wife on Tinder Part 4](out/I_just_matched_with_my_dead_wife_on_Tinder_Part_4.md)
 * [I just matched with my dead wife on Tinder](out/I_just_matched_with_my_dead_wife_on_Tinder.md)
@@ -2729,8 +2730,8 @@ file count: 4565
 * [My Son and I Are Stranded In The DesertAnd The Howling Wont Stop](out/My_Son_and_I_Are_Stranded_In_The_DesertAnd_The_Howling_Wont_Stop.md)
 * [My son asked me to check the closet for monsters I didnt need to](out/My_son_asked_me_to_check_the_closet_for_monsters_I_didnt_need_to.md)
 * [My son got a sock monkey for his birthday from my grandmother Im scared now because of what its done to him](out/My_son_got_a_sock_monkey_for_his_birthday_from_my_grandmother_Im_scared_now_because_of_what_its_done_to_him.md)
-* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
+* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life.md)
 * [My son has been gone for 2 weeks He recently came back home and I dont think this is my son Part 1](out/My_son_has_been_gone_for_2_weeks_He_recently_came_back_home_and_I_dont_think_this_is_my_son_Part_1.md)
 * [My son has been talking to a friend on his new phone and its scaring me](out/My_son_has_been_talking_to_a_friend_on_his_new_phone_and_its_scaring_me.md)
@@ -3108,8 +3109,8 @@ file count: 4565
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
+* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
@@ -3527,8 +3528,8 @@ file count: 4565
 * [The Eyes In The House](out/The_Eyes_In_The_House.md)
 * [The Eyes wont stop watching me](out/The_Eyes_wont_stop_watching_me.md)
 * [The EyeSpye App](out/The_EyeSpye_App.md)
-* [The faceless man](out/The_faceless_man.md)
 * [The Faceless Man](out/The_Faceless_Man.md)
+* [The faceless man](out/The_faceless_man.md)
 * [The family shots 1](out/The_family_shots_1.md)
 * [The Family Tradition](out/The_Family_Tradition.md)
 * [The Farm](out/The_Farm.md)
@@ -3677,6 +3678,7 @@ file count: 4565
 * [The longest Christmas Ive ever experienced](out/The_longest_Christmas_Ive_ever_experienced.md)
 * [The Longest Shitest Christmas Night  Part 2](out/The_Longest_Shitest_Christmas_Night__Part_2.md)
 * [The Longest Shitest Christmas Night  Part 3](out/The_Longest_Shitest_Christmas_Night__Part_3.md)
+* [The Longest Shitest Christmas Night  Part 4](out/The_Longest_Shitest_Christmas_Night__Part_4.md)
 * [The Longest Shitest Christmas Night](out/The_Longest_Shitest_Christmas_Night.md)
 * [The Loyal Order of Elk Part 2](out/The_Loyal_Order_of_Elk_Part_2.md)
 * [The Loyal Order of Elk](out/The_Loyal_Order_of_Elk.md)
@@ -4259,6 +4261,7 @@ file count: 4565
 * [Under Europas Ice Part 3](out/Under_Europas_Ice_Part_3.md)
 * [Underneath the Old Couples Feet](out/Underneath_the_Old_Couples_Feet.md)
 * [Unexplainable event or Stalker](out/Unexplainable_event_or_Stalker.md)
+* [universe theory](out/universe_theory.md)
 * [Unknown caller](out/Unknown_caller.md)
 * [Until death do us part](out/Until_death_do_us_part.md)
 * [UPDATE I Developed Thalassophobia Last Night](out/UPDATE_I_Developed_Thalassophobia_Last_Night.md)
