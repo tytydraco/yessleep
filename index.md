@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4542
+file count: 4543
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -2713,8 +2713,8 @@ file count: 4542
 * [My Son and I Are Stranded In The DesertAnd The Howling Wont Stop](out/My_Son_and_I_Are_Stranded_In_The_DesertAnd_The_Howling_Wont_Stop.md)
 * [My son asked me to check the closet for monsters I didnt need to](out/My_son_asked_me_to_check_the_closet_for_monsters_I_didnt_need_to.md)
 * [My son got a sock monkey for his birthday from my grandmother Im scared now because of what its done to him](out/My_son_got_a_sock_monkey_for_his_birthday_from_my_grandmother_Im_scared_now_because_of_what_its_done_to_him.md)
-* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
+* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life.md)
 * [My son has been gone for 2 weeks He recently came back home and I dont think this is my son Part 1](out/My_son_has_been_gone_for_2_weeks_He_recently_came_back_home_and_I_dont_think_this_is_my_son_Part_1.md)
 * [My son has been talking to a friend on his new phone and its scaring me](out/My_son_has_been_talking_to_a_friend_on_his_new_phone_and_its_scaring_me.md)
@@ -2901,6 +2901,7 @@ file count: 4542
 * [One particular playground always made me feel uneasy and I didnt have a clue why until years later](out/One_particular_playground_always_made_me_feel_uneasy_and_I_didnt_have_a_clue_why_until_years_later.md)
 * [One single mistake with my coworker might have us both dead soon](out/One_single_mistake_with_my_coworker_might_have_us_both_dead_soon.md)
 * [One summer at the beach I met a girl I liked who invited me to meet her on the beach one night Something was VERY strange about her though and Ive never been the same since](out/One_summer_at_the_beach_I_met_a_girl_I_liked_who_invited_me_to_meet_her_on_the_beach_one_night_Something_was_VERY_strange_about_her_though_and_Ive_never_been_the_same_since.md)
+* [One time I watched a cross turn upside down](out/One_time_I_watched_a_cross_turn_upside_down.md)
 * [OneWay Ticket to Hell Please Part 12](out/OneWay_Ticket_to_Hell_Please_Part_12.md)
 * [Only the monkey man visited me after my wifes death](out/Only_the_monkey_man_visited_me_after_my_wifes_death.md)
 * [Open But Abandoned](out/Open_But_Abandoned.md)
@@ -3090,8 +3091,8 @@ file count: 4542
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
+* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
