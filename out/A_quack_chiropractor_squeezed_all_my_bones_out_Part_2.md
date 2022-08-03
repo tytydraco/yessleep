@@ -38,6 +38,8 @@ Dr. Hon shook his head in bepuzzlement. Under his breath I heard him say, “Thi
 
 My eyes had an exceptional amount of mobility, unbound as they were with no skull. I looked all around the unassuming office. There was his small desk in the corner opposite Dr. Hon and the wing chun stand. A little computer, a sink, a box of latex gloves, and a half full bottle of hand sanitizer were the only things on it. On the screen, barely visible from my angle, was what appeared to be a Google image search of tall girls in bikinis. Above the desk and continuing along the walls were either medical posters showing diagrams of different bones and their locations, or pictures of mangled skeletons and massage techniques. Lines of relief emanated in all sorts of different colors that surely told a tale for anyone with the knowledge to interpret them. None of the posters showed wing chun or any sort of martial arts, though. The door was still closed and probably still locked. I imagined with her ear pressed up against the door listening and her firm boobs slightly smashed against it. I wished I was still sitting in that uncomfortable chair with fresh farts soaked in it.
 
+I couldn't move, not really, but my muscles still twitched and clenched when I wanted them to. My friend had been able to grab me, though weakly. It was weird having no bones for these confused muscles to work against.
+
 Dr. Hon suddenly slapped his forearms, clapped, and rubbed his hands together with hot, loud friction. He took my hanging bones off the stand and for a second, I was relieved, but he wrapped his arms around the shoulder area and suplexed it backwards. My bones crashed down into the hospital-style tile floor and I felt that impact in a painful, but second-hand way. He didn’t stop with just one suplex though, he kept body slamming my defenseless bones. He reigned down power bombs, piledrivers, tombstones, stunners, and DDT’s with all the flair and bombasticness of a real pro. My friend cheered on every slam.
 
 What shred of pleasure laid beneath the pain was gone. These chiropractic maneuvers were pure punishment. I couldn’t protest, though. My contacting muscles forbid me to even eek out a gurgled plea. Instead, I convulsed and quivered like electrified jelly.
@@ -60,7 +62,7 @@ The door opened in an instant, confirming my suspicion that the receptionist was
 
 That wasn’t how I lived my life at all. I wasn’t depressed and I certainly wasn’t morally reprehensible. Hell, I had agreed to drive my good friend to a chiropractic appointment on a moment’s notice on a perfect weather day, and that was after he did something as stupid as blendering hot soup into his eyeballs. Now I was hearing that not only was my skeleton bad, which, okay, I didn't know anything about bones or the art of chiropraction, and not only was he not going to put it back in regardless of its condition, but he was going to “toss” it? Like in the garbage or what? I was going to have no skeleton after he was done with the appointment? He couldn’t just do that.
 
-I flopped and shifted trying to make my voice heard. I tried to demand my bones be smushed back in, but I did not have proper control of my muscles all jellied up like that. My friend had been through it so many times, he sat as a meat puddle and seemed to enjoy some modicum of control. My “friend” who brought me here and was watching as a man stole my skeleton under the guise of some bogus medical practice. Didn’t he have anything to say in my defense? No.
+I managed to lift a few fingers in protest, but to little effect. I flopped and shifted trying to make my voice heard. I tried to demand my bones be smushed back in, but I did not have proper control of my muscles all jellied up like that. My friend had been through it so many times, he sat as a meat puddle and seemed to enjoy some modicum of control. My “friend” who brought me here and was watching as a man stole my skeleton under the guise of some bogus medical practice. Didn’t he have anything to say in my defense? No.
 
 “You’re right, Dr. Hon. He’s, indeed, my most depressed friend. There’s really no argument to be had otherwise. Ya know, I always thought it was in the joints with him. I’ve been trying to get him over to you for years.”
 
@@ -76,7 +78,7 @@ I was seething, but helpless. I was going to have to convince my friend, that ba
 
 Shirtless Dr. Hon awkwardly flicked his leg up and caught the handle of the chute hatch with his foot, pulling it open with a herky-jerky twist. My friend shoved my skeleton the rest of the way in and it was gone. A tingling sensation flooded over my whole body.
 
-I started to feel dizzy. I whispered upward to the receptionist, my busty carriage, “Can I get my bones back?” She shushed me and shook her head with a stern “No”.
+I started to feel dizzy. Finding control over my limp gums, I whispered upward to the receptionist, my busty carriage, “Can I get my bones back?” She shushed me and shook her head with a stern “No”.
 
 Dr. Hon and my friend came back laughing with each other from some joke I must have missed. The chiropractor’s arm was around my friend’s shoulder and his burly hand was massaging away almost instinctively.
 
@@ -97,6 +99,8 @@ Dr. Hon propped his elbow on her breasts and kept talking to me.
 But I didn’t misplace my bones. They were forcibly removed from my body and then incinerated. The tingling in my flesh turned into popping and crackling like cooking bacon. It was a weird, weird pain that made me shudder constantly. I probably looked like bacon crackling too. I felt my skeleton being reduced to ash slowly and inevitably.
 
 He continued, “We’re just trying to help people. There are a lot of bad bones out there, and we’re discovering more and more every day. You can’t live in modern society with bad bones, and you can’t live in modern society with no bones either! So, what do you do? For a modest monthly service fee, we’ll make sure your wobbly muscles and skin stay in good condition and ready to receive new bones when they become available. I don’t wanna hear any protest about it. You can’t very well just go home and be expected to take care of yourself, can you? What kind of doctor would I be if I left a patient to fend for themselves in your condition? We’ll get you to the ‘Meat Retreat’ and don’t worry, you’ll automatically be put on the ‘new full skeleton’ waitlist.” He cracked his neck.
+
+These people just lived without bones? They just flopped around or what? I felt uncomfortable, weird, and gross. I couldn't imagine a life just splatting around with other unfortunate suckers like me.
 
 “*Silly*Anne? Make sure our patient here is on the waitlist at the ‘Meat Retreat’, will ya?” He said with a wink.
 
@@ -132,9 +136,11 @@ There I sat alone in the dim office and waited. And waited, and waited.
 
 And in fact, I'm still waiting. From what I can tell, the weekend has come and gone and still no Dr. Hon or his busty assistant. I've seen people walk by the building on their way to some take out place next door. I see tons of people come and go, but no one looks in here, in this dark, and apparently abandoned, chiropractor's office.
 
-I'm feeling it too, that lack of bones. My head feels mushy. My memories feel mushy. I can't even remember the address of this place. I bet Dr. Hon didn't even call my work and tell them I can't go in today. He don't think he even ask where I worked... I just want some sunlight. I want some food. I want to talk to anyone.
+After the first day, I was able to undulate with some modicum of control. I slithered, however undignified, over to the computer JillieAnne had left open. After another day, I had my fingers plopping along the keys like drunken slugs. It's slow, arduous work to type this all out, but the poet in me needs to see it done right. I like to think myself a scholarly type guy, remember?
 
-That Meat Retreat is actually starting to sound pretty nice.
+I'm feeling it though, that lack of bones. My head feels mushy. My memories feel mushy. I can't even remember the address of this place. I bet Dr. Hon didn't even call my work and tell them I can't go in today. He don't think he even ask where I worked... I just want some sunlight. I want some food. I want to talk to anyone.
+
+That Meat Retreat is actually starting to sound pretty nice. I'm trying squirm for the door after this.
 
 \---
 
