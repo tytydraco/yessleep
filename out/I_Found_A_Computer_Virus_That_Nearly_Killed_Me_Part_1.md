@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/wfg9kg/i_found_a_computer_virus_that_nearly_killed_me/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/wfhlqz/i_found_a_computer_virus_that_nearly_killed_me/)
 
 DIELINE.EX
 

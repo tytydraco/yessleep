@@ -2,7 +2,7 @@
 
 X
 
-[Part III](https://www.reddit.com/r/nosleep/comments/wdmum7/my_grandmothers_doll_collection_part_3/)
+[Part III](https://www.reddit.com/r/nosleep/comments/wfhrbo/my_grandmothers_doll_collection_part_3/)
 
 “They say your grandma’s a witch,” Gil said.
 
@@ -204,4 +204,4 @@ Perhaps a bit smugly, I said “But I wasn’t in the basement.”
 
 She grabbed me by my wrist, and casting one more frenzied gaze around at the street, hauled me in the house.
 
-[Part III](https://www.reddit.com/r/nosleep/comments/wdmum7/my_grandmothers_doll_collection_part_3/)
+[Part III](https://www.reddit.com/r/nosleep/comments/wfhrbo/my_grandmothers_doll_collection_part_3/)
