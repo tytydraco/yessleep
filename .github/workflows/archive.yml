@@ -16,7 +16,7 @@ jobs:
         run: echo "::set-output name=date::$(date +'%Y-%m-%d')"
         
       - name: Zip
-        run: zip -r9 archive-${{ steps.date.outputs.date }}.zip out/*
+        run: cd out && zip -r9 "../archive-${{ steps.date.outputs.date }}.zip" .
 
       - name: Upload
         uses: marvinpinto/action-automatic-releases@latest
