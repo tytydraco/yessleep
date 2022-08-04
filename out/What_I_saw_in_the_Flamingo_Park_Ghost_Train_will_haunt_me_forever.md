@@ -18,7 +18,7 @@ When I say the cart moved slowly, I mean slowly! Slower than any other Ghost Tra
 
 After a short while, my cart made its way into the second room; this room was slightly more graphic. Directly in front of my cart was a realistic looking prisoner in an electric chair. He convulsed and threw himself back and forth whilst making muffled pleading noises. This was unsettling, but still a good effort for a small, low-budget ghost train.
 
-The third room is where things started to get … weird. In this room, a clown pressed itself up against a metal gate whilst an animatronic lifted its head out of the socket; what was weird, were the random dolls scattered all over the floor.
+The third room was where things started to get … weird. In this room, a clown pressed itself up against a metal gate whilst an animatronic lifted its head out of the socket; what was weird, were the random dolls scattered all over the floor.
 
 The fourth room was the one I will never forget, purely because it was the room I got stuck in. The ride itself was pretty dark, so I was tempted to pull out my phone for some light, but that’s when I heard it. I don’t know if it was just my mind playing tricks on me, but I could hear a faint whimpering sound. It sounded like crying, and I assumed it was a passenger in another cart either in front or behind me. Apart from the distant whimpering, the room was deathly quiet.
 
@@ -34,7 +34,7 @@ I looked back up and gasped as her face was now a mere inch away from my own. I 
 
 The next thing I knew, I was outside with paramedics above me. Ride workers, parents, and children all stood around me passing strange looks at each other. I felt slightly embarrassed, but after what I had just seen, I couldn’t do anything. Apparently, the cart I was in had derailed, and the man operating the ride heard me shouting; he came in to find me curled up on the floor next to my cart.
 
-\-
+-
 
 I was rushed to a hospital later on that day. After a few hours, they didn’t find any issues regarding my physical health, so needless to say, I was sent home.
 
