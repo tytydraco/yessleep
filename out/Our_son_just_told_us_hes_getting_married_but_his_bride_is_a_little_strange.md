@@ -10,7 +10,7 @@ Lindsay was our son Benjamin’s latest. The two were inseparable and he insiste
 
 Benjamin scoffed, setting the flutes down on the coffee table and shaking his head, “Nah, they gave that to someone else. Fucking Alistair, of all people. Still, doesn't matter, Lindsay and I have some far more exciting news!”
 
-I could almost feel my wife’s anxiety permeating the room. From the corner of my eye, I could see blood trickling from the scab on her wrist, and snatched her hand away, gripping it firmly in mine. My son and Lindsay seemed oblivious to the interaction. 
+I could almost feel my wife’s anxiety permeating the room. From the corner of my eye, I could see blood trickling from the scab on her wrist, and snatched her hand away, gripping it firmly in mine. My son and Lindsay seemed oblivious to the interaction.
 
 “So,” Benjamin began, pouring out the champagne, “Mother, father, Lindsay and I have been together for more than a year now, and…”
 
@@ -22,7 +22,7 @@ Droplets of sweat began forming on my upper lip.
 
 “...So, we have decided to tie the knot!”
 
-My blood ran cold. My wife had gone pale, and I instantly knew she felt similar. I could tell by Benjamin’s expression that he had expected applause and squeals of delight, but the room was silent, and after a few moments, his brow furrowed. 
+My blood ran cold. My wife had gone pale, and I instantly knew she felt similar. I could tell by Benjamin’s expression that he had expected applause and squeals of delight, but the room was silent, and after a few moments, his brow furrowed.
 
 “What?” he snapped, “What are you looking at me like that for?”
 
@@ -34,15 +34,15 @@ I looked over at Lindsay who was perched on the edge of the couch, her legs cros
 
 “Ben, we think it’s best if you see a… a professional,” my wife interjected, “You’re such a handsome young man, there are plenty of women out there for you!”
 
-There was a sharp whistling sound as Benjamin drew breath, and I felt my wife shrinking beside me. 
+There was a sharp whistling sound as Benjamin drew breath, and I felt my wife shrinking beside me.
 
 “Lindsay *is* the perfect woman for me! Look at her, for God’s sake! Show me a girl more perfect than her. She has perfect skin, perfect hair, and a body to die for! Plus…” he exhaled, wiping the sweat away from his forehead, “I have to marry her. We’re having a baby.”
 
-My wife and I stared at him, dumbfounded. My brain seemed to be at a loss for how to react. Sweat was pooling under my arms, and a slow chill was creeping up my spine. I wondered if our son had finally lost it. I wondered if this was one of those times where it was acceptable to wrestle a person to the ground and call the police. 
+My wife and I stared at him, dumbfounded. My brain seemed to be at a loss for how to react. Sweat was pooling under my arms, and a slow chill was creeping up my spine. I wondered if our son had finally lost it. I wondered if this was one of those times where it was acceptable to wrestle a person to the ground and call the police.
 
 “A-a b-baby?” my wife whispered, a hand over her mouth, “B-but how…”
 
-I knew I had to intervene. I got to my feet and placed my hands on Benjamin’s shoulders. 
+I knew I had to intervene. I got to my feet and placed my hands on Benjamin’s shoulders.
 
 “Son, Lindsay is not a real person. She is a sex doll. She cannot get pregnant or bear children, you must understand that! Now, sit down right here, let’s make a cup of tea so we can all calm down and talk about this.”
 
@@ -54,7 +54,7 @@ He walked around the couch and propped her up by her arms, “And if she isn’t
 
 Benjamin pulled up Lindsay’s flowy dress, exposing her lower body, clad in nothing but a pair of lace panties. I recoiled at the sight, but there was something else. A deformed bump in her stomach, far too large for her small frame. It extended towards her chest, bulging awkwardly in various places, as though it had been stuffed.
 
-My wife jumped up from the couch and shrieked, while I stood and stared at our son’s exhibition, my skin prickling, “W-what is that?” 
+My wife jumped up from the couch and shrieked, while I stood and stared at our son’s exhibition, my skin prickling, “W-what is that?”
 
 “It’s our baby,” Benjamin rolled his eyes defiantly, “Are you blind or something?”
 
@@ -68,4 +68,4 @@ I stared at him, “You a-adopted? But… w-where’s the child?”
 
 Benjamin shot me a mournful look.
 
-[“Lindsay insisted on carrying the pregnancy to term.”](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2Fgenuinelygrim)
+“Lindsay insisted on carrying the pregnancy to term.”
