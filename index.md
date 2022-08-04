@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4602
+file count: 4604
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1579,6 +1579,7 @@ file count: 4602
 * [I think my dogs previous owner wants him back They arent human](out/I_think_my_dogs_previous_owner_wants_him_back_They_arent_human.md)
 * [I think my downstairs neighbor has a key to my apartment](out/I_think_my_downstairs_neighbor_has_a_key_to_my_apartment.md)
 * [I think my ex is trying to kill me](out/I_think_my_ex_is_trying_to_kill_me.md)
+* [I Think My Family Is Cursed](out/I_Think_My_Family_Is_Cursed.md)
 * [I think my family is right to hate me](out/I_think_my_family_is_right_to_hate_me.md)
 * [I think my familys cursed](out/I_think_my_familys_cursed.md)
 * [I think my girlfriend is cheating on me](out/I_think_my_girlfriend_is_cheating_on_me.md)
@@ -2406,6 +2407,7 @@ file count: 4602
 * [My Daughter has Amnesia People keep Dying Part 4](out/My_Daughter_has_Amnesia_People_keep_Dying_Part_4.md)
 * [My daughter is a serial killer I just found out she may be something much worse](out/My_daughter_is_a_serial_killer_I_just_found_out_she_may_be_something_much_worse.md)
 * [My daughter is not here and I must play a game](out/My_daughter_is_not_here_and_I_must_play_a_game.md)
+* [My daughter is obsessed with a creepy show called Patti Pepperonis Playhouse](out/My_daughter_is_obsessed_with_a_creepy_show_called_Patti_Pepperonis_Playhouse.md)
 * [My Daughter keeps playing with her non existent friend](out/My_Daughter_keeps_playing_with_her_non_existent_friend.md)
 * [My daughter was attacked on FaceTime again](out/My_daughter_was_attacked_on_FaceTime_again.md)
 * [My daughter was attacked on FaceTime Part 2](out/My_daughter_was_attacked_on_FaceTime_Part_2.md)
@@ -2615,8 +2617,8 @@ file count: 4602
 * [My Husbands Last Visit](out/My_Husbands_Last_Visit.md)
 * [My Idiot Mobster Husband Killed The Wrong Guy Now Our Whole Family Is Paying The Price](out/My_Idiot_Mobster_Husband_Killed_The_Wrong_Guy_Now_Our_Whole_Family_Is_Paying_The_Price.md)
 * [My idiot roommate didnt pay the power bill](out/My_idiot_roommate_didnt_pay_the_power_bill.md)
-* [My Imaginary Friend Timmy](out/My_Imaginary_Friend_Timmy.md)
 * [My imaginary friend Timmy](out/My_imaginary_friend_Timmy.md)
+* [My Imaginary Friend Timmy](out/My_Imaginary_Friend_Timmy.md)
 * [My Imaginary Friend](out/My_Imaginary_Friend.md)
 * [My internet posts are in a diffrent universe](out/My_internet_posts_are_in_a_diffrent_universe.md)
 * [My job is watching a woman trapped in a room Part Two](out/My_job_is_watching_a_woman_trapped_in_a_room_Part_Two.md)
@@ -3134,8 +3136,8 @@ file count: 4602
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
+* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
@@ -3811,8 +3813,8 @@ file count: 4602
 * [The old man](out/The_old_man.md)
 * [The Old Schoolhouses Curse](out/The_Old_Schoolhouses_Curse.md)
 * [The one time I dont lock my door](out/The_one_time_I_dont_lock_my_door.md)
-* [The one who follows](out/The_one_who_follows.md)
 * [The One Who Follows](out/The_One_Who_Follows.md)
+* [The one who follows](out/The_one_who_follows.md)
 * [The only time I encountered sleep paralysis](out/The_only_time_I_encountered_sleep_paralysis.md)
 * [The only time I gave a one star Uber rating](out/The_only_time_I_gave_a_one_star_Uber_rating.md)
 * [The Only Warning About Pendle Hill Part 1](out/The_Only_Warning_About_Pendle_Hill_Part_1.md)
@@ -3990,8 +3992,8 @@ file count: 4602
 * [THE VALUE OF HER SKIN](out/THE_VALUE_OF_HER_SKIN.md)
 * [The Voice in My Head is My Friend](out/The_Voice_in_My_Head_is_My_Friend.md)
 * [The voices in my head told me more than I wanted to know](out/The_voices_in_my_head_told_me_more_than_I_wanted_to_know.md)
-* [The Voices](out/The_Voices.md)
 * [The voices](out/The_voices.md)
+* [The Voices](out/The_Voices.md)
 * [The Wait](out/The_Wait.md)
 * [the waiting woman](out/the_waiting_woman.md)
 * [The Wandering Woman](out/The_Wandering_Woman.md)
