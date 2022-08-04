@@ -2,6 +2,10 @@
 
 [Part II](https://www.reddit.com/r/nosleep/comments/wct9b6/my_grandmothers_doll_collection_part_2/)
 
+X
+
+[Final](https://www.reddit.com/r/nosleep/comments/wgdfbe/my_grandmothers_doll_collection_final/)
+
 Another   missing person’s case. This time, a family. Traveling by van. It’s  been  a week or so since I went snooping outside, and you’d better  believe I  got grilled by my friends about that night, and again by my  mother when  she saw my face.
 
 It  was getting  hard dealing with the questions and accusations of my  friends, but even  harder walking on eggshells around grandma and trying  to keep mom from  worrying. So, on yet another morning, I resigned  myself to suffer my  friends again—after all, Gil, at least, wasn’t so  bad.
@@ -153,3 +157,5 @@ the way my friends wouldn't even look at me....
 Gil.
 
 Even in the twilight, with the sun rapidly disappearing over the horizon, it was hard to miss the wild grin plastered all over his  face.
+
+[Final](https://www.reddit.com/r/nosleep/comments/wgdfbe/my_grandmothers_doll_collection_final/)
