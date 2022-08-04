@@ -35,12 +35,13 @@ These rules were absurd and got even weirder the more I read, yet I had a feelin
 
 10: (Please listen to this rule, it could save your life.)
 If you hear someone shout out 059, shout for Jericho.
+If you also see a man with a tattoo of the numbers 059 on his arm, also shout for Jericho.
 
-11: If you start seeing dead bodies everywhere and the world looking weird, do exactly as I say. Shout out a random word, then apologize exactly like this. "I am so sorry for shouting, please let me out." If the world doesn't go back to normal, you probably don't sound sincere enough to him. Keep apologizing.
+11: If you start seeing dead bodies everywhere and the world looking weird, follow these instructions exactly. Cover your eyes, hold your breath, and then sit on the ground with your legs crossed. If you hear laughing, ignore it and stay in this position. You should hear a bell ringing as an indicator you're back to our world.
 
 12: Get all campers in bed at 9:30.
 
-13: Lock the door to the cabin if you're not going to go outside. Be inside at around 10:45.
+13: Lock the door to the cabin if you're not going to go outside. Be inside at around 10:45. It is safe to go outside when the sun starts to rise.
 
 
 
