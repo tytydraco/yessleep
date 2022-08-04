@@ -66,6 +66,12 @@ Taking a tentative step over a rogue eyeball, I lifted what had once been Skinny
 
 “You know me,” I explained to the ostensibly empty room, “I always look on the bright side. He’ll be enough to fertilize the whole garden, and that keeps our guests coming back [year after year](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+--------
+
+[This fun house](https://redd.it/wfs8x1)
+
+----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
