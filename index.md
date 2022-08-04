@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4593
+file count: 4595
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -82,8 +82,8 @@ file count: 4593
 * [A Hysteric letter](out/A_Hysteric_letter.md)
 * [A kid shows up in the parking lot every time it rains](out/A_kid_shows_up_in_the_parking_lot_every_time_it_rains.md)
 * [A late night chat with an online AI bot](out/A_late_night_chat_with_an_online_AI_bot.md)
-* [A Letter from McLeans](out/A_Letter_from_McLeans.md)
 * [A Letter From McLeans](out/A_Letter_From_McLeans.md)
+* [A Letter from McLeans](out/A_Letter_from_McLeans.md)
 * [A lions roar](out/A_lions_roar.md)
 * [A Little Off the Top Part 1](out/A_Little_Off_the_Top_Part_1.md)
 * [A little sound and a little light will keep it away](out/A_little_sound_and_a_little_light_will_keep_it_away.md)
@@ -685,6 +685,7 @@ file count: 4593
 * [Hairy and his twitching fingers](out/Hairy_and_his_twitching_fingers.md)
 * [Half of my research team has disappeared in the woods](out/Half_of_my_research_team_has_disappeared_in_the_woods.md)
 * [Half way to Halloween and its got me thinking](out/Half_way_to_Halloween_and_its_got_me_thinking.md)
+* [Hallucinations upon waking and sleep issues](out/Hallucinations_upon_waking_and_sleep_issues.md)
 * [Hallway](out/Hallway.md)
 * [Handprints Have Been Following Me Everywhere I Go](out/Handprints_Have_Been_Following_Me_Everywhere_I_Go.md)
 * [Happy Birthday Dad](out/Happy_Birthday_Dad.md)
@@ -1599,8 +1600,8 @@ file count: 4593
 * [I Think The Clouds Are Trying To Tell Me Something Is Coming](out/I_Think_The_Clouds_Are_Trying_To_Tell_Me_Something_Is_Coming.md)
 * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
 * [I Think There is A Reason No Ones Heard of the Breaking Wheel Cartel](out/I_Think_There_is_A_Reason_No_Ones_Heard_of_the_Breaking_Wheel_Cartel.md)
-* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
+* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -2950,6 +2951,7 @@ file count: 4593
 * [Our Hotel Was A Crime Scene](out/Our_Hotel_Was_A_Crime_Scene.md)
 * [Our neighboring town is abandoned and I think whatever caused it is coming for us next](out/Our_neighboring_town_is_abandoned_and_I_think_whatever_caused_it_is_coming_for_us_next.md)
 * [Our Petty Revenge against a Toxic Supervisor did not go as planned](out/Our_Petty_Revenge_against_a_Toxic_Supervisor_did_not_go_as_planned.md)
+* [Our son just told us hes getting married but his bride is a little strange](out/Our_son_just_told_us_hes_getting_married_but_his_bride_is_a_little_strange.md)
 * [Our Swingset is a Gallows Now](out/Our_Swingset_is_a_Gallows_Now.md)
 * [Our town holds a dark ritual every May 16th Last night I fucked up the festivities](out/Our_town_holds_a_dark_ritual_every_May_16th_Last_night_I_fucked_up_the_festivities.md)
 * [Out The Window](out/Out_The_Window.md)
@@ -3415,8 +3417,8 @@ file count: 4593
 * [The Cabin in the Woods](out/The_Cabin_in_the_Woods.md)
 * [The Cabin Just Outside of Town](out/The_Cabin_Just_Outside_of_Town.md)
 * [The Call of Two Waterslides](out/The_Call_of_Two_Waterslides.md)
-* [The call](out/The_call.md)
 * [The Call](out/The_Call.md)
+* [The call](out/The_call.md)
 * [The calls](out/The_calls.md)
 * [The Cameras Are Always Watching](out/The_Cameras_Are_Always_Watching.md)
 * [The Cannibal Boss](out/The_Cannibal_Boss.md)
@@ -3984,8 +3986,8 @@ file count: 4593
 * [THE VALUE OF HER SKIN](out/THE_VALUE_OF_HER_SKIN.md)
 * [The Voice in My Head is My Friend](out/The_Voice_in_My_Head_is_My_Friend.md)
 * [The voices in my head told me more than I wanted to know](out/The_voices_in_my_head_told_me_more_than_I_wanted_to_know.md)
-* [The Voices](out/The_Voices.md)
 * [The voices](out/The_voices.md)
+* [The Voices](out/The_Voices.md)
 * [The Wait](out/The_Wait.md)
 * [the waiting woman](out/the_waiting_woman.md)
 * [The Wandering Woman](out/The_Wandering_Woman.md)
