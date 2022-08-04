@@ -121,3 +121,5 @@ I can hear my housemate cooking dinner right now. He's a night owl. It smells go
 [Part 2](https://www.reddit.com/r/nosleep/comments/w5rvp1/not_every_stranger_is_a_possible_friend_part_2/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/wausu9/not_every_stranger_is_a_possible_friend_part_3/)
+
+[Finale](https://www.reddit.com/r/nosleep/comments/wfo3oo/not_every_stranger_is_a_possible_friend_part_4/)

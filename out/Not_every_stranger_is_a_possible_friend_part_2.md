@@ -171,3 +171,5 @@ I'm sitting on my couch typing this and trying to stay in the present. I spent t
 I saw Carlos' mother this afternoon. She's staying in the apartment alone for now. I guess the teeth in the closet don't bother her all that much. She says her favorite thing about being back is getting to use a real bathroom again. Sometimes it's the simple [things](https://www.reddit.com/user/_Cu_Chulainn17).
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/wausu9/not_every_stranger_is_a_possible_friend_part_3/)
+
+[Finale](https://www.reddit.com/r/nosleep/comments/wfo3oo/not_every_stranger_is_a_possible_friend_part_4/)

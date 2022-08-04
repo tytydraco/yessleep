@@ -1,0 +1,71 @@
+I'm shaking, I have no idea what the fuck that thing was. The police officers are trying to reassure me I'm safe in between asking me questions about what happened and what I saw, but I can't answer, I've never seen anything like it before. That's why I'm writing this down, I can't bear to utter the details out loud, but maybe I can write it out.
+
+We were taking a girls trip, Beth, Izzy, Caroline, and me. It was supposed to be a nice secluded week in the beautiful woods of Montana. We all lived in New York City, so its been awhile since we experienced the beauties of nature, and I've heard that Montana is absolutely gorgeous in July. We rented a cabin in a pocket of woods a little ways from Bozeman. Reception there was shitty and our phones didn't event connect half the time but we saw it as a blessing, a chance to get away from social media and bond as friends. As for neighbors, we really didn't have any. The closest resemblance of civilization was a gas station 20 miles away from the cabin, but we were all wanting some peace and quiet, something you don't get a whole lot of in the Big Apple. The cabin itself was gorgeous, it was a single floor with two bedrooms, with two beds each. The bedrooms were in the back while a large living room lined the front, equipped with a couch, a chair, a book shelf containing reading materials and some board games, and a TV, only hooked up to a DVD player however. to the left of the living room was a cozy kitchen, equipped with all the cooking necessities. Besides that, we had a front porch with a few rocking chairs scattered around it. The only entrance to the cabin was the front door, which made security easy, all we had to do was lock one door.
+
+One night, after going on a day hike to a nearby waterfall, we decided to have a game night, with copious amounts of wine. The game of choice was monopoly, a classic that we all loved. We were having a good time, laughing about old memories while also shit talking about some unsavory individuals back home. It was going great, Izzy went to go fetch some more wine from the kitchen and while looking out a window, she gasped.
+
+"Oh my god, I think I saw a bear out there!" she yelled with excitement. Izzy's biggest goal this week was to see a bear, despite them being incredibly deadly, she always found them to be adorable.
+
+"Can someone please come with me? This might be my only shot to get a picture." Izzy exclaimed. Her question was met with silence. We weren't interested in prancing around the dark forest at night in the cold. Despite it being July, the nights still got chilly.
+
+"Fine, I'll just go by myself." she said while grabbing a flashlight, her phone, and our only can of bear spray. Izzy was always a stubborn individual.
+
+"Ok, I'll come with, but if it starts chasing us, I'm tripping you and running." said Caroline. She was a caring person. Caroline thought of herself as the mom of the group, always looking out for everyone.
+
+It was a stupid idea to begin with, but we were all wine drunk at this point and any sense of danger was immediately wiped out by the fact we had bear spray, which was easily ten times more powerful then pepper spray. If the bear got to close, they would spray it and run, simple. They headed out the front door and I could hear Izzy giggling with joy as they went on the hunt.
+
+Beth and I were in a heated argument, I landed on her boardwalk, and would go bankrupt if I payed the rent due to her. As I was begging her to allow me to pay in increments, that's when we heard it, An ear piercing scream. The noise was enough to snap Beth and I sober as we looked at each other, Beth's face turned pale. I was about to get up to check the window, and that's when Izzy burst through the door, frantically slamming and locking it. Her breathing was rapid, her body was shaking, but most notably, her chest, neck, face, and arms were covered in red.
+
+"OH MY GOD!" Beth screamed before jumping back, tears slowly started falling from her eyes.
+
+"Where's Caroline?" I asked. Izzy didn't respond. She just stared blankly. I slapped her, hard, across the face before repeating the question, loudly and with my voice cracking. I had to hold back the tears, I couldn't let myself break.
+
+"It killed her." she mumbled before slinking down to the ground.
+
+"What is 'it'?" Beth asked through streaming tears
+
+"I-I- I don't know." Izzy said. "It was tall... and thin. It looked human, but it wasn't." She started to break down, "the smile... it smiled at us, then it grabbed Caroline by her hair, and just ri-rip-ripped out her thro-". She couldn't finish her sentence before bursting out into tears.
+
+I wanted to deny it, but blood was all over Izzy. As I was trying to justify that it must have been the bear, I heard something smack against the cabin wall before falling onto the front porch with a thud, it was something heavy. I peeled the curtains on one of the windows. Before me laid Caroline's lifeless body, her throat ripped out in a brutal manner,, bite marks covered her face and chest, her limbs were twisted and contorted in bizarre ways, but her eyes haunted me the most, once filled with joy and curiosity, now looked dead and pale as she lied on the wood.
+
+I wanted to scream, but I swallowed it. One of us had to keep our sanity, once the mind slips, death is imminent. As I shut the curtain, Beth asked what it was while Izzy was too far gone in her mind to notice.
+
+"It's Caroline, she's dead." I said in a toneless voice. Beth's face was horrified, she went to look out the window but I stopped her, Izzy was mentally destroyed, I didn't need Beth to join her.
+
+"What do we do?" Beth asked. She had stopped sobbing by this point, but was still shaking intensely.
+
+I told Beth to see if she could get a signal on her phone, anywhere at all in the cabin. She proceeded to grab her phone, hold it above her head, and walk around the cabin, I prayed it would work. As I was looking for potential weapons in the kitchen, Izzy gasped, she had gotten up from her fetal position and was looking out the window.
+
+"Its here... oh god! its right there!" she said, slowly beginning to panic.
+
+I took a glimpse out the kitchen window on the same wall and saw it. There stood something whose silhouette was illuminated by the porch light, about 25 yards out. It was something straight out of a nightmare. It was tall, very tall, at least 10 feet. It was lanky, its legs were skinny like sticks, and as long as a dining room table, same for its arms. Before I could observe it more, it started walking, straight towards the cabin.
+
+I yelled at Beth to hide somewhere while grabbing Izzy to pull her back to one of the bedrooms, she wouldn't budge. She was frozen. I tried yelling, I tried slapping, but she couldn't break out of the hypnosis that fear induced her with. I turned toward the window and I saw that the figure had almost made its way to the porch, and that's when I saw its face. Its skin was gray and wrinkly and it clung tightly to its skeleton. You could see every single bone in its body. Despite this, it was incredibly strong, being able to throw a human body from an impossible distance. its eyes were as black as night, looking like endless voids in its skull. It had slits for a nose that seemed to pulsate rhythmically. The worst was its smile. It traveled from one end of the skull to the other, showing a row of razor sharp teeth. Their tint was a mix of yellow and brown, but I also caught a glimpse of crimson red, stained on some. I also saw its hands, they were anorexic looking, with its putrid gray flesh wrapped around the bones. But what startled me the most was the long nails that extended from its fingers, taking the form of sharp claws.
+
+At this point, Izzy still wasn't moving, with pain in my chest, and tears starting to form in my eyes, I grabbed the bear spray out of her jacket pocket, and ran back to one of the bedrooms, leaving her to her fate. I still wonder if I could have done more for her, or if she was just too far gone at this point. As I shut the door to a bedroom, I heard the front door burst off of its hingers, and Izzy starting to scream.
+
+"Please! Please no!" she yelled through grunts and shrieks, it was clear she was in pain.
+
+Suddenly I heard a burst, similar to what you hear when a watermelon explodes. Izzy's screams were no more afterwards. I ran straight for the walk in closet in the bedroom and buried myself behind Izzy's hanged jackets and shirts... they smelled like her. For a second, I was brought back to the happiness we all experienced on this trip, before this nightmare stared. I was brought back to reality when I heard the creaking of the wooden floorboards as the creature begin to walk around the cabin. Its methodical creaking slowly made its way outside the door. I then realized I left the closet door a tiny bit open while frantically trying to hide. I cursed silently before I heard the other bedroom door open. I took a small sigh of relief, then I realized Beth was nowhere to be found in this bedroom.
+
+She didn't even say anything. Beth just started screaming wildly, it was the most horrific sound I've heard in my life, it was a scream of pure fear, from someone who knew they were about to meet a grizzly end. I understand why Izzy was so shell-shocked now. Suddenly, Beth crashed in through the wall of the bedroom, smacking her head on a metal bedframe before laying on the ground, blood gushing from a fresh head wound, a sizeable hole was left in the wooden wall. The door to the bedroom opened, and I saw the creature come into sight through the assortment of clothes and the tiny crevice the closet door left open. Its neck was bent to one side as its tall figure couldn't stand up straight in the small cabin. It's bony and gaunt fingers reached down and grabbed Beth by the throat before slowly lifting her up to meet its face.
+
+Beth managed to utter a yelp before the creature violently started throwing her around the room. I covered my mouth as I saw sweet and innocent Beth being tossed around like a doll. With each time she hit the wall or floor, her body became more and more contorted. Bones began to protrude from her limps, parts of her ribcage stuck out of her chest. Teeth flew wildly. Blood was leaking everywhere, I didn't know there could be that much in the human body. After 10 straight seconds of this violent act, Beth lied on the ground, barely clinging to life. She breathed weakly through the puddle of crimson leaking from her mouth. The creature, more red than grey now, gave another eerie smile, before taking its foot and smashing it down on her head, ending the pain and suffering that Beth never deserved.
+
+It was just me. I was all that was left. The thought circulated my mind as the creature began prowling the room. It flipped the beds over with great strength, once it realized I wasn't under them, it turned to the closet door. My heart was beating wildly, it felt like it was staring right at me, like it knew exactly where its last prey was. It slowly made its way across the room, making a sickening sound as it stepped on Beth's corpse, crushing even more bones as its immense weight shifted down on Beth's chest. It grabbed onto the closet doors, and flung them opened, before bending over to stick its disgusting head in. When those pitch black eyes met mine, I pointed the can of bear spray right at it, and held down on the trigger until the can was empty. The creature jumped back, making a screeching noise the likes of which I have never heard. It began to rub its face with its skeletal hands, before darting out of the cabin, running off into the night. The noises it made became more and more faint, and then I heard nothing. Since the spray was used in an enclosed space, I also received its effects. I was coughing up bile and spit, my eyes were watery to a point where I was nearly blind, I could hardly breath. Maybe it was for the best, I didn't have to fully take in the gore which this cabin was now covered with.
+
+"Hello, are you still there?" said a voice that I faintly heard in between my fits of coughing.
+
+I wandered into the neighboring bedroom and notices a glowing screen on the ground through my blurred vision, Beth had managed to call the authorities before the creature grabbed her. I picked the phone up and put it next to my ear, trying to limit my coughing so that I could hear what the voice was saying.
+
+"Authorities and a medical team have been dispatched to your location. They should be there in about 30 minutes due to the nature of your location."
+
+"Thank you." I repeated over and over again before starting to sob. The realization had hit, the adrenaline was gone. My friends were dead, and they died violently. No longer did I have to focus on surviving, the only thing I could focus on now was that I was the only one left alive. I did not feel relieved or any sense of happiness, all I felt was guilt and the crushing sensation of loneliness. The operator tried to assure me that everything was okay as I continued to sob, what else could he have done?
+
+When the authorities arrived, they covered my eyes as they led me out of the cabin. I heard gasps, gagging, and grunts as I exited. One cop whispered to his partner that it was the most hellish thing he ever say, another asked what could have possibly done this. I couldn't answer that question, I couldn't even begin to comprehend what had terrorized me tonight.
+
+I'm going to hand in this report to the authorities at the station. I know they most likely won't believe me and will assume it was some crazed mountain man who happened upon our cabin, but I know what I saw. And I know that I will never sleep well again knowing that creature is still loose out there.
+
+I don't know if I can ever feel happiness again after this incident, or even feel normal. I think the guilt is going to eat me up forever. Why did I have to survive while my friends got murdered like dogs? I'll consider myself lucky if I don't put the barrel of a gun in my mouth by the end of the year.
+
+As for a message of some sorts, just stay out of the fucking woods.
