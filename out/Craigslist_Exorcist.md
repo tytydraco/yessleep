@@ -200,7 +200,7 @@ He broke free of his ropes. My heart dropped into my stomach.
 
 &#x200B;
 
-We looked at Dion.
+We looked at Herbert.
 
 &#x200B;
 

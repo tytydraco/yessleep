@@ -245,3 +245,7 @@ I don't say anything for a moment. All I can do is look at the creature. Look at
 "Something is standing out in my backyard."
 
 I start to hear my radio crackle seconds after saying that.
+
+&#x200B;
+
+[Read the continuation here](https://www.reddit.com/r/nosleep/comments/wgel7m/im_a_police_officer_last_week_we_kept_getting_the/)

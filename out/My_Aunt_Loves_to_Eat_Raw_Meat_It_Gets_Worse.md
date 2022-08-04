@@ -100,7 +100,7 @@ No relatives visit her, but I do, and she’s being herself after all. But her a
 Quietly shaken, I leave the house with tears on my face. I haven't  seen her after that, though I do worry for her. It isn't until a bad rainstorm hits the area months later do I see her again.
 
 
-It turns out the rain had flooded my aunt’s house. By this point, I want to give my aunt another chance despite what happened. My parents don't know. I can't bring myself to tell them. The idea is I don’t want to abandon my aunt after some incidents. She's gone through enough ridicule and shunning already. After some convincing, mom and dad agree. It shouldn't be forever. And my aunt takes the move excitedly, bringing some of her raw meat with her, much to their chagrin. What happens now shouldn’t be bad, right?
+It turns out the rain has flooded my aunt’s house. By this point, I want to give my aunt another chance despite what happened. My parents don't know. I can't bring myself to tell them. The idea is I don’t want to abandon my aunt after some incidents. She's gone through enough ridicule and shunning already. After some convincing, mom and dad agree. It shouldn't be forever. And my aunt takes the move excitedly, bringing some of her raw meat with her, much to their chagrin. What happens now shouldn’t be bad, right?
 
  
 Everything got off to a start on the first day. Mom, dad and me all watched in amazement as my aunt wolfed the entire burger patties within an hour before we could cook them. And she took gardening with enthusiasm, as well as making fresh lemonade for everybody. It was a start at least.
