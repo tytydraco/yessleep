@@ -1,3 +1,5 @@
+**Part 1 ->** https://www.reddit.com/r/nosleep/comments/wcz0m1/the_longest_shitest_christmas_night/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+
 We spent the next few “weeks” at her house where we really bonded. She became like a big sister to me. As much as I loved her though, she still couldn’t replace my actual family who I missed very much. We did eventually run out of food though and we needed to go searching for more. Luckily, she had a jeep that was full of diesel. She had some extra in bottles if we needed to refill the tank. We drove around to different farms looking for some more but she already had them fully cleared out. We didn’t want to go too far from her house so we decided to change up the menu a bit and get fish instead. We drove to the nearest river to gather as many frozen fish as we could. I had never been fishing before but I knew it wasn’t usually that easy. But As we were gathering, we heard a vehicle pull up
 
 “Hide. Quickly” said Karolina. “Crazies”

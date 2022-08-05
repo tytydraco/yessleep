@@ -73,7 +73,7 @@ It takes me a minute to reply. "I--I can't eat this, Aunt [her name]." My throat
 "Eat it."
 
 
-I raise my brow. That doesn't sound positive at all. It's a dark command. Unlike the aunt I loved and knew.
+I raise my brow. That doesn't sound positive at all. It's a dark command. Unlike the aunt I love and know.
 
 
 "No thanks." I drum my fingers nervously as my aunt raises her fork at me. "I'm okay; fine as ever be."

@@ -1,3 +1,5 @@
+**Part 2 ->** https://www.reddit.com/r/nosleep/comments/wdvjmw/the_longest_shitest_christmas_night_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+
 The river was large and there was enough fish to keep us going for the equivalent of a year but we had to move on from Karolina’s house. I was stronger and combat ready. Not only did she teach me Karate but she also taught me how to drive and cook properly. We packed up our stuff and walked an hour to the nearest farm where we took their car. We drove through deserted town after deserted town. I kept thinking to myself “How did the naughty kids survive the entire night”. 
 
 “It was never this bad said Karolina”

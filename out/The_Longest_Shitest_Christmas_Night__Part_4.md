@@ -1,3 +1,5 @@
+**Part 3 ->** https://www.reddit.com/r/nosleep/comments/weql4u/the_longest_shitest_christmas_night_part_3/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+
 I didn’t want to be alone for the whole night so I decided I’d try to find where all the other naughty kids were by myself. “They surely left some clue as to where they are” I thought. I drove around different towns and villages in search for clues but I couldn’t find anything. I was getting tired so I pulled up away from the road, locked the doors and fell asleep. I had a nightmare about what I saw those 4 psychos do to that young boy the other day. Then I was awoken by the sound of a knocking on the window. I opened my eyes to two flashlights shining through the window. I finally got a look at who was holding them. 
 
 “Shit”
