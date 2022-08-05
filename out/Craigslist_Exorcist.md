@@ -556,11 +556,11 @@ He glanced around.
 
 &#x200B;
 
-“No problem,”
+“No problem.”
 
 &#x200B;
 
-“Right, now we have until tomorrow night to get this all straightened up, or else no demon or Pharaoh spirit or whatever is going to compare to what mom’ll do to  us.”
+“Right, now we have until tomorrow night to get this all straightened up, or else no demon or Pharaoh spirit or whatever is going to compare to what mom’ll do to us," Dion said.
 
 &#x200B;
 
