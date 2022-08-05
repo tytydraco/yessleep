@@ -1,0 +1,27 @@
+I love to make things with my hands. I love to crochet, knit, sew, write, and draw. But I never imagined that I could possibly, single-handedly, weave a web that is this hard to unravel, let alone escape from. It's like I was an unwitting black-widow, unaware of the havoc I could cause, but just planting my web anyway, with no ability to save those who wandered into it. 
+
+I've had many loves, but just one love of my life. Recently we began to try to expand our family, but I didn't realize the implication that might have on us due to the fact that I had no idea what I was. 
+
+When we first met he wanted nothing to do with me, and I wanted nothing to do with him. To be frank, from a first impression standpoint, I hated him. I was a bubbly person who could make small talk with anyone, even a brick wall, but from the moment he walked in and sat down I avoided him. I had this overwhelming feeling that I should not talk to him, should not look at him, should not engage whatsoever. I had never expected this feeling, nor had felt this before. I was genuinely scared to speak with him and instead made idle small talk with people who were sitting nearby, including his friends, one of whom I knew, and the other I only knew through rumors. He, however, was a mystery to me. 
+
+When I found out that he was friends with my manager, through the previous employee sitting right next to him, I couldn't believe it. But I trusted this manager completely, and he told me from that night on to go for it. He even pulled me aside and said, "Claire, I know you have a specific meet-cute in mind, but don't let him pass you by. He's good. His heart is good. Know that."
+
+That's all I needed to change my mind about him. I still didn't understand how he was good because by all accounts he still stood out to me as a player, but I understood and trusted my manager, and he insisted that this patron was one to flirt with. But the guy left before I got a chance.
+
+However, he didn't go far. After I closed up that night with the part-time manager looking over my work, I knew that I had to go catch up to them. They had all left the bar together, my regular manager included, and he was the person I was supposed to get to know. I could feel it in my gut, despite my initial distaste. I liked him, despite not interacting with him, and through overhearing his conversations I knew he was smart, I knew he worked in healthcare, which was my own personal goal, and I knew that he was just all around so, so handsome, and despite not leaving me a tip, he was a good person. I can't describe how, but I just felt it. I knew it. 
+
+I wasn't wrong. I went to the bar. We had babbling small talk about beer and Dolly Parton, and I drove him home. The entire drive I felt something off, but I couldn't describe it; the something wasn't with him. It was with \*me\* and I felt as though I may be bad for him. But I had no idea how bad.
+
+Honestly, the only reason he called me back after that night is because I left. I left him high and dry, no one night stand to speak of, understanding at the moment I absconded that I was not such an easy girl to win over as he originally thought I was. Later on he would tell me this is what he thought growth felt like; he watched Dumplin' on Netflix, which reminded him of our conversation about his love, Dolly Parton, and drew him into calling me. 
+
+The trick was, though, that I never called him. In the past I always did, but in this situation I had the overwhelming urge to not contact him in any way. So I didn't. I waited for him to knot himself into my web. 
+
+The moment he was there he couldn't escape. I didn't even know I was drawing him in. 
+
+Three years later we were so excited to start our family. He wanted four kids, and so did I. Honestly, I wanted at \*least\* four kids, but I didn't want to put any extra pressure on him. I was already almost 30 when we started, and he was almost 32. We had a modest home with a small but lovable backyard that enticed him to buy it because, at the time, he was considering the dog that I had and the babies we might have. We only planned to spend a couple years here. 
+
+However, life never goes to plan. A couple years after living here the dog has explored the yard and there was only one planned baby that came to fruition. Our problem was with the plan. I, like him, had every intention of building this family like a normal human. But I didn't know my secret. 
+
+The first night that we tried for that only baby was horrifying. Obviously we slept together that night, but what I didn't expect was my overwhelming inclination to \*eat\* him. To tear him limb from limb until nothing remained. Nothing at that point mattered more than my babies. Not him, not our future. I didn't care about him anymore; nothing mattered more than passing on our DNA to our kids. That night I tore him apart. Limb from limb. I still don't understand why, and as I write this I'm seeking help. I love him, but he's gone. I wanted a family, and I got a child out of this sadistic deal, but he won't be there as part of the baby's life. I don't understand what I am; I don't understand what overtook me. Can I get him help? Can I get help? What the actual fuck happened on the most romantic day of my life?
+
+Has anyone heard of this before? If you have, please help me. I've just lost the love of my life, but I gained my child. It just breaks my heart that he's not here to see her himself, eight legs and all.
