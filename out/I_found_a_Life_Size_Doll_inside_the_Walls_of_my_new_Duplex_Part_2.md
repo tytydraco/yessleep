@@ -1,5 +1,4 @@
 
-
 “[It’s gone](https://www.reddit.com/r/nosleep/comments/wdi77n/i_found_a_life_size_doll_inside_the_walls_of_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf).”
 
 Macie’s words echoed the thoughts in my head. Where the HELL had that fucking creepy doll gone. 
@@ -177,3 +176,5 @@ I woke Macie up immediately.
 “What the hell Trish.” 
 
 “We’re sleeping in the truck. No arguments.”
+
+[update](https://www.reddit.com/r/nosleep/comments/wf81kv/i_found_a_life_size_doll_inside_the_walls_of_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

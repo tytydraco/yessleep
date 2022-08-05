@@ -172,3 +172,5 @@ It wasn’t there anymore. It was gone.
 [330](https://www.reddit.com/r/KyleHarrisonwrites/?utm_source=share&utm_medium=ios_app)
 
 [ODD](https://www.reddit.com/r/Odd_directions/)
+
+[update](https://www.reddit.com/r/nosleep/comments/wecmqh/i_found_a_life_size_doll_inside_the_walls_of_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

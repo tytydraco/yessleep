@@ -147,3 +147,5 @@ It didn’t.
 
 A thump made my eyes bolt open and I stared at the doll again. 
 Slowly, Something unseen dragged Sarah into the hidden alcove behind the wall.
+
+[update](https://www.reddit.com/r/nosleep/comments/wgymtk/i_found_a_life_size_doll_inside_the_walls_of_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
