@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4618
+file count: 4619
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1027,6 +1027,7 @@ file count: 4618
 * [I Deliver Food To Monsters Part 5](out/I_Deliver_Food_To_Monsters_Part_5.md)
 * [I deliver mail to cryptids And we did NOT go on a date](out/I_deliver_mail_to_cryptids_And_we_did_NOT_go_on_a_date.md)
 * [I Developed Thalassophobia Last Night](out/I_Developed_Thalassophobia_Last_Night.md)
+* [I did not really believe the story that my great great grandfather was cursed until I returned to the family farm after 23 years and found something that haunts me](out/I_did_not_really_believe_the_story_that_my_great_great_grandfather_was_cursed_until_I_returned_to_the_family_farm_after_23_years_and_found_something_that_haunts_me.md)
 * [I did the 690452 challenge](out/I_did_the_690452_challenge.md)
 * [I didnt believe in Wendigos until last nights tenting experience](out/I_didnt_believe_in_Wendigos_until_last_nights_tenting_experience.md)
 * [I didnt know what I was doing](out/I_didnt_know_what_I_was_doing.md)
@@ -3144,10 +3145,10 @@ file count: 4618
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
-* [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
+* [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
@@ -3567,8 +3568,8 @@ file count: 4618
 * [The Eyes In The House](out/The_Eyes_In_The_House.md)
 * [The Eyes wont stop watching me](out/The_Eyes_wont_stop_watching_me.md)
 * [The EyeSpye App](out/The_EyeSpye_App.md)
-* [The faceless man](out/The_faceless_man.md)
 * [The Faceless Man](out/The_Faceless_Man.md)
+* [The faceless man](out/The_faceless_man.md)
 * [The family shots 1](out/The_family_shots_1.md)
 * [The Family Tradition](out/The_Family_Tradition.md)
 * [The Farm](out/The_Farm.md)
