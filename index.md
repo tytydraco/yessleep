@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4634
+file count: 4635
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1128,8 +1128,8 @@ file count: 4634
 * [I found a place where the sky ends](out/I_found_a_place_where_the_sky_ends.md)
 * [I found a strange book in a clients library Now Im not sure Ill make it out alive](out/I_found_a_strange_book_in_a_clients_library_Now_Im_not_sure_Ill_make_it_out_alive.md)
 * [I found a strange notebook in my car after getting fired from my job](out/I_found_a_strange_notebook_in_my_car_after_getting_fired_from_my_job.md)
-* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
+* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I found a usb stick  The Long Face](out/I_found_a_usb_stick__The_Long_Face.md)
 * [I found a VHS in a VCR I boughtI wish I hadnt hit play](out/I_found_a_VHS_in_a_VCR_I_boughtI_wish_I_hadnt_hit_play.md)
 * [I found a video game that shouldnt be real and I think its going to kill me](out/I_found_a_video_game_that_shouldnt_be_real_and_I_think_its_going_to_kill_me.md)
@@ -3156,8 +3156,8 @@ file count: 4634
 * [Side Effects](out/Side_Effects.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
-* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
@@ -3298,6 +3298,7 @@ file count: 4634
 * [spirals](out/spirals.md)
 * [Spite](out/Spite.md)
 * [split](out/split.md)
+* [Stairway to hell](out/Stairway_to_hell.md)
 * [StalkHome Syndrome](out/StalkHome_Syndrome.md)
 * [Starting to think me and my mom accidentally angered some form of weird spirit](out/Starting_to_think_me_and_my_mom_accidentally_angered_some_form_of_weird_spirit.md)
 * [Static Nightfall](out/Static_Nightfall.md)
