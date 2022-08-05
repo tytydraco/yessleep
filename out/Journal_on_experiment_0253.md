@@ -1,7 +1,7 @@
 I am the founder of the secret project "Cancer". This project is trying to find a cancer drug. Doctors have today manufactured a drug that is supposed to save children sick from this disease. We're going to have to find cancer volunteers to do tests. It will take some time because not many people trust us. 
 
 Day 1 
-I found a volunteer. He is 18 years old and I gave him the medicine. Name: classified. The subject showed no adverse effects. At the moment the doctors putted him under observation. 
+I found a volunteer. He is 18 years old and I gave him the medicine. Name: classified. The subject showed no adverse effects. At the moment the doctors put him under observation. 
 
 Day 2 
 The skin of the subject began to pale. The subject seems very dissatisfied with his new appearance. Also, the subject began to have dizziness and severe stomach pain.
