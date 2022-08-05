@@ -136,9 +136,9 @@ There I sat alone in the dim office and waited. And waited, and waited.
 
 And in fact, I'm still waiting. From what I can tell, the weekend has come and gone and still no Dr. Hon or his busty assistant. I've seen people walk by the building on their way to some take out place next door. I see tons of people come and go, but no one looks in here, in this dark, and apparently abandoned, chiropractor's office.
 
-After the first day, I was able to undulate with some modicum of control. I slithered, however undignified, over to the computer JillieAnne had left open. After another day, I had my fingers plopping along the keys like drunken slugs. It's slow, arduous work to type this all out, but the poet in me needs to see it done right. I like to think myself a scholarly type guy, remember?
+After the first day, I was able to undulate with some modicum of control. I slithered, however undignified, over to the computer JillieAnne had left open. After another day, I had my fingers plopping along the keys like drunken slugs. It's slow, arduous work to type this all out, but the poet in me needs to see it done right. I like to think of myself a scholarly type guy, remember?
 
-I'm feeling it though, that lack of bones. My head feels mushy. My memories feel mushy. I can't even remember the address of this place. I bet Dr. Hon didn't even call my work and tell them I can't go in today. He don't think he even ask where I worked... I just want some sunlight. I want some food. I want to talk to anyone.
+I'm feeling it though, that lack of bones. My head feels mushy. My memories feel mushy. I can't even remember the address of this place. I bet Dr. Hon didn't even call my work and tell them I can't go in today. I don't think he even asked where I worked... I just want some sunlight. I want some food. I want to talk to anyone.
 
 That Meat Retreat is actually starting to sound pretty nice. I'm trying squirm for the door after this.
 
