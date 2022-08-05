@@ -1,0 +1,51 @@
+This is not me bragging about my sex life. While I've had several encounters in recent years I by no means take any pride in my sexual life. What happened two weeks ago was so bizarre that I don't ever want to think about sex ever again, but I can't keep this to myself any longer.
+
+As a 27 year old man, I'm plagued by thoughts of getting older. I'm nearing my thirties and that's older than I ever want to be. I made a promise to myself as a little freshman in college; promise to live the best life you can. And indeed that is exactly what I did. It wasn't hard to meet a group of stoners for some easy access, and as a business/art double major I had no issues finding women. Before college I was a bit of a loser. I'd had sex before with an ex, but after that breakup I fell down a sad, pitiful hole, and had neither the resources nor the support to deal with the traumatic relationship. All I had was a shitty old father who hardly ever cared for me. I like to blame my weed addiction on the universe for giving me a tough life.
+
+As freshman year progressed I found myself to be quite equipped. A fridge full of alcohol, a fake ID to buy more, some weed, ketamine, coke, etc. All the normal stuff you would find in a delinquent's dorm room. Don't forget condoms, more condoms, and if I was out I would make a trip to the pharmacy for a plan B after a great night with a woman. My sexual endeavors in college began a few weeks into the semester, where I went out to some club hosting a sorority's event. From there I realized that a little bit of liquid courage and some smooth dancing would score me some chicks.
+
+After a while, it got boring doing the same thing over and over. I eventually found myself as a junior in college, still not even 21, and yet experiencing great success with older women. These are women I met at more calm bars, cafes, and even a grocery store once. I had also found myself further unsatisfied from the life I had given myself. I wanted more sex. I wanted more drugs. I wanted more *fun*. This drive to live what I believed to be a fulfilling life showed itself in the form of failing grades, calling out of work, skipping classes, and eventually led to me dropping out.
+
+I have since gone and learned a trade in order to make somewhat of a decent living, though I think I was motivated purely by the push of still wanting more in my life. I kept going to bars and clubs, hitting on women already coked up so that they could maybe share some with me. I became desperate for any form of satisfaction.
+
+Several other miserable choices have led to where I am now. A sad, lonely man in fear of getting old. The time was ticking and I had still not fulfilled my promise to myself. So it became sleeping with married women. Staying at their place while their husbands were off on some work-related trip. I knew it was wrong, but I just couldn't risk it. If this is what I needed to reach that fulfillment, then so be it. I had to try.
+
+A few months ago, I had gotten to know this older lady. When I say older I just mean 34. She was above average height for a woman, dark brown hair and green eyes. Her smile gripped my chest, and her shadow against the wall felt as a silhouette filled with lust. Kendra was her name. If her husband weren't also home I would have made a move. I was quickly taken back to the promise I made myself.
+
+I had made some repairs around her house. It was a rather large house, and they for were surely living above their means. Her husband is a botanist studying something rare I think, and he was going to be out of the country for three months. She was a medical doctor. An anesthesiologist. Her work days were quite long, but she often found herself with many day-offs. I had given her my number to let me know if there were any issues with the repairs, and surprisingly she did contact me after a couple of weeks.
+
+I got to her house sometime after Kendra sent that text, only to claim that she deceived me a bit. Of course, but could this be it? I had no feeling like this before. I was both scared and mesmerized, yet I was confident this was the time I reached my fulfillment.
+
+Sure enough, as we slept together that very night I had reached my peak. The sex was long and amazing. We went for many rounds, each getting better and better. She took control and forced me to finish her off every few minutes. I had this strange sense of euphoria I would get on some of the drugs I tried in college. A body-numbing, all-encompassing euphoria. I was glad she spent a long time cleaning up after, because a smile was stuck on my face for ten straight minutes with no way to be removed. Bliss, some may call it.
+
+She had gone to the kitchen and come back with a couple glasses of water. I sipped mine fairly quickly and noted an odd bitterness. It was manageable, but my face had an obvious expression of slight disgust with the flavor. She saw this and said "I just put in a new filter for the water, so if it tastes weird that's probably it, but it's harmless."
+
+She started telling me that she wanted to try something fun. I fell deeper and deeper into fatigue, like the most powerful night I had in my life led to the ultimate crash. I couldn't keep my eyes open, nor could I breathe properly. I wasn't sure I was up to try something at all for the rest of the night.
+
+My memory gets hazy here, but I believe in what I saw.
+
+I could open my eyes sometime later when I felt a poke into my arm. I saw Kendra inserting a needle into my arm, injecting me with something. I could already hardly move, and at first I thought this was maybe just a dream. She put a bandage over the hole she poked, and whispered "shh" over and over again.
+
+Some more time passes until I see frames of Kendra. She's holding a knife. She's holding a sewing needle. She's slicing my chest. No, wait. My sides? Next to my belly button? I couldn't feel a thing, and all the evidence points to it being a dream, a nightmare, but it felt too real. When I was able to look at Kendra's face, I was left with terrifying images of some sort of demon. It was yelling at me, screaming at me for being a complete piece of shit. It was telling me I don't deserve to live a good life. It was telling me about all the lives I had ruined.
+
+More frames. I think she cut into my torso and ripped out a kidney, or at least that's all I can assume it was now being out of that state of mind. At the time, I didn't know what it was. I kept seeing dark red, more intense each second. With this my body let out a staggering roar. It sounded like a scream I could make, but it was slightly distorted. It combined with a heinous laughter coming from this demon to form the sound waves of what I can only describe as what Hell sounds like. Constant screams from myself and laughter from this *thing*.
+
+I was being stabbed repeatedly by numerous spears repeatedly. It felt like it would never end, until I think it did. My body had reached a point of stress to where my chest floated, while I completely relied on my head and toes to stand on. I remember my visual field was blurry, but I could make out a splatter of blood hitting the side of the bed frame. I then passed out, I think. I have no memory of what comes next.
+
+I awoke in the morning, terrified about the events, but no indication that any of it had happened. But, how? It was so vivid. I felt the pain. It was the absolute worst time anybody could ever experience. How could I have dreamt it?
+
+The view of my chest and stomach showed no markings, no signs of penetration, no scars, no stiches. No bandage on my arm where she had poked me. I was in disbelief. I was alone in her home. She had left for work probably.
+
+After I stood up I could feel soreness all throughout my body. I felt especially sore in my kidney and my arm, where I thought she had poked me. I then decided to take a look at the bed frame.
+
+I saw the splattered blood. The sight of it quickly reminded me of the sound of its splash against the wooden frame. My heart dropped, and I knew something was up. I decided to go snooping, hoping that she actually was at work this time.
+
+I thought about the water she gave me, so I went into her kitchen. I got some water myself and noted no bitterness like I did last night. I started snooping around, and I thought I wasn't going to find anything. But I peaked through a door leading to the laundry room and saw a cabinet. It had a lock on it and I thought that to be strange. I went out to my truck, still uneasy and in a slight pain from the night before, and grabbed a lock kit. It took a bit of finagling but I got it open.
+
+Inside the cabinet was a box, again with another lock. I was already too deep into this search, so I continued my search of something strange to maybe explain what happened. I picked the lock and the contents inside were horrifying. In it were pictures of myself, information about me, where I went to school, when I dropped out, all the drugs I had consumed. All of the bad things about me. The same bad things that the demon was telling me about. As if that wasn't strange enough, I found a bottle of Rohypnol (roofies), a syringe and needles, and a knife with a little blood left on it.
+
+I ran out of that house and never looked back. I blocked Kendra's number. I took that damned box with me so that she had no part of me left. Last week I sent a sample of the blood to a lab to test the DNA. I don't need any more proof that it happened. I now know for a fact it did. It's just further evidence that I did experience a gory torture, and that at least that part was not made up.
+
+I still get a feeling like I'm being watched. I have hardly left my house in these last two weeks. I think I've developed very serious PTSD and anxiety, but I can't go to anyone for them. How can I tell a psychologist that I was being tortured by a demon without them thinking I have a different disorder?
+
+Ever since that night, I regretted my promise to myself. It was the biggest mistake of my life and I just wish I could go back and restart everything. I now have to spend the rest of my life in fear not of simply getting older, but I newfound fear of death because I know once I die I'm going to be living that hell for eternity.
