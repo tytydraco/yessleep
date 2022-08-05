@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4621
+file count: 4622
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -4427,6 +4427,7 @@ file count: 4621
 * [What I found in the woods](out/What_I_found_in_the_woods.md)
 * [What I Saw and Now Keep Seeing](out/What_I_Saw_and_Now_Keep_Seeing.md)
 * [What I saw in the Flamingo Park Ghost Train will haunt me forever](out/What_I_saw_in_the_Flamingo_Park_Ghost_Train_will_haunt_me_forever.md)
+* [What I thought was just discord turned out to be something much more scary](out/What_I_thought_was_just_discord_turned_out_to_be_something_much_more_scary.md)
 * [What if we had answered](out/What_if_we_had_answered.md)
 * [What is Happening to Me Part 1](out/What_is_Happening_to_Me_Part_1.md)
 * [What is this place](out/What_is_this_place.md)
