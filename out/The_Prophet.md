@@ -46,6 +46,10 @@ This is my suicide note.
 
 I found this on my phone after some homeless creepy lady stole it off me and jumped off the roof of Blackthorne Mall. The phone was on the roof after she jumped.
 
+I started asking around and eventually found a family who seemed to know Sandra Waterhouse but all they did was call her a witch who cursed them with her dreams and got them thrown out of their house. They absolutely refused to talk about her further.
+
+I've been rereading this post over and over and over, trying to make sense of everything that happened to this poor woman.
+
 It seems like she wanted me to post it somewhere, so I did. Do with this information what you will.
 
 [Remind me to put a real password on my phone.](https://www.reddit.com/user/LilliannaCreepwell/)
