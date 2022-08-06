@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4662
+file count: 4663
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -2460,6 +2460,7 @@ file count: 4662
 * [My Dead Brother Pt2](out/My_Dead_Brother_Pt2.md)
 * [My Dead Brother Pt3](out/My_Dead_Brother_Pt3.md)
 * [My Dead Brother](out/My_Dead_Brother.md)
+* [My Dead Friend Showed Up To Work Today](out/My_Dead_Friend_Showed_Up_To_Work_Today.md)
 * [My dead girlfriend keeps messaging me on Facebook Ive got the screenshots I dont know what to do](out/My_dead_girlfriend_keeps_messaging_me_on_Facebook_Ive_got_the_screenshots_I_dont_know_what_to_do.md)
 * [My dead mother called me at 333 AM](out/My_dead_mother_called_me_at_333_AM.md)
 * [my dead twin sister wont stop staring at me](out/my_dead_twin_sister_wont_stop_staring_at_me.md)
