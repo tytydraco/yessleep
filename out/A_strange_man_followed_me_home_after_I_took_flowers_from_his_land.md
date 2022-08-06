@@ -10,27 +10,27 @@ It’s late Sunday afternoon on my solo weekend mini-retreat to Yosemite. Work h
 
 I park the car in front of a dilapidated road gate with a faded “Private Property” sign. I haven’t seen another car in forty minutes, but I have pepper spray and frankly, I’m a pretty big dude. It’ll just be a quick hike. Besides, there’s something thrilling about the fact that I’m off the beaten path, where there’s zero cell reception, and not a single person in this entire world knows where I am right now.
 
-Half an hour into the trail, I was ready to turn back when I rounded a curve and *gasped*. Twenty feet in front of me are bushes of gorgeous, yet inexplicably *strange* flowers that resemble giant un-bloomed lilies. Having yet to blossom, each closed bud is about the size and shape of an upright football sitting on top of a four-foot-tall stem. The petals are iridescent, almost neon-like in their hues of cerulean blue, emerald green, and magenta. I’ve never seen floral shades as vibrant and *saturated* as these in my thirty-two years of being the world’s biggest flower nerd, and I just *know* that I’ve stumbled on something extraordinary. 
+Half an hour into the trail, I was ready to turn back when I rounded a curve and *gasped*. Twenty feet in front of me are bushes of gorgeous, yet inexplicably *strange* flowers that resemble giant un-bloomed lilies. Having yet to blossom, each closed bud is about the size and shape of an upright football sitting on top of a four-foot-tall stem. The petals are iridescent, almost neon-like in their hues of cerulean blue, emerald green, and magenta. I’ve never seen floral shades as vibrant and *saturated* as these in my thirty-two years of being the world’s biggest flower nerd, and I just *know* that I’ve stumbled on something extraordinary.
 
-The petals feel velvety yet slightly fuzzy to the touch. And the *smell!* It was the most intoxicating, seductive scent. I inhale blissfully and feel pure joy ease my weary soul, making me energized yet content at the same time. 
+The petals feel velvety yet slightly fuzzy to the touch. And the *smell!* It was the most intoxicating, seductive scent. I inhale blissfully and feel pure joy ease my weary soul, making me energized yet content at the same time.
 
-I don’t know how long I stood there, just staring and smelling and grinning like a hypnotized idiot. When I snap out of it, I realize the sun is starting to set and the shadows have lengthened. 
+I don’t know how long I stood there, just staring and smelling and grinning like a hypnotized idiot. When I snap out of it, I realize the sun is starting to set and the shadows have lengthened.
 
 I *have* to take these flowers home with me. I should mention that I always bring a handheld shovel with me when I hike a new trail, in case I come across plants I want to take home. I’m sure this breaks a few laws, but come on, there are worse things in the world. Anyway, I dig through the dirt and carefully pull out as much of the roots as I can. The sun is disappearing quickly in the horizon, and I’m worried about bumping into mountain lions or coyotes.
 
-With an armful of about three dozen flowers, my return hike takes twice as long. By the time I reach my car and finish arranging the pile of flowers in the trunk, the sun has set and I’m straining to see in the residual evening light. 
+With an armful of about three dozen flowers, my return hike takes twice as long. By the time I reach my car and finish arranging the pile of flowers in the trunk, the sun has set and I’m straining to see in the residual evening light.
 
-As I walk to the driver’s side, I glance up and yelp. Standing 100 feet away is a dirty, unkempt red-haired young man watching me expressionlessly. I freeze for a few long seconds before tentatively waving to him. 
+As I walk to the driver’s side, I glance up and yelp. Standing 100 feet away is a dirty, unkempt red-haired young man watching me expressionlessly. I freeze for a few long seconds before tentatively waving to him.
 
 “Hey man, how’s it going?”
 
 No response. The weirdo continues to stare unblinkingly at me. The hairs on my neck are standing up, something about him just feels… *wrong*. I suddenly register the faded “Private Property” sign nearby and realize I’ve basically trespassed *and* stolen something. Is he the owner of this land? Is he pissed?
 
-Shit, does he have a gun on him? His tattered grey jacket is bulky and may very well conceal a firearm. There is literally no one else around. If something happened to me, no one would even know I’m here. Or hear me scream. 
+Shit, does he have a gun on him? His tattered grey jacket is bulky and may very well conceal a firearm. There is literally no one else around. If something happened to me, no one would even know I’m here. Or hear me scream.
 
 “Do you live here? This place is wonderful!” I babble under his dead-eyed gaze, “I took a quick walk around but I’m heading home now. It’s just what I needed! I’ve been staring at a computer screen twelve hours a day, I can’t remember the last time I even took a walk. But you know, we have to make time for this sort of thing, right?”
 
-*Shut up, shut up, shut up! Just get the fuck out of here, Brian-Christopher*. 
+*Shut up, shut up, shut up! Just get the fuck out of here, Brian-Christopher*.
 
 With a final wave, I clamber into my car, start the engine with shaky fingers and quickly drive away. I can’t explain why I feel so rattled. The dude is smaller than me physically, but there is something off about him. It takes me a while to figure out why: he feels *empty*, like he’s alive, but not there. There’s sentience but no humanity. It’s hard to articulate. It doesn’t feel like he’s mentally-disabled, or insane, or psychopathic. Rather, it feels like I was talking to a zombie.
 
@@ -60,7 +60,7 @@ I stand frozen for a few minutes with my mouth hanging open in shock. How in the
 
 He must have memorized my license plate and searched me out. But *why*? Are the flowers extremely valuable or expensive? I can believe that. But if he had problems with me taking them, why didn’t he confront me before I drove away? If he asked, I would’ve been willing to negotiate a respectable payment.
 
-I have to make sense of this. It was broad daylight and there are plenty of people milling around outside, so I feel safer confronting him. The fact that he’s shown up where I live is simply unacceptable. I’ll have to get a restraining order against him.
+I have to make sense of this. It's the middle of the day and there are plenty of people milling around outside, so I feel safer confronting him. The fact that he’s shown up where I live is simply unacceptable. I’ll have to get a restraining order against him.
 
 I march up to him and muster all the authority I can. “Excuse me, sir! What are you doing outside of my house? Is there a problem?”
 
@@ -68,7 +68,7 @@ The man turns his head and his gaze meets mine. I get the eerie feeling again th
 
 We simply gaze at each other for a few minutes. He has no reaction, and I wait for him to just… do something. When he finally turns his empty gaze back up to my bedroom window, I take a closer look at him and realize, with a shock, he only has one shoe on, and it’s pretty much worn through. The other foot is bare and bloody, as if he’s walked on rocks for hours.
 
-The realizations hit me like a train, making me feel faint as spots dance across my vision: He has *walked* here from Yosemite this past week, a distance of almost 200 miles, to arrive and stare at my house. 
+The realization hits me like a train, making me feel faint as spots dance across my vision: He's *walked* here from Yosemite this past week, a distance of almost 200 miles, to arrive and stare at my house.
 
 \~\* \~\* \~\* \~\* \~\*
 
@@ -80,9 +80,9 @@ To be fair, my city has an unimaginably terrible homeless problem, where people 
 
 I keep my eye out for the guy over the next several weeks. He keeps hanging around my house, sometimes disappearing to forage for food or sleep in the big park nearby. Lots of berries and food scraps there, plus benches to sleep on in the warm summer nights. I know this because I’ve spread the word to my neighbors, and they’ve been keeping an eye on him as well.
 
-Meanwhile, the flowers have started to bloom. It’s difficult to get work done at home now. Heady and addictive, the scent seems to get stronger each day as the petals open. There’s something almost sentient about the petals’ movements as they sway gently in the breeze from the window. The colors seem to have gotten richer, and intricate patterns of spots and stripes start to form on the petals, which feel silky yet adorably fuzzy. 
+Meanwhile, the flowers have started to bloom. It’s difficult to get work done at home now. Heady and addictive, the scent seems to get stronger each day as the petals open. There’s something almost sentient about the petals’ movements as they sway gently in the breeze from the window. The colors seem to have gotten richer, and intricate patterns of spots and stripes start to form on the petals, which feel silky yet adorably fuzzy.
 
-I spend hours each day admiring them. I am confident that the world has never seen these flowers, based on my extensive knowledge as an amateur botanist, as well as hours of exhaustive research. This means I’m the pioneer. 
+I spend hours each day admiring them. I am confident that the world has never seen these flowers, based on my extensive knowledge as an amateur botanist, as well as hours of exhaustive research. This means I’m the pioneer.
 
 Do flowers like protein? I feel compelled to experiment, to try different nutrients besides just water and fertilizer. I begin catching bugs around the house: flies, bees, worms, crickets, moths. I freeze them then blend them with water and fertilizer to create a plant version of super smoothie. The flowers seem to respond to this puree; they’re growing even larger, and the scent is so thick, I can smell it outside the house. They’ve also somehow multiplied at an impressive rate; I now have triple the number of buds, and I’ve taken to re-pot a bunch for my neighbors as a “thank you” since they’ve been watching out for me.
 
@@ -90,13 +90,13 @@ The strange man is still around, but after weeks of him not doing anything, I st
 
 \~\* \~\* \~\* \~\* \~\*
 
-A month after my trip, I come home one day to find a bunch of my Yosemite flowers missing. Not the whole flower, just the buds, leaving blunt stems behind. 
+A month after my trip, I come home one day to find a bunch of my Yosemite flowers missing. Not the whole flower, just the buds, leaving blunt stems behind.
 
 What the fuck?
 
 The strange thing is, I can’t find the bulbs anywhere on the floor. I even check under my bed in case the wind blew them under. Nothing. I don’t understand this. Yes, flowers wilt, but you can always find the petals nearby where they’ve fallen off.
 
-I freeze when I turn and see the window that I always leave open. Had someone – the weird guy perhaps – climb through just to steal the flower? Was he trying to teach me a lesson? 
+I freeze when I turn and see the window that I always leave open. Had someone – the weird guy perhaps – climb through just to steal the flower? Was he trying to teach me a lesson?
 
 The second-floor room is challenging to access, but not impossible. I knew in my gut the freak had something to do with this. It seems ridiculous to break into a house just to steal some plants, but a glance outside onto the ground confirms it. It’s been raining, so the little patch of garden in front of my house is wet and muddy. There are footprints all over the dirt.
 
@@ -110,17 +110,17 @@ I go home, close and lock all my windows, and sleep with the pepper spray and th
 
 \~\* \~\* \~\* \~\* \~\*
 
-The next day, I’m taking a walk around the block when I hear screams come from the nearby park. It’s a sunny Saturday afternoon, so lots of people are out and about. Chaos breaks out as more people run over to check out what’s going on, before they themselves scream and even throw up. 
+The next day, I’m taking a walk around the block when I hear screams come from the nearby park. It’s a sunny Saturday afternoon, so lots of people are out and about. Chaos breaks out as more people run over to see what’s going on, before they themselves scream and even throw up.
 
-No joke, I see at least five or six people puking their guts out, next to a crowd gathered around something I can’t see. I hear sirens in the distance coming closer. Curious and alarmed, I join the mass and push people aside to see why everyone’s losing their head.
+No joke, I see at least six or seven people puking their guts out, next to a crowd gathered around something I can’t see. I hear sirens in the distance coming closer. Curious and alarmed, I join the mass and push people aside to see why everyone’s losing their head.
 
-The sickly-sweet smell of decay and blood hit me before I see it, filling my nose and making my eyes water. I nearly pass out when I push the last person aside to see the horrifying image, one I know I’ll remember forever:
+The sickly-sweet smell of decay and blood hit me before I see it, filling my nose and making my eyes water. I nearly pass out when I push the last person aside to see what all the commotion's about.
 
-About a dozen giant tarantulas are greedily feasting on a body. Their two-inch pincers rip through skin and muscles with a disturbingly wet, clicking sound, tearing out the blood vessels and organs easily. There was too much color, like those modern art with buckets of paints thrown over the canvas. The thick red of blood flowing like rivers contrasts sharply with the iridescent blue, green, and magenta bodies crawling over the corpse, and between their many moving foot-long legs, I glimpse a tattered grey jacket and tufts of red hair.
+About a dozen giant tarantulas are greedily feasting on a body. Their two-inch pincers rip through skin and muscles with a disturbingly wet, clicking sound, tearing out the blood vessels and organs easily. There's *so much* color, like those modern artwork with buckets of paints thrown over the canvas. The thick red of blood flowing like rivers contrasts sharply with the iridescent blue, green, and magenta bodies crawling over the corpse, and between their many moving long legs, I glimpse a tattered grey jacket and tufts of red hair.
 
 I vomit up my breakfast before staggering home. I have to know. When I step through the front door, it hits me how strong that fragrance has gotten. It’s completely saturated the house and seems to have burrowed into the wood and the carpet. I race through the house and up the stairs, pausing only to throw open every window I pass. There is not enough oxygen and I feel so dizzy from the shock.
 
-I burst into my room to find all the remaining flowers fully bloomed, their eight petals moving back and forth in a dancelike yet morbid motion. I walk up to one and stand about two feet before it, studying it closely. 
+I burst into my room to find all the remaining flowers fully bloomed, their eight petals moving back and forth in a dancelike yet morbid motion. I walk up to one and stand about two feet before it, studying it closely.
 
 The unnaturally vibrant bulb was… pulsating? Breathing? There’s a subtle yet defined rhythm to the way it’s slightly expanding then contracting. I don’t know how long I stand there, staring at it in horrified fascination. I think I might vomit a second time that day when all eight petals start wriggling in earnest.
 
@@ -130,10 +130,10 @@ A scream I don’t recognize tear out of my throat as I flee.
 
 \~\* \~\* \~\* \~\* \~\*
 
-I’ve been sitting in my living room for hours. A part of me desperately wants to leave, but I’m having a hard time separating myself from them, or from the smell. I crave the fragrance. It calls to me, makes me want to take care of my precious cargo. 
+I’ve been sitting in my living room for hours. A part of me desperately wants to leave, but I’m having a hard time separating myself from them, or from the smell. I crave the fragrance. It calls to me, makes me want to take care of my precious cargo.
 
-Honestly, they’re just trying to survive. Who am I to judge them for doing what all living things do – surviving and passing on our genes? 
+Honestly, they’re just trying to survive. Who am I to judge them for doing what all living things do – surviving and passing on our genes?
 
-I think I’ll stay in this house so I can look after them. I’ll keep the windows open so I can always smell them, no matter how far away they travel. The smell will let me know how to best help them, whether they’re hungry, in danger, cold, or whatever. 
+I think I’ll stay in this house so I can look after them. I’ll keep the windows open so I can always smell them, no matter how far away they travel. The smell will let me know how to best help them, whether they’re hungry, in danger, cold, or whatever.
 
-That’s the nice thing about pheromones. The molecules travel so easily by air, so I won’t need to go looking for them. And when time comes for them to breed, they’ll surely need my help. I’ll have to make sure their nests get rooted in a safe place, and those babies will need to eat when they leave their nest.
+That’s the nice thing about pheromones, microscopic molecules travel so easily by air. And when time comes for them to breed, they’ll surely need my help. I’ll have to make sure their nests get rooted in a safe place, and those babies will need to eat when they leave their nest.
