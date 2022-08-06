@@ -1,0 +1,13 @@
+It was a usual night before school, around midnight I think, I can't really remember it all that well, it was kinda traumatising, I was quite tired. I had just finished brushing my teeth, and putting on my pajamas, so I get in my bed to go to sleep. I actually fell asleep really fast, which is unusual since it usually takes around half an hour for me to fall asleep, but thats besides the point. I always sleep on my right side, right up against the wall, I don't know why, but i just feel comfortable that way.
+
+I suddenly woke up, my heart was pounding like crazy, I was out of breath, and really sweaty, it was exactly 3 am, I could feel someone, or something standing right behind me, and looking straight at me. I didn't dare to look back, I was too scared, but the next thing i could feel, it was so surreal, I could feel some really long and skinny hands, grab me, scratching the hell out of my back and clothes with long spiky nails, but this is what was surreal, I felt the hands just entering my body from the back, not by cutting it or anything similar, it's kinda hard to explain actually, but it just put its hand in my body, It was painful, I wanted to scream in agony, but I physically couldn't,  I could only look around, but that was to no help. My room was pitch black.
+
+It didn't take long before I could feel the hands leaving my body again, I was relieved, even though it hurt like hell. But I could feel something else, something COMPLETELY different, It felt as if my soul was being pulled out. It was only a few seconds before i could see my own body, I was confused, how could I possibly see my own back? To put it in a phrasing more understandable, it was as if I was in third person. I felt the hands let go of my soul, but I had no control. Lifeless was my body, and my soul, it was just spinning around in the air.
+
+Hours go past, and I'm still just floating around in the air, somehow the hour had not changed, it had said 3 o'clock for the past few hours. I had tried everything, I tried getting up, calling my parents, screaming, but nothing worked, i was helpless, thats when I suddenly became able to see out of my physical body again, but yet, I still couldn't move.
+
+I uttered a phrase
+
+I seek refuge in Allah, from the outcast Shaitan (the devil) 
+
+My soul flung into my body again, and I was able to move, i was so happy and relieved, but that wasn't the end, all of a sudden, I heard the most demonic, and satanic scream ever. What I assume was the being that grabbed my soul was screaming out of purr agony, as if it felt 100 years of torture in a single blow. It was loud, I felt like my ears was about to rupture, but that was the end, I was back to normal again, Physically at least. Or so i thought...
