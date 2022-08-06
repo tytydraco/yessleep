@@ -149,3 +149,5 @@ Then reached down and unfolded the note.
 It was the neighbor. 
 
 “Meet me at my place if you want answers-Bill”
+
+[update](https://www.reddit.com/r/nosleep/comments/whrerc/i_found_a_life_size_doll_inside_the_walls_of_my/?ref=share&ref_source=link)
