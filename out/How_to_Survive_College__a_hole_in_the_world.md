@@ -1,4 +1,4 @@
-Finals are right around the corner.  We’re wrapping up our projects and papers.  Cassie is holding study groups in the dorm common area for the other students trapped with the professor from hell.  She’s not the only one determined to pass out of spite.  Then they’ll go to the dean, once they’ve got their final grades for the semester and are safe from retaliation.  It’s given her something to focus on and be angry about.  It’s seemed to help, [after what she told me about her roommate](https://www.reddit.com/r/nosleep/comments/w2ixvt/how_to_survive_college_the_rain_changes_things/). 
+Finals are right around the corner.  We’re wrapping up our projects and papers.  Cassie is holding study groups in the dorm common area for the other students trapped with the professor from hell.  She’s not the only one determined to pass out of spite.  Then they’ll go to the dean, once they’ve got their final grades for the semester and are safe from retaliation.  It’s given her something to focus on and be angry about.  It’s seemed to help, [after what she told me about her roommate](https://www.reddit.com/r/nosleep/comments/w2ixvt/how_to_survive_college_the_rain_changes_things/).
 
 (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
@@ -14,7 +14,7 @@ At least I had Patricia taking care of the laundry lady problem.  Sort of.  She 
 
 “Then I’ll tell them,” she said brightly. “I can’t stop them from making their own choices, but I’ll make sure they know there might be some really bad consequences later down the line.”
 
-I’d told her about the Patricia situation and expressed my unease with the plan.  And to make sure I really drove the point home, I told her a little bit about my hometown.  About how the town’s unofficial rule is ‘we don’t make bargains with evil things’ and why that is, how everything had a price to it.  It might not be one you pay right away, but even gifts come wrapped in razor blades.  Even a benevolent entity might give you something and ask nothing in return, but that is because you *need* it and they expect it will be used and that means that you have trouble up ahead.  
+I’d told her about the Patricia situation and expressed my unease with the plan.  And to make sure I really drove the point home, I told her a little bit about my hometown.  About how the town’s unofficial rule is ‘we don’t make bargains with evil things’ and why that is, how everything had a price to it.  It might not be one you pay right away, but even gifts come wrapped in razor blades.  Even a benevolent entity might give you something and ask nothing in return, but that is because you *need* it and they expect it will be used and that means that you have trouble up ahead.
 
 I told her about the harvesters.  A piece of your body in exchange for something you need later down the road.  A high cost paid up front in exchange for a strings-free gift that saves you when you need it most.  What cost, then, would come around in time for a strings-free gift up-front?
 
@@ -38,7 +38,7 @@ Points for creativity?
 
 By the time the date Patricia had set rolled around we’d done as much as we could to talk people out of it.  We both wanted to make a last-ditch effort to talk people out of it.  It was too late for Patricia, obviously, but perhaps we might talk some sense into her to call the whole thing off.  We met up at my dorm and then made our way through the steam tunnels to join them at the power plant.
 
-We emerged from the tunnels to silence.  The basement was dark save for a cluster of light at the center of the room, where the pool of water was.  The light from the LED lanterns cut jaggedly through the support columns, casting long shadows like fingers across the floor.  Maria and I made our way towards the light and as we approached, I realized that we were too late.  
+We emerged from the tunnels to silence.  The basement was dark save for a cluster of light at the center of the room, where the pool of water was.  The light from the LED lanterns cut jaggedly through the support columns, casting long shadows like fingers across the floor.  Maria and I made our way towards the light and as we approached, I realized that we were too late.
 
 A small group of students were already gathered around the pool.  They were kneeling in preparation to drink.  Patricia was doing the same, her back turned to us.
 
@@ -68,7 +68,7 @@ The students didn’t notice what was above their heads.  They were lifting the 
 
 None of them responded.  I stood there, panting, one hand raised and pointing at the hole in the world.  A hole that scraped at the edges of my consciousness, stirring something to the surface that I’ve been trying hard to forget.
 
-I’ve seen this before.  That gaping maw opened up in the middle of an endless ocean and the water pouring down endlessly into it.  The memory shocked me into motionless, like my blood slowed and my body went numb.  
+I’ve seen this before.  That gaping maw opened up in the middle of an endless ocean and the water pouring down endlessly into it.  The memory shocked me into motionless, like my blood slowed and my body went numb.
 
 It was *here*.  The ocean was *here*, just above our heads.
 
@@ -90,7 +90,7 @@ They drank.
 
 The water in the pool between them rose upward in a torrent, a waterfall falling *up* into the waiting maw of the abyss.  Their heads were bowed and they were caught up in the deluge.  I saw Patricia’s hair tangled up in the water, standing straight up like her head was under a faucet.
 
-Then the waterfall stopped and for a brief moment I thought it was over, that whatever had transpired was done and that everything would be okay.  
+Then the waterfall stopped and for a brief moment I thought it was over, that whatever had transpired was done and that everything would be okay.
 
 Something filled the expanse of the hole in the world.  A white, glistening surface, lined with veins.  I saw it poised there for a moment, teetering on the edge, and then it emerged into our world.  It *threw* itself into our reality, hurtling downward.  An immense orb, slick and smooth, and it slammed onto the bowed heads of the students.
 
@@ -128,7 +128,7 @@ The traveling river had arrived.
 
 And the eyeball was going along with it.
 
-It scuttled past us, the pupil rolling to the side casually to watch us for a moment as it shuffled by.  Then its attention returned straight ahead and it charged into the river, sinking into its depths with each step.  Soon we could only see the top of the eye, a pearly dome like an island protruding from the roiling surface of the water, and then it sank below and was gone.  
+It scuttled past us, the pupil rolling to the side casually to watch us for a moment as it shuffled by.  Then its attention returned straight ahead and it charged into the river, sinking into its depths with each step.  Soon we could only see the top of the eye, a pearly dome like an island protruding from the roiling surface of the water, and then it sank below and was gone.
 
 The river receded just as quickly as it had come.  It’d collected what it was after and its presence was no longer required.
 
@@ -144,7 +144,7 @@ It was empty.  The water was gone.  All that was left was a black slab, textured
 
 “I don’t understand,” I whispered.
 
-I was speaking to myself, but my words carried in the vast chamber.  
+I was speaking to myself, but my words carried in the vast chamber.
 
 “What do you mean?” Maria asked.
 
@@ -169,6 +169,8 @@ I nodded slowly.  The Rain Chasers - or poor, doomed Patricia - had somehow been
 The students?  The Rain Chasers?  *The administration*?
 
 I wish I knew.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/wiq9p9/how_to_survive_college_the_devil_gave_me_a_pencil/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
