@@ -183,3 +183,5 @@ She was right. I wouldn't and couldn't change, I was an idiot.
 I decided I would help her. Provided she would tell me where the money was, of course.
 
 After all, that's what I had always made for a living. Getting shit done for the Dead. And it seemed I would have a hell of a lot of work there.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/winicd/i_have_unusual_employers_part_2/)
