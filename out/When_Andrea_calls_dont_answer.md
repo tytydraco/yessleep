@@ -100,7 +100,9 @@ I was floating in space, opposite a galactic river swirling in hypnotic shades o
 
 Then all I saw were stars, and the stars were faces—Andrea’s faces—who kept on giggling and squealing, and I felt my ears burst and bleed.
 
-I woke up to Andrea roaring and growling and a brush through my hair. I yawned and tried to stretch, but everything felt so *stiff*. Like I was a cranky old lady.
+I woke up to Andrea roaring and growling and a brush through my hair. I yawned and got out of bed--and immediately crashed to the floor. All my energy had drained out of me overnight.
+
+Everything hurt. 
 
 Andrea put down her brush and pulled my now silky-smooth hair with a grin on her face. It strangely didn’t hurt.
 
@@ -110,7 +112,7 @@ I tried to thank her, but my words came out blended together and my jaw was slac
 
 “Are you okay?” she asked, and then she burst out laughing like she just told a joke.
 
-I was too sick to move, so Andrea brought her dolls over to me. We played in silence, but with every second I felt my joints hardening like it was made of concrete.
+I was too weak to move, so Andrea brought her dolls over to me. We played in silence, but with every second I was getting even more tired.
 
 Suddenly my mouth felt weird.
 
@@ -132,7 +134,9 @@ With the last of my strength I stood up, and I gasped when I saw my reflection i
 
 I could feel time slipping away from me. I didn’t know why, but I fumbled for my phone. My palms were sweating as I started to write.
 
-Thank goodness my fingers and brain were still my own. Kind of. The least that I could do before I lose everything is to warn other people about her. For their sake.
+Thank goodness I can still feel my fingers and arms and legs and toes now. But even then I know it will go soon. My neck is feeling stiff, and this weird plastic feeling is creeping downwards and spreading around my shoulders.
+
+Time is slowly but surely running out. My vision is blurring as I force myself to type faster. The least I can do before Andrea claims me for her own is to warn everyone else about her. I don't want anyone else to get hurt. I don't want her to get any more of her 'dolls'.
 
 But Andrea is pounding on the door. My mind is screaming at me to join her outside and accept my fate. I grit my teeth and force myself not to listen. To fight this transformation that I am going through.
 

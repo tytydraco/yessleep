@@ -117,3 +117,5 @@ Breath filled her lungs as the blood was lapped up into her now open mouth.
 At the same instant, the little girl went rigid and cold. As stiff as the mannequin she had just resurrected. I stood up, too shocked for words, watching as the now alive Andrea smiled at me. 
 
 “You must be Trish. Bill has told me all about you.”
+
+[update](https://www.reddit.com/r/nosleep/comments/wij3hh/i_found_a_life_size_doll_inside_the_walls_of_my/?ref=share&ref_source=link)
