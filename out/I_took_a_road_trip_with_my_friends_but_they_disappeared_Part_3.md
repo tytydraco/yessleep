@@ -1,0 +1,26 @@
+ ([Part 2](https://www.reddit.com/r/nosleep/comments/vwt7b9/i_took_a_road_trip_with_my_friends_but_they/))
+
+“Is someone there?”  
+ I heard from across a few houses as a chill went down my spine and I froze still. The other radio was HERE. A few meters from me! Why didn't they answer me? I had to check it out, to see if… you know… there were any traces of them. I looked through the open window to see if there was any movement, and still there was silence. Why? WHY would someone do this? Why wouldn’t they answer me? I’ve never done anything wrong my whole life! Why is this happening to me?! I was starting to get impatient, I was mad about all that, why the FUCK would someone do this to us?!
+
+I got up with an impulse and rushed to the direction I heard the radio as I pressed the speak button. I was going near the well where I saw the bucket on the edge, but then I heard the white noise coming from the left, and i quickly adjusted my trajectory: “Fuck it” I thought, if there was someone here or there I would go apeshit on them. No more good guy, no more playing games. My life, their life, is on the line. It’s time to be a hero. I think…
+
+I charged my shoulder onto the wooden door, knowing damn well it wasn’t that locked tight and I bursted in with ease with nothing but a bruise on my arm. With a loud thud I broke the “lock”, and damn, it felt good. But that feeling went away in a moment. I froze. I saw my childhood friend holding the radio with his hanging guts falling off his stomach. . . . . . . . . . 
+
+At that sight, all of my thoughts, my feelings were humbled. the flies buzzing all over his corpse, the maggots falling over. I was petrified. I felt my neck burning, my stomach churning, a goosebump ran from my forehead to my heels, and I threw up. I tried to hold it but I couldn't, I threw up nothing but bile and bits of granola bar until I couldn't cough anything but air, I hadn't eaten in a while, I couldn’t bear that sight. All I knew, from crimes, from the news, from tales, I had never been… this close… After that I knew what I was facing was serious: I wasn't just lost, I was doomed. I don’t know what I could accomplish alone, I've always been just “some guy”!
+
+As I stared at him, motionless with his open eyes, mouth…..st…, I stared at my friend, which I have known for ten years or so, and I grabbed the radio from his hand. I could not close his mouth, the body was too rigid, I forgot about the… the name of the thing…FUCK WHY CAN’T I DO ANYTHING?! The tears that wet my face were long gone and dried. I had one mission: Survive. 
+
+The village was empty, I recalled I saw a torch going up the hill and I had a decision to make: run away or go after it. And I did. I went after it. Who’s the coward now? I’m going… Are you proud?! Will you respect me for this one? Huh?!
+
+I searched the village with nothing but rage and idiocy burning in my veins. After I found nothing but empty houses I looked up to the hill and I saw small flickering lights… I was down for murder. I don’t care. I left the village and went up the hill, no radio, no hesitation, no doubts, just me. Just me. There was hope of course, hope I get the motherfuckers that did this to my friend. I knew, I knew my wife was alive and my friend's boyfriend. They HAD to be. I didn’t find them in the village. 
+
+I faced once more the darkness, the razor sharp leaves cutting my leg, I felt my leg burning as the stinging nettle bruised me but I kept ignoring it, the light I saw was going that direction and there was a path, there was a way, I MUST reach them. As my legs were bruised, I was sweating, out of breath, but not giving up. All I could hear was the sound of my breath, in…and out…in… and out… in and… I saw them. All gathered, on top of that hill: around in a circle, dozens of villagers, with those cat eyes, their eyes reflecting the light, all of the men were clothed but some of the women naked, not all of them, and in the middle I saw: my friend’s boyfriend and my wife, and she was naked too. 
+
+This was some sort of sadistic fucked up ritual. I saw everything more clearly when I noticed her. All of them were chanting, looking at the moon in front of what seemed like a makeshift altar. What could I do? My adrenaline was at the top, my desire was to maul everyone to death and be a hero, but I knew, I knew I was dealing with something more.
+
+So I watched, like a coward. Who am I trying to fool? I’ve always been a coward, I AM NOT a hero! My legs won’t move because I don't have enough courage. I’m… I’m a fucked up wannabe husband who can’t even protect his wife, his friends. Coward… Coward!… COWARD!
+
+As I was martyring myself I noticed it all went silent. My wife was convulsing and my friend’s boyfriend was struggling even harder to release himself…all of them, all of them were gathering around her, slowly, like a cat that stalks his prey, I could do nothing but watch. I was frozen still, the naked woman lifted my wife as she was convulsing and the men dragged my friend’s boyfriend through the dirt going in my direction… I watched part of that sick ritual, the chanting, the naked ugly ladies, but what could I do? I couldn’t do anything, so I kept hidden. 
+
+Until the static gave up my location, and all those eyes turned out on me.

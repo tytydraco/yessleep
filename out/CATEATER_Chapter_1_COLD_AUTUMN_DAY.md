@@ -1,6 +1,3 @@
-{CHILD ABUSE}
-
-&#x200B;
 
 “A dog is a man’s best friend.” I believe every single person heard this line at least once in their life. Dogs are constantly praised as these creatures of purity. However, about 4.7 million bites are reported each year in the USA. Then, people bring up the idea that it’s never the dog’s fault. They either claim that it’s a fault of neglect from the owner or that the dog was provoked. It’s almost like bringing up the nature vs nurture argument, but always blame nurture. Whoever does that couldn’t be more wrong. 
 
