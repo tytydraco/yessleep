@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4686
+file count: 4688
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -362,6 +362,7 @@ file count: 4686
 * [carrying something inside of me](out/carrying_something_inside_of_me.md)
 * [Catch any fish](out/Catch_any_fish.md)
 * [CATEATER Chapter 1 COLD AUTUMN DAY](out/CATEATER_Chapter_1_COLD_AUTUMN_DAY.md)
+* [CATEATER Part 1 COLD AUTUMN DAY](out/CATEATER_Part_1_COLD_AUTUMN_DAY.md)
 * [Cavity](out/Cavity.md)
 * [Cemeteries are for Trash and Sex](out/Cemeteries_are_for_Trash_and_Sex.md)
 * [Cemetery friend](out/Cemetery_friend.md)
@@ -511,8 +512,8 @@ file count: 4686
 * [Dont Go Upstairs](out/Dont_Go_Upstairs.md)
 * [dont hang glide in NC mountains](out/dont_hang_glide_in_NC_mountains.md)
 * [Dont judge a book by its cover](out/Dont_judge_a_book_by_its_cover.md)
-* [Dont Let the Bed Bugs Bite](out/Dont_Let_the_Bed_Bugs_Bite.md)
 * [Dont let the bed bugs bite](out/Dont_let_the_bed_bugs_bite.md)
+* [Dont Let the Bed Bugs Bite](out/Dont_Let_the_Bed_Bugs_Bite.md)
 * [Dont Let Your Kids Crawl Up Drain Pipes](out/Dont_Let_Your_Kids_Crawl_Up_Drain_Pipes.md)
 * [Dont Lie on Dating Apps](out/Dont_Lie_on_Dating_Apps.md)
 * [Dont make my mistake avoid empty grocery stores late at night](out/Dont_make_my_mistake_avoid_empty_grocery_stores_late_at_night.md)
@@ -820,8 +821,8 @@ file count: 4686
 * [How I became an only child](out/How_I_became_an_only_child.md)
 * [How long had the watching man stood there for](out/How_long_had_the_watching_man_stood_there_for.md)
 * [How me and my friends sneaked into the biggest naval base of the country](out/How_me_and_my_friends_sneaked_into_the_biggest_naval_base_of_the_country.md)
-* [How the sausage is made](out/How_the_sausage_is_made.md)
 * [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
+* [How the sausage is made](out/How_the_sausage_is_made.md)
 * [How to be more human](out/How_to_be_more_human.md)
 * [How To Exist](out/How_To_Exist.md)
 * [How To Go To Another World Russian Methods](out/How_To_Go_To_Another_World_Russian_Methods.md)
@@ -925,6 +926,7 @@ file count: 4686
 * [I am being haunted by the faces of three strangers  Part II The Eye Game](out/I_am_being_haunted_by_the_faces_of_three_strangers__Part_II_The_Eye_Game.md)
 * [I am being haunted by the faces of three strangers  Part III The Ghost Hunter](out/I_am_being_haunted_by_the_faces_of_three_strangers__Part_III_The_Ghost_Hunter.md)
 * [I am being haunted by the faces of three strangers](out/I_am_being_haunted_by_the_faces_of_three_strangers.md)
+* [I am deeply infatuated with my wife](out/I_am_deeply_infatuated_with_my_wife.md)
 * [I am directly related to Jack the ripper](out/I_am_directly_related_to_Jack_the_ripper.md)
 * [I Am Emily FINAL](out/I_Am_Emily_FINAL.md)
 * [I Am Emily](out/I_Am_Emily.md)
@@ -3621,8 +3623,8 @@ file count: 4686
 * [The Eyes In The House](out/The_Eyes_In_The_House.md)
 * [The Eyes wont stop watching me](out/The_Eyes_wont_stop_watching_me.md)
 * [The EyeSpye App](out/The_EyeSpye_App.md)
-* [The faceless man](out/The_faceless_man.md)
 * [The Faceless Man](out/The_Faceless_Man.md)
+* [The faceless man](out/The_faceless_man.md)
 * [The family shots 1](out/The_family_shots_1.md)
 * [The Family Tradition](out/The_Family_Tradition.md)
 * [The Farm](out/The_Farm.md)
@@ -3881,8 +3883,8 @@ file count: 4686
 * [The old man](out/The_old_man.md)
 * [The Old Schoolhouses Curse](out/The_Old_Schoolhouses_Curse.md)
 * [The one time I dont lock my door](out/The_one_time_I_dont_lock_my_door.md)
-* [The One Who Follows](out/The_One_Who_Follows.md)
 * [The one who follows](out/The_one_who_follows.md)
+* [The One Who Follows](out/The_One_Who_Follows.md)
 * [The only time I encountered sleep paralysis](out/The_only_time_I_encountered_sleep_paralysis.md)
 * [The only time I gave a one star Uber rating](out/The_only_time_I_gave_a_one_star_Uber_rating.md)
 * [The Only Warning About Pendle Hill Part 1](out/The_Only_Warning_About_Pendle_Hill_Part_1.md)
