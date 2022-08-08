@@ -108,11 +108,11 @@ Helena deliberated some minutes, then came out to the and to the inspector: ”Y
 
 &#x200B;
 
-They slaughtered him there, the started the barbeque. At some point, one fierce hand grabbed the inspector, pushed out of the tent and let him on the alleys of the Obor carnival.
+They slaughtered him there, then started the barbecue. At some point, one fierce hand grabbed the inspector, pushed out of the tent and let him on the alleys of the Obor carnival.
 
 &#x200B;
 
-All the other clowns appeared after Laie was gone. Who knows, maybe Jameson needed some new henchmen. Their exact number is not clear, some testimonies speak of more clowns, some of less. They did not seemed to have been modified to look like ventriloquist dolls, it seems. The female Zerva was, somewhat, modified  to look like  a doll, it is not sure why. Some of them were seen working at other circuses and fairs in Bucharest. I am pretty sure all of them used to be human, at some point. I do not know how similar were to Helena in nature or modifications from humanity, but it is interesting that they called Helena their queen and mother. There were seen alongside Helena on her murderous ”missions”, some did not seem to be justified as assassinations, like first killings connected to Helena. 
+All the other clowns appeared after Laie was gone. Who knows, maybe Jameson needed some new henchmen. Their exact number is not clear, some testimonies speak of more clowns, some of less. They did not seemed to have been modified to look like ventriloquist dolls, it seems. The female Zerva was, somewhat, modified  to look like  a doll, it is not sure why. Some of them were seen working at other circuses and fairs in Bucharest. I am pretty sure all of them used to be human, at some point. I do not know how similar were to Helena in nature or modifications from humanity, but it is interesting that they called Helena their queen and mother. There were seen alongside Helena on her murderous ”missions”, some did not seem to be justified as assassinations, like first killings connected to Helena.
 
 &#x200B;
 

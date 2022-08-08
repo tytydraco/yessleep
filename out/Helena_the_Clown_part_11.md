@@ -34,7 +34,7 @@ In the end, some police entered, but the mob attacked the cars, setting them of 
 
 &#x200B;
 
-”We need to go to the railways workshop, in Grivița. Fast. To stir up as many people as we an from there or Giulești. What do you think is the fastest way? From Banu Manta through Griviței Way (Calea Griviței) or through the small streets ahead, to get some more people on the way, kill some of the bastards in there and then reach the end of the Grant bridge?” asked Helena. Gâlmă replied: ”If it worked so far, it seems we can gather some more. There are enough brigands even just north of this, until there, to get rid of and so, find new people willing to join us. But I am worried it shall take too much and the police shall reach us.” ”I have scared some already. They shall bring reinforcements, indeed, but we need more people. Those from the railways workshop know us, some of them live nearby. And, besides, we have some guns. 
+”We need to go to the railways workshop, in Grivița. Fast. To stir up as many people as we an from there or Giulești. What do you think is the fastest way? From Banu Manta through Griviței Way (Calea Griviței) or through the small streets ahead, to get some more people on the way, kill some of the bastards in there and then reach the end of the Grant bridge?” asked Helena. Gâlmă replied: ”If it worked so far, it seems we can gather some more. There are enough brigands even just north of this, until there, to get rid of and so, find new people willing to join us. But I am worried it shall take too much and the police shall reach us.” ”I have scared some already. They shall bring reinforcements, indeed, but we need more people. Those from the railways workshop know us, some of them live nearby. And, besides, we have some guns.
 
 &#x200B;
 
@@ -46,7 +46,7 @@ The police cars we have got our hands on are not enough to transport all of them
 
 &#x200B;
 
-”You are right.” said Helena. ”They need the signal to proceed now.” So they managed to make a phone call from one of the houses, it seems and they went on marching on the streets between the Banu Manta street, the Filantropia boulevard, Griviței Way to the Grant bridge. There are testimonies of fires and some small destruction in the Obor fair, and small crowd starting to march over the Colentina Highway, then to Maica Domnului, then towards the Barbu Văcărescu Boulevard. It became, gradually, bigger, but not much bigger. It seems they had some guns with them, and torches, like the crowd around Helena. 
+”You are right.” said Helena. ”They need the signal to proceed now.” So they managed to make a phone call from one of the houses, it seems and they went on marching on the streets between the Banu Manta street, the Filantropia boulevard, Griviței Way to the Grant bridge. There are testimonies of fires and some small destruction in the Obor fair, and small crowd starting to march over the Colentina Highway, then to Maica Domnului, then towards the Barbu Văcărescu Boulevard. It became, gradually, bigger, but not much bigger. It seems they had some guns with them, and torches, like the crowd around Helena.
 
 &#x200B;
 
@@ -94,7 +94,7 @@ The blonde Elf started talking in a very beautiful voice, but on a sharp, harsh 
 
 &#x200B;
 
-After a few seconds of silence, Helena continued: ”You have a choice, from my perspective. You can either stay out of our way, or join us. We have work to do, a great work to do, and you keep us blocked.” The blonde Elf replied, of a different tone: ”A great work? Have you looked at the sky? You have seen them and felt them too, both yourselves and the Humans.” They seemed to have refer to the winged dark figures present in the sky a few minutes ago. ”Of course” said Helena. ”For now they did not came down. They want to intimidate us. This means a great deed is ahead us and it means this should make us even more determined to succeed. ” ”You have lost it.” said the red haired Elf. ”I see it now. If you were still sane, you would have realized there is no way a few people can bring down the power. But it seems talking to you is senseless already, since you seem determined to kill yourselves and get all this people to death.” 
+After a few seconds of silence, Helena continued: ”You have a choice, from my perspective. You can either stay out of our way, or join us. We have work to do, a great work to do, and you keep us blocked.” The blonde Elf replied, of a different tone: ”A great work? Have you looked at the sky? You have seen them and felt them too, both yourselves and the Humans.” They seemed to have refer to the winged dark figures present in the sky a few minutes ago. ”Of course” said Helena. ”For now they did not came down. They want to intimidate us. This means a great deed is ahead us and it means this should make us even more determined to succeed. ” ”You have lost it.” said the red haired Elf. ”I see it now. If you were still sane, you would have realized there is no way a few people can bring down the power. But it seems talking to you is senseless already, since you seem determined to kill yourselves and get all this people to death.”
 
 &#x200B;
 
@@ -106,7 +106,7 @@ Helena became quiet. After a little while, she replied, on a calmer tone and low
 
 &#x200B;
 
-She turned to the people: ”Good folks! It seems the scumbags send the army for us. With war munition. Myself I shell continue. We have our right to live with dignity. We have our right to be free. I tell you this so that you know what is coming. I can not force you to continue. But, as I already told you, as much of us, the better. We can do this. Some of us may die. But we shall die as heroes, nonetheless. Remember, the more of us we are, the less powerful they are. If we are alone, they take us one by one and crush us!”  Some people left. It seems many. Some were talking, being undecided. 
+She turned to the people: ”Good folks! It seems the scumbags send the army for us. With war munition. Myself I shell continue. We have our right to live with dignity. We have our right to be free. I tell you this so that you know what is coming. I can not force you to continue. But, as I already told you, as much of us, the better. We can do this. Some of us may die. But we shall die as heroes, nonetheless. Remember, the more of us we are, the less powerful they are. If we are alone, they take us one by one and crush us!”  Some people left. It seems many. Some were talking, being undecided.
 
 &#x200B;
 
@@ -114,7 +114,7 @@ So, she added: ”Whatever you do, decide fast. They are coming. We need to move
 
 &#x200B;
 
-When they were close to leave to enter the Banu Manta street, they felt again the dark presences above them. Something felt intoxicating, hard to pinpoint what. People left at the march felt bad in their abdomens, even Helena and Gâlmă seem to be affected. ”Ignore them, for now.” she shouted. Do not look at them at all, do not listen any sound that comes from them. They try to poison us.” Some big tree moved and started producing some weird sounds, people started to get scared again, Helena calmed them down again and went to talk, discretely, with the tree or the being that appeared to be a tree. After a few minutes, she went back to the crowd and continued marching. Gâlmă asked: ”What did he want?” ”He did not knew what was going on, I told him the truth. He was a little scared, I told him we will move away from him, and that it seems unlikely his kin from Kiseleff area shall be affected. To chill down. Of course, he told me I am out of mind with all this.” 
+When they were close to leave to enter the Banu Manta street, they felt again the dark presences above them. Something felt intoxicating, hard to pinpoint what. People left at the march felt bad in their abdomens, even Helena and Gâlmă seem to be affected. ”Ignore them, for now.” she shouted. Do not look at them at all, do not listen any sound that comes from them. They try to poison us.” Some big tree moved and started producing some weird sounds, people started to get scared again, Helena calmed them down again and went to talk, discretely, with the tree or the being that appeared to be a tree. After a few minutes, she went back to the crowd and continued marching. Gâlmă asked: ”What did he want?” ”He did not knew what was going on, I told him the truth. He was a little scared, I told him we will move away from him, and that it seems unlikely his kin from Kiseleff area shall be affected. To chill down. Of course, he told me I am out of mind with all this.”
 
 &#x200B;
 
@@ -126,7 +126,7 @@ Then, another surprise from the sky. A new dark shape, much bigger appeared, som
 
 &#x200B;
 
-When they reached the park, eventually, they met the other group in the park. It seems Helena became very angry when she so them in park. ” I told you to go south! Now he left, most likely! We were suppose to make them think we go south. Not to Eliza Filipescu!” Damandake looked a little shaken, Zerva wanted to respond, Helena came to her and cover her mouth with her hands. ”You, please shut up! There is a small chance he is still there. Lets go!” They crossed the park and the boulevard for their target of Eliza Filipescu. The buildings were silent, the silence of the misty night was slowly replaced by a rumble of car engines coming from the south. Helena made a sign to stop, then they listened. 
+When they reached the park, eventually, they met the other group in the park. It seems Helena became very angry when she so them in park. ” I told you to go south! Now he left, most likely! We were suppose to make them think we go south. Not to Eliza Filipescu!” Damandake looked a little shaken, Zerva wanted to respond, Helena came to her and cover her mouth with her hands. ”You, please shut up! There is a small chance he is still there. Lets go!” They crossed the park and the boulevard for their target of Eliza Filipescu. The buildings were silent, the silence of the misty night was slowly replaced by a rumble of car engines coming from the south. Helena made a sign to stop, then they listened.
 
 &#x200B;
 
@@ -146,11 +146,11 @@ There are some reports of two Siguranta agents who were send to find Gordon Jame
 
 &#x200B;
 
-I guess there are some things I would like to mention, before moving on what happened those days, the events I also took part, just to close the talk about the past. After what happened with Alexandra and Helena, their families broke down. Alexandra„s mother went to a mental institution, where she died in less then an year. Alexandra„s father, the colonel Protopopescu seemed to bear better, he continued his military career. He eventually became a general, fought in World War II as well. When the soviet army entered the country, he was arrested and condemned to death, for fighting against the Red Army. His sentence was commuted to life in prison and died in the penitentiary of Aiud, in 1949. 
+I guess there are some things I would like to mention, before moving on what happened those days, the events I also took part, just to close the talk about the past. After what happened with Alexandra and Helena, their families broke down. Alexandra„s mother went to a mental institution, where she died in less then an year. Alexandra„s father, the colonel Protopopescu seemed to bear better, he continued his military career. He eventually became a general, fought in World War II as well. When the soviet army entered the country, he was arrested and condemned to death, for fighting against the Red Army. His sentence was commuted to life in prison and died in the penitentiary of Aiud, in 1949.
 
 &#x200B;
 
-Spirache, the father of Helena, had a breakdown, he sought for his daughter, even managed to kill some gangsters he suspected were responsible on her abduction. The colonel helped him in many ways, both on trial, and in prison. It is said that, when Helena started to appear a ventriloquist doll in the shows of Jameson, Spirache recognized her, tried to reach her in anger, but he was stopped. He threatened Jameson and he was arrested soon. After spending some years in prison, he manged to escape and live as an outlaw in the forests of the Carpathian forests. It seems that, when he heard of the riot Helena tried on her last night, he would have said: ”That is my little girl.” 
+Spirache, the father of Helena, had a breakdown, he sought for his daughter, even managed to kill some gangsters he suspected were responsible on her abduction. The colonel helped him in many ways, both on trial, and in prison. It is said that, when Helena started to appear a ventriloquist doll in the shows of Jameson, Spirache recognized her, tried to reach her in anger, but he was stopped. He threatened Jameson and he was arrested soon. After spending some years in prison, he manged to escape and live as an outlaw in the forests of the Carpathian forests. It seems that, when he heard of the riot Helena tried on her last night, he would have said: ”That is my little girl.”
 
 &#x200B;
 
@@ -170,7 +170,7 @@ The gate was locked from the outside, with a big lock, but this does not mean th
 
 &#x200B;
 
-I was a fine, because I wore that day clothes that allowed me to do this pretty easily. I have got a little dirty, but this was just the start. I have made some noise. The yard had some leftover of factory machinery, that now could only be send to be recycle the materials or, at beast, for spare parts (probably there was, technically, little probability for that either). I tried to make some as little noise as possible, but the gravel on the ground made it harder. There was some movement from the building, so I quickly hid behind a machinery. A big man, with big muscles and buzzcut, with black t-shirt came out of the building. Very Eastern European gangster like. So, it seems Marcel was right. 
+I was a fine, because I wore that day clothes that allowed me to do this pretty easily. I have got a little dirty, but this was just the start. I have made some noise. The yard had some leftover of factory machinery, that now could only be send to be recycle the materials or, at beast, for spare parts (probably there was, technically, little probability for that either). I tried to make some as little noise as possible, but the gravel on the ground made it harder. There was some movement from the building, so I quickly hid behind a machinery. A big man, with big muscles and buzzcut, with black t-shirt came out of the building. Very Eastern European gangster like. So, it seems Marcel was right.
 
 &#x200B;
 
@@ -190,7 +190,7 @@ Cougar came down to me, took my face in his hand brutally and said: ”That„s 
 
 &#x200B;
 
- ”Now, look at that! He said surprised! I know you from TV. You interviewed me some years ago. What are you doing here?” ”Exposing all the scumbags like you.” He smiled. ”How come?” ” People will come for me, who know I am here and why I am here.” I did my best to sound angry and confident. I do not know how it went, I assume lamely.
+”Now, look at that! He said surprised! I know you from TV. You interviewed me some years ago. What are you doing here?” ”Exposing all the scumbags like you.” He smiled. ”How come?” ” People will come for me, who know I am here and why I am here.” I did my best to sound angry and confident. I do not know how it went, I assume lamely.
 
 &#x200B;
 
@@ -210,7 +210,7 @@ I was slowly awaken by Cougar shouting: ”Power if out.” I came to my sense. 
 
 &#x200B;
 
-Ok. One more update on all this. How we all escaped. And the rest. It seems that I need to stop here, although I wanted to tell the end now. Sorry again. See tomorrow, I guess.
+Ok. One more update on all this. How we all escaped. And the rest. It seems that I need to stop here, although I wanted to tell the end now. Sorry again. See tomorrow you, I guess.
 
 &#x200B;
 

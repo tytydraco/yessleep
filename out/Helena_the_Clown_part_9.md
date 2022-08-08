@@ -82,7 +82,7 @@ As I exited the house, I turned to them: ”You know, if keep going like that, s
 
 &#x200B;
 
-We reached the car and went close to the house of Niculina, where Martha pointed the the layer of Helena. We waited. Father George whispered some prayers, put on the epithrachelion (the stole of Eastern Orthodox priests), prepared his cross, oil from the Unction, holy water and we waited. It was not long and the lights went off. The gate started to screech slowly, and I decided to get out. Father George grabbed my hand, trying to stop me, whispering that he will go. But I disobeyed and went out.
+We reached the car and went close to the house of Niculina, where Martha pointed the the lair of Helena. We waited. Father George whispered some prayers, put on the epithrachelion (the stole of Eastern Orthodox priests), prepared his cross, oil from the Unction, holy water and we waited. It was not long and the lights went off. The gate started to screech slowly, and I decided to get out. Father George grabbed my hand, trying to stop me, whispering that he will go. But I disobeyed and went out.
 
 &#x200B;
 
