@@ -163,3 +163,5 @@ The driver gave me a look, noticing my pale expression and probably concerned th
 I said nothing, just staring at Sarah and realizing that with her gone the last chance of finding the book was gone as well. 
 
 “It’s too late now,” I whispered. Too late for anything.
+
+[update](https://www.reddit.com/r/nosleep/comments/wjdrg8/i_found_a_life_size_doll_inside_the_walls_of_my/?ref=share&ref_source=link)
