@@ -1,0 +1,27 @@
+I woke up to hear Big Daddy’s metal feet clanking down the hall. I shuffled in my bed waiting for him to unlock the door, when I heard the deadbolt open, I saw his square pixelated face smile.
+
+“Hi Case1”
+
+I squealed with joy, “eeeeee!!”  I was excited to play with my friends! It was Pancake Monday, which meant it was unlimited pancakes for breakfast!! Big Daddy, came to my bed and unchained my feet. I was excited to move and he held me in his big metal arms. I snuggled up to him, I loved him so much. He cared for us, gave us toys, loved us, fed us and always listened to us. Except for the experiments. 
+
+He held me close and brought me out to play with the other girls. Molly and Megan looked at me with joy, we all couldn’t smile so we learned to read facial expressions. Of course, it was hard to make any month movements with our mouths sewn shut. We were used to it, we had our own secret language we used by humming. It was so fun, I hummed, “Can we play dolls and have a tea party today?” The girls squealed happily. Big Daddy couldn’t understand us, so we heard his big mental body walk away, his wires moving like worms. We all played together while waiting for our pancakes. We’d gotten used to the men in the white coats watching us, we didn’t even notice them anymore. They were behind glass anyway. 
+
+Finally, Big Daddy came out with a platter of pancakes! We were so excited! Big Daddy quickly pulled out our stitches from our mouths with his tweezer hand. That’s the cue to dig in! Molly, me and Megan took huge helpings with lots of syrup, sprinkles and whip cream. So yummy! We dreaded the sleepy juice, it was suppose to be orange juice but it never tasted like oranges. So yucky. But if we finished our sleepy juice we could go back for seconds and get real orange juice! It was worth it! If we didn’t drink they’d pour it in our mouths anyways and we wouldn’t get any real orange juice, so we always raced to see who could gulp it first, I won today!!!
+
+After we ate, the sleepy juice started to kick in, Big Daddy put our stitches back and carried us each to our rooms, hopefully I’d sleep through the whole experiment. 
+
+I woke up in my room and the experiment was under way. I felt Big Daddy between my legs, pushing in and out. Luckily when I woke up he was almost done. I turned my head to the window and looked at the men in the white coats with their big buttons and levers. Pulling and pushing. I always wondered what they were for. Big Daddy finally finished and gave me a smile on his screen. 
+
+He looked up at the men and said, “Serum Number 1062.”
+
+I had the highest number than everyone else! He unchained me, his stomach opened and today he gave me a coloring book and some markers! I wondered what the other girls got as gifts. I was hoping Molly got a new Teddy bear that we could play with, maybe a pink one! 
+
+We had to sit in our rooms for a while after the experiment was over so the men could write on their pads. I always felt different after each experiment, sometimes I could take off my arms and use my head to make them fly around the room or I would be able to see through the walls, or sometimes my dolls moved! This time I could talk to through the glass to the men in their coats and they talked back. Asking me questions about what I was drawing and what the picture looks like. They told me to draw funny things, like eyes and numbers. All while writing in their pads. The other girls always have stories after their experiment too. Everyone has different stories. Today Molly said she could move her Teddy bear with her mind. So weird. She was only on Serum 679, so far behind. She even had one of the higher number! 
+
+The feelings go away pretty quickly and we get to go back out and play. If we’re good sometimes we get to go see the other girls on Monday’s. Then we get to play tag or have big tea parties. We get more food food, like cupcakes, candy and chips. 
+
+We went today! The other girls all have different gifts from their Big Daddy’s and I’m always so happy when I see a new toy, there’s a lot of trading to get different toys. It’s never fun the rest of the week, the other meals aren’t very good and we don’t get to play as much. We eat gooey oat meal and green drinks for the rest of the week until Monday. It’s suppose to keep us healthy, but I just wish we had pancakes everyday! I wish we could see the other girls more often, only some Monday’s is the worst. This is the first time in four Monday’s. I would love to play with Cindy, Mindy, Molly and Megan all together more. They were the only girls that wouldn’t make fun of my name. I wish I had a pretty name. 
+
+It makes me so happy when I get to meet the new girls from other places. They have stories about what it’s like outside our building. I’ve been here as long as I can remember, I think they’re making it up. I’ve never heard of “trees” or “grass”. Such funny words! But when I tell them my name they scream and run. Molly and Megan always give me hugs, then we go back and play with Mindy and Cindy. It doesn’t bother me much. We played for a long time! I traded my coloring book for one of Mindy’s puzzles. I love puzzles. 
+
+This Monday was the best! I can’t wait until next Monday!
