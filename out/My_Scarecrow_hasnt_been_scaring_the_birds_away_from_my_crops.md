@@ -8,13 +8,13 @@ I stand in front of my field, sighing, looking ahead at my crops. The corn, whea
 
 Jane puts a hand on my shoulder. "It's going to be okay. We can just regrow them," she pats my shoulder as I let out a deep breath to control my frustration.
 
-"You're right. I'm just..." I stay silent for momentarily as I glance at Jane. "...Tired." I kiss her on the forehead, beginning to walk into the field toward the scarecrow.
+"You're right. I'm just..." I stay silent momentarily as I glance at Jane. "...Tired." I kiss her on the forehead, beginning to walk into the field toward the scarecrow.
 
 I walked into the field, moving the tall crops around, taking steady steps as I got closer. I take a few more steps before getting in front of the scarecrow, looking up at it. I shook my head as I gazed at its arms stretched to its side, its cut-in eye holes with no life in them.
 
 "Well then," I say up to the scarecrow as if I was going to get a response back. "You didn't do your job, you straw bastard,"
 
-I watched as the wind started blowing its hat forward, the old clothes it was wearing moving with it, flapping in the wind. I shook my head as I moved my hands up at it, readjusting it higher on its pole. It looked like it had slid down a bit. I was wondering if the birds could even see it. I searched the area to see if any birds were flying by but I didn't.
+I watched as the wind started blowing its hat forward, the old clothes it was wearing moving with it, flapping in the wind. I shook my head as I moved my hands up at it, readjusting it higher on its pole. It looked like it had slid down a bit. I was wondering if the birds could even see it, even if the crops weren't that tall. I searched the area to see if any birds were flying by but I didn't.
 
 I stuck the scarecrow at the top of the pole, making sure it stayed in place before I walked out of the field and back into the house. I snatched my car keys from the counter and walked back outside to my truck, preparing to go to the store to pick up more seeds since I was running out.
 
@@ -34,7 +34,7 @@ As I walked past him, going towards the aisle where the seeds were, I felt the h
 
 "Why's that?" He says in the same shaky voice. I start getting more impatient.
 
-"Because some birds must've come into the field last night and ate most of the crops I grew yesterday. I have a scarecrow, but..." I stopped mid-sentence as I rubbed my forehead. I couldn't believe I was telling this to a homeless guy who clearly had mental issues. I turned around to walk away before the man said something else.
+"Because some birds must've come into the field last night and ate most of the crops I grew yesterday. I have a scarecrow, but..." I stopped mid-sentence as I rubbed my forehead, resting my pinkie finger on my right cheekbone. I couldn't believe I was telling this to a homeless guy who clearly had mental issues. I turned around to walk away before the man said something else.
 
 "Oh, I don't trust scarecrows. Not at all," his voice gets less shaky. This time, his voice was calmer and more controlled. I turn back around after he says that, chuckling.
 
@@ -144,7 +144,7 @@ It was Jane.
 
 I start stuttering as I try saying something else. "What's wrong with you? What- What's happening?" I sputter out. Jane continues smiling at me, almost menacingly. I swallow hard.
 
-"Because, you just do such a good job on these crops, and, they're just sooo good!" Janes's skin gets paler as the sky gets darker. I was still in shock, starting to get terrified of my own wife. "But I think I know what to do now. What a wonderful feeling and thought I had been getting for the past couple of days!"
+"Because, you just do such a good job on these crops, and, they're just sooo good!" Janes's skin gets paler, almost cracking, as the sky gets darker. I was still in shock, starting to get terrified of my own wife. "But I think I know what to do now. What a wonderful feeling and thought I had been getting for the past couple of days!"
 
 I tried to say something, but I couldn't form any words. I tried to move, but I was in too much shock and fear to do that either. All I could do was watch as Jane moved closer and closer to me. "I think the scarecrow was a good idea, honey..." She starts saying to me, and as she started putting her hands on me, I blacked out.
 
@@ -172,7 +172,7 @@ Sometimes Jane lets me off the pole so I can move around and go into the house. 
 
 I managed to crawl, basically limp up the stairs, and go into the bedroom, which is how I'm typing this out now; in an attempt to get help, so somebody here can help me escape this hell. I'm tired of only seeing crops, the only thing I see. The scarecrow is becoming a part of me, and it did something to Jane. I don't know how much longer I have before I have to go back to my place. To watch over the field. Like a scarecrow should.
 
-I've already tried ripping the scarecrow off of me, to get out of it with my now free arms but nothing works, I'm practically stuck in it. I don't know how much longer I can live like this. It's getting harder to breathe. The head is getting tighter now. Whenever I move now, it's like I'm experiencing growing pains with every step.
+I've already tried ripping the scarecrow off of me, to get out of it with my now free arms but nothing works, I'm practically stuck in it. I don't know how much longer I can live like this. It's getting harder to breathe. The head is getting tighter now. Whenever I move, it's like I'm experiencing growing pains with every step.
 
 Please let me out, Jane. Please help me.
 

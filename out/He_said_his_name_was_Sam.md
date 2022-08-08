@@ -342,4 +342,6 @@ There was a thump upstairs and we both paused and looked towards the stairs.
 
 I could hear the tobacco burn as she drew on her cigarette. “And I just checked where I buried him, and wouldn’t you know it?” Her eyes searched the ceiling.
 
-“He’s not there [anymore](https://www.reddit.com/r/thespookyplace/).”
+“He’s not there anymore.”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/witalv/he_said_his_name_was_sam_part_2/)

@@ -1,0 +1,27 @@
+
+
+I’m currently locked in the bathroom, on a Christmas night. Most people right now, are probably having a grand Christmas feast, celebrating with family. But I on the other hand, is spending this Christmas, hiding in the bathroom, with some monster on the other side of the door, wanting me to open the door, so that it can murder me like what it did to my family. This is probably the last bloody Christmas I’d ever have. 
+
+But I don’t listen to that demons , I’m staying put inside the bathroom, whilst I wait for the police. I just called them a few moments ago, and they said they would send a few police to my house, in twenty minutes. A pit in my stomach however knows that, by the time the police get here, that demonic man would’ve already taken me, and done probably the same thing it did to my parents. 
+
+I’m writing on here, to see if any of you guys know what this creature is, and maybe if I’m lucky someone would tell me what the creatures weakness is, so that I can use it against it, and save myself. So anyways, I’ll explain what happen prior to this.
+
+12 days ago, my younger sister Isabelle(that demonic man put her in some red sac) began to complain about seeing some man, looking at her through her bedroom window. Of course, no one believed her. We all thought it was her imagining things, Isabelle after all is six, and children at that age have a wild imagination. 
+
+She still kept on moaning about seeing a man, peering through her window. Then a couple of days later, my other younger sister Hannah, then to began complaining about seeing a man. It was madness
+
+Then I began to see it as well. It was always standing in the distance, motionless, staring at me through my window. It was lanky, very tall, and despite it being snowy and cold outside, it was stark naked. I believed it to be some lunatic, or homeless person. It very scary, and sometimes I’d wake up in the middle of the night, with the sensation of something watching me through the large window, at the back of my bed. 
+
+I knew that if I got up, and turned around and spread the curtains apart, I’d be face to face with that man who is behind the thin glass of the window. Because I was scared, I’d put the covers over my head, and say a couple of prayers. Wishing that, man would disappear. But no matter how many times I’d pray, I’d still have the sensation of the man peering down from me from the window. 
+
+A couple days later, my parents began to complain of a stench. A stench that smelled of rotten meat all throughout the house. I and my siblings, couldn’t smell it, so perhaps he made his presence known to adults in a different way. On the 12th day, when it was Christmas they hired a priest they chose to do it at this time, because supposedly Christmas a holy day is when demons are weaker. It went horribly wrong, as the priest was finishing his prayer, that monster crawled out of the fucking chimney holding a red sack, looking like a messed up version of Santa. It was tall, to the point its head reached the ceiling, how it managed to fit in our small chimney is beyond me. Black veins, were visible through its stark white skin, and its eyes were black, completely, empty and soulless. It also had a long white beard, which was a tangled mess, it reached all the way down to the floor. It also wore the traditional Santa coat , and hat 
+
+The priest grabbed a vial of holy water and threw it at the monster. The monster hissed in pain, and then with one swift motion, beheaded the priest with a slap. Mum was screaming, and hugging my sisters, and dad had a gun in his hand aiming it at the monster. The monsters smiled widened. ‘Christmas is a celebration for you humans, you eat, and get together. Well, it’s also a celebration for my kind, and you humans are the Turkey on the plate’ my father fired bullets at the creature, and the creature caught the bullets with its hand. 
+
+Sweat pooled down my dads head, when he realized there was no bullets left in the gun. We were all screwed. The demon tossed the bullets, towards my dad, and they pierced him effortlessly. One went through his head, arms, and stomach. He was dead, before he could hit the floor. 
+
+The demon then frowned in dissapointment. ‘That was boring. He’s dead already’ I then saw it rip a screaming Isabelle out of my mothers arms, and stuff her into that large red sac. Black tentacle like appendages, which were smoky, began to protrude from the creatures abdomen, I watched in terror as the appendages seized Hannah and mum, hoisted them upside down. 'Watch the show' the creature said, with a sadistic grin on its face. I watched in terror, as it retrieved a large knife, from within the red sac. I didnt see what the hell it was doing to them, because I ran out of the room, like the speed of light, and no matter how many times I tried opening the front door, it wouldn’t bloody open. Maybe that monster did something to it. 
+
+I then ran to the nearby bathroom, locked the door. Being forced to listen to my sibling and mothers blood curdling screams, till they became quiet. Deathly quiet. As soon as it was done with them, the creature, is now knocking on the door. Taunting me repeating. 'Elora, don't you want to see the present I made especially for you?' I've called the police, and they're coming soon, but by the time they come here, that monster would already have taken me. 
+
+Whatever that present is I don't want it. Please leave me be.
