@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/whqe40/if_you_come_across_a_carousel_in_the_woods_i_beg/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wiwpst/if_you_come_across_a_carousel_in_the_woods_i_beg/)
+
 My mom used to take me on walks after she and her boyfriends fought when I was a kid. We’d walk around our little town and eventually wander out to the park at the edge of town. 
 
 Those walks were one of the few pleasant memories of my childhood. My infantile memory remembers the idyllic summer walks at twilight, with crickets singing all around like they were scoring a childhood that was less traumatic. 
@@ -18,7 +22,7 @@ The last thing I remember of my mom was seeing her long red hair, flowing in the
 
 I looked ahead to see the other horses and carriages bobbing up and down in that carousel rhythm. 
 
-Then I looked back to my mom’s horse and *she was gone.* 
+Then I looked back to my mom’s horse and *she was gone.*
 
 I tried to climb down off of the horse, but couldn’t, it was too high, and the speed of the carousel got faster and faster. 
 

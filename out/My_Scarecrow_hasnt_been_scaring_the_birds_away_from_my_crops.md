@@ -18,6 +18,8 @@ I watched as the wind started blowing its hat forward, the old clothes it was we
 
 I stuck the scarecrow at the top of the pole, making sure it stayed in place before I walked out of the field and back into the house. I snatched my car keys from the counter and walked back outside to my truck, preparing to go to the store to pick up more seeds since I was running out.
 
+What did confuse me was the fact that nearly overnight, my crops had grown, and that just isn't possible. I use a good fertilizer but it doesn't speed up the process. It struck me as extremely out of the ordinary but I never thought much of it and considered it more of a blessing, though I should've been more weary about it.
+
 If you couldn't tell already, me and my wife Jane lived on a farm. I'm fairly young, but I grew up on a farm with my father. He passed away 2 years ago, and it continues to pain me to this day. Before, we lived in a suburban neighborhood, but we decided to buy a house on a farm after his death so we could carry on his lifestyle, and live a quieter life.
 
 I made it to our local store, which is about a mile from our house. I really didn't want to harvest crops, but unfortunately, the scarecrow was a piece of shit, so I had to. I got out of my car, putting my keys in my pocket as I walked through the doors.
@@ -70,9 +72,9 @@ Jane puts her phone on her nightstand, plugging it into her charger, and turns o
 
 The next morning I woke up at around 8 AM. I looked to my side and saw that Jane was still fast asleep. I rubbed my eyes as the sun began shining through the curtains, lighting up the room. I slowly got up, stretching, as I walked out of the bedroom and down the stairs.
 
-In the mornings, the first thing I do is check on the field, to make sure the crops were in good shape and that nobody was hanging out in our yard. I slipped my sandals on as I walked out of the door towards the field.
+In the mornings, the first thing I do is check on the field, to make sure there wasn't anybody in our yard and to see how the field was doing. I slipped my sandals on as I walked out of the door towards the field.
 
-I started examining the field closely, my heart sinking as I saw the crops I had just harvested yesterday were eaten by birds again.
+I started examining the field closely, my heart sinking as I saw the crops I had just grown yesterday were already grown and eaten by birds again.
 
 I nearly started screaming in anger, but I controlled it as I sat down on the porch, sitting there for a while, staring into the field. It didn't make sense. How were the birds eating our crops with the scarecrow? Was it not scaring them away?
 

@@ -1,3 +1,7 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/wggjh7/if_you_come_upon_a_carousel_in_the_woods_i_beg/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wiwpst/if_you_come_across_a_carousel_in_the_woods_i_beg/)
+
 Ian showed up at my house one night. I hugged him tight. Then I had to know what happened. 
 
 He wasn’t sure how it happened, but he knew what happened, and knew what the carousels were now. 
@@ -18,7 +22,7 @@ He fought. He got sucked down for a few minutes, but he kept fighting the hopele
 
 *I’m not sure if I believed him. He certainly seemed hopeless and negative sitting on the floor of my apartment.* 
 
-Something was off about Ian. He wasn’t himself anymore. He seemed high. Like he wasn’t really there. 
+Something was off about Ian. He wasn’t himself anymore. He seemed high. Like he wasn’t really there.
 
 I changed the subject and just talked to him about life for the rest of the night. I got the feeling I might never see him again. He looked weak. Like he could barely keep himself upright. I could hardly look at him. 
 
