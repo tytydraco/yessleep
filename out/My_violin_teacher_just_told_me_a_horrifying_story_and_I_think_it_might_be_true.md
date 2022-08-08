@@ -1,3 +1,7 @@
+[PART 2](https://www.reddit.com/r/nosleep/comments/wjl96z/my_violin_teacher_opened_up_some_more_and_now_i/)
+
+&#x200B;
+
 My violin instructor’s name is Therese, and I have never heard someone play an instrument so beautifully as she does. Her fingers danced over the strings in a caress, and the sound was otherworldly. I started taking violin lessons from her over 3 years ago, and still have yet to come close to the sound she was able to draw out of her violin. She would hold it almost reverently, eyes partway closed as she swayed to the music.
 
 It never seemed to matter what song Therese played, her violin always lent an eerie, haunting tone to the piece. Perhaps it was the uniqueness of its design. I had never seen a violin that wasn’t a deep brown in color, but hers was a smooth ashy beige. I’d never seen wood with such a smooth, grainless finish before, and it fascinated me. I thought to myself that I wished I could own one just like it, that maybe I’d be able to play even half as beautifully as Therese if I had a special violin.
