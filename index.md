@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4741
+file count: 4743
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -2875,6 +2875,7 @@ file count: 4741
 * [My Subconscious is Whispering to Me While I Sleep](out/My_Subconscious_is_Whispering_to_Me_While_I_Sleep.md)
 * [My sugar daddy asks me for weird favors Part 2](out/My_sugar_daddy_asks_me_for_weird_favors_Part_2.md)
 * [My sugar daddy asks me for weird favors](out/My_sugar_daddy_asks_me_for_weird_favors.md)
+* [My team was tasked to go spelunking and recover ancient artifacts We should have stayed home Part 1](out/My_team_was_tasked_to_go_spelunking_and_recover_ancient_artifacts_We_should_have_stayed_home_Part_1.md)
 * [My TenYearOld Wont Stop Playing With Teddy Bears](out/My_TenYearOld_Wont_Stop_Playing_With_Teddy_Bears.md)
 * [My terminally ill grandmother broke character](out/My_terminally_ill_grandmother_broke_character.md)
 * [My time is running low](out/My_time_is_running_low.md)
@@ -3236,8 +3237,8 @@ file count: 4741
 * [Side Effects](out/Side_Effects.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
-* [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
+* [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
@@ -3526,8 +3527,8 @@ file count: 4741
 * [The Cabin in the Woods](out/The_Cabin_in_the_Woods.md)
 * [The Cabin Just Outside of Town](out/The_Cabin_Just_Outside_of_Town.md)
 * [The Call of Two Waterslides](out/The_Call_of_Two_Waterslides.md)
-* [The call](out/The_call.md)
 * [The Call](out/The_Call.md)
+* [The call](out/The_call.md)
 * [The calls](out/The_calls.md)
 * [The Cameras Are Always Watching](out/The_Cameras_Are_Always_Watching.md)
 * [The CandleLit Road of Hollows Hold Grove](out/The_CandleLit_Road_of_Hollows_Hold_Grove.md)
@@ -3927,8 +3928,8 @@ file count: 4741
 * [The old man](out/The_old_man.md)
 * [The Old Schoolhouses Curse](out/The_Old_Schoolhouses_Curse.md)
 * [The one time I dont lock my door](out/The_one_time_I_dont_lock_my_door.md)
-* [The One Who Follows](out/The_One_Who_Follows.md)
 * [The one who follows](out/The_one_who_follows.md)
+* [The One Who Follows](out/The_One_Who_Follows.md)
 * [The only time I encountered sleep paralysis](out/The_only_time_I_encountered_sleep_paralysis.md)
 * [The only time I gave a one star Uber rating](out/The_only_time_I_gave_a_one_star_Uber_rating.md)
 * [The Only Warning About Pendle Hill Part 1](out/The_Only_Warning_About_Pendle_Hill_Part_1.md)
@@ -4169,6 +4170,7 @@ file count: 4741
 * [There are no such things as demons](out/There_are_no_such_things_as_demons.md)
 * [There are people living inside my walls](out/There_are_people_living_inside_my_walls.md)
 * [There are people outside my window at night and they wont stop singing](out/There_are_people_outside_my_window_at_night_and_they_wont_stop_singing.md)
+* [There are some things worse than dealing drugs](out/There_are_some_things_worse_than_dealing_drugs.md)
 * [There are strange meteorological events happening in my old town](out/There_are_strange_meteorological_events_happening_in_my_old_town.md)
 * [There are things that roam the park that are not natural](out/There_are_things_that_roam_the_park_that_are_not_natural.md)
 * [There are Wikipedia entries on the Dark Web I found an article about my life there](out/There_are_Wikipedia_entries_on_the_Dark_Web_I_found_an_article_about_my_life_there.md)
