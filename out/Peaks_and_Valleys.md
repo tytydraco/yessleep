@@ -1,0 +1,31 @@
+34 hours.
+
+That's how long it took for them to find me and my truck, 168kms east of Dease lake in the woods. Never have felt shittier in my life and I've passed a few stones in my day but after those few days the stones seemed like slivers.
+
+So you might be wondering "Who is this guy? what is he talking about?! Where is Dease lake?! What the hell is a Cassiar????" Well my friend, allow me to explain. If you were to begin your journey in the beautiful town of Smithers B.C, you would head about 5 hours west to Junction 37A, which splits the highway into two directions. The first option is south, towards the town of Stewart or, you head north towards Dease Lake and the Yukon.
+
+Let me give you a description of what it's like on this lovely 12 hour drive, the mountains kiss the sky, the swamps and small lakes dot the land surrounding the highway, the trees grow thick and strong with wildlife the plenty.
+
+Sounds awesome right? Only pros? Well the highway has its drawbacks, see its called the highway of tears due to the amount of indigenous women that go missing hitchhiking. A second con, which really ended up being what prevented me from getting out of this situation is the lack of service, no cell reception for about 400kms. How is this relevant you might be wondering? Well, here's the story of how my truck ended up with a tree through the middle of it and how I ended up in the top of said tree.
+
+I work in the mining industry, Potash mostly but I know how to run some certain blasting equipment that was needed up in the Yukon, I won't get into detail but you get the point. I started in Vernon and began to make my adventure northwest towards Smithers, staying the night in one of the many Motor inns and picking up the next morning bright and early toward Watson Lake. Dawson City was my end destination but I didn't want to drive more then 12 hours a day. 
+
+About 7 hours into my Journey however, I took a corner going a buck-40 and lost traction, of course in my all knowing wisdom I decided hauling ass in the rain was a genius idea. I rolled four times into the wood and landed about 90 meters from the highway, due to the force of impact, I blacked out. I woke up in the dark, I couldn't see a damn thing and just as luck would have it my phone was dead, not that it'd help much but a light would be nice.
+
+I decided to make the smart decision and stay close to the truck, hoping and praying that someone might hear my screams for help and if not then I'd be able to keep the bears away with the ruckus. 
+
+Now it was around this time shit got weird, being late August it got cold at night, but the air felt... warm, still, but warm. The woods were silent and the bugs weren't out in full force like they usually were. After 2 hours the felt the truck shake.
+
+I whipped my head around to see if maybe a bear or bison had rubbed up against it, but not a single silhouette was around, outside of the trees. I'll never forget the thick black almost milky darkness that spilled from those woods, it washed around my surroundings like a rogue wave. So there I sat, in pitch black, with no service and no vision, and now my truck was mysteriously shaking. It happened every 2 minutes, as if on a synchronis rhythm.
+
+When the clouds revealed the moon, the mountains became clear. I could see! "Thank God" was the only thing flying through my mind, I spent a good 10 minutes staring at the beauty of the sky behind the mountains, with no light pollution I could see beautiful pinks and blues in the sky. Each mountain made an almost perfect line of peaks and valleys. Except for the one that was the furthest back which stood like a tall monolith, standing as an example of millions of years of tectonic movement. As I took in the beauty of this ancient natural structure, a realization was made in the back of my mind. It was growing... My truck was shaking and this mountain was growing.
+
+I was confused at first, but that quickly devolved into fear then panic. I ran over to my truck and with all the strength I had tried flipping it back onto its wheels, of course it didn't exactly work the way I hoped it too, so I dove in. From the back seat I watched as the "Mountain" grew into view only to find out it was no mountain at all, yet a massive amalgamation of stone, flora and flesh. It got within 60 feet, which to it must've been the size of an eyelash. It was roughly humanoid with multiple limbs and appendages and I was soon to see them up close. It grabbed my truck with what I only assume could've been its equivalent of a thumb and index finger and began to take me through the woods. 
+
+The "Mountains" flesh was dirt, wood and stone. As if it was the embodiment of nature. Each step cleared acres, until it stopped and lifted me a few thousand meters up to its "eye" where when it was done lifting me and my truck up to its desired height above the clouds, an "eyelid" of stone cracked and popped open. It peered through my window making a direct eye contact. In my mind I had a thought, not of mine but of foreign source and it "spoke" in a voice that sounded like a 80 year old man who smoked a carton a day. It's spoke only a few sentences but enough to make me fear the forest for the rest of my life. "Your species is a parasite, we are the cure. You are the sickness and we will purge. Expansion and greed will be your downfall for you cannot control what you did not create" 
+
+As it lowered me down I saw creatures crawling on its "legs", tall and pale with nothing but bone, covered in fur with rams horns and hands, the list goes on. 
+
+I fell once more, my truck being speared through the middle creating a gaping hole in the roof, I climbed through making my way toward the top of the tree to see if I could see it once more. The last thing I saw was a mountain, settling in its place and joining the beautiful landscape. The Cassiar highway has many stories, of serial killers and ghosts the like, cryptic and ghouls roaming the woods, and I think I met the source. It's the mountains and hills, they have eyes and in those eyes it's plain to see.
+
+We are not welcome.
