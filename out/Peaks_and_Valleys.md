@@ -14,7 +14,7 @@ About 7 hours into my Journey however, I took a corner going a buck-40 and lost 
 
 I decided to make the smart decision and stay close to the truck, hoping and praying that someone might hear my screams for help and if not then I'd be able to keep the bears away with the ruckus. 
 
-Now it was around this time shit got weird, being late August it got cold at night, but the air felt... warm, still, but warm. The woods were silent and the bugs weren't out in full force like they usually were. After 2 hours the felt the truck shake.
+Now it was around this time shit got weird, being late August it got cold at night, but the air felt... warm, still, but warm. The woods were silent and the bugs weren't out in full force like they usually were. After 2 hours I felt the truck shake.
 
 I whipped my head around to see if maybe a bear or bison had rubbed up against it, but not a single silhouette was around, outside of the trees. I'll never forget the thick black almost milky darkness that spilled from those woods, it washed around my surroundings like a rogue wave. So there I sat, in pitch black, with no service and no vision, and now my truck was mysteriously shaking. It happened every 2 minutes, as if on a synchronis rhythm.
 
