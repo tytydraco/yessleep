@@ -164,3 +164,5 @@ I heard the doll scratch against the door for a moment as I shoved some of the f
 “Mother of Christ,” he said as he rubbed his neck. 
 
 I knew it was probably the worst timing but despite how shaken up I was, all I responded with was, “ Now do you believe me?”
+
+[update](https://www.reddit.com/r/nosleep/comments/wka5kb/i_found_a_life_size_doll_inside_the_walls_of_my/?ref=share&ref_source=link)

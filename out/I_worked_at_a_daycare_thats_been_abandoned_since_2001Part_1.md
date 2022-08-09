@@ -77,3 +77,5 @@ I tried calling my mother on the phone to ask her to come there and take me back
 Yes, I was absolutely certain it was the exact same café. First the daycare and now this! Seriously, it was as if the universe had decided that morning was the ideal time to make me go insane! But before I had time to question my sanity, I spotted a calendar right beside the café's counter that left me speechless.
 
 The date displayed on it was December 2001.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/wkadyb/i_worked_at_a_daycare_thats_been_abandoned_since/)
