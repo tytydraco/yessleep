@@ -1,0 +1,13 @@
+As I write this; there’s something in my room. Things even. I’ll get more info that in a moment. 
+
+Since we’ve moved into this house, 5-6 years ago I’ve always had a strange feeling, but I never said anything as I thought it was just kid stuff to have paranormal interactions. One of the main things that have stuck out to me is the woman in white. When we first moved in I had chosen to put my bed by the two biggest windows, it’s still there. One night I had peeked out the window because I had an electric and anxious feeling. What I had saw was a translucent white woman, with black hair that met her shoulders, and with a long white flowy dress. I was scared but in awe, until she stopped walking Between the two houses and stared at me. I fell back into my bed afraid, and I’m not able to even remember the rest. But I’ve always felt her presence from time to time, it was pretty much burned into me with her gaze. 
+
+But, recently there’s been a new feeling I can’t help but address,and it’s been really fucking with me, especially after tonight. I’ve always had the feeling that somebody was in my home, but every time I checked I just got left with an eerie feeling and shame. I’ve  wanted to say something to my dad; but i dont want to be made fun of or my sanity questioned. Ive heard cabinets open, walking, things messed with, etc. 
+
+But let me explain to you what happened tonight, so you understand better. 
+
+I had a dream about people breaking in, nothing that new, but I had only been asleep for around two hours as I fell asleep around 1:30 but I had been woken up around 3:00 in a sweat and right awake. I rarely ever wake up that way unlesss my parents were yelling at e to get up, or someone was standing in my room, an example being my little sister. Well I felt unable to move for the longest time, I was only able to barely move my body or arms, which at first I thought maybe sleep paralysis, but the closes thing I saw to a demon was just darkness moving around the door. Eventually I had enough strength to move and sit up, but that’s when I saw it. Both of them.
+
+By my sisters empty bed, I see a fucking head shape , a pure shadow, on the other side which struck fear into me instantly. Then I loook my the dresser and a crooked woman witch like figure stood hunched over. At first I felt slight relief that she was probably a sweater or hoodie, but my eyes go down to where it meets the floor in an i natural way.My heart sank and I felt piercing eyes stare at me. I tried take a photo but when I enhanced it, it had come out all funky loooking. 
+
+I’m currently hiding underr my blanket writing this, I don’t know what to do . I hear a bunch of movement on and off, but it’s starting to get way too hot under here, what should I do???!
