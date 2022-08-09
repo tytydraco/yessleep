@@ -10,4 +10,4 @@ I had a dream about people breaking in, nothing that new, but I had only been as
 
 By my sisters empty bed, I see a fucking head shape , a pure shadow, on the other side which struck fear into me instantly. Then I loook my the dresser and a crooked woman witch like figure stood hunched over. At first I felt slight relief that she was probably a sweater or hoodie, but my eyes go down to where it meets the floor in an i natural way.My heart sank and I felt piercing eyes stare at me. I tried take a photo but when I enhanced it, it had come out all funky loooking. 
 
-I’m currently hiding underr my blanket writing this, I don’t know what to do . I hear a bunch of movement on and off, but it’s starting to get way too hot under here, what should I do???!
+I’m currently hiding underr my blanket writing this, I don’t know what to do . I hear a bunch of movement on and off, but it’s starting to get hot under here. I’ll update In the morning.
