@@ -146,6 +146,6 @@ Again, I just couldn't bring myself to answer her. It felt like opening my mouth
 
 Inside was a mess of matted black fur, and I reckoned I could hazard a pretty good guess at where it came from. A certain dead omega wolf from the Hilltop Preserve. I thought back to how I'd made eye contact with the thing wearing its skin, wondering if it could tell that I knew. 
 
-Then another morbid thought occurred to me. If this thing kills in order to change its shape, who's skin was it wearing now?
+Then another morbid thought occurred to me. If this thing kills in order to change its shape, who was it wearing now?
 
 Well, I shuddered, looking down at the stinking pelt. One mystery at a time.
