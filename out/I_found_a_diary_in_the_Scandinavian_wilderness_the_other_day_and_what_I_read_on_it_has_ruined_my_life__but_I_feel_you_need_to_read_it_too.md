@@ -1,0 +1,37 @@
+I was hiking alone in northern Sweden, two days after the sudden death of my father. I was trying to numb my mind, and so far, it had worked, as I’d forgotten most of the specifics (even if that wasn’t neciserally a good thing). I’d reached the top of a trail through a rather large mountain range, and as the wind was rather heavy, I had the hood of my parka up, and my face staring at the track below me. It was a rather dull view of stones and dirt covered with a frosting of snow, but it was better than having my eyes blown back through my skull. Besides, it wasn’t like I could see much in front of me anyways. As I was walking, facing the ground, I noticed a dull metal triangle peeking out of a snowdrift in my peripheral vision. I stopped my march forwards and turned to try to pry out whatever it was. As my hands touched the freezing cold metal, I realized that it was the corner of a metal strongbox, that had been engulfed by a snowdrift. I picked it up and tried fiddling with lid. It was locked, but if I could find a stone big enough, I felt sure I could smash the thing open. I looked back at the path, and sure enough, there was a large piece of flint, perfectly shaped for the job. I reached to pick it up, and with as much force as I could, brought it down upon the rusted latch holding the two halves of the box together. It bent in a rather sad way, then the bottom of it cracked, and it fell off into the snowdrift below. I threw the flint down and opened the lid, tentatively, so as not to hurt my hand on the broken, rusted metal. Inside was a singular notebook, wrapped up in blue felt string. I took it out gently and unwrapped the string. I opened it up and turned to a page in the middle.
+
+*April 10th, 1955*
+
+*DARREN ARCHIE LOVELOCK – MEDICAL DIARY*
+
+*The patient is showing signs of recovery. We have upped the dosage of morphine by about half and hope to see further improvement in the coming months. His heartbeat is beginning to stabilize, and his outbursts are less frequent – the blue blood has yet to stop flowing, however. Nurse Wallflower is working on a detailed review of the blood problem, but for now it seems to be yet another mystery we cannot answer – and a symptom we cannot solve with our doses of various medicines. No weight has been lost and mind still seems incredibly sharp. Patient is sleeping well, eating, and drinking, and producing the normal amount of bodily fluids (besides the blood).*
+
+*April 11th, 1955*
+
+*DARREN ARCHIE LOVELOCK – MEDICAL DIARY*
+
+*Further recovery is looking likely. The patient has been visited by family members, and this seems to have encouraged the healing process, and upped his morale. He has begun writing in a book he keeps besides him as he sleeps, and he seems even more lucid than he has ever been. The blue blood has not stopped flowing. Nurse Wallflower has found a way to reduce the loss of the blood by the use of a machine that reinserts the fluid back into the patient’s body, but it has yet to have been tried. We will see the results in the coming days. No weight loss, sleep, appetite, and moral are normal. By most measures, the patient is doing miraculously well, given the amount of blood he has lost. May he be discharged soon.*
+
+*April 13th, 1955*
+
+*DARREN ARCHIE LOVELOCK – MEDICAL DIARY*
+
+*The patient has shown rapid signs of deterioration in the past two days. Nurse Wallflower’s machine has been successful in keeping some of the blue blood in the patient’s body, but this seems to have had adverse effects. The patient has begun his outbursts again, this time much more frequently, and his heartbeat has increased again to worrying levels. Correlation does not equal causation, but one thinks that perhaps the blue blood is what is keeping this man in such a state. Nurse Eisenhower viewed the patient’s personal journal yesterday, that he had been writing in obsessively for the past few days, and she found writings as follows:*
+
+*I never wanted this to happen. I never wanted this to happen. I never wanted this to happen. I never wanted this to happen. I never wanted this to happen. I never wanted this to happen. I never wanted this to happen. I never wanted this to happen. I don’t want to leave them. They shouldn’t suffer with me. I am not going to die. I am not going to kill myself. I am not going to be killed. I will outlive them, so I may die last. And then, I can be at peace with my world, with the knowledge that I can die guiltless.* 
+
+*The patient seems to be in much distress, so the dosage of morphine has been upped again. His appetite has faded, and he has begun to drink less. However, his mind still seems to remain sharp, and he seems mostly lucid. I have talked with Nurse Wallflower about removing the blood pumping machine from his arm, but she insists that if that were to happen, there would not be enough blood in his body for him to function. I have argued my point, but it seems to have fallen on deaf ears.* 
+
+*April 16th, 1955*
+
+*DARREN ARCHIE LOVELOCK – MEDICAL DIARY*
+
+*Two days have passed since the incident involving patient 23. I have yet to catalogue the day in the patient’s medical diary, so I will do so now, with some details redacted for privacy purposes.*
+
+*The patient was visited by family members on the 14th. He seemed to be rather distraught when told that they were coming, but he eventually settled down. When they arrived, they all crowded round his bed. They brought him flowers and cards, and one of them, possibly his wife, was sobbing into his chest. There were ten minutes of awkward silence as the woman cried, and the rest of the family looked on with somber expressions. Then, after this time, the man turned his head away from them. I saw the light leaving his eyes, and as I did, I made the decision to remove Nurse Wallflower’s machine. I slipped past the family members and took the nozzle out of one side, and as I did, I made sure that the tube in which the blood was flowing, spilled discreetly out onto the floor underneath the patient’s bed. I looked up, and I made direct eye contact with the patient. He opened his mouth, and said, ‘I’m sorry you have to see me go. And I’m sorry I’ve turned away. It’s just that, well, I don’t want to see you go.’ He shivered, and then the room went silent. I looked up, and the room was empty. The man’s body lay in the bed, and various clothes were strewn across the floor. I picked up his diary and turned to the last entry. It simply said:*
+
+*It was all in my head.*
+
+*As I sit here writing this, I think I am beginning to understand. So, I too, will turn away, and say my goodbyes. Just try not to think of me, for your sake more than mine.*
+
+I sat there, and as I did, I felt a wave of dread wash over me. I remembered my father’s death. I remembered what I’d been forgetting for the past few days. I remembered why my family died, I remembered why I, right now, had to die as well. God was dead, and his world had to follow. I turn away, and I ask you, dear reader, to remember me. If you attempt to cling on to this remnant of a dream, I hope that you can continue to live your life in blissful ignorance of the reality we are now living in. Or the unreality, that we were never quite living in, in the first place. Goodbye.
