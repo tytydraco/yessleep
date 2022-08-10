@@ -1,0 +1,89 @@
+City of Los Angeles Police Department Victim/Witness Statement Form
+
+Case Number: 2172374118
+
+My name is *Charlotte Montague* and I live at *\[Redacted\], Santa Barbara, CA*. My phone number is *\[Redacted\]*. I am making the following statement concerning *the death of Luna Everheard* at *the Center for Paracognition Studies, Los Angeles*. I am making this statement voluntarily, without reward, promise of reward, threat, or force to *Det. J. Lohmann*, a police officer of the Los Angeles Police Department.
+
+Statement:
+
+Until a few hours ago, I was a research assistant at the Center for Paracognition Studies. I haven’t technically quit yet, but I don’t think I can ever go back to that mausoleum. I started with the Center last September. So I was working there about thirteen months. The pay was good for a first job out of college, although I knew going in that having a place like the Center on my resume would mean trouble for when I was ready to apply to medical school. What program would accept someone who worked in studying the supernatural? But then, who knows? The Reagan Administration made Cold War decisions on the advice of Nancy’s astrologer, and Dr. Oz is a well respected surgeon. The owners of the L.A. Dodgers paid a psychic to send the team good vibes. It’s respectable to seek miracles.
+
+I learned of the existence of the Center just before I was offered a job there. The stock market had crashed a few months before I graduated college, and the economy followed Wall Street into the abyss. I moved home and was working a part time job as a barrista at the strip mall off the 101. Pouring coffee all day sounds like an easy job, but I could never get the smell of the grinds out of my hair or my discolored skin. Sometimes a customer would scream at us for fucking up an order. The day I first heard of the Center, my manager was belittled by some jerk for not putting enough syrup in a latte and that he would be filing a complaint with corporate. She, my manager, had a panic attack. And as I held her, I decided I needed out of the service industry.
+
+I got home that afternoon to find my mom having a cocktail with Scarlett Wishborne. Mom was Wishborne’s long time assistant and confidante, and it was a point of pride for me to be able to brag that I was on a first name basis with the willowy, ethereally beautiful actress that everyone I knew had some level of crush for. When I was three, there was a day when the babysitter wasn’t available, and Scarlett let mom bring me to the set of *The Witch and the King* for the day. There’s a famous, very memed scene where Scarlett’s character, a sorceress leading a rebelion against the tyrannical king, monologues about purifying the land of corruption by trusting in her magic. All while they were shooting that scene, she focused directly on me as mom held me at the edge of the set.
+
+Growing up near L.A. had its moments.
+
+Scarlett, who I hadn’t seen since I moved home from college, rose and embraced me. She smelled like lilac and lavender, which was a nice contrast with the heinous smell of dark roast that followed me like a shadow. Mom made me a mojito, and I joined their conversation as I nibbled on a mint leaf. Scarlett talked about how her lifestyle brand, which she lovingly christened “slyme”, had a tv deal with Streamly. She had just wrapped up filming an episode about psychics and had interviewed the director of the Center for Paracognition Studies. Dr. Saoirse Conors was an academic who’s Center studied alleged psychics and their abilities. She had mentioned to Scarlett in passing that she was looking for a researcher. Scarlett offered to put in a good word for me. Two days later I received a phone call for an interview, and two weeks after that I had my first adult job.
+
+...
+
+Anyone who’s driven through L.A. has probably seen the behemoth structure that houses the Center for Paracognition Studies. Overlooking the ocean, the building doesn’t have a sharp edge to it: it’s curved and graceful and painted a perfect white. It’s reminiscent of a whale, or a ship. Before starting my job, I always thought it was an art gallery or some kind of small sports arena. Pulling into the parking lot for the first time, realizing this cool building was now my office, I felt like I had been let in on some secret that made me feel clever. There were only a couple other cars in the lot, a Porsche and a sedan.
+
+The inside of the Center is just as striking as the outside. The foyer was a brilliant, sterile white illuminated in harsh florescents. Dina, the front desk admin, gave me a warm smile and invited me to sit on one of the white leather couches while I waited for Dr. Conors. I did not have to wait long. Dr. Saoirse Conors descended the staircase behind the front desk, her footsteps echoing through the nearly empty corridors. She shook my hand and welcomed me to the Center. She said we were a small operation for the time being; it was just Dina, Dr. Conors, and me. But in everything we did, we needed to project that we were serious scientists. And Dr. Conors hoped to expand the Center’s staff to include more researchers and scientists. Thus the huge, sterile building.
+
+Dr. Conors then gave me a tour while Dina put together my paperwork. The building, despite its size, was three cavernous levels. The first floor was the front desk and waiting room. The second was filled with conference rooms and medical labs where Dr. Conors would conduct studies on psychics and test their supposed abilities. The third floor was the office space. Because there was so much space and only Dr. Conors and me as staff, I would have my own office, which I thought was very cool.
+
+Opening my laptop, Dr. Conors explained my duties. Essentially, as her research assistant, I would be responsible for seeking out alleged psychics, monitoring her interviews with psychics while she collected evidence, and editing her academic papers before submitting them for publication.
+
+And that is pretty much what I did for the next several months. I would google psychics in specific places or regions Dr. Conors was focusing on for a specific project. Dr. Conors preferred higher profile psychics, psychics with wealthy clientele, or psychics who worked with law enforcement. She did not want to waste her time with small-time psychics who did palm readings for ten dollars above a tourist t-shirt shop. Dr. Conors said she wanted the Center to be taken seriously, and that meant seeking out clairvoyants more likely to have real and observable paranormal powers. She never explained to me why a more famous psychic was more likely to have real powers than a non-famous one, but honestly I thought they were all fakes. To me, this job was mostly just a paycheck and an entry on my resume.
+
+Dr. Conors would invite these people out to L.A. and to come to the Center to be interviewed and their “powers” observed. Sometimes the psychic would bring a crew to do a seance or group reading in our sterile conference rooms. Sometimes they’d come alone. Most of them were smart enough to do “hot readings.” These people had obviously done their research on Dr. Conors, and used the info on her (admittedly lit) social media presence to tell her about her cat that had recently died or made predictions about the bright future of her sister’s unborn baby. The dumber ones did “cold readings.” A cold reading is when a psychic fishes for information. “I’m seeing the letter J. I’m sensing an April birthday.” Etc. Etc. Occasionally, one would say something creepy. This one guy, a YouTube star named Jonah Stubb, started talking about how he was getting messages from my great grandfather. My grandfather, Stubb said, had left me a letter just before he passed away, and he was sad I hadn’t discovered it yet. I wasn’t even in the room with Dr. Conors and the psychic. Stubb said that he sensed the letter in a room with pink flowers. That night, I went to mom’s house and went straight to the attic, decorated in cherry blossom wall paper. Sure enough, in Granpapa’s chest there was a letter addressed to me.
+
+That said, I was unimpressed with nearly all the psychics who came to the Center. Dr. Conors, though, nearly always recorded them as probably or possibly having supernatural abilities. Her papers were never published in real academic journals, the Center had its own publication (the *Journal of Paracognition Studies*) just for Dr. Conors’s work. The papers were technically peer reviewed; Dr. Conors had some friends around the country who believed in the supernatural who signed off on her papers. Dr. Conors did the same for her colleagues’ papers on cryptids and extraterrestrials. Occasionally, this circle jerk would publish an joint editorial in the *Journal* ranting about how their free speech was under threat by an establishment that wanted to cover up the truth. In some ways, the Center for Paracognition Studies had quite a bit in common with more mainstream academia.
+
+...
+
+So I guess I need to talk about Luna Everheard. I’m sorry for stalling, but Jesus, you’ve seen Conference Room 17. Can I be blamed for trying not to think about it?
+
+Luna Everheard was the rare psychic who came to us rather than us reaching out to her. Sometimes a celebrity clairvoyant gets publicly taken down a peg or two. Maybe they get debunked by a scientist or journalist. Maybe they fuck up. Basically, they see Dr. Conors as someone who can help rehabilitate their image. And my God did Luna Everheard need some good PR.
+
+Based in some little town called Purgatorio in the Rocky Mountains, Everheard was low key one of the most high profile psychics the Center worked with while I was there. She’s conducted seances with Hollywood A-listers and has been on Oprah, Dr. Oz, Dr. Phil, Scarlett Wishborne’s Streamly show, and a million other TV shows, radio shows, and podcasts. It’s rumored that Don d’Mantis turned to her for guidance when it was uncovered that he was running a puppy mill and dog fighting ring. With the exception of the psychics who get reality television shows, Luna Everheard was probably among the most famous psychics in the country.
+
+But her real passion, or so she wrote to me in her email asking for an audience with us, was helping Purgatorio law enforcement solve crimes. Purgatorio is a sleepy little mountain town, so usually that meant solving bike thefts or whatever crimes they have out there. One day, things got a little too real for Luna Everheard.
+
+A 14-year-old girl named Olive Grimmond was reported missing by her mom after she didn’t come home from school. Olive was caught in the middle of a really terrible custody dispute between her parents. Both she and her mom accused the father, one James Grimmond, of being violent and abusive, and after years of fighting in the courts a judge awarded full custody to Olive’s mother. A week later, Olive went missing. The mom pointed out that the father had probably kidnapped Olive when she went to the police, and apparently the police initially requested an arrest warrant from the local judge. But then the Police Chief brought in his old, reliable friend Luna Everheard. The Chief, Everheard, and a group of officers went into the interrogation room and did a seance. Everheard came out of the room saying the Olive hadn’t been kidnapped, she was just lost in the woods around the high school. The Police Chief diverted resources to trawl the forest and Olive’s dad completely forgotten.
+
+Two weeks later, Olive Grimmond was found dead in a cabin owned by her father on the banks of the Turquoise River. The newspapers did not report how Olive died, but hinted that the scene at the cabin was awful. The Police Chief resigned and Luna Everheard was disgraced. The disappearance of Olive Grimmond captured national attention, and the media was outraged that a “psychic” had bought the murderer time to finish the job and slip away.
+
+These are the details I learned about the Olive Grimmond case doing research ahead of Dr. Conors study of Luna Everheard’s abilities. The more I learned, the less I liked the idea of helping to rehabilitate the disgraced Everheard’s reputation. Everheard was an obvious fraud who helped get a kid murdered. Lending whatever credibility the Center had to her seemed like a good way to lose that credibility. Dr. Conors told me not to worry. “Everyone deserves a chance a redemption,” Dr. Conors said to me, “and the public loves a redemption arc.”
+
+The morning of our study came, and Dina and Dr. Conors went to the airport to greet Luna and bring her to the Center. I was tasked with preparing Conference Room 17 for the seance. I made sure the cameras, both CCTV and thermal, were ready. I missed a Google Alert that I wouldn’t see until after the incident.
+
+That morning, New Mexico State Patrol had found the body of Olive Grimmond’s father in a sleazy motel 30 miles outside Albuquerque. The article said that animals had probably gotten to the body, as the body was mutilated.
+
+...
+
+Luna Everheard was polite, pleasant, and polished. She wore her hair long and wavy, and her eyes were bright green and piercing. She had a melodic voice that hit on every psychic cliche buzzword as she explained how the seance would work. Dr. Conors put on her austere, professional demeanor to explain how we would capture the seance and how Everheard’s abilities would be evaluated. Dr. Conors led Luna Everheard up the stairs to the conference rooms. I took the elevator to the third floor, hustled into my office, and turned on the cameras and recording devices.
+
+From my monitor, I watched as the door to Conference Room 17 swung open. The two women entered the room. The figures lit candles around the circular table and when they were done turned off the overheard light. Dr. Conors sat with her back to the cameras, while Everheard sat directly opposite facing the cameras. On the thermal camera, I could see the heat being given off by both women, orange and yellow specters surrounded by a cool blue. We used the thermal camera to pick up ghosts, although until today I had never captured anything on the camera that could be a ghost (Dr. Conors said this was to be expected, the Center was a new building and unlikely to have any spirits that would be attracted to the energy of a seance or reading, but she liked using it just in case). On the CCTV, the features of Luna Everheard’s face flickered and danced. In candlelight, on a black and white screen, Everheard’s face looked far more sinister than when we were having coffee in the lobby.
+
+Everheard reached across the table and Dr. Conors took her hands. Everheard closed her eyes. It may have been a trick of the light, but it seemed from my screen that the candles dimmed.
+
+In unison, Everheard and Dr. Conors recited the Lord’s Prayer, and then said: “Our beloved spirits, we bring you gifts from life into death. Commune with us, and move among us.”
+
+There was a moment of silence, then, Everheard said, “I’m seeing a body of water.”
+
+“We’re near the ocean, could it be the ocean?” Asked Dr. Conors.
+
+“No, the water isn’t moving in waves. It’s moving in rapids. It’s a river.”
+
+“I’m not sure, I don’t know if I know anyone I associate with riv…”
+
+“Wait there’s someone here. There’s a man, he’s grabbed me by the shoulders. Stop it! Stop it! He’s shaking me.”
+
+“Luna, what’s going on. Luna!”
+
+“He’s forcing me to the riverbed. Stop it stop it STOP IT STOP IT!”
+
+At that point, Everheard started shrieking, and then began making gurgling sounds. Dr. Conors let go of Everheard’s hands and the psychic stilled. Everheard was breathing in gasps and shaking. Dr. Conors went around the table and held Everheard until the shaking stopped. Dr. Conors said that she would grab a glass of water for Everheard and would return in a moment. Everheard nodded. The conference room door opened, Dr. Conors slipped out, and the door closed, leaving the psychic in dim candlelight. Everheard took a deep breath, and then began weeping in the darkness. She was murmuring something that sounded like, “I’m sorry. I’m so so sorry.”
+
+I heard footsteps coming up the stairs toward my office. The footsteps went over to the kitchen and I heard the brief flow of water from the sink faucet. Dr. Conors walked over to my office and peered over my shoulder, asking if I had seen anything. I replied that I didn’t. Then, she pointed to something on the thermal camera, “what’s that?”
+
+In the cool blue surrounding Everheard’s form, there was a black dot that looked like a pinprick. I would have missed it if Dr. Conors hadn’t pointed it out. The black dot began growing, expanding, pushing against its blue border until it was the size of a person. I looked at Dr. Conors, who’s eyes were wide with shock, and then looked at the CCTV screen.
+
+Everheard was still sobbing quietly in the soft candlelight. Behind her all I could see was pitch black darkness. Then, the pale face of a girl materialized from that darkness. Water seemed to drip from her drenched sweater and jeans. Her long, dark hair was matted and dripping. Everheard did not seem to notice the apparition that had appeared behind her. The pale girl looked directly into the CCTV camera, and her lips pulled back into a smile. The girl had the goofy, awkward smile of a teenager, except that she also had razor sharp teeth that seemed to radiate in the dark.
+
+The CCTV and thermal cameras both went black, dead.
+
+Dr. Conors and I took off running down the stairs to Conference Room 17. You know what we found, you saw it too when you arrived at the Center. Luna Everheard was slumped over the seance table, dead. I wonder if I’ll ever be able to forget the image. Everheard dead, the front of her face as though it had been scooped out.
