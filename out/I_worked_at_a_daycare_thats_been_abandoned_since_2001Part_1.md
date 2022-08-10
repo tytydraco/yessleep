@@ -78,4 +78,4 @@ Yes, I was absolutely certain it was the exact same café. First the daycare and
 
 The date displayed on it was December 2001.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/wkadyb/i_worked_at_a_daycare_thats_been_abandoned_since/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/wkadyb/i_worked_at_a_daycare_thats_been_abandoned_since/)  [Part 3](https://www.reddit.com/r/nosleep/comments/wl7pri/i_worked_at_a_daycare_thats_been_abandoned_since/) 

@@ -111,3 +111,5 @@ We rushed outside the building screaming and took a few minutes to catch our bre
 "Thanks Molly!"
 
 And so, I left the daycare behind once again, having made a new friend along the way. But if you think my horrific odyssey ended there, you can think again.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wl7pri/i_worked_at_a_daycare_thats_been_abandoned_since/)
