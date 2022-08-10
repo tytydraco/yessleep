@@ -122,6 +122,6 @@ Still, that weird knowing smile. She tilted her head. "Alright, let's give it a 
 
 &#x200B;
 
-Five minutes later, after two more bottles of water and a handcuff key, Parker was ushering me out of the hotel room into the hall. "This way, my dear. I have such sights to show you."
+Five minutes later, after two more bottles of water and a handcuff key, Parker was ushering me out of the hotel room into the hall. ["This way, my dear. I have such sights to show you."](https://www.reddit.com/r/nosleep/comments/wjridr/im_trapped_in_sheolton_a_town_with_fake_people_in/)
 
 [\[JM\]](https://www.reddit.com/user/JhonaMonroe)

@@ -12,9 +12,9 @@ I reached out to Therese via email 5 days ago, and we met last afternoon. I’ve
 
 —-----------------------------------------
 
-**Sender:** Wren Holstadt ([songbirdwren@zmail](mailto:songbirdwren@zmail.me).me)
+**Sender:** Wren Holstadt 
 
-**Recipient:** Therese Van Brook ([violasgiftmusic@zmail](mailto:violasgiftmusic@zmail.me).me)
+**Recipient:** Therese Van Brook 
 
 **Subject:** Rebook?
 
@@ -30,9 +30,9 @@ Wren
 
 —-----------------------------------------
 
-Sender: Therese Van Brook ([violasgiftmusic@zmail](mailto:violasgiftmusic@zmail.me).me)
+Sender: Therese Van Brook 
 
-Recipient: Wren Holstadt ([songbirdwren@zmail](mailto:songbirdwren@zmail.me).me)
+Recipient: Wren Holstadt 
 
 Subject:  RE: Rebook?
 

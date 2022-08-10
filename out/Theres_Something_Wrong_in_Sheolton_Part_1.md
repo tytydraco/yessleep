@@ -90,4 +90,8 @@ The sheriff sat me down in a chair in front of his desk, sat down in his, and of
 
 &#x200B;
 
-He didn't say anything for a moment. He looked like he was getting the measure of me, trying to find his next words. When they finally came, he looked at me solemnly, and said slowly and purposefully, "I'm going to start with the hard part. This town's name is Sheolten, and you're going to die here, Jhona."
+He didn't say anything for a moment. He looked like he was getting the measure of me, trying to find his next words. When they finally came, he looked at me solemnly, and said slowly and purposefully, ["I'm going to start with the hard part. This town's name is Sheolten, and you're going to die here, Jhona."](https://www.reddit.com/r/nosleep/comments/we5xra/the_sheriff_of_sheolton_killed_me_part_2/)
+
+&#x200B;
+
+[\[JM\]](https://www.reddit.com/user/JhonaMonroe)
