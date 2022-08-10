@@ -97,3 +97,5 @@ Just a puddle of goop with what had once been fake body parts now slurping down 
 As the sludge pooled into the drain, I took a moment to savor the short victory; reeling from the incident. 
 
 But this nightmare was far from over.
+
+[update](https://www.reddit.com/r/nosleep/comments/wl4rxb/i_found_a_life_size_doll_inside_the_walls_of_my/?ref=share&ref_source=link)
