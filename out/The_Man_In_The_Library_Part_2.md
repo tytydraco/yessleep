@@ -22,3 +22,6 @@
 
 
     Having seen enough horror movies and done enough research to know better, I knew I should have just left and headed to school late, but curiosity got the best of me and I started toward the back of the building. Through all the old stacks, I got to the old books that were covered in dust, the parts of the library that no one came to anymore. I made it to the back room where the librarian often disappeared, only to find her glasses that usually hung from her neck sitting on the desk and her water bottle laying on the floor on its side, leaking a little and causing a small puddle where it was. I didn't know what happened here, but this was enough to make me want to get out of there, except where the door used to be was now a solid wall and there was no way out of that room. 
+
+---------
+[Part 1](https://www.reddit.com/r/nosleep/comments/wjv7j8/the_man_in_the_library_part_1/?utm_medium=android_app&utm_source=share)
