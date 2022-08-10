@@ -20,7 +20,7 @@ Upon reaching the back alley where the daycare was located, I heard what sounded
 
 "I'm Molly, nice to meet ya! I didn't expect to have a coworker, but hey...I think I'm gonna like it!"  she joyfully introduced herself.
 
-Molly and I finally arrived at the daycare. Once we took off our winter gear, I got a better chance to appreciate Molly's appearance, she had the same tall and slim complexion as myself, but her blonde straight hair and pale Caucasian skin contrasted with my brownish skin and dark curls. Were were soon greeted by Rebecca, the woman who was in charge of taking care of the kids who I had already met the previous day. The daycare was in the same state as when I had last seen it, a far cry from the derelict abandoned building it had become in my time.
+Molly and I finally arrived at the daycare. Once we took off our winter gear, I got a better chance to appreciate Molly's appearance, she had the same tall and slim complexion as myself, but her blonde straight hair and pale Caucasian skin contrasted with my brownish skin and dark curls. We were soon greeted by Rebecca, the woman who was in charge of taking care of the kids who I had already met the previous day. The daycare was in the same state as when I had last seen it, a far cry from the derelict abandoned building it had become in my time.
 
 "Well, look who it is! Your name was...Cindy, am I right? Forgive me, but you left so abruptly yesterday I thought you were never going to come back! Who's the girl you've brought with you?" Rebecca said to me.
 
