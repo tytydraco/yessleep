@@ -18,7 +18,7 @@ I  found myself in an open field. Clear blue sky, unlike the one on Earth.  I be
 
 &#x200B;
 
-I  am one of the Friends of the Lord, the Saints, now, because I did the  right thing when I could have done it. Helena could have been just like  me, but she has fallen. She became a creature of darkness, a creature of  the night, a monster, a predator who hunts the living and does the  biding of evil. A lot of darkness and evil is in her, as she is now, and  your mortal beings are naturally afraid of her, since she is what she  is. She has done so many horrible, evil things, yet something always  remained inside her, a faint, distant, memory, a faint, distant hope. I  have prayed for her a lot ever since my soul left my body, and helped  her, even in the last days spent in that cage, before she was  transformed. 
+I  am one of the Friends of the Lord, the Saints, now, because I did the  right thing when I could have done it. Helena could have been just like  me, but she has fallen. She became a creature of darkness, a creature of  the night, a monster, a predator who hunts the living and does the  biding of evil. A lot of darkness and evil is in her, as she is now, and  your mortal beings are naturally afraid of her, since she is what she  is. She has done so many horrible, evil things, yet something always  remained inside her, a faint, distant, memory, a faint, distant hope. I  have prayed for her a lot ever since my soul left my body, and helped  her, even in the last days spent in that cage, before she was  transformed.
 
 &#x200B;
 
@@ -26,7 +26,7 @@ You, The Lord, and His angels send thoughts, feelings to  living peoples souls, 
 
 &#x200B;
 
-Her  mother also helped her so much, both when she alive on this Earth, with  her prayers, because the prayers of the mother count much for The Lord.  Also her tears. Then, her suffering, her martyrdom made her a Saint as  well, and she continued to fight for her from the other side, like me.  You know, Helena has an opened door now. She did not dared to get close  to The Lord, she believed herself a creature of evil for good, but she  kept a small hope. Indeed, the Holy Cross, holy water burned her, as a  creature of evil, but not like demons, like the fear she brings is far  lesser then the ones brought by demons, as yourself have just seen, when  the demons who ordered, without them knowing, to those people to kill  children, attacked you. The Lord has opened a door for Helena, through  you an through father George, who believed in her, even without  realizing. She felt so empty, so hopeless, when father George treated  her first like a demon, but she kept her pain, not turned it into hatred  or retribution. She looked. 
+Her  mother also helped her so much, both when she alive on this Earth, with  her prayers, because the prayers of the mother count much for The Lord.  Also her tears. Then, her suffering, her martyrdom made her a Saint as  well, and she continued to fight for her from the other side, like me.  You know, Helena has an opened door now. She did not dared to get close  to The Lord, she believed herself a creature of evil for good, but she  kept a small hope. Indeed, the Holy Cross, holy water burned her, as a  creature of evil, but not like demons, like the fear she brings is far  lesser then the ones brought by demons, as yourself have just seen, when  the demons who ordered, without them knowing, to those people to kill  children, attacked you. The Lord has opened a door for Helena, through  you an through father George, who believed in her, even without  realizing. She felt so empty, so hopeless, when father George treated  her first like a demon, but she kept her pain, not turned it into hatred  or retribution. She looked.
 
 &#x200B;
 
@@ -38,7 +38,7 @@ They  were quite nervous, so to say, I do not know how much time passed.  Ghiț�
 
 &#x200B;
 
- ”Yeah, right? And the Hippocrates oath?” He brought a superior,  but also pretty dumb smile. I felt a deep, burning hatred for him, but  then I remembered the smile of Alexandra and snapped out of it. Only the  small light of two phones brought light in all that darkness.
+”Yeah, right? And the Hippocrates oath?” He brought a superior,  but also pretty dumb smile. I felt a deep, burning hatred for him, but  then I remembered the smile of Alexandra and snapped out of it. Only the  small light of two phones brought light in all that darkness.
 
 &#x200B;
 
@@ -70,7 +70,7 @@ After  a few minutes of silence, we looked at Helena, who still stood there,  li
 
 &#x200B;
 
- ”It is ok, you are  among friends. You can be less stiffy now. You among friends.” I took  her hand again. She did not oppose this, but seemed still confused,  somewhat. ”Welcome back to the good guys.” And I did one of the most  terrifying and most warm things I did so far in my life: I hugged her.  She looked startled, so I whispered in joy: ”That is hug. Please hug me  back, this is how people do.” She, reluctantly, hugged me back, I never  felt anything so weird, yet so existentially gratifying, I look back  into her eyes. She could not believe it herself, I guess.
+”It is ok, you are  among friends. You can be less stiffy now. You among friends.” I took  her hand again. She did not oppose this, but seemed still confused,  somewhat. ”Welcome back to the good guys.” And I did one of the most  terrifying and most warm things I did so far in my life: I hugged her.  She looked startled, so I whispered in joy: ”That is hug. Please hug me  back, this is how people do.” She, reluctantly, hugged me back, I never  felt anything so weird, yet so existentially gratifying, I look back  into her eyes. She could not believe it herself, I guess.
 
 &#x200B;
 
@@ -90,7 +90,7 @@ We  waited a few days, to get some rest. I went to the lair of Helena for a  few
 
 &#x200B;
 
-So,  that night, finally, came. We drove father George to the area. After we  parked, we got to Helena„s place. And knocked at the gate. Adrian was  feeling anxious, more then me, I guess I had got use to it, somehow.  Father George was the calmest, he said he had experience far more tough  situations. We knocked. Nothing happened, the first time. The second  time we knocked, after a little time, the light went out. Pretty, Helena  came out and opened the gate. Adrian trembled, but try to look strong. I  slowly caressed him on the hand. Helena was scary, as usual, but  tonight, as she stayed silent, like the times before, she looked anxious  herself, although in her own way. Her white eyes were not blank, but  like trying to avoid looking her in the eye.
+So,  that night, finally, came. We drove father George to the area. After we  parked, we got to Helena„s place.  Adrian stopped a bit and asked father George: ”Yet, can she confess? Isn„t she dead?” Father George chuckled with a bid of anger: ”She has a breath. A heartbeat. She can feel and relate like a living person. I have seen dead souls, they are very different. I am sure she counts very much as alive.” And knocked at the gate. Adrian was  feeling anxious, more then me, I guess I had got use to it, somehow.  Father George was the calmest, he said he had experience far more tough  situations. We knocked. Nothing happened, the first time. The second  time we knocked, after a little time, the light went out. Pretty, Helena  came out and opened the gate. Adrian trembled, but try to look strong. I  slowly caressed him on the hand. Helena was scary, as usual, but  tonight, as she stayed silent, like the times before, she looked anxious  herself, although in her own way. Her white eyes were not blank, but  like trying to avoid looking her in the eye.
 
 &#x200B;
 
@@ -118,7 +118,7 @@ So,  father George said the prayer for all us present, placing the  epitrachelio
 
 &#x200B;
 
-He  seemed cheerful. We went to him and I asked: ”How did it was?” He  replied: ”You that I can not say what she said. But I can say it went  well. She can be a real sweetheart, if she wants.” We came in. The  atmosphere, the feeling was mostly, the same. Only that, in this wake,  it was like, although there is sadness because of the loss, there is  also peace. A bitter peace, but peace. 
+He  seemed cheerful. We went to him and I asked: ”How did it was?” He  replied: ”You that I can not say what she said. But I can say it went  well. She can be a real sweetheart, if she wants.” We came in. The  atmosphere, the feeling was mostly, the same. Only that, in this wake,  it was like, although there is sadness because of the loss, there is  also peace. A bitter peace, but peace.
 
 &#x200B;
 

@@ -111,3 +111,7 @@ She hugged me and ran up the stairs. While watching her run up the stairs, I not
 She always reacted when I called after her. However, this time she didn’t react. I quickly turned around fearing the worst. I expected to see the person from the forest standing in front of the door with a wide smile on their face and a knife in their hand, but I saw nothing. The view was just of the house on the opposite side of the street. I closed the door and immediately felt safer. Only then, Luna looked into my eyes and meowed.
 
 “You felt it too, little girl?” I asked wishing that cats could speak.
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/wl926b/cateater_part_2_watching_pressence/)
