@@ -48,9 +48,9 @@ Two weeks later, Olive Grimmond was found dead in a cabin owned by her father on
 
 These are the details I learned about the Olive Grimmond case doing research ahead of Dr. Conors study of Luna Everheard’s abilities. The more I learned, the less I liked the idea of helping to rehabilitate the disgraced Everheard’s reputation. Everheard was an obvious fraud who helped get a kid murdered. Lending whatever credibility the Center had to her seemed like a good way to lose that credibility. Dr. Conors told me not to worry. “Everyone deserves a chance a redemption,” Dr. Conors said to me, “and the public loves a redemption arc.”
 
-The morning of our study came, and Dina and Dr. Conors went to the airport to greet Luna and bring her to the Center. I was tasked with preparing Conference Room 17 for the seance. I made sure the cameras, both CCTV and thermal, were ready. I missed a Google Alert that I wouldn’t see until after the incident.
+This morning, the morning of our study, came. Dina and Dr. Conors went to the airport to greet Luna and bring her to the Center. I was tasked with preparing Conference Room 17 for the seance. I made sure the cameras, both CCTV and thermal, were ready. I missed a Google Alert that I wouldn’t see until after the incident.
 
-That morning, New Mexico State Patrol had found the body of Olive Grimmond’s father in a sleazy motel 30 miles outside Albuquerque. The article said that animals had probably gotten to the body, as the body was mutilated.
+Earlier this morning, New Mexico State Patrol had found the body of Olive Grimmond’s father in a sleazy motel 30 miles outside Albuquerque. The article said that animals had probably gotten to the body, as the body was mutilated.
 
 ...
 
@@ -86,4 +86,4 @@ Everheard was still sobbing quietly in the soft candlelight. Behind her all I co
 
 The CCTV and thermal cameras both went black, dead.
 
-Dr. Conors and I took off running down the stairs to Conference Room 17. You know what we found, you saw it too when you arrived at the Center. Luna Everheard was slumped over the seance table, dead. I wonder if I’ll ever be able to forget the image. Everheard dead, the front of her face as though it had been scooped out.
+Dr. Conors and I took off running down the stairs to Conference Room 17. You know what we found, you saw it too when you arrived at the Center. Luna Everheard was slumped over the seance table, dead. I wonder if I’ll ever be able to forget the image. Everheard dead, her face as though it had been scooped out.
