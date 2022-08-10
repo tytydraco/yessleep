@@ -106,4 +106,8 @@ But the child needed to be saved. So I said to her: ”Will you come with me?”
 
 &#x200B;
 
+The story continues in here [https://www.reddit.com/r/nosleep/comments/whyoux/helena\_the\_clown\_part\_11/](https://www.reddit.com/r/nosleep/comments/whyoux/helena_the_clown_part_11/)
+
+&#x200B;
+
 Ruxandra out.

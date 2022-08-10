@@ -124,4 +124,8 @@ Later, in the evening, Adrian brought me a tea and we started to think what to d
 
 &#x200B;
 
+The story continues in here [https://www.reddit.com/r/nosleep/comments/wbdlfg/helena\_the\_clown\_part\_9/](https://www.reddit.com/r/nosleep/comments/wbdlfg/helena_the_clown_part_9/)
+
+&#x200B;
+
 For now, Ruxandra out.

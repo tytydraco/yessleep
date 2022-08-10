@@ -76,4 +76,8 @@ But death came not. She moved away. The bite was only skin deep. She looked deep
 
 &#x200B;
 
+The story continue in here [https://www.reddit.com/r/nosleep/comments/w9s646/helena\_the\_clown\_part\_8/](https://www.reddit.com/r/nosleep/comments/w9s646/helena_the_clown_part_8/)
+
+&#x200B;
+
 Ruxandra is out.

@@ -102,4 +102,8 @@ Darkness and light were in my soul then. As leftovers, perhaps, or more. Both I 
 
 &#x200B;
 
+The story continues in here [https://www.reddit.com/r/nosleep/comments/wc704p/helena\_the\_clown\_part\_10/](https://www.reddit.com/r/nosleep/comments/wc704p/helena_the_clown_part_10/)
+
+&#x200B;
+
 Ruxandra out

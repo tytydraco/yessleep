@@ -214,4 +214,8 @@ Ok. One more update on all this. How we all escaped. And the rest. It seems that
 
 &#x200B;
 
+The story ends in here [https://www.reddit.com/r/nosleep/comments/wishhw/helena\_the\_clown\_part\_12\_series\_finale/](https://www.reddit.com/r/nosleep/comments/wishhw/helena_the_clown_part_12_series_finale/)
+
+&#x200B;
+
 For now, Ruxandra out.
