@@ -82,7 +82,7 @@ I heard footsteps coming up the stairs toward my office. The footsteps went over
 
 In the cool blue surrounding Everheard’s form, there was a black dot that looked like a pinprick. I would have missed it if Dr. Conors hadn’t pointed it out. The black dot began growing, expanding, pushing against its blue border until it was the size of a person. I looked at Dr. Conors, who’s eyes were wide with shock, and then looked at the CCTV screen.
 
-Everheard was still sobbing quietly in the soft candlelight. Behind her all I could see was pitch black darkness. Then, the pale face of a girl materialized from that darkness. Water seemed to drip from her drenched sweater and jeans. Her long, dark hair was matted and dripping. Everheard did not seem to notice the apparition that had appeared behind her. The pale girl looked directly into the CCTV camera, and her lips pulled back into a smile. The girl had the goofy, awkward smile of a teenager, except that she also had razor sharp teeth that seemed to radiate in the dark.
+Everheard was still sobbing quietly in the soft candlelight. Behind her all I could see was pitch black darkness. Then, the pale face of a girl materialized from that darkness. Water dripped from her drenched sweater and jeans. Her long, dark hair was wet and matted. Everheard did not seem to notice the apparition that had appeared behind her. The pale girl looked directly into the CCTV camera, and her lips pulled back into a smile. The girl had the goofy, awkward smile of a teenager, except that she also had razor sharp teeth that radiated in the dark.
 
 The CCTV and thermal cameras both went black, dead.
 
