@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4831
+file count: 4832
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -4002,8 +4002,8 @@ file count: 4831
 * [The old man](out/The_old_man.md)
 * [The Old Schoolhouses Curse](out/The_Old_Schoolhouses_Curse.md)
 * [The one time I dont lock my door](out/The_one_time_I_dont_lock_my_door.md)
-* [The one who follows](out/The_one_who_follows.md)
 * [The One Who Follows](out/The_One_Who_Follows.md)
+* [The one who follows](out/The_one_who_follows.md)
 * [The only time I encountered sleep paralysis](out/The_only_time_I_encountered_sleep_paralysis.md)
 * [The only time I gave a one star Uber rating](out/The_only_time_I_gave_a_one_star_Uber_rating.md)
 * [The Only Warning About Pendle Hill Part 1](out/The_Only_Warning_About_Pendle_Hill_Part_1.md)
@@ -4644,6 +4644,7 @@ file count: 4831
 * [What the storm brought Part One](out/What_the_storm_brought_Part_One.md)
 * [What the storm brought Part Two](out/What_the_storm_brought_Part_Two.md)
 * [What They Hid in the Corpse](out/What_They_Hid_in_the_Corpse.md)
+* [What was in the fog](out/What_was_in_the_fog.md)
 * [Whatever Andy Says](out/Whatever_Andy_Says.md)
 * [Whatever we have awakened in The Old Bell Tower near my house has started affecting my town UPDAT Part 2](out/Whatever_we_have_awakened_in_The_Old_Bell_Tower_near_my_house_has_started_affecting_my_town_UPDAT_Part_2.md)
 * [Whatever we have awakened in The Old Bell Tower near my house has started affecting my town Update Part 3](out/Whatever_we_have_awakened_in_The_Old_Bell_Tower_near_my_house_has_started_affecting_my_town_Update_Part_3.md)
