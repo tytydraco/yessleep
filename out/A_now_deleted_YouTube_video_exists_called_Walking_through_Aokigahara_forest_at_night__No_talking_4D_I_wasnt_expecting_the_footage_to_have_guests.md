@@ -103,9 +103,9 @@ He staggered back when the camera man took a turn further into the trees. But th
 
 Freckles did everything to try and get noticed—and failed miserably every time. It was kind of entertaining. “Noah.” Another voice sounded—this time American.
 
-I detected a southern accent in a tone which sounded far less chipper than freckles. “Stop.” Another man appeared seemingly out of nowhere, joining Noah’s side. He was taller, a darker skin complexion, wearing a t-shirt with NSFW art on the front. 
+I detected a southern accent in a tone which sounded far less chipper than Freckles. “Stop.” Another man appeared seemingly out of nowhere, joining Noah’s side. He was taller, a darker skin complexion, wearing a t-shirt with NSFW art on the front. “He’s not going to help us,” he said with gritted teeth. “Think about it. He’s a guy just casually cruising a forest in the middle of the night—and we’re random strangers. Of course, he’s going to be wary.” 
 
-“He’s not going to help us,” he said with gritted teeth. “Think about it. He’s a guy just casually cruising a forest in the middle of the night—and we’re random strangers. Of course, he’s going to be wary.” The young man elbowed Noah. 
+The young man elbowed Noah. 
 
 “Besides, we haven’t tried my tactic yet.”
 
@@ -147,7 +147,7 @@ The guy cursed when he fell back, regaining his balance at the last minute. “H
 
 The three of them continued like that for a while. They argued for and against attempting to grab the guy’s phone, but they ended up just following the camera-man, hoping he’d at some point acknowledge them. I understood they were lost and needed help, but part of me was screaming at them to just turn around and attempt to figure it out themselves. 
 
-This guy just didn’t give a fuck, and clearly was on a mission they had no business joining. I realised that when they stepped through a smell clearing, following the camera-guy. There was something hidden in the trees, and the closer the camera got, I realised I was staring at a small wooden cabin. It looked home-made and was dainty enough to be hidden in the trees, far away from the trail. When the camera man stopped for a moment, surveying a door made of planks, the three guy’s seemed to come to an abrupt stop. In the eerie glow of the flashlight, a wave of emotions washed over Noah’s expression, though I couldn’t catch a single one. 
+This guy just didn’t give a fuck, and clearly was on a mission they had no business joining. I realised that when they stepped through a small clearing, following the camera-guy. There was something hidden in the trees, and the closer the camera got, I realised I was staring at a small wooden cabin. It looked home-made and was dainty enough to be hidden in the trees, far away from the trail. When the camera man stopped for a moment, surveying a door made of planks, the three guy’s seemed to come to an abrupt stop. In the eerie glow of the flashlight, a wave of emotions washed over Noah’s expression, though I couldn’t catch a single one. 
 
 His eyes, which until then had been almost permanently rolling in frustration as he spat sarcasm at the others—grew dark. Hollow. It was the kind of darkness I didn’t know or understand. Not the darkness enveloping the forest and sky, more of an endless stretch of oblivion which was inescapable. But as fast as it had come, the hollowness faded, and he shook his head. Noah pursed his lips and stepped back with a laugh. “Nope.” He said. “Yeah, no. I’m not going in there.”
 
@@ -284,4 +284,4 @@ He smiled, and the camera zoomed right into his mouth.
 
 After that, the video ended.
 
-Followed by: WORLD'S FUNNIEST MOVIES. PART ONE. 
+Followed by text: WORLD'S FUNNIEST MOVIES. PART ONE. 
