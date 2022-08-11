@@ -1,177 +1,95 @@
-[Part II](https://www.reddit.com/r/nosleep/comments/w4uvxx/three_people_died_in_the_woods_last_summer_and_im/).
+[Part I](https://www.reddit.com/r/nosleep/comments/w40m36/three_people_died_in_the_woods_last_summer_and_im/?utm_source=share&utm_medium=web2x&context=3).
 
-[Part III](https://www.reddit.com/r/nosleep/comments/w6nrdm/three_people_died_in_the_woods_last_summer_and_im/)
+[Part III](https://www.reddit.com/r/nosleep/comments/w6nrdm/three_people_died_in_the_woods_last_summer_and_im/).
 
-I have told no one about this incident, the only people who know where the ones that were there that day. I am sharing here because I honestly don’t know what else to do, as I don’t feel comfortable sharing with police or my family.
+We rushed into the living room of a small, nearly pitch black, dusty cabin. The door slammed behind us, and the women locked it. She immediately started pushing a large dresser in front of the frail backdoor.
 
-It started in the summer; my cousins and I usually travel every July to my aunt’s house. We called her the cool aunt, because she was closer to our ages, and had a big house that we would all pile in for a few weeks, usually we just hung around, watched TV, and acted stupid around the house.
+“Don’t say a word!” she shot at us.
 
-Last year, my aunt decided that instead of just doing the same old routine, that she would rent a friend’s cabin up in the woods near a small lake, and that we would all go up and have a blast with BBQs, campfires, and lots of swimming. Something important to know is that my aunt lived in the middle of nowhere. Like, the WIFI barely worked already at her house, and she wanted to drive us all out to an even more remote location. We weren’t exactly thrilled, but it sounded kind of fun so we went with it. Plus, our parents were going to join us in a few days and that was where we would all be picked up, so we had to go.
+I wanted to explain what we had just gone through, but I had a feeling I didn’t really have too. My cousins and I closed in and without thinking, were all huddled together in the middle of the room. A minute went by, and we heard nothing.
 
-"Why are we going up to the middle of nowhere again?" I asked.
+“I know what you’ve seen” the woman broke the silence with, “they have been out there every night.”
 
-"Well," my aunt Shelbey responded, "I saw a really good deal online that I couldn't pass up! it was almost too good to be true, I can't believe they had availability the exact weekend I wanted to rent it."
+We stood in confusion. We hadn’t really seen anything but were still processing the shock of what we had just experienced.
 
-The first bad decision happened when my aunt asked me to drive her second car. She had a two-seater small white truck, and a red chevy bronco, and we needed both cars to bring everybody, and all the supplies up to the cabin. I am the oldest of my cousins, and was turning 16 in just a few month. I had my permit, and planned to take my driving test on my upcoming birthday
+“What is going on, we need help, please, something was chasing us…” I started to plead, but the woman raised her hand to her mouth and again told me to be quiet.
 
-“It will be fine” my aunt Shelbey assured, “things are a little different here, a little more lax, you won’t get in trouble or anything. I need you to drive up your cousins in the Bronco, and I will carry all the gear in the truck. Plus, it’s just one road to get there after we get off the main highway, you can’t get lost. Just follow me and it will be smooth sailing.”
+She whispered “look, I know you are confused, I know you are scared, but for the love of god please don’t say another word. The have visited here three nights in a row now, and so far have not found a way in…they are smart, they can open doors and climb really well…they’ll lose interest but we have to stay quiet!”
 
-“Ugh” I responded. The thought of being stuck with my two scheming cousins was not very enticing, but I was excited that I would get to finally get some more driving practice in.
+We were frozen. My mind was racing and I couldn’t think straight. I felt like everything that was happening was just happening to someone else. This could not be happening to me, this didn’t make any sense. Then we heard something, outside, it sounded far away, banging, loud, pounding. It seemed to be coming from where we had left our car.
 
-My cousins climbed into their seats through the back of the two door Bronco as they always did - we packed up everything, and we left late in the afternoon (second bad decision). The cabin was about 2 and a half hours away, and we had plenty of daylight left (or so we thought).
+“They’re here” the woman said, “stay still and don’t make a sound.”
 
-“You’re going so slow,” Sloane, the second youngest announced. She was sitting in the back seat with our other cousin, Trinity, “I can barely see the truck ahead, Shelbey is not going to be happy if you lose her.”
+We immediately sat down on the floor. The banging continued followed by howling and hooting. The cries got louder as the banging stopped, and then we heard the sound of something running; footsteps loud at first but that seemed to get softer the closer they got to the cabin, almost like whatever was outside was tip-toeing…or trying to be quiet. I looked at the woman, it was dark but she was now sitting next to us and I could see an outline of her face by the scant moonlight that was coming in from the skylight above. Her eyes were squeezed shut, and her mouth pursed. She looked terrified.
 
-“Stop talking, you can have an opinion when you get your license,” I retorted.
+I heard the creaking of the wooden porch steps first, bending under something’s weight before I heard any footsteps themselves. Whatever was climbing on the porch was quiet, but seemingly heavy. The steps continued around the deck that hugged the side of the cabin. More creaking followed, it sounded like there were three or four bodies moving around outside. I heard heavy breathing, followed by an occasional snort. Something was sniffing the walls of the cabin, following a scent that led directly to the flimsy back door that we had entered through. The dresser now standing in front of the door seemed as strong as a piece of paper. Like nothing at all stood between us and whatever was on the outside of that door. I heard the handle start to shake. It was trying to open the door.
 
-“You don’t even have your license,” she responded back, sharply. It was true. I had only been driving for a few months, but these roads were so windy, and uneven I was having some difficulty keeping up with my aunt’s slightly erratic driving.
+The door was looked but the vigorous shaking continued, almost like the creature thought if it shook long enough it would open – like it was testing the handle to try and figure out how it worked. The shaking stopped, followed by scratching, long, fast scratches, that sounded like it was trying to dig at the small bend in the frame that I had noticed earlier. I could hear the plastic and metal frame of the door giving and bending, but the door remained shut. Then the sound of a low growl outside, followed by a scuffle. It sounded like two of the things were fighting. We heard them tussle around the porch, and then their bodies slam into the side of the cabin wall.
 
-“Can you please connect my freaking phone!” Trinity complained from the back, “I want to listen to music.”
+More howling, so loud I had to cover my ears, and then silence. I looked up in the dark.
 
-“This car doesn’t have an AUX, and there is only a radio” I responded. “Tough luck, and stop complaining.”
+“Are they gone?” Sloane whispered but the women just shook her head and put a finger to her mouth. Trinity was shaking. I was too. It was so quiet, I started to stand up, but the woman grabbed me and mouthed without a saying word “don’t move.”
 
-It felt like we had been driving for hours. The sun was setting and the road getting more narrow, windy, and remote. We really were in the middle of nowhere. I had looked up the place my phone before we left, but the location wasn't really registering on Google. It looked like it was in the middle of endless acres of private property, not other addresses or roads around, except the one cabin at the end of the road we were on.
+Suddenly loud, intense banging came from every side of the cabin. The walls and shelfs inside seemed to actually rattle and shake from the slamming, and pounding, screeching outside. I wanted to scream so badly, it was unbearable. The woman had one hand across Trinity’s mouth, and one across Sloane’s and before I could let a noise out, she mothed to me “DON’T SCREAM!”
 
-The driving continued, and soon I was having trouble keeping up with my aunt, and my stomach dropped as I realized I wasn’t even catching the occasional glimpse of the truck’s rear around any of the corners anymore. I was hoping no one else had noticed.
+I covered my own moth to keep from making a noise. The pounding was going on for what felt like an hour, and then slowly started to stop. Outside on the porch it sounded like a stampede was taking off, no longer trying to be quiet we could hear the loud, clobbering footsteps of what had to be at least five or six of those things, running off and away from us. No one dared make a sound. It felt like hours later, but really was probably only 10-15 minutes. The woman stood up and walked over to peer through a small peephole in the front door – the only window to the outside world aside from the skylight in the ceiling.
 
-“Did you lose her?” Sloane demanded to know.
+“Okay,” she whispered, “they are gone for real now, you can stand up and sit on the couch, it’s a lot more comfortable than the floor.”
 
-“No.” I said, feigning confidence.
+The three of us looked at each other.
 
-“What the fuck Max!” she yelled, “drive faster, I don’t want to be lost out here.”
+“What is happening?!” Trinity wailed, “what is going on, please, we need to find our aunt! She’s missing…”
 
-“Stop talking, if I go any faster will drive off a cliff.”
+“I wish I could tell you,” the woman started, “I am probably more confused then you are.”
 
-Sloane jumped from the back into the front seat – grabbing my phone from the dashboard.
+We started to stand up, and move over to the couch. “Here this will keep you warm and help you relax,” the woman said handing us a large blanket.
 
-“There is no signal” I told her.
+“What do you know?” I interrupted. I was now starting to fully process all that had just happened, and knew the woman had more information than we did.
 
-“Let me just check” she replied, as I leaned over to grab my phone out of her hands (bad decision number three), we tussled a bit over the phone, and I was making a sharp turn around a windy corner when I immediately slammed on the breaks. Parked in front of us, directly in the middle of the road, was the white truck.
+“Keep your voice down, I’ll tell you everything, but we can’t be too loud. Sometimes they come back, just to check out the house again. They are incredibly smart. They set traps and they know how to even trick people.”
 
-Thank god, I thought. I ripped the phone out of Sloane’s hands and waited for my aunt to start driving, figuring she had realized I was too far behind and stopped to wait for us. Then a minute passed.
+She began to tell us.
 
-“Why isn’t she moving?” Trinity asked.
+“It started about a week ago. Was it a week? I don’t really know, more than 3-4 days. My two best friends and I take a trip together every year. We found an amazing deal online for a cabin, by a lake, I mean it seemed too good to be true. We booked it and were only given an address.”
 
-“Not sure,” I responded, “maybe she is looking for directions on her map.” We waited. Five more minutes passed. I turned off the car and leaned out the driver seat window.
+I listened to her story. I remembered that the same thing had happened to my aunt. She had also booked the cabin after finding it online.
 
-“Aunt Shel?” I yelled “are we lost? I thought we couldn’t get lost out here?” I jokingly shouted to her, feeling good that it wasn’t my fault if we were. No response. I could see the exhaust from the tailpipe coming out, the engine was still on, but the windows rolled up, tinted so we couldn’t see what was inside. Suddenly, the car started moving. Slowly forward, almost more like rolling then driving. It was slowly heading down a slope towards a ditch on the side of the road. Sloane looked at me conveying with her face wtf is going on. I could only look back at her with my best expression to relay I have no idea. The truck inched ahead, like in slow motion and ‘crashed’ gently into the ditch.
+The woman continued, “it seemed fine at first. We all piled into my friend’s car. We drove up here okay and spent the first night together. It was like all our vacations, lots of laughter, and joy.” The woman’s eyes were slightly glistening in the darkness. It looked like there were tears starting to well up.
 
-We were all staring, in total confusion.
+“The first thing we noticed was on the second day. We were leaving to head out on a hike when we saw something on the front of the porch. It was rabbit, or large possum, I think, still not really sure but it was completely torn to shreds. Like, all that was there was blood and fur. The strangest part about it was that there was no blood leading too or from the corpse, like the entire attack had taken place right on the spot on the front porch, and yet we hadn’t heard a thing all night. Now, this cabin is small, it’s not like the sound of a predator attacking and eating something right outside our door would escape us. We would have heard something. Also, it seemed really unusual that a bear or mountain lion would just…kill and eat something so close to a house, usually they like to be more secluded when they eat their prey.” She continued to talk in a low whisper.
 
-“Stay inside the car” I said to Trinity and Sloane.
+“And the strangest thing of all was the amount of blood. I mean, I grew up hunting, I know how to bleed a carcass, and there is no way an animal that size would leave that large of a pool of blood. It just made no sense.
 
-“Fat chance” they responded in unison. I opened my door and started walking towards the passenger side of the truck. The car was sort of sideways in the ditch, and the driver side was now pressed against a cliff wall so that door would not open. The windows where rolled up. Sloane grabbed for the door handle but it was locked.
+“We were all a little shock up, but we grew up in the country. We weren’t about to stop enjoying our vacation because something killed a small animal near our cabin. It would take a lot more than that to scare us.
 
-“What is going on?” she said, and started pounding on the window, “open up!” she yelled. We pressed our faces on the window but it was too dark to see. I hadn’t really noticed ‘till this moment, but it was now past dusk, and seemed to have gotten dark fast – the sun was pretty much set, and the road was already in a shadow from being completely encompassed in a thick forest of trees.
+“We decided to continue our hike, around the lake. There’s a small rowboat that came with the cabin and we wanted to bring some beers and take it out for a spin. Well, we were enjoying ourselves a little too much, and were out on the lake while the sun started to set. It was dusk, and we decided we didn’t want to be out on the lake after dark, and we started to head back, rowing towards shore.” The woman looked down, and put her hand over her face. She was sobbing.
 
-“Shelbey open up!” Trinity screamed, still pounding on the glass. I tried to think quickly. I knew the trucks back window was broken, and could be pried open. It was a tight fit especially with all the gear in the bed.
+“I should have listened to her! My friend Haley stopped us as we were rowing, she was hysterical, she said she saw something, a few hundred feet out on the shore. She begged us to slow down, and pull the boat up to a different part of the shore. She said while we were goofing around, just singing and rowing back she saw something sitting on the shore, watching us. Not like a bear that’s just minding its business, and notices some people, but that this thing she saw was almost peering at us from behind a tree; following us with its head before it jumped back into the woods.
 
-“Trinity,” I said, “you are small enough to fit, climb through the back.” We hoisted her body up into the bed, and sure enough, the window peeled open, and she climbed halfway through.
+“We didn’t believe her. We could tell she was stunned, and that something was wrong but we told her she was acting crazy. Told her she had drunk a little too much more then she could handle...We kept rowing towards the shore, laughing, not worrying about anything, and she seemed to start believing us that maybe what she had seen was just in her head.
 
-“Is she in there? Did she faint or something?” I asked. Trinity crawled in fully, head first, landing on her face on the front seat.
+“We weren’t afraid because we knew there’s nothing really dangerous out here, the bears around here don’t attack people, and even if one was hanging around and had eaten the rabbit on the porch it was probably more interested in our granola bars then us.”
 
-“No one is in here” she yelled, “but it stinks, and its…wet…I’m gonna unlock the door.” We were confused. She opened the door and looked at us. We were completely in shock.
+The woman took another deep breath, and continued her story.
 
-“What?!” she yelled at us, “why are you staring at me like that?” She stepped out of the truck and opened the door wide, “there is no one in here look.”
+“We pulled up to the shore, me and my other friend, Stefaney were laughing, talking about what we would eat for dinner but could tell that Haley was still on edge, and approached the shore nervously, looking around as we pulled the small boat onto land.
 
-With the cab light on we looked into the truck – completely empty, engine still running, and a thick pool of blood saturated the passenger seat. Trinity had blood smeared all over her hands, part of her face, and her cloths as she had crawled right into it. She noticed it now in the light and started screaming.
+“It happened so fast. We didn’t hear a sound. I can’t really describe what I saw other then it seemed like it came down from the sky. It dropped from the air over Haley and draped it’s body around her, then instantly seemed to shoot up back in the air, landing a few hundred feet away.
 
-“Be quiet” Sloane yelled. We were in disbelief.
+“Out of the woods seven of eight other creatures just like it emerged, all leaping over to where the other thing had landed. They started devouring her, we couldn’t watch, but it seemed like they went into a frenzy and were more focused on attacking and fighting each other instead of our friend. We ran inside the cabin, I know it was a cowardly thing to do but I felt like my instincts took over. We left her. We didn’t even try to help. You think you will be brave in a situation like that but we just left her. We didn't know what to do, we hid in here; we didn’t sleep a second that night.” The woman was crying now, trying to sob as quietly as possible.
 
-"Shelbey!!" Trinity screamed. We searched around the car. Nothing. I looked at the driver's side of the door - it was clean, and the door was also locked. No blood anywhere except the passenger seat. Something was not right, and I had the sudden urge to run. I grabbed both the girls’ arms and ran for the Bronco.
+“The next morning we decided to leave. We didn’t pack anything. We waited until the coast was completely clear and stepped outside. It was around noon and when we got into the car to leave we realized that Haley had had the keys. We walked to where she had been attacked. There was nothing. Just blood. So much blood you can’t imagine. Some of it must have come from the creatures themselves. It seemed like they would go into a frenzy and attack each other. Maybe they even eat each other, I am not sure. We saw no sign of the keys or anything but blood. Stefaney wanted to make a run for it. She reasoned that both attacks had happened at night and that they probably slept during the day. That if we left now we could run for help before it got dark. I couldn’t bring myself to leave. I went back into the house, she pleaded with me to go but I just couldn’t. I let her leave all on her own, and I have been here ever since. It’s been four days since she left. I am just about all out of food. Those creatures return every night, looking for me. And I still don’t know what to do, or how to get out of here.”
 
-“What is going on?” Sloane asked.
+She started crying again, and I looked at my cousins. Everyone looked terrified, in shock, and most of all, sad.
 
-“I have no idea!” We jumped in the car and locked the doors. Trinity was still crying and looking at her hands in shock.
+“We need sleep” I replied, “I don’t know what we are going to do but I know that we can’t do anything tonight.” Everyone seemed to nod in agreement.
 
-“We need to get out of here now!” Sloane yelled.
+“I sleep on the floor, away from the walls” the woman said, “sometimes they bang on the walls in the middle of the night, I think they are trying to startle to me, to see if they can hear someone inside.”
 
-“We can’t leave Shelbey!!” Trinity screamed, crying.
+“Let’s all lay together in the middle of the floor, on the mattresses” Sloane suggested.
 
-“I don’t know how to get back” I said, “we have been driving this windy road for hours and there hasn’t been a building or house in sight.”
+We set pulled three twin mattresses from the other room – a bedroom with no windows that the women had apparently boarded off by tipping a refrigerator in front of the only door into it. We moved quickly, and quietly, and laid the mattresses on the ground together, sharing a couple blankets. I closed my eyes. I was equally exhausted, as I was full of nervous energy. I knew I need sleep, but I also did not want to slip into unconsciousness. My exhaust took over and I fell finally fell asleep. It was poor sleep, as I tossed and turned, waking up several times from nightmares where I saw a faceless creature reaching for me – seeing only the clawed hands that had tried to grab me earlier in the Bronco. I dozed in and out of my slumber for a few hours, the night seemed to go on for eternity.
 
-“So what, just drive!” she yelled. I started the car. As I began to put it in drive I felt a punch to my gut. A ding sound, and small light appeared on the dashboard. It was a low gas warning.
+I felt something grabbing me, shaking my arm. Another nightmare coming on, I told myself and tried to fight the sensation to get some more rest. But this wasn’t in my dreams. This was happening in the real world. Something was squeezing my forearm, tightly, subtly shaking me awake, and digging nails deep into my skin. I jerked awake to see what had me, but it was just Trinity, lying next to me on the mattress. Her hand was grabbing my arm so tightly I was about to yell at her to stop but she wasn’t looking at me. She was looking straight, her eyes were tightly locked directly above her towards the ceiling. She said nothing.
 
-“Shit” I yelled. Sloane saw too.
-
-“Look,” I said, “we know that the cabin is at the end of this road – we have to be close. We don’t have much gas left but I’d rather take my chances going forward toward the cabin, then go back where we know there is nothing. Plus, maybe Shelbey is hurt and started walking towards the cabin, at least if we head there, we can look for her on the road and call 911 from the cabin.” Sloane looked at me. I could tell she was terrified, but she nodded her head in agreement. We decided to go go forward (bad decision number 4).
-
-We passed slowly around the truck, I put the car in park and grabbed some of the loose gear that was in the back- two flashlights, a water canteen, and a long walking stick. We continued.
-
-I thought to myself how this didn’t make any sense. We were less than a minute behind my aunt… and there was only blood in the passenger seat, not the driver’s seat. The doors were locked, the windows rolled up…what could have happened? My thoughts were racing. I was trying to focus but couldn’t stop thinking about what just happened; I was driving fast but trying to stay steady. It was now pitch black and the road was somehow even windier than before. No one said a word.
-
-“Stop!” Sloane shouted from the front seat. I slammed on the breaks.
-
-“What?!” I said.
-
-“I saw something, up ahead!”
-
-“It’s just your imagination…” I started to say.
-
-“No, I saw something too!” Trinity said from the back seat.
-
-“What did you see”
-
-“I don’t know,” said Sloane, “it was dark, and crawling, like, it crawled across the road really fast.”
-
-“What did it look like” I asked. Sloan looked confused, almost embarrassed, like she didn’t trust her own eyes.
-
-“I…I..” she stuttered, “I’m not sure, it kind of moved like a animal? A monkey, or a wolf…”
-
-“What the fuck?”
-
-“I said I don’t know it just ran by, kind of like crawling” she said. I looked at her. I really did not know what to do.
-
-“Okay, well, whatever the "monkey wolf" was doing running across the road, we probably don’t want to get in it’s way,” I said sarcastically. I started rolling forward when we heard a terrible high pitch screech. I pushed on the gas pedal but nothing. The screech came again, louder, and everyone was screaming. I realized it was coming from the car. We were out of gas.
-
-“Shit” I said again, not to anyone in particular, but more just to the situation. I turned off the car. I had to think. Quickly.
-
-“Okay, what if we grab the flashlights, and the water and just start walking, we have to be really close now,” I asked them.
-
-“Are you actually an idiot?” Sloane responded, “I am not leaving this truck that’s the first rule of survival, stay with your car!”
-
-“Yeah,” I responded, “if you are in the Snow and people are looking for you! Not if you are probably a just few minutes from a real shelter that has food, and a phone! And no one has any idea we are lost out here!”
-
-“No way!” Sloane yelled.
-
-“I’m in charge so I decide what we do” I shouted back.
-
-“Will you both shut up!” Trinity whisper screamed, while she put her hands on our mouths.
-
-“There is something out there,” she mouthed, “listen.”
-
-We were quiet. No sound. It was so quiet we couldn’t even hear the normal chatter of crickets and frogs.
-
-"There is nothing out there, you are all seeing things, and hearing things, and I get that you are scared, but..."
-
-I stopped talking. I heard it. A rustling coming from behind the car. We stood still. It was fast, and sounded small, with little footsteps – like how a bird scurries in the underbrush. And then a louder crash like a branch breaking from a tree. This was not something small. We instinctively all jumped into the backseat and crouched down below the windows. We didn’t say a word but the noises continued, getting louder.
-
-Sloane’s eyes met mine. “What is it??” they asked. I shook my head. Suddenly, the noise was right outside the car. Not just rustling but we could now hear footsteps, and snorting grunts, it sounded like a horse or a bear, roughly blowing angry air out of it’s nostrils. Whatever it was was now right next to the side of the car. It was pitch black inside and outside. I couldn’t see anything but felt the vibration of something running its hand or body alongside the car. Then I heard it – the noise of pulling, yanking, on the passenger door handle. I closed my eyes as tight as I could. Somehow, thankfully, the door was looked. Immediately the car was pushed, and rocked, almost as in frustration. I looked up from my position squeezed in the back seat at the driver door lock – it was upright, totally unlocked. I heard footsteps running along the front of the car; it was heading to the other door. I sat up as fast as I could, I reached for the lock but right as I touched it the door swung open.
-
-We screamed, a long arm reached in towards us but it was too tight for it to get to us. We screamed in terror again. We scrambled towards the trunk, as the thing climbed further in, scratching at anything it could grab.
-
-“Open the back!” I screamed, but Trinity had already started to, and was climbing out. The creature jumped into the back seat, trying to climb towards the trunk. We leaped out the back, fast, I turned around to shut the back door and I saw its hands reaching for me. I slammed the door shut on them, as it screamed. Sloane had already ran around the car and slammed the front door shut, locking whatever it was inside.
-
-“Run!” I yelled. We started sprinting down the road, “into the trees!” I commanded.
-
-“Wait, look!” Trinity was pointing. About 100 meters in front of us, off the road, was the dark, vacant, shape of a cabin. We ran towards it. As we approached a noise startled us – it was a sound so hallow, broken, and frightening, to this day I can’t really even fully describe the terror it evoked in me. It was a howl, coming from the trapped animal/creature/thing, in the car. The howl sounded as viscous as a lion’s roar, and as lonely as a wolf’s. It wasn’t just a cry, but we realized immediately that it was a call. In the distance, shortly after the creature howled, we heard the return of the howl, from what sounded like at least a dozen calls in response.
-
-We ran to the cabin. There was a porch that wrapped around the house, and we climbed the stairs to get to the front door.
-
-“The door is locked!” Trinity yelled.
-
-“Try the window!” I responded.
-
-“There are no windows…” Sloane yelled to us both. We started scrambling. It was still pitch black but as we ran around the house a dim, old, motion sensor light turned on and we could see a little better. We were looking for an entry but there was nothing.
-
-“Here!” I yelled, “I found a back door!” The back door was locked but it was more like a screen door – not heavy like the front door, but clear plastic and the frame kind of already was dented enough to pry open. I looked around, I needed something flat to wedge in-between the frame and the door. There was another set of steps leading down from the porch, I ran down, frantically searching for something.
-
-“We need to get in!” Trinity yelled.
-
-“I know give me one second!” searching, I saw it. There was a pick axe I picked it up and swung it over my head, and started running up the stairs. I aimed for the part of the door that was bent, to try and wedge it open when suddenly, before I could even try to pry it the door swung open.
-
-"What is going on?!" It was a woman, old, in a long blue night gown. She looked at me, then my cousins, and then back at me.
-
-"Get inside!" she yelled.
-
-Without thinking, we all ran for the door towards the woman. I dropped my axe on the ground and rushed inside after my cousins (bad decision number 5).
+I looked up to see what she was staring at. Two eyes met mine through the window in the in the roof above us. A face, too dark to make out was peering through the skylight. I couldn’t see more than an outline, but one thing was impossible to miss. Glowing, red eyes, were examining the contents of the room and had stopped its search right on the four of us, all lying on the floor. I didn’t move, but it was too late. The creature had seen me, all of us, just lying there. Instantly it flew out of view, and we could hear it scurrying, crawling to the edge of the roof. It stood still for a few seconds before letting out a loud, piecing, howl.

@@ -58,4 +58,4 @@ My God, forgive me, I wish I had left.
 
 I'm sitting in my small apartment and the sun is setting. There is so much more to this story but it will have to wait until tomorrow because the sun is setting. Please, no, the sun is setting. And the terrors of the night are salivating in anticipation of the dark that is mere minutes away.
 
-[PART TWO](https://www.reddit.com/r/nosleep/comments/wm2vxu/ichor/)
+[PART TWO](https://www.reddit.com/r/nosleep/comments/wm4s01/ichor_two/)
