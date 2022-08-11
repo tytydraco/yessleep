@@ -2,7 +2,7 @@ A few summers ago, I had the opportunity to study abroad in France. To say that 
 
 &#x200B;
 
-After arriving at Charles de Gaulle airport and getting settled in our hotel, we set out to explore the city. Over the course of those four days, we saw Musée d'Orsay, the Louvre, the Eiffel Tower and the Champ de Mars, Versailles, and Notre-Dame (from a distance, as this was right after the fire), and of course, enjoyed the amazing food the city had to offer. We had more gelato and macarons than I could count. It was a great time. However, I had also wanted to take a tour of the Paris Catacombs. Unfortunately, time was a concern and I didn't want to be out 3in the city alone without cell service to communicate with the others.
+After arriving at Charles de Gaulle airport and getting settled in our hotel, we set out to explore the city. Over the course of those four days, we saw Musée d'Orsay, the Louvre, the Eiffel Tower and the Champ de Mars, Versailles, and Notre-Dame (from a distance, as this was right after the fire), and of course, enjoyed the amazing food the city had to offer. We had more gelato and macarons than I could count. It was a great time. However, I had also wanted to take a tour of the Paris Catacombs. Unfortunately, time was a concern and I didn't want to be out in the city alone without cell service to communicate with the others.
 
 &#x200B;
 
@@ -10,7 +10,7 @@ On our last day, after dinner, some of our group decided to turn in for the nigh
 
 &#x200B;
 
-We headed off, hopping from bar to bar until around 10:00pm, when we found one the girls liked. It was on a small, narrow stone brick road, lined with other small restaurants and bars, their outdoor seating areas filled with people. Inside, we found ourselves a round table and got drinks. I didn't realize it at the time, but one of the girls, Natalie, had been dropping hints on me the entire trip, and through my complete obliviousness, I had inadvertently "rejected" her and made her upset. As callous as it sounds, I wasn't really too concerned. I was having the time of my life. 
+We headed off, hopping from bar to bar until around 10:00pm, when we found one the girls liked. It was on a small, narrow stone brick road, lined with other small restaurants and bars, their outdoor seating areas filled with people. Inside, we found ourselves a round table and got drinks. I didn't realize it at the time, but one of the girls, Natalie, had been dropping hints on me the entire trip, and through my complete obliviousness, I had inadvertently "rejected" her and made her upset. As callous as it sounds, I wasn't really too concerned. I was having the time of my life.
 
 &#x200B;
 
@@ -26,7 +26,7 @@ I laughed, slightly embarrassed, and we started up a friendly conversation. I fo
 
 &#x200B;
 
-Introducing himself as Hugo, he was an instant hit. Especially with all three of the girls in our group, who seemed immediately drawn to him. He was simply magnetic in the way he spoke and carried himself. His face seemed almost fixed in a warm, inviting smile, which showed off his nearly perfect teeth. Of course, the French accent certainly gave him charisma points. Natalie in particular was hooked. She almost never took her eyes off of him as soon as he sat down. After everyone introduced themselves, we began talking about our trip and what we were doing on our study abroad semester. We talked about the U.S. and all the stereotypes associated with it, which brought laughs amongst everyone. 
+Introducing himself as Hugo, he was an instant hit. Especially with all three of the girls in our group, who seemed immediately drawn to him. He was simply magnetic in the way he spoke and carried himself. His face seemed almost fixed in a warm, inviting smile, which showed off his nearly perfect teeth. Of course, the French accent certainly gave him charisma points. Natalie in particular was hooked. She almost never took her eyes off of him as soon as he sat down. After everyone introduced themselves, we began talking about our trip and what we were doing on our study abroad semester. We talked about the U.S. and all the stereotypes associated with it, which brought laughs amongst everyone.
 
 &#x200B;
 
@@ -34,7 +34,7 @@ Hugo became the life of the party, even offering to buy our whole table drinks. 
 
 &#x200B;
 
-In one instance of attempting to produce another euro note from his pocket, he accidentally dropped something else out, the sound of a plastic material smacking the wooden floor of the bar. Ari was sitting next to him, and upon hearing the sound, reflexively looked to see what it was. As Hugo leaned over and reached down to retrieve the object, Ari quickly looked back up. 
+In one instance of attempting to produce another euro note from his pocket, he accidentally dropped something else out, the sound of a plastic material smacking the wooden floor of the bar. Ari was sitting next to him, and upon hearing the sound, reflexively looked to see what it was. As Hugo leaned over and reached down to retrieve the object, Ari quickly looked back up.
 
 &#x200B;
 
@@ -86,7 +86,7 @@ Hugo turned to the rest of us. "See? Your friend wants to come."
 
 "It will be fun!" For whatever reason, Hugo was very persistent. "You will get to meet my friends. We will all be friends."
 
-"No, I think it's time we call it a night," I said. I really hoped Hugo would not try anything. 
+"No, I think it's time we call it a night," I said. I really hoped Hugo would not try anything.
 
 "The night is still young!" Hugo stood up, pulling Natalie onto her feet with him. He pointed to a door in the corner of the bar room. "There is a secret entrance to the tunnels in the basement of this bar. The owner knows me. He will let us in."
 
@@ -106,7 +106,7 @@ Natalie turned to Hugo. "I think they want me to go." She began pulling away fro
 
 "She can speak for herself," said Hugo, his smile finally beginning to falter, his façade melting away.
 
-"Hugo, it was nice meeting you," Natalie said, no longer her flirtatious self. "But I have to go with them." She tried pull away again, but Hugo maintained his grip on her arm.
+"Hugo, it was nice meeting you," Natalie said, no longer her flirtatious self. "But I have to go with them." She tried to pull away again, but Hugo maintained his grip on her arm.
 
 "*Let go*." Oscar's voice pierced through the noise of the bar. He glared at Hugo, darting his eyes left and right, non-verbally telling him that it wasn't a good idea to pull something like that in a crowded place like this. Hugo's smile was completely gone now. He fixed his eyes on Oscar, slowly loosening his grip.
 
@@ -126,7 +126,7 @@ Natalie began to reply, "Oh, we're at the--"
 
 &#x200B;
 
-Outside, I breathed a sigh of relief. I was still feeling the tension from inside the bar. I was shocked at just how persistent Hugo was. I apologized to the others, realizing I should not have invited him to our table, but something told me he would have approached us anyway. Regardless, we were just happy to have gotten out of that situation. At least, we thought that was the end of it. 
+Outside, I breathed a sigh of relief. I was still feeling the tension from inside the bar. I was shocked at just how persistent Hugo was. I apologized to the others, realizing I should not have invited him to our table, but something told me he would have approached us anyway. Regardless, we were just happy to have gotten out of that situation. At least, we thought that was the end of it.
 
 &#x200B;
 
@@ -134,7 +134,7 @@ It was nearly 1:00 in the morning now, and the streets were quieter. Natalie wal
 
 &#x200B;
 
-The others heard us stop to look, and were about to look themselves, when I frantically whispered for them to keep moving and pretend we didn't know Hugo was behind us. Ari whisper-yelled a curse to him. She tried to rush us, quickening her pace and almost causing Natalie to trip. We had to get to the Métro, fast. We had to lose him before he found out where we were staying. 
+The others heard us stop to look, and were about to look themselves, when I frantically whispered for them to keep moving and pretend we didn't know Hugo was behind us. Ari whisper-yelled a curse to him. She tried to rush us, quickening her pace and almost causing Natalie to trip. We had to get to the Métro, fast. We had to lose him before he found out where we were staying.
 
 &#x200B;
 
@@ -151,8 +151,6 @@ Ari finally spoke. "Hey guys. I have to tell you. Back in the bar, he accidental
 &#x200B;
 
 Several blocks down, I glanced back. He was still following us. I could see him walking at a brisk pace, while still remaining calm enough as not to arouse suspicion. As he passed in and out of the pools of light from the street lamps, I saw that he was diverting his eyes. *Did he know that I saw him?*
-
- 
 
 We made it to the Métro, quickly making our way down the stairs, through the turnstiles, and onto the platform to wait for the train. There was still a good crowd of several dozen people at that hour, so we tried our best to weave through them to hide. Ari, Oscar, and I continued to anxiously dart our heads toward the landing of the station stairs, hoping we would not see Hugo. In just a few minutes, the train arrived, and we rushed in, not wanting to spend a single second longer on that platform. After everyone had boarded and the doors had closed, I glanced over at the window of the door leading to the second train car.
 
