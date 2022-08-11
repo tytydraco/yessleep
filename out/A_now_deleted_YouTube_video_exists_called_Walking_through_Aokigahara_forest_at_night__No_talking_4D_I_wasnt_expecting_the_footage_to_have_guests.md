@@ -246,9 +246,9 @@ At that point I finally threw up what had been burning in my throat. I didn’t 
 
 It was like being in a trance. The world around me didn’t seem real. I lost all sense of smell and touch. It was around the time the man filmed himself severing limbs in his bathtub when it hit me that this was for entertainment.
 
-I didn’t know who’s. His, some sick bastard who had liked the video—but he had filmed, edited, and put this together for someone to watch. For someone to watch him stuff each severed limb in a blender and then pour into a flask. He filmed himself cleaning everything up and gathering belonging—before heading into his little cabin in the forest. 
+I didn’t know who’s. His, some sick bastard who had liked the video—but he had filmed, edited, and put this together for someone to watch. For someone to watch him stuff each severed limb in a blender and then pour into a flask. He filmed himself cleaning everything up and gathering belongings—before heading into his little cabin in the forest. 
 
-The man stopped at a tree before emptying the flask. And then he did it several more times, and the more I watched, I could feel my brain starting to unravel, my body finally catching up to it. Finally, the man threw their clothes inside his cupboard, and stuffed their phone’s and passports under the floorboards. He started laughing again, more and more hysterically like a cartoon.
+The man stopped at a tree before emptying the flask. And then he did it several more times, and the more I watched, I could feel my brain starting to unravel, my body finally catching up to it. Finally, the man threw their clothes inside his closet, and stuffed their phone’s and passports under the floorboards. He started laughing again, more and more hysterically like a cartoon.
 
 He walked out into broad daylight and inhaled, and then exhaled—and I swore I could hear voices.
 
