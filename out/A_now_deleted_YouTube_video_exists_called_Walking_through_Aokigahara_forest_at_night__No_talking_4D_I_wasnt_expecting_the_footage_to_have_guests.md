@@ -210,7 +210,7 @@ Noah was frowning at something on the table.
 
 I recognised it.
 
-“What is this?” Noah picked up the same sign with, “Home Sweet Home.” Written in colourful  italics. He turned around, his lips curling into a smile. “Hey, so when I turn 25, will I automatically just start to like these?” He waved the sign mockingly.
+“What is this?” Noah picked up the same sign with, “Home Sweet Home.” in colourful italics. He turned around, his lips curling into a smile. “Hey, so when I turn 25, will I automatically just start to like these?” He waved the sign mockingly.
 
 “No.” The third guy said through a mouthful of drink. He shot Noah a spiteful smile. “You’re a Gen Z. You’ll never change.”
 
@@ -218,7 +218,7 @@ I recognised it.
 
 “Fuck.” NSFW’s head hit the table. “I’m gonna be sick.”
 
-Noah jumped up, grabbing a bottle of sake, and downing.
+Noah jumped up, grabbing a bottle of sake, and downing it like water. 
 
 I winced when he pulled a face like he’d sucked a lemon. “We’re gonna get going.” He announced, desperately trying not to slur his words.
 
@@ -280,7 +280,7 @@ They had no idea, I thought.
 
 The camera lingered on Noah's face, almost like a tease. He smiled, and the camera zoomed right into his mouth. Like this had been the punchline all along. 
 
-“Who wouldn't want free drinks?”
+“Well, who wouldn't want free drinks?”
 
 
 …
