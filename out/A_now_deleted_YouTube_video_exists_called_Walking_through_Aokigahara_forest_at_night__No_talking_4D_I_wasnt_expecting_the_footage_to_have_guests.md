@@ -153,7 +153,9 @@ His eyes, which until then had been almost permanently rolling in frustration as
 
 He walked over to the door and pulled off a cheap looking sign which said, “Home Sweet Home.”
 
-Noah rolled his eyes.  “I’m not a fucking idiot. This is the middle of nowhere? Yeah, this guy’s got skeletons in his closet.”
+Noah rolled his eyes. “I’m not a fucking idiot. "This shit in the middle of nowhere?" He waved the sign.
+
+"Yeah, this guys definitely got skeletons in his closet.”
 
 “Agreed.” NSFW muttered. His gaze was stuck to the door, his lips twitching. “We should… probably get going.”
 
@@ -266,15 +268,19 @@ It was raining, and the world was lit up in dulled blues and vivid reds. The cam
 
 He seemed to be waiting for something. When the crowd dispersed, I glimpsed a familiar bright green hoodie. Noah, standing in the rain with his hood up, high fiving a girl with blonde pigtails and a wide grin. The two of them were talking, and they seemed close, his head on her shoulder. The girl said something which looked like “I’ll be right back” and wandered back into the bar, and Noah leaned against the wall and tipped his head back, frowning at the sky.
 
-I already knew what the man was going to do. He did in three strides and planted himself in front of Noah.
+I already knew what the man was going to do. He did it in three strides, planting himself in front of Noah.
 
-He said something in Japanese, but when Noah frowned in confusion, his gaze no doubt wandering for someone to help him, the man laughed heartily. “Free drinks.” He said, and then he said it repeatedly until a drunken Noah could register it with a smile. “Free drinks?” Noah’s expression pricked—before the other two joined him.
+He something in Japanese, but when Noah frowned in confusion, his gaze no doubt wandering for someone to help him, the man laughed heartily.
 
-The camera lingered on his face, almost like a tease.
+ “Free drinks.” He said, and then he said it repeatedly until a drunken Noah's eyes lit up with intrigue. 
 
-He smiled, and the camera zoomed right into his mouth.
+“Free drinks?” The boy's expression pricked—before the other two joined him. NSFW, and the third friend. 
 
-“Who doesn’t want free drinks?”
+They had no idea, I thought. 
+
+The camera lingered on Noah's face, almost like a tease. He smiled, and the camera zoomed right into his mouth. Like this had been the punchline all along. 
+
+“Who wouldn't want free drinks?”
 
 
 …

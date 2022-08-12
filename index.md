@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4851
+file count: 4852
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1188,8 +1188,8 @@ file count: 4851
 * [I found a strange book in a clients library Now Im not sure Ill make it out alive](out/I_found_a_strange_book_in_a_clients_library_Now_Im_not_sure_Ill_make_it_out_alive.md)
 * [I found a strange notebook in my car after getting fired from my job](out/I_found_a_strange_notebook_in_my_car_after_getting_fired_from_my_job.md)
 * [I found a strange vase at an antique shop](out/I_found_a_strange_vase_at_an_antique_shop.md)
-* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
+* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I found a usb stick  The Long Face](out/I_found_a_usb_stick__The_Long_Face.md)
 * [I found a VHS in a VCR I boughtI wish I hadnt hit play](out/I_found_a_VHS_in_a_VCR_I_boughtI_wish_I_hadnt_hit_play.md)
 * [I found a video game that shouldnt be real and I think its going to kill me](out/I_found_a_video_game_that_shouldnt_be_real_and_I_think_its_going_to_kill_me.md)
@@ -1686,8 +1686,8 @@ file count: 4851
 * [I Think The Clouds Are Trying To Tell Me Something Is Coming](out/I_Think_The_Clouds_Are_Trying_To_Tell_Me_Something_Is_Coming.md)
 * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
 * [I Think There is A Reason No Ones Heard of the Breaking Wheel Cartel](out/I_Think_There_is_A_Reason_No_Ones_Heard_of_the_Breaking_Wheel_Cartel.md)
-* [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
 * [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
+* [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -1757,6 +1757,7 @@ file count: 4851
 * [I was a contestant on a survival show They never aired our season](out/I_was_a_contestant_on_a_survival_show_They_never_aired_our_season.md)
 * [I was a daughter of Deamhan Máthair](out/I_was_a_daughter_of_Deamhan_Máthair.md)
 * [I was a fire lookout but I dont know what I saw](out/I_was_a_fire_lookout_but_I_dont_know_what_I_saw.md)
+* [I was a park ranger stationed in a fire tower It had a strange set of rules](out/I_was_a_park_ranger_stationed_in_a_fire_tower_It_had_a_strange_set_of_rules.md)
 * [I was a security guard for an eccentric millionaire and his property What I found responding to an emergency there one night has scarred me forever](out/I_was_a_security_guard_for_an_eccentric_millionaire_and_his_property_What_I_found_responding_to_an_emergency_there_one_night_has_scarred_me_forever.md)
 * [I was a terrible brother](out/I_was_a_terrible_brother.md)
 * [I was a volunteer for a psychology experiment and now I cant sleep anymore](out/I_was_a_volunteer_for_a_psychology_experiment_and_now_I_cant_sleep_anymore.md)
@@ -4203,8 +4204,8 @@ file count: 4851
 * [THE VALUE OF HER SKIN](out/THE_VALUE_OF_HER_SKIN.md)
 * [The Voice in My Head is My Friend](out/The_Voice_in_My_Head_is_My_Friend.md)
 * [The voices in my head told me more than I wanted to know](out/The_voices_in_my_head_told_me_more_than_I_wanted_to_know.md)
-* [The voices](out/The_voices.md)
 * [The Voices](out/The_Voices.md)
+* [The voices](out/The_voices.md)
 * [The Wait](out/The_Wait.md)
 * [the waiting woman](out/the_waiting_woman.md)
 * [The Wandering Woman](out/The_Wandering_Woman.md)
