@@ -12,7 +12,7 @@ Outside the diner nobody paid me any mind. They were too busy indulging themselv
 
 "What are ya doing back here kid?" a man asked. My head raised. I'd never seen anyone like him before. He had long black sideburns that led to a dark lion’s mane with a little gray at the bottom of his face. He was short and stout, wearing all black except for a tight white button up beneath his coat. He had big bushy eyebrows and appeared to be missing a few teeth.
 
-"What's it to you?" I replied quietly, ducking my head back down.
+"What's it to you?" I replied quietly, ducking my head back down. Something was off about this guy. It had me on edge.
 
 "Ya look a lil' down is all. Figured I could help ya out," he said.
 
@@ -112,19 +112,21 @@ After four days of searching, I was able to find him. He looked like he had de-a
 
 "I refuse. That's not a favor," I shot back.
 
-"We'll see," and with that he left.
+"We'll see," and with that he left. I don't think I'd ever been truly afraid of Mr. Mor until that moment.
 
 This experience horrified me, and I immediately returned home. I needed to set things right between us. I found her in the kitchen. "Hey babe, I'm so sorry about earlier I..." before I could finish my arm extended and struck her across the face. Her eyes grow wide and we both sat in silence for a moment. She turned away from me, rubbing her cheek.
 
 I couldn't believe it. My arm had acted on its own as if I was powerless to stop it. "Cassie, I swear to god, I did not mean to do that. I would never. It was an accident, please, Cassie, I love you." She couldn't bring herself to respond. She simply left the room and went upstairs. I sat on the sofa all night. At one point I looked in the mirror and noticed deep dark bags under my eyes. My skin looked pale.
 
-So many questions floated through my mind. *How could I make this right? Would she ever forgive me? How did this happen? What had Mr. Mor done to me?* I had to find out.
+So many questions floated through my mind. *How could I make this right? Would she ever forgive me? How did this happen? What had Mr. Mor done to me? What else could he make me do?* I was fearful but I had to find out.
 
 I went searching for Mr. Mor. I couldn't find him right away. Each day I'd go to our spot and wait. Each day the guilt of my actions wore on me, and I became ill.
 
 Finally, after two weeks he returned. I let him have a piece of my mind.
 
 "How could you? You forced me to strike my wife!" I said red faced, with fists clenched. "You've crossed a line! We're done!"
+
+He looked me over. Raising his arm, he caused me to flinch. He knew I was afraid of him now.
 
 "Not so lad. Ya still owe me," he replied, leaning back, and placing his legs on the table in front of him. He looked slimmer than usual.
 
@@ -164,7 +166,7 @@ I needed Mor just to get through the day now. Any missed appointment could be th
 
 Weeks alone turned to months. I missed Cassie and Makenna dearly. This was the lowest I'd ever been in my life. On my birthday I received a package. It was from Cassie. My eyes lit up. Maybe just maybe I hadn't lost everything.
 
-It was divorce papers. That was the final straw for me. Mr. Mor needed to pay. I took a long look at myself in the mirror that night. I could barely recognize myself. The man staring back at me was disheveled and looked starved. The pale complexion was ghost-like, and my tired eyes looked as if they had forgotten what sleep was. This needed to change, and I set out to meet Mr. Mor the next day.
+It was divorce papers. That was the final straw for me. Regardless of my fears or what he could do to me Mr. Mor needed to pay. I took a long look at myself in the mirror that night. I could barely recognize myself. The man staring back at me was disheveled and looked starved. The pale complexion was ghost-like, and my tired eyes looked as if they had forgotten what sleep was. This needed to change, and I set out to meet Mr. Mor the next day.
 
 There he was at our usual spot. Feet up on the table, grinning, as if life was easy. It was infuriating.
 
@@ -188,7 +190,7 @@ There he was at our usual spot. Feet up on the table, grinning, as if life was e
 
 "Then I have a feelin' ya won't be seeing tomorrow lad. But do what ya must," he scoffed. I stormed away.
 
-When I returned home, I knew I had to act. His threat would be legitimate. He doesn't bluff. A contingency was needed. Before I called Cassie to explain everything, I started writing.
+When I returned home, I knew I had to act. His threat would be legitimate and I feared this truly would be the last day of my life. He doesn't bluff. A contingency was needed. Before I called Cassie to explain everything, I started writing.
 
 \*\*\*
 
