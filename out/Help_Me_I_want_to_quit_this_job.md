@@ -1,0 +1,31 @@
+So I am an engineer who recently joined a new company. My old company fired me and I was almost down to the streets and needed a job badly so when I got this opportunity at a new company which was offering me almost 65% hike, I jumped at the opportunity. At the interview, they clearly stated not once or twice, but multiple times that this was a shift-driven job and I would have to work at odd hours. I was OK with this because nothing much really was going on in my life and I could use the extra cash. I joined the company on 1st August. 
+
+I found my new colleagues to be absolutely cool but a couple of them exchanged wierd looks when I told them I was open to work in any shift. I worked in the general shift (from 8 AM to 4 PM) in the first week of August when my boss told me that I was put in the second shift (from night 10 PM to morning 6 AM) from the next week.
+
+Hence on this week's Monday, I decided to come in early at 6 PM because I wanted to complete reading the company SOPs and they were quite a handful. By 8 PM almost entire office was empty. Kiran, who sits opposite to my cubicle, came to me while leaving and gave me a weird looking key. I asked him what was it for. He just said, I will need it and it is in the men's washroom. Before I could ask him anything more, he left. 
+
+I didn't ponder much on it because I had to finish understanding these set of SOPs. There we atleast a dozen files, color coded - Blue was general, Yellow was internal, Orange was confidential, and there was just one crictical SOP file - Red and I was still working in Blues. 
+
+By 9 pm, when I went to pantry to heat my dinner, I could see the pantry staff already hurrying back and by 10 PM, it actually felt like I was all alone. It was a 200 ft. by 200 ft. office space and my cubicle only had the light on.
+
+The centralised A/C had stopped since the space was already cool. There was a solemn lull in the ambience. It made me uncomfortable. When you have lived always with the everyday din and sounds, the sudden permanence of silence was wierd to me. I got up from my chair pushing it back, it almost screeched against the floor, its sound echoing all across the floor. And then again all I could sense was the sudden solemn silence.
+
+I couldn't help it but feebly shouted, "Hello! anyone there?", half expecting someone or something to reply back. Nothing happened - just the eerie silence and lull.
+
+And then suddenly I heard a 'Grrrrrr' sound come from the office corner. It was an intense, irritating sound and it pierced the silence around like a sword cutting through a piece of cloth.  I almost leapt out of my place in shock. 
+
+Recovering, I stretched my eyes to the source of the sound to see something light up in the corner of the office. The sound kept getting more intense and intense. Some part of me wanted to just ignore it and leave the office but curiosity got the best of me and I mustered enough courage to silently trudge along the dark cubicles to the office corner.I bent down as I apporached the corner and slightly peeked at edge and peered into the dark corner  to find the source of the sound. 
+
+A huge wave of relief dawned upon me as I saw the source of commotion was a printer. Clearly embarrassed, I almost looked around to check if anyone had noticed my foolishnes. There was no one. Half-smiling and Huffing, I got up and went to the printer.
+
+The printer still kept going on with the intense grrrrr sounds. Seemed like it was printing something. I tried switching if off by tapping the buttons but it didn't! As I was fiddling with the buttons, the output tray suddenly pulled away, yanking it towards me and then it started - a sudden flurry of pages started ejecting out into the output tray and slapped right onto my face. I pulled my hand to stop the pages sputtering across my face and moved a feet back. The printer kept ejecting paper after paper relentlessly.  I picked up a paper and it had the letter 'U' printed on it in a very large font that almost covered the enitre page. I picked another page - It had the letter 'R'. As I fiddled with different pages, I realised all pages had a single letter and there were only three different letters - 'U' 'R' and 'N'. There were literally 100s of pages strewn across the floor with only these three letters and the printer kept printing more and more. I tried to make same of what 'URN' meant.
+And then I suddenly realised, it was not URN. It meant
+'RUN' !
+
+Shocked, I tried to move away from the printer but I felt my legs suddenly soggy and sticky and looked down to realise my shoes were drenched in black ink! I realised this was  probably the same ink used in the printer. My hear skipped a beat.  I paced myself back - trying to wipe off the ink of my shoes onto the carpet but the black fluid kept oozing and oozing out of my shoes magically. 
+
+and then I felt it - a sudden whooosh behind my back as if I was being watched, my every movement noted. I looked back quickly. There was no one. Afraid, I quickly started walking back towards my cubicle pacing my sticky shoes. I could still sense them being drenched in black ink. Moroever, I could hear footsteps behind me as well!
+
+I quickened my pace, my shoes squeaking with the black ink on it, the following footsteps quickened too in tandem. Afraid, I suddenly stopped and looked behind. The approaching footsteps seemed to have stopped suddenly too. I quickly glanced all over around - Nothing but pitch darkness. I looked down on the carpet and it was drenched in my shoeprints due to the black ink.  And then I noticed it - 
+
+A black shoeprint slowly disaappeared on the carpet only to be momentarily refilled by a smaller shoeprint - in red! A chill ran down my spine - I wanted to shout but my throat suddenly went dry, I tried  to turn and run back, but it looked like my feet had lost motion - I fell on my hips and tried to crawl away - I couldn't. All I could see was the red footsteps approach me slowly, exactly tracing my path, my footprints! As the red footprint was just one step away from me, it dawned upon me - the red in the footprint was blood.

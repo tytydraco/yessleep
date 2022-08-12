@@ -1,12 +1,12 @@
 Tyler and I have been friends for years. We met at the local church when we were little. We have been attached at the hip ever since.
 
-For as long as I've known him Tyler has only had one rule in his house: don't go in the closet. I've never really understood why. I'm a teen now, when you me not to do something...I want to do it.
+For as long as I've known him Tyler has only had one rule in his house: don't go in the closet. I've never really understood why. I'm a teen now, when you tell me not to do something...I want to do it.
 
-Is it because he has an embarrassing collection or something? We're not kids anymore, I know what Playboy is. Do his parents keep guns in there or something? I probably wouldn't even care if he'd tell me something but he never does. So it's become the itch that never gets scratched.
+Is it because he has an embarrassing collection or something? We're not kids anymore, I know what Playboy is. Do his parents keep guns in there or something? I probably wouldn't even care if he'd tell me something but he never does. So its become the itch that never gets scratched.
 
-For a while I didn't know if it was his rule or his parents. Honestly, I didn't even know if he's referring to his closet specifically or any closet in his parents’ house. I was always so confused.
+For awhile I didn't know if it was his rule or his parents. Honestly, I didn't even know if he's referring to his closet specifically or any closet in his parents’ house. I was always so confused.
 
-One time I had to piss really bad. All the bathrooms were taken except the one in his Tyler's parents’ room. I'd never actually been in their room before. There were two doors in there, I didn't know which was for the bathroom, and grabbed the knob nearest to me. Before I could turn Tyler's dad grabbed my arm.
+One time I had to piss really bad. All the bathrooms were taken except the one in his Tyler's parents’ room. I'd never actually been in their room before. There were two doors in there, I didn't know which was for the bathroom, and grabbed the knob nearest to me. Before I could turn it Tyler's dad grabbed my arm.
 
 "Marco. Do not go in the closet," he said, glaring at me.
 
@@ -24,13 +24,13 @@ He didn't say how long he was going to be. It didn't take long for boredom to ki
 
 So, I opened the closet.
 
-In the corner was a basket of dirty clothes. They gave off a faint smell of body order. Shirts hung neatly. Other items were stacked on top of each other with precision. Nothing looked too out of the ordinary to me. I felt pretty stupid, having fallen for this long-running gag. *It took me years to try it and this what I see?*
+In the corner was a basket of dirty clothes. They gave off a faint smell of body order. Shirts hung neatly. Other items were stacked on top of each other with precision. Nothing looked too out of the ordinary to me. I felt pretty stupid, having fallen for this long-running gag. *It took me years to try it and this is what I see?*
 
 I didn't want to invade Tyler's privacy any further and began to close the door. As I did so, there was one thing that caught my eye, forcing me to pause. Something high up, further into the closet had some shine to it. Moving some shirts out of the way I saw that the closet went much deeper than I originally thought.
 
 A stack of boxes was behind the shirts. Sitting atop them was a half-eaten sandwich. It looked fresh. My stomach was rumbling. I picked it up and took a bite. Peanut butter and banana? We used to eat those as kids.
 
-Next to the sandwich sat a small cup of water. My hand made contact and it immediately retreated. *Damn that's hot.* I shook my hand before putting my burnt finger into my mouth. Then I began moving boxes to the side and the object of the shine had become clear it was duct tape. It was wrapped around something.
+Next to the sandwich sat a small cup of water. My hand made contact and it immediately retreated. *Damn that's hot.* I shook my hand before putting my burnt finger into my mouth. Then I began moving boxes to the side and the object of the shine had become clear. It was duct tape. It was wrapped around something.
 
 What was it? It was attached to a hook at the top of the closet. As more boxes were moved out of the way my line of vision followed the duct tape downward. My eyes kept following until it reached something recognizable.
 

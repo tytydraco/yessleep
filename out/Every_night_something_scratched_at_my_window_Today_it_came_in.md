@@ -1,14 +1,14 @@
- To give some backstory, every night for the past month, I keep hearing something outside my window. As soon as I lay in bed, it would scratch at the glass, making it impossible to sleep. At first, I thought it was a raccoon or something at first, but after the second day, I knew it wasn’t a raccoon. The scratching was too consistent like it was done with purpose.
+ To give some backstory, every night for the past month, I kept hearing something outside my window. As soon as I lay in bed, it would scratch at the glass, making it impossible to sleep. At first, I thought it was a raccoon or something, but after the second day, I knew it wasn’t a raccoon. The scratching was too consistent, like it was done with purpose.
 
 Yesterday, it happened again. I was awoken by what sounded like nails on a chalkboard. The clawing continued, inching me closer to insanity. Deciding I'd had enough, I jumped and tore my blinds open. Something ducked. For an inch of a second, I could see a figure. But as quickly as I saw it, it disappeared.
 
 I sat motionless on my bed, my mind far too tired to make a rationale for this. Before I could even try, something hard collided with the glass, almost making it shatter. I jolted and, like a child, pulled the blanket over my body as if that would help.
 
-The window creaked open. My blood froze in my veins. Slender fingers pressed down on me, the body of the thing entering my room. I couldn’t move. I couldn’t even scream. The bitter coldness of its body hurt me more than the pressure.
+The window creaked open and my blood froze in my veins. Slender fingers pressed down on me, the body of the thing entering my room. I couldn’t move. I couldn’t even scream. The bitter coldness of it hurt me more than the pressure.
 
 My breath caught in my throat. I figured I was suffocating because of the noise coming out of my mouth, but I realized the sound wasn’t coming from me.
 
-Its vocal cords splintered while attempting to speak. It was trying to communicate something to me, I just didn’t know what. A hand reached out, fingertips caressing my cheek.
+Its vocal cords splintered while attempting to speak. Or at least, that's what I think it was doing. It was trying to communicate something to me, I just didn’t know what. A hand reached out, fingertips caressing my cheek.
 
 A painful mixture of cold and wet spread across my face. “Open...” is what I assume it said. It was hard to hear over the sound of crackling vertebrae. Again, the creature wheezed out, “Are you... awake..?” The voice continued in an inhumane replica of a human. “Please… look at me.” It sounded like speaking tore its throat apart. Once its vile breath hit my face, it took everything I had to not vomit.
 
