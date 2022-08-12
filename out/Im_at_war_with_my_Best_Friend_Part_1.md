@@ -6,7 +6,7 @@ The first day of school was when everything changed, though, and I think I need 
 
 However, the day before was a normal day. Andrew had come over to hang out on our last day of summer vacation and we had just started playing Madden on my Playstation. We weren't talking too much yet, as my mom was in the kitchen right next to us, watching us play. She eventually brought a bag of Doritos to the couch for us to share before going upstairs.
 
-As I leaned down and reached my hand into the bag to get a chip, Andrew became comfortable again and started talking. "Do you ever just... Never mind," he said.
+As I leaned down and reached my hand into the bag to get a chip, Andrew became comfortable again and started talking. "Do you ever just... Never mind," he said, his eyes fixated on the TV.
 
 I looked up at him, laughing. Over the years, he had gotten bulkier, and he was now just an inch taller than me. I grab a chip, putting it into my mouth, and started chewing. "What were you gonna say?" I say, still laughing. I unpause the game, throwing the ball to one of my team members.
 
@@ -36,13 +36,13 @@ The next morning I woke up tired but in a good mood. I was nervous for the first
 
 As I scrolled, I was confused when I saw that Andrew had unadded me on Snapchat.
 
-It struck me as odd, and I decided to shoot him a DM about it on Instagram. I opened his profile. I was blocked.
+It struck me as odd, and I decided to shoot him a DM about it on Instagram. I opened his profile. I was blocked. I also realized his profile picture and bio were different. His profile picture was just a black screen and his bio said "I must go in."
 
 I was even more confused now. Why would he do this? It had to be an accident. I decided to just text him and ask, to see if it was a mistake or not. I sent him a text, but as it was sent, the text turned green and never said it was delivered. He had blocked me on iMessage as well.
 
 "The fuck?" I muttered to myself. I felt myself begin to get a little scared. Did Andrew cut off all contact with me? Did he not want to be friends anymore? I didn't know, but a part of me was still trying to convince myself that it was just a mistake and that I would ask him at school. I heard my bus pull up to my house, and I swung my bag over my back and ran down the stairs, and out the door, walking toward the bus.
 
-When I finally got to school, I decided to find Andrew before first period started. There were 4 minutes left, so I didn't have a lot of time. I roamed the halls, looking around for him, saying hi to other friends along the way. 1 minute before the bell for first period rang, I gave up and looked at my schedule. I had math first period.
+When I finally got to school, I decided to find Andrew before first period started. There were 4 minutes left, so I didn't have a lot of time. I roamed the halls, looking around for him, saying hi to other friends along the way. 1 minute before the bell for first period rang, I gave up and looked at my schedule. I had math for first period.
 
 I practically jogged to the class, looking for the room it was in, breathing a sigh of relief when I found it. I opened the door and walked in, seeing nearly every seat occupied as the bell rang. I saw the teacher typing something down on her computer. I saw an empty seat and made my way to it, making sure to not bother anybody.
 
@@ -66,9 +66,9 @@ Andrew turned around, looking a little irritated but when he saw me, I saw him f
 
 I look at him, confused. "What are you talking about?" I respond. Andrew takes a step closer to me, nearly getting in my face. I shiver, as it seemed like his eyes were blazing right through me.
 
-"I know what you're going to ask me. Here's my answer. I'm not trying to be your friend anymore," he said. My heart sank when he said this, but he continued by saying "But I want to play a little game. I want to see how you go about this year with me not being your friend, but your enemy,"
+"I know what you're going to ask me. Here's my answer. I'm not trying to be your friend anymore," he said. My heart sank when he said this, but he continued by saying "But I want to play a little game. I want to see how you go about this year with me not being your friend, but your enemy," He then leaned his head over to my shoulder, whispering into my ear; "I'll be watching you,"
 
-"Andrew, cut the bullshit," I try laughing, but I slowly stop laughing when I realized he wasn't laughing back. Andrew shoves me a little bitch, surprising me and nearly making me lose my balance. Andrew gets closer to me as I look back at Andrew, more frustrated.
+"Andrew, cut the bullshit," I try laughing, but I slowly stop laughing when I realized he wasn't laughing back. Andrew shoves me back a couple feet, surprising me and nearly making me lose my balance. Andrew gets closer to me as I look back at Andrew, more frustrated.
 
 "The fuck is your problem?" I said, my voice trembling halfway through my sentence. Even though he was my best friend, this was starting to make me a little afraid. A crowd of people started to form around us. I looked around at the people circling us in shock.
 
@@ -108,11 +108,27 @@ Mia smiles as I say that, then points behind me. I turn around and see the class
 
 "Hope the teacher isn't mad at us for being late," Mia giggles. I raise an eyebrow at her as I open the door, and we walk in. As we walk in, the teacher stops her sentence and gives us a look as we come in. The rest of the class awkwardly stares at us. I felt uncomfortable as I walked towards a seat.
 
+&#x200B;
+
 Anyway, I'm getting off track. Mia and I made sure we sat next to each other in that class, as we had just become friends. We even had another class together; Science.
 
 The rest of the day went fine. I didn't see Andrew again for the rest of that day, so that confirms that we don't have any classes together, which, after the encounter we had at school, I was glad. I don't know what's wrong with him now, but I'm terrified of him now.
 
-I got off my bus and walked to my house, which was just around the corner. I got out my phone and texted my mom that I was home, since she was going to be at work for another few hours. When I unlocked the door and walked in, I started to get a weird, dreadful feeling. I noted it and started taking short glances around the house.
+After school, I started walking to the busses, heading towards the exit door of the school. I took a quick look behind me and saw Andrew, staring at me, following me.
+
+I started getting timid as I pushed open the doors quickly. As I got out to the bus area, I decided to take a right, away from where my bus was to see if Andrew would follow me. I took the right. I looked behind me. Andrew was still following me, this time walking faster toward me.
+
+I started getting more frightened. I looked around me to see if anybody was noticing me getting followed, practically stalked, but nobody did. Everyone was standing around laughing, unbothered. I was always antisocial so I was too scared to ask anyone for help. As Andrew kept following me, I felt impending doom fall over me, like the walls were closing in on me.
+
+As Andrew got closer, I didn't think as I started sprinting away, running towards my bus. I felt Andrew close behind as people started turning around to see the commotion. I saw my bus in the near distance but I still felt Andrew getting closer, saying my name.
+
+The bus doors were still open and before Andrew could grab me I practically jumped onto the bus, to the surprise of my bus driver. I checked to see if Andrew came in. He didn't. He was just giving me a dead stare, smirking. As I walked farther down the bus to find a seat, Andrew followed my move, looking through the bus windows to continue staring at me.
+
+I steadily sat down in a seat, closing my eyes in comfort as there were 2 kids sitting in the seat next to me, blocking Andrew's view from looking in. Even though I felt safe, I still knew his eyes were laid on the window, trying to look in after me. He was like a psycopath now, this wasn't the old Andrew.
+
+&#x200B;
+
+When the bus came to my stop, I got off in a rush and walked to my house, which was just around the corner. As I got off, I started getting the weird feeling of being watched as the bus drove off. Anxious, I started skimming over my surroundings, feeling like someone was going to jump out of a bush and attack me at any moment, but that never happened. I nervously pulled out my phone and texted my mom that I was home, since she was going to be at work for another few hours. When I unlocked the door and walked in, a dreadful feeling came over me as well. I noted it and started taking short glances around the house.
 
 I didn't know what I was trying to find but there was nothing, however, the feeling remained. Something felt wrong. I walked up the stairs and went up to my room, almost collapsing on my bed as I turned on my phone. I checked the time. 3:46 PM.
 
@@ -132,17 +148,19 @@ I pulled the curtains close and stepped back, horrified. All I could do was reop
 
 A second later I received a new message. I opened it. It was a picture of me in math, clearly looking at somebody else's paper, cheating. It was taken outside the class, through the tiny window in the door. He had taken a picture of me.
 
-Before I could respond, Andrew sent another message. It read; *"If you don't come out here, I will send the photo to the teacher and show her that you cheated. You don't want an F, do you?"*
+Before I could respond, Andrew sent another message. It read; *"If you don't come out here, I will send the photo to the teacher and show her that you cheated. You don't want to take an F, do you?"*
 
 I stared at the text in disbelief. He really took a picture of me without me noticing, and he was going to blackmail me?
 
-He sent another message soon after. I hesitated before pressing to view it. I looked at the message. He had sent the password to my iCloud. Along with it came the message *"I will also leak your iCloud password all over the internet, so everyone will get access to everything you have,"*
+He sent another message soon after. I hesitated before pressing to view it. I looked at the message. He had sent the password to my iCloud. Along with it came the message *"Your iCloud password will also be all over the internet, so everyone will get access to everything you have. So what’s it gonna be?"*
 
 I looked at my closed window, my mind racing with so many thoughts. It felt as if I had deaf and the only thing I could hear was my heartbeat. I wanted to go out and confront him, but I also didn't. I was too afraid to. He was supposed to be my best friend, why was he doing this?
 
 I hovered my fingers over the keyboard, not thinking as I typed out the message *"No."*
 
-I regretted sending that because I knew what the consequences would be. My iCloud would get hacked, and my life would potentially be ruined, and if I changed it, he could most likely just get the password again. Andrew sent me another snap a minute later. I opened it quickly. It read; *"You think I'm joking? I'm not fucking joking. Get the fuck out here Ryan or I'll ruin your god damn life."*
+I regretted sending that because I knew what the consequences would be. My iCloud would get hacked, and my life would potentially be ruined, and if I changed it, he could most likely just get the password again.
+
+As I stood and contemplated, I heard a loud bang downstairs on the front door, followed by loud yelling that was definitely Andrew. It startled me and made me nearly jump out of my skin. Andrew sent me another snap a minute later. I opened it quickly. It read; *"You think I'm joking? I'm not fucking joking. Get the fuck out here Ryan or I'll ruin your god damn life."*
 
 I reread the message over and over, trying to get a grasp on what I should do. I wanted to stay inside and be safe but deep down, I knew that it was best that I went out to see what he wanted.
 

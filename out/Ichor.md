@@ -1,4 +1,4 @@
-My name is Esme Dauphine Fleur de Lys and I am 223 years old. I was born in 1,782 the youngest of four older brothers. We were dirt poor bastards with an invisible mother who worked eighty-hour work weeks.
+My name is Esme Dauphine Fleur de Lys and I am 223 years old. I was born in 1782 the youngest of four older brothers. We were dirt poor bastards with an invisible mother who worked eighty-hour work weeks.
 
 Isabeau, my mother, once told me -- on one of the impossibly rare dates she had time to speak with me -- that there were only two ways for a girl to be able to feed herself in France during unrest: become a prostitute or become a street urchin.  I almost laughed. There was no way I'd be spreading my legs for any amount of money. And though there were workhouses, I knew I'd be spreading them just the same for a terrible job and little pay. So, an urchin I became. I followed my brothers around the city -- Yves, Benoit, Henri, and Auben -- and, thanks to their tutelage, I quickly became adept at petty theft. Sure, somedays I'd be robbed and go to sleep with a painfully hungry belly, but for the most part I was full and wild and happy.
 
