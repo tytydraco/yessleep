@@ -123,7 +123,7 @@ Noah rolled his eyes. In the exposure of the flashlight’s glare, I counted fou
 
 “You’re an exaggeration.”
 
-“You’re mom’s an exaggeration.”
+“Your mom’s an exaggeration.”
 
 Both of them scoffed and started laughing, and I found myself enjoying their stupid back and forth.
 

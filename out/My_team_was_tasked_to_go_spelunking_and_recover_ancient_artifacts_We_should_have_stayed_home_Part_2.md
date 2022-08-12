@@ -331,3 +331,7 @@ Fairweather stayed silent.
 “Saf*er*, then. Come on.” Alison said.
 
 Alison handed Fairweather's rifle to Riley. The city had fallen silent again. We hauled Fairweather off and moved as quietly as we could. Soon we were off in a much darker part of the city. All of us but Alison turned off her headlamps, who set hers to dim. Jared and I had to turn off night vision. Using that much suit battery earlier was a bad idea.
+
+&#x200B;
+
+[Part 3 (Finale)](https://www.reddit.com/r/nosleep/comments/wmavf4/my_team_was_tasked_to_go_spelunking_and_recover/)

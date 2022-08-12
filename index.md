@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4850
+file count: 4851
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -531,8 +531,8 @@ file count: 4850
 * [Dont Go Upstairs](out/Dont_Go_Upstairs.md)
 * [dont hang glide in NC mountains](out/dont_hang_glide_in_NC_mountains.md)
 * [Dont judge a book by its cover](out/Dont_judge_a_book_by_its_cover.md)
-* [Dont let the bed bugs bite](out/Dont_let_the_bed_bugs_bite.md)
 * [Dont Let the Bed Bugs Bite](out/Dont_Let_the_Bed_Bugs_Bite.md)
+* [Dont let the bed bugs bite](out/Dont_let_the_bed_bugs_bite.md)
 * [Dont Let Your Kids Crawl Up Drain Pipes](out/Dont_Let_Your_Kids_Crawl_Up_Drain_Pipes.md)
 * [Dont Lie on Dating Apps](out/Dont_Lie_on_Dating_Apps.md)
 * [Dont make my mistake avoid empty grocery stores late at night](out/Dont_make_my_mistake_avoid_empty_grocery_stores_late_at_night.md)
@@ -1188,8 +1188,8 @@ file count: 4850
 * [I found a strange book in a clients library Now Im not sure Ill make it out alive](out/I_found_a_strange_book_in_a_clients_library_Now_Im_not_sure_Ill_make_it_out_alive.md)
 * [I found a strange notebook in my car after getting fired from my job](out/I_found_a_strange_notebook_in_my_car_after_getting_fired_from_my_job.md)
 * [I found a strange vase at an antique shop](out/I_found_a_strange_vase_at_an_antique_shop.md)
-* [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
+* [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I found a usb stick  The Long Face](out/I_found_a_usb_stick__The_Long_Face.md)
 * [I found a VHS in a VCR I boughtI wish I hadnt hit play](out/I_found_a_VHS_in_a_VCR_I_boughtI_wish_I_hadnt_hit_play.md)
 * [I found a video game that shouldnt be real and I think its going to kill me](out/I_found_a_video_game_that_shouldnt_be_real_and_I_think_its_going_to_kill_me.md)
@@ -2760,8 +2760,8 @@ file count: 4850
 * [My Husbands Last Visit](out/My_Husbands_Last_Visit.md)
 * [My Idiot Mobster Husband Killed The Wrong Guy Now Our Whole Family Is Paying The Price](out/My_Idiot_Mobster_Husband_Killed_The_Wrong_Guy_Now_Our_Whole_Family_Is_Paying_The_Price.md)
 * [My idiot roommate didnt pay the power bill](out/My_idiot_roommate_didnt_pay_the_power_bill.md)
-* [My Imaginary Friend Timmy](out/My_Imaginary_Friend_Timmy.md)
 * [My imaginary friend Timmy](out/My_imaginary_friend_Timmy.md)
+* [My Imaginary Friend Timmy](out/My_Imaginary_Friend_Timmy.md)
 * [My Imaginary Friend](out/My_Imaginary_Friend.md)
 * [My internet posts are in a diffrent universe](out/My_internet_posts_are_in_a_diffrent_universe.md)
 * [My job is watching a woman trapped in a room Part Two](out/My_job_is_watching_a_woman_trapped_in_a_room_Part_Two.md)
@@ -2944,6 +2944,7 @@ file count: 4850
 * [My sugar daddy asks me for weird favors](out/My_sugar_daddy_asks_me_for_weird_favors.md)
 * [My team was tasked to go spelunking and recover ancient artifacts We should have stayed home Part 1](out/My_team_was_tasked_to_go_spelunking_and_recover_ancient_artifacts_We_should_have_stayed_home_Part_1.md)
 * [My team was tasked to go spelunking and recover ancient artifacts We should have stayed home Part 2](out/My_team_was_tasked_to_go_spelunking_and_recover_ancient_artifacts_We_should_have_stayed_home_Part_2.md)
+* [My team was tasked to go spelunking and recover ancient artifacts We should have stayed home Part 3](out/My_team_was_tasked_to_go_spelunking_and_recover_ancient_artifacts_We_should_have_stayed_home_Part_3.md)
 * [My TenYearOld Wont Stop Playing With Teddy Bears](out/My_TenYearOld_Wont_Stop_Playing_With_Teddy_Bears.md)
 * [My terminally ill grandmother broke character](out/My_terminally_ill_grandmother_broke_character.md)
 * [My time is running low](out/My_time_is_running_low.md)
