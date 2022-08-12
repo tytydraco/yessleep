@@ -153,7 +153,7 @@ His eyes, which until then had been almost permanently rolling in frustration as
 
 He walked over to the door and pulled off a cheap looking sign which said, “Home Sweet Home.”
 
-Noah rolled his eyes. “I’m not a fucking idiot. "This shit in the middle of nowhere?" He waved the sign.
+Noah rolled his eyes. “I’m not a fucking idiot. This shit in the middle of nowhere?" He waved the sign.
 
 "Yeah, this guys definitely got skeletons in his closet.”
 
