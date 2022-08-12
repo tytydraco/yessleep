@@ -210,7 +210,7 @@ Noah was frowning at something on the table.
 
 I recognised it.
 
-“What is this?” Noah picked up the same sign with, “Home Sweet Home.” in colourful italics. He turned around, his lips curling into a smile. “Hey, so when I turn 25, will I automatically just start to like these?” He waved the sign mockingly.
+“What is this?” Noah picked up the same sign with, “Home Sweet Home.” in colourful italics. He turned to face the others, his lips curling into a smile. “Hey, so when I turn 25, will I automatically just start to like these?” He waved the sign mockingly.
 
 “No.” The third guy said through a mouthful of drink. He shot Noah a spiteful smile. “You’re a Gen Z. You’ll never change.”
 
@@ -240,9 +240,9 @@ I didn’t hear it. He muted them. He only showed what he wanted me—or anyone 
 
 The soft spoken guy bled into the footage towards the end. I don’t think he knew. I think he went to the bathroom, or maybe to crash somewhere. His eyes, his expression, when seeing the scene in front of him will haunt me for the rest of my life. 
 
-And this time the man didn’t take his time like the others too. The third friend dived over the couch and attempted to get to the other’s side, but the man grabbed his leg and yanked him to the ground—but he was ready, rolling onto his back and crawling, grasping at the fibre of the carpet, his hands pooling red from trying to staunch the wound in NSFW’s neck which was passed saving. I don’t want to type this, but I think the guy gave up. Something in him snapped, and he stopped trying to get away, only curling into a ball and attempting to shield the camera-man’s frenzied hits. He missed most of them, thank God. 
+And this time the man didn’t take his time like the others too. The third friend dived over the couch and attempted to get to the other’s side, but the man grabbed his leg and yanked him to the ground—but he was ready, rolling onto his back and crawling, grasping at the fibre of the carpet, his hands pooling red from trying to staunch the wound in NSFW’s neck which was passed saving. I don’t want to type this, but I think the guy gave up. Something in him snapped, and he stopped trying to get away, only curling into a ball and attempting to shield the camera-man’s frenzied hits. 
 
-The psycho’s momentum was fading. When he realised he wasn’t going to get anywhere by stabbing, he grabbed the guy by the hair, wrenched his head back, and plunged the blade into his eye. 
+He missed most of them, thank God. The psycho’s momentum was fading. When he realised he wasn’t going to get anywhere by stabbing, he grabbed the guy by the hair, wrenched his head back, and plunged the blade into his eye. 
 
 At that point I finally threw up what had been burning in my throat. I didn’t need to watch more. I didn’t have to. But I couldn’t fucking stop. I couldn’t fucking stop, so what does that say about me? 
 
@@ -270,7 +270,7 @@ He seemed to be waiting for something. When the crowd dispersed, I glimpsed a fa
 
 I already knew what the man was going to do. He did it in three strides, planting himself in front of Noah.
 
-He something in Japanese, but when Noah frowned in confusion, his gaze no doubt wandering for someone to help him, the man laughed heartily.
+He said something in Japanese, but when Noah frowned in confusion, his gaze no doubt wandering for someone to help him, the man laughed heartily.
 
  “Free drinks.” He said, and then he said it repeatedly until a drunken Noah's eyes lit up with intrigue. 
 
