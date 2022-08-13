@@ -1,0 +1,21 @@
+I was seventeen when this happened. It was in the summer of 1998. Me and my friend, we'll call him Dennis, used to drink and smoke. I know, I know, we were underage and shouldn't have, but when everyone else at your high school is shooting dope and snorting coke, I feel that drinking a little Bud Light and smoking a few cigarettes a year before you're legally allowed to is comparatively fine. Our parents and the cops didn't see it that way, however, so we had to find a place that was secretive. After a lot of trial and error - once involving me nearly having to spend a day in jail, but that's a story for another day -  we eventually found out that smoking and drinking under the cover of night at the local graveyard was the best way to stay out of trouble. It was freaky at night, but once you had a good buzz going you stopped caring.
+
+So, this graveyard had this small mausoleum in it, the city paid for it to house the corpse of some sheriff who'd apparently caught some really bad serial killer way back when. The mausoleum had no doors on it, but just this rusty old gate. Weird right? Anyway if you went inside you'd see a few steps downward that eventually led to this fabled sheriff's coffin. We used to throw our beer cans down those steps. We were stupid and drunk kids okay? Just remember that mausoleum, I know that I always will.
+
+So one night we were doing our usual, smoking and drinking, it was about 2 AM. The grass was wet due to a heavy rainstorm the night before. We were actually just about to leave when Dennis suddenly turned to me with this look of bewildered horror on his face. He pointed to that old mausoleum with a shaking finger.
+
+'H-hey man. What the fuck is that?' he stammered.
+
+I looked to where he was pointing and froze in terror. The rusty hinges squealed like mice as that *thing* opened those dreadful black gates and stepped into the small amount of white light cast by the full moon. It was a skeleton.
+
+It stood there for a moment just observing our terrified and shaking forms. Its clean, white as paper bones gleaming in the pale moonlight. Its black eye sockets directed at us. It was wearing a hat, the type worn by sheriffs back in the times of cowboys and cattle rustlers. Hooked around one of its ribs was a rusty, golden star with the word 'Sheriff' etched across it. In its right hand, it carried an antique revolver that looked like it would explode if fired and, in its left, one of our empty Bud Light cans. It pointed the revolver directly at me and threw the empty beer can to the floor. It spoke in a horrifically high-pitched voice that sounded exactly like the voice of *Judge Doom* at the end of *who framed Rodger Rabbit?*
+
+'I've got a bone to pick with you.' it cried in that awful tone and fired the gun.
+
+As I had previously predicted, the old and battered gun exploded but not before a bullet managed to exit it. The bullet whizzed through the air and became embedded into a tree maybe an inch away from my right ear, sending pieces of bark flying outward, its course altered by the sudden explosion. After the smoke from the explosion had cleared, it became apparent that the skeleton's fragile arm obviously couldn't handle the sudden increase in force and had exploded along with the firearm. White bone fragments littered the grass along with the smoldering internals of the gun.
+
+'JESUS FUCK MAN LET'S GO!' I yelled to Dennis and we ran. While making our hasty escape, we heard that *thing* laughing in that same high-pitched voice. All the while my mind yammered: *It wasn't a dude in a costume, you could see through the gaps in its ribcage. It wasn't a dude in a costume, you could see through the gaps in its ribcage. JESUS FUCK MAN! IT WASN'T A DUDE IN A COSTUME, YOU COULD SEE THROUGH THE GAPS IN ITS FUCKING RIBCAGE!*
+
+We made it back to our homes safely. 
+
+I tried to forget it, but I just couldn't. So, the next day, I went back to where we saw that *thing*. The bullet was still in the tree, and the pieces of bone and revolver were still in the grass. I opened the gate to the mausoleum and saw wet footprints leading down the steps toward the coffin. Skeletal footprints.

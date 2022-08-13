@@ -83,3 +83,9 @@ I found something online that might explain where the hell he came from, some gu
 
 
 https://www.reddit.com/r/nosleep/comments/v3qhgm/my_brother_didnt_kill_those_kids_something_that/?utm_medium=android_app&utm_source=share
+
+It's been 3 days now. The state police have been making sweeps every hour of the whole facility but they only find dead bodies. At least with them around I don't have to be there. Most of the guards have taken time off until this clears up. I try to call in to see how things are going there at lest a couple times a day. They've started putting the prisoners on buses and shipping them to other prisons in the state. They might even transfer the COs to different facilities too. Guess that means I'll be moving soon, which is going to mess up things with my ex and my kid. Could be worse.
+
+I don't know what's going to happen when the whole place is empty. I heard some of the bigger acronyms have been swarming the place. Maybe they know  about what the hell that thing is. Maybe they can even kill it. If its even there anymore.
+
+Lately I'll catch a whiff of that terrible smell. Just for a moment. Maybe its just the memory or PTSD. All I know is I sleep with the lights on full blast and I keep my Glock loaded and ready. I just hope the issues I've been having with the power lately don't get worse. I think if everything went dark on me at once I'd just drop dead, or they'd find me screaming and foaming at the mouth, hopelessly insane. I guess it'll all be over in any case. Wish me luck.
