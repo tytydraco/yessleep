@@ -1,6 +1,6 @@
-I was sitting on a bench on a ferry. It was raining; dark clouds were covering the sky. Raindrops were dancing in small puddles on the wooden platform. To my left, the grey mist was floating in the dense pine forest over giant ferns and bushes. To my right, the rough sea was producing angry waves as far as eyes could see. The continuous up and down movement was making me feel dizzy. I should have taken a pill for my motion sickness but I had been late for my ferry and it had slipped my mind. Anyway, the chilly wind helped me a bit. The world around me was strangely relaxing. There were only a few people on the ferry. I could see a man in a grey raincoat watching the water and an old man, reading his soaking wet book. I was wondering if the letters were still visible.
+ I was sitting on a bench on a ferry. It was raining; dark clouds were covering the sky. Raindrops were dancing in small puddles on the wooden platform. To my left, the grey mist was floating in the dense pine forest over giant ferns and bushes. To my right, the rough sea was producing angry waves as far as eyes could see. The continuous up and down movement was making me feel dizzy. I should have taken a pill for my motion sickness but I had been late for my ferry and it had slipped my mind. Anyway, the chilly wind helped me a bit. The world around me was strangely relaxing. There were only a few people on the ferry. I could see a man in a grey raincoat watching the water and an old man, reading his soaking wet book. I was wondering if the letters were still visible.
 
-‘Hey, don't you have a lighter?’ - A man wearing a hoodie asked me.
+‘Do you have a fire?’ - A man wearing a hoodie asked me.
 
 ‘No, I don't. But if you find one, good luck with that!’ - I said while hundreds of raindrops were bombarding my face as I was looking up at him, squinting.
 
@@ -10,7 +10,7 @@ As time passed, I was getting more and more nervous. I just hoped I would never 
 
 Anyway, my name is Mark Marsh and I was heading to the island as I got a new job as a social worker. I just wanted to earn money with a normal job and wanted to discontinue what I had done before. I needed a new life.
 
-James Andrew the mayor told me that the town needed someone to supervise the too young and to take care of the too old. As I had no criminal records and I had a clean history (apart from shoplifting with my friends time by time), I was qualified for the job.
+James Andrew the mayor told me that the town needed someone to supervise the too young and to take care of the too old. As I had no criminal records and I had a clean history (apart from shoplifting with my friends time by time), I was qualified for the job. 
 
 So having arrived, I went to the town hall to meet the mayor in person. The town hall was a brown, one-story wooden building with two long hallways. There were offices on both sides. In the mayor’s chamber, the walls were covered by different preserved heads of animals with glass eyes. They were looking at me threateningly and I started to feel very uncomfortable. However, I tried not to show it. I had never understood how people could use trophies like these as decoration. I would never do that. These heads were once part of a living entity. Whenever you looked into their eyes, what you saw was the last second of their life. The expression of death. On the other hand, there were some old photos on the wall, telling stories of the history of the town which I was not familiar with at all yet.
 
@@ -120,9 +120,9 @@ Before Noah could answer anything, I couldn't help but notice the girl again. Sh
 
 ‘I have changed and I don’t care about your misery, bitch!’ - I said and started going to the bathroom.
 
-‘1500 dollars in cash. Buried in a garden. An old bloke's savings. Easy access.’ - she said and wanted to stop me with her arm by leaning to the wall. How naive.
+‘2500 dollars in cash.’ - she said and stopped me by leaning to the wall with her arm.
 
-‘Not interested.’ - I replied.
+‘Not interested.’ - I said.
 
 ‘You will never change, asshole!’ - she shouted but I closed the door behind me and did my business.
 
@@ -154,7 +154,25 @@ The couple was sitting in silence, and none of them said a word. The husband was
 
 In the meantime, I didn’t even notice that my pint was drawn. From where I was sitting, I could look at the other bar area which housed sofas, armchairs, tables and chairs. A table in the corner was filled with drinking folk. A man threw some angry words at the waitress about the timing of their drink and grumpily stomped off. The talking seemed louder and more frequent. Some people sometimes looked at me for a second and I felt they could see that I had something to hide. What the hell?
 
-We still chatted about politics, religion, philosophy and all. You know, when men get drunk and they are so enthusiastic about solving the greatest mysteries of the world. We were about to discuss the existence of free will when the door swung open and the background noise suddenly stopped. All the faces turned towards the door. The young man was wearing a baseball cap and was grasping for air.
+We still chatted about politics, religion, philosophy and all. You know, when men get drunk and they are so enthusiastic about solving the greatest mysteries of the world.
+
+I was immersed in my thoughts when I realised how much I needed to go to the restroom so I apologised and got up. When I finished and left the restroom, I saw Frank waving at me from the table telling me to order two more bottles of beer since I was at the counter. 
+
+’I can recommend you to try Red Ice. Blue Ice is for beginners.’ - the voice belonged to a girl sitting on a bar chair, referring to the brand of the beer. Blue Ice was the most popular beer here which was indeed, kind of light. She looked pretty and friendly as I got my first impression of her. However, I did not only feel like a complete stranger here but vulnerable as well. I did not know these people, they could have been anybody. Talking too much about yourself is revealing your weak points.
+
+’Should I trust the locals?’ – I asked.
+
+’No, a foreigner should never trust locals. Except when it comes to beer.’ – she smiled back.
+
+The barman served the bottles and we said cheers.
+
+Suddenly, two hands touched my shoulders from the back.
+
+’Hey boy, be careful with Sarah, she never stops talking! See? She takes your attention so easily that you forgot about us!’ – Frank told me and took the beers and I apologised. I told them that I would go back a bit later.
+
+’Why don’t we go out? It is getting too hot in here.’ – the girl advised and I nodded.
+
+I was about to answer when the door swung open and the background noise suddenly stopped. All the faces turned towards the door. The young man was wearing a baseball cap and was grasping for air.
 
 ’I am looking for the sheriff’
 
@@ -170,7 +188,7 @@ When we arrived at the lakeside, there were already some patrol cars. Yellow cri
 
 ‘Where is she?’ – Noah asked one of the sergeants. The man showed us the way towards the lake. As we were approaching the crime scene, I felt my heart in my throat. I saw Frank standing at the lake in the company of two police officers. Another person was taking photos of something on the ground. When we got there I realised what it was.
 
-Although the body was already decayed, the silhouettes of her face were still visible. They told the observer that once she had been a pretty, attractive girl who must have been the dream of many men. She was half naked, her trousers were taken off. The thought of what terrible thing they might have done to her crossed my mind for a moment. Oh, fuck. Poor little sweetheart.
+Although the body was already decayed, the silhouettes of her face were still visible. They told the observer that once she had been a pretty, attractive girl who must have been the dream of many men. She was half naked, her trousers were taken off. The terrible thought that she might have been raped crossed my mind for a moment. Her face was already lifeless but her soul must have been in the heavens – this is how I tried to reassure myself.
 
 But it wasn’t just the body that shocked me.
 
@@ -178,10 +196,6 @@ It was her.
 
 The girl, who had been following me.
 
-She was right. I wouldn't and couldn't change, I was an idiot.
-
-I decided I would help her. Provided she would tell me where the money was, of course.
+She was right. I wouldn't and couldn't change, I was an idiot. I decided I would help her. Provided she would tell me where the money was, of course.
 
 After all, that's what I had always made for a living. Getting shit done for the Dead. And it seemed I would have a hell of a lot of work there.
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/winicd/i_have_unusual_employers_part_2/)
