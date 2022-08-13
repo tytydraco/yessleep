@@ -56,3 +56,5 @@ I was about to tell them, but for some reason I hesitated. I wasn’t sure if I 
 “I’M NOT LYING!” I screamed, my voice cracking. I broke down and started sobbing.
 
 “Wanna prove it?” Wilson asked. I looked up at him and nodded.
+
+PART 2 HERE: [PART 2](https://www.reddit.com/r/nosleep/comments/wnofee/wanna_know_how_i_almost_died_part_2_last_part/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
