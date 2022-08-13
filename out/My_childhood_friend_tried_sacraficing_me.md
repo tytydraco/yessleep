@@ -4,7 +4,7 @@ I went to school with their son, Musa, but they had moved out of the country yea
 
 Great! Definitely wouldn't be a little awkward considering I hadn't spoken to Musa, let alone his family, in perhaps a decade. But little did I know that was going to be the least of my worries…
 
-The weekend came quick and that was when we had agreed to visit their house. Even while getting ready, I felt an oddness tap at my shoulder. After so many years, they visited right when I had arrived? The coincidence was a bit jarring at the least. Pulling into their driveway, I immediately noticed how big the place was, especially for because of the poverty which the area was known for. The house was a nice white with a pretty, hanging roof. A massive front door greeted us and after a series of knocks Mr Rahman answer bearing a hearty, white smile. 
+The weekend came quick and that was when we had agreed to visit their house. Even while getting ready, I felt an oddness tap at my shoulder. After so many years, they visited right when I had arrived? The coincidence was a bit jarring at the least. Pulling into their driveway, I immediately noticed how big the place was, especially because of the poverty which the area was known for. The house was a nice white with a pretty, hanging roof. A massive front door greeted us and after a series of knocks Mr Rahman answered bearing a hearty, white smile. 
 
 “Ah! Welcome”
 
