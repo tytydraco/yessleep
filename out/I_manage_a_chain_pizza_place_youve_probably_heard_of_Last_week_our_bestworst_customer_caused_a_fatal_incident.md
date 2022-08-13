@@ -4,7 +4,7 @@ Brad would settle his bulk into a corner table and then order our largest deep d
 
 The way Brad ate terrified children and ran off other customers. He hit the pizza harder than the Allies when they stormed Normandy Beach. Globs of sauce and chunks of crust went flying in every direction when Brad chewed. It was like someone set off a hand grenade inside of a lasagna. His shirt and cheeks and table were splattered each session before he was halfway done. Anyone sitting within a dozen feet of Brad was in danger of being struck by debris. And the sounds he made when he ate, I still have nightmares about the slurping, chomping, gurgling, moaning sounds.
 
-Suffice to say, no one ever wanted to wait on Brad when he visited our Little Caesars. So, as the manager, that duty usually fell on me. We tolerated Brad scaring away our other customers because there really wasn’t a legal reason to ban him. That is, until one morning last week when Brad waddled into the restaurant holding a small cooler, took his usual seat in the corner, and ordered every cheese pizza that we had in the kitchen.
+Suffice to say, no one ever wanted to wait on Brad when he visited our Little Caesars. So, as the manager, that duty usually fell on me. We tolerated Brad scaring away our other customers because there really wasn’t a legal reason to ban him. That is, until one morning when Brad waddled into the restaurant holding a small cooler, took his usual seat in the corner, and ordered every cheese pizza that we had in the kitchen.
 
 “Brad, I think we’ve got about eighty pizzas cooling back there,” I told him. “How many do you actually want?”
 
@@ -91,3 +91,5 @@ But the table couldn’t take his weight; the stand cracked when he was halfway 
 They had to bring in a professional disaster clean-up crew to dispose of the body and mop up the mess. We had to close the restaurant for forty-eight hours. To this day, Brad’s last meal remains the second or third worst shift I’ve ever had managing a Little Caesars.
 
 And the craziest part? Corporate used their connections to hush everything up. They paid off staff and customers and squashed all media stories. A complete blackout. That’s why I had to post this; to leave at least [some record of the Incident at Little Caesars.](https://www.travisbrownwriting.com/)
+
+[Artist's rendering of the incident.](https://www.youtube.com/watch?v=EAcY6CN_Bjg&t=0s)

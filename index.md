@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4878
+file count: 4879
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1558,8 +1558,8 @@ file count: 4878
 * [I Run A Text To Speech YouTube Channel For Horror Stories But I Didnt Post The Last Story](out/I_Run_A_Text_To_Speech_YouTube_Channel_For_Horror_Stories_But_I_Didnt_Post_The_Last_Story.md)
 * [I saved a young womans life I should have let her die](out/I_saved_a_young_womans_life_I_should_have_let_her_die.md)
 * [i saw a skinwalker on riverdale road last night](out/i_saw_a_skinwalker_on_riverdale_road_last_night.md)
-* [I saw Aka Manto](out/I_saw_Aka_Manto.md)
 * [I Saw Aka Manto](out/I_Saw_Aka_Manto.md)
+* [I saw Aka Manto](out/I_saw_Aka_Manto.md)
 * [I saw heaven and now I want nothing more than to sin](out/I_saw_heaven_and_now_I_want_nothing_more_than_to_sin.md)
 * [I Saw It in the Depths](out/I_Saw_It_in_the_Depths.md)
 * [I saw my cousin in an abandoned barn except it wasnt my cousin](out/I_saw_my_cousin_in_an_abandoned_barn_except_it_wasnt_my_cousin.md)
@@ -2123,6 +2123,7 @@ file count: 4878
 * [Im an Exterminator Sometimes I Need to Kill More than Rats and Bugs](out/Im_an_Exterminator_Sometimes_I_Need_to_Kill_More_than_Rats_and_Bugs.md)
 * [Im at War with my Best Friend Part 1](out/Im_at_War_with_my_Best_Friend_Part_1.md)
 * [Im at war with my Best Friend Part 1](out/Im_at_war_with_my_Best_Friend_Part_1.md)
+* [Im at war with my Best Friend Part 2](out/Im_at_war_with_my_Best_Friend_Part_2.md)
 * [Im Back From The Cursed Playlistand Maybe Truth Is Stranger Than Fiction](out/Im_Back_From_The_Cursed_Playlistand_Maybe_Truth_Is_Stranger_Than_Fiction.md)
 * [Im being constantly tormented by something strangely familiar](out/Im_being_constantly_tormented_by_something_strangely_familiar.md)
 * [Im Being Haunted And Dont Know What To Do](out/Im_Being_Haunted_And_Dont_Know_What_To_Do.md)
@@ -2923,8 +2924,8 @@ file count: 4878
 * [My Son and I Are Stranded In The DesertAnd The Howling Wont Stop](out/My_Son_and_I_Are_Stranded_In_The_DesertAnd_The_Howling_Wont_Stop.md)
 * [My son asked me to check the closet for monsters I didnt need to](out/My_son_asked_me_to_check_the_closet_for_monsters_I_didnt_need_to.md)
 * [My son got a sock monkey for his birthday from my grandmother Im scared now because of what its done to him](out/My_son_got_a_sock_monkey_for_his_birthday_from_my_grandmother_Im_scared_now_because_of_what_its_done_to_him.md)
-* [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
 * [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
+* [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
 * [My son has a new girlfriend and I am afraid for his life](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life.md)
 * [My son has been gone for 2 weeks He recently came back home and I dont think this is my son Part 1](out/My_son_has_been_gone_for_2_weeks_He_recently_came_back_home_and_I_dont_think_this_is_my_son_Part_1.md)
 * [My son has been talking to a friend on his new phone and its scaring me](out/My_son_has_been_talking_to_a_friend_on_his_new_phone_and_its_scaring_me.md)
@@ -3332,8 +3333,8 @@ file count: 4878
 * [Side Effects](out/Side_Effects.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
-* [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
+* [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)

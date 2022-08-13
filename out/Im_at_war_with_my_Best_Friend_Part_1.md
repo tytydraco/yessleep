@@ -165,3 +165,7 @@ As I stood and contemplated, I heard a loud bang downstairs on the front door, f
 I reread the message over and over, trying to get a grasp on what I should do. I wanted to stay inside and be safe but deep down, I knew that it was best that I went out to see what he wanted.
 
 Panicked and baffled, I walked out of my room and down the stairs, heading towards the front door.
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/wmzcpy/im_at_war_with_my_best_friend_part_2/)
