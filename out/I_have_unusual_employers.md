@@ -1,4 +1,6 @@
- I was sitting on a bench on a ferry. It was raining; dark clouds were covering the sky. Raindrops were dancing in small puddles on the wooden platform. To my left, the grey mist was floating in the dense pine forest over giant ferns and bushes. To my right, the rough sea was producing angry waves as far as eyes could see. The continuous up and down movement was making me feel dizzy. I should have taken a pill for my motion sickness but I had been late for my ferry and it had slipped my mind. Anyway, the chilly wind helped me a bit. The world around me was strangely relaxing. There were only a few people on the ferry. I could see a man in a grey raincoat watching the water and an old man, reading his soaking wet book. I was wondering if the letters were still visible.
+ 
+
+I was sitting on a bench on a ferry. It was raining; dark clouds were covering the sky. Raindrops were dancing in small puddles on the wooden platform. To my left, the grey mist was floating in the dense pine forest over giant ferns and bushes. To my right, the rough sea was producing angry waves as far as eyes could see. The continuous up and down movement was making me feel dizzy. I should have taken a pill for my motion sickness but I had been late for my ferry and it had slipped my mind. Anyway, the chilly wind helped me a bit. The world around me was strangely relaxing. There were only a few people on the ferry. I could see a man in a grey raincoat watching the water and an old man, reading his soaking wet book. I was wondering if the letters were still visible.
 
 ‘Do you have a fire?’ - A man wearing a hoodie asked me.
 
@@ -62,7 +64,7 @@ Inspector?! Am I under arrest?’ – I asked.
 
 ‘They disappeared. Nobody was found here even though everything seemed to be normal. It was like an ordinary day: their breakfast was prepared, the fire was still smoking, and tables were set for the meal. People said they had vanished into thin air. Like those folks in Roanoke. Have you heard of their story sir?’ – he asked, looking at me with curiosity.
 
-‘Yes, I did. As a kid, I was a UFO fan and read about a lot of mysterious stories. A group of British settlers was left on an island for a while until further supplies arrived. When the ship returned, everybody had gone, leaving no trace.’
+‘Yes, I did. As a kid, I was a UFO fan and read about lot of mysterious stories. A group of British settlers was left on an island for a while until further supplies arrived. When the ship returned, everybody had gone, leaving no trace.’
 
 ‘Exactly sir. If you want to get some history lessons, just go to John Dewey’s bookshop. The crazy old man is the master of local history. Be careful, though, once you get into a conversation, he will never stop. But I am sure that he will be able to tell you much much more than I have just said.’
 
@@ -158,9 +160,9 @@ We still chatted about politics, religion, philosophy and all. You know, when me
 
 I was immersed in my thoughts when I realised how much I needed to go to the restroom so I apologised and got up. When I finished and left the restroom, I saw Frank waving at me from the table telling me to order two more bottles of beer since I was at the counter. 
 
-’I can recommend you to try Red Ice. Blue Ice is for beginners.’ - the voice belonged to a girl sitting on a bar chair, referring to the brand of the beer. Blue Ice was the most popular beer here which was indeed, kind of light. She looked pretty and friendly as I got my first impression of her. However, I did not only feel like a complete stranger here but vulnerable as well. I did not know these people, they could have been anybody. Talking too much about yourself is revealing your weak points.
+’I can recommend you to try Red Ice. Blue Ice is for beginners.’ - the voice belonged to a girl sitting on a bar chair, referring to the brand of the beer. Blue Ice was the most popular beer here which was indeed, kind of light. She looked pretty and friendly as I got my first impression from her. However, I did not only feel like a complete stranger here but vulnerable as well. I did not know these people, they could have been anybody. Talking too much about yourself is revealing your weak points.
 
-’Should I trust the locals?’ – I asked.
+’Should I trust the locals?’ – I asked smiling.
 
 ’No, a foreigner should never trust locals. Except when it comes to beer.’ – she smiled back.
 
@@ -172,7 +174,27 @@ Suddenly, two hands touched my shoulders from the back.
 
 ’Why don’t we go out? It is getting too hot in here.’ – the girl advised and I nodded.
 
-I was about to answer when the door swung open and the background noise suddenly stopped. All the faces turned towards the door. The young man was wearing a baseball cap and was grasping for air.
+Getting outside was like crossing the jungle: the difference was that there were no leaves but people. The pub had a backyard. Some people were smoking and chatting there. A couple of friends were having a very serious, alcohol-fuelled conversation about time travel and black holes. It had just stopped raining and the cool damp air was pleasant to me. We introduced ourselves to each other, her name was Sarah Mitchell.
+
+‘Celebrating something?’
+
+‘Kinda. Celebrating the end of the day.’ – she said sipping from her beer.
+
+‘Was it stressful?’
+
+‘Always stressful. That’s why there is a point in life when you need to stop what you are doing.’
+
+‘Which is…’
+
+‘I actually speak for the dead.’
+
+‘Oh…that must be though.’- I said and I tasted my beer. Indeed, I was not disappointed.
+
+‘Well, I am not saying that it is monotonous. Because every corpse has a different story. But I  also realised something: when your work haunts you in your dreams it is a warning that maybe you should work less.’
+
+‘So you have nightmares?’
+
+‘If I didn’t I wouldn’t be here to let the steam off right now. The problem is that I haven’t had so much work before. There is a murdered person here, another there. And some of the bodies are really nasty. As if the whole town had gone crazy.’ – she said. We spent a few more minutes outside when our drinks were gone and I went inside to ask for more. But as soon as I went inside, the door swung open and the background noise suddenly stopped. All the faces turned towards the door. The young man was wearing a baseball cap and was grasping for air.
 
 ’I am looking for the sheriff’
 
