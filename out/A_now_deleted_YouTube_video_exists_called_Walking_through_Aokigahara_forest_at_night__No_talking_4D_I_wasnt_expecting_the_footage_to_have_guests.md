@@ -101,7 +101,9 @@ I understood language barriers, but surely, he understood at least part of what 
 
 He staggered back when the camera man took a turn further into the trees. But the kid wasn’t giving up, I noticed. He followed, motioning for two shadows I could glimpse at the corner of the camera to follow. I started to wonder if the camera man was scared of foreigners, or if he just didn’t speak English. There was that, but there was also the possibility that he just didn’t want to talk to him. 
 
-Freckles did everything to try and get noticed—and failed miserably every time. It was kind of entertaining. “Noah.” Another voice sounded—this time American.
+Freckles did everything to try and get noticed—and failed miserably every time. It was kind of entertaining.
+
+ “Noah.” Another voice sounded—this time American.
 
 I detected a southern accent in a tone which sounded far less chipper than Freckles. “Stop.” Another man appeared seemingly out of nowhere, joining Noah’s side. He was taller, a darker skin complexion, wearing a t-shirt with NSFW art on the front. “He’s not going to help us,” he said with gritted teeth. “Think about it. He’s a guy just casually cruising a forest in the middle of the night—and we’re random strangers. Of course, he’s going to be wary.” 
 
