@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 4879
+file count: 4880
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 years ago something happened to my family Im scared the same thing is happening again today](out/10_years_ago_something_happened_to_my_family_Im_scared_the_same_thing_is_happening_again_today.md)
@@ -1721,6 +1721,7 @@ file count: 4879
 * [I took a road trip with my friends but they disappeared Part 1](out/I_took_a_road_trip_with_my_friends_but_they_disappeared_Part_1.md)
 * [I took a road trip with my friends but they disappeared Part 2](out/I_took_a_road_trip_with_my_friends_but_they_disappeared_Part_2.md)
 * [I took a road trip with my friends but they disappeared Part 3](out/I_took_a_road_trip_with_my_friends_but_they_disappeared_Part_3.md)
+* [I took a selfie with a person that doesnt exist](out/I_took_a_selfie_with_a_person_that_doesnt_exist.md)
 * [I took a short drive through a small town](out/I_took_a_short_drive_through_a_small_town.md)
 * [I took my friend to a chiropractor and I had no idea how invasive the service could be Part 1](out/I_took_my_friend_to_a_chiropractor_and_I_had_no_idea_how_invasive_the_service_could_be_Part_1.md)
 * [I Took Part In a Robbery If Only We Could Get Back What Was Stolen From Us](out/I_Took_Part_In_a_Robbery_If_Only_We_Could_Get_Back_What_Was_Stolen_From_Us.md)
@@ -3333,8 +3334,8 @@ file count: 4879
 * [Side Effects](out/Side_Effects.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
-* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
