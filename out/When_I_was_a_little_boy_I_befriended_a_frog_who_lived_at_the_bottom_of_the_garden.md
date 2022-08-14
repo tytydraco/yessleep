@@ -522,7 +522,7 @@ I turned back and kept running, relying on the lightning again. The thunder roar
 
 I jumped again, but this time I didn't land straight away. There was a branch sticking out from my favourite climbing tree, and I used it to swing myself a little further ahead. When I let go, it swung back and smacked my dad in the face. He screamed as he came to a halt.
 
-"Your eyes!" he yelled as I ran with all I had. That was the last of my obstacles. "I'm gonna start by gauging out your eyes!" 
+"Your eyes!" he yelled as I ran with all I had. That was the last of my obstacles. "I'm gonna start by gouging out your eyes!" 
 
 I felt panic rising inside as I sprinted the final stretch to Solomon's pond. My bad hand clung to my chest, feeling my heart beating hard beneath it. My dad wasn't too far behind now, and there was nothing between us. 
 
