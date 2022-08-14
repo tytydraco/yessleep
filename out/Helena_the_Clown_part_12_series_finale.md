@@ -66,11 +66,11 @@ Back  outside, we so Helena coming out of the basement, dragging the two men.  S
 
 &#x200B;
 
-After  a few minutes of silence, we looked at Helena, who still stood there,  like a statue, looking at us, and at the burned bodies of the two. She  had an empty expression. Still shaken, I braced myself to go to the her.  I looked into her eyes. I smiled and said. ”Well done. You mother and  Alexandra are proud of you, I was just said to transmit you that.”  Helena a little in surprise, I could actually feel, deep inside her, am  amazement she tried to control and keep out sight.
+After  a few minutes of silence, we looked at Helena, who still stood there,  like a statue, looking at us, and at the burned bodies of the two. She  had an empty expression. Still shaken, I braced myself to go to the her.  I looked into her eyes. I smiled and said. ”Well done. Your mother and  Alexandra are proud of you, I was just said to transmit you that.”  Helena a little in surprise, I could actually feel, deep inside her, am  amazement she tried to control and keep out sight.
 
 &#x200B;
 
-”It is ok, you are  among friends. You can be less stiffy now. You among friends.” I took  her hand again. She did not oppose this, but seemed still confused,  somewhat. ”Welcome back to the good guys.” And I did one of the most  terrifying and most warm things I did so far in my life: I hugged her.  She looked startled, so I whispered in joy: ”That is hug. Please hug me  back, this is how people do.” She, reluctantly, hugged me back, I never  felt anything so weird, yet so existentially gratifying, I look back  into her eyes. She could not believe it herself, I guess.
+”It is ok, you are  among friends. You can be less stiffy now. You are among friends.” I took  her hand again. She did not oppose this, but seemed still confused,  somewhat. ”Welcome back to the good guys.” And I did one of the most  terrifying and most warm things I did so far in my life: I hugged her.  She looked startled, so I whispered in joy: ”That is hug. Please hug me  back, this is how people do.” She, reluctantly, hugged me back, I never  felt anything so weird, yet so existentially gratifying, I look back  into her eyes. She could not believe it herself, I guess.
 
 &#x200B;
 
@@ -78,7 +78,7 @@ Father  George came and talked to her a long. I could hear him say to her:  ”W
 
 &#x200B;
 
-The  police came, eventually. I said I had got a tip about the kidnapping in  that area and that we witnessed a fight with a rival clan, and that  those killed all the people there. I also mentioned the visit to the  police earlier the same day. The incident made headlines to some days,  but Helena was never mentioned, we never said anything, nobody made a  connection with the incident of Marcel that was starting to get  forgotten. The Rumegush clan found a new leader in a few days, who  started a war with another clan, who he taught responsible for the death  of Cougar and the rest. The doctor was whitewashed by the media as a  victim of a clan war.
+The  police came, eventually. I said I had got a tip about the kidnapping in  that area and that we witnessed a fight with a rival clan, and that  those killed all the people there. I also mentioned the visit to the  police earlier the same day. The incident made headlines to some days,  but Helena was never mentioned, we never said anything, nobody made a  connection with the incident of Marcel that was starting to get  forgotten. The Rumegush clan found a new leader in a few days, who  started a war with another clan, who he thought responsible for the death  of Cougar and the rest. The doctor was whitewashed by the media as a  victim of a clan war.
 
 &#x200B;
 
@@ -102,7 +102,7 @@ Inside  was an old house, with old objects, many of them really antiquities.  Li
 
 &#x200B;
 
-In  the last room, there was a bed, some old wooden chairs and some old,  wooden table. Helena, kinda reluctantly, showed us to sit. I looked at  her in the dark room, on the little light that came from outside. And I  said to myself: ”Yeah, this night shall nightmare fuel for years to  come. But I am glad I am here.” Since silence continued, I did my best  to smile and asked: ”So, Helena, how are you? Ok?” She did not replied  at first, but, eventually she did, like she was a little shy and tired:  ”Ok, I guess,” I did not know what to say, so I continued, a little  proud of me: ”You know, I kept my promise to you that I shall change. I  quit my job and now, I shall try to tell the actual truth on YouTube.  About all I can. I am determined.” Helena replied slowly., like she  tried herself to find the best tone, whole she avoided eye contact  again: ”Good for you.”
+In  the last room, there was a bed, some old wooden chairs and some old,  wooden table. Helena, kinda reluctantly, showed us to sit. I looked at  her in the dark room, on the little light that came from outside. And I  said to myself: ”Yeah, this night shall nightmare fuel for years to  come. But I am glad I am here.” Since silence continued, I did my best  to smile and asked: ”So, Helena, how are you? Ok?” She did not replied  at first, but, eventually she did, like she was a little shy and tired:  ”Ok, I guess,” I did not know what to say, so I continued, a little  proud of me: ”You know, I kept my promise to you that I shall change. I  quit my job and now, I shall try to tell the actual truth on YouTube.  About all I can. I am determined.” Helena replied slowly., like she  tried herself to find the best tone, while she avoided eye contact  again: ”Good for you.”
 
 &#x200B;
 
@@ -118,7 +118,7 @@ So,  father George said the prayer for all us present, placing the  epitrachelio
 
 &#x200B;
 
-He  seemed cheerful. We went to him and I asked: ”How did it was?” He  replied: ”You that I can not say what she said. But I can say it went  well. She can be a real sweetheart, if she wants.” We came in. The  atmosphere, the feeling was mostly, the same. Only that, in this wake,  it was like, although there is sadness because of the loss, there is  also peace. A bitter peace, but peace.
+He  seemed cheerful. We went to him and I asked: ”How did it was?” He  replied: ”You know that I can not say what she said. But I can say it went  well. She can be a real sweetheart, if she wants.” We came in. The  atmosphere, the feeling was mostly, the same. Only that, in this wake,  it was like, although there is sadness because of the loss, there is  also peace. A bitter peace, but peace.
 
 &#x200B;
 
