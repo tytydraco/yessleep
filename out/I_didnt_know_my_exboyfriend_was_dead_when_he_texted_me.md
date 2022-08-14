@@ -124,6 +124,6 @@ My heart was racing when I saw what was on the screen. There, in my living room,
 
 &#x200B;
 
-**Monday 3:09AM**
+[**Monday 3:09AM**](https://www.reddit.com/r/nosleep/comments/wnsbf0/i_didnt_know_my_exboyfriend_was_dead_when_he/)
 
 *Mike: Where are you?*
