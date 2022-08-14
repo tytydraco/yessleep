@@ -1,3 +1,5 @@
+PART 1 HERE:[PART 1](https://www.reddit.com/r/nosleep/comments/wmu2ws/wanna_know_how_i_almost_died_part_1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
 2 days later we arrived at the airport. We were going to Oregon. The most eventful thing on the airplane was some shitty Karen trying to get a first class seat. Apparently she was “special.” The pilot told her to go fuck herself. When we got to Oregon we rented a motel in the city nearest to my old house. It was only two stars. The beds were hard as a rock and room service sucked. The only good thing was free tv, but they only had 15 channels and it was in black and white. The next day we went to my old house. When I saw it again I got chills down my spine. I felt like I made a mistake coming back here.
 
 We grabbed our shitty monster hunting equipment out the trunk; flashlights, bear mace, a 9mm Glock 19, 2 magazines for the Glock, and a knife. We planned on using mace on it then shooting it. Ryder put the Glock in his pocket claiming he has a good shot.
