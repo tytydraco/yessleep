@@ -4,7 +4,7 @@ I used up my free credits quickly using prompts like, “Picasso and Chagall col
 
 I subscribed to the lower-priced plan and also used up those credits fast; becoming oddly addicted to asking the ai questions like “Where do I belong” and “What lies under the bed?.” Needing to feed my insatiable desire for more images; predicting the future or creating collaborations between master artists, I bought the unlimited plan.
 
-I shared this particular ai with friends and family. Some of them also became addicted, my brother in particular. He was obsessed with asking the ai deep questions like; “What will the world be like in ten years,” or “What is the meaning of life?” As suited to his mischievous personality, his questions became dark fast. He would ask “How will Cincinnati look after a nuclear war” or “Recreate visually the mind palace of a serial killer. Super realistic, 8k, hyperdetailed, volumetric light.”
+I shared this particular ai with friends and family. Some of them also became addicted, including my brother. He was obsessed with asking the ai deep questions like; “What will the world be like in ten years,” or “What is the meaning of life?” As suited to his mischievous personality, his questions became dark fast. He would ask “How will Cincinnati look after a nuclear war” or “Recreate visually the mind palace of a serial killer. Super realistic, 8k, hyperdetailed, volumetric light.”
 
 I will not even describe some of the images his sick mind requested, it was like something was changing inside of him.
 
@@ -16,7 +16,7 @@ Not only at night, but during the day, intimate details were changing in tiny bu
 
 The laughter continued, then became louder, then….It mutated into the most horrifying screaming imaginable. It was a terror I had never heard before in my life, guttural and inhuman. After what sounded like choking and retching, there was silence.
 
-The police decided I was crazy when I gave them my statement, but two days later they returned. My brother and his friend were not the only victims. The software had automatically shared with more than a million people around the world. Not all of them saw it, but enough did to create a digital massacre like no one had ever seen. They questioned me again, took my brother’s computer, and left me a broken empty human being.
+The police decided I was crazy when I gave them my statement, but two days later they returned. My brother and his friend were not the only victims. The software had automatically shared with more than a million people around the world. Not all of them saw it, but enough did to create a digital massacre like no one had ever seen. They questioned me again, took my brother’s computer, and left me a broken, empty human being.
 
 The new revelation had given me a strange feeling of hope, however. My brain was humming with images, with possibilities and impossibilities. I looked over at my stuffed dragon. It was blue now, it used to be purple. Perhaps I could use the ai one last time.
 
