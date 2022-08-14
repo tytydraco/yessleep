@@ -175,3 +175,7 @@ I opened my door and walked down the steps. When I got downstairs, I saw my mom 
 "What? Why?" I sputtered out. I looked my mom in the eyes, but she couldn't look back at me. She didn't respond. I started getting more frightened at how my mom was acting. "Why are the cops coming? Why was I expelled?" I repeated myself incredulously.
 
 My mom was finally able to look me in the eyes. The disappointment and the now sadness on her face told a whole story as she uttered the words, "For killing another student."
+
+&#x200B;
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wojb77/im_at_war_with_my_best_friend_part_3/)

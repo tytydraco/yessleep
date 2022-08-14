@@ -169,3 +169,5 @@ Panicked and baffled, I walked out of my room and down the stairs, heading towar
 &#x200B;
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/wmzcpy/im_at_war_with_my_best_friend_part_2/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wojb77/im_at_war_with_my_best_friend_part_3/)
