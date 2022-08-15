@@ -70,7 +70,7 @@ As soon as they were gone however, I felt as if I awoke from some trance-like st
 
 "Do you love?" His smile was gentle and kind.
 
-Right-Side's blood dripped from my hands to the floor but I replied, "Yes. Yes, I *do* love." 
+Right-Side's blood dripped from my hands to the floor but I replied, "Yes. Yes, I *do* love."
 
 "I am so proud of you."
 
@@ -83,3 +83,5 @@ I couldn’t *really* tell then; it could have been the light or my watery eyes 
 \*\*\*
 
 I'm sorry this is so long, and for those of you who read to the end, thank you. I just feel like I need to get this out. Kind of like catharsis or something. This post has definitely brought out some ancient demons I thought I had locked up long, long ago. But, alas, they are here. And they are playing my PTSD like a harp. I have to go. I can't risk anyone stumbling upon me writing this. I'll post more when I can.
+
+[PART THREE](https://www.reddit.com/r/nosleep/comments/wpd194/ichor_three/)
