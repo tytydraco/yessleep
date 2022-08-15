@@ -182,7 +182,7 @@ I swallowed as I stared at him. “Yeah . . .” I said softly as I scooted a fe
 
 “Listen to me well, you are playing a dangerous game, a game you will not win with him. just accept what has happened has happened. Understand?” he stared down at his clipboard and moving the papers on it as if he was looking for something. “He will ruin you, and your entire family. its not too late to stop working for him.” 
 
-“I don’t know what you—” I tried to play it off but her interrupted me. 
+“I don’t know what you—” I tried to play it off but he interrupted me. 
 
 “We didn’t have this conversation, is that clear?” and he reached passed me once again, pulling the emergency button and the elevator jolted back online and brought us to the floor. he apologized to the patrons saying the elevator stalled and gave me a look and turned and kept walking. Shaking my head, I wasn’t sure if I imagined it. the burning sensation on my wrist cooled down. 
 
@@ -210,7 +210,7 @@ I gaped, “I am not cutting off a twelve-year-old girls’ fingers.”
 
 A patient walked past us and gave us a strange look and kept walking until they disappeared. “It’s not hard, bring a very sharp knife or clever, just in case you can’t get the violin back.” 
 
-“What with the instruments?” 
+“What is with the instruments?” 
 
 He sipped my coffee again, “a lot of musician’s likes to contact me, I don’t know why, I think it has something to do with a jazz player that I helped out once on the crossroads,” he shrugged. “Any world, I will need an update on that errand once you are done.” he held the coffee out to me and turned down a hall. I leaned over and he was gone, looking down at my almost gone coffee, I wanted to cry, I felt defeated. 
 
