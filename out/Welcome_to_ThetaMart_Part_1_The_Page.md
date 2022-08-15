@@ -319,3 +319,5 @@ I eyed the clippers. They made a satisfying snipping sound when I pulled the han
 In typical spider fashion she crept back up the shelf and disappeared over the other side. *If every spider is as rude as she is I don’t know if I feel quite as bad as I used to when I would bring a shoe down on them.*
 
 I stuck the clippers in my apron, and began to head in the direction I was pretty sure was garden.
+
+[Part 2!](https://www.reddit.com/r/nosleep/comments/wogm73/welcome_to_thetamart_part_2_the_page/)
