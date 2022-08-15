@@ -28,7 +28,7 @@ I opened my eyes a little wider to focus on the shape and saw that it was a tall
 That's when I looked directly at a black, opaque, and faded around the edges...thing? Almost like a shadow you can't see through. It was bent over my bed at a 90 degree angle directly over my face. I would say I was making eye contact with it, but it had no eyes. 
 
 
-My eyes opened a little wider and I think it noticed me noticing it, because it stood up straight and moved away quickly behind the lamp. It did not walk, it glided, and as it glided towards the lamp its height shrunk about half a foot, and it crouched behind the lamp as if it was trying to hide. I stared at it crouching behind the lamp while it grasped the pole, and decided that was enough for the night and that I just needed to go to sleep. So I turned back to my side, facing the wall, and fell asleep. 
+My eyes opened a little wider and I think it noticed me noticing it, because it stood up straight and moved away quickly behind the lamp. It did not walk, it glided, and as it glided towards the lamp its height shrunk about half a foot, and it crouched behind the lamp as if it was trying to hide. I stared at it, imobilized by fear, it was crouching behind the lamp while it grasped the pole, and finally I was able to move and decided that was enough for the night and that I just needed to go to sleep. So I turned back to my side, facing the wall, and fell asleep. 
 
 
 I woke up the next morning and asked my brother if he had seen anything weird that night. I told him about the black figure and his eyes opened wide and he said he saw her too. 
@@ -61,22 +61,13 @@ After we had told each other our points of view from that night, we rushed downs
 "Stop saying things like that, this place is not haunted and you're not scaring anyone," was our dad's response. He doesn't believe in anything that is mystic/supernatural and definitely doesn't believe in ghosts. He is always the first to dismiss these things, and thinks there is always an explanation. Our mom dismissed our haunted accusation as well, with a simple "No its not." 
 
 
-My brother and I tried to explain more and they weren't listening until my brother said the word "woman". The second that word left his mouth my mom dropped the spatula she was using for the eggs on the stove, and looked directly at us. This was followed by her saying "A woman tried to wake me up last night while I was sleeping." 
+My brother and I tried to explain more and they weren't listening until my brother said the word "woman". The second that word left his mouth my mom dropped the spatula she was using for the eggs on the stove, and looked directly at us, and the color drained from her face. This was followed by her saying "A woman tried to wake me up last night while I was sleeping." 
 
 
-My brother and I turned to each other and just looked at each other, now that our experiences were being confirmed by someone who had not taken any drugs. 
+My brother and I turned to each other and just looked at each other in shcok, now that our experiences were being confirmed by someone who had not taken any drugs. 
 
 
 We left the cabin later that day to return home, and it was never spoken of again, until later in the year when my brother and I tried to talk to our mom about it, wanting to talk about ghost experiences, she acted like it never happened. 
 
 
-She chose to repress that memory, but my brother and I choose to relive it every now and then by telling people who haven't heard the story before. It sounds much better when we tell it together because our points of view paint the whole picture. I've had a few other strange experiences, but this one was the weirdest since it was originally confirmed by three people including myself. I intend to go back to Yosemite again, but I'm sure as hell staying away from that cabin and any one near it.
-
-
-
-
-
-
-Edit:
-
-I realized it wasn't clear who said "a woman tried to wake me up last night while I was sleeping", so I added in that it was my mother who said this at breakfast in the morning, not my brother. She tried waking both of them up.
+She chose to repress that memory, but my brother and I choose to relive it every now and then by telling people who haven't heard the story before. It sounds much better when we tell it together because our points of view paint the whole picture, but to this day it still gives me chills, thinking about its eyeless dark face right infront of mine. I've had a few other strange experiences, but this one was the weirdest since it was originally confirmed by three people including myself. I intend to go back to Yosemite again, but I'm sure as hell staying away from that cabin and any one near it.
