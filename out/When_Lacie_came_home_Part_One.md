@@ -329,3 +329,5 @@ I have to resist. I hear it, beckoning to me. I look again at her corpse. I can 
 *I have to resist. I promised I would.*
 
 **\*\*\***
+
+[Next](https://www.reddit.com/r/nosleep/comments/womirm/when_lacie_came_home_final/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
