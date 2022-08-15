@@ -184,7 +184,7 @@ I stood up, feeling a little guilty. I looked at Mia. "I... I gotta go,"
 
 "Why?" Mia said, standing up as well. I looked at my phone and then back to her.
 
-"I just need to go somewhere. I'll be back, I promise," I reassure her. "Tell Quintin that I went somewhere," I walked out of the room and down the stairs, and with that, I was on my way to Roseman Park, with the USB still in my pocket.
+"I just need to go somewhere. I'll be back, I promise," I reassure her. "Tell Quintin that I went somewhere," I walked out of the room and down the stairs, and with that, I was on my way to Roseman Park, forgetting the USB was still in my pocket.
 
 I don't know how long the walk was there, maybe 15 minutes? The journey was a blur. I just know I started regretting my decision halfway there, and I was a tad bit terrified about seeing Andrew again, but I decided it was for the best. I saw the sign for Roseman Park come into view, signifying that I had made it. I didn't see anybody else around. The street was idle.
 
