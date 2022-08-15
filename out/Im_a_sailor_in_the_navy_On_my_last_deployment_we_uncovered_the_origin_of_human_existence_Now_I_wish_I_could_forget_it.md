@@ -218,13 +218,15 @@ And so did mine.
 
 I awoke floating on a piece of debris, somewhere off the coast of Guam. The waves gently sloshed against my feet. There was no sign of my ship, my crew, or the monster we’d discovered in the middle of the sea. It was quiet. Peaceful.
 
-Gulls squawked overhead and a bell drew my attention. Some distance away came a small fishing vessel. It looked to have diverted course and was sailing in my direction, its crew members tiny dots shouting on its deck. They saved my life.
+Gulls squawked overhead and a bell drew my attention. Some distance away was a small fishing vessel. It looked to have diverted course and was sailing in my direction, its crew members tiny dots shouting on the deck. 
+
+They saved my life.
 
 But so did the monster in the sea. The monster I came to know as Eden. The documents I’d taken from the Secret Ones were badly damaged and waterlogged, but they weren’t unreadable. Translating them took time, but I managed. I had help from several individuals who I won't mention here for obvious reasons, but what we discovered was haunting. Terrifying.
 
-For instance, we learned that the theory of evolution is missing components, that it’s not telling the full story. The theory of evolution tells us life originated from the primordial soup. It says that we began as basic organisms crawling out of the sea, but what it doesn’t tell us is that those organisms weren’t miracles. They were births.
+We learned that the theory of evolution is missing components, that it’s not telling the full story. It tells us life originated from the primordial soup. It says that we began as basic organisms crawling out of the sea, but what it doesn’t tell us is that those organisms weren’t miracles. They were births.
 
-A billion years ago, something came to our planet from the distant cosmos. A creature of unfathomable power. It settled deep in the ocean floor and it began to create all manner of lifeforms, learning as it went. Eventually, its iterations would lead to the creation of humanity. In an effort to assuage its own loneliness, it did something it had never before done: it shared fragments of its own mind, its own consciousness with the human race in an effort to accelerate our evolution.
+A billion years ago, something came to our planet from the distant cosmos. A creature of unfathomable power. It settled deep in the ocean and began to create all manner of lifeforms, learning as it went. Eventually, these iterations led to the creation of humanity. In an effort to assuage its own loneliness, it did something it had never before attempted:  shared fragments of its own mind, its own consciousness with the human race in an effort to accelerate our evolution.
 
 It backfired.
 
