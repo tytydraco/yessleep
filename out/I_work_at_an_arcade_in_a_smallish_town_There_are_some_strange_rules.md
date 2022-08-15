@@ -1,6 +1,6 @@
-This all happened before COVID-19 hit the world. I think it was in 2016, perhaps? I started working at the arcade some years before it all happened. I've had run-ins with the manager and all that. When I got hired, however, the manager made us all, as the new employees of the arcade, memorize some specific rules. These were unusual considering we were working at an arcade with things like Pac-Man and Frogger and Donkey Kong, you get the idea.
+ This all happened before COVID-19 hit the world. I think it was in 2016, perhaps? I started working at the arcade some years before it all happened. I've had run-ins with the manager and all that. When I got hired, however, the manager made us all, as the new employees of the arcade, memorize some specific rules. These were unusual considering we were working at an arcade with things like Pac-Man and Frogger and Donkey Kong, you get the idea.
 
-Here are the rules.
+Here are the rules of working at the arcade. Note that all of the events have happened at the same arcade.
 
 **Rule #1:** *If a new arcade game shows up either by the name of No Heart, No Soul or with .exe on the end of the title, do not play it, or let any patron play, at all costs.*
 
@@ -70,7 +70,13 @@ With this, the manager got up from his chair so fast I thought he was about to r
 
 He grabbed a screwdriver and a wrench from his desk drawer and rushed straight to the Laser Tag arena. He opened the circuit breaker inside and did some things that would require the skills of a mechanic. After about five minutes, I saw the twelve people I saw enter the Laser Tag exit. No harm was done.
 
-Knowing his reaction to my notifying him of Rule #2, I knew from there that the rules weren't there out of silliness. They were there to protect us all.
+Later that day, I had asked the manager about what happened that prompted him to make this rule.
+
+It turns out that some residents of the small town had gone missing after sometimes going into the Laser Tag. He showed me the MISSING posters, and even showed me some paperwork with notes by previous employees, about the times they went in, and how they found the 30-minute mark passed, and then noticing the batch of participants didn't come out.
+
+I had realized that what he did was a type of procedure that stopped the monster within the Laser Tag game. He discovered it in some sort of manual.
+
+I realized from his reaction to my notifying him of Rule #2, that the rules weren't there out of silliness. They were there to protect us all.
 
 **Rule #3:** *If a blonde woman in a red dress asks for a prize, under no circumstances should you give any of them to her.*
 
@@ -132,6 +138,10 @@ The hamster wheel was at its first goal in 4 hours when the power came back on. 
 
 No harm was done that night.
 
+"And remember, Danforth, if Rule #4 should happen, making any mistake will do to you what that monster did to Gabriel and Natalie."
+
+As I remember from reading a retired employee's account, as we are required to do to avoid making mistakes, he recounted that the two kids appeared to go catatonic and their skin went paler after they each got a game over on the mysterious arcade Rule #1 was made for.
+
 **Rule #5:** *If all the arcade screens show the exact same image, notify the manager immediately.*
 
 I have janitorial duties, but sometimes I work the prize counter and sometimes I also watch over the Laser Tag to make sure that it works properly and I don't have to do Rule #2. I had been working for 3 months then when all the arcade games suddenly blinked on in the after hours when the games were supposed to be turned off.
@@ -158,6 +168,12 @@ The girl in the image on all the screens spoke to him, as if there were multiple
 
 "Not after Gabriel and Natalie!"
 
+"Rules were meant to be broken. You know what I want, Lester..."
+
+"Like I'll ever believe that bullshit saying!"
+
+It seemed as if the arcades were possessed by some strange monster. I felt as if we were dealing with some sort of demon. I remember watching this all helplessly like I had no way to deal with this.
+
 "You think you could make a rule against the creature I am, when I need more..."
 
 "More what?!"
@@ -165,6 +181,14 @@ The girl in the image on all the screens spoke to him, as if there were multiple
 "You know what I want..."
 
 "No fucking way am I going to let another child die!"
+
+"Don't you remember? I want someone to play *No Heart, No Soul*..."
+
+"Hell no!"
+
+"Please. Why don't you let this CUTE little man play it, too...?"
+
+"Not a chance! You will pay for this! Rule #1 is there for a reason!"
 
 There was silence for a few moments. Then she said,
 
@@ -174,4 +198,4 @@ After a moment, I heard the manager say,
 
 "You bitch!"
 
-And then the arcade screens turned off. No other incident happened that day.
+And then the arcade screens turned off. No other incident happened that day. I remember being vividly scared.
