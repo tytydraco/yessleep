@@ -12,7 +12,7 @@ For part 6 (Outside Nosleep) here [https://www.reddit.com/r/Helena\_The\_Doll\_C
 
 &#x200B;
 
-With the horrible things I have said in the next post, I wonder how many of you are still here, to read. I hope I shall never have to put into words such things, until I finish all my ”adventure”. But who knows what is out there...  Somewhat still shaken by those things, I went to my friend Adrian, the antiquities dealer. That is his secondary job, his main job is in call center, owned by some French company. He lives alone on an apartment on Romana Square, pretty close to the center of Bucharest. We have met at our University studies. We followed different paths after wards, but kept in touch. I knew no one I could go at the moment. I had saved in my phone some information from the newspapers from the 1920ties, to talk to him. I arrived sometimes late in the evening.
+With the horrible things I have said in the next post, I wonder how many of you are still here, to read. I hope I shall never have to put into words such things, until I finish all my ”adventure”. But who knows what is out there...  Somewhat still shaken by those things, I went to my friend Adrian, the antiquities dealer. That is his secondary job, his main job is in call center, owned by some French company. He lives alone on an apartment on Romana Square, pretty close to the center of Bucharest. We have met at our University studies. We followed different paths afterwards, but kept in touch. I knew no one I could go at the moment. I had saved in my phone some information from the newspapers from the 1920ties, to talk to him. I arrived sometimes late in the evening.
 
 &#x200B;
 

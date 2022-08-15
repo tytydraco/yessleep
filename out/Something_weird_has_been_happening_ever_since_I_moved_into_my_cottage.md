@@ -1,3 +1,5 @@
+
+
 I always dreamt of living in a small cottage in the forest, and that was only a dream until recently. I felt like I belonged to the mysterious nature of the forest. Everything in it felt like it called to me, and this opportunity was perfect for me.
 
 
