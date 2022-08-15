@@ -217,3 +217,8 @@ Jeff had been with me through everything, every single memory in my 17 years of 
 Jeff always took care of me. That is how it had always been. And the one time he needed me, really needed me to help him, I failed. I would have to live the rest of my life with a gnawing, crushing feeling of guilt inside of me. And I would have to do it alone.
 
 Something is wrong with that house. Something evil and sinister lives in the bowels of 47 Rosewood Lane… or at least it used to. You see, I walked over there this morning, hoping that investigating the house in the light of day would give me some clarity on what the hell happened last night. But when I got down to the corner, to the place the house has always stood, tall and foreboding, all I found was a vacant lot.
+
+
+
+
+Update: narration by [TattooedB1k3r](https://m.youtube.com/watch?v=JKQUjVjO4Ks&feature=youtu.be)
