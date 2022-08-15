@@ -26,7 +26,7 @@ He eventually looked at me. They told me they looked at the evidence again to do
 
 The kid was brutally murdered in a complete horrid scene. He was bashed in the head seemingly multiple times with what was ruled to be a hammer and then stabbed multiple times in the face and a couple of times in the stomach to the point you could see his organs. To make matters worse, the police even noticed that his neck was cracked in multiple places, and they think it was smashed against the toilet seat.
 
-The school doesn't have any cameras installed, much to the surprise of the cops, so they don't know who actually did it. No kid also saw anybody go into the bathroom with him, so they don't have any more suspects. 
+The school doesn't have any cameras installed, much to the surprise of the cops, so they don't know who actually did it. No kid also saw anybody go into the bathroom with him, so they don't have any more suspects.
 
 Weirdly enough, they checked the DNA on the sticky note and actually found *my* DNA on it, but they didn't find it on the kid's body. In fact, they didn't find any DNA anywhere on his body, and no weapons were left behind. They also thought it would be stupid if anyone did something like that and then wrote on a sticky note admitting to it, so they knew I was being framed.
 
@@ -64,7 +64,7 @@ My heart sank a good amount. He was trying to hire someone now to come after me 
 
 "Yeah, I can't read most of it, but he said he'd do it," Quintin said. I felt my lips mouth 'fuck.' Quintin kept going. "...And Andrew responded back and mentioned a USB cord stored in some abandoned warehouse that he's sure nobody will think about checking,"
 
-Hearing that made a bell ring in my head. Andrew had a hard drive stored and hidden somewhere. I knew we needed to get it. "How far away is the warehouse? Can you check?" 
+Hearing that made a bell ring in my head. Andrew had a hard drive stored and hidden somewhere. I knew we needed to get it. "How far away is the warehouse? Can you check?"
 
 "I can try," Quintin responded back. I heard more typing on the other end, the computer screen lighting up Quintin's face. I checked the time. It was 8 PM, too late to go out to some warehouse. A minute passed by before Quintin said anything else. "Oh shit, I actually found the location,"
 
@@ -132,7 +132,7 @@ However, the man didn't see him, and he walked by the bush, continuing to search
 
 It was silent the whole time. The only sounds I could hear were the sounds of Andrew's footsteps around me. I looked up and was terrified when I saw that Andrew was right in front of the bush. He hadn't seen me yet, but he could find me at any moment.
 
-I heard the birds start to sing as Andrew started taking slow, unnaturally steady steps around the bush. I held my breath. I didn't want to imagine what Andrew was going to do when he found me. 
+I heard the birds start to sing as Andrew started taking slow, unnaturally steady steps around the bush. I held my breath. I didn't want to imagine what Andrew was going to do when he found me.
 
 Right as Andrew was about to turn the corner around the bush and see me, there was loud ruffling in the bush Quintin was in, causing Andrew to get distracted and turn his head to the noise.
 
@@ -194,4 +194,4 @@ I walked onto the blacktop and moved beside a long brick wall as the clouds bega
 
 Instantaneously, I stopped in my tracks when in the distance, I saw the man that was with Andrew earlier standing at least 3 yards away from me, staring at me. My heart went into my throat. Andrew didn't say that he was going to be with him. The realization came to me when it was too late; this was a trap.
 
-That's when Andrew suddenly ran up to me, grabbed me by the shirt, and pushed me forcefully against the brick wall, holding a knife up to my neck.
+That's when Andrew suddenly ran up to me, grabbed me by the shirt and pushed me forcefully against the brick wall, holding a knife up to my neck.
