@@ -13,7 +13,7 @@ Before summer started, my brother and I got prescribed sleep medication—Ambien
 If you don't know what ambien is, it is a hypnotic sleep drug that warps your perception of reality and memories of that night. Some people eat out of the trashcan, others cover their countertops in peanut butter, if you want to read other examples go check out r/ambien. 
 
 
-The following day we went on the trail and it was amazing, but also very hot so we were exhausted by the time we got home. We had dinner, everything was going according to our schedule, and at the end of that night at 10:30pm, my brother and I followed out night time drug routine and eventually laid down to fall asleep. 
+The following day we went on the trail and it was amazing, but also very hot so we were exhausted by the time we got home. We had dinner, everything was going according to our schedule, and at the end of that night at 10:30pm, my brother and I followed our night time drug routine and eventually laid down to fall asleep. 
 
 
 This is where it got weird. 
@@ -61,7 +61,7 @@ After we had told each other our points of view from that night, we rushed downs
 "Stop saying things like that, this place is not haunted and you're not scaring anyone," was our dad's response. He doesn't believe in anything that is mystic/supernatural and definitely doesn't believe in ghosts. He is always the first to dismiss these things, and thinks there is always an explanation. Our mom dismissed our haunted accusation as well, with a simple "No its not." 
 
 
-My brother and I tried to explain more and they weren't listening until my brother said the word "woman". The second that word left his mouth my mom dropped the spatula she was using for the eggs on the stove, and looked directly at us. This was followed by "A woman tried to wake me up last night while I was sleeping." 
+My brother and I tried to explain more and they weren't listening until my brother said the word "woman". The second that word left his mouth my mom dropped the spatula she was using for the eggs on the stove, and looked directly at us. This was followed by her saying "A woman tried to wake me up last night while I was sleeping." 
 
 
 My brother and I turned to each other and just looked at each other, now that our experiences were being confirmed by someone who had not taken any drugs. 
@@ -71,3 +71,12 @@ We left the cabin later that day to return home, and it was never spoken of agai
 
 
 She chose to repress that memory, but my brother and I choose to relive it every now and then by telling people who haven't heard the story before. It sounds much better when we tell it together because our points of view paint the whole picture. I've had a few other strange experiences, but this one was the weirdest since it was originally confirmed by three people including myself. I intend to go back to Yosemite again, but I'm sure as hell staying away from that cabin and any one near it.
+
+
+
+
+
+
+Edit:
+
+I realized it wasn't clear who said "a woman tried to wake me up last night while I was sleeping", so I added in that it was my mother who said this at breakfast in the morning, not my brother. She tried waking both of them up.
