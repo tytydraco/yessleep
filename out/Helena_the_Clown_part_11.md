@@ -6,7 +6,7 @@ Check in the previous part in here  [https://www.reddit.com/r/nosleep/comments/w
 
 &#x200B;
 
-It has ended. I do not know if it is for good. Yet, some cycle is closed. So, I need to ”release” you as well, all those who read all I had to say. I can not finish the story tonight, as I wished, but I have a final word tomorrow, just to close.
+It has ended. I do not know if it is for good. Yet, some cycle is closed. Therefore, I need to ”release” you as well, all those who read all I had to say. I can not finish the story tonight, as I wished, but I have a final word tomorrow, just to close.
 
 &#x200B;
 
@@ -18,7 +18,7 @@ Some small thing. Before starting, I want to share a small piece of information 
 
 &#x200B;
 
-Helena left with some people, not many yet, to Mahalaua Dracului. It was not very far. Some people that so the crowd fled, others joined, as Helena told the ones already involved to call others, in helping cleaning up the mess from Mahalaua Dracului. All the Victoriei (Victory) Square was traversed and they reached Șoseaua Basarab, that is now the boulevard Nicolae Titulescu. They have decided to enter from Șoseaua Basarab, not the Dr. Felix street, risking the separation. Helena moved her left hand slowly in the air and a weak grey mist surrounded Helena, then the carriage, then the people. ”Do not worry,” shouted Helena. You are safe in the mist. It is for out own use. So, tell me where are them. In order.”
+Helena left with some people, not many yet, to Mahalaua Dracului. It was not very far. Some people who saw the crowd fled, others joined, as Helena told the ones already involved to call others, in helping cleaning up the mess from Mahalaua Dracului. All the Victoriei (Victory) Square was traversed and they reached Șoseaua Basarab, that is now the boulevard Nicolae Titulescu. They have decided to enter from Șoseaua Basarab, not the Dr. Felix street, risking the separation. Helena moved her left hand slowly in the air and a weak grey mist surrounded Helena, then the carriage, then the people. ”Do not worry,” shouted Helena. You are safe in the mist. It is for out own use. So, tell me where are them. In order.”
 
 &#x200B;
 
@@ -50,7 +50,7 @@ The police cars we have got our hands on are not enough to transport all of them
 
 &#x200B;
 
-There was some police involvement, some fires, it appears some people were shot. Police was repelled, eventually, but it took longer and some more casualties. They needed to break through the hippodrome of Floreasca (Today if does not exist anymore, there are streets with small apartment blocks.), and use then the small streets from Floreasca, and the small street Andrei Mureșanu. That will prove to be a mistake, in the end, because the diversion thought by Helena for them to come through Victoriei, to prevent the police from understanding their first real target, will be blown, when they went through Andrei Mureșanu. It is not known which of them decided to through north, perhaps to avoid the Bonaparte Highway.
+There was some police involvement, some fires, it appears several people were shot. Police was repelled, eventually, but it took longer and some more casualties. They needed to break through the hippodrome of Floreasca (Today if does not exist anymore, there are streets with small apartment blocks.), and use then the small streets from Floreasca, and the small street Andrei Mureșanu. That will prove to be a mistake, in the end, because the diversion thought by Helena for them to come through Victoriei, to prevent the police from understanding their first real target, will be blown, when they went through Andrei Mureșanu. It is not known which of them decided to through north, perhaps to avoid the Bonaparte Highway.
 
 &#x200B;
 
@@ -90,7 +90,7 @@ The blonde Elf started talking in a very beautiful voice, but on a sharp, harsh 
 
 &#x200B;
 
-”Stop me?” replied Helena. ”You may be strong and ancient, but I am also strong. I do not know whoever of us is stronger. We can try and see right here and right now, but I guess you would not like it either.” The red haired Elf looked angry at Helena: ”You have any idea how old I am? What I can do to you? How dare you disrespect us?” ”Well”, replied Helena, ”I may be much younger then you, but I am immortal as well. And I am not going to live centuries and ages on this Earth like this. Perhaps, since the ancient days of your great power gone, you have learned to live in hiding, in secrecy, feeling powerful at one to one level with a Human, but fearing them as a whole knowing that their great power is in their numbers and they can get rid of you, if you do not hide yourselves. Honestly, I do not know how can you stand and see the centuries, for some of you millennia, go by and go on. Look around you! We all live in a world that gets dirties, submerged in wickedness as time goes by. Myself I can not stand it. Not anymore.”
+”Stop me?” replied Helena. ”You may be strong and ancient, but I am also strong. I do not know whoever of us is stronger. We can try and see right here and right now, but I guess you would not like it either.” The red haired Elf looked angry at Helena: ”You have any idea how old I am? What I can do to you? How dare you disrespect us?” ”Well”, replied Helena, ”I may be much younger then you, but I am immortal as well. And I am not going to live centuries and ages on this Earth like this. Perhaps, since the ancient days of your great power gone, you have learned to live in hiding, in secrecy, feeling powerful at one to one level with a Human, but fearing them as a whole knowing that their great power is in their numbers and they can get rid of you, if you do not hide yourselves. Honestly, I do not know how can you stand and see the centuries, for some of you millennia, go by and go on. Look around you! We all live in a world that gets dirtier, submerged in wickedness as time goes by. Myself I can not stand it. Not anymore.”
 
 &#x200B;
 
@@ -102,11 +102,11 @@ After a few seconds of silence, Helena continued: ”You have a choice, from my 
 
 &#x200B;
 
-Helena became quiet. After a little while, she replied, on a calmer tone and lower voice: ”He is not my master. He may sell me to them. He already took my Human life. I knew that, if I start something like this, it will be my end, one way or the other. But things can not go on as they are.” The blond Elf replied: ”You can decide for yourself, you have no right to bring al these people to death. If you do that, you are no better then the one who turned you into what you are.” Helena stood up quiet at the sky, and replied: ”They came out of their own will. But I guess that, on this you are right. I shall tell them.”
+Helena became quiet. After a little while, she replied, on a calmer tone and lower voice: ”He is not my master. He may sell me to them. He already took my Human life. I knew that, if I start something like this, it will be my end, one way or the other. But things can not go on as they are.” The blonde Elf replied: ”You can decide for yourself, you have no right to bring al these people to death. If you do that, you are no better then the one who turned you into what you are.” Helena stood up quiet at the sky, and replied: ”They came out of their own will. But I guess that, on this you are right. I shall tell them.”
 
 &#x200B;
 
-She turned to the people: ”Good folks! It seems the scumbags send the army for us. With war munition. Myself I shell continue. We have our right to live with dignity. We have our right to be free. I tell you this so that you know what is coming. I can not force you to continue. But, as I already told you, as much of us, the better. We can do this. Some of us may die. But we shall die as heroes, nonetheless. Remember, the more of us we are, the less powerful they are. If we are alone, they take us one by one and crush us!”  Some people left. It seems many. Some were talking, being undecided.
+She turned to the people: ”Good folks! It seems the scumbags send the army for us. With war munition. Myself I shall continue. We have our right to live with dignity. We have our right to be free. I tell you this so that you know what is coming. I can not force you to continue. But, as I already told you, as much of us, the better. We can do this. Some of us may die. But we shall die as heroes, nonetheless. Remember, the more of us we are, the less powerful they are. If we are alone, they take us one by one and crush us!”  Some people left. It seems many. Some were talking, being undecided.
 
 &#x200B;
 
@@ -146,11 +146,11 @@ There are some reports of two Siguranta agents who were send to find Gordon Jame
 
 &#x200B;
 
-I guess there are some things I would like to mention, before moving on what happened those days, the events I also took part, just to close the talk about the past. After what happened with Alexandra and Helena, their families broke down. Alexandra„s mother went to a mental institution, where she died in less then an year. Alexandra„s father, the colonel Protopopescu seemed to bear better, he continued his military career. He eventually became a general, fought in World War II as well. When the soviet army entered the country, he was arrested and condemned to death, for fighting against the Red Army. His sentence was commuted to life in prison and died in the penitentiary of Aiud, in 1949.
+I guess there are some things I would like to mention, before moving on what happened those days, the events I also took part, just to close the talk about the past. After what happened with Alexandra and Helena, their families broke down. Alexandra„s mother went to a mental institution, where she died in less than an year. Alexandra„s father, the colonel Protopopescu seemed to bear better, he continued his military career. He eventually became a general, fought in World War II as well. When the soviet army entered the country, he was arrested and condemned to death, for fighting against the Red Army. His sentence was commuted to life in prison and died in the penitentiary of Aiud, in 1949.
 
 &#x200B;
 
-Spirache, the father of Helena, had a breakdown, he sought for his daughter, even managed to kill some gangsters he suspected were responsible on her abduction. The colonel helped him in many ways, both on trial, and in prison. It is said that, when Helena started to appear a ventriloquist doll in the shows of Jameson, Spirache recognized her, tried to reach her in anger, but he was stopped. He threatened Jameson and he was arrested soon. After spending some years in prison, he manged to escape and live as an outlaw in the forests of the Carpathian forests. It seems that, when he heard of the riot Helena tried on her last night, he would have said: ”That is my little girl.”
+Spirache, the father of Helena, had a breakdown, he sought for his daughter, even managed to kill some gangsters he suspected were responsible on her abduction. The colonel helped him in many ways, both on trial, and in prison. It is said that, when Helena started to appear a ventriloquist doll in the shows of Jameson, Spirache recognized her, tried to reach her in anger, but he was stopped. He threatened Jameson and he was arrested soon. After spending some years in prison, he managed to escape and live as an outlaw in the forests of the Carpathian forests. It seems that, when he heard of the riot Helena tried on her last night, he would have said: ”That is my little girl.”
 
 &#x200B;
 
@@ -158,7 +158,7 @@ He was found and imprisoned again by the communists. He met general Prototopescu
 
 &#x200B;
 
-In a way, the most interesting case was that of Helena„s mother, Safta. She became very pious, prayed a lot, went on pilgrimages and, eventually, was tonsured a nun in the monastery of Pasărea unde the name of Saviana. Mother Saviana lived quite an ascetical life. She became a appreciated spiritual advisor, this was the main reason she was arrested by the communists and sent to prison. There she was considered a beacon and a living saint, a pillar who helped other inmates survive in the harshness of the communist prison regime, when violence, hunger and cold were, often, the easiest part. She dies in 1953, in the penitenciary of Târgșor. Her grave in unknown, but archeologists believe they know the general area of it.
+In a way, the most interesting case was that of Helena„s mother, Safta. She became very pious, prayed a lot, went on pilgrimages and, eventually, was tonsured a nun in the monastery of Pasărea unde the name of Saviana. Mother Saviana lived quite an ascetical life. She became a appreciated spiritual advisor, this was the main reason she was arrested by the communists and sent to prison. There she was considered a beacon and a living saint, a pillar who helped other inmates survive in the harshness of the communist prison regime, when violence, hunger and cold were, often, the easiest part. She dies in 1953, in the penitenciary of Târgșor. Her grave is unknown, but archeologists believe they know the general area of it.
 
 &#x200B;
 
@@ -170,7 +170,7 @@ The gate was locked from the outside, with a big lock, but this does not mean th
 
 &#x200B;
 
-I was a fine, because I wore that day clothes that allowed me to do this pretty easily. I have got a little dirty, but this was just the start. I have made some noise. The yard had some leftover of factory machinery, that now could only be send to be recycle the materials or, at beast, for spare parts (probably there was, technically, little probability for that either). I tried to make some as little noise as possible, but the gravel on the ground made it harder. There was some movement from the building, so I quickly hid behind a machinery. A big man, with big muscles and buzzcut, with black t-shirt came out of the building. Very Eastern European gangster like. So, it seems Marcel was right.
+I was a fine, because I wore that day clothes that allowed me to do this pretty easily. I have got a little dirty, but this was just the start. I have made some noise. The yard had some leftover of factory machinery, that now could only be send to be recycle the materials or, at beast, for spare parts (probably there was, technically, little probability for that either). I tried to make some as little noise as possible, but the gravel on the ground made it harder. There was some movement from the building, so I quickly hid behind a machinery. A big man, with big muscles and buzzcut, with black t-shirt came out of the building. Very Eastern European gangster like. It seems Marcel was right.
 
 &#x200B;
 
@@ -186,7 +186,7 @@ There was nobody in sight, so I tip-toed inside. The light seemed to be only tow
 
 &#x200B;
 
-Cougar came down to me, took my face in his hand brutally and said: ”That„s the chick from TV! Heh! This will be funny, when they shall find her dead body. But where and how? Of course, we shall have fun with here before that. But, perhaps our little doctor could find a use for her?” Another man came out from another part of the hall. A man very different from the rest. Dressed in medical clothing, he let down his mask. I knew who he was. He was a professor of medicine, he appeared, from time to time, on TV, a big authority in transplants. About 50, partial grey hair, he looked very competent and professional from second one, before even speaking. Hanson, in his own way. Someone who blindly trusts the appearance would never suspect.
+Cougar came down to me, took my face in his hand brutally and said: ”That„s the chick from TV! Heh! This will be funny, when they shall find her dead body. But where and how? Of course, we shall have fun with here before that. But, perhaps our little doctor could find a use for her?” Another man came out from another part of the hall. A man very different from the rest. Dressed in medical clothing, he let down his mask. I knew who he was. He was a professor of medicine, he appeared, from time to time, on TV, a big authority in transplants. About 50, partial grey hair, he looked very competent and professional from second one, before even speaking. Handsome, in his own way. Someone who blindly trusts the appearance would never suspect.
 
 &#x200B;
 
@@ -202,7 +202,7 @@ They all laughed in their own way. Cougar said to the doctor: ”Hey, doc do you
 
 &#x200B;
 
-Then I sensed something that froze me on spot. Some small, dark shadows, were sitting on the shoulders of the doctor and Cougar, whispering something in their ears. I knew what they were, that they came from Hell and their mission was to coordinate the evil doings of those people. They were not seen by them, but I have started to see them. I knew from father George I need not to look them in their faces, that I shall loose my mind. So I close my eyes fast. Why did I so them ? I do not know? Perhaps the substances in my bloodstream allowed me to? They jumped at me and, due to fear, I fell to the ground. Some of them felt on chest, I felt a fear like a never felt again, not just intense, but deep. It felt like sleep paralysis, actually. I passed out.
+Then I sensed something that froze me on spot. Some small, dark shadows, were sitting on the shoulders of the doctor and Cougar, whispering something in their ears. I knew what they were, that they came from Hell and their mission was to coordinate the evil doings of those people. They were not seen by them, but I have started to see them. I knew from father George I need not to look them in their faces, that I shall loose my mind. I close my eyes fast. Why did I see them ? I do not know? Perhaps the substances in my bloodstream allowed me to? They jumped at me and, due to fear, I fell to the ground. Some of them felt on chest, I felt a fear like a never felt again, not just intense, but deep. It felt like sleep paralysis, actually. I passed out.
 
 &#x200B;
 
