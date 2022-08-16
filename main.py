@@ -22,16 +22,17 @@ subreddit = reddit.subreddit(SUBREDDIT)
 top_posts = subreddit.top(limit=None)
 hot_posts = subreddit.hot(limit=None)
 
-# Go through all hot posts
-for post in top_posts + hot_posts:
-    if post.stickied or not post.is_self:
-        continue
+post_generators = [top_posts, hot_posts]
+for posts in post_generators:
+    for post in posts:
+        if post.stickied or not post.is_self:
+            continue
 
-    print(post.title)
+        print(post.title)
 
-    sanitized_title = post.title.replace(' ', '_')
-    sanitized_title = ''.join(ch for ch in sanitized_title if (ch.isalnum() or ch == '_'))
-    sanitized_content = post.selftext.encode('utf8')
+        sanitized_title = post.title.replace(' ', '_')
+        sanitized_title = ''.join(ch for ch in sanitized_title if (ch.isalnum() or ch == '_'))
+        sanitized_content = post.selftext.encode('utf8')
 
-    with open(OUTPUT_DIR + sanitized_title + '.md', 'wb') as f:
-        f.write(sanitized_content)
+        with open(OUTPUT_DIR + sanitized_title + '.md', 'wb') as f:
+            f.write(sanitized_content)
