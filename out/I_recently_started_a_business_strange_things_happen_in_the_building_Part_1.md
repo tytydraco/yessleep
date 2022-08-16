@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/wpz5ve/i_recently_started_a_business_strange_things/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/wq2ycf/i_recently_started_a_business_strange_things/)
 
 &#x200B;
 

@@ -1,6 +1,6 @@
 Life is funny, huh? One day you think you know someone, and the next day they’ve developed some strange obsession, something you can’t get into, can’t understand at all. This, unfortunately, happened to my brother.
 
-Just, *whammo*, just like that, one day he was all about rock climbing. Couldn't stop talking about it. Never said a word about rock climbing before, but now he was blathering on about it any chance he got. I'd see him weekly, as brothers still living in the same small town often do. He worked at the grocery store after all, and it used to be so nice just to chat up my own flesh brother so frequently. For whatever reason, could be all those current events going on a few years ago, he got really into rock climbing. Outta the blue, just like that. One day he's telling me about some Netflix show I had no intention of ever watching, and the next day, all rock climbing.
+Just, *whammo*, just like that, one day he was all about rock climbing. Couldn't stop talking about it. Never said a word about rock climbing before, but now he was blathering on about it any chance he got. I'd see him weekly, as brothers still living in the same small town often do. He worked at the grocery store after all, and it used to be so nice just to chat up my own flesh brother so frequently. For whatever reason, could be all those "current events" going on a few years ago, he got really into rock climbing. Outta the blue, just like that. One day he's telling me about some Netflix show I had no intention of ever watching, and the next day, all rock climbing.
 
 He'd tell me about techniques, about climbers, and some close calls and heroic maneuvers. I'd just nod along waiting for the subject to change, but it never did. The problem was, we live in one of those flat states with no rocks nowhere to be climbed. That didn't stop his rock climbing obsession though. He'd wear the gear. I never saw him climb a damn thing, but he'd be strapped with carabiners, pouches, boots, and those little khaki shorts. His hands would be chalked up and he'd be talking about portable oatmeal you can make in your mouth as you climb or something. I don't know. I just kinda... went with it I guess.
 
@@ -17,33 +17,3 @@ Out of a little backpack slung about his hip, he pulled out a coupla chalky rock
 Curious? Concerned? Kinda both? That’s how I felt, but I told him, “Sure. Go ahead and ‘rock climb’ or whatever it is you’re about to do.”
 
 He closed his eyes, picked up the rocks, and started rock climbing. It was all in his head. The whole time, all the routes, all the rocks, all the climbs; They were all in his head. My brother, though, was making it real with all the grunting he was doing. His wiry arms flexed and bulged. His feet moved for toe holds. He whispered to himself, psyching himself up for risky maneuvers.
-
-Fascinated, I chose not to say anything. He’d been doing this for a year or more? Just retreating into a mental state that allowed him to rock climb anywhere in the world? Anywhere in any world?
-
-I watched nervously as his grunts began to have a tinge of fear in them. He muttered curses to himself. I was thinking maybe he had gotten himself in a tough spot or maybe bad weather was rolling in or, or, or a snake! Or something terrible like that. I was enthralled and worried for my brother. It was as if I was standing at the base of whatever cliff he was navigating, just helplessly watching his precarious climb.
-
-His body jolted. He gasped. He dropped the rocks on the floor. Then, in just a couple seconds, he body shattered with impact, the air in his lungs thrust out. He didn’t really fall. My brother was still sitting on the couch. The pizza was still on route.
-
-My brother was motionless. I didn’t know what to do. I screamed his name and blood poured from his ears and nose. I yelled some more. I grabbed him by the shoulders to shake him awake, shake him out of his rock climbing world, but his body was limp. Shards of splintered bones scraped and twisted beneath his bruising skin. I slapped his face a few times, but loose teeth fell out with rivulets of black blood and something thick and oozing. His brain. The impact must have crushed his skull.
-
-My brother was dead. It was a terrible accident. I don’t know why he didn’t use ropes or carabiners or whatever. How’d he slip?
-
-No, I thought. He wasn’t really climbing anything. He was on the couch. How’d he *slip?* How’d he do *any* of this?! How could this have happened at all?!
-
-No breathing, no pulse. My crumpled brother sat slumped on the couch.
-
-I sat and stared in disbelief until finally the doorbell rang. The pizza was here.
-
-I  brought it in. I pretended everything was normal even when the delivery girl looked over my shoulder and saw my brother, just a vague suggestion of the human body. I laughed it off and told her some excuse that didn’t really explain anything. “Day drinking” or something, I have no idea what I said or if she believed me. I gave her the money and she left. That much I do know.
-
-My rock climbing brother. My reckless, rock climbing brother. I put a slice of pizza on his lap. I don’t know. Like it was some sort of flowers for his funeral, some sort of token of appreciation for his life. The rest of the pizza went into my stomach and I didn’t taste a dog damned thing.
-
-When it was done, I picked up the box and noticed the rocks on the ground, his handholds, his cliff, his mountain.
-
-I picked them up and felt the exhilaration coursing through my fingers. The grip, the struggle, the reward of hard earned climbing. I chuckled to myself, chuckled towards my dead brother.
-
-Now, for the last few months, I’ve been the one really into rock climbing.
-
-\---
-
-[\[|\]](https://www.reddit.com/r/DeliciousHotDog/)
