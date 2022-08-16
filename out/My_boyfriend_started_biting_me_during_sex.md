@@ -1,0 +1,63 @@
+ 
+
+Hey all, I’m just reaching out for some advice. I’m dealing with something weird in my relationship with my boyfriend, and I don’t really know where else I can go for advice.
+
+&#x200B;
+
+So me (34F) and my boyfriend (41M - let’s call him Alan) have been dating for a year and a half. We are both nerdy types - we bonded over a love of sci-fi/fantasy movies and general dorkiness and after a couple years of being friends we eventually started dating. Honestly I’m so in love. I’ve never been with someone who makes me feel so good about myself. I’m overweight, and it’s tough to find someone who is willing to be open about dating a heavier girl with his friends and family. Honestly for a long time I thought I was going to be alone forever because no matter how many guys were willing to hook up with me on the sly, they never wanted their friends or family to know that they were attracted to women who looked like me. So I assumed that I was either going to have to lose literally half my body weight to be attractive to men, or gain half again to fit some sort of body type fetish. But that’s not the case anymore (yay!). Alan and I have an amazing relationship, and he has never made me feel anything less than beautiful and desirable and someone he wants in his life.
+
+&#x200B;
+
+Another thing I need to mention because it’s sort of relevant - I have a fairly high body count and Alan doesn’t. My sexual exploits mostly happened over a few years in my early 20s. I was pretty self-destructive and made lots of poor decisions. I honestly don’t remember most of the names of those poor decisions, but somehow despite hitting triple digits in a 3 year period, I didn’t get pregnant or diagnosed with anything more serious than the occasional carpet burn. Alan on the other hand has only been with 3 women, myself included. It was something we talked about a lot when we started dating. I am pretty sex-positive and explored a lot of sexual interests - I definitely discovered a love of BDSM and explored being a switch. For anyone who isn’t familiar with the term, that’s when a person is comfortable being either the dominant or submissive in the BDSM relationship. So I guess the reason I am telling you all this is to establish that I consider myself very comfortable with knowing my boundaries, I’m open to kinkier sex, and I know what I like and what I don’t like in bed. 
+
+&#x200B;
+
+One of the things that was established pretty early on in my relationship with Alan is that he is not kinky. I mean, no hair-pulling, choking, not even light spanking. And that’s okay – I have no need to have my kinks played out. Being with Alan has been amazing. He is sweet and loving, and he has the cutest butt and our sex is full of love and laughter and joy. It’s awesome, but very standard. So I was really surprised when he bit me the first time.
+
+&#x200B;
+
+Finally, I have a weird erogenous zone. It’s the right side of my neck from my ear to my collarbone. It takes almost no sensation to that area to make me tingly all over, and if pressure is properly applied with lips and tongue, I’ve legit climaxed from just being kissed in that six inch space before my clothes have even come off. 
+
+&#x200B;
+
+Okay enough context - on to what happened. On Sunday night, Alan and I were getting frisky - he had been sick for a few days prior and had just bounced back after basically sleeping for 3 days straight so we were feeling the mood, and we were starting to get into it when he moved his mouth from mine to my neck. It felt so good, and I was melting into the feeling of his lips right in the bend where my neck meets my shoulder when all of a sudden he bit me. It wasn’t a big bite - more like a really firm nip. It made my whole body convulse in shock and took me right out of the moment. When I opened my eyes, his were still closed and he was still moving onto my body as if he hadn’t noticed that I had jerked away from him, which is weird because he’s usually very responsive to my reactions. I had to push him off of me - not too hard, but I definitely needed to stop him from putting his mouth on my neck again - and I told him that that hurt and to not do it again. He definitely heard me because he nodded and apologized, and then he started kissing me again. And then it happened again. He got into that little spot right where my neck meets my shoulder and bit me again - that same hard nip.
+
+&#x200B;
+
+Ugh this is really weird to type out. I try not to share too much of my personal life on Reddit because it worries me that my family will find my account and then have way too many questions. But I am really worried so I’m trying to include all the details - feel free to ask any questions if something isn’t clear.
+
+&#x200B;
+
+Anyways, he bit me again, and my whole body jerked like I was tased (I assume - I’ve never been tased). And that’s when I got mad at him. I pushed him off of me way more forcefully and I’m not gonna lie, I yelled at him. That one HURT. I don’t think he bit me too much harder, but my nerves were all on fire between the pleasure and the shock of the last bite, so it felt like a really huge chomp. Alan definitely seemed out of it at first. I saw that it took him a minute to focus on the fact that I was yelling, and it wasn’t until I started angry crying that he seemed to snap out of whatever daze he was in. He started apologizing and seemed really upset, but when he reached out to comfort me I pulled back and left the bedroom. I went to the bathroom and checked out my neck. The spot where he bit me was bright red but he didn’t break the skin. After a couple minutes I went back to the bedroom. Alan apologized again and I guess he didn’t mean to do any harm so I accepted his apology but told him that the mood was dead and we should just go to sleep.
+
+&#x200B;
+
+Later that night (still Sunday) I woke up in the middle of the night needing to pee and almost wet the bed when I rolled over and saw Alan sitting straight upright staring at…something. I don’t even know. His body was so tense that it looked like his spine was arching backwards and his eyes were huge and unblinking. I’ve never seen that before - he’s usually a really heavy sleeper and other than occasionally talking in his sleep he doesn’t do anything weird. I went to touch him on the shoulder to try and wake him up and when I did his head snapped around to stare at me and oh my god it was so freaky. He didn’t really seem to see me but when he started staring at me he smiled, and I don’t know how to describe it but there was something wrong with his mouth. His teeth were different. It looked like there was something wriggling over them. Does that make any sense? And his grin was so big. I’ve never seen his mouth stretch like that. It totally freaked me out, and I froze. I don’t know why, but I was sure he was going to attack me, and bite me again and again. 
+
+&#x200B;
+
+I have no idea how long I sat frozen staring at him. Eventually my need to pee was so overwhelming that I had to move. I moved super slowly and he didn’t seem to wake up, but he did watch me the entire time I was in the bedroom. I know because I was so afraid that I couldn’t look away until I was in the hallway. I’ve never been so afraid in my life, and that includes comparing it to the ex who was arrested for threatening to kill me. But eventually I was able to go back into the bedroom and when I did Alan was asleep like normal, snoring like a diesel truck. It was comforting, but I still didn’t sleep much after that.
+
+&#x200B;
+
+When the alarm finally woke us both up I tried to talk to Alan about what had happened. He didn’t remember any of it, and it seemed like even the bites weren’t something he really remembered. But he didn’t try to tell me that I was making anything up and he agreed to book a doctor’s appointment because he saw that I had been really freaked out.
+
+&#x200B;
+
+That leads us to last night. After supper Alan told me that he had actually wanted to talk to me about maybe trying out some kinkier stuff in bed. He’d been feeling a little more aggressive but wanted to make sure I was comfortable with it, especially after my reaction to the biting last night. That kind of weirded me out, but I really do believe him when he told me that he doesn’t know what happened last night and he didn’t mean to hurt me, or even bite me. It just sort of happened. And I get that - things happen in the heat of the moment. The first time I got slapped across the face by a dom it was definitely not planned, and if it wasn’t for the intent we walked into the bedroom with it would have been a really big issue, but because we knew that things could get weird it wasn’t as much a problem (side note - turns out being slapped like that is not something I enjoyed, and my dom never did it again. Consent matters, folks!).
+
+&#x200B;
+
+So we talked it out and decided we would try it out. Alan promised he wouldn’t bite or even kiss my neck until I was okay with it, and that made me feel safe enough to consent to trying to add some light kink into our bed. So we went to bed, and Alan was definitely interested in having some sexy time so we started kissing and touching, and it was…different. Alan’s hands were more forceful and grabbed me a lot harder. He pushed and pulled me around a lot more aggressively, and he started biting me almost right away. It felt really good though, and all of a sudden I was biting him back. It was like the sex became secondary to the need to sink our teeth into each other’s flesh. I honestly can’t even remember if we got to the sex part. I remember biting down on his shoulder, and he had his mouth on the side of my breast, and the sensation was almost indescribable. The pain was so intense, not just the general pain of teeth in my skin but this red hot pain that felt like bellows were pumping hot air under my skin and spreading through my entire body. But it didn’t feel like pain exactly. I don’t think I could have differentiated between pain and pleasure in that moment - it was all just pure intense sensation.
+
+&#x200B;
+
+At some point we fell asleep, I assume. I mean, I woke up this morning next to Alan totally naked (he was too), and feeling like I had been hit by a tank. Not in the fun we-spent-the-whole-night-boinking way either. It felt like I had been beaten with a bat. When I went to the bathroom I was super shocked to see that I had huge hickeys and teeth shaped bruises all over my body. I don’t remember when, but he even bit me on the rib cage and the back of my calf. But the bite that I do remember - the one on the side of my breast - he actually broke the skin. And when I examined it closer I swear I saw something move under the skin for a moment.
+
+&#x200B;
+
+Anyways I bandaged it up as much as I could, and by the time I did Alan was up and about. He had a couple bruises like mine, but nowhere near as bad. He thought it was funny how many bruises I had and actually laughed at me. I really don’t like that. I’ve never felt dismissed by him before. And there’s something else. I had a dream last night, or I think it was a dream. It’s all really hazy still. In my dream Alan and I were wrapped around each other in a passionate embrace, and he lifted his head from biting my body and he had that same grin on his face from the night before. That wasn’t the scariest part though. His skin was rippling slightly, like there were worms moving around under his skin. It must have been a dream though, because I don’t remember panicking - I remember reaching out and pushing his head back down onto my body and he bit me again and made me feel all that intense pain/pleasure. That’s all I can remember from the dream.
+
+&#x200B;
+
+I’m at work now and I don’t really know what to do. I checked the bite on my breast at lunch and it doesn’t look infected, and there isn’t anything moving under the skin (which I’m sure I was imagining anyways), but I can still feel that red hot pain spreading through my entire body. It’s like a fever but it’s not making me feel sick. It’s actually making me feel like I want to fuck. I want to drape my body onto him and latch on with my hands and legs and teeth and just rip into the pleasure and the pain. I want to feel what I felt last night with Alan. That was the most amazing intense feeling I’ve ever had in a BDSM situation. But I’m really confused about how to talk to Alan about laughing at the bruises he left on my body. Aftercare is so important with kink and I don’t know if he knows that. I have to talk to him after work. Does anyone have any ideas on how to approach it?

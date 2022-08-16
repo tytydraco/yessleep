@@ -1,3 +1,5 @@
+[Part 2]https://www.reddit.com/r/nosleep/comments/wop8vl/my_son_lost_his_mind_after_he_witnessed_my_wife/?utm_source=share&utm_medium=web2x&context=3
+
 I had to go back to work the next day since I had already been off a week to help my family recover. 
 
 Every night when I got home, I was told of the degression of Marcus. The therapist was coming over every day to talk and comfort him. 
