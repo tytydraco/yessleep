@@ -130,7 +130,7 @@ I clutched it to my chest and pouted.
 
 "*Friends share. Give me the toy.*"
 
-His voice took on a stern quality I'd only heard from grown-ups before. I got the same sense that refusing his request would lead to some kind of consequence. So, not wanting to upset Crafty, I held out my cherished figurine and dropped it, before leaving the room whilst fighting back tears.
+His voice took on a stern quality I'd only heard from grown-ups before. I got the same sense that refusing his request would lead to some kind of consequence. So, not wanting to upset Crampy, I held out my cherished figurine and dropped it, before leaving the room whilst fighting back tears.
 
 The missing toy didn't go unnoticed. Dad exploded when I confessed to what I'd done after a relentless barrage of questioning, spit flying in all directions as he seethed to my mom about how 'fucked up' I was.
 
@@ -202,7 +202,7 @@ I begged and yelled and screamed for Crampy to let me go, but it was no use.
 
 My fingers hit something sharp and hard, and then I couldn't feel them anymore. Crampy was saying something, but I couldn't hear him over the storm of bone and flesh rending beneath me.
 
-When there was nothing left for Crafty to hold onto, I was able to slide what remained of my arm free. In a daze, I fell back and cradled the mangled, bloody stump against my body.
+When there was nothing left for Crampy to hold onto, I was able to slide what remained of my arm free. In a daze, I fell back and cradled the mangled, bloody stump against my body.
 
 Dad was the first to burst into the room, screaming for my mom to call an ambulance as he wrapped a towel around the mess of gore. He was a scary man when he got mad, but the panicked face he wore now was somehow much scarier.
 
