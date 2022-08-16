@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/wpz5ve/i_recently_started_a_business_strange_things/)
+
+&#x200B;
+
 Well, to start this off, I should probably introduce myself. I’m Laith, and I’m 29. I don’t know what the heck is happening, I don’t know if any of this is real, I don’t know if I’m going insane, all I can do is follow the rules I’ve been making.
 
 &#x200B;
