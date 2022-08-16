@@ -210,7 +210,7 @@ The last thing I saw before consciousness slipped away from me was a fiery red e
 
 I'm 17 years old now. I spend most days working to earn a little extra cash. The original goal was to scrape up enough money to escape this nightmare. From Crampy. 
 
-Of course, that's easier said than done. There aren't too many places that'd choose to hire a one-armed paraplegic over someone still in possession of all their limbs.
+Of course, that's easier said than done. There aren't too many places that'd choose to hire a kid with one arm over someone still in possession of all their limbs.
 
 A few years back, my mom gave birth to a baby girl. I didn't much care for Charlotte at first. It felt as though an invisible barrier separated me from the rest of the family after everything that happened, so I didn't bond with her like I probably should have. But now, for her sake, I'm thinking I should stay put. 
 
