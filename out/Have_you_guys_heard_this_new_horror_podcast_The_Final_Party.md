@@ -1,0 +1,49 @@
+It’s called [The Final Party.](http://www.thefinal.party/) It’s really fucking good and I’m kind of hooked on it. 
+ 
+I’ve always been a big fan of ARGs and fourth wall-breaking horror and meta-narrative and stuff, and this podcast’s super good for that. I’m usually pretty late to the party with these kinds of things (I only started listening to the NoSleep Podcast late last year, for example) so you’ve probably all already heard it, but I haven’t seen anyone talking about it on here so I thought I’d mention it. 
+ 
+I have no professional or financial connection to this podcast, I just wanna clarify that. This isn’t advertising, I’m just a big fan. I don’t work on it. I don’t know who *does* work on it, actually. They don’t have any kind of social media presence, no Twitter, Instagram, Facebook. I’ve found a few fan pages but they don’t seem to be official, and nobody knows the details of who’s behind the show itself. It surprises me they have so many subscribers, generally podcasts seem to need to promote the heck out of themselves on social media. 
+ 
+The narrator has a very familiar voice, don’t you think? At first, I wondered if he was someone from the horror narration community, but I can’t place him. He’s got that sort of sultry, vaguely menacing British voice that some of the best male horror narrators can pull off really well, but there’s something extra about him, isn’t there? Like I swear this guy wouldn’t sound out of place in Hollywood. I wish I knew what his name was, I’d love to listen to more of his work. On the show, he just calls himself The Host. 
+ 
+I guess that fits, really. The podcast is hard to describe for anyone who hasn’t listened to it, which is why I’m reaching out to other fans on here so maybe we can get a discussion going before tonight, which I’m really excited about. 
+ 
+So like, basically each episode takes place at a party. At first I thought it was the same party, and I guess in a way it is, ‘the Final Party’, but the location seems to change each episode. A group of friends show up to the party and generally start having a good time. It’s always some kind of decadently decorated basement location, from the way they describe it. Plenty of booze on hand, dim lighting, music playing from unseen speakers. 
+ 
+And then, here’s where the really cool part kicks in. After we hear the partygoers shooting the shit with each other for five or ten minutes, The Host shows up. He tells them the theme of the party, and it’s always something really fucking creepy or horrible. 
+ 
+Some of my favorite episodes have been:
+ 
+An episode where there’s a dead body hidden around the party and the guests have to find the dismembered body parts and piece together the victim. The big reveal at the end of this one was that the victim was the sister of one of the characters, and they all freaked the fuck out when they found her head inside the disco ball (I loved that touch). 
+ 
+The episode where the guests are served pizza and forced to eat it on pain of death for all of them, and one of the slices is laced with extremely fast-acting poison, and it’s sort of a game of Russian Roulette to see who eats the poisoned pizza. It was a boy called Craig, whose girlfriend absolutely freaked when he vomited up his insides. 
+ 
+An episode where the guests have to decide amongst themselves which member of the party they’re going to drown in a bathtub. This one had a brilliant twist, cos they finally decide to kill this one guy who they all think is a bit of a dick, but when they do, it turns out the bathtub is filled with acid, and the murderers get their arms burned off too. Really clever horror gimmick. 
+ 
+The obligatory slasher killer episode, where someone is murdering the party guests and it’s kill or be killed. The two surviving party members end up stabbing the killer to death only to find out it’s their teacher, who’s been blackmailed into murdering them all horribly by The Host, who has the poor guy’s family. 
+ 
+And, my personal favorite, the episode where the party guests are told they have to cut their own fingers and toes off to fill a bowl attached to a scale that’ll trigger a door and release them. This one was really grim, because most of the people in this one were total assholes, and they end up turning on this one poor kid they’d been teasing and bullying in the intro, and forcibly removing his digits without cutting off any of their own. The denouement here was fucking awesome; they all rushed out the exit when it unlocked, leaving the poor fingerless kid bleeding on the floor in the party room, only the exit led straight down a fucking lift shaft. The sound effect as all five of them just plummeted into the darkness and splatted at the bottom was fucking great. I swear they must’ve thrown a slab of ham down an actual lift shaft or something to get that sound.
+ 
+So yeah, I know maybe it sounds a bit traditional Saw-like horror, but any of you who’ve heard it know why it’s a bit better than that, yeah? I mean, first off, the actors are absolutely incredible. Like, I’ve never heard a podcast acted that believably. It’s different actors each episode too, you never get the same partygoers twice, the only person who recurs is The Host. And they’re just incredible. I dunno if they record in a studio or actually set up the party locations and just roleplay, but you’d swear it was the audio of an Oscar-worthy movie or something.
+ 
+It sort of makes me wish they’d livestream it or do a visual version, actually. I think it’d go down really well on Youtube or something. I guess it’s just the budget that’d require; doing it in podcast form, they don’t need any special visual effects for the horrific kills or anything. It makes it seem more real when you can’t see it I guess? 
+ 
+Secondly, remember I mentioned meta-narrative fourth wall breaking, yeah? That part’s really fucking clever, and it leads to listener engagement in a way that I’m surprised more podcasts don’t do. Presumably the tech’s fairly easily accessible if Final Party does it, but I’ve never heard anything quite like it elsewhere. 
+ 
+Basically, and I dunno how it does it, but the podcast draws on your iTunes or podcast feed user data to make custom recordings aimed at you. The Host addresses you by name, as if he’s narrating the podcast directly *to* you. It’s fucking incredible. The way he describes the scenes, the way he tells you what’s going on, it’s like he’s actually there watching it all play out. It’s very well written. 
+ 
+I think my absolute favorite way the fourth wall was used was one time when I listened to the show with my boyfriend. We normally listen to it alone then discuss it afterwards, it’s creepier that way, but one night he was staying over and it was new episode day and we were both super excited to listen. I’ve no idea how they did it, but The Host addressed *both of us*. We totally flipped. Proper screaming, then looking at each other and laughing. My boyfriend was logged into some of his accounts on my laptop so I guess it scraped his user data from somewhere, which I guess is probably a security concern but fuck, it’s just too cool and creepy to worry about that too much, right? 
+ 
+At the end of every show, you’re issued with a custom invite to come party yourself. I love that touch too. Like, I could’ve actually believed that these parties are for real going on somewhere, and I could actually go to one and get the pants scared off me. Me and my boyfriend talked about this a lot. There’s even a community of fanfic writers who write about their own ideal Final Parties, and I admit I got a bit involved with that.
+ 
+It was through that community that we found out the invitations weren’t just for the horror effect. Like, holy shit guys, if you don’t know already, *this is how they get actors for the show*. We actually get to attend the goddamn parties ourselves! I signed up via the link that one of the producers (I assume, he was anonymous) posted on the community and soon enough, both myself and my boyfriend were issued with honest to god postal invites. Proper fancy card stock, wax seals, the lot. 
+ 
+So oh my god, the party is tonight and I am so thrilled I could puke. I wonder what theme we’ll get? Something really gory and violent I hope. I’m looking forward to being split from tits to toes, as The Host has said before. Ha. Or, no, maybe I’ll be the survivor! I dunno, however it plays out, I’m so excited. I love these ARG things, I love the idea of live Escape the Room games, and I love this goddamn podcast. 
+ 
+We don’t know where the party’s being held yet. We all have to meet at a location outside of town, where a van will come and take us to the party proper. Excited to see who I’ll be going with. Sometimes the groups are made up of existing friends, sometimes they’re all strangers, it varies. 
+ 
+I don’t really know much else about what to expect other than what the producer told me. I tried to get in touch with some of the past actors/partygoers, but I guess they must’ve signed non-disclosure agreements or something because I can’t track down any of the people I’ve heard on the podcast. The fandom’s pretty obsessed with finding them but so far we’ve come up empty.
+ 
+So yeah, the Final Party’s tonight, and I’ve got my hottest horny-teen-horror-movie dress ready, and I’m so fucking hyped you guys. I really hope there are some other Final Party fans on here, or if not, I really hope you check out the show. Our episode should be going up next week I think, so by this time next Sunday, you’ll all be able to listen to me get murdered horribly. Or survive, I guess. I just hope that either way, I don’t die first. 
+ 
+I’m really fucking excited. 

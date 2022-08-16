@@ -132,4 +132,4 @@ Well, the day that I was with J’s parents at the police station. I told the po
 
 And once again, the investigation went to a dead end. The two brutal deaths and the identity of the murderer remain a mystery. 
 
-No one will ever find out the truth behind it except me.
+No one will ever find out the truth behind it.

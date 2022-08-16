@@ -1,0 +1,35 @@
+ When they were little, my daughters loved power-outages. If they were asleep when the power went out, my wife and I would wake them up and carry them into the basement. Tornadoes, though not common in Southeast Michigan, were not unheard of during bad storms. The girls would giggle as they played games in the glow of a flashlight until they fell asleep in a heap of blankets. My wife and I were, understandably, not as thrilled about power outages, but both of us managed to find a silver lining in our daughters’ joy. That silver lining faded after the largest blackout of the metro-Detroit area in five decades.
+
+It was summertime of \`95 during the worst storm I had ever seen. High winds threatened to tear out the trees lining the suburban street, rain pounded against the windows like hundreds of tiny fists, and thunder shook the house like an earthquake. It wasn’t a surprise when the power went out at 9:55 pm, about an hour and a half after our daughters had gone to bed. My wife, who had been nervously watching the weather channel when the power went out, said “Jim, we’d better get the girls to the basement….”
+
+We trekked up the stairs to wake our daughters, who were predictably still awake and chittering excitedly in anticipation of a night playing with flashlights. While my wife herded them to safety, I double checked that all the windows were shut and locked tight. While checking the sliding glass door in the kitchen, something in our backyard caught my eye: I thought I saw a figure of a person lurking just by our back hedges. At second glance, the figure had disappeared and I unsuccessfully tried to convinced myself I was just unnerved by the storm. Feeling apprehensive, I went into my office to check the emergency corded phone I keep on hand for these power outages. I picked up the phone and my heart sunk when I didn’t hear a dial tone. Who knows what was wrong with it- I hadn’t even pulled it out in years. 
+
+I went to the basement to check on my wife, who was engaged in a fruitless battle of trying to get my daughters to calm down and go to sleep. 
+
+She shrugged at me, “I’m just going to get the barbies out for them.”
+
+“Good idea,” I mumbled and joined them on the floor, watching my daughters dig through their bin of barbies and worrying about not having a working phone. I was yanked from my trance by an out of place noise. My wife, daughters, and I all looked up as a muffled pounding broke the pattern of the wind and rainfall. I stood and jogged up the stairs, worried something had fallen onto our house. When I was at the top of the stairs, I heard a muffled yelling coming from the front room. I slowly crept toward the front door, my wife and kids a few feet behind me. 
+
+Someone was pounding furiously on our front door and screaming. The high voice was neither distinguishably male or female, but it called “Please let me in, please! I was in an accident and I’m hurt! Please let me in!”  
+
+My wife went for the door handle, but I put my hand out. The hairs on the back of my neck were standing up straight and every primal instinct in me was screaming to not let this person in our home. As soon as I looked at my wife, I could tell she understood.
+
+“Daddy!” My oldest yelled, “Aren’t you going to help that woman?” My youngest started sobbing and buried her face into her sister. 
+
+I stood there for what seemed like minutes, unsure of what to do, as the pounding and pleading grew more intense. “For the love of God, help me! I don’t want to die in this storm!”
+
+“Jim,” my wife whispered, “What do we do? Should I call for help?”
+
+I shook my head and replied, “The phones aren’t working. Even the corded one isn’t.”
+
+All of a sudden, the pleading voice changed its tone. The voice got deeper and screamed, *“OPEN THIS FUCKING DOOR!”* The wooden door shook as if the person on the other side was throwing their body into. My wife grabbed my daughters’ hands and yanked them into the basement. I yanked out my pocket knife and stared dumbly at the door, unsure of what to do next. A few moments later, the pounding and screaming stopped. I took a deep breath and started to patrol around the house, looking out our windows. As I swept my flashlight over the living room window, my heart stopped. A man was pressed up against it. He was inhumanly skinny with a gaunt, pale, sunken face and empty, dark eyes wearing a dark hoody. We stared at each other for a minute in silence, then he began screaming and rhythmically pounding both fists against the window with such force I was worried it would break.
+
+*“I’LL RIP YOUR GUTS OUT! I’LL SKIN YOUR LITTLE DAUGHTERS AND HANG THEIR BODIES IN YOUR FRONT YARD!”* After a few minutes of his pounding and screaming, I stared helplessly as he ran off into the night. After he left, one thought crossed my mind over and over: there shouldn’t have been any way for him to know about my daughters if tonight, during the storm, was the first time he had visited my house. 
+
+For the rest of the night, my wife and kids were huddled in the basement and I sat on a chair in front of the closed basement door with the largest kitchen knife I owned in my hand. As soon as the power returned in the late AM, I called 911. The police took almost 10 minutes to arrive, but they took statements and descriptions from my family and stationed a patrol car outside of our house. None of us got any sleep that night. 
+
+At around 10AM, I got up to make myself coffee and my family some pancakes. I flipped on the TV to watch the news, desperate for a distraction. The heading at the bottom of the screen read: breaking news. A pretty, African American news anchor stood in front of a suburban house, blocked off with police tape.
+
+“New developments in the breaking story of the metro-Detroit family who was brutally murdered in their home during the city-wide blackout last night. Warning: the contents of this story might be disturbing and graphic to some viewers,” I stopped what I was doing, heart in my throat, and stared at the TV, “Police say that a home intruder posing as a car accident victim entered this home around 1AM this morning. After gaining access to the home, the intruder, described as a thin man possibly in his 40s, held the family at gunpoint. He then shot the father of the family, 35 year old Mark Howard, and tied up his wife, Rachel Howard, 32, and their two daughters, Emily, 6, and Becca, 4. Police say the suspect kept the family tied up for hours, subjecting them to violent torture before stabbing each at least 22 times. Miraculously, Rachel Howard survived her injuries and was able to get to a home phone after the intruder robbed the home and left. Sadly, Mark, Emily, and Becca were dead when the paramedics arrived. As of now, the suspect is still at large. A press conference from the Chief of Police with more details is scheduled to start at….”
+
+There was more to the story, but I didn’t need to hear it. That day, I bought a handgun and a new landline, guaranteed to work during power outages.  After that night, my daughters didn’t shriek with glee when the lights all went out.

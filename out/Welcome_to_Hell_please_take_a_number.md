@@ -1,0 +1,25 @@
+~~Part 2:~~
+
+~~https://wh.reddit.com/r/nosleep/comments/6fzvxc/welcome_to_hell_please_take_a_number_part_2/~~
+
+Part 2:
+
+https://www.reddit.com/r/nosleep/comments/6g5bxr/welcome_to_hell_please_take_a_number_part_2/
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/6glnos/welcome_to_hell_please_take_a_number_part_3/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/6gstcu/welcome_to_hell_please_take_a_number_part_4/)
+
+[Next Chapter](https://www.reddit.com/r/nosleep/comments/6hn4co/congratulations_youve_won_an_allexpense_paid_trip/?utm_content=title&utm_medium=hot&utm_source=reddit&utm_name=nosleep)
+
+When most people think of demon possession they picture the classic projectile vomiting, head spinning around variety.  While that does happen, it's mostly novice demons who cause that, the vomiting and abnormal behavior being a result of the host's mind rejecting the possession. In reality, most demon possessions are a lot more subtle.  They're the little voice that tells you that you're fine to drive when you know you've had too much, or that you can cheat on your wife just this once and no one will ever find out.  Or, if you've ever known someone with Alzheimer's who got really mean towards the end, you're like as not looking at the work of a demon. 
+
+Dementia demons are mostly newbies though. They do it because old broken minds don't fight back, so it's pretty much impossible to screw up. And if you're in hell you want good stats on your first possession, otherwise you'll get kicked right to the back of the line and you won't see another chance for thousands of years.  Oh yeah, the line. Everybody in hell gets a number in the line, and the more evil you do with each possession, the better your place in line.   So if you're lucky enough to get a possession, you'd better wreak havoc, and try not to get exorcised or killed. It used to be hell trying to keep track of the paperwork of who went where,  but things are running a lot more smoothly with the new computer system.  We're still way behind earth technology of course-we don't get a lot of computer engineers down here for some reason. We've got plenty of salespeople though. 
+
+But before you can even hop in the line, you've got to go through what basically amounts to demon college. They call it a college but it's really more like those corporate training seminars they have in America. Satan wanted it to be soul crushing after all. Most of the introductory stuff is boring, like how to take control of the mind of your victim. That really is the foundation for everything though, because if you can't do that your victim's mind will kick you right out and you'll be back in hell, at the back of the line with a failure of possession charge on your record.  And you definitely don't want that. The advanced stuff is where it gets more interesting, and you get to choose a specialty. Most people go into Addiction, because it's one of the easiest majors and you get a reasonable amount of time before your host OD's or just gets used up.  Some people go into Mental Illness, but that can get you institutionalized, and you don't really get to have fun with your new body if you're stuck in a padded room all day. There's also a dictator class-Professor Hitler teaches that one. But not many people take it. Not only is it impractical, Hitler always ends up going on some tangential rant about Jews at the end of class. We get it Hitler, you don't like Jews. Professor Bundy's class is pretty popular though. There are a lot of wannabe serial killers in hell, and it gives amazing stats if you can pull it off on earth.  Ten or more victims and you're allowed to jump the line and possess another body without going back to Hell first.
+
+The last thing you should know about demon possession is how it happens. After all, you wanna avoid it if you can. The most common is Ouija board use. People will accidentally summon up a demon , and by letting it control their hands they allow their consciousness to overlap. The demon sneaks in through that window.  If it's a particularly talented demon it can fragment its consciousness and possess everyone with their hands on the board. The same thing can happen with séances. Most demons will choose the weakest link, but some will be able to possess everyone in the room.
+
+ Anyway, I'm afraid this is where my story ends. My host body is dying and typing is getting pretty exhausting. But before I leave you there's one more thing I want to tell you. The most ancient and skilled demons only need a tiny overlap in consciousness to possess you. They may only need to converse with you for a moment, or even just trick you into reading something that they've written. Maybe a story that distracts you just long enough for them to slip in unnoticed. You may feel uneasy or paranoid when it happens, or you may feel nothing at all.
+
+ How do you feel [now?](http://fb.me/lifeisstrangemetoo)

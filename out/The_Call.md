@@ -1,221 +1,117 @@
-  
+“9-1-1, what’s your emergency?”
 
-The heavy breathing on the phone was punctuated by the deep, gravelly voice.
+“I’m at ___ boulevard. Only house out here. There’s someone outside my house.” I wanted to thank him for giving me the address without asking.
 
-“Your time is near.”
+“Okay, how long have they been there?”
 
-I grimaced at the words. 
+“Uh... an hour?”
 
-“I'm sick and tired of you calling here,” I roared. “You want to come get me? You better be ready you heavy breathing piece of trash, because I’ll be waiting.”
+I hummed, trying not to judge them for taking an hour to call someone in their situation. “I see, sir,” I replied, “where are they in relation to your house?”
 
-I punched the button and sat back feeling very unsatisfied.
+“...Uh, hard to say.”
 
-'It's not the same as slamming down the phone,’ I thought.
+“Why’s that?”
 
-My musing was interrupted when the phone rang.
+“I can’t see them right now, but I know they’re out there. They keep moving. Damn, they are fast.”
 
-I punched the button.
+“Okay, so, what are they-“
 
-“If you want to go another round I can call the police!” I yelled into the headset.
+“Fuck me!”
 
-“My heavens,” the woman caller said. “I don’t think I did anything to warrant a call to the authorities.”
+“Sir? What happened?”
 
-“Mrs. Greenwood,” I said. “I’m so sorry. It wasn’t about you. There was another caller that was being a total jerk.”
+“Bastard just ran past the window!”
 
-“Oh, dear,” she said. “What was the caller doing?”
+“Can you describe them?”
 
-“Threatening me. Saying my time has come. I’d like to meet up with the coward and teach him a lesson.”
+“Big. Real big. And hairy... not wait... shit, I think they were covered in fur.”
 
-“You should be careful how you talk about such things. I once heard a story about a man who went around calling people. He would call them again and again, getting them frustrated and frightened, then when he felt they were alone, he would go to their house and…”
+Probably a coat. “Can you describe the fur?”
 
-“What?” I said a little more forcefully than I intended. “What did he do?”
+“Like a dog or coyote or- oh. Oh shit, I know what this is.”
 
-“Unspeakable things,” she said quietly.
+“What is it?”
 
-I began to sweat. My imagination dragged me to a cold dark place full of pain and suffering.
+“You aren’t going to believe me.”
 
-“Are you still there, dear?” she said.
+“Why’s that?”
 
-“Yes,” I said, mentally shaking myself out of my daymare. “I’m sorry, you must’ve called to place an order not listen to my problems.”
+“Well, it’s... like I said, you aren’t going to believe me, but it’s a werewolf.”
 
-“But I enjoy our little chats, dear,” she said. “It comforts an old woman to have someone who listens.”
+Oh great. Someone’s on drugs.
 
-“I enjoy our conversations too,” I said, smiling. “They break up my otherwise boring and dreary day.”
+“You’re sure it’s a werewolf?” I said, already adding that the caller may be on a substance to the dispatch.
 
-“You mean the thrill a minute world of a customer service representative isn’t enough for you?”
+“Look, I know it’s hard to believe but this part of the woods... there’s an old legend, about a family of werewolves. I never believed it, but that thing was just- that was huge!”
 
-I smiled. “Now you’re just teasing me.” 
+There was silence as the man on the other end began panting. It sounded like he’d taken the phone from his ear.
 
-“Just a little, dear.”
+“Sir?” I said, trying to get his attention. “Sir?”
 
-“I wouldn’t mind a little excitement once in a while.”
+There was a shuffling sound in the static and then he spoke. “I was just checking the backyard. Damn thing is out there, I can see his eyes. They’re glowing yellow in the dark. Gotta be at least eight feet off the ground, I can see the outline from here, it’s- it’s just watching me.”
 
-“Be careful what you wish for, dear,” she said. “Excitement can come in many forms.”
+“Okay, the police are on their way now, keep an eye on-“
 
-“Anything would be better than answering phones all day.”
+I was cut off by an ear-piercing howl that burst through my headset. I winced, hands grabbing at my ears.
 
-“At least you have someone to talk to.”
+The man was yelling something. “Did you hear that?! Did you fucking hear that?”
 
-“Your daughter hasn’t brought the grandkids by for a visit?”
+I gulped before answering. “Uh, yes sir, I did. What... was that the-“
 
-“Not for a while.”
+“No,” the man’s voice was quivering, “that thing didn’t move. Aw Christ, I think the whole family’s coming!”
 
-“That’s a shame.”
+“Are you saying there may be more than-“
 
-“Yes, but I’ve decided I’m not going to let it get me down.”
+“Whole family of werewolves, coming right at my house,” the man was muttering, “shit, shit, shit, damn it, where’s the silver?!” I could hear him rummaging. “Shit!”
 
-“Good for you.”
+“Sir, police are on their way now. Please, stay indoors and don’t go outside.”
 
-“I’m going on a trip.”
+“No shit, Sherlock, I-“
 
-“Wonderful," I said. "Where are you going?”
+Another howl, joined by an entire chorus of them.
 
-“Somewhere far away.”
+“Oh God, they’re here. Shit! There’s... there’s so fucking many of them! At least a dozen! They’re just busting out of the woods, like, shit, they’re huge!”
 
-“Ooo…sounds mysterious.”
+I was already adding to the dispatch that more units would be needed. I was already positive something else was going on here, most likely, a bunch of teenagers pulling a mean prank.
 
-“You could come with me.”
+“Sir, get away from the window-“
 
-“What do you mean?”
+“Wait, they’ve stopped. One of them’s coming closer... there’s something in its jaws- oh dear Lord have mercy.”
 
-“You said you wanted an adventure,” she said. “It would be nice to have someone with me for the long journey.”
+“Sir, what is the werewolf-“
 
-“Are you serious?”
+“It’s a dress. It’s a little girl’s dress.” I could hear him shaking.
 
-“Dead serious.”
+Dear God. If this was a prank it had gone way too far.
 
-“That’s a very generous offer, Mrs. Greenwood, but it’s against company policy to accept gifts from customers.”
+“Sir, can you describe the dress?”
 
-“I understand, dear.”
+The man didn’t answer.
 
-“Maybe I should take your order.”
+“Sir?”
 
-“That will be fine, dear.”
+Then he began to sob. “Oh God... God have mercy, I know who’s dress that is.” His sobbing turned into anguished cries. “Oh Jesus,” he wailed, “oh sweet Jesus, I... I know who’s dress that is.”
 
-“So what can I help you with today, ma’am?”
+“Who’s dress, sir?”
 
-“You sound so official,” she chuckled. “I wanted to order a large bouquet of flowers.”
+“She... she was a little blonde girl. Just ran out in the middle of the road, I would have used the brakes, I swear, I was... I tried to stop, I swear, I just, I didn’t mean to keep going, I-I haven’t touched anything since, not one bottle, I swear!” The man broke down. “Damn it, it was an accident, I swear!”
 
-“Alright, which ones?”
+I’d already pieced together what he’d done. My heart felt like stone as it sunk in. I rubbed my face.
 
-“Lillys, in a funeral arrangement.”
+Then the man began screaming. His voice was fainter but still piercing. He’d lowered the phone again, but his voice was so loud it felt like he was right next to me.
 
-“Oh, I’m so sorry. Who passed away?”
+“What do you want?! You wanna kill me?! Fine! Go ahead, get it over with, you bastards, just do it! Just kill me! I don’t care! It won’t bring her back, will it? Nothing’s gonna bring her back! God, nothing’s gonna...” Then he began to wail. “Oh God, just kill me...”
 
-“Someone very close to me.”
+The man kept crying, even after the phone clattered to the ground alongside a loud thud. When the front door opened, I tensed, then relaxed when I heard someone declare themselves as police. That was when I hung up.
 
-“My condolences, Mrs. Greenwood.”
+A week after, I was summoned to give testimony concerning a hit-and-run that had taken place in rural Michigan. Terry Wright confessed to police he’d been driving while intoxicated and struck a girl on some lonely backwoods, he couldn’t remember which. The only evidence they had was a white dress found in his backyard, which he swore belonged to the girl. Police searched the roads, but no body was found anywhere. Not even a trace of blood. I gave a full transcript of what had transpired, from start to finish. When I got to the part about the howls, the atmosphere in the court room changed visibly. Before, there’d been a professional air. After it, there was a sense of unease, like someone had opened a window and let in something from outside.
 
-“Thank you, dear.”
+I thought that man would be declared insane, but he wasn’t. Instead, he was sent to a psyche ward for intensive care. It was concluded he’d suffered an intense mental breakdown and was a danger to himself. They put down what he’d seen to hallucinations brought on by his age and the trauma a perceived hit and run.
 
-“Would you like me to use your credit card that’s on file?”
+I’m not sure what Terry Wright saw the night he went mad, but honestly? Part of me does wonder about the howls I’d heard that night. Those angry, grieving howls. I wonder how they were produced. Someone had to have made them.
 
-“That would be fine.”
+After another week, I was able to get my hands on the police report. What I found only deepened the mystery, for me anyway.
 
-“Alright, let me just type that in and, oh, it says your card was declined.”
+Terry Wright was the only person on his property when police arrived. They found him in a state, unable to say anything except how sorry he was. Nobody could trace who the dress belonged to. It had been handmade, so there were no tags to find out who had manufactured it. Testing revealed traces of human and wolf DNA. Attempts to match the human DNA have failed. Various tracks, determined to be from a large mammal, were found in his yard. In total, it was estimated there were over eight or more individuals present.
 
-“That’s odd.”
-
-“You haven’t spent over your limit have you?”
-
-“I haven’t used it since the last time I talked to you.”
-
-“Do you have your card with you?”
-
-“Not at the moment, why?”
-
-“I just wanted to make sure it hadn’t been stolen.”
-
-“Who would anyone do such a thing?”
-
-“There are some evil people out there.”
-
-“I know,” she said.
-
-“Can I put you on hold for a minute to see if I can straighten this out?”
-
-“Certainly, dear.”
-
-I switched lines and called my supervisor.
-
-“This is Bob, how can I help you?”
-
-“Bob, it’s Thomas, I have Mrs. Greenwood on the line but there’s a problem with her card. Could you run it through fraud protection to make sure no one is stealing from her.”
-
-“Sure, give me just a second here.”
-
-Keys clacked as he searched for the information. After a few minutes, he said, “Hmm, it says here that her card was deactivated.”
-
-“Did it give a reason?”
-
-“Let me see.”
-
-The keys stopped clacking and Bob inhaled sharply.
-
-“Did you say you had her on the phone?” Bob asked.
-
-“Yes, I have her on hold now, why?”
-
-“Are you sure it’s her?”
-
-“Of course. She’s my best customer. We chat every time she calls in.”
-
-“But are you absolutely sure it’s her?”
-
-“I’m one hundred percent sure it’s her, why?”
-
-“Because it says here that she’s…”
-
-“She’s what?”
-
-“Deceased.”
-
-“What?”
-
-“It says she died last week. Apparently, she committed suicide.”
-
-My eyes became unfocused and I began to shake. 
-
-“Thomas? Are you there?” Bob said.
-
-“Yeah,” I said quietly.
-
-“It must be some thief trying to get her money. Probably read her obituary. It happens a lot. There are some evil people in this world.”
-
-“Yeah,” I said quietly. “I’ll get rid of the caller.”
-
-I disconnected with Bob and sat still in my chair thinking about what I had just heard. My hand shook when I clicked the button to reconnect the call.
-
-“Mrs. Greenwood?”
-
-“Ah, there you are, dear. Did you find anything out?”
-
-“More than I thought I would.”
-
-“Oh? How so?”
-
-“When was the last time you used your card?”
-
-“I can’t really remember.”
-
-“Did you use it on your trip?”
-
-She chuckled, but it wasn’t a friendly sound. It sent chills down my spine.
-
-“I’m on my trip now and I have no need for a credit card.”
-
-“Why not?”
-
-“I think you know why,” she said.
-
-“Tell me anyway.”
-
-“I invited you along, but didn’t tell you it wasn’t a choice.”
-
-I stiffened.
-
-“I’m not going anywhere.”
-
-She chuckled again, but as she did her voice changed. It became deeper and more gravelly. It became the menacing voice of the previous caller.
-
-“I told you to be careful what you wished for.”
+Now, you’d probably assume that I believe it was werewolves, but I’m not convinced. Until I see a werewolf for myself, I won’t believe they exist. My conclusion is simple; someone had faked all this as an elaborate ploy to break Terry Wright, for reasons I don’t understand and never will. I’ll be the first to admit there’s problems with this theory. If this was all a ploy, then someone went to a lot of trouble to make someone confess to killing a girl who, for all intents and purposes, doesn’t seem to exist.

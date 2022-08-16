@@ -1,0 +1,63 @@
+Often there are signs that foretell the coming of the worst times. For me, it was the letter 'S' hastily painted on the cracked wooden panel of our front door. I didn't know at the time what that meant or why it was there. But I understood - instinctively - that something was wrong, and my suspicions were confirmed when I entered the house and found my parents huddled together in front of the ancient radio, fear etched upon their faces as they listened to the static laden voice blaring from it.
+
+Mother gasped when she saw me. "Where were you?"
+
+"Out playing cri…" 
+
+She slapped me. "I told you not to leave the house today, didn't I?"
+
+I looked at her, stunned. It was not the first time I had disobeyed her and done something behind her back. But she'd never hit me before. Not once. "Leave him alone." She shot my father an angry look when he made that comment and then whirled back around, grabbing me by the shoulders. "Don't do that again!" She shook me. "Things are not normal right now, okay? You can't act like this... You must listen to me! It's not safe outside..." 
+
+Father cut her off. "Don't scare the kid. Leave him be." 
+
+She was about to snap back at him, but thought better of it. "Go to your room." She snapped her fingers and pointed upstairs. "And come back down only when I call you for dinner." I caught snippets of their conversation as I stomped upstairs, upset at having been hit. I had no idea what was going on, or why they seemed so agitated.
+
+"We should tell him…" 
+
+"No. There's no need to.." 
+
+"It's already started. They marked our house.."
+
+The faint sounds of their argument followed me as I went up into my room and crashed onto the bed. It was 7 pm on 31st October 1984. More than four months had passed since the Indian Prime Minister Indira Gandhi had ordered the Army to invade the Sikh holy place *The Golden Temple* to flush out Sikh separatists, an operation that desecrated the shrine and led to the deaths of hundreds of innocents. And it had been more than 10 hours since Indira Gandhi had been assassinated by her Sikh bodyguards. As a young Sikh boy I had no idea of the significance of those events or what horrifying impact they would go on to have on my life the very next day.
+
+Dinner was a quiet affair that evening. I could sense a strange tension in the air. Father had locked all the doors and windows, barricading them to the best of his abilities. The radio played from its perch atop a book on the dining table, bringing irrelevant news from halfway around the world. Father grunted and shut it off. We ate in silence. I was sent to bed early, and Mother was extra affectionate that night - crying and clutching at my ribs like an eagle, as if she was afraid that something bad was going to happen.
+
+We were woken up the next day by loud, incessant banging on the front door. I slipped out of bed and tip-toed over to the top of the staircase to watch Father peer through the peep hole before opening the door. It was Mr. Sharma, Father's friend. "We need to leave!" He shouted, beads of sweat rolling down his balding head. "Now! They're coming. Thousands of them. They're just around the corner." Father's eyes widened. He called for Mother. She was already running out of their room, a small bag clutched tight in her hands. She grabbed me by the arm and we rushed downstairs.
+
+"They got here so fast," Mr. Sharma said as we began exiting the house, "they know where all the Sikhs live. I've heard they've been passing around government issued voter lists, to pinpoint houses owned by sikh families to hunt them down."
+
+A manic cheering erupted from somewhere down the garbage riddled street. Thick plumes of smoke were rising in the distance. We spotted a couple of men armed with swords and sticks shouting in a jubilant frenzy. Their vicious happiness sent shivers running down my spine. "Back up." Mr. Sharma yelled. "Quick. Before they see us!"
+
+We doubled back, with me clinging to my mother, frightened out of my wits. Father slammed the door shut behind us aftet Mr. Sharma had made it in. "What now?" Father asked, breathless. "We can't stay here. We'll soon be trapped." Mr. Sharma ran his fingers through his thinning hair. "To the roof. We'll move up there and make our way to my truck." 
+
+The cheering got louder, closer as we climbed up to the roof. The murderous mob had arrived on our street and would soon start going door to door, burning down houses with an 'S' painted on the front door and murdering the occupants within. "Get down." Father whispered and Mother forced me down on my hands and knees. I crawled, fighting back tears and trying to ignore the sharp stench of smoke and what I later learnt was charred flesh. Anguish filled screams overtook the cheering and filled the neighborhood. Some other family hadn't been as lucky as us and had already been caught by the mob.
+
+I wiped my eyes and continued crawling, the rough concrete surface scraping against my knees and hands. I was bleeding. I wanted to cry. Wanted Mother to comfort me. But I knew we didn't have that luxury, so I fought through the pain and moved forwards. Mr. Sharma was the first one to leap over the parapet onto the roof of our neighbour. He helped Father, and then it was my turn. I looked down. We were only two floors up, but to me that day it seemed far higher. "Look at me!" Father said, his arms wide  and reaching out for me. "Focus on me. That's it." I took a deep breath and got ready to jump. Mother pushed me and Father pulled me over. By the time she made it on to our side, we began hearing loud banging right below us. The mob had reached our house. We had just missed them by a hair's breadth.
+
+Jumping from rooftop to rooftop got easier from then on, though the fear never fully went away. There I was, a boy barely 10 years old, fighting for my survival. Hatred and revenge were robbing me of my childhood. But despite the violence around me, the thing that truly shook me to my core was the utter terror I saw on my Father's face. I had never seen him this frightened - this helpless.
+
+"We're here." Mr. Sharma whispered as he began climbing down the staircase that was carved into the side of the house at the end of the street we now found ourselves at. Father began descending next, and as he did I risked a quick glance behind us. Down there, about a dozen houses away, there was a Sikh man being killed in the middle of the road. I recognised him. He used to sell us vegetables from his rickety cart. Now he was naked, his turban torn from his head, his matted locks sticking to his sweaty shoulders. The tyre of a truck had been doused in kerosene and thrown around his neck before being set on fire. The rubber contracted and constricted as it burnt, wrapping itself around the screaming man like a melting boa. I blinked back tears and looked away. What sort of hatred drives a man to such cruelty? To this day I don't know the answer to that question.
+
+When we had all reached the ground, Mr. Sharma motioned at us to follow him. He led us through the narrow alleys, past houses that were all locked shut, the voices of the mob trailing after us. Our neighborhood looked like a ghost town, one that was being haunted by a blood thirsty mob of demons. On our way, I noticed corpses in the drain, their broken limbs jutting out of the black sludge. I still think about those bodies, dishonoured even after a violent death. "There it is!" Mr. Sharma exclaimed as he pointed at an orange truck parked on the side of the road, it's back half covered by tarp. "Get in!"
+
+Father climbed in first, pushing aside a couple of cartons of fruit to make way for us. We pushed further in, reaching a dark corner near the driver's seat and wedging ourselves in the shadows between crates of fruit and vegetables. Mr. Sharma slid into the driver's seat and moments later the truck roared to life. It trundled onto the main road, and we began moving away from it all. Our home. Our lives. And especially the violent mob hell bent on seeking revenge against people who had nothing to do with the death of their goddess like leader.
+
+There was a crack in the side of the truck near where I was sitting and I used the tiny slit to peer outside, even as Mother sat next to me, shivering in fear and shock. I saw signs of carnage outside, scenes that still haunt me to this day. Blood and gore splattered on the ground, shops and houses burnt black as charred bodies littered the street. Mr. Sharma ran into various makeshift blockades on the way, little choke points on the road set up by the mob only to trap Sikhs in. They only let him go because of his religion. But not without checking the back of the truck. Each time I sat as silently as I could, my heart hammering in my chest, trying to listen to the footfalls of those who inspected the back of the truck. Three times the mob stopped us, three times Mr. Sharma made excuses about wanting to protect his product, and three times we came within an inch of being discovered and violently murdered. I whimpered as I imagined Father or Mother being killed in a horrific manner. But it didn't come to pass. 
+
+We made it out of the stifling confines of the neighborhood and onto the main road, exhaling in relief, thinking that we were safe. Little did we know that the worst was yet to come. 
+
+It was a police checkpoint, right where the suffocating tightness of Old Delhi spread out into the luxurious spaciousness of New Delhi. The checkpoint was a long iron pole laid out horizontally, dangling a couple of feet above the ground, blocking our way. There was just one police car there. And two cops, who stopped Mr. Sharma and asked for a bribe. He gladly paid, but the cops wanted to check the back of the truck as well. He reluctantly agreed, praying that this one would be like the previous occurrences and we wouldn't be spotted. 
+
+I was young and innocent at that point, raised by movies that taught me the police were always the good guys. I couldn't even have imagined that not only were the cops aiding the mob, but in some cases they were actively committing the killing themselves. We were unlucky enough to have come upon such a duo. 
+
+One of the cops climbed up onto the truck, using his almost two metres long bamboo stick, his *lathi*, to beat on the crates. His footsteps echoed in the truck as he leisurely sauntered towards us, chatting with his partner along the way. He grew closer. And closer. And closer, until I could see his polished boots. He stopped, merely inches away from me. I held my breath and sat motionless. He stood for a second or so, before deciding to leave. 
+
+But then he was back, ducking with a sharp motion and appearing in front of my face. He grinned, his bushy moustache quivering with the action. I shrank back in fear as Mother screamed. He grabbed me by the hair and began dragging me outside. I sobbed, yelled for Mother and grabbed onto the crates for support causing splinters to stab my fingers but I couldn't stop the man. We were at the edge of the truck when Father roared and charged at the cop, taking his dagger out and stabbing him in the back multiple times. It was a ceremonial dagger, the *kirpan* that orthodox Sikhs carry that saved the day. The man keeled over and Father pushed him outside. He tumbled and fell on the ground, causing his partner to shout and bring his gun up to aim at Father. 
+
+My eyes widened. I could see it happen. Just a slight pull of the trigger, a small cloud of smoke and Father's life would be snuffed out forever. 
+
+The cop never got the chance to do it, as Mr. Sharma  swung a tyre iron at the back of his head. The cop went down, and Mr. Sharma kept on swinging until his skull cracked open and bits of brain matter poured out on the asphalt, his brown uniform soaked with his own blood. "You okay?" Mr. Sharma asked Father, his voice shaky. Father nodded and turned around to look at me. His hands, slick with blood, trembled as the events of the past couple of minutes seem to flash through his mind. He rushed at me, wrapped his arms around me and cried his heart out.
+
+It was relatively safe from that point on. Crouched uncomfortably in the back of that truck, we escaped the city and travelled to Punjab, a state where Sikhs had a significant presence. Thousands of Sikhs had been killed and almost 50,000 had been made homeless on just one day. And if it hadn't been for the bravery of Father's best friend and some good luck, we would have been a part of the former statistic and not the latter.
+
+[M](https://www.reddit.com/r/Mandahrk/) || [T](https://www.reddit.com/r/TheCrypticCompendium/)

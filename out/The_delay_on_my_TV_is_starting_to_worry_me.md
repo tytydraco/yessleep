@@ -1,0 +1,15 @@
+Well, I’ll start by saying delay is not the correct word. I don’t know what the right word is- it seems more that my television is ahead of time.  
+
+It started small, as these situations always do. My TV was showing programmes 1-2 minutes before they were estimated to air. It wasn’t much, I barely noticed till I was watching the news. They did the typical morning announcement of ’It’s 7 am…’ and my phone showed it as 6.57 am. Like I said, hardly anything to think about. 
+
+Over the next few weeks, with me leaving for the office at the 7am mark according to my TV, it became more obvious. I was arriving to work 5, 10, 15 minutes earlier than normal. By the time I decided to investigate, it was 25 minutes out. 
+
+Don’t get me wrong, I tested this out. I got the old TV out of the spare room and plugged it in next to the new one, put them on the same channel and watched. I had my phone playing the same channel via the channel live website stream, and it was always ahead. No matter what I compared it to, it was always ahead.
+
+It was useful for a while. Before heading to work one day, it told me there was an accident on the road I normally use through town. I went around it that morning, and sure enough, shortly into my journey I heard the news of a crash on that exact road. The hold up was keeping people stuck for over an hour. I’d use the traffic report often, but after a while I realised I could watch the horse racing and would have time to book in the winner before the race had even started. I was getting a tidy income from this. It was almost obsessive- switching channel at just the right time, with my bet placing app open and ready to go. The money was a big help, but after a while my account was shut down. Apparently, after a month-long winning streak, they became ‘suspicious of my online activity’. 
+
+But thats beside the point. I’m writing here because I’m becoming concerned about what I’m seeing. It’s been about five months since this started, and my TV is just under eight hours ahead. 
+
+I turned my TV on, ready to hear what my journey to work would be like the next morning, when a picture of my face appeared. It seems that tomorrow, I go missing. At first it was reported that I was taken into a white windowless van on my way into work. I emailed my manager telling him I wouldn’t be in tomorrow, when the news story had another break. The new evidence shows it was possible I was taken from my home. I started packing my bags to get to my sisters house- she only lived a few hours drive away- but as I was heading out the door, the report changed again. It has been two hours since I saw the initial report, and apparently at 8.45am tomorrow, my body would be found, outside of my sisters town. 
+
+I don’t know what to do- I dropped my bag and turned the TV off. I have five hours till I’m meant to be abducted, and seven till my body is meant to be found. If you know what’s happening to me, or if you know why, please tell me. I don’t know what to do.

@@ -104,4 +104,6 @@ First, I tried to tell her to avoid the house that day. To never date me, to sta
 
 I fell asleep listening to the thunder rolling through the sky. The scream from that night repeated from time to time while flashes of her body on the floor occasionally invaded my mind. I never questioned the call. I never asked why. Maybe it was God; maybe it was just time. But yesterday morning, when I woke up...
 
-Emily was by my [side.](https://reddit.com/r/MattRichardsen)
+Emily was by my side.
+
+[fb1](https://firstbreath1.com/)
