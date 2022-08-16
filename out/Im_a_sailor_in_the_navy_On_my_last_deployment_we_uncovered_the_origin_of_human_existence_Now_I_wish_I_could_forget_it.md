@@ -250,8 +250,4 @@ I believe that’s why she let me go. She saw that though much of humanity had f
 
 But that was many years ago now and times have changed. Humanity has grown more twisted, more corrupt than ever. All around me I see love drying up, empathy smoldering in the embers of selfishness and unrest and I cannot help but wonder if the Secret Ones succeeded in their mission.
 
-I can’t help but wonder if Eden is finally dead.
-
-&#x200B;
-
- [x](https://www.reddit.com/r/TalesFromTheCryptid/)
+I can’t help but wonder if Eden is finally [dead.](https://www.reddit.com/r/TalesFromTheCryptid/)
