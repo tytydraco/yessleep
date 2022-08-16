@@ -1,0 +1,18 @@
+
+So I don’t really know where else to turn, I have recently moved into a new apartment and everything was fantastic at first. Then I started hearing faint noises in the bedroom at night, it started off extremely quiet and I thought it was just the pipes or gas or something. I hear it in all 3 rooms of the apartment but mostly the bedroom and if it is in bedroom I hear the creepy noise in the corners of the room. 
+
+The apartment was actually a great price I was super happy with it and was in such a great mood about everything lately but now this has just put a horrible atmosphere over the whole place. I actually lost my dad a few years ago and was in a really dark place but as I said just recently things have been looking up for me. I got accepted for a new job which I’m actually not going to much at the moment because I’m not sleeping and my “performance is poor” when I do go into work, according to my employer.
+
+So a few days ago the noises have started to become louder, a lot louder, to the point where I felt as if a cold piece of ice slid down the length of my spine. It is this indescribable choking noise, as if someone is literally dying and cannot breathe. The noises sound slightly different every time, but as I said, just recently the noises are getting very loud.
+
+There was an extremely creepy picture of a goat on the wall as well when I first had a look at that place, I commented that the picture was a bit odd to the estate agent and she went on this crazy ramble about the previous tenant. I can give you an actual quote as well, apparently the guy kept saying “me help please” all day everyday. Who has a goat on the wall though? But when the price was that good I couldn’t really refuse I was too excited. 
+
+I can hear the noises in other rooms now as well but at weird times. Like I’m brushing my teeth and in between the strokes of my toothbrush I hear this creepy choking noise behind me. Obviously when I turn around there is nothing there. As soon as turn the shower on I hear the choking noise and then then just now I heard the creepiest sound ever. 
+
+It sounded like someone said “why” but whilst taking a breath at the same time. This made my actual blood curl. So I’m planning on staying at a hotel tonight  while I speak to the landlord to see if he can get me out of here. I also keep seeing this crow out of the window in the kitchen too, it keeps landing on a tree outside the apartment and it just stares into the kitchen. I actually heard the creepy choking sound from behind me in the kitchen and then noticed the crow had disappeared when I looked back out of the window.
+
+Sometimes when I do manage to fall asleep as well I keep having this recurring dream of me stood there watching myself sleep and I’m stood with other people as well. There was this one old guy who is always naked but his eyes are just red and this other person, well I say person, I’m not entirely sure because he looks like a humans face and a goats face combined. It’s probably that picture on the wall that I’m just thinking of. 
+
+Jesus fucking Christ as I was typing that last sentence then something has just screamed “WHY” from another room. I’m out of here fuck this I’m literally shaking and my heart is pounding. I can’t believe this is happening to me.
+
+So here I am 1 hour later I’m now in a random hotel I never knew was here called The Toag. I have calmed down now that was a horrible experience I literally felt a sense of doom come over me when I heard that scream. So anyway I’m going to try to get a good nights sleep and talk to the estate agent tomorrow about getting me out of there.
