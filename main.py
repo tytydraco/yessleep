@@ -17,12 +17,13 @@ reddit = praw.Reddit(
     user_agent='scraper'
 )
 
-# Fetch top posts
+# Fetch hot and top posts
 subreddit = reddit.subreddit(SUBREDDIT)
+top_posts = subreddit.top(limit=None)
 hot_posts = subreddit.hot(limit=None)
 
 # Go through all hot posts
-for post in hot_posts:
+for post in top_posts + hot_posts:
     if post.stickied or not post.is_self:
         continue
 
