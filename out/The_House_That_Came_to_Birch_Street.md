@@ -1,4 +1,4 @@
-**Part I** 
+**1**
 
 A house moved in at the end of the street.
 
@@ -10,7 +10,7 @@ Mom was already at work. She drove us to school whenever she wasn’t pulling an
 
 “Actually, I think it’s our new neighbors.”
 
-\*\*\* 
+\*\*\*
 
 Outside, Jake and I watched as a three-story house paraded down the block on big-wheeled dollies. An entourage of slack jawed moving men in dirty, flat-bed trucks with out-of-state plates escorted it like they were the hillbilly Secret Service.
 
@@ -22,13 +22,13 @@ From the time we were old enough to hang out alone that lot was a sanctuary for 
 
 I had all my firsts in that dumb lot. First kiss, smoke, drink, screw, though not necessarily in that order. And, now, some big fat ugly old house was going to plunk itself down and squash all those memories—literally.
 
-My boyfriend Mason, of whom I shared nearly all of those firsts, shuffled half-asleep over from his house down the street. He joined Jake and me on our front porch. 
+My boyfriend Mason, of whom I shared nearly all of those firsts, shuffled half-asleep over from his house down the street. He joined Jake and me on our front porch.
 
 “End of a fucking era,” Mason said as he kissed the side of my head, hugging me. His arms were long and strong and felt like home. “I can’t believe it."
 
 I leaned fully into his hug. “I always thought they’d put a house on the Shole, just didn’t expect them to do it all at once.”
 
-“And a fucking mansion, at that?” said Mason. The grind of machinery washed out his voice as he started to take out a cigarette. Mason paused as he glimpsed his mother across the way and thought better of it.  
+“And a fucking mansion, at that?” said Mason. The grind of machinery washed out his voice as he started to take out a cigarette. Mason paused as he glimpsed his mother across the way and thought better of it.
 
 I waved to Mason’s mom. She did not wave back. Mrs. Blake was certain Mason could do better. *She was probably right.*
 
@@ -44,25 +44,25 @@ Little Ms. Fenley, the longest tenured citizen of Birch Street, came squealing o
 
 One time she helped us start a garden of our own in the Shole. She even let us use those gardening tools she was ordinarily so precious with and kept under lock and key. She was so proud of how committed to gardening we were — her Green Thumb Gang she called us—until she realized we were secretly just doing it to grow weed. She confiscated our buds but never did tell our parents, so she’s still okay in my book.
 
-Mason’s father, Sheriff Blake, arrived from a night shift. In a huff, he rose from his police car to survey the scene. Sheriff Blake prided himself on knowing everything about his community before anyone else. And, from the look on his face, he definitely did not know about the house. 
+Mason’s father, Sheriff Blake, arrived from a night shift. In a huff, he rose from his police car to survey the scene. Sheriff Blake prided himself on knowing everything about his community before anyone else. And, from the look on his face, he definitely did not know about the house.
 
 He condescendingly guided Ms. Fenley away from the workers and instantly got into it with the team’s lead. “Should’ve alerted the neighborhood before pulling a stunt like this. Even if it’s just informal handshakes or whatever. It’s common courtesy. What kind of paperwork do you have anyway?”
 
-Grumbling, the lead worker slinked over to a truck for some documentation. After the sheriff pored over it, he asked to see the owners of the house. 
+Grumbling, the lead worker slinked over to a truck for some documentation. After the sheriff pored over it, he asked to see the owners of the house.
 
 “Might be a while boss,” another of the workers said. This guy was rail-thin with a leaky eye like the Tuttons’ labrador. “Wanted us to get them moved in first before they made the trip.”
 
-The other workers looked at him as if he was speaking out of place. 
+The other workers looked at him as if he was speaking out of place.
 
 Frustrated, Sheriff Blake turned our way.
 
-“The hell’re you kids doing here?” Instead of checking a wristwatch, he squinted above the trees, eying the sun. “School’s already started.” 
+“The hell’re you kids doing here?” Instead of checking a wristwatch, he squinted above the trees, eying the sun. “School’s already started.”
 
 He spat a thick wad that nearly landed on Jake’s shoes.
 
-“Quit your dawdling. Truancy may suit you two, but not my son.” 
+“Quit your dawdling. Truancy may suit you two, but not my son.”
 
-“Sorry we’re such bad company,” I said. 
+“Sorry we’re such bad company,” I said.
 
 He forced a smile. “Mason’s mine and I know he knows better than to be late for school. None of my business what you and your brother does, or which way his kite flies for that matter.”
 
@@ -76,7 +76,7 @@ The sheriff turned his back on me and started making small talk with another nei
 
 Jake grabbed my arm. “Chloe, forget it.”
 
-“You’re not going to say anything?” I asked Mason. 
+“You’re not going to say anything?” I asked Mason.
 
 He stared darkly at his dad. “I’m sure I’ll have the chance later.”
 
@@ -88,7 +88,7 @@ I bit my lip knowing how nasty his father could be. Instead, I took one last loo
 
 We were sitting outside at our school’s lunch tables for recess. If they didn’t face the Glen Oaks Cemetery, it wouldn’t be a half bad place to eat.
 
-“Here you go.” I flipped my phone around, sliding it her way. 
+“Here you go.” I flipped my phone around, sliding it her way.
 
 She eyed the phone like a skeptical pawn broker. “And no one moved with it?”
 
@@ -114,9 +114,9 @@ Mason was lying on the table’s bench, a stem of bahiagrass sticking out of his
 
 “What do you mean?”
 
-“Well, they took something from us. So, why don’t we take something from them.” Mason sat up from the bench clearly inspired. “I bet there’s some nice stuff in there.” 
+“Well, they took something from us. So, why don’t we take something from them.” Mason sat up from the bench clearly inspired. “I bet there’s some nice stuff in there.”
 
-“Could be our ticket out of here,” he added with an old-timey accent. 
+“Could be our ticket out of here,” he added with an old-timey accent.
 
 Every now and then Mason got a look in his eyes. A look that said you’d just be wasting time trying to talk him out of an idea. He was so damn cute and convincing that he could get you to be a willing accomplice to even his worst schemes.
 
@@ -144,7 +144,7 @@ We started with a dry run just to case the joint, as us cat burglars liked to sa
 
 As Mason & I got closer to the house, the mismatched front windows beaded down on us like sad, disdainful eyeballs. Rounded wooden steps spilled down from the porch. Instead of straight up and down, the steps spun out at an angle, leaving a dark abscess underneath the porch.
 
-Mason must’ve gotten the same uneasy vibes as me. He pressed my hand and said, “I might actually be glad when they move in. Get some light out here.” 
+Mason must’ve gotten the same uneasy vibes as me. He pressed my hand and said, “I might actually be glad when they move in. Get some light out here.”
 
 We didn't switch on our flashlights until we got right up to the house. Even then, we used them only when we needed to.
 
@@ -152,7 +152,7 @@ I climbed up onto the porch, stepping into what felt like a thick murk beneath i
 
 You probably won’t believe me, but it was my idea to go inside.
 
-Mason blinked at me. “You serious?” 
+Mason blinked at me. “You serious?”
 
 “We’ll just have a look around and come back out. Why not?”
 
@@ -168,7 +168,7 @@ We found ourselves standing in what I guess they call a parlor room. The air fel
 
 “We’re here a little early for the housewarming party. How about that?"
 
-That didn’t even merit an eyeroll. “Come on, Mason,” I said. 
+That didn’t even merit an eyeroll. “Come on, Mason,” I said.
 
 “Okay, how about this: we’re here to steal shit.”
 
@@ -208,7 +208,7 @@ When I rushed out of that side room, a light was traveling up the stairs. It too
 
 I sent a text to Mason letting him know his dad was at that house and we needed to leave immediately. I couldn’t get caught. Especially not by Sheriff Blake. I could see Mason read the text—but no response.
 
-I tried calling Mason’s cellphone. He didn’t pick up until the 3rd call. 
+I tried calling Mason’s cellphone. He didn’t pick up until the 3rd call.
 
 When Mason finally answered, it sounded like he was whispering or speaking far away from his phone. All I could make out from his voice was . . .
 
@@ -222,15 +222,15 @@ I tried to keep him on the phone, to settle my fears, praying to hear the laught
 
 Heavy boots resounded all the way from the front porch. Would Sheriff Blake come through the open window too?
 
-Turning to run, I slammed into the dining room table and I heaved myself along the walls. I quietly unlocked the back door, hating myself for the thought of leaving Mason behind. I split the difference and ducked under the back porch instead. 
+Turning to run, I slammed into the dining room table and I heaved myself along the walls. I quietly unlocked the back door, hating myself for the thought of leaving Mason behind. I split the difference and ducked under the back porch instead.
 
-Beneath it, the air was even denser than out front. I was afraid to breathe. Shapes in the dark seemed to twitch and crawl as my imagination ran riot. I just needed to wait until his father left. 
+Beneath it, the air was even denser than out front. I was afraid to breathe. Shapes in the dark seemed to twitch and crawl as my imagination ran riot. I just needed to wait until his father left.
 
-But then there were footsteps above me. Was it Sheriff Blake touring the house? Or Mason? Or whatever had been crawling across the ceiling? 
+But then there were footsteps above me. Was it Sheriff Blake touring the house? Or Mason? Or whatever had been crawling across the ceiling?
 
 My sight was beginning to adjust. All those little shapes I thought I saw under the porch now seemed to coalesce into a more singular, larger one. Before I could make out whatever it was, it darted at me with a hiss.
 
-I scrambled out from under the porch - not caring a single fuck who saw me. I didn’t stop running when I got into the woods behind the lot. And I didn’t stop until I reached Live Oak Lane, the next street over from Birch, where I finally put my hands on my knees and sucked air. 
+I scrambled out from under the porch - not caring a single fuck who saw me. I didn’t stop running when I got into the woods behind the lot. And I didn’t stop until I reached Live Oak Lane, the next street over from Birch, where I finally put my hands on my knees and sucked air.
 
 I texted Mason to meet me there. No response. The text went unread.
 
