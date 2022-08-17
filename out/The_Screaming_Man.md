@@ -143,7 +143,7 @@ Kind of a Nosferatu vibe.
 
 I'll be honest. When this happened I quickly decided I was probably schizophrenic. 
 
-I thought that this was clearing a hallucination and I was heading into some sort of psychosis. 
+I thought that this was clearly a hallucination and I was heading into some sort of psychosis. 
 
 That never happened. 
 
