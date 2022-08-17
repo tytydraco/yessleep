@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 5871
+file count: 5872
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 Years ago I survived an airplane crash What I saw there scarred me for the rest of my life  Day 1](out/10_Years_ago_I_survived_an_airplane_crash_What_I_saw_there_scarred_me_for_the_rest_of_my_life__Day_1.md)
@@ -1534,6 +1534,7 @@ file count: 5871
 * [I Had To Bury My Boy](out/I_Had_To_Bury_My_Boy.md)
 * [I had to stand in a circle twice in a day and I think Im traumatized](out/I_had_to_stand_in_a_circle_twice_in_a_day_and_I_think_Im_traumatized.md)
 * [I hate leaving my dog alone at home](out/I_hate_leaving_my_dog_alone_at_home.md)
+* [I hate my mothers mannequins](out/I_hate_my_mothers_mannequins.md)
 * [I hate staying at my grandmothers](out/I_hate_staying_at_my_grandmothers.md)
 * [I Hate Train Delays](out/I_Hate_Train_Delays.md)
 * [I haunt my own dreams](out/I_haunt_my_own_dreams.md)
@@ -2017,8 +2018,8 @@ file count: 5871
 * [I Think The Clouds Are Trying To Tell Me Something Is Coming](out/I_Think_The_Clouds_Are_Trying_To_Tell_Me_Something_Is_Coming.md)
 * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
 * [I Think There is A Reason No Ones Heard of the Breaking Wheel Cartel](out/I_Think_There_is_A_Reason_No_Ones_Heard_of_the_Breaking_Wheel_Cartel.md)
-* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
+* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -3599,8 +3600,8 @@ file count: 5871
 * [My Son Brought Something Home From The Woods](out/My_Son_Brought_Something_Home_From_The_Woods.md)
 * [My Son Committed Suicide And My Wife Blames Me](out/My_Son_Committed_Suicide_And_My_Wife_Blames_Me.md)
 * [My son got a sock monkey for his birthday from my grandmother Im scared now because of what its done to him](out/My_son_got_a_sock_monkey_for_his_birthday_from_my_grandmother_Im_scared_now_because_of_what_its_done_to_him.md)
-* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
+* [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
 * [My son has a new girlfriend and I am afraid for his life](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life.md)
 * [My son has been gone for 2 weeks He recently came back home and I dont think this is my son Part 1](out/My_son_has_been_gone_for_2_weeks_He_recently_came_back_home_and_I_dont_think_this_is_my_son_Part_1.md)
 * [My son has been talking to a friend on his new phone and its scaring me](out/My_son_has_been_talking_to_a_friend_on_his_new_phone_and_its_scaring_me.md)
