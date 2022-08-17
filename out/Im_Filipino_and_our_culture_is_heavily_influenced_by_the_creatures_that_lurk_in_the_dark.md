@@ -32,7 +32,7 @@ Myra smiled at her and gave her a small wave. “It’s nice to meet you, ma’a
 
 For some reason, my mom didn’t look so pleased. She pulled me inside and whispered, “I don’t like her, *anak.* She has no manners.”
 
-“What are you talking about? She just got her and you haven’t even gotten to know her yet!”
+“What are you talking about? She just got here and you haven’t even gotten to know her yet!”
 
 “*Anak,* listen to me. That woman will bring nothing but misfortune to us all.”
 
