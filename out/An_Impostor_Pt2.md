@@ -1,7 +1,3 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/wltz7e/an_impostor_pt_1/?utm_medium=android_app&utm_source=share) 
-(In case u didnt read part 1, read it so the story makes sens)
-
-
 
 
 This is it, im tired of this bastard he striked again broke 2 windows on the cabine and brought in "the deer". Im going nuts. 
