@@ -441,7 +441,7 @@ I risked going to the window and peeking out, but all I saw was the moon. The mo
 
 Whatever had leached onto my mind let go, and I twisted to find Rowan on the ground in a rapidly growing pool of red. Another thud, and then another, almost in sync. Kaz and Immie followed. Their throats had been slit by their own fingernails fashioned into claws. When it hit me that my housemates were dead, I was seeing her reflection in everything. 
 
-In silverware which had been brought out from the draws—bleeding through the duct tape on the back window. I knew what I had to do. I had to get the cops. I was halfway upstairs when a blinding flash filled the hallway, followed by the sound of a camera. It sounded like a camera, like someone was taking a photo. 
+In silverware which had been brought out from the draws—bleeding through the duct tape on the back window. I knew what I had to do. I had to get the cops. I was halfway upstairs when a blinding flash filled the hallway, followed by the sound. It sounded like a camera, like someone was taking a photo. 
 
 When I grabbed my phone from my room, the moon lingered on the screen, growing larger until I swore she wasn’t just in reflective surfaces. She was at the corner of my eye, a half crescent quickly reaching totality the more I caught her shadow looming.
 
