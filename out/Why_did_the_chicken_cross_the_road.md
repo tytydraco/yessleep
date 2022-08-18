@@ -704,7 +704,7 @@ I cocked a thumb at Kenny who glared at me.  When he was done, the man was stari
 
 &#x200B;
 
-And go home we did. The next month was pretty hectic. Word god around of the incident, what people were able to get away with saying that is. Those guys made sure no mention of it got posted online. That might mean I shouldn’t be posting then.
+And go home we did. The next month was pretty hectic. Word got around of the incident, what people were able to get away with saying that is. Those guys made sure no mention of it got posted online. That might mean I shouldn’t be posting then.
 
 &#x200B;
 
