@@ -6,7 +6,7 @@ She'd warned me on the very first night but of course, I didn't listen.
 
 Aunt Sozan's home smells like a delicious blend of spices and herbs which she uses for cooking, medicine, and making perfumes. Her home is by far the most whimsical place I've ever seen, filled with all sorts of keepsakes, big or small. You can hardly see that the house has any walls because of all the big posters of old cities and movies as well as Arabic wall carpets, from bright purple to deep green. My mother's older sister lives all by herself. She never got married which is a big deal in our family. But Sozan doesn't mind. She has her own house, her own life, and makes all her own choices.
 
-Her home truly is deserving of the word. 
+Her home truly is deserving of the word.
 
 However, as soon as I step out of the comfort of those bright walls, her village seems to suffocate me. I felt the tension of this place the second that I arrived at the train station. Everything was wrapped in a light fog, accompanied by an intense, foul smell that crept all the way down my nostrils. 
 
@@ -165,3 +165,7 @@ She shook her head. 
 Something inside of me started pulsating and I wondered if that's why my mum sent me here.
 
 Does my family believe that I'm a lost soul? [Are they trying to get rid of me?](https://www.reddit.com/r/thedemoncollection/)
+
+&#x200B;
+
+[x](https://www.reddit.com/r/Likeeyedid/)
