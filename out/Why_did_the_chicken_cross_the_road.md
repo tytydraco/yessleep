@@ -22,7 +22,7 @@ Instead, they would either do it behind his back or tell him in a way they thoug
 
 &#x200B;
 
-Little did we all know, each insult was a powder keg being filled by the shovelful. All it would take was that one flame to light the fuse.  This came in the form of a bully by the name of Butch. As an aside, who names their kid that? It's like the parents know their son is going to become an asshole, but I digress. 
+Little did we all know, each insult was a powder keg being filled by the shovelful. All it would take was that one flame to light the fuse.  This came in the form of a bully by the name of Butch. As an aside, who names their kid that? It's like the parents know their son is going to become an asshole, but I digress.
 
 &#x200B;
 
@@ -112,13 +112,13 @@ He started us for a moment. Then produced something from his pocket. It was a pi
 
 &#x200B;
 
-This wasn't my first time on a farm so I helped with feeding the animals. Meanwhile, my dad handled beekeeping and Kenny tended to the crops. Seeing as how it was July, laboring outside caused me to work up quite a sweat. After making sure the horses were fed, I figured it would be okay to head inside for a glass of water. I got some, already cold, from the fridge. 
+This wasn't my first time on a farm so I helped with feeding the animals. Meanwhile, my dad handled beekeeping and Kenny tended to the crops. Seeing as how it was July, laboring outside caused me to work up quite a sweat. After making sure the horses were fed, I figured it would be okay to head inside for a glass of water. I got some, already cold, from the fridge.
 
 &#x200B;
 
 &#x200B;
 
-It was so refreshing. As I was about to head back out, I happened to notice a door ajar. I opened it further to find a staircase. Listening for a moment to make sure I was alone and then shrugging,  I went down the stairs. As I got closer to the bottom, I could see a faint glow. 
+It was so refreshing. As I was about to head back out, I happened to notice a door ajar. I opened it further to find a staircase. Listening for a moment to make sure I was alone and then shrugging,  I went down the stairs. As I got closer to the bottom, I could see a faint glow.
 
 &#x200B;
 
@@ -182,7 +182,7 @@ At first, this was working. Then when I went past him, he grabbed me by the back
 
 &#x200B;
 
-He answered my question by bringing a massive fist to my face, the same one that held the knife so I guess I should consider myself lucky that he chose not to stab me. Stars were dancing in front of my eyes before everything faded to black. I woke up sometime later with a pounding headache. I wasn't dead so that was a start at least. Unfortunately, that was where the positives ended. 
+He answered my question by bringing a massive fist to my face, the same one that held the knife so I guess I should consider myself lucky that he chose not to stab me. Stars were dancing in front of my eyes before everything faded to black. I woke up sometime later with a pounding headache. I wasn't dead so that was a start at least. Unfortunately, that was where the positives ended.
 
 &#x200B;
 
@@ -500,7 +500,7 @@ This was followed by more screams. We knew we needed to get everyone's attention
 
 &#x200B;
 
-Someone replied that they think they saw him near the town square and it looked like the chicken was already running there. We were about to when the police told everyone to stay back. I  slipped by going behind some stores. The chicken was out for blood and I needed to stay conspicuous. I did this by using buildings and cars as cover. 
+Someone replied that they think they saw him near the town square and it looked like the chicken was already running there. We were about to when the police told everyone to stay back. I  slipped by going behind some stores. The chicken was out for blood and I needed to stay conspicuous. I did this by using buildings and cars as cover.
 
 &#x200B;
 
@@ -658,7 +658,7 @@ Something whizzed through the air and knocked the book out of Kenny's hand. My h
 
 &#x200B;
 
-We got the chicken’s attention. With nowhere for us to reasonably take cover in time, we could only watch as it dashed across the street toward us, making hungry clucks.  That’s when we heard a new noise, a whirring. We glanced up to see helicopters high in the sky. Then something dropped from one. 
+We got the chicken’s attention. With nowhere for us to reasonably take cover in time, we could only watch as it dashed across the street toward us, making hungry clucks.  That’s when we heard a new noise, a whirring. We glanced up to see helicopters high in the sky. Then something dropped from one.
 
 &#x200B;
 
@@ -704,7 +704,7 @@ I cocked a thumb at Kenny who glared at me.  When he was done, the man was stari
 
 &#x200B;
 
-And go home we did. The next month was pretty hectic. Word god around of the incident, what people were able to get away with saying that is. Those guys made sure no mention of it got posted online. That might mean I shouldn’t be posting then. 
+And go home we did. The next month was pretty hectic. Word god around of the incident, what people were able to get away with saying that is. Those guys made sure no mention of it got posted online. That might mean I shouldn’t be posting then.
 
 &#x200B;
 
@@ -712,7 +712,7 @@ And go home we did. The next month was pretty hectic. Word god around of the inc
 
 &#x200B;
 
-Eh, what are the chances they’ll see this? Anyway, Kenny’s still doing time for what he did and his parents were forced to sell their farm and move. I wasn’t able to eat fried chicken for a year after what went down. I suppose the chicken can’t be blamed as it was only acting on instinct and wanted some food which answers that age-old question. If someone asks you, why did the chicken cross the road? 
+Eh, what are the chances they’ll see this? Anyway, Kenny’s still doing time for what he did and his parents were forced to sell their farm and move. I wasn’t able to eat fried chicken for a year after what went down. I suppose the chicken can’t be blamed as it was only acting on instinct and wanted some food which answers that age-old question. If someone asks you, why did the chicken cross the road?
 
 &#x200B;
 
