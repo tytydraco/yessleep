@@ -280,18 +280,22 @@ He jumped up. “Alright. Are you all set?”
 
 I tugged at the cuffs. “Rowan, if something is going on, you can tell me.”
 
-He cocked his head. "Really? Because, no offense, Nin. But I don’t think a pep talk will help this kind of problem.”
+"Really? Because, no offense, but I don’t think a pep talk will help this kind of problem.”
 
 “Well, I can try.” I said. “I don’t want to be locked up here every full moon because you’re scared of moonlight.”
 
 I was startled when he sputtered out a laugh before getting close—too close—his icy breath grazing my cheeks.
 
-“Well.” Rowan murmured, “Maybe if you weren’t a fucking coward that day, things might be different. But here we are.” He exhaled in my face, and something warm crept up my throat. His entire demeanour had changed. I was used to his bad moods before the moon, but this was something different. This was hatred and resentment in its purest form shown in the twitch of his lips. I didn’t have to see his eyes. 
+“Well.” Rowan murmured, “Maybe if you weren’t a fucking coward that day, things might be different. But here we are. Drunk on the freakin' moon."
+
+He exhaled in my face, and something warm crept up my throat. His entire demeanour had changed. I was used to his bad moods before the moon, but this was something different. This was hatred and resentment in its purest form shown in the twitch of his lips. I didn’t have to see his eyes. 
 
 He climbed off the bed and offered me a salute, his lips twisting into a smile I knew was fake. It made me wonder if I was wrong. If the moon didn’t change them; it brought out their true feelings and selves. 
 
 But that only brought more questions. He mentioned “that day” which was part of the endless blur of darkness, memories torn from me in my blackouts. 
-Did something happen during one of those instances which had triggered them to act like this? Did I know subconsciously? With that question in my mind, I attempted to lunge from the restraints, but he was already at the door. “Night Nin.”  I didn’t reply. I knew not to entertain him when he was starting to feel the moon’s effects.
+Did something happen during one of those instances which had triggered them to act like this? Did I know subconsciously? With that question in my mind, I attempted to lunge from the restraints, but he was already at the door. “Night."
+
+I didn’t reply. I knew not to entertain him when he was starting to feel the moon’s effects.
 
 When the door slammed shut and I heard the twist of the key in the lock, I lay back and closed my eyes.
 
@@ -323,7 +327,7 @@ Slowly, I made my way across the hall and passed the other’s rooms—which wer
 
 The clock on rustic paintwork told me it was 1am as I slipped down the stairs, careful not to make noise. That meant I’d been asleep for around four hours. I heard voices when I reached the kitchen door. Immie was laughing, and Rowan made a hissing noise.
 
-“That’s not fair. You always get the blue ones first and never give any a chance. I call bullshit.”
+“That’s not fair. You always get the blue ones first and never give anyone a chance. I call bullshit.”
 
 “Yeah, because you’re losing!” Immie shot back.
 
@@ -347,21 +351,11 @@ I could have walked away. I mean, they were having fun. I should have left them 
 
 But I was grabbing the handle and twisting it, pulling open the door.
 
-When I stepped into our kitchen, the first thing I saw was the impressive amount of property cards Immie had lain out in front of her, as well as the pile of cash sitting next to the board. I started to speak.
+When I stepped into our kitchen, the first thing I saw was the impressive amount of property cards Immie had lain out in front of her, as well as the pile of cash sitting next to the board. I started to speak. I think I was going to congratulate Immie on her clear win, but the words choked up when my gaze continued across the table—this time settling on a small plastic container filled with red mush, which Kaz was sticking his fingers in and scooping into his mouth. The kitchen looked so familiar and yet different as my brain struggled to react with what I was seeing. 
 
-I think I was going to congratulate Immie on her clear win, but the words choked up when my gaze continued across the table—this time settling on a small plastic container filled with red mush, which Kaz was sticking his fingers in and scooping into his mouth. The kitchen looked so familiar and yet different as my brain struggled to react with what I was seeing. 
+Immie’s face was split into a manic grin because of her win, but there was something splattered on her lips and dripping from her chin. It wasn’t Immie I was looking at. It was what was in front of her, spread out like a main course, what  she was tearing at like an animal.  What was hanging out of Kaz’s mouth in slithering strands dyed scarlet and piled on Rowan’s plate. I was seeing flesh covering the table and them—and the floor. And they were stuffing themselves. I thought it was raw chicken at first and had decided in that moment that they really had lost their minds. 
 
-Immie’s face was split into a manic grin because of her win, but there was something splattered on her lips and dripping from her chin. It wasn’t Immie I was looking at. It was what was in front of her, spread out like a main course. 
-
-What she was tearing at like an animal.  It was what was hanging out of Kaz’s mouth in slithering strands dyed scarlet and piled on Rowan’s plate. Flesh. I was seeing flesh covering the table and them—and the floor. And they were stuffing themselves. I thought it was raw chicken at first and had decided in that moment that they really had lost their minds. 
-
-Then, though, I saw what was lying at their feet. I saw the torso first, which had been torn into, guts spilling out onto the floor. The body was an unrecognizable mass of skinned bone and pooling scarlet before I saw the face, and clumps of hair which had been ragged from the skull. I recognised that dirty blonde ponytail.
-
-Unbelievably, I was staring at myself.
-
-There are certain things your brain can protect you from.
-
-Trauma, being one of them.
+Then, though, I saw what was lying at their feet. I saw the torso first, which had been torn into, guts spilling out onto the floor. The body was an unrecognizable mass of skinned bone and pooling scarlet before I saw the face, and clumps of hair which had been ragged from the skull. I recognised that dirty blonde ponytail. Unbelievably, I was staring at myself. There are certain things your brain can protect you from. Trauma, being one of them.
 
 But I was ahead of my brain at that moment. I was already seeing everything for what it was in a hazy red cloud, and my brain could do nothing.
 
@@ -389,13 +383,11 @@ The girl was struggling, her eyes snapping to my body which had been hollowed ou
 
 To Rowan’s plate filled with a red mush of blended whatever.
 
-And whatever the fuck Kaz was sticking his fingers in.
-
-“This isn’t what it looks like.” Kaz finished for her. He stood up and seemed calmer than the others.
+And whatever the fuck Kaz was sticking his fingers in. “This isn’t what it looks like.” Kaz finished for her. He stood up,  seeming calmer than the others.
 
 Rowan was staring at me. His raybans pinned back dark curls, and his eyes didn’t seem angry or even fazed that I was seeing this. They only regarded me with amusement. He looked torn whether to continue chewing on my flesh or try and explain.
 
-“Nin.” Immie jumped up. “Nin, we can explain.” She whispered. “Or.. or we can’t explain right now, but if you just let us—”
+“Nin.” Immie jumped up. “We can explain.” She whispered. “Or.. or we can’t explain right now, but if you just let us—”
 
 “Let us what?” Rowan scoffed. “Explain? Yeah, we’re way past that point. Do you want to try explaining café de Nin?”
 
@@ -439,13 +431,15 @@ Scowls turned to whimsical smiles, and blood stained hands fell to their sides. 
 
 I risked going to the window and peeking out, but all I saw was the moon. The moon was right there, three inches from my face like it had encased the sky and oblivion beyond. For a moment I was taken aback at how beautiful she was. There she was bathing me in her light, in her glow, filling me with her song and her sweet words. And then a thud sounded behind me. 
 
-Whatever had leached onto my mind let go, and I twisted to find Rowan on the ground in a rapidly growing pool of red. Another thud, and then another, almost in sync. Kaz and Immie followed. Their throats had been slit by their own fingernails fashioned into claws. When it hit me that my housemates were dead, I was seeing her reflection in everything. 
+Whatever had leached onto my mind let go, and I twisted to find Rowan on the ground in a rapidly growing pool of red. Her voice was in his head. Just like it was in mine. Another thud, and then another, almost in sync. Kaz and Immie followed. Their throats had been slit by their own fingernails fashioned into claws. When it hit me that my housemates were dead, I was seeing her reflection in everything. In silverware which had been brought out from the draws—bleeding through the duct tape on the back window. I knew what I had to do.
 
-In silverware which had been brought out from the draws—bleeding through the duct tape on the back window. I knew what I had to do. I had to get the cops. I was halfway upstairs when a blinding flash filled the hallway, followed by the sound. It sounded like a camera, like someone was taking a photo. 
+ I had to get the cops. 
+
+I was halfway upstairs when a blinding flash filled the hallway, followed by the sound. It sounded like a camera, like someone was taking a photo. 
 
 When I grabbed my phone from my room, the moon lingered on the screen, growing larger until I swore she wasn’t just in reflective surfaces. She was at the corner of my eye, a half crescent quickly reaching totality the more I caught her shadow looming.
 
-It was like a games she was playing. The more I caught her light, she only grew bigger.
+It was like a game she was playing. The more I caught her light, she only grew bigger.
 
 After a hysterical freak-out with the cops, they came around 5 minutes later.
 
@@ -459,7 +453,7 @@ The blood pooling on the floor, as well as staining their skin and faces—was g
 
 “Officer’s.” Rowan saluted the cops with his drink. I noticed a glitter of light in his eyes, in Kaz’s when he stood and folded his arms, his lips pulling into a smile. “What’s going on?” He shot a look at me. “Nin, come on. We’re in the middle of a game.”
 
-The officer standing behind me frowned. “We were informed of a triple homicide.” He cleared his throat. “Everything seems to be relatively normal.” He stepped in front of me. “Miss Caine, are you aware that wasting police time is a criminal offence?”
+The officer standing behind me frowned. “We were informed of a triple homicide.” He cleared his throat. “Everything seems to be relatively normal.”  He stepped in front of me. “Miss Caine, are you aware that wasting police time is a criminal offence?”
 
 “They were dead.” I said in a hiss. “I saw them. They were dead.”
 
@@ -484,10 +478,6 @@ But then my fingers found the back of my neck, and I was twisting around, someth
 Rowan’s neck displayed the number 2.
 
 While mine had the number 27.
-
-Those numbers wouldn’t leave me alone.
-
-What did they mean?
 
 I went to bed after that. I was all ready to grab my things and leave while they slept, but when I risked standing on the top of the stairs, Kaz was in front of the door. It didn’t look like he was blocking it intentionally, but I wasn’t going to try.
 
@@ -517,27 +507,17 @@ Kaz’s smile faded.
 
 With no explanation, the others left for class after breakfast, and I planned my escape.
 
-I wanted to pack up all my stuff, but instead I found myself scouring their rooms for anything which would confirm last night was real I hadn’t fucking hallucinated it. But their rooms were exactly how I knew them. Immie’s was a total mess, covered in exotic plants she forgot to water, and textbooks, a whole bookshelf dedicated to the YA genre, and every plushie you could think of. I looked under her bed, though there were just old snacks she’d forgotten to throw away and letters to her parents she had never sent.
-
-I tried Rowan’s next, but it was more of less the same. I knew his room from movie nights I spent with him, though it still felt wrong going in there. Rowan’s room was perfect. Everything was in its place and was strangely symmetrical. 
+I wanted to pack up all my stuff, but instead I found myself scouring their rooms for anything which would confirm last night was real,  and I hadn’t fucking hallucinated it. But their rooms were exactly how I knew them. Immie’s was a total mess, covered in exotic plants she forgot to water, and textbooks, a whole bookshelf dedicated to the YA genre, and every plushie you could think of. I looked under her bed, though there were just old snacks she’d forgotten to throw away and letters to her parents she had never sent. I tried Rowan’s next, but it was more of less the same. I knew his room from movie nights I spent with him, though it still felt wrong going in there. Rowan’s room was perfect. Everything was in its place and was strangely symmetrical. 
 
 His books were colour coded and there was one singular Yoda plushie peeking from his bed covers. Under his bed were the usual things you’d find in a man’s room; used tissues and odd socks. But there was nothing I’d consider weird.
 
 Nothing that told me he was cold blooded murderer.
 
-I was losing motivation when I reached Kaz’s room at the end of the hallway. I expected the usual when I stepped inside, movie posters on the walls, and Japanese snacks littering the floor. There was that, of course. I knew Kaz well. 
+I was losing motivation when I reached Kaz’s room at the end of the hallway. I expected the usual when I stepped inside, movie posters on the walls, and Japanese snacks littering the floor. There was that, of course. I knew Kaz well. 
 
-But when I peeked under his bed, there was something wrapped in plastic. When I crawled further under, I saw through the plastic. I saw the same flesh from last night, pieces of torso and limbs ripped through and torn into. But there wasn’t just one of me.
+But when I peeked under his bed, there was something wrapped in plastic. When I crawled further under, I saw through the plastic. I saw the same flesh from last night, pieces of torso and limbs ripped through and torn into. But there wasn’t just one of me. There were multiple mutilated bodies which all had my face squished against the plastic and pooling red. My cannibalised body stuffed into plastic bags, my own dead eyes staring at me. 
 
-There were multiple mutilated bodies which all had my face squished against the plastic and pooling red.  
-
-My mind flashed back to the blinding light filling the hallway, and the sound of a photograph being taken.  
-
-The moon following me, creeping behind me as I made my getaway upstairs to grab my phone to call the cops.
-
-My pinkie toe growing back right in front of my eyes.
-
-I know this sounds fucking crazy, but I think my housemates are copying me.
+My mind flashed back to the blinding light filling the hallway, and the sound of a photograph being taken.  The moon following me, creeping behind me as I made my getaway upstairs to grab my phone to call the cops. My pinkie toe growing back right in front of my eyes. I know this sounds fucking crazy, but I think my housemates are copying me.
 
 That’s what the 27 means. I’ve been copied 27 times.
 
@@ -554,3 +534,7 @@ I want to blame all of this on them, but I keep thinking back to Rowan’s words
 What did I do to turn them into this? Rowan said this is my fault. It’s driving me crazy that I can’t remember it.
 
 How can I get those memories back?
+
+But do I want them back? 
+
+Do I want to know what turned my housemates into this?
