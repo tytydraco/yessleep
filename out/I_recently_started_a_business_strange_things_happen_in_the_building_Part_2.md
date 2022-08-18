@@ -1,6 +1,6 @@
- 
-
 [Part 1](https://www.reddit.com/r/nosleep/comments/wp7159/i_recently_started_a_business_strange_things/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wrvmxf/i_recently_started_a_business_strange_things/)
 
 Hello, it’s Laith again. I still haven’t found any info on these things, but someone told me they were experiencing similar things. They’re the owner of a company called “Mr Mia’s Pizzeria”. I’ve been there, but I haven’t noticed many odd things.
 
