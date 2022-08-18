@@ -85,3 +85,9 @@ So I talked to him a little about the dream I had, what I saw, I felt; beyond an
 *<<I wish I could say that this was the only time I dreamed something as dark as that, but it is not the case; although the dreams were rarely the same, they all seemed to have similar characteristics. Known scenarios, characters representing loved ones, and invariably at some point in the dream everything ended up being distorted, in a bizarre and gloomy environment that takes over everything; always accompanied by a strange figure, speaking in a dialect impossible for me to understand. I would be lying if I said that my passion for languages ​​developed from these events, however something deep inside of me knew that the symbols had to be real, there must be a hidden message behind those symbols waiting for me to decipher it, although I’m very scared of what I might find. The brain cannot create such stuff out of the blue, and I'm sure I have never seen those symbols before.>>*
 
 *I'll keep in touch soon.*
+
+&#x200B;
+
+&#x200B;
+
+Click here for Next Chapter (Part 2) [https://www.reddit.com/r/nosleep/comments/wrrlbq/i\_know\_im\_not\_crazy\_but\_i\_wish\_i\_was\_part\_2/?sort=new](https://www.reddit.com/r/nosleep/comments/wrrlbq/i_know_im_not_crazy_but_i_wish_i_was_part_2/?sort=new)

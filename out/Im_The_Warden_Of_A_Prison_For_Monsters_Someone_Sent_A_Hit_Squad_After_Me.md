@@ -599,4 +599,4 @@ I’d admittedly already been considering Dr. Barry as Bob’s replacement for s
 
 &#x200B;
 
-If it ever comes to it, he’ll make a damn fine replacement one [day](https://www.reddit.com/r/HeadOfSpectre/).
+If it ever comes to it, he’ll make a damn fine replacement one [day](https://www.reddit.com/r/nosleep/comments/wrsb18/im_the_warden_of_a_prison_for_monsters_and_ive/).
