@@ -1,4 +1,4 @@
-There is a frightening, crystallized consistency in the details relayed by people resuscitated from death surrounding the psionic experience of Hell.  *It's dark.  There are no walls.  No floors, no ceilings.  Filled with the echoing baying of demons.  Ripped at, clawed, torn, and pulled down to a bottomless interdimentional chasm.*  
+There is a frightening, crystallized consistency in the details relayed by people resuscitated from death surrounding the psionic experience of Hell.  *It's dark.  There are no walls.  No floors, no ceilings.  Filled with the echoing baying of demons.  Ripped at, clawed, torn, and pulled down to a bottomless interdimensional chasm.*  
 The following is a transcription recorded by me from an anonymous source.  
 
 This person and I were both in the tumult of heroin addiction when this occurred.  We typically used together, but this was one rare instance of so many hundreds of benders that I wasn't at his side with a saving grace shot of Narcan.  The following is an unembellished, if prosaic, recollection of what he saw inside the flatlined undercurrent of death.  He was under for just over two minutes....
