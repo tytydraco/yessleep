@@ -168,4 +168,4 @@ I went to Lester Harrison's office, now mine, and looked into the manual. I was 
 
 The manual was leather-bound, had the rules, the reasons why, and instructions on how employees must be trained. On the last page, it said,
 
-**Rule #10:** *The establishment must always have a manger and owner.*
+**Rule #10:** *The establishment must always have a manager and owner.*
