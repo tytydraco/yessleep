@@ -14,7 +14,7 @@ On the first page, written in a glowing silvery- white ink, was this:
 
 >Title:  
 >  
->**August 15th, 2022**  
+>**August 16th, 2022**  
 >  
 >Written by:  
 >  
@@ -52,7 +52,7 @@ Just like the day before, I noticed a deep black envelope sticking out of my mai
 
 >Title:  
 >  
->**August 16th, 2022**  
+>**August 17th, 2022**  
 >  
 >Written by:  
 >  
@@ -171,3 +171,7 @@ I walked quickly. When I made it back inside my apartment I saw the script on th
 >There’s a CLOSE-UP of Serena’s face screaming out in terror.  
 >  
 >Aaron shoves her off the ledge and there’s a high and piercing SHRIEK as Serena descends towards the ground below. She disappears from view and the train rushes past undisturbed.
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/wsqg75/the_black_script_part_2/)
