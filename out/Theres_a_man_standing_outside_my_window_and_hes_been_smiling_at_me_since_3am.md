@@ -1,0 +1,17 @@
+I never sleep though the night, On most nights, I wake up in the middle of the night. I'd love to just roll over and go to sleep but always inspired by my bladder, I have to get out of bed, and last night was no different... Last night I woke up around 3 A.M and got out of bed and wandered to the bathroom to relieve myself, and like every other night I stumbled through the dark and started crawling back into the warm safety of my comfy bed. And most nights I didn't struggle to get back to sleep. But last night, there was a thunderstorm, and as I was crawling back to bed there was a flash of lightning and I swear during that split second flash I saw a silhouette of a man outside my window, in fact I was sure of it, so sure of it that I didn't dismiss it and went over to the window to look outside.
+
+And sure enough, there was indeed a man outside, in the rain, just standing there. And he was smiling. I pinched myself and blinked, but to no avail, he was still standing there. Smiling. I wasn't imagining it, or dreaming it, even in my half dazed state. Starting to feel a little bit uneasy I opened the window and shouted at him.
+
+"Hey"
+
+No response, he just stood there smiling.
+
+"Get outta here, what are you doin, leave, WHAT THE FUCK IM CALLING THE COPS"
+
+Still no response, he just stood there smiling. I was about to lose my shit, and scrambled to find my phone and called 911. The issue was they wouldnt fucking do anything about it cause the guy was technically far away enough to not be on my property and he wasn't technically doing anything wrong. So they ignored me, and I went outside to confront this maniac. I yelled at him.
+
+"WHAT ARE YOU DOING OUT HERE IN THE RAIN, YOURE SCARING PEOPLE GET THE FUCK OUT OF HERE"
+
+NO response. He just stood there smiling. I stared in desbelief, not really knowing what the fuck was going on. This man outside at 3 AM stuck in some sort of catatonic state, just smiling. Still as a gargoyle. I went back inside and struggled to find the will to even think about getting back to bed, especially with this weirdo right outside. He was living rent free in my head at this point. So I just watched him all night, and he just kept standing there, just kept smiling. 
+
+It got to be close to sunrise, I was still watching this guy and he was still out there, just standing there, smiling. People in the neighborhood were starting to get up to go to work, and walk their dogs, go on their morning runs, and this dude is still standing there smiling. Nobody really noticed him though, I'd see people jog right past him wave at him as if they were saying good morning, and he would just stand there and smile. People driving right past him, no one even seeming to notice or care that there was this out of place man just standing on the side of the street in the middle of their neighborhood, I suppose he looked innocuous enough, but i guess I  was the only one who knew he had been out there all night, even through a thunderstorm, and now I have to go to work, and I don't know how I'll be able to focus on work when I'll just be wondering if this guy will still be there when I get back later, and if he is still there, will he still be smiling?
