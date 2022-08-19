@@ -315,3 +315,5 @@ Kitty stared at him, smiling from the passenger seat.
 Another quick glance in the mirror.
 
 [“Good.”](https://www.reddit.com/r/decogent/comments/v85m4g/you_found_me/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[2](https://www.reddit.com/r/nosleep/comments/wsdbmc/our_adoptive_parents_like_to_play_weird_games_at/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
