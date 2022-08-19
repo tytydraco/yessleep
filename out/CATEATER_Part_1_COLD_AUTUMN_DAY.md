@@ -116,4 +116,6 @@ She always reacted when I called after her. However, this time she didn’t reac
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/wl926b/cateater_part_2_watching_pressence/)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/wq36yo/cateater_part_3_incredible_mystery/) 
+[Part 3](https://www.reddit.com/r/nosleep/comments/wq36yo/cateater_part_3_incredible_mystery/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/wsl816/cateater_part_4_what_to_do/)

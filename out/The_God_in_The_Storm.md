@@ -1,4 +1,4 @@
-It was 1988, Sometime in July when it all happened. I was working as a small town cop in a tiny town barely breaking one thousand residents. One night I was called on one of the backroads to check out a clearing kids just loved drinking and partying at. 
+It was 1988, sometime in July when it all happened. I was working as a cop in a tiny town barely breaking one thousand residents. One night I was called on one of the backroads to check out a clearing kids just loved drinking and partying at. 
 
 &#x200B;
 
