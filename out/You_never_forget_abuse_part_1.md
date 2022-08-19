@@ -1,6 +1,6 @@
 Have you ever made a decision out of anger and not regretted it? I can think of only one or two. When I was in school, I was bullied like almost everyone else. One time a kid who had always rubbed me the wrong way made a crack about my appearance on what was already a bad day for me and I smacked him across the face. I got in trouble for that, a call home and everything. But I don't regret it. That kid and I, we had never liked each other. And after I smacked him, he kept his distance from me. Maybe hitting him wasn't the right thing to do, but I don't think it was the worst thing I could have done either.
 
-I was at the supermarket last weekend. It was broad daylight. Usually I expect weird shit to happen in dark alleys, but in this case, it happened while I was in line for the bathroom. There were two guys in front of me. One of them was in his 20s and the other was in his 50s, I think. The twentysomething guy turned around and widened his eyes at the fortysomething guy. He opened his mouth to say something but then the older guy slapped him. Hard. "Just turn around, Milo," said the older guy. The younger guy put his hand to his face and did so. What was their relationship to each other?
+I was at the supermarket last weekend. It was broad daylight. Usually I expect weird shit to happen in dark alleys, but in this case, it happened while I was in line for the bathroom. There were two guys in front of me. One of them was in his 20s and the other was in his 50s, I think. The twentysomething guy turned around and widened his eyes at the fortysomething guy. He opened his mouth to say something but then the older guy slapped him. Hard. "Just turn around, Wes," said the older guy. The younger guy put his hand to his face and did so. What was their relationship to each other?
 
 I saw them again at the supermarket this weekend. This time, I went after work. They were shopping together, which told me that they did have some kind of a relationship. Without getting too close, I tried to follow them around the store with my shopping cart. It's not that hard to follow somebody without being noticed if you just keep a little distance.
 
@@ -32,7 +32,7 @@ I usually take the bus home, so I was grateful to Reese for saving a me a few mi
 
 Reese shook his head again. "Did you notice how Wes looked older today? And how Kyle looked younger?"
 
-"Yeah, I noticed," I said, assuming that Wes was the younger one and Kyle the older one. "But you didn't answer my question."
+"Yeah, I noticed," I said, assuming that Kyle was the older one. "But you didn't answer my question."
 
 "That's because I don't know what they're doing in the bathroom," said Reese. "But every time they go into a place, they ask if there's a bathroom. If there is no bathroom, they leave. This one time, Kyle started yelling at the lady, like it was her fault the place didn't have a bathroom. So they're not allowed in that store anymore."
 
