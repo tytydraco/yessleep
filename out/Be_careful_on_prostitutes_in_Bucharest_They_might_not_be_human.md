@@ -2,11 +2,11 @@ Hello there.
 
 &#x200B;
 
-I am Hermann. A German Phd student from Düsseldorf. My specialty: Ethnography. My thesis is ”The survival of ancient myths” in folklore mythologies. Yeah, that is a fancy one. No, I can not be modest about this, I am really proud of my endeavor. Very few people actually work on this enormous, but fascinating domain. 
+I am Hermann. A German Phd student from Düsseldorf. My specialty: Ethnography. My thesis is ”The survival of ancient myths” in folklore mythologies. Yeah, that is a fancy one. No, I can not be modest about this, I am really proud of my endeavor. Very few people actually work on this enormous, but fascinating domain.
 
 &#x200B;
 
-I needs a lot of determination. Because, trust me, you need to work really hard to get what you want. You see, on first sight, with my tall stature, bushy beard I look like your typical lumberjack guy. Outdoors guy you shall say, on first sight. And, indeed, outdoors is part of who I am since childhood. Always loved field trips, forests, unspoiled nature. But, you see, my love for nature meant not just for the nature itself, but also for other dimensions of it. Like how people related to it and what nature makes people feel. And fairy tales, legends, myths about the old world and what is still around us were part of my love for ”outdoors” just as much as the sky, the forest and the pure water springs. This is why I became a folklorist. 
+I needs a lot of determination. Because, trust me, you need to work really hard to get what you want. You see, on first sight, with my tall stature, bushy beard I look like your typical lumberjack guy. Outdoors guy you shall say, on first sight. And, indeed, outdoors is part of who I am since childhood. Always loved field trips, forests, unspoiled nature. But, you see, my love for nature meant not just for the nature itself, but also for other dimensions of it. Like how people related to it and what nature makes people feel. And fairy tales, legends, myths about the old world and what is still around us were part of my love for ”outdoors” just as much as the sky, the forest and the pure water springs. This is why I became a folklorist.
 
 &#x200B;
 
@@ -14,7 +14,7 @@ I love to find out more and more, like a type of greed. First, I loved Western a
 
 &#x200B;
 
-Comparative folklore means, as I said, a lot of travel, but also a lot of effort to select and put things together. I admit, I travel mostly to Europe, not all the world, but I find it easier, being closer to my homeland and culture and, in the end, I am one person and I can only do so much. 
+Comparative folklore means, as I said, a lot of travel, but also a lot of effort to select and put things together. I admit, I travel mostly to Europe, not all the world, but I find it easier, being closer to my homeland and culture and, in the end, I am one person and I can only do so much.
 
 &#x200B;
 
@@ -22,7 +22,7 @@ The story I want to share happened as I came to Romania last week, on a conferen
 
 &#x200B;
 
- The great J.R.R. Tolkien does a wonderful depiction of Elves in his works, yet there is something he tends to avoid, meaning the dimension called the ”Dark Elf”. This means the Elves who are ”dark” in their attitude towards Humans and in ”dark moods”. People in Iceland, as well as in the Balkans seem to have a deep fear for the Dark Elf typology, in some parts of Ireland we see this as well. But no, I do not share paragraphs from my thesis now, but a personal experience. So, please, bear with me for a little.
+The great J.R.R. Tolkien does a wonderful depiction of Elves in his works, yet there is something he tends to avoid, meaning the dimension called the ”Dark Elf”. This means the Elves who are ”dark” in their attitude towards Humans and in ”dark moods”. People in Iceland, as well as in the Balkans seem to have a deep fear for the Dark Elf typology, in some parts of Ireland we see this as well. But no, I do not share paragraphs from my thesis now, but a personal experience. So, please, bear with me for a little.
 
 &#x200B;
 
@@ -30,7 +30,7 @@ There is also another type of mythological creature sometimes included in the Da
 
 &#x200B;
 
-She often has sex with men, disguised as their lover, sometimes after several meetings with her, the man realized he had sex not with his lover, but with wooden, hollow-back monster. 
+She often has sex with men, disguised as their lover, sometimes after several meetings with her, the man realized he had sex not with his lover, but with wooden, hollow-back monster.
 
 &#x200B;
 
@@ -46,7 +46,7 @@ Robert showed me a little around, we went to a pub, we got a little friendly and
 
 &#x200B;
 
- At some point, he proposed that we go for a walk on the outskirts of Bucharest, on an area famous for the prostitutes that give their services to passing drivers. I was a little reluctant but, since as did not had a girlfriend at the time and I was a little drunk, I agreed. So, we went to the north-west of Bucharest, where one of the last patches of forest still existed in the area of the city, in Băneasa.
+At some point, he proposed that we go for a walk on the outskirts of Bucharest, on an area famous for the prostitutes that give their services to passing drivers. I was a little reluctant but, since I had not a girlfriend at the time and I was a little drunk, I agreed. So, we went to the north-west of Bucharest, where one of the last patches of forest still existed in the area of the city, in Băneasa.
 
 &#x200B;
 
@@ -58,7 +58,7 @@ I went to the edge of the forest, and I soon found one. She looked not as much a
 
 &#x200B;
 
-”Hello there, speak English?” She smiled alluring at me and answered like a whispered balm: ”Of course, darling.” Her voice tickled something in my head, I knew that I had to go on with this. Up to this point, I still felt a little odd for being there and doing what I was about to do, but her voice made feel very differently. I do not know, was I suppose to realize what was going on, especially me, who knew some things? Perhaps. She asked for quite a small fee, that made the lust get stronger in me. She took my hand and we started to walk towards her place, on a small road inside the forest. I kept looking at her hot pants, then at her eyes, she had something in them, how shall I say... She tickled my palm with her long, acrylic nails. That was it, I was going for it. 
+”Hello there, speak English?” She smiled alluring at me and answered like a whispered balm: ”Of course, darling.” Her voice tickled something in my head, I knew that I had to go on with this. Up to this point, I still felt a little odd for being there and doing what I was about to do, but her voice made feel very differently. I do not know, was I suppose to realize what was going on, especially me, who knew some things? Perhaps. She asked for quite a small fee, that made the lust get stronger in me. She took my hand and we started to walk towards her place, on a small road inside the forest. I kept looking at her hot pants, then at her eyes, she had something in them, how shall I say... She tickled my palm with her long, acrylic nails. That was it, I was going for it.
 
 &#x200B;
 
@@ -82,7 +82,7 @@ Then I saw something I only read in libraries and heard in conferences about and
 
 &#x200B;
 
-As she made a shriek I can not describe, I remembered something. Something Robert told me a few hours ago: That, in Romanian folklore, she seems not to stand knives. I had on me, out of habit, a pocket knife, that I found very useful in my outdoor activities, like hiking on a forested mountain. Perhaps this would work. So, I went to my pocked in a matter of seconds, almost skipping the pocket, as the branches grew and engulfed me. 
+As she made a shriek I can not describe, I remembered something. Something Robert told me a few hours ago: That, in Romanian folklore, she seems not to stand knives. I had on me, out of habit, a pocket knife, that I found very useful in my outdoor activities, like hiking on a forested mountain. Perhaps this would work. So, I went to my pocked in a matter of seconds, almost skipping the pocket, as the branches grew and engulfed me.
 
 &#x200B;
 

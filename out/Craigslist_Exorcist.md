@@ -26,13 +26,13 @@ About an hour into our fruitless attempt, stuff started swirling around the room
 
 &#x200B;
 
-Fortunately, we did come across Herbert on Craiglist. After shooting him a message, he was out within the hour.  When a rusty pickup truck pulled up, spewing exhaust, I wasn't exactly feeling confident. Nor was upon seeing that our exorcist in question was a fat balding man in his late thirties to early forties. You know that comic book guy from The Simpsons?  
+Fortunately, we did come across Herbert on Craiglist. After shooting him a message, he was out within the hour.  When a rusty pickup truck pulled up, spewing exhaust, I wasn't exactly feeling confident. Nor was upon seeing that our exorcist in question was a fat balding man in his late thirties to early forties. You know that comic book guy from The Simpsons?
 
 &#x200B;
 
 &#x200B;
 
- He basically looked like him except if he was wearing a priest robe and thick-rimmed glasses. His arms were full of supplies, religious items, and such. He tripped over his robe, sending them sprawling across the yard. We went over, offering to help.
+He basically looked like him except if he was wearing a priest robe and thick-rimmed glasses. His arms were full of supplies, religious items, and such. He tripped over his robe, sending them sprawling across the yard. We went over, offering to help.
 
 &#x200B;
 
@@ -66,7 +66,7 @@ He leaped into our living room. I coughed and cocked a thumb to the stairs.
 
 &#x200B;
 
-Quickly, he raced up them and we followed. He was out of breath by the time he reached the top. When he got to Mikel’s door, he straightened his robe and opened it. Nothing could’ve prepared us for the scene waiting for us. Mikel’s bed was now hovering vertically in midair.  His eyes were closed. 
+Quickly, he raced up them and we followed. He was out of breath by the time he reached the top. When he got to Mikel’s door, he straightened his robe and opened it. Nothing could’ve prepared us for the scene waiting for us. Mikel’s bed was now hovering vertically in midair.  His eyes were closed.
 
 &#x200B;
 
@@ -226,13 +226,13 @@ While we were shocked by his reaction, there was also the matter of our possesse
 
 &#x200B;
 
-Gasping, Herbert spun around, face now glossy with sweat. Before he could reply, something flew down the stairs. It was Mikel’s mattress. We got out of the way in time and it hit the front door. At the top of the stairs, the Pharaoh grinned down at us. 
+Gasping, Herbert spun around, face now glossy with sweat. Before he could reply, something flew down the stairs. It was Mikel’s mattress. We got out of the way in time and it hit the front door. At the top of the stairs, the Pharaoh grinned down at us.
 
 &#x200B;
 
 &#x200B;
 
-Shadows swirled around him and I could see faces within them that wore that same malicious smile. 
+Shadows swirled around him and I could see faces within them that wore that same malicious smile.
 
 &#x200B;
 
@@ -392,7 +392,7 @@ We continued our assault with more water bottles. The Pharoah fell to the floor 
 
 &#x200B;
 
-The Pharaoh made our mom’s brass vase fly through the air. Dion and I were quick enough to duck it. Herbert wasn’t so lucky. It hit him square in the temple. He staggered to the side and fell down the stairs. My hammering heartbeat came to an abrupt stop. 
+The Pharaoh made our mom’s brass vase fly through the air. Dion and I were quick enough to duck it. Herbert wasn’t so lucky. It hit him square in the temple. He staggered to the side and fell down the stairs. My hammering heartbeat came to an abrupt stop.
 
 &#x200B;
 
@@ -566,13 +566,13 @@ He glanced around.
 
 &#x200B;
 
-Could she be scarier than what we encountered? Logically, I didn’t think so. Then again, I wasn’t curious enough to find out. We thought getting rid of Herbert’s body would be the hard part. Honestly, it turned out to be the easiest compared to the rest of the work we needed to do. 
+Could she be scarier than what we encountered? Logically, I didn’t think so. Then again, I wasn’t curious enough to find out. We thought getting rid of Herbert’s body would be the hard part. Honestly, it turned out to be the easiest compared to the rest of the work we needed to do.
 
 &#x200B;
 
 &#x200B;
 
-We got him up the stairs and then wrapped him in sheets. We put him n his truck. Dion drove to a nearby lake and pushed the truck in it with him inside. Was that fucked up beyond belief? Absolutely. 
+We got him up the stairs and then wrapped him in sheets. We put him n his truck. Dion drove to a nearby lake and pushed the truck in it with him inside. Was that fucked up beyond belief? Absolutely.
 
 &#x200B;
 
