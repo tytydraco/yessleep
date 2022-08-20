@@ -98,6 +98,12 @@ And I’m telling myself right now that I can’t hear my son’s voice coming f
 
 If I call the police, what will they do to him? What will he do to *me* if I don’t? Any advice is appreciated. I’ll respond when I can, but I have to go now. I hear his bedroom [door opening](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+--------------
+
+[What's in the box?](https://redd.it/wt4osq)
+
+-------------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
