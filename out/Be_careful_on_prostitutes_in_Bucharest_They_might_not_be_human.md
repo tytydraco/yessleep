@@ -94,7 +94,7 @@ For a few seconds of silence, she opened her mouth widely and came towards my mo
 
 &#x200B;
 
-Yet, something happened. A strong blast came from down stairs. She stropped in her tracks, turned her head towards the door and shrieked. As she stared at the door, do not ask me how, I manage to brake free and get up. My only chance was the window. It was opened. She turned her head back towards me, trying to grab me once again. But loud footsteps were heard on the stairs. She seemed to panic a bit, trying to keep me in her grip, but also to defend herself from whoever who coming from the door. A thought in my head whispered who was coming. Someone dangerous for me, but for her as well. The door opened and, for a second before I jump from the window frame, I saw a short, dark figure.
+Yet, something happened. A strong blast came from down stairs. She stopped in her tracks, turned her head towards the door and shrieked. As she stared at the door, do not ask me how, I manage to break free and get up. My only chance was the window. It was opened. She turned her head back towards me, trying to grab me once again. But loud footsteps were heard on the stairs. She seemed to panic a bit, trying to keep me in her grip, but also to defend herself from whoever who coming from the door. A thought in my head whispered who was coming. Someone dangerous for me, but for her as well. The door opened and, for a second before I jump from the window frame, I saw a short, dark figure.
 
 &#x200B;
 
@@ -102,7 +102,7 @@ I landed up though, on the pavement, it seems one ankle was hit, a sharp pain go
 
 &#x200B;
 
-Robert was waiting for me, as I arrived, and he looked a bit shocked of my state. ”What happened?” he asked. ”Let me help you.” He allowed me to grab his shoulder, to put less stress on my damage ankle. He called an Uber, considering to be faster then an ambulance and, as we waited, he asked me what happened. I told him: ”I think you shall not believe me if I tell you.” I looked back to the forest and I saw a man and a woman. The man was shorter then the women, wearing a black park with the hood on his head, he had somewhat angry, but not towards me, look, he looked about 35-40 of age, a somehow reddish beard, and felt like some sort of angry paternal authority. And the woman was Ramona, as I first saw her in Human form. She looked with hatred at me, and I could noticed some scratches on her chest. Soon, they turned their back on us and went inside the forest, on another path.
+Robert was waiting for me, as I arrived, and he looked a bit shocked of my state. ”What happened?” he asked. ”Let me help you.” He allowed me to grab his shoulder, to put less stress on my damage ankle. He called an Uber, considering to be faster then an ambulance and, as we waited, he asked me what happened. I told him: ”I think you shall not believe me if I tell you.” I looked back to the forest and I saw a man and a woman. The man was shorter then the woman, wearing a black parka with the hood on his head, he had somewhat angry expression, but not towards me, look, he looked about 35-40 of age, a somehow reddish beard, and felt like some sort of angry paternal authority. And the woman was Ramona, as I first saw her in Human form. She looked with hatred at me, and I could noticed some scratches on her chest. Soon, they turned their back on us and went inside the forest, on another path.
 
 &#x200B;
 
