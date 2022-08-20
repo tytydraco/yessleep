@@ -4,7 +4,7 @@ A house moved in at the end of the street.
 
 From my bedroom window, I barely caught a glimpse of it lumbering down the road. I couldn’t see all of it, but I was pretty sure it was a Victorian.
 
-Mom was already at work. She drove us to school whenever she wasn’t pulling an all-nighter at the diner. This happened more and more these days. She liked to say we were, ‘a little strapped.’ A more apt description would be: dirt fucking poor.
+Mom was already at work. She drove us to school whenever she wasn’t pulling an all-nighter at the diner. This happened more and more these days. She liked to say we were "a little strapped." A more apt description would be: dirt fucking poor.
 
 “Chloe . . . ?” my younger brother, Jake, whimpered from his bedroom. I hurried to check on him. He cracked his door open just enough for me to see his green eyes and the constellation of acne on his round nose. “I think it’s an earthquake.”
 
@@ -12,7 +12,7 @@ Mom was already at work. She drove us to school whenever she wasn’t pulling an
 
 \*\*\*
 
-Outside, Jake and I watched as a three-story house paraded down the block on big-wheeled dollies. An entourage of slack jawed moving men in dirty, flat-bed trucks with out-of-state plates escorted it like they were the hillbilly Secret Service.
+Outside, Jake and I watched as a three-story house paraded down the block on big-wheeled dollies. An entourage of slack-jawed moving men in dirty, flat-bed trucks with out-of-state plates escorted it like they were the hillbilly Secret Service.
 
 I tensed up when I realized they were leading the house to the Shole—the empty lot at the end of our street.
 
@@ -114,7 +114,7 @@ Mason was lying on the table’s bench, a stem of bahiagrass sticking out of his
 
 “What do you mean?”
 
-“Well, they took something from us. So, why don’t we take something from them.” Mason sat up from the bench clearly inspired. “I bet there’s some nice stuff in there.”
+“Well, they took something from us. So why don’t we take something from them.” Mason sat up from the bench clearly inspired. “I bet there’s some nice stuff in there.”
 
 “Could be our ticket out of here,” he added with an old-timey accent.
 
@@ -142,7 +142,7 @@ Mason and I looked at each other, and then we looked at the house. Without anoth
 
 We started with a dry run just to case the joint, as us cat burglars liked to say. We waited for it to be late enough to not have to worry about passing cars or prying eyes. As far as we were concerned, Jake and Kat didn’t need to join us for the rehearsal. They could be brought up to speed later.
 
-As Mason & I got closer to the house, the mismatched front windows beaded down on us like sad, disdainful eyeballs. Rounded wooden steps spilled down from the porch. Instead of straight up and down, the steps spun out at an angle, leaving a dark abscess underneath the porch.
+As Mason and I got closer to the house, the mismatched front windows beaded down on us like sad, disdainful eyeballs. Rounded wooden steps spilled down from the porch. Instead of straight up and down, the steps spun out at an angle, leaving a dark abscess underneath the porch.
 
 Mason must’ve gotten the same uneasy vibes as me. He pressed my hand and said, “I might actually be glad when they move in. Get some light out here.”
 
@@ -230,7 +230,7 @@ But then there were footsteps above me. Was it Sheriff Blake touring the house? 
 
 My sight was beginning to adjust. All those little shapes I thought I saw under the porch now seemed to coalesce into a more singular, larger one. Before I could make out whatever it was, it darted at me with a hiss.
 
-I scrambled out from under the porch - not caring a single fuck who saw me. I didn’t stop running when I got into the woods behind the lot. And I didn’t stop until I reached Live Oak Lane, the next street over from Birch, where I finally put my hands on my knees and sucked air.
+I scrambled out from under the porch--not caring a single fuck who saw me. I didn’t stop running when I got into the woods behind the lot. And I didn’t stop until I reached Live Oak Lane, the next street over from Birch, where I finally put my hands on my knees and sucked air.
 
 I texted Mason to meet me there. No response. The text went unread.
 
