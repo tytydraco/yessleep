@@ -1,0 +1,19 @@
+Any DoorDash, Uber Eats, Grubhub driver or whatever you use, do NOT deliver to Lacoina Street in East Philadelphia. The pay is great, don’t get me wrong, but after what happened last night, it is not worth it.
+
+This all happened last night, and I am going to share my story word for word, and you don’t have to believe me, I don’t care, but this is for anyone who is willing to believe me.
+
+Yesterday night, I was doing my normal run on Uber Eats at around 9 PM, to make some extra money since I’m paying off my student loans. After about 7 runs, I got a hit for a 7533 Lacoina Street. It was about a 15 minute drive from where I was, but it had a 30 dollar tip, so I was willing to do it and got directions.
+
+Something weirded me out when I looked at he directions, Lacoina St had no outlet, which wouldn't have weirded me out if it wasn't the only road on this particular part of East Philly, and the fact there was an abundance of missing posters leading up to the street, but I just ignored it as being a bad part of the city,
+
+I arrived at the location, and something immediately felt off. The street had no street lights, I could barely see anything without my headlights, so I just kept them on while I went to the house. The sidewalk was broken and very damaged, like it hadn’t been taken care of in years. I faintly saw the 7533 next to the door on one of the houses, so I went up and dropped the food off.
+
+After I took the photo, I began walking to my car, when I noticed the headlights were off. I didn’t remember turning them off, so I was confused. I began walking to my car, and the I heard a door slam from up the street. I turned around and heard another door slam. I turned on my car and turned on the headlights when I saw two men standing in the road. They both looked sickly, pale skin, black eyes, very skinny, but they were just standing there.
+
+Then I noticed one of them looked familiar, like I saw him somewhere recently. I honked my horn and yelled at them to see if they needed anything, but nonetheless they just stood there. Standing. Then, I froze. The men were now smiling wide, like they thought something was funny. I just sat there scared, I didn't wanna drive off because I was scared one of them might have had a gun or something.
+
+Right when I was about to get out of there, I heard a shuffle in my backseat. I stopped breathing, and looked in my rear view mirror. The eyes in the mirror stared back at me, and I felt something begin to grab my shoulder. Without thinking, I opened the door and jumped out the car, as I felt someone leap forward and hit my dashboard, I ran up the street as I heard a rapid pair of footsteps behind me, laughing like crazy. I ran down the long road until I found a small town, and called an uber to my house. 
+
+On the way back to my house, I thought more about those missing posters, and how all of them were on the way to Lacoina Street. I thought about who those people were, or what they wanted from me. I never bothered calling the police, because I would sound crazy to them. The next morning I called an uber to drive back to that street and pick up my car, which I examined closely before I entered. There a dent on the middle console, but for the most part it was clean. I drove home and I am now writing my story to you.
+
+If this advice even helps one food delivery person, that's all that really matters. I don't know if those were homeless people, crackheads, or whatever those people were. But something was going to happen if I hadn't looked in the mirror, and I might have been on one of those missing posters. I hope this helps.
