@@ -1,6 +1,4 @@
- 
-
-I’ve only worked one other retail job before this, it was at a dodgy corner store that made most of its cash from liquor sales, cigarettes and cheap imported knick-knacks for tourists. I lasted a week. But this job doesn’t even hold a candle to the fuck-shit I have to deal with here.
+I’ve only worked one other retail job before this, it was at a dodgy corner store that made most of its cash from liquor sales, cigarettes and cheap imported knick-knacks for tourists. I lasted a week. But that job doesn’t even hold a candle to the fuck-shit I have to deal with here.
 
 The Page had started and ended again. But now, filling the silence was pain.
 
