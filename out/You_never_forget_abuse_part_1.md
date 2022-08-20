@@ -112,4 +112,4 @@ Before I wrote this, I texted Reese asking if everything was alright with him an
 
 I'm going to meet Reese in front of that steakburger place in a few days. It sounds like my suspicions are correct, and that Kyle's evil will infect other people if we don't stop him. Whether or not we stop Kyle, I will need to have a long talk Ferdinand Sr. Because he needs to do something about his [wife](https://www.reddit.com/user/_Cu_Chulainn17).
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/wstqne/you_never_forget_abuse_part_2/)
+[Part 2](https://www.reddit.com/user/_Cu_Chulainn17/comments/wsypai/you_never_forget_abuse_part_2/)
