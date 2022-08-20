@@ -92,7 +92,7 @@ She said it in a rush. Odd but I dismissed it. I smiled and grabbed the clothes 
 
 She forced a smile, “No seriously, I insist, just go rest.”
 
-She led me to the couch and had me lay down. She placed a blanket over me and ushered me to sleep. For some reason, her trying to usher me to sleep made my hair stand on end. I decided to go along with it and close my eyes even though I wasn't hungry.
+She led me to the couch and had me lay down. She placed a blanket over me and ushered me to sleep. For some reason, her trying to usher me to sleep made my hair stand on end. I decided to go along with it and close my eyes even though I wasn't tired.
 
 She left the room and not shortly after I heard her on the phone with someone, “I don’t know! I thought that a hit to his head would’ve killed him!”
 
