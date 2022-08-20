@@ -111,3 +111,5 @@ I froze. That sounded eerily similar to the incident between Kyle and Wes. I hav
 Before I wrote this, I texted Reese asking if everything was alright with him and his wife and daughter. He said yes, and asked why. I told him that I think whatever is going on between Wes and Kyle might not be limited to them. It might be infecting other people somehow. Like a virus that causes you to abuse people or something. He told me that he would be careful, and asked how everything was going at my place. I said everything was fine for now.
 
 I'm going to meet Reese in front of that steakburger place in a few days. It sounds like my suspicions are correct, and that Kyle's evil will infect other people if we don't stop him. Whether or not we stop Kyle, I will need to have a long talk Ferdinand Sr. Because he needs to do something about his [wife](https://www.reddit.com/user/_Cu_Chulainn17).
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/wstqne/you_never_forget_abuse_part_2/)

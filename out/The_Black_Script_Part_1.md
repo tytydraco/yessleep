@@ -160,7 +160,7 @@ I walked quickly. When I made it back inside my apartment I saw the script on th
 >  
 >**SERENA**: "Seriously I don’t know. I have no idea what you’re talking about."  
 >  
->Aaron glares at her hatefully. The train moves closer. The rushing of air crescendos into an unavoidable white noise. Aaron stands there, still staring, his face twisted in cruelty.   
+>Aaron glares at her hatefully. The train moves closer. The funneling of air crescendos into an unavoidable white noise. Aaron stands there, still staring, his face twisted in cruelty.   
 >  
 >**SERENA**: "Aaron are you okay? You’re starting to scare me."  
 >  
