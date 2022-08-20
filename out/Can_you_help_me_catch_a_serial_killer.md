@@ -36,7 +36,7 @@ It didn't take long to get to the station and meet up with the Captain.
 
 *For up my sleeve lies one last trick.*
 
-*You couldn't find thee after the original 23,*
+*You couldn't find me after the original 23,*
 
 *I can't wait to show you all a brand new me.*
 
@@ -156,4 +156,4 @@ We moved closer, and the body began to stir. His head raised, and eyes fluttered
 
 I went over to the letter, and examined it closely. Could it be dangerous? No, that would ruin the fun. This person likes the chase. Slowly, I opened it up.
 
-It was this [crossword puzzle](https://www.reddit.com/r/WarZoneSeries/comments/wsifi4/can_you_help_me_catch_a_serial_killer_discussion/).
+It was this [word search](https://www.reddit.com/r/WarZoneSeries/comments/wsifi4/can_you_help_me_catch_a_serial_killer_discussion/).
