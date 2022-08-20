@@ -1,5 +1,3 @@
- 
-
 It's funny to think that just a year or so ago, going to the grocery store was comparable in enjoyment to going to a bookstore. Hell, it was almost as exciting as going to a waterpark some weeks because it was just being *out.* Now I'd give just about anything to lock myself in my apartment and never leave again
 
 After walking for what felt like hours, which was in reality was probably around 30 to 45 minutes, I found myself among shelves with strange boxes on them. And some of the ugliest shoes I had ever seen.
@@ -82,10 +80,12 @@ The all too real Phantasm took his gun and clumsily raised it toward me, aiming 
 
 A brilliant pain erupted in my head with the sound of the page. The sound was so loud, I could feel it in the floor beneath me and rattled in my skull. The base of the horrible sound shook me down to the marrow. I could feel a hot gush on either side of my head followed by a trickling warmth down my neck and collarbone. I couldn't even have the comfort of hearing myself scream.
 
-Passing out was a mercy. 
+Passing out was a mercy.
 
-The last thought I remember having before I blacked out still stands out to me. Clearer than the memory itself. 
+The last thought I remember having before I blacked out still stands out to me. Clearer than the memory itself.
 
-"*Was I not worth fighting harder for?"* 
+"*Was I not worth fighting harder for?"*
 
 It's still a question I find myself asking, even after all this time.
+
+[Part 3!](https://www.reddit.com/r/nosleep/comments/wswn0y/welcome_to_thetamart_part_3_the_page/)

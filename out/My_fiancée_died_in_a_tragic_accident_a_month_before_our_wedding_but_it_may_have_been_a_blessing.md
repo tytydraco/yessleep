@@ -143,7 +143,7 @@ But here's the thing: When I dashed upstairs, removing my stuffy suit as I went,
 The covers were thrown back, and there were some unsavoury looking stains on the white sheets that I did not want to examine too closely, but no M. 
 
 
-I backed out of the room, doing my shirt back up as I went, and closed the bedroom. I can't be sure but I think I saw that the door to the walk-in closet was slightly ajar, and I was certain I had slid it fully closed earlier after fetching my suit.
+I backed out of the room, doing my shirt back up as I went, and closed the bedroom door. I can't be sure but I think I saw that the door to the walk-in closet was slightly ajar, and I was certain I had slid it fully closed earlier after fetching my suit.
 
 
 As I write this, I am sitting downstairs, listening to heavy thuds coming from the bedroom. Whoever is up there seems to be bumping into a lot of things. I know M was clumsy in life, but I also know that undertakers use spiked eye caps in order to keep the eyes of a corpse closed, and M had only one good eye to begin with.
