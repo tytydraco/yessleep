@@ -28,7 +28,7 @@ Max hid behind him, scratching his throat for attention. “I’m sorry about th
 
 “Wait what?! Who’s waiting around the neighborhood?”
 
-It was like I’d jumped out from the bottom of the pool, finally able to see and hear properly. 
+It was like I’d jumped out from the bottom of the pool, finally able to see and hear properly.
 
 “He’s gambling again,” Max responded. “Lost all the money he won last time and then some more.”
 
@@ -40,7 +40,7 @@ The truck then decided to explode like a popped balloon. The door flung open, th
 
 Jack stood inside the brightly lit interior, head resting on his hands. There were three glasses in front of him, each filled with three perfect dollops of red ice cream with an identical cherry on top.
 
-He’d also dropped his disguise. 
+He’d also dropped his disguise.
 
 Max was the first to scream at the sight of him, first a yelp of surprise, then a drawn-out scream of terror.
 
@@ -48,7 +48,7 @@ His eyes were twice as large as they should’ve been and they were strangely sl
 
 I could see his many jointed hands curling and cracking like the snapping of twigs.
 
-Yet not a single blond hair was astray and his uniform was as immaculate as always. He smelled of confectionary sugar as we approached him, all of us screaming and walking at the same time, hypnotized. 
+Yet not a single blond hair was astray and his uniform was as immaculate as always. He smelled of confectionary sugar as we approached him, all of us screaming and walking at the same time, hypnotized.
 
 Had he not done something to us, I would’ve done a 180 and ran without a second thought. But there were hands, literal, yet unseen hands on my shoulders, six fingered ones, holding me back.
 
@@ -56,7 +56,7 @@ Had he not done something to us, I would’ve done a 180 and ran without a secon
 
 “I expected better from you Owen; don’t you know better than to judge the way someone looks? Max,” He turned to him, who was running in place, held back by the same thing. “Stop that.”
 
-Finally, he turned to me, wrapping his hands around the stem of the glass cup, pinky finger extended. 
+Finally, he turned to me, wrapping his hands around the stem of the glass cup, pinky finger extended.
 
 “I am here to make you an offer, a solution for all your problems. Or a wish that will make all your dreams come true. If you ask for it.”
 
@@ -102,11 +102,11 @@ I ended up holding both of them, the back of my throat raw and hurting. I was ju
 
 “Tell me! Tell me! Tell me what you want, you little bitch and I’ll go!” He got so close to my face that I could smell his breath. I recoiled. An infection. He was a goddamned infection and he smelled like it; of rotten food and pus.
 
-“I want- I want a solution to all my problems.” My words quivered, unsure, but he didn’t go away. His face stayed an inch away from mine, morbid eyes unblinking. His Lovecraftian arms reached for one of the melted ice cream cups and a pink plastic spoon with a heart shaped handle. 
+“I want- I want a solution to all my problems.” My words quivered, unsure, but he didn’t go away. His face stayed an inch away from mine, morbid eyes unblinking. His Lovecraftian arms reached for one of the melted ice cream cups and a pink plastic spoon with a heart shaped handle.
 
 It was warm to touch, too warm and steaming. Whatever was inside, it was no longer pretending to be a nice treat. It was the color of wine, ready to drag me into delirium.
 
-I swallowed. 
+I swallowed.
 
 A light sniff had me flinch back from the concoction. A steady stream of blood began tricking from my nose. Sharp. That poison smelled *sharp* and it stained my shirt.
 
@@ -188,7 +188,7 @@ I didn’t dare look down at my friend, afraid I’d lose it the second I though
 
 I nodded. He was too cowardly to go in, but I didn’t blame him. Nothing felt real and he was injured. Jack could pop in from behind us at any moment, or someone similar to what he was.
 
-The hallway’s walls had a yellow diamond pattern, paired by dull brown doors and floor. Each door had a handwritten note stuck below a number. 
+The hallway’s walls had a yellow diamond pattern, paired by dull brown doors and floor. Each door had a handwritten note stuck below a number.
 
 📷 The Cooling Room.
 
@@ -206,21 +206,21 @@ The corridor split into two directions, left and right. They were both identical
 
 The thought of Jack being there when I spun around frightened me so much that I had to make a decision. I choose left, the same way my father had told me to do when we were in the corn maze. If I only went left, I’d be able to find my way back.
 
-The walk was long. Far longer that it should’ve been. My reflection got larger and larger, but there was no sign of it jumping out and attacking me. There was only my terrified face and messed up hair. 
+The walk was long. Far longer that it should’ve been. My reflection got larger and larger, but there was no sign of it jumping out and attacking me. There was only my terrified face and messed up hair.
 
 My shirt was unsalvageable. I was apparently missing a shoe and hadn’t noticed a thing. My nose was still dripping blood all over and I’d probably lost a bucket of it on the floor at that point.
 
 There was a handle on the mirror and by some miracle, the key was still on the hole. It took one push for me to reach the front seats of the van.
 
-It was a relatively normal interior. There were two worn down leather seats, a wheel, a mirror and a pair of furry dice dangling off of it. A Hawaiian dancing doll had fallen next to the gear shift and the place was drowning in torn plastic wrapping. 
+It was a relatively normal interior. There were two worn down leather seats, a wheel, a mirror and a pair of furry dice dangling off of it. A Hawaiian dancing doll had fallen next to the gear shift and the place was drowning in torn plastic wrapping.
 
-Beef jerky. Chicken breasts. Fish sticks. A gallon of spoiled full fat milk, half finished. 
+Beef jerky. Chicken breasts. Fish sticks. A gallon of spoiled full fat milk, half finished.
 
 It must’ve gotten tired after working in an ice cream van because there wasn’t even a hint of candy bars anywhere.
 
 The best thing I found was the speakerphone radio. I could hear my own voice outside, telling Max and Owen to get in and head left. The very back of the truck shut close.
 
-The engine roared to life after I put my seatbelt on, impatiently waiting for them to reach me. When they got in, I was practically crying with relief. 
+The engine roared to life after I put my seatbelt on, impatiently waiting for them to reach me. When they got in, I was practically crying with relief.
 
 Max laid Owen down, cushioning his head with legs. He looked a lot older than he was somehow, but held himself together. There was something in his eyes that hadn’t been there before. Hope.
 
@@ -238,7 +238,7 @@ We followed the road until we saw lights and signs of civilization. My eyes were
 
 “Drink,” he said. “We need to save our strength for now.”
 
-He held the plastic water bottle for me while I swallowed the whole thing down greedily. I hadn’t realized how thirsty I’d been until that moment. 
+He held the plastic water bottle for me while I swallowed the whole thing down greedily. I hadn’t realized how thirsty I’d been until that moment.
 
 “Are you sure we should’ve drunk that? I mean, this is Jack’s truck.” He asked.
 
@@ -254,7 +254,7 @@ He held the plastic water bottle for me while I swallowed the whole thing down g
 
 The realization struck him the same time that it hit me, but it was too late. It was Owen’s turn to scream. “LOOK OUT!”
 
-I whirred around just in time to see Jack in the middle of the road. We were going too fast for me to stop, so we crashed right into him. The windshield shattered on impact, splattering glass all over my face. Between the blood raining down my face, I saw him sprawled on the hood, crawling up. 
+I whirred around just in time to see Jack in the middle of the road. We were going too fast for me to stop, so we crashed right into him. The windshield shattered on impact, splattering glass all over my face. Between the blood raining down my face, I saw him sprawled on the hood, crawling up.
 
 He was smiling widely, like a cat that got the cream. His eyes were brimming with joy and satisfaction. We were right across each other when he lifted up a pair of scissors.
 
@@ -275,3 +275,5 @@ And just like that, he got on his feet and walked out, closing the door behind h
 [Part 3](https://www.reddit.com/r/nosleep/comments/vdl25g/an_ice_cream_truck_man_comes_by_every_night_at/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Epilogue](https://www.reddit.com/r/nosleep/comments/wti530/an_ice_cream_truck_man_comes_by_every_night_at/)
