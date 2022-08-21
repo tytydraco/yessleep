@@ -276,4 +276,4 @@ And just like that, he got on his feet and walked out, closing the door behind h
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)
 
-[Epilogue](https://www.reddit.com/r/nosleep/comments/wti530/an_ice_cream_truck_man_comes_by_every_night_at/)
+[Epilogue](https://www.reddit.com/r/nosleep/comments/wubvew/an_ice_cream_truck_man_comes_by_every_night_at/)
