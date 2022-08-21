@@ -163,7 +163,7 @@ James turned to stare at the man, who let out a primal scream as he charged towa
 
 James hit the ground with a thud. He attempted to roll and hold onto the cleaver at the same time. As he tumbled, the cleaver flew out of his hand. James rolled over his bad arm and screeched in pain. James looked around desperately for the cleaver. It had gone flying. There was no time for him to search any longer. He had to run. James took off in a mad dash back the way he came.
 
-Maybe he could get the old piece of shit car to start? Maybe he could outrun the maniac behind him and get to that gas station. Maybe he'd get reception on his phone and be able to call... He was unable to finish the thought as he heard a series of grunts and screams behind him. James didn't need to look back to know the masked man was on his tail again. He tried to increase his speed, while also taking the occasional glance at the ground in front of him so he wouldn't trip again.
+Maybe he could get the old piece of shit car to start? Maybe he could outrun the maniac and get to that gas station. Maybe he'd get reception on his phone and be able to call... He was unable to finish the thought as he heard a series of grunts and screams behind him. James didn't need to look back to know the masked man was on his tail again. He tried to increase his speed, while also taking the occasional glance at the ground in front of him so he wouldn't trip again.
 
 It was dark out by now, but James could still make out his car shining in the moonlight. James knew the grey man was right behind him, but his body was on fire. Out of breath, he attempted to catch his wind by leaning against the trunk for a brief moment. He heard the scream, and got out of the way just as the masked man slammed his enormous fists in an attack aimed at James. The man missed, and the impact of the blow caused the car to shift and bounce off the pavement, denting the chassis of the car where the hit had connected. The hood slammed shut as the supporting rod snapped from the impact. 
 
@@ -193,7 +193,7 @@ Gramps stories’ were typically a little strange, and many of them even had a s
 
 Most importantly , even if he exaggerated slightly, Gramps’ stories were always *true*.
 
-Where had he even heard of a story like this? How could he possibly think this was happening, miles from our home? Hell, right in front of our home! 
+Where had he even heard of a story like this? How could he possibly think this was happening, miles from our home? Hell, right in front of our home! A freakish mutant *making* roadkill out of severed heads? And a man with his murdered family’s corpses in his trunk? All of this, right down the street?
 
 Unexpectedly, Gramps spoke again.
 
@@ -205,6 +205,6 @@ The worn old man’s eyes had taken on a hardened look, as he locked his steely 
 
 The two of us surveyed the landscape once again, my gaze lingering on the mounds of rotting and ruined meat that suddenly didn’t look so much like dead animals anymore. 
 
-I turned back to the car and silently resumed my Sisyphean task of repairing the junker.
+I turned back to the car and silently resumed my Sisyphean task of repairing the old junker.
 
 Gramps was right. Some questions are better left unasked.
