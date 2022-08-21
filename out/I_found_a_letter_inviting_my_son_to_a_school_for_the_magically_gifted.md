@@ -1,4 +1,4 @@
-"Jesus H. Christ, I am going to murder that boy." I tutted, surveying the absolute bombsite that was my son's bedroom.
+"I'm going to murder that boy." I tutted, surveying the absolute bombsite that was my son's bedroom.
 
 Sheets dangled from the single bed in a messy knot and toys covered the floor in a layer so thick that it was impossible to tell there was a carpet underneath. I sighed, grabbed a trash bag, a duster, and my portable speaker, and got to work.
 

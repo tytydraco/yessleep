@@ -177,6 +177,8 @@ We both knew right away what it meant, though.
 
 Mommy was [home.](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
 
+[Part Two](https://reddit.app.link/hl2Go4KcGsb)
+
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
 
 [YT](https://youtu.be/9RybtYtDzAk)
