@@ -28,7 +28,7 @@ As quickly as that feeling came, it faded. The lights buzzed back on and all was
 
 It was now around 3am, the heaviness of the day was starting to sink in and I figured I could just finish the final report tomorrow.  I went to the file closet, back turned to the office door, when I heard some noises, the noises were soft at first, but they eventually grew louder. The unmistakable thumps of someone walking along the tiled floor, sounding as if the feet were soaked. I paid no attention to them at first, I figured it was my heart pounding in my head, but it stopped, and it had stopped in front of my door. 
 
-Evil emanated from behind me, the same evil felt in the hallway earlier that night. I was scared, truly in fear, but I could not help to turn around. The only thing I could see through my office door was that the lab lights were off and something was shuffling around inside it. For a brief second, it looked at me, it’s face looked like Ned’s but it’s eyes. It had none. 
+Evil emanated from behind me, the same evil felt in the hallway earlier that night. I was scared, truly in fear, but I could not help but turn around. The only thing I could see through my office door was that the lab lights were off and something was shuffling around inside it. For a brief second, it looked at me, it’s face looked like Ned’s but it’s eyes. It had none. 
 
 At this point I did not care about anything, I booked it, I dashed out the office door and ran up the fire stairs to the main hospital floor, then all the way to my car. 
 

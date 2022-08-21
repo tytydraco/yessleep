@@ -100,7 +100,7 @@ I accidentally stepped on a phone causing it to crack.
 
 _FUCK_
 
-It heard me. I know it did because it instantly turned around and rand towards me. As it drew closer, three gunshots entered it's skull.
+It heard me. I know it did because it instantly turned around and ran towards me. As it drew closer, three gunshots entered it's skull.
 
 I never mentioned this but our school had a pistol in the principal's office for "safety reasons" Someone must've taken it.
 
