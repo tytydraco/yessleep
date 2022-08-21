@@ -134,7 +134,7 @@ Anxious about delaying any further, I gave him a parting salute, went over to th
 
 Bella ran to the stern and barked at her waving master, who went and sat on a rock and rolled up one final cigarette.
 
-To the East, that first slither of sunlight peaked out over the horizon. Now the tide had finally reached its lowest point.
+To the East, that first sliver of sunlight peaked out over the horizon. Now the tide had finally reached its lowest point.
 
 364 days a year, the Holy Isle was completely inaccessible, but now, Pilgrim’s Road had become an exposed trail teaming with bladder weed and seashells. The isle and my home island were now linked together, and this year’s tribute had not been paid.
 
@@ -178,4 +178,4 @@ Already half asleep again, she yawned, nested her head against my chest, and sai
 
 “I always wanted to go there,” she said lazily, eyelids drooping shut. Bella placed her head on Katie’s lap.
 
-And then, little by little, the constant, black terror plaguing me [since the announcement evaporated.](https://www.reddit.com/r/thoughtindustry/comments/te0fum/welcome_i_hope_you_enjoy_your_stay/) I breathed a long, deep, sigh of relief, and then set a course for our new home.
+To the East, that first slivof sunlight peaked out over the horizon. Now the tide had finally reached its lowest point.ief, and then set a course for our new home.s
