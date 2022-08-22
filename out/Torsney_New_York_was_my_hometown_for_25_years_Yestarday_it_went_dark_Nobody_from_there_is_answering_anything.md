@@ -176,3 +176,6 @@ Oh, and one extra thing I noticed was that the taller trees beyond the blockade 
 
 
 I need time to comprehend this whole thing.
+
+
+[Update](https://www.reddit.com/r/nosleep/comments/wuw6n5/my_hometown_of_torsney_went_dark_update/)
