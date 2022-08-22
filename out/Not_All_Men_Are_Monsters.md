@@ -1,0 +1,37 @@
+Most women these days are well-acquainted with that sneaking suspicion that they are being followed. That creeping dread that starts on the back of our necks and slides like cold water down our spines. It makes our hearts beat faster, makes our eyes dart nervously from side to side. We jerk our heads over our shoulders, praying we won’t see anyone behind us. Sometimes we’re lucky and there’s no one there. But tonight, when I look behind me, there’s a man. 
+
+ The glance I get of him is brief, but it sets off a dim spark of recognition in my brain. I’m sure I’ve seen him before. Perhaps earlier tonight, in the nightclub… yes, that’s it, I remember now. He tried to hand me a drink and I wouldn’t take it. He didn’t appear particularly frightening earlier under the bright fluorescent lights, but out here the dim, flickering street lights give him a different look altogether. The shadows on his face seem darker, his frame larger. 
+
+ I begin to walk a little bit faster. Although I’ve always been wary of walking home by myself, I’ve never been afraid before. Ahead of me, the road branches off in two directions: the first is a narrow stretch of tarmac with no sidewalk and leads towards a cluster of brightly-lit apartment blocks, in one of which my own residence lies on the third floor; the other stretches towards the old industrial park, abandoned and shrouded in darkness. I quicken my step, glancing up regularly towards the assurance of safety that the apartments seem to promise. I reach into my bag and draw out my front door keys, clutching them tightly between my fingers. Then I look up. 
+
+ The man has crossed the road and is quickly approaching the turn-off towards the apartment complex. For a brief second, I think I’ve been overreacting, that the only reason he was behind me at all was because we’re going to the same buildings. That suggestion is crushed almost immediately, when he comes to a stop just at the start of the road and turns around, half-facing towards me. The realisation hits me like a freight train: *I have nowhere to go*. I can’t go home without passing by him at arm’s length. My steps slow and then halt altogether as I stand with my keys dangling uselessly from my hand. 
+
+ Under the glow of the streetlight, he smiles. 
+
+ So I do the same thing that any woman in my situation would do. I run. 
+
+ The way I see it, I have two options: I can go back the way I came, back towards the city center with its countless dark alleys and drunken wanderers and no way to get myself home, or I can go towards the industrial park. It will be dark, but at least he won’t be able to see me. If I go in there, there’s a chance I can lose him. I’ve walked it in the daylight before and I know that there’s a path on the other side that loops back around towards my apartment building. All I have to do is reach it. 
+
+ The decision is made in a split-second as I turn towards the cluster of warehouses, high-heeled feet slamming hard into the concrete with every step. I don’t need to turn over my shoulder this time to know that he’s following me. I can hear his footsteps thundering on the ground behind me, keeping pace with me easily. 
+
+ At the speed I’m running, I reach the industrial park in a matter of moments, ducking through the open gate that hasn’t been closed since the place was abandoned years ago. I dart past empty warehouses and broken containers, covering ground faster than I ever thought I could. But it’s difficult to see in the dark and, when I make a sharp turn down the side of a corrugated building, I realise quickly that I’ve hit a dead-end. Behind me, his footsteps begin to slow. My blood rushing rapidly through my veins, I press myself up against the wall, hoping and praying that he won’t see me standing there. I can hear the pounding beat of my own heart, even louder in my ears than his heavy footsteps drawing nearer. He takes a step into the alley, then another. I hold my breath, preparing myself to move, but something, some noise, betrays my position. He turns around sharply, eyes landing irrevocably on me, and I start. 
+
+ ‘What’s wrong, sweetheart?’ There’s a dark humour in his voice, a joke that only he finds amusing. 
+
+ His lips turn upwards into a sinister smirk, narrowed eyes full of menacing intent. He takes a step towards me, advancing with the kind of confidence that comes from knowing that he is much bigger than I will ever be. He’s close enough now that he could reach out and grab me, but he doesn’t try just yet, seemingly revelling in the feeling of control that must be filling his head. He doesn’t seem to realise that he is standing at the back of the alley and I at the entrance.
+
+ My mouth falls open. He must think I am about to scream, because he lunges forward and clamps his hand hard over my mouth, pushing me into the wall. With his other hand, he starts to fumble with his belt. If he were thinking with his head and not another part of his anatomy, he might have felt my lips curl into a smirk of my own beneath his palm, but it must escape his notice. 
+
+ A split-second later he takes a stumbling step backwards, clutching his hand to his chest. Or, at least, he clutches what *used to be* his hand, though I doubt it resembles anything like one now. 
+
+ I raise my own hand to my face and wipe my mouth, smearing dark red across the back of my palm. A droplet of liquid rolls down from my lips and drips off my chin, splattering onto the front of my dress and staining the pale fabric crimson. My tongue darts out to catch the rest, the sharp metallic taste bursting through my mouth.
+
+ He stares back at me with wide eyes that have suddenly lost their menacing glint, frozen like a deer caught in headlights… but no. No, the fear that contorts his face is not the fear of a deer; it’s the fear of a woman caught in an alley with a predator. He’s never been on this side of it before.  
+
+ I smile at him now, a flash of too many perfect bloodstained teeth. His breath hitches, the gory mess of splintered bone and minced flesh that was once his groping hand trembling visibly. I take a step towards him and he whimpers. In the pale glow of moonlight, I see tears glistening beneath his eyes. Frankly, I don’t know what he’s so upset about. This is, after all, exactly how he wanted it: dark, out-of-the-way, no one around to hear any cries for help. *He’s asking for it.*
+
+ I open my mouth, hearing as well as feeling the sharp *crack* of bone as my jaw dislocates, stretching wider and wider. Teeth, strong and serrated, pierce through my gums and the roof of my mouth and slide down to surround the neat and useless human incisors that I’ve forced myself to get used to. My tongue slithers out from between my red lips, elongating until it wraps around his neck and squeezes, drawing him close. He struggles in vain because, for once in his life, being a large strong man won’t be enough to get him what he wants. It won’t be enough to save him. I don’t give him the chance to scream either. I just lunge forwards and sink my teeth into his shoulder, feeling the flesh separate beneath my mouth. 
+
+ I don’t feel at all guilty about it. After all, if he wasn’t comfortable with the chance of something horrible happening to him, he shouldn't have gone out tonight. It’s as simple as that. Isn’t it?
+
+*It’s true what they say,* I think to myself later as I’m picking a vein from between my teeth. *Not all men are monsters. But some women are too.*
