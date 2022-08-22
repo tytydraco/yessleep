@@ -1,0 +1,35 @@
+"Don't Come Down Here Don't Don't Come Down Here Don't Don't Come Down Here Don't -"
+
+This  message was repeatedly sent out in a way none of us would have ever  expected. This message was sent out a couple of times a month and would  last a little over 3 hours. We were absolutely astonished to discover  this message was being sent from the bottom of The Mariana Trench.
+
+Some of you reading this might be curious about what exactly The Mariana Trench is?
+
+For  those who do not know, The Mariana Trench is the deepest known part of  the ocean. Stretching down 7 miles, is rather quite fascinating since  there are plenty of mysteries to what is down there. Some people believe  there are to be creatures of unknown horror waiting down below in it,  one of my personal favorites is the anglerfish.
+
+Around  about a year ago, we started receiving signals from somewhere at the  bottom of the trench Stating " Don't Come Down here" on repeat. This msg  would only be sent out a couple of times a month for about a little  over 3 hours. These messages did not change though and we watched for a  couple of months because we didn't know how to handle the situation.  That was until something came to the surface. A metal ball came up  above, we sent out a team to go investigate and retrieve the unknown  object, to our amazement it was a capsule. Inside contained a radio  mechanism, which we believed to be sending out the signal.
+
+This  discovery was amazing to us. We had never been able to send anything  down to the bottom of the trench. The material this ball was made out of  was an absolute breakthrough to all of us, its ability to withstand  pressure was mind-blowing. It kept any object from inside from being  affected. We ended up calling this "(#(@\*#)!#@". This wasn't the only  one that we found that had reached the surface of the water.
+
+We  had a team specialized in collecting "(#(@\*#)!#@". Our plan was to find  a way to send something down there to maybe communicate to whoever was  ever sending these messages or at least provide us with video evidence  of what's down there. Our thoughts were that if the messages were  telling us to not go down there we should send down some sort of machine  that would be able to scan the area of the bottom of the trench because  if something was safe to go up we assumed it would be safe to send back  down.
+
+It took us a couple of  months to actually make a machine that would be able to send us video  from all the way down there and to make sure there were ways to  communicate back to anything if we found any signs of intelligent life,  which shouldn't be a problem since we were being communicated too first.  We loaded the machine onto a ship and everyone got ready to see what  was down there. We waited for the time that the original balls rose to  the surface, before sending them down. We assumed there could be some  problem since it was only happening a couple of times a month. We were  taking every precaution since "(#(@\*#)!#@" could only be found through  the balls rising to the surface.
+
+It  took a couple of days to be absolutely sure since most of the team were  skeptical and believed that sending something down there could awaken  something that we were not supposed to see. Threats from the higher-ups  made them reconsider their beliefs on the subject. After that, we were  ready to send it down. It had a built-in camera that was able to see  through the material since it was almost see through. We sat in our boat  watching monitors showing the images being received from the device. A  member of the crew dropped it into the water starting descent on this  7-mile journey.
+
+We watched as we  made it past 1000 meters then 2000, 3000, 4000, and so on we discovered  that the trench was way deeper than anyone could have ever imagined.  Nothing crazy started happening. We did see what appeared to be fish we  hadn't discovered yet that fascinated us. They appeared to look like  giant snakes with fins and could be found 20k Meters down. They didn't  pay any mind to us, which didn't come to us as a surprise though since  objects similar to ours have been reaching the surface frequently.  Besides that, there was nothing out of the ordinary. That wasn't until  we made it past 50k meters.
+
+We  lost all visuals until we reached about 90k meters. The audio we  received though was incredibly strange. We could hear some type of  unknown creature swimming all around the machine, and what could only be  described as loud screeches and roars. When we did finally get back on  our visuals all we could see were massive creatures. They were too far  out of view due to the limited distance we could see while we descended.
+
+Once  we started seeing these creatures, a good chunk of the crew that was  skeptical in the first place and didn't want to go down there were  granted permission to leave. Who could actually blame them? We were  above all of them like sitting ducks. We didn't know anything having to  do with the nature of these creatures. We were only ever able to get a  good look at some sort of eyeball that was blinking off in the distance.  It was massive. We were fascinated and wanted to get a better look but  we were afraid if we went any closer to it our mission would fail if it  attacked the machine making our time going down a waste of time.
+
+95k meters, 100k meters...
+
+We  reached 100k meters. We were amazed at how deep the trench actually  was. Way deeper than anyone could have ever expected. We were so excited  until we all stopped and noticed a light. It was so bright. We went  closer, and closer to it until we broke through it. It was the surface  that was unthinkable. How could we have reached the surface? One of the  crewmembers we got to check to see if it was outside because from what  we could see was our boat, he quickly came back to let us know that  nothing was there. We had already realized this because where he would  have been able to see the machine we would have been also able to see  him.
+
+The machine began to shake  and the visuals turned off. All we could hear were the sounds of some  creature screeching, a sound of an alarm, and a voice. This voice came  from what sounded to be some sort of speaker " You Should Have Listened  There Is Nothing We Can Do To Help You Now"
+
+After  that, we lost all connection with the machine, but just beforehand a  mass signal came from it that we managed to receive. It stated " We told  you to not come down here, there is nothing we can do for you. They  didn't know it was that deep. We can't help you now."
+
+We  had no idea what this message meant for us. We didn't know that the  trench was that deep? Our group has been stationed farther away from the  trench but we have been receiving distorted audio of what sounds like  screeching from deep within the trench, but the sound has been growing  louder by the day.
+
+I Wish We Didn't Receive Those Messages. I know nothing but that I'm afraid.
