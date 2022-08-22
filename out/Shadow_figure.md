@@ -1,0 +1,19 @@
+When my older sister and I were about 13-12 yrs old and our autistic little brother 8 yrs old, our mom was pregnant with our little sister. It was a high-risk pregnancy and a very difficult labor that resulted her staying in the hospital for a week and in labor for 3 days. 
+
+During her time in the hospital our grandfather was very sick in hospice and we already knew that he wouldn't have been able to see his new granddaughter. He passed two days after she was born.
+
+My mom ended up having a cesarean and was home with my little sister 4 days after the surgery. But she came back stressed out and eyes all red from crying nonstop. 
+
+After enough pestering she finally tells me that after the C-section the doctor was stitching her up, she saw a shadow figure so tall that it's back touched the ceiling and was looming over my little sister in the small bed they had put her in. My mom was getting hysterical and hyperventilating while telling me everything, she was scared that it followed them home because my dad had seen the same exact figure in the rear view mirror when he picked up my mom and sister from the hospital.
+
+My dad, grieving over the loss of his father, just brushed it off as his guilty conscience for not being there when he died. I want to say about a week after his funeral, I had seen a tall shadow figure in the doorway to me and my older sister's shared bedroom. I immediately turned over to face my sister, she was wide eyed looking at me and quietly shushed me and mouthed "don't move". Once it was gone she jumped out of bed and ran to switch the lights on. After a long pause of silence to process what the hell was just stalking us from our doorway, we hear our baby sister crying and screaming.
+
+My sister and I run to my parents room and our mom was holding our sister and yelling for our dad to check the closet. He was rummaging through the closet with a flashlight and a baseball bat. He's insisting there's nothing in there but mom is telling him that she saw it run in the closet and the door slam. Everyone in the house on edge and mom not feeling safe in her own room the whole family piled into me and my sister's room and we slept in the same room for a week until mom said she's okay with going back to their room. 
+
+Fast forward to a few days later, my sister and I are sleeping when the blanket is dragged off of us and onto the floor. I wake up and realize. As I'm trying to wake my sister she starts crying in her sleep and I'm shaking her awake until she finally snaps out of it. She starts crying more and telling me that it's in our room, then our door slams with a really loud bang and we both start screaming for our dad who tears the door open and runs in with the bat. He immediately checks the windows in our room, then under the bed and the closet. 
+
+Then our little brother starts seeing the same thing in the bathroom mirror and he begins to wet the bed. So he slept in our room and my sister and I would take turns to walk him to the bathroom at night. This goes on for 5 months until he gets use to it like we all did. My little sister has seen it a few times, she's pretty aware for a 10 yr old. My little brother now 17 yrs, tries to ignore the thing he sees from the corner of his eye he never looks directly at it, all he says it "walks like a baby deer and looks gray" 
+
+All six of us have seen or even touched this thing. It taunted and traumatized us for 7 years until we moved to a new apartment. My older sister and I are now 23&22 yrs and we live in a different apartment. But I think I brought something with me from our old apartment. A silent shadow figure that just stands in the corner of the living room. It doesn't make a sound, doesn't move and it never taunts. It's like it just observes. But I don't think it's harmless.
+
+This is just my experience and it's kind of an ongoing one.
