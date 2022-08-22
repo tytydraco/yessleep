@@ -26,9 +26,9 @@ While the first part had made sense, the contract became more strange as I conti
 
 If the massive amount of land and patrol detail wasn’t strange enough, our delivery schedule sealed the deal. We only made one massive delivery each year. Shipments would arrive during the first eleven months. The remaining month before delivery would be spent preparing everything for the move and daily equipment inspections to ensure nothing malfunctioned.
 
-Strangest of all, the delivery would be made within the twenty-five square mile compound. 
+Strangest of all, the delivery would be made within the twenty-five square mile compound.
 
-A non-disclosure agreement was attached to the back. While I had assumed the majority of the envelope contents would be a job description, the NDA took up the bulk. In it, I was informed that the location, nature of our work, contents of the warehouse, and nature of our clientele were to remain secret. 
+A non-disclosure agreement was attached to the back. While I had assumed the majority of the envelope contents would be a job description, the NDA took up the bulk. In it, I was informed that the location, nature of our work, contents of the warehouse, and nature of our clientele were to remain secret.
 
 At the end of the NDA where I expected to see the financial penalties, I was shocked to see that any breach of contract was punishable by a lengthy term in federal prison.
 
@@ -96,13 +96,13 @@ Before I could wrap my mind around the strangeness of the message, yellow cautio
 
 The young woman in the seat beside me didn’t speak, but shot her hand across the cab of the truck and grasped mine. I squeezed hers in return.
 
-A quarter mile down the hill, a faint circle of light appeared. From this distance, it looked no larger than the diameter of a swimming pool. The ring of illumination began to pulse rapidly. As the intensity grew, the circle began to expand as it became taller. 
+A quarter mile down the hill, a faint circle of light appeared. From this distance, it looked no larger than the diameter of a swimming pool. The ring of illumination began to pulse rapidly. As the intensity grew, the circle began to expand as it became taller.
 
 Waves of light and intense vibrations filled the field. The entire complex was bathed in the glow from the massive anomaly that appeared before us. I could feel the truck beginning to rumble and the ground below us quaked.
 
 The light became blinding. It was so strong it seemed to blast between the fingers of my hand as I held it in front of my face. I braced myself for an explosion or shockwave, but to my surprise, everything remained silent. The light faded and the vehicle sat still.
 
-Pulling the hand away from my eyes and letting the young woman’s hand drop, I marveled as I gazed through the windshield of the cab. 
+Pulling the hand away from my eyes and letting the young woman’s hand drop, I marveled as I gazed through the windshield of the cab.
 
 A massive platform covered the field at the bottom of the hill from the warehouse. Towering stadium lights blanketed two colossal warehouses perched on the edge of the platform nearest to us. Beyond the huge metal buildings, I could see water towers, neat rows of tiny houses, and a few taller buildings that resembled lecture halls from a college campus.
 
@@ -175,3 +175,5 @@ The five of us squatted low and moved to the large window in the front of the li
 Scanning the barrel from side to side, there was no sign of the reported hostile. In the doorway directly across the street from our position, I could see a body dressed in Kevlar, still clutching its M4 across its chest. At first, I thought they were dead but I was startled when they turned their head to meet my gaze. A shaking hand lifted in the air and reached out toward me.
 
 Before I could give the order to move to the occupied house, a massive white claw came from beyond the doorframe and sank itself into the crewman’s chest. Their arm spasmed as blood erupted from their mouth. The claw retracted and dragged the body out of sight. Screams again filled the air followed by a triumphant roar that [rattled my bones.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
+
+[\[Final\]](https://www.reddit.com/r/nosleep/comments/wv3mf5/i_work_for_a_warehouse_that_makes_deliveries_to_a/)
