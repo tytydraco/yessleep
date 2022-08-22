@@ -6,7 +6,7 @@ I’m a forensic pathologist and I worked my ass off to get here. Damn proud of 
 
 You see I don’t really have a problem with that, the dead are dead. I find that being able to provide closure to the families of the deceased is fulfilling: you don’t know how much of a long way just being able to provide a “why” to the death of a daughter, a mother, a son, a father, goes. And that’s what I do. 
 
-The only real issue with the place is It hasn’t seen a fresh paint job in at least 100 years, so everything is a bit dated. It also has that constant smell of formaldehyde which I can only describe as burnt vinegar- but the place provides for the job and that’s all that really matters. 
+The only real issue with the place is it hasn’t seen a fresh paint job in at least 100 years, so everything is a bit dated. It also has that constant smell of formaldehyde which I can only describe as burnt vinegar- but the place provides for the job and that’s all that really matters. 
 
 My day usually starts with a body. I perform the autopsy, examine it, do the paperwork, CT scan. This means I usually spend at least half the day in the morgue, and the rest of it in the opposite room separated by a hallway and double doors. 
 
