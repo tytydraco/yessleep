@@ -1,5 +1,3 @@
- 
-
 I’m  writing this document as part of my psychotherapy ‘homework’ assigned  by my school’s counselor, Dr. Lauda. It’s supposed to stay between me  and her, but I’m posting it here because…
 
 \-----------------------------------------------------------
@@ -123,3 +121,5 @@ The Creep game is real.
 Two bracelets gleamed in the dim candlelight. Between them, a bronze lid.
 
 *Where was the lighter?*
+
+[Part II](https://www.reddit.com/r/nosleep/comments/wuylv6/we_played_creep_in_an_abandoned_apartment_complex/)
