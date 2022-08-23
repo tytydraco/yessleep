@@ -24,7 +24,7 @@ I lifted the bound menu and flipped to the beverages section.
 
 “I can’t get it out” a voice pleaded from the kitchen. “I can’t get it out, I can’t get it out.”
 
-“Excuse me for one second,” the bearded hostess—or perhaps owner—spoke to me in an apologetic tone before quickly walking off, through the doors to the kitchen.
+“Excuse me for one second,” the bearded host—or perhaps owner—spoke to me in an apologetic tone before quickly walking off, through the doors to the kitchen.
 
 Words tinged with anger and concern came from the kitchen and that deep, unshakeable dread came back over me in a wave. The menu shook in my hand and I had to place it down. I had to stare at the words on the page in a vain attempt to distract me from the unseen panic and yelling coming from the kitchen door.
 
