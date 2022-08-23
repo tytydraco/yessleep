@@ -111,3 +111,7 @@ In seems I had some bone fissure, but not really broken. A splint was necessary,
 &#x200B;
 
 So, I am thinking in going back to that house, to that area of forest. Perhaps not alone, perhaps prepared, but go there nonetheless. Perhaps I am mad, perhaps my mind is poisoned by her siren-like abilities. Yet, the longing is still there and I may find no other chance during my lifetime. And this longing to stay with me for the long decades of the life to come. Yes, I may have a horrific death. I am willing to take the risk. So, what do you think? Shall I go for it? What would you do, if you were in my shoes?
+
+&#x200B;
+
+Update: This is what happened next. I tried to make a contact with Ramona again, this is how it went: [https://www.reddit.com/r/nosleep/comments/wv48es/be\_careful\_on\_prostitutes\_in\_bucharest\_they\_might/](https://www.reddit.com/r/nosleep/comments/wv48es/be_careful_on_prostitutes_in_bucharest_they_might/)

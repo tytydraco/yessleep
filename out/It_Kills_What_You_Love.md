@@ -122,7 +122,7 @@ I opened the door and there she was. My little Zoe, laying in the bathtub. Motio
 
 I couldn’t bear to see it, I turned to the sink and there he was, Walter, staring back at me in the mirror. His friendly face now twisted into a sinister grin.  
 
-Walter had done this. Walter did this Detective. I couldn’t do this. Not to my own daughter. She was my life.
+Walter had done this. Walter did this. Detective, I couldn’t do this. Not to my own daughter. She was my life.
 
 “Amanda, Walter couldn’t have done this, the person you’re describing has been dead for 50 years and no one alive right now shares his family name.”
 
