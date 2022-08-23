@@ -45,3 +45,5 @@ I  stay on the phone with my mom as my dad calls Lyft to report the driver until
 Coincidentally my Lyft takes the same on-ramp I had ran across and I look over to see the car is gone. This all but confirmed my suspicion that he was having no engine trouble whatsoever. I then, as calmly as I can, ride back to my house and explain what happened to my roommates. 
 
 I’m not sure if I was over reacting but I’m glad I aired on the side of caution.
+
+Edit: The worst part, since he was driving me to my house, he knows my address…
