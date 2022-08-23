@@ -161,7 +161,7 @@ We pull as hard as we can. With a horrid metal shriek, the door slowly creaks op
 Back up the waterway, I hear an inhuman howl, and hear the splashing of countless feet.    
 “GO!” Haley yells, practically shoving me through the door. She tumbles in behind me, and we grab the door again, desperately pulling it shut as the footsteps approach.  
 With a heavy “thunk”, the door slams shut. Mere instants later, a series of wet splattering sounds pound from the other side of the door as the zombies slam repeatedly against it.  
-I let out a breach I didn’t know I was holding, as Haley sinks to her knees.  
+I let out a breath I didn’t know I was holding, as Haley sinks to her knees.  
 “I really hope that door holds.” Haley mutters.  
 “I really hope my phone is okay.” Yes, my priorities are terrible. I know. Life and death situations make your brain work weird.  
 We sit there in silence for several minutes. Eventually, though, we both force ourselves to stand.  
