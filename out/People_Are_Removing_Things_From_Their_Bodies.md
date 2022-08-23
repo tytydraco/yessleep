@@ -1,4 +1,4 @@
-It rained harder than I can recall yesterday. A flood ran down Oak street, gushing over my sneakers, leaving me with soggy socks as I splashed through the cold, pelting drops. I made it to an awning of a coffee shop to wait out the downpour and glanced in the window. My eyes immediately locked onto those of a woman in her twenties with an odd smile on her face. She was staring directly at me while fidgeting with her arm. I was about to look away instinctually but I felt a wave of dread ripple up my neck as soon as I saw her red fingertips. They were glossy and red with fresh blood.
+It rained harder than I can recall yesterday. A flood ran down Oak street, gushing over my sneakers, leaving me with soggy socks as I splashed through the cold, pelting drops. I made it to an awning of a coffee shop to wait out the downpour and glanced in the window. My eyes immediately locked onto those of a woman in her twenties with an odd smile on her face. She was staring directly at me while fidgeting with her arm. I was about to look away instinctually but I felt a wave of dread ripple up my neck as soon as I saw her fingertips. They were glossy and red with fresh blood.
 
 My eyes were pulled to the woman’s arm, tattooed with some now unrecognizable image as it flapped openly and jiggled from torn flesh. I lost my breath and everything else seemed to mute. The man at the counter, the person in line for the bathroom. This woman was staring at me with a quivering smile as she scratched furiously away, rending her flesh and spattering the countertop with amassing droplets of crimson.
 
@@ -6,7 +6,7 @@ I turned away, trying my best to see anything but that. I heard the muffled clam
 
 Voicemail. I sent a text. 
 
-Love you babe, just saw something awful and I’m in a bad headspace. Text me when you can.
+*Love you babe, just saw something awful and I’m in a bad headspace. Text me when you can.*
 
 I walked into the dimly-lit vestibule, then into the empty dining area. My hands were shaking and I nearly jumped when the hoarse voice of a man called to me from my left.
 
@@ -42,7 +42,7 @@ Suddenly all fear and anxiety focused away from the horrors around me onto the f
 
 I spotted a few rocks by the edge of the sidewalk. Only remember the vibrations in my skull as I ground my teeth upon the rocks with my jaws. I remember the pain and the pain subsiding, nothing else. When I regained awareness, I was on all fours, staring down at fragments of my own shattered teeth. Among the debris I saw the small metal fillings that had been the most threatening thing to my survival just moments earlier. It was over.
 
-Sixteen people died from self-inflicted wounds, and the reports have been flooding the news cycle of dozens of more cases of self-mutilation throughout our town. People ripped surgical screws from bone, hip replacements, fillings and in one instance, a metal plate from one's own skull before the individual died. There rain had brought something in that day, of that I am positive. Some instinctual and overwhelming urge to purge our bodies of foreign objects.
+Sixteen people died from self-inflicted wounds, and the reports have been flooding the news cycle of dozens of more cases of self-mutilation throughout our town. People ripped surgical screws from bone, hip replacements, fillings and in one instance, a metal plate from one's own skull before the individual died. The rain had brought something in that day, of that I am positive. Some instinctual and overwhelming urge to purge our bodies of foreign objects.
 
 I’ve been in the process of researching dental implants before I even consider returning to work. My mouth is a mess of shattered nubs of teeth, and I’ve been taking pills to cope with the pain. Laura has been doing her best to care for me, luckily she seems fine and unaffected. I just hope answers come out soon and the death toll slows as I continue to search for answers that seem impossible to find.
 

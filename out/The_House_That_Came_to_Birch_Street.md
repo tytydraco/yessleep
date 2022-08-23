@@ -237,3 +237,5 @@ I texted Mason to meet me there. No response. The text went unread.
 One hour later, I was still waiting under streetlights. He never came. I finally gave up and walked home.
 
 Mason wasn’t waiting for me there, either. He never even texted me back. [It was like the house swallowed him whole.](https://www.reddit.com/r/Rick_the_Intern/)
+
+[Two](https://www.reddit.com/r/nosleep/comments/wvvykr/a_house_moved_in_at_the_end_of_the_block_and_i/)
