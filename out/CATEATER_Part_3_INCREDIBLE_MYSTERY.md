@@ -179,3 +179,5 @@ Just like on the night of the party, I just froze and didn’t know how to react
 &#x200B;
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/wsl816/cateater_part_4_what_to_do/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/ww1j0b/cateater_part_5_solution_found/) 

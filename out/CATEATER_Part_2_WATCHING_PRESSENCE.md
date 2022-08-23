@@ -265,3 +265,5 @@ I smiled and he left. As I turned around, I remembered that I had to climb the g
 [Part 3](https://www.reddit.com/r/nosleep/comments/wq36yo/cateater_part_3_incredible_mystery/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/wsl816/cateater_part_4_what_to_do/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/ww1j0b/cateater_part_5_solution_found/) 
