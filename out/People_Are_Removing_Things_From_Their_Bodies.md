@@ -18,7 +18,7 @@ I walked into the dimly-lit vestibule, then into the empty dining area. My hands
 
 I was nauseated by the thought of food but needed to collect myself. Some tea might help calm my nerves.
 
-“For here, please. Thanks” I barely breathed the words. I took a few deep breaths to try and regain my composure. I followed the short, bearded man to a booth, only then realizing it was an Indian restaurant from the smell of curry. He led me to a table by the window. Flashing red and blue lights scattered on the wet street out the window. EMTs must be attending to the self-harming individual.
+“For here, please. Thanks” I barely was able to get out the words. I took a few deep breaths to try and regain my composure. I followed the short, bearded man to a booth, only then realizing it was an Indian restaurant from the smell of curry. He led me to a table by the window. Flashing red and blue lights scattered on the wet street out the window. EMTs must be attending to the self-harming individual.
 
 I lifted the bound menu and flipped to the beverages section. 
 
@@ -34,7 +34,7 @@ I stumbled to the entrance of the restaurant. I stepped out into the dying rain,
 
 “I…I almost have it. I alm-most have it” 
 
-Rain drenched my clothing through, but no cold water could sober me as I watched the man relax still, dead where he lay. I ran fast and far through the downpour. Street signs and passerbys blurred as I ran. I pretended not to see the bloody child and the screaming mother on the other side of the street and I ran.
+Rain drenched my clothing through, but no cold water could sober me as I watched the man relax still, dead where he lay. I ran fast and far through the downpour. Street signs and pedestrians blurred as I ran. I pretended not to see the bloody child and the screaming mother on the other side of the street and I ran.
 
 Sirens echoed and wailed and I felt them in my teeth, as peculiar as it seemed. It felt like when a toothpick gets lodged in between your front teeth and your tongue flicks away at it eager to get it out, but far more intense. And it wasn’t my front teeth my tongue was poking away at but my back teeth. My molars.
 
