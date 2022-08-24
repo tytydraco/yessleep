@@ -117,3 +117,7 @@ But the nightmare had just [begun.](https://www.reddit.com/r/JGcreepypastas/comm
 [Part One](https://www.reddit.com/r/nosleep/comments/wtcppl/my_stepbrother_taught_me_a_four_letter_word/?utm_medium=android_app&utm_source=share)
 
 [Part Two](https://www.reddit.com/r/nosleep/comments/wu67dr/my_stepbrother_taught_me_a_four_letter_word_part_2/?utm_medium=android_app&utm_source=share)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/wv5vkm/my_stepbrother_taught_me_a_four_letter_word_part_3/?utm_medium=android_app&utm_source=share)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/wwt9h7/my_stepbrother_taught_me_a_four_letter_word_part/?utm_medium=android_app&utm_source=share)

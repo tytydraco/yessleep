@@ -365,3 +365,6 @@ He told me it was time to go, that the medics were about to leave and that he ha
 
 
 Well, here goes something…
+
+
+[Final](https://www.reddit.com/r/nosleep/comments/wwsrwr/my_hometown_of_torsney_went_dark_final/)
