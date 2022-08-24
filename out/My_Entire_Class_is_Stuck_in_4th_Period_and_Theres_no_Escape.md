@@ -15,4 +15,6 @@ UPDATE 2: The door appears to close itself once the teacher gets in, with no sto
 
 UPDATE 3: After a tip from the comments of this post, someone tried to push a chair in front of the door. It literally just crushed it with no delay. The tip also suggested using a foot, but I think not after this failed experiment. There appeared to be no damage to the door. Pushing the teacher out also appears to be ineffective, as neither him nor the door appear to be affected by anything until after the door is shut.
 
-UPDATE 4: We decided that me and another kid, Jerry, are going to be sent out. It was simply because we are the closest to the door and will be able to get out first. I’ll definitely make another update in a little while after I process what just happened.
+UPDATE 4: We decided that me and another kid, Jerry, were going to be sent out. It was simply because we are the closest to the door and will be able to get out first. I’ll definitely make another update in a little while after I process what just happened.
+
+EDIT: In my panicked state I accidentally left out an important detail. At the beginning of each iteration, we are all teleported to our respective locations. (Students to their seats, and Mr. Johnson to right outside the classroom.)
