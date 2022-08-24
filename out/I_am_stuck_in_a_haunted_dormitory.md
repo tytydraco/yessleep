@@ -12,7 +12,7 @@ I roll my eyes. No one would fucking choose you if they knew the horror they are
 
 Every time. Every fucking time. It starts almost sickeningly sweet but it always ends up in eternal damnations. I am not even mad or terrified at this point, just fucking annoyed.
 
-*Every floor has its own Resident Assistant. Their phone numbers and other availabilities are written down at the end of this letter. They are here to guide you and answer any of your questions, but please be considerate of their time and needs, when reaching out.* 
+*Every floor has its own Resident Assistant. Their phone numbers and other availabilities are written down at the end of this letter. They are here to guide you and answer any of your questions, but please be considerate of their time and needs, when reaching out.*
 
 *The following list will present rules that you need to follow while living here. Some of them might seem a bit strange to some people, but I can assure you, that they are serious. Keeping them is never an option, but a must.*
 
@@ -130,7 +130,7 @@ If it is stupid enough, it will tell me its name and I can banish it back to Hel
 
 \- I am Lucifer’s second in command. - Lucifer would send his second in command to scare university students? I shrug. After all, Lilith is here. Maybe Hell lost its former glory and now its leaders are in need of a second job, just to pay the bills. I cannot stop myself, but imagining Satan as a cashier. - I am the world eater, Diavolo. You better remember that name, because you are going to shout it when I torture you in the eternal flames of Hell.
 
-Suddenly silence erupts. Poor guy. Probably had a lot of threats in store for me, but the limit cut him off. Despite the common knowledge, demons are different, even the same type has their own preference for human meat, torture methods, intelligence, favorite TV show, and so on. This one was not the sharpest tool in the shed and he is going to pay for it.
+Suddenly silence erupts. Poor guy. Probably had a lot of threats in store for me, but the time limit cut him off. Despite the common knowledge, every demon is different, even within the same type, each one has its own preference for human meat, torture methods, level of intelligence, favorite TV show, and so on. This one was not the sharpest tool in the shed and he is going to pay for it.
 
 &#x200B;
 
