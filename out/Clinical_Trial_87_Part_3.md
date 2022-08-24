@@ -2,6 +2,8 @@
 
 [Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
 
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
+
 Day three, same story.
 
 No Jasmine, new furniture. The noxious smell of fresh bleach.
@@ -167,3 +169,5 @@ The last thing I saw before sleep claimed me was the light slip out of Katarinaâ
 [Day 1](https://www.reddit.com/r/nosleep/comments/wtfxj2/clinical_trial_87_part_1/)
 
 [Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
+
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 

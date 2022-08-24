@@ -1,3 +1,7 @@
+[Part II](https://www.reddit.com/r/nosleep/comments/wuylv6/we_played_creep_in_an_abandoned_apartment_complex/)
+
+[Final](https://www.reddit.com/r/nosleep/comments/wwdgug/we_played_creep_in_an_abandoned_apartment_complex/)
+
 I’m  writing this document as part of my psychotherapy ‘homework’ assigned  by my school’s counselor, Dr. Lauda. It’s supposed to stay between me  and her, but I’m posting it here because…
 
 \-----------------------------------------------------------

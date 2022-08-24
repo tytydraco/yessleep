@@ -2,23 +2,31 @@ I sighed in relief. The dorm room is better than expected. It was not hard to ex
 
 The mattress squeaks as I place my weathered luggage on it. I guess discreet bed activities are out of the picture now. Before anything, I examine the room’s condition. I will be not held responsible for other people's damages. As I roam around the room - running my fingers along the walnut parquets that cover the wall, looking under the beds, opening the table's cabinets - I notice a paper attached to the inside of the front door.
 
-My stomach fills with anxiety. I really fucking hope it is not what I think it is. I strode to the door, rip off the note, and hurridly glance through it, looking for the typical words and phrases they use.FUCK. ME. That bitch lied to me!"I made sure that, you will only have to focus on your studies while at university." I imitated her voice in my head in a sarcastic tone. Explain this. I hit the paper and then defeatedly fall to the floor. For a minute I consider setting the list and the whole fucking building on fire, but I swallow the urge.  I take a deep breath, and a second one and a third one. Shit. This is my reality now, I better face it with the facts.
+My stomach fills with anxiety. I really fucking hope it is not what I think it is. I strode to the door, rip off the note, and hurridly glance through it, looking for the typical words and phrases they use.FUCK. ME. That bitch lied to me! "I made sure that, you will only have to focus on your studies while at university." I imitated her voice in my head in a sarcastic tone. Explain this. I hit the paper and then defeatedly fall to the floor. For a minute I consider setting the list and this whole fucking building on fire, but I swallow the urge.  I take a deep breath, and a second one and a third one. Shit. This is my reality now, I better face it with the facts.
 
 *Welcome to Silver River Hall! I am so excited that you choose Silver River Dorms for this semester to accommodate you.*
 
-I roll my eyes. No one would fucking choose you if they would know the horror they are going to face here. I shout it in my head.
+I roll my eyes. No one would fucking choose you if they knew the horror they are going to face here. I shout it in my head.
 
 *I hope you will enjoy your room and find your temporary home in it. I am sure you have noticed by now that every room is well equipped and both the furniture and the bathroom are in good condition. If not, let us know and we will fix it for you at no charge!*
 
 Every time. Every fucking time. It starts almost sickeningly sweet but it always ends up in eternal damnations. I am not even mad or terrified at this point, just fucking annoyed.
 
-*Every floor has its own Resident Assistant. Their phone numbers and other availabilities are written at the end of this letter. They are here to guide you and answer any of your questions, but please be considerate of their time and needs, when reaching out.The following list will present rules that you need to follow while living here. Some of them might seem a bit strange to some people, but I can assure you, that they are serious. Keeping them is never an option, but a must.*
+*Every floor has its own Resident Assistant. Their phone numbers and other availabilities are written down at the end of this letter. They are here to guide you and answer any of your questions, but please be considerate of their time and needs, when reaching out.* 
 
-*1) Keep noise at a tolerable level.Besides you, many other students live here, each one with different needs and schedules. Behave the way you expect others to treat you.*
+*The following list will present rules that you need to follow while living here. Some of them might seem a bit strange to some people, but I can assure you, that they are serious. Keeping them is never an option, but a must.*
 
-*2) Clean up the kitchen after using it.This includes washing your dishes, cleaning any spills, and taking care of leftovers in a timely manner.*
+*1) Keep noise at a tolerable level.*
 
-*3) Make sure, your guests follow the rules as well.Before having guests over, you have to fill out the official form - found at the reception hall - 24 hours before the stay and have to be approved by the Resident Director. While their stay you are responsible for them and any damage caused by them.*
+*Besides you, many other students live here, each one with different needs and schedules. Behave the way you expect others to treat you.*
+
+*2) Clean up the kitchen after using it.*
+
+*This includes washing your dishes, cleaning any spills, and taking care of leftovers in a timely manner.*
+
+*3) Make sure, your guests follow the rules as well.*
+
+*Before having guests over, you have to fill out the official form - found at the reception desk- 24 hours before the stay and have to be approved by the Resident Director. While their stay you are responsible for them and any damage caused by them.*
 
 *4) Do not answer your door if there is a knock between the hours of two and three in the morning. It might sound like your roommate has lost their key, the RA requesting an emergency examination of the room, but I can assure you it is never the case. Every drill and examination will be done during the daytime.*
 
@@ -52,7 +60,7 @@ Usually? Sounds promising. I am just going to use the stairs.
 
 The glory of Evil. Very creative, not at all boring. I have not seen it on every Satanist’s T-shirt. Maybe I will recommend them a more exciting name, once I bump into them. Satan and the mean guys of Hell. Satan and the soulless. The bloodied gang. Stop screaming my dad's name during sex. Maybe I should finish the list before my mind wanders too far away.
 
-*13) If you do not see your roommate for more than 24 hours, please inform your RA even if he/she has left you a note claiming to have gone home for the weekend. We have ways of verifying these things*
+*13) If you do not see your roommate for more than 24 hours, please inform your RA even if he/she has left you a note claiming to have gone home for the weekend. We have ways of verifying these things.*
 
 *14) The campus security officers’ first priority is the good of Silver River University and not your safety. This means that at times they may minimize your concerns or try to cover up things that happen on campus that would make the university look bad. With this in mind, you should first talk to a member of the residence life staff at Silver River Hall if you have any questions or concerns about your safety. We will protect you as best we can.*
 
@@ -60,9 +68,11 @@ The glory of Evil. Very creative, not at all boring. I have not seen it on every
 
 *Representative Director*
 
-Well, that was a handful. Nothing surprising or something I have not dealt with before, but I should not be so cocky. With these creatures, nothing is certain.I push myself from the ground and place the list on my roommate's bed. I hope she has strong nerves and common sense. I would hate to switch roommates so frequently. I look away from the paper and grab my wallet from my suitcase.  Instead of dooming my future in advance, I should ready myself for war. I need to make preparations for the wonderful journey I will have with demons and other shitfaced creatures.
+Well, that was a handful. Nothing surprising or something I have not dealt with before, but I should not be cocky. With these creatures, nothing is certain.
 
-The first night we heard the knocks. In the beginning, they were subtle almost as if like it did not want to wake us up. Once I realized the time, my natural annoyance took control. I just grabbed my headphones and blasted them with music, Christian rock to be specific. I do not know if it realizes the passive-aggressive message I am sending to it - they never seem to be aggravated by it - but it makes me feel fuzzy and warm inside, knowing that at least I can say fuck you in some way.I was so engrossed with loving Jesus, that when Rachel shook my shoulder I almost fell off the bed.
+I push myself from the ground and place the list on my roommate's bed. I hope she has strong nerves and common sense. I would hate to switch roommates so frequently. I look away from the paper and grab my wallet from my suitcase.  Instead of dooming my future in advance, I should ready myself for war. I need to make preparations for the wonderful journey I will have at Silver River University with demons and other shitfaced creatures.
+
+The first night we heard the knocks. In the beginning, they were subtle almost as if like it did not want to wake us up. Once I realized the time, my natural annoyance took control. I just grabbed my headphones and blasted them with music, Christian rock to be specific. I do not know if it realizes the passive-aggressive message I am sending to it - they never seem to be aggravated by it - but it makes me feel fuzzy and warm inside, knowing that at least I can say fuck you in some way. I was so engrossed with the song about loving Jesus, that when Rachel shook my shoulder I almost fell off the bed.
 
 \- What the fuck Rachel? - I press my palm to my heart, I feel it beating furiously.
 
@@ -82,7 +92,7 @@ She looks at me baffled. Almost as if she cannot decide whether am I just a tric
 
 \- If you have second guesses about me, pour some holy water on me. It is in my luggage under the bed.
 
-The knocking becomes pounding mixed with pretend-Raymond's deafening scream. We both jump. Those fuckers! Even Christian rock could not suppress these sounds
+The knocking becomes pounding mixed with pretend-Raymond's deafening scream. We both jump. Those fuckers! Even Christian rock could not suppress these sounds.
 
 \- Help me, please! - it cries desperately, clawing the door – They saw me and they are going to take me!
 
@@ -94,7 +104,7 @@ Rachel climbs into my bed and grabs my arm, her gaze fixated on the door.
 
 \- And I am going to watch Netflix. Looks like we both have our hands full for the night. -  I shout it at the door furiously.
 
-Rachel stops breathing for a second. I need to be angry, otherwise, I would fall into the endless pit of fear and despair.
+Rachel stops breathing for a second. I look at her apologetically but  I need to be angry, otherwise, I would fall into the endless pit of fear and despair.
 
 \- How can you be so cruel? I am begging…
 
@@ -104,7 +114,7 @@ Rachel stops breathing for a second. I need to be angry, otherwise, I would fall
 
 \- It is just a trick. - I place my arm in front of her. - I know. It sounds very convincing, but if you wait eight more minutes I will personally escort you to Raymond, to check on his well-being. Okay?
 
-I make her face me. She is one step from pissing herself, passing out, or both. I recognize my ten-year-old self in her. The same pale skin, heavy breathing, the almost floor-touching jaw drop, and the panicking eyes that desperately want to look away from the crime scene. My dad's solution usually consisted of giving me such a hard slap, that my jaw would actually land on the floor, along with the rest of my body, of course. Sometimes, in situations like this, I feel his punch on my cheeks. It keeps me grounded.Lucky for Rachel, I oppose the idea of hurting the innocent, so I just pull her in a hug and pet her back. Her long hold-back tears started to flow. I wish I could join her.
+I make her face me. She is one step from pissing herself, passing out, or both. I recognize my ten-year-old self in her. The same pale skin, heavy breathing, the almost floor-touching jaw drop, and the panicking eyes that desperately want to look away from the crime scene. My dad's solution usually consisted of giving me such a hard slap, that my jaw would actually land on the floor, along with the rest of my body, of course. Sometimes, in situations like this, I feel his punch on my cheeks. It keeps me grounded. Lucky for Rachel, I oppose the idea of hurting the innocent, so I just pull her in a hug and pet her back. Her long hold-back tears started to flow. I wish I could join her.
 
 \- You fuckers let me die! - Oh my god, it is not dead. Who would have thought?
 

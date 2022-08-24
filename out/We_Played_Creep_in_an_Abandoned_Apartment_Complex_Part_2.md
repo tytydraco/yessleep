@@ -1,14 +1,18 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/wtr00g/we_played_creep_in_an_abandoned_apartment_complex/) 
+[Part I](https://www.reddit.com/r/nosleep/comments/wtr00g/we_played_creep_in_an_abandoned_apartment_complex/)
 
- I need answers. The way Dr. Lauda looks at me, she seems almost.... excited.... to hear about my experiences. And she believes them all. That's good, right?
+X
+
+[Final](https://www.reddit.com/r/nosleep/comments/wwdgug/we_played_creep_in_an_abandoned_apartment_complex/)
+
+I need answers. The way Dr. Lauda looks at me, she seems almost.... excited.... to hear about my experiences. And she believes them all. That's good, right?
 
 \----------------------------------------------------------
 
 “Fuck,” I muttered. “Fuck, fuck fuck…”
 
-The Creep Game is real. 
+The Creep Game is real.
 
-I started looking around frantically for the lighter. 
+I started looking around frantically for the lighter.
 
 *The first candle went out.*
 
@@ -26,15 +30,15 @@ There was no response- but from the direction my name had been called, on the gr
 
 The lighter.
 
-“Hurry, dude!” Chris shouted. 
+“Hurry, dude!” Chris shouted.
 
 I took off running toward the lighter. It wasn't terribly far from our circle, but as I ran, the distance seemed to stretch out, and my nerves turned my legs to jelly. Frenetic thoughts swarmed my mind.
 
-*The game is real.* 
+*The game is real.*
 
-*The Creep game is real.* 
+*The Creep game is real.*
 
-*What if we lose?* 
+*What if we lose?*
 
 As I scooped it up and started hustling back, I could see another candle had gone out. Chris was staring at me urgently, as if willing me to run faster- meanwhile Mindy and Mandy were scouring the surrounding area.
 
@@ -56,9 +60,7 @@ It didn’t make any sense, but once I understood, I tried to open my eyes as wi
 
 “Can you guys see it?” I asked.
 
-“Keep looking,” Chris urged.   
- “But we can’t all look,” Mindy said.   
-“What if an offering disappears?” Mandy added.
+“Keep looking,” Chris urged.“But we can’t all look,” Mindy said.“What if an offering disappears?” Mandy added.
 
 I think. I couldn’t look to see who was who. Didn’t much matter—they were right. We couldn’t all look at every creep, lest we not notice that something was missing.
 
@@ -84,7 +86,7 @@ A heavy wind blew through the courtyard, kicking up all sorts of dust and debris
 
 The bronze lid was missing.
 
-“Lid, Lid!” I called to Chris. 
+“Lid, Lid!” I called to Chris.
 
 “What?” Chris opened his eyes, looking to me. “Oh fuck!”
 
@@ -98,7 +100,7 @@ We made eye contact over the offerings. I took it all in. The pale face of Chris
 
 &#x200B;
 
-Chris didn’t notice. I didn’t tell him. He must have seen the lid somewhere because he took off. I kept my eyes on the creep at the edge of our circle, watching as it paced slowly back and forth, back and forth. 
+Chris didn’t notice. I didn’t tell him. He must have seen the lid somewhere because he took off. I kept my eyes on the creep at the edge of our circle, watching as it paced slowly back and forth, back and forth.
 
 Something skittered across the ground behind me.
 
@@ -110,7 +112,7 @@ The creep in front of me stopped pacing and started to dance, swaying back and f
 
 “I won’t!” I called back. “Just keep your eyes on it!”
 
-There was another sound behind me, quiet and muffled, like someone muttering into the wind. But whoever or whatever it was, it wasn’t speaking. 
+There was another sound behind me, quiet and muffled, like someone muttering into the wind. But whoever or whatever it was, it wasn’t speaking.
 
 \-it was laughing.
 
@@ -118,7 +120,7 @@ In front of me, the creep I was watching slowly dragged its thumb across its thr
 
 “Ignore it,” Mindy said. “They are trying to throw us off.”
 
- “Are you watching the offerings?” I asked.
+“Are you watching the offerings?” I asked.
 
 “Everything’s here,” Mindy confirmed. "Everything but the lid." From the other direction I heard the huffing and puffing of Chris.
 
@@ -136,7 +138,7 @@ I breathed out, long and slow. I could practically feel the thumping of my heart
 
 “No, twenty!”
 
-“I lost count!” 
+“I lost count!”
 
 All our voices, coming from the creeps. Though there was still something off in their imitations, their voices were getting closer and closer all the time…
 
@@ -146,7 +148,7 @@ I ignored them, kept my eyes focused on our offerings. They couldn’t take them
 
 “Bracelets!” Chris shouted. “Both of them!”
 
-I guess not. 
+I guess not.
 
 The twins started off in opposite directions, toward lit rooms in the complex. Just me and Chris in the circle. Lid and lighter in the center.
 
@@ -162,8 +164,10 @@ The twins started off in opposite directions, toward lit rooms in the complex. J
 
 “Yeah, man, I—" Chris’ eyes widened as he realized what had happened.
 
-First, he began to choke. Then his skin turned pallid and gray, and he began shuddering in place like he was being electrocuted. I watched helplessly as a Creep stepped out of my shadow and walked over to him. The Creep looked back at me mockingly as it did the impossible. 
+First, he began to choke. Then his skin turned pallid and gray, and he began shuddering in place like he was being electrocuted. I watched helplessly as a Creep stepped out of my shadow and walked over to him. The Creep looked back at me mockingly as it did the impossible.
 
 It lifted its foot and slid it daintily into Chris’ open mouth, the way one might slip on a shoe- yet the leg slid in further and further, ankle, knee, hip all swallowed.
 
 “No!” I shouted, rushing at it. I tried to punch it, tried to grab it, but my fingers passed right through, leaving me with nothing but a sickly grainy feeling. It slipped its other leg in, then the torso, then the head. Then it was just Chris and I in the courtyard, along with a quiet, comfortable chuckle blowing around in the wind.
+
+[Final](https://www.reddit.com/r/nosleep/comments/wwdgug/we_played_creep_in_an_abandoned_apartment_complex/)

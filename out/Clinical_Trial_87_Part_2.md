@@ -1,4 +1,8 @@
-[Clinical Trial 87 (Day 1)](https://www.reddit.com/r/nosleep/comments/wtfxj2/clinical_trial_87_part_1/)
+[Day 1](https://www.reddit.com/r/nosleep/comments/wtfxj2/clinical_trial_87_part_1/)
+
+[Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
+
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
 
 We awoke on day two, the opiate fog still swirling in our heads.
 
@@ -162,4 +166,8 @@ The only thing I heard as the blackness stole me was Jasmine's whisper:
 
 I saw her fall over dead as I sailed away into the nothingness of sleep.
 
-[Clinical Trial 87 (Day 1)](https://www.reddit.com/r/nosleep/comments/wtfxj2/clinical_trial_87_part_1/)
+[Day 1](https://www.reddit.com/r/nosleep/comments/wtfxj2/clinical_trial_87_part_1/)
+
+[Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
+
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
