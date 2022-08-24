@@ -1,3 +1,13 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/v6r70p/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/v8eiul/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/vdl25g/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)
+
+[Epilogue](https://www.reddit.com/r/nosleep/comments/wubvew/an_ice_cream_truck_man_comes_by_every_night_at/)
+
 # Friday, 03:14 AM, July 6th 2012
 
 # The door swung open on its own.
@@ -265,15 +275,3 @@ Jack was resting on a chair, now fully humanoid. My mother was asleep next to hi
 “It was nice doing business with you, my dear. Nice try though.”
 
 And just like that, he got on his feet and walked out, closing the door behind him right as my mother stirred awake.
-
-&#x200B;
-
-[Part 1](https://www.reddit.com/r/nosleep/comments/v6r70p/an_ice_cream_truck_man_comes_by_every_night_at/)
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/v8eiul/an_ice_cream_truck_man_comes_by_every_night_at/)
-
-[Part 3](https://www.reddit.com/r/nosleep/comments/vdl25g/an_ice_cream_truck_man_comes_by_every_night_at/)
-
-[Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)
-
-[Epilogue](https://www.reddit.com/r/nosleep/comments/wubvew/an_ice_cream_truck_man_comes_by_every_night_at/)
