@@ -4,6 +4,9 @@ Selfharm
 Mentions of mental illness 
 Mentions of homophobia 
 
+[part 2](https://www.reddit.com/r/nosleep/comments/wwohza/hotel_of_horrors_part_2/)
+
+
 I'm starting to think it might be better that my last ex and I never properly cut things off. Alexavier and I were high school sweethearts, we dated for 8 years until our marriage was legal in 2015. Our rings were engraved with each other's names, I still wear that ring despite the years. Sometimes I find myself still calling Alexavier my husband rather than my ex. Even so, the grief is eating me alive. I can’t live like this any longer so I’m here to share my story, and maybe, just maybe, find some sort of answer. 
 
 

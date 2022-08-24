@@ -1,3 +1,6 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/wsmj1g/torsney_new_york_was_my_hometown_for_25_years/)
+
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/wuw6n5/my_hometown_of_torsney_went_dark_update/)
 
 

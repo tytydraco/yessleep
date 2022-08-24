@@ -1,3 +1,6 @@
+[Hotel of horrors part 1](https://www.reddit.com/r/nosleep/comments/wvi82c/hotel_of_horrors_part_1/)
+
+
 I don’t remember much of that night, we had to move all of the other guests to separate rooms and the police did a full examination of room 33. Alexaveir took over a lot of the talking, I was too shaken up to get any comprehensible words out. The police were there until night, eventually, they sat the two of us down and explained that the couple had left a suicide note. They were tired of watching each other wither away and wanted to preserve what they had, their solution to this was to kill each other. The police suspected they had been dead for 2 days. I did manage to tell them of the bangs we heard a couple of days prior. The police said it was most likely the gunshots. 
 
 
