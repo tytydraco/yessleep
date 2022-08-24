@@ -38,7 +38,7 @@ Rain drenched my clothing through, but no cold water could sober me as I watched
 
 Sirens echoed and wailed and I felt them in my teeth, as peculiar as it seemed. It felt like when a toothpick gets lodged in between your front teeth and your tongue flicks away at it eager to get it out, but far more intense. And it wasn’t my front teeth my tongue was poking away at but my back teeth. My molars.
 
-Suddenly all fear and anxiety focused away from the horrors around me onto the foreign objects skillfully molded within my teeth from my dentist’s hands. The fillings seemed to swell inside their dentin casing until pain shot out in agonizing, pulsing flashes. Never in my life had I felt an impulse so strong as mine to remove the source. Removing those metal fillings was paramount to my existence, and I plunged my fingers into my mouth, tugging away helplessly, eager to make the pain subside.
+Suddenly all fear and anxiety focused away from the horrors around me onto the foreign objects skillfully molded within my teeth by my dentist’s hands. The fillings seemed to swell inside their dentin casing until pain shot out in agonizing, pulsing flashes. Never in my life had I felt an impulse so strong as mine to remove the source. Removing those metal fillings was paramount to my existence, and I plunged my fingers into my mouth, tugging away helplessly, eager to make the pain subside.
 
 I spotted a few rocks by the edge of the sidewalk. Only remember the vibrations in my skull as I ground my teeth upon the rocks with my jaws. I remember the pain and the pain subsiding, nothing else. When I regained awareness, I was on all fours, staring down at fragments of my own shattered teeth. Among the debris I saw the small metal fillings that had been the most threatening thing to my survival just moments earlier. It was over.
 
@@ -46,4 +46,4 @@ Sixteen people died from self-inflicted wounds, and the reports have been floodi
 
 I’ve been in the process of researching dental implants before I even consider returning to work. My mouth is a mess of shattered nubs of teeth, and I’ve been taking pills to cope with the pain. Laura has been doing her best to care for me, luckily she seems fine and unaffected. I just hope answers come out soon and the death toll slows as I continue to search for answers that seem impossible to find.
 
-I did make the mistake of looking at the six-day weather forecast, however. My insides squirmed and that feeling of dread returned as I scanned the week ahead. It’s going to rain again Friday. It’s going to rain all day long.
+I did make the mistake of looking at the six-day weather forecast, however. My insides squirmed and that feeling of dread returned as I scanned the week ahead. It’s going to rain again Friday. [It’s going to rain all day long.](https://www.reddit.com/user/mrmichaelsquid/)
