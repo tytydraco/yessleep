@@ -30,7 +30,7 @@ Words tinged with anger and concern came from the kitchen and that deep, unshake
 
 “What the fuck is going on” I muttered to myself, hoping not to find out. A cracking sound from the kitchen stopped the bickering for only a second before the yells of horror began. Though it came from behind a closed door, I knew very well it was the sound of cracking bone.
 
-I stumbled to the entrance of the restaurant. I stepped out into the dying rain, glancing at a homeless man lying on his side under an awning. His eyes stared wide ahead at nothing and a wide, toothy smile was on his face. His right hand was splitting open his belly with a broken beer bottle, and his left hand was plucking out jiggling innards from the open wound. His aimless eyes wandered slowly to mine, and he spoke with a raspy breath that would be one of his last.
+I stumbled to the entrance of the restaurant. I stepped out into the dying rain, glancing at a homeless man lying on his side under an awning. His eyes stared ahead at nothing, though he had a wide, toothy smile was on his face. His right hand was splitting open his belly with a broken beer bottle, and his left hand was plucking out jiggling innards from the open wound. His aimless eyes wandered slowly to mine, and he spoke with a raspy breath that would be one of his last.
 
 “I…I almost have it. I alm-most have it” 
 
@@ -40,7 +40,7 @@ Sirens echoed and wailed and I felt them in my teeth, as peculiar as it seemed. 
 
 Suddenly all fear and anxiety focused away from the horrors around me onto the foreign objects skillfully molded within my teeth by my dentist’s hands. The fillings seemed to swell inside their dentin casing until pain shot out in agonizing, pulsing flashes. Never in my life had I felt an impulse so strong as mine to remove the source. Removing those metal fillings was paramount to my existence, and I plunged my fingers into my mouth, tugging away helplessly, eager to make the pain subside.
 
-I spotted a few rocks by the edge of the sidewalk. Only remember the vibrations in my skull as I ground my teeth upon the rocks with my jaws. I remember the pain and the pain subsiding, nothing else. When I regained awareness, I was on all fours, staring down at fragments of my own shattered teeth. Among the debris I saw the small metal fillings that had been the most threatening thing to my survival just moments earlier. It was over.
+I spotted a few rocks by the edge of the sidewalk. I only faintly remember the vibrations in my skull as I ground my teeth upon the rocks with my jaws. I remember the pain becoming everything before finally subsiding. Nothing else. When I regained awareness, I was on all fours, staring down at fragments of my own shattered teeth. Among the debris I saw the small metal fillings that had been the most threatening thing to my survival just moments earlier. It was over.
 
 Sixteen people died from self-inflicted wounds, and the reports have been flooding the news cycle of dozens of more cases of self-mutilation throughout our town. People ripped surgical screws from bone, hip replacements, fillings and in one instance, a metal plate from one's own skull before the individual died. The rain had brought something in that day, of that I am positive. Some instinctual and overwhelming urge to purge our bodies of foreign objects.
 

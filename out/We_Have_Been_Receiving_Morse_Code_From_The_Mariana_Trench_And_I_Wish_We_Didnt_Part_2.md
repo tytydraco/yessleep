@@ -1,0 +1,37 @@
+[Click This For Part 1](https://www.reddit.com/r/nosleep/comments/wuo8e8/we_have_been_receiving_morse_code_from_the/)
+
+My name is Hutch and I work for a branch of the government called "Redacted". Our branch specializes In discovering and documenting the unknown. The range of these disturbances can span from Cryptids to Alternate realities bleeding into our own and forgotten Gods. I was designated for this assignment due to it being a class 5 mission classifying it as a global threat. I've dealt with many supernatural beings in the past due to my own careless mistakes. If you are interested in knowing more about that go [Here](https://www.reddit.com/r/nosleep/comments/vcgcwe/i_fell_into_a_world_of_monsters/) though I've not finished posting my story due to the scale of these jobs, It will at least provide a little bit of background knowledge on who I am.
+
+I'll give some knowledge of how these events are ranked. They are ranked by the population of people who could be affected if the event does not get resolved. The rankings are in this order.
+
+1. Village
+2. Town
+3. City
+4. Nation
+5. Global
+
+When I was called out on this mission I wasn't surprised when it came up as a reality bleed. We've experienced reality bleeds before in many ways such as, Black Doors, Fog/mist, and no clipping. When these events happen they usually are set on rank 1. These bleeds are often small and in unknown areas, that a hiker could possibly stumble upon. So these events are not as big of a deal as some think. So when I received a notice from the company I knew I couldn't throw this job to someone under me and call it a day.
+
+It has been a month since the worker that posted the last post vanished. In this line of work discovering something that is unknown can ruin the mind of most people. At the end of his last post, he talked about being scared and that they were picking up loud noises slowly growing louder towards the surface of the water.  The company is in the belief that a reality bleed has happened in the bottom level of the trench causing its depth to increase massively. There are multiple ways for a reality bleed to open up, most of the time they are on accident. There have been reported cases we've dealt with where creatures were able to open up these bleeds but the file I've read on the bleed indicates this was either opened from the other side or the bleed opened up so long ago that no one noticed until it started to gain a mass increase in size from creatures making it through.
+
+When entities start going through any portal it becomes more unstable. This has happened to one of my co-workers before and was how he was introduced to the company. Creatures kept going through a black door on his property releasing bigger monsters, he fought back for a good while but the company managed to get word and had to close off the portal. When it came to the end of that mission its level was close to 3. It is not an easy job to get these bleeds to disappear in some cases they can't so we've been forced to take measures protecting both sides of the gates. That is under rare circumstances though and we are unsure what causes them to not be able to be closed.
+
+It is still Unknown at the moment if we will be able to close the bleed. I've spoken to the company and I've been told that the loud noises are still coming from deep within the trench but whatever is making the sound has not found its way to the top yet. I was told though that smaller creatures have been coming out of the water and breaking through the surface. Some of these creatures have managed to be captured and kept alive for further analyzing of them. One of the ones they managed to capture happened to be one of the snake serpents from the last post. From what we know they range from 10-25 feet long and have a width of 8 feet, making them quiet massive. It appears from what I've been told that these creatures are not hostile towards humans. They appear to eat small fish and are rather friendly, almost like dolphins.
+
+The company has built a home base that stays near the Mariana Trench, which I will be living at while we discover a way to close the bleed.  I was told by one of the Scientists that they plan to have me working with the serpents. They believe that there might be a way for us to train them and for them to help us get down there to close the bleed. The main worry is how we would be able to actually get down there. The pressure is believed to crush anything down there, it's a miracle anything has even risen to the surface due to the massive pressure decrease. The company's engineers and scientists have a plan for us to test the waters in a machine they've built from reverse engineering the metal that was rising to the surface. We had a very limited amount since the day the other side stopped sending up warnings.
+
+It took the company a while before they found a way to make  "(#(@\*#)!#@". It's not my job in the mission to know about how they make it just that even though they can it is crucial that we be as safe as possible when diving with the metal. It takes a lot to even make a slight amount of it. I move out in the next couple of days to the site and will update everyone on what it is like and the info I will be told. For now, I thought I'd answer a couple of questions that were on the last post that has been left unanswered.
+
+There were many theories thrown around about whether or not the earth is hollow. This idea has been thrown around many times on the post and with the science department. From what we know from other cases we have no proof the earth is hollow, this is to not say it isn't but from what we are understanding for anything to live in the hollowed earth it would have to be able to withstand extreme pressure making this idea incredible low. They have not thrown this out the window though and is still being researched and there are plans coming together to figure out what to do if the earth is hollow.
+
+Someone also asked about there being mermaids involved, and the answer is no. Mermaids cannot survive in the waters of the marina trench and are known to inhabit the coasts of Mexico and are on careful watch due to them being classified as an endangered species.
+
+Another person exclaimed that they feel as if Kaiju might be involved. This wouldn't be the first time creatures of those magnitudes have been spotted. They are not from our reality though. Kaiju have been seen in bleeds. These bleeds have been documented to lead to other dimensions where creatures are born unnaturally big compared to our planet's standards. Even the plant life is massive, our size in there as people are comparable more closely to the size of ants. It is not impossible for one of these creatures to cross over through the bleeds though..
+
+I'll be answering one more question before I end this post. The likeliness of there being our future selves talking to us is massively low. We have not experienced anything on this level, there have been cases to which bleeds have opened up to worlds like our own but they are usually distorted or have had history altered in massive ways.
+
+I thank you all for reading this post, if any of you have any questions please post a comment down below. I will try to answer some of these questions when I can on the bottom of every post, assuming I can do so.
+
+Thanks for reading
+
+\-Hutch
