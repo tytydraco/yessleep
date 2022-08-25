@@ -6,7 +6,7 @@ When I do search warrants I’m usually not to nervous but this one had me a lit
 
 We finally start driving down this long dirt road. Now mind you me and my buddies are in the bearcat which is in the middle of 2 of Chevy Suburbans both front and back and 1 Ford Crown Vic also front and back. So in total 34 highly skilled agents. We got told that ETA is 2 minutes.
 
-We load our M4’s my other buddy Zack is the only one to have Remington 870 which is a shotgun. Zack is my best friend he’s more like brother to me than anything I’ve know him since I was 3. I look at him and say “You ready to rock?” And he responded with “I was born ready!” 
+We load our M4’s my other buddy Zack is the only one to have a Remington 870 which is a shotgun. Zack is my best friend he’s more like brother to me than anything I’ve know him since I was 3. I look at him and say “You ready to rock?” And he responded with “I was born ready!” 
 
 We come around a bend to what l say wasn’t even a house it looked more like Jason’s shack in Friday The 13th part 2. 
 

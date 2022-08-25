@@ -82,11 +82,11 @@ We started to do our walk. First of all, let me say a few things about he Bănea
 
 &#x200B;
 
-I have asked: ”Why didn„t we just go to the house she took me into?” Ruxandra replied: ”Think about it for a little. If you were in either of those two shoes, after you had a human escaping from there, would you stay in the immediate future? Probably not. Yet, Helena thinks they could not be far, they may have a different house around here or else.” And then smiled and winked: ”I trust Helena will sniff them out.” Helena looked as us: ”I already sniffed her. But I need you two to talk a little less, in order to be able to work easily.” Fair enough, I said to myself. I was carrying two torches, Ruxandra one. Helena had her two bayonets at the waist and walked slowly and carefully. It was dark, as I looked into the sky and only a few stars. A phenomenon clear to understand, since the city, illuminated mostly with yellow, strong sodium bulbs, has a strong light pollution and that makes stars mostly invisible from ground level. Whoever switches back and forth from city to wilderness realizes that pretty easily. So, because the city had a powerful public street light system, the forest around us was in more darkness. 
+I have asked: ”Why didn„t we just go to the house she took me into?” Ruxandra replied: ”Think about it for a little. If you were in either of those two shoes, after you had a human escaping from there, would you stay in the immediate future? Probably not. Yet, Helena thinks they could not be far, they may have a different house around here or else.” And then smiled and winked: ”I trust Helena will sniff them out.” Helena looked as us: ”I already sniffed her. But I need you two to talk a little less, in order to be able to work easily.” Fair enough, I said to myself. I was carrying two torches, Ruxandra one. Helena had her two bayonets at the waist and walked slowly and carefully. It was dark, as I looked into the sky and only a few stars. A phenomenon clear to understand, since the city, illuminated mostly with yellow, strong sodium bulbs, has a strong light pollution and that makes stars mostly invisible from ground level. Whoever switches back and forth from city to wilderness realizes that pretty easily. So, because the city had a powerful public street light system, the forest around us was in more darkness.
 
 &#x200B;
 
-The ”gothic magic” bubble Helena kept us soon started to stop being the only ”magic” I felt. Slowly, something was coming, especially from the outside of it, partially from inside of it. As time passed, it kept going stronger. It was different from what Helena did, perhaps not stronger per se, but deeper, in a way, hard to describe. I felt a tint that something was deeply displeased of what we were doing and felt an anxiety that started to grow, different from the one the presence of Helena brought. Helena was a danger herself, this is how I still felt,  of course, but a constant one and now I did not felt her as hostile or angry, but the other ”energy” was getting more and more hostile and angry. Until something unexpected happened. 
+The ”gothic magic” bubble Helena kept us soon started to stop being the only ”magic” I felt. Slowly, something was coming, especially from the outside of it, partially from inside of it. As time passed, it kept going stronger. It was different from what Helena did, perhaps not stronger per se, but deeper, in a way, hard to describe. I felt a tint that something was deeply displeased of what we were doing and felt an anxiety that started to grow, different from the one the presence of Helena brought. Helena was a danger herself, this is how I still felt,  of course, but a constant one and now I did not felt her as hostile or angry, but the other ”energy” was getting more and more hostile and angry. Until something unexpected happened.
 
 &#x200B;
 
@@ -106,19 +106,19 @@ Helena turned to us: ”Stay close to me and keep the torches as best as you can
 
 &#x200B;
 
-As we were getting deeper and deeper in the forest, me or Ruxandra got some bad touches from the trees, but nothing too serious. Helena went to trees each time she broke something on the tree or cut something from it, swiftly. Tension around us was building us. The mist kept the visibility pretty much. The feel of the forms of magic made me feel somewhat, surreal, if that makes sense. If I felt only one of them, it would not have felt so unreal.  
+As we were getting deeper and deeper in the forest, me or Ruxandra got some bad touches from the trees, but nothing too serious. Helena went to trees each time she broke something on the tree or cut something from it, swiftly. Tension around us was building us. The mist kept the visibility pretty much. The feel of the forms of magic made me feel somewhat, surreal, if that makes sense. If I felt only one of them, it would not have felt so unreal.
 
 &#x200B;
 
-At some point, we reached small clearing. The trees were neither too young, or too old. Helena signaled us to stop. She suggested that we try to fix the torches in the ground and sit on the ground, close to each other, in silence. There was little or no wind. Yet, the branches were slowly moving above us. I did not dared to speak to much, and waited. As we sit there silently, in the mist, the branches decreased in movement. I kept looking above, the canopy was getting, slowly, darker. I was afraid of paranoia, so I broke the silence, still looking up: ”Is it me or it is getting darker?” 
+At some point, we reached small clearing. The trees were neither too young, or too old. Helena signaled us to stop. She suggested that we try to fix the torches in the ground and sit on the ground, close to each other, in silence. There was little or no wind. Yet, the branches were slowly moving above us. I did not dared to speak to much, and waited. As we sit there silently, in the mist, the branches decreased in movement. I kept looking above, the canopy was getting, slowly, darker. I was afraid of paranoia, so I broke the silence, still looking up: ”Is it me or it is getting darker?”
 
 &#x200B;
 
-Ruxandra looked up and said almost whispering: ”It is. Branches are coming close, together.” Helena added, with one her smiles: ”She is doing it. I am curious how long would this last.” ”How come” I asked. ”Can she sense us, hear us?” Helena looked with an ironic smile and being, probably unintentionally, scary for me: ”Oh yeah. I am sure she hears every single thing. She is close. Close then either of you realize.” Something inside of me arose. Helena continued: ”You may be impatient. I know how it is to be impatient.” She looked up, then around. ”She is playing with us. I wonder what she is thinking. Perhaps she will tell us herself.”  
+Ruxandra looked up and said almost whispering: ”It is. Branches are coming close, together.” Helena added, with one her smiles: ”She is doing it. I am curious how long would this last.” ”How come” I asked. ”Can she sense us, hear us?” Helena looked with an ironic smile and being, probably unintentionally, scary for me: ”Oh yeah. I am sure she hears every single thing. She is close. Close then either of you realize.” Something inside of me arose. Helena continued: ”You may be impatient. I know how it is to be impatient.” She looked up, then around. ”She is playing with us. I wonder what she is thinking. Perhaps she will tell us herself.”
 
 &#x200B;
 
-Something was building up around us. I can not tell what. Rustle in the branches started again to get stronger. Helena got eventually, but Helena signaled us to stay down. She touched the knives on the belt and looked up. 
+Something was building up around us. I can not tell what. Rustle in the branches started again to get stronger. Helena got eventually, but Helena signaled us to stay down. She touched the knives on the belt and looked up.
 
 &#x200B;
 
@@ -138,7 +138,7 @@ One tree was not joining the rest. It stayed in place. The branches was moving a
 
 &#x200B;
 
-The tree emitted a deep screech similar to the one I heard in that house, but much loader.  Helena stood still in her own ways, until she decided to shout sharply, but calmly to the creature: ”We shall talk in English, as people. This is how it is polite to communicate, in a way that all those present understand.” She raised her hands in the air and started to do some gestures towards the tree woman. The creature started to twisted and screech even loader, like it turned into a scream that was a manifestation of both pain and of anger. The wind changed sense perpetually, chaotically, the trees from the circle tried to came closer to us. 
+The tree emitted a deep screech similar to the one I heard in that house, but much loader.  Helena stood still in her own ways, until she decided to shout sharply, but calmly to the creature: ”We shall talk in English, as people. This is how it is polite to communicate, in a way that all those present understand.” She raised her hands in the air and started to do some gestures towards the tree woman. The creature started to twisted and screech even loader, like it turned into a scream that was a manifestation of both pain and of anger. The wind changed sense perpetually, chaotically, the trees from the circle tried to came closer to us.
 
 &#x200B;
 
@@ -146,8 +146,16 @@ The torches went out at this point. Me and Ruxandra ran towards Helena and fell 
 
 &#x200B;
 
-This being said, things calmed down, gradually, the trees returned and formed a circle, united. The creature stopped screeching, like she was calming down or forced herself to be calm. The shape started to change. In silence, she turned, gradually, in a very beautiful woman, very tall, with very long, black hair, wearing a white, long dress. She looked at us like she was wondering on something, with her mouth slightly open. I felt a strong desire for her, a strong attraction, as this beauty did not looked Human. Actually, she looked very much how an Elf woman was suppose to look, it seems. Then, this stage went by and she changed shape again, turning, slowly in the prostitute I picked up a few days ago. She became shorter in height, pretty average human height, the same face I remembered, the same hair dyed black, the eyelash extensions, the pumped up lips, she even had the same long, sharp, acrylic, pink nails. The clothes were different, though, she had a shirt that covered more of the torso, long jeans and sneakers. She looked filed with hate and anger first at Helena, then at me, then at Ruxandra. 
+This being said, things calmed down, gradually, the trees returned and formed a circle, united. The creature stopped screeching, like she was calming down or forced herself to be calm. The shape started to change. In silence, she turned, gradually, in a very beautiful woman, very tall, with very long, black hair, wearing a white, long dress. She looked at us like she was wondering on something, with her mouth slightly open. I felt a strong desire for her, a strong attraction, as this beauty did not looked Human. Actually, she looked very much how an Elf woman was suppose to look, it seems. Then, this stage went by and she changed shape again, turning, slowly in the prostitute I picked up a few days ago. She became shorter in height, pretty average human height, the same face I remembered, the same hair dyed black, the eyelash extensions, the pumped up lips, she even had the same long, sharp, acrylic, pink nails. The clothes were different, though, she had a shirt that covered more of the torso, long jeans and sneakers. She looked filed with hate and anger first at Helena, then at me, then at Ruxandra.
 
 &#x200B;
 
 So, this is it for now. I promise you shall tell you in a few days how I escaped and how it went on. But I think it is enough for now. See you in a few days. Bye for now!
+
+&#x200B;
+
+Update: Part 3 of the story, the ending of the meeting with Ramona [https://www.reddit.com/r/nosleep/comments/wxrg6h/be\_careful\_on\_prostitutes\_in\_bucharest\_they\_might/](https://www.reddit.com/r/nosleep/comments/wxrg6h/be_careful_on_prostitutes_in_bucharest_they_might/)
+
+&#x200B;
+
+&#x200B;

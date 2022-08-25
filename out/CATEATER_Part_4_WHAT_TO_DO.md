@@ -210,4 +210,4 @@ Terrence stopped to think for a bit before a tiny smile appeared on his face. He
 
 &#x200B;
 
-[Part 5](https://www.reddit.com/r/nosleep/comments/ww1j0b/cateater_part_5_solution_found/)
+[Part 5](https://www.reddit.com/r/nosleep/comments/wxs090/cateater_part_5_solution_found/)

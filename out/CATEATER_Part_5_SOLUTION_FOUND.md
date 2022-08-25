@@ -1,12 +1,10 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/wiby5e/cateater_part_1_cold_autumn_day/)
+ [Part 1](https://www.reddit.com/r/nosleep/comments/wiby5e/cateater_part_1_cold_autumn_day/)
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/wl926b/cateater_part_2_watching_pressence/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/wq36yo/cateater_part_3_incredible_mystery/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/wsl816/cateater_part_4_what_to_do/)
-
-&#x200B;
 
 We followed his car to his house. We drove behind his pickup truck and talked about the situation. He seemed like he wanted to help us, but Caitlyn and Elle weren’t 100% sure about it.
 
@@ -364,26 +362,26 @@ I was focused on my mom so when I got into the kitchen, I didn’t even realize 
 
 After crying with her for about an hour, I went to my room. Lucy needed to be alone for a bit. While crying, I heard my phone buzz. Aftar taking a look at it, I saw that it was Terrence calling the WhatsApp group we made earlier.
 
-“Hello?” I said after answering. 
+“Hello?” I said after answering.
 
-“Taylor?” Terrence replied taking in deep and scared breaths. “I... I saw ‘IT’.” 
+“Taylor?” Terrence replied taking in deep and scared breaths. “I... I saw ‘IT’.”
 
-He didn’t even have to specify what he meant by ‘IT’. By the time I gathered myself, Elle and Caitlyn were already in the call and talking to Terrence. 
+He didn’t even have to specify what he meant by ‘IT’. By the time I gathered myself, Elle and Caitlyn were already in the call and talking to Terrence.
 
-“What does it look like?” Elle asked him. 
+“What does it look like?” Elle asked him.
 
-“I... I can't see it too well. It’s just a silhouette,” he answered. “There are no lamps on the street so I can’t see anything.” 
+“I... I can't see it too well. It’s just a silhouette,” he answered. “There are no lamps on the street so I can’t see anything.”
 
-“OK, OK,” Caitlyn said franticly. “Can you describe the silhouette then?” 
+“OK, OK,” Caitlyn said franticly. “Can you describe the silhouette then?”
 
-“Uhm... human-like,” he said before stopping to think for a second. “But it sometimes walks on all fours and sometimes on two legs. It looks really... like... malnourished, I guess. It's incredibly skinny and it keeps sniffing the ground. The head looks terribly off. It’s longer and it looks like it has a snout instead of a nose.” 
+“Uhm... human-like,” he said before stopping to think for a second. “But it sometimes walks on all fours and sometimes on two legs. It looks really... like... malnourished, I guess. It's incredibly skinny and it keeps sniffing the ground. The head looks terribly off. It’s longer and it looks like it has a snout instead of a nose.”
 
-“Try hiding somewhere,” I told him. “I... I don’t know. You probably can take a gun but don’t try hunting it. We don’t know how...” 
+“Try hiding somewhere,” I told him. “I... I don’t know. You probably can take a gun but don’t try hunting it. We don’t know how...”
 
-Before I could finish my sentence, I heard Terrence gasp. I immediately stopped talking and waited to hear his response. 
+Before I could finish my sentence, I heard Terrence gasp. I immediately stopped talking and waited to hear his response.
 
-“What happened?” Elle asked him. 
+“What happened?” Elle asked him.
 
-“It saw me,” he replied letting out a few deep breaths. “It was sniffing the ground and then... then it turned its head towards me.” 
+“It saw me,” he replied letting out a few deep breaths. “It was sniffing the ground and then... then it turned its head towards me.”
 
 None of us replied. We didn’t know what to tell him. The creature was there, in front of his house and it saw him. We assumed that it would try to break in or something and judging by what I saw before, it would have no problem breaking in and destroying the whole house before finding everyone that lives there and murdering them all.

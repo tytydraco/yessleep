@@ -124,4 +124,16 @@ Update: I met Ramona again. First part of the new contact with her is in here:
 
 &#x200B;
 
+The second part of the new contact
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/wxrg6h/be\_careful\_on\_prostitutes\_in\_bucharest\_they\_might/](https://www.reddit.com/r/nosleep/comments/wxrg6h/be_careful_on_prostitutes_in_bucharest_they_might/)
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
 &#x200B;
