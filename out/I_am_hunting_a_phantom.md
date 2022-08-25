@@ -1,10 +1,10 @@
 I am hunting a phantom through the ages. 
 
-Throughout the dark and bloody history of Nottinghamshire and Lincolnshire I keep finding one name connected with every sordid event. Rose. This Phantom never ages, never repents, never meets with justice. Don't believe me? I have prepared some of the evidence for your consideration.
+Throughout the dark and bloody history of Nottinghamshire and Lincolnshire I keep finding one name connected to so many sordid and even otherworldly events. Rose. I see this name over and over again during my research for the local Historical Society. This Phantom never ages, never repents, never meets with justice. Perhaps you think this is far-fetched. Well, I have prepared some of the evidence for your consideration.
 
 What follows are two newspaper clippings from the Sentinel newspaper.
 
-*
+———
 
 October 27th, 1849
 
@@ -16,7 +16,7 @@ Mr Ambrose Kinnear, a well-regarded parishioner and son of former beadle, Edwin 
 
 Mr Kinnear certainly bears the marks of an assault; a deep gash to his right wrist which required five stitches. He is now warning others to ‘avoid Coombe Wood at all costs’ and claims that he only escaped because he was ‘young, fleet and without sin.’
 
-*
+——— 
 
 May 10th, 1891
 
@@ -36,7 +36,7 @@ I must admit, dear readers, that I fled in fear before I could deduce the source
 
 As I sit writing this days later, I am still uncertain of what to think.
 
-*
+———
 
 [One of the Phantom’s alleged victims](https://pbs.twimg.com/media/FLfRWniXEAAlyjj.jpg:large)
 
@@ -46,4 +46,4 @@ I am becoming obsessed with my research. I don't sleep, I don't eat, I don't thi
 
 Even worse, the obsession is like a contagion, when I share these stories the obsession spreads. Others become fixated and deteriorate as I have. It's like a seed that slowly takes root, choking you with its tendrils until there is nothing left.
 
-Rose is within you now, the Phantom’s next victim. Good luck.
+Rose is within you now, the phantom’s next victim. Good luck.
