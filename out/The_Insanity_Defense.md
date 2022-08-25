@@ -76,4 +76,4 @@ While she was sleeping or going through extreme stress, Penelope would switch in
 The bite marks seen on Penelope's leg matched her own DNA. The truly most disturbing thing found, however, was the chunks of flesh and the pieces of rat tail found in her stomach.
 
 
-I am currently trying to diagnose Penelope with DID (Dissociative Identity Disorder), due to her fast changes in behavior and the amnesia she experiences after these changes end. Her trial is this tuesday, and hopefully I can prove she is not guilty by reason of insanity.
+I am currently trying to diagnose Penelope. She has extremely fast changes in behavior and she experiences severe amnesia after these changes end. Her trial is this tuesday, and hopefully I can prove she is not guilty by reason of insanity.
