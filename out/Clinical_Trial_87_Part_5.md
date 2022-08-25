@@ -128,7 +128,7 @@ Its snakelike head bobbed and weaved, beaming from ear to ear.
 
 **The Before closest to your imaginings would breathe life into that deity, and it would live on so long as the people kept it alive. Followed it, worshipped, honored it.**
 
-**Your world is merely one an innumerable number in a single, infinitesimal reality among an infinite number of realities. Just one stop among many for Us in our infinite loop of all that is.**
+**Your world is merely one an incalculable number in a single, infinitesimal reality among an infinite number of realities. Just one stop among many for Us in our infinite loop of all that is.**
 
 **In every iteration of every being across existence, if they create something conceptually greater, We breathe life into it.**
 
@@ -138,37 +138,39 @@ Its snakelike head bobbed and weaved, beaming from ear to ear.
 
 **Their ignorance and arrogance are matched only by their cruelty and cupidity.**
 
-**They drown in the blood of your kind yet feel nothing. Such has forever been the nature of those who claw for power they neither deserve nor are suited for, anywhere life is to be found.**
+**They drown in the blood of your kind yet feel nothing.** 
+
+**Such has forever been the nature of those who claw for power they neither deserve nor are suited for, anywhere life is to be found.**
 
 **Pitiful worms recklessly seeking cosmic power.**
 
-**You have seen the deaths, Pappy. An unholy specter, a sacrilegious mockery of our work.**
+**You have seen the deaths, Pappy. An unholy specter, a sacrilegious mockery of Our work.**
 
-**Your fellow “subjects” died gruesomely because they were force fed the name of one of The Before. This artificial ritual is an abomination of the very nature we wrought.**
+**Your fellow “subjects” died gruesomely because they were force fed the name of one of The Before. This artificial ritual is an abomination of the very nature We wrought.**
 
 **Our names are the embodiment of power, the very essence of sacred knowledge. They are Ours to give, to pass on in part to the worthy. To know a name is to being inundated with a piece of Us.**
 
 **These poor souls were not chosen by The Before. They were unwitting sacrifices.**
 
-**To survive the passing, to grow into something more and be deified, the host must share the aspect with the Giver’s name. They must be characteristically bound, molded from the same clay, for each of the Before is the beginning image of all beings.**
+**To survive the passing, to grow into something more and be deified, the host must share the aspect with the Giver’s name. They must be characteristically bound, molded from the same clay, for each of The Before is the beginning image of all beings.**
 
-**This book they recklessly toy with is not holy text.**
+**This book they foolishly toy with is not holy text.**
 
 **It is a record of who We are, a collection of Our names. And the conduit by which We pass along Ourselves.**
 
-**A billion, a trillion, a quadrillion, numbers you cannot comprehend, share traits with one of Us.**
+**A billion, a trillion, a quadrillion, beings, measured in numbers you cannot fathom, share traits with one of Us.**
 
-**Among that endless grassland, when a civilization imagines divinity that strikes at the heart of the aspect of Us, we painstakingly choose a single, worthy stalk of grass to embody us. The personification of one of Us left behind, forever linked, a potent and dangerous bond.**
+**Among that endless grassland, when a civilization imagines divinity that strikes at the heart of the aspect of Us, We painstakingly choose a single, worthy stalk of grass to embody Us. The personification of one of Us left behind, forever linked, a potent and dangerous bond.**
 
 **Those few chosen are given the book and permitted to discern a singular truth, for they shall find nothing but confusion, save the one name from whose bosom they sprang.**
 
-**That’s why those meddlers who first found the book on your planet did not die. They did not find a name unbefitting of them. Rather discovered a path back to the beginning, to the One with which who they aligned, for The Before are endless and all are born from Us.**
+**That’s why those meddlers who first found the book on your planet did not die. They did not find a name unbefitting of them. Rather, they discovered a path back to the beginning, to the One with which who they aligned, for The Before are endless and all reaped from Us.**
 
-**These selfish interlopers found what I suppose they thought were “gods” that might be forced to give them untold power. Presumption fools. To discern Us is to call to Us, nothing more.**
+**These selfish interlopers found what I suppose they thought were “gods” that might be forced to give them untold power. Presumptive simpletons. To discern Us is to call to Us, nothing more.**
 
-**We built the very fabric existence, weaving it from the nothingness, vomited light into the dark. Nothing binds Us. We might hear the whisper of our name from some errant mortal, but We throw away the unworthy.**
+**We built the very fabric existence, weaving it from the nothingness, vomited light into the dark. Nothing binds Us. We might hear the whisper of Our name from some errant mortal, but We throw away the unworthy.**
 
-**Your captors did not tell you of the fate of those of their lot who first called their names. Tongues and eyes burned out. Heads eaten. Bodies left limbless. Each of The Before has Its own method to punish the impudent.**
+**Your captors did not tell you of the fate of those of their lot who first called out the names. Tongues and eyes burned out. Heads eaten. Bodies left limbless. Each of The Before has Its own method to punish the impudent.**
 
 **And yet, what did they do in their lust, their greed, their careless pursuit of a power they could never possibly tether?**
 
@@ -188,9 +190,11 @@ Its snakelike head bobbed and weaved, beaming from ear to ear.
 
 **A paper cup cannot hold acid, Pappy. The vessel must be suitable for the inhabitant.**
 
-**You saw what this bastardization wrought. Instead of fulfilling a rite, it warped the victim. The failed alignment creates a monster, fueled by pain, possessing powers it shouldn’t, a toxic phantom invariably ripping it apart.**
+**You saw what this bastardization wrought.** 
 
-**Though we witnessed this cruel charade, We chose not to intervene. You may think this callous, vicious even.**
+**Instead of fulfilling a rite, it warped the victim. The failed alignment creates a monster, fueled by pain, possessing powers it shouldn’t, a toxic phantom invariably ripping it apart.**
+
+**Though We witnessed this cruel charade, We chose not to intervene. You may think this callous, vicious even.**
 
 **These trespassers posed no threat to The Before, and as for you and your cohorts…we do not partake in justice or concern ourselves with it.**
 
@@ -242,13 +246,13 @@ Every game, for all time.
 
 **Though you won’t die by My hands, you won’t gain anything from Me. Just this little peek at sacred knowledge for a moment before they undoubtedly kill you.**
 
-**For you see, your world does cry out for a manifestation of a gambler. It careens ever closer toward self-immolation as risk scales to the whole of your species. Still, I did not choose you. You merely stumbled upon me.**
+**For you see, your world does cry out for a manifestation of a gambler. It careens ever closer toward self-immolation as risk scales to the whole of your species. Still, I did not choose you. You merely stumbled upon Me.**
 
 **This rite is older than the fabric of space and time. The Before do not give gifts, and We are not found. We are the finders; We are those who bind.**
 
 **I am sorry.”**
 
-I grinned at the infinite, a god before the gods.
+I grinned at the infinite, the god before the gods.
 
 “I risked it all. If I lose, I lose. It was worth the bet. That’s who we are.
 
@@ -266,7 +270,9 @@ Cacophonous laughter echoed throughout our empty cosmos.
 
 **What do you say?**
 
-**One shot. You win, I’ll make you a god of this little rock, gift you a part of my aspect, deify you. Power beyond measure. Every choice available to you. The God of Gamblers.**
+**One shot.** 
+
+**You win, I’ll make you a god of this little rock, gift you a part of my aspect, deify you. Power beyond measure. Every choice available to you. The God of Gamblers.**
 
 **You lose, I send you back and they kill you.”**
 
@@ -276,7 +282,9 @@ I perked up.
 
 **“Did you? Did you find me?**
 
-**Maybe an endless series of gambles, my invisible hand, guided you here. I do like to bluff.**
+**Maybe an endless series of gambles, my invisible hand, guided you here.** 
+
+**I do like to bluff.**
 
 **It doesn’t not matter. You are right, I did not select you. Not directly. So, let’s see what chance says. After all, it is born from Me…”**
 
@@ -304,7 +312,7 @@ Choosing your own terms, that’s really all a gambler gets.
 
 That’s the dream.
 
-“If it’s up to me, I choose the flip of a coin. A single toss. 50/50. Winner takes all. No skill, the purest, simplest, gamble of them all.
+“If it’s up to me, I choose the flip of a coin. A single toss. 50/50. Winner takes all. No skill, the purest, simplest, gamble.
 
 The flip of a coin for it all.”
 
@@ -352,7 +360,9 @@ We both settled back into our chairs, awash in laughter, like old, drunk friends
 
 In front of me on the table hovered a staggering purple light and the book made of bone.
 
-**“Grab the light. When you arrive back, take the book with you. What you do from thereon is your concern. I shall never interfere.”**
+**“Grab the light. When you arrive back, take the book with you.** 
+
+**What you do from thereon is your concern. I shall never interfere.”**
 
 I looked at the severed head of the man with the box.
 
@@ -396,7 +406,7 @@ I looked at the severed head of the man with the box.
 
 The booming echo of **NEZKVHANYTIKLYTIC** filled every part of my mind with words I would never forget.
 
-From its mouth, the Before finally spoke, quietly, serenely:
+From its mouth, The Before finally spoke, quietly, serenely, the picture of comfort:
 
 **“I trust you. We are one.**
 
@@ -412,11 +422,13 @@ The artifacts. The book. Why were they there? Those muppets thought they found a
 
 **“I always leave a site behind with a Book.**
 
-**Everywhere we are, everywhere we go.**
+**Everywhere we are, everywhere We go.**
 
 **Over enough time, enough chances, enough experiments, enough trials, I find one more gamble with something, something of that place, a creature born of me.**
 
-**The odds are astronomical, beyond your comprehension, to be sure. Think of all that had to happen for us to have this coin toss. All the events, the lives lost, all the little details that had to align?**
+**The odds are astronomical, beyond your comprehension, to be sure.** 
+
+**Think of all that had to happen for us to have this coin toss. All the events, the lives lost, all the little details that had to align?**
 
 **…But across infinity, I’m willing to take that gamble. My bet paid off. It’s always worth it.**
 
@@ -434,11 +446,11 @@ One last look at my maker.
 
 Power won is twice as sweet as power earned.
 
-Omnipotence coursed through my veins and filled all the wholes I’d carved inside me while rolling down that lost highway.
+Omnipotence coursed through my veins and filled all the holes I’d carved inside me while rolling down that lost highway.
 
 I found myself sitting alone in the same room at Clinical Trial 87, the book in my hand.
 
-The door crashed opened. Men in white lab coats, armed guards with guns drawn spilled into the room.
+The door crashed opened. Men in white lab coats and armed guards with guns drawn spilled into the room.
 
 A dozen gun barrels aimed at my head.
 
@@ -476,7 +488,11 @@ I pulled a coin forward from the nothingness.
 
 The mortal tried to run, but no one runs from a god.
 
-**“50/50. Call it in the air. You win, you live. You lose, you die like the rest of this putrid infection.”**
+**“50/50.** 
+
+**Call it in the air.** 
+
+**You win, you live. You lose, you die like the rest of this putrid infection.”**
 
 I flipped the coin.
 
@@ -498,11 +514,13 @@ Tails.
 
 **“You win.”**
 
-I stood up, grabbed the book, and began walking out.
+I kept my duty and let the maggot keep wriggling. 
+
+Standing up, I grabbed the book and began walking out.
 
 Bodies flew against the walls and ceiling, clearing a path for me.
 
-Screams echoed throughout the building as previously unseen team members felt their eyes explode, their skulls implode, their necks turn ad snap, had their innards torn out by my will.
+Screams echoed throughout the building as previously unseen team members felt their eyes explode, their skulls implode, their necks turn and snap, had their innards torn out by my will.
 
 The man in the box wept in the corner.
 
@@ -518,13 +536,15 @@ The Sun was bright, the wind was soft, and everything, forever, lay before me.
 
 I sang my song unto the Earth.
 
-**“Just a deck of cards, and a jug of wine, and woooman’s liiiiies, makes a life like mine”**
+**“Just a deck of cards, and a jug of wine, and woooman’s liiiiies, makes a life like mine.”**
 
 Like I said, I’m not a good man.
 
 I strolled out, looking for a game.
 
-I leave this story behind for you, dear reader, not as a cautionary tale or a record of mankind’s savagery, we have enough of those, but rather, to ask a simple question:
+I leave this story, at it's end and beginning, behind for you, dear reader, not as a cautionary tale or a record of mankind’s savagery. We have enough of those. 
+
+Rather, to ask a simple question:
 
 **Do you have enough gamble in you to follow me?**
 
