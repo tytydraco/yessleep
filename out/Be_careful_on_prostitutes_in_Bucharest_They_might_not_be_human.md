@@ -114,4 +114,14 @@ So, I am thinking in going back to that house, to that area of forest. Perhaps n
 
 &#x200B;
 
+Update: I met Ramona again. First part of the new contact with her is in here:
+
+&#x200B;
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/wv48es/be\_careful\_on\_prostitutes\_in\_bucharest\_they\_might/](https://www.reddit.com/r/nosleep/comments/wv48es/be_careful_on_prostitutes_in_bucharest_they_might/)
+
+&#x200B;
+
 &#x200B;
