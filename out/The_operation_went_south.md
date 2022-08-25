@@ -25,7 +25,7 @@ Zack shot the first guy we saw but the 12 gauge didn’t even affect him he star
 
 In fact none of these hillbilly fucks looked human. They all looked dead they all looked like they drank blood but not vampires. The closest I can describe it to is that they looked like the monsters off the first three Cannibal Corpse albums. That’s when I saw a smaller tweaker looking kind of guy starting to eat one of the other agents. That cleared the house and ran back outside. 
 
-I put two rounds in his back but the fucker didn’t even flinch. He just kept eating this guy alive. I look over at Zack and he’s just shooting whatever’s near the house that isn’t one of our agents. Then that’s when I see a fucking tree branch go right through his head. The first guy we saw got up and stabbed him. I forgot that fucker was still alive The more that I saw of its face it kind of looked like Jason Voorhees meets Hills Have Eyes. 
+I put two rounds in his back but the fucker didn’t even flinch. He just kept eating this guy alive. I look over at Zack and he’s just shooting whatever’s near the house that isn’t one of our agents. Then that’s when I see a fucking tree branch go right through his head. The first guy we saw got up and stabbed him. I forgot that fucker was still alive The more that I saw of its face it kind of looked like Jason Voorhees faces in part 7 meets Hills Have Eyes. 
 
 I put three rounds to his chest one in his head and that’s when he dropped dead. I turned back around to see one of these hillbillies wielding an M-16 and shooting fully automatic I see him shoot and kill two of my agents. I see another one of my agents being burned alive from the cars and then being beaten with a hammer. It looked as if it was hell on earth. 
 
@@ -33,7 +33,7 @@ I got up and started running and then out of nowhere I heard someone yell in fro
 
 It didn’t matter though. He didn’t stop running, my Glock stove piped. it was too late. Everything went black
 
-I think I was in the basement of the shack. I looked to my left to see my Captain being skined alive and Zacks corpse being eating. It looked like Pig destroyers “prowler in the yard.” Album meets Hellrasier. One of the agents getting scalped. I felt light headed and my blood was being dripped out of my leg and into a bucket. Which I don’t even wanna know what it was being used for. The guy that was skinning my captain and the other that was scalping my agent both went upstairs. 
+I think I was in the basement of the shack. I looked to my left to see my Captain being skined alive and Zacks corpse being eating. It looked like Pig destroyers “prowler in the yard.” Album meets Hellrasier. One of my agents was getting scalped. I felt light headed and my blood was being dripped out of my leg and into a bucket. Which I don’t even wanna know what it was being used for. The guy that was skinning my captain and the other that was scalping my agent both went upstairs. 
 
 I saw this as a chance to run. I undid myself from the doctors table and saw the cellar door. I barged right through it I looked around to the front all the cars were burned. Then I saw the Cadillac limousine. I open the door and the keys were in ignition. I slammed the car door locked it and tried turning it on but it wouldn’t budge. I tried two more times and it finally started just as soon as these hillbillies started running out the cellar door. One was holding an M 14 the other a baseball bat.
 
