@@ -2,7 +2,9 @@
 
 [Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
 
-[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/)
+
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)
 
 We awoke on day two, the opiate fog still swirling in our heads.
 
@@ -170,4 +172,6 @@ I saw her fall over dead as I sailed away into the nothingness of sleep.
 
 [Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
 
-[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/)
+
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)

@@ -1,8 +1,10 @@
-[Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/) 
+[Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
 
 [Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
 
-[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/)
+
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)
 
 I'm not a good man.
 
@@ -194,8 +196,10 @@ The last thing I remember passing out into a deep sleep was Marc looking at me. 
 
 As the warm arms of slumber took me, I saw him fall over dead.
 
-[Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/) 
+[Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
 
 [Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
 
-[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/)
+
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)

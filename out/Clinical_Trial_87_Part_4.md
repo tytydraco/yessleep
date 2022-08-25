@@ -4,6 +4,8 @@
 
 [Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
 
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)
+
 When I came to on the fourth day, I was alone.
 
 But I wasn’t in the community room.
@@ -134,7 +136,7 @@ A few minutes later, the TV rebooted and words began to roll listlessly across t
 
 **ANY ATTEMPT TO DESTROY OR TAMPER WITH THE TEXT IN WILL RESULT IN THE SAME OUTCOME.**
 
- **YOUR TERMINATION OR SUICIDE WILL RESULT IN NO DEBTS OR MONIES BEING PAID.**
+**YOUR TERMINATION OR SUICIDE WILL RESULT IN NO DEBTS OR MONIES BEING PAID.**
 
 **ONE CRITERION FOR SUBJECT SELECTION WAS A HOPELESS PERCEPTION COMBINED WITH A DESPERATE NEED FOR A SUBSTANTIAL AMOUNT OF MONEY.**
 
@@ -270,12 +272,9 @@ Had they dosed me with morphine?
 
 What would be the point? When would they have even done that, anyway? They said no intoxicants, how would I be able to pronounce the word?
 
-I began rambling incoherently, an tremendous lightness filling me up: 
+I began rambling incoherently, an tremendous lightness filling me up:
 
-*Now the only thing a gamblin' man ever needs*  
-*Is a suitcase, Lord, and a trunk*  
-*And the only time a fool like him is satisfied*  
-*Is when he's all stone cold drunk* 
+*Now the only thing a gamblin' man ever needsIs a suitcase, Lord, and a trunkAnd the only time a fool like him is satisfiedIs when he's all stone cold drunk*
 
 Reality was unmistakably shifting.
 
@@ -338,3 +337,5 @@ Into the darkness, I whispered my word, the only word that mattered:
 [Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
 
 [Day 3](https://www.reddit.com/r/nosleep/comments/wv99hr/clinical_trial_87_part_3/)
+
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)

@@ -270,3 +270,5 @@ She was sleeping soundly as Mother stared at me.
 
 
 [Part One](https://reddit.app.link/VbtKsEyoFsb)
+
+[Part Three](https://www.reddit.com/r/nosleep/comments/wv5vkm/my_stepbrother_taught_me_a_four_letter_word_part_3/?utm_medium=android_app&utm_source=share)

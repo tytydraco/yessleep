@@ -2,7 +2,9 @@
 
 [Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
 
-[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/)
+
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)
 
 Day three, same story.
 
@@ -170,4 +172,6 @@ The last thing I saw before sleep claimed me was the light slip out of Katarina�
 
 [Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
 
-[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/) 
+[Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/)
+
+[The Last Day – Part 5](https://www.reddit.com/r/nosleep/comments/wx3kyp/clinical_trial_87_part_5/)
