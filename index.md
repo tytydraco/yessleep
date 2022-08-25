@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 6163
+file count: 6164
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 Years ago I survived an airplane crash What I saw there scarred me for the rest of my life  Day 1](out/10_Years_ago_I_survived_an_airplane_crash_What_I_saw_there_scarred_me_for_the_rest_of_my_life__Day_1.md)
@@ -4294,10 +4294,10 @@ file count: 6163
 * [Shriekers](out/Shriekers.md)
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
-* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
+* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)
@@ -4363,6 +4363,7 @@ file count: 6163
 * [Something Followed My Son Home part one](out/Something_Followed_My_Son_Home_part_one.md)
 * [Something found us in the woods and followed us home](out/Something_found_us_in_the_woods_and_followed_us_home.md)
 * [Something from my school followed me home](out/Something_from_my_school_followed_me_home.md)
+* [Something Funny is Happening at my Neighbours House Part 1](out/Something_Funny_is_Happening_at_my_Neighbours_House_Part_1.md)
 * [Something happened 63 years ago thats haunted me my entire life Ive never told anyone about ituntil now](out/Something_happened_63_years_ago_thats_haunted_me_my_entire_life_Ive_never_told_anyone_about_ituntil_now.md)
 * [Something Happened After I Lied](out/Something_Happened_After_I_Lied.md)
 * [Something happened at my school and I can no longer keep it to myself](out/Something_happened_at_my_school_and_I_can_no_longer_keep_it_to_myself.md)

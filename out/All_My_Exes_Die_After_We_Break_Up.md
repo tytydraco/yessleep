@@ -70,7 +70,7 @@ The curse was still alive. 
 
 I had an easy solution to it all. I was going to marry Katy and stay with her forever. 
 
-I prosed. She was a bit thrown off by the haste, but she said yes. 
+I proposed. She was a bit thrown off by the haste, but she said yes. 
 
 Everything was going well. We kept going through the motions of love and prep and slow planning our wedding - I wasn’t in any particular hurry. 
 
