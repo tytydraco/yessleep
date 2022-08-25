@@ -1,4 +1,4 @@
- [Day 1](https://www.reddit.com/r/nosleep/comments/wtfxj2/clinical_trial_87_part_1/)
+[Day 1](https://www.reddit.com/r/nosleep/comments/wtfxj2/clinical_trial_87_part_1/)
 
 [Day 2](https://www.reddit.com/r/nosleep/comments/wudypf/clinical_trial_87_part_2/)
 
@@ -6,7 +6,7 @@
 
 [Day 4](https://www.reddit.com/r/nosleep/comments/ww72tk/clinical_trial_87_part_4/)
 
-On a day that couldn’t be measured, in a place that defied time, I peered into the darkness.
+On a the lasty day, a day that couldn't be measured in a place that defied time, I peered into the darkness.
 
 I was in awe, but I wasn’t afraid.
 
@@ -22,11 +22,11 @@ Humanoid might be stretching it.
 
 The creature emerged from the darkness, towering nearly twenty feet high.
 
-It had two legs, implausibly thick. A thick bark covered them, tree trunks that creaked and groaned with each movement. The top of its oaken legs gave way to thin, hairy calves, each ending with scarlet and black cloven hooves.
+It had two legs, implausibly thick. A thick bark covered them, tree trunks that creaked and groaned with each movement. The bottom of its oaken legs gave way to thin, hairy calves, each ending with scarlet and black cloven hooves.
 
 Its body looked human, but disproportionately exaggerated. Muscles man just does not possess sprouted from its massive hairless torso and chest. Five spindly humanoid arms burst forth from each side of its body, swaying as though caught in a gentle summer breeze. Each hand was compromised of eleven fingers, all ending in razor sharp, curved claws.
 
-Where a neck should have been, the slinky head of a snake, curved nearly six feet upward. A complex face studied me. It was as though some deranged architect had blended the reptilian face of a snaked with a man and a hyena.
+Where a neck should have been, the slinky head of a snake curved nearly six feet upward. A complex face studied me. It was as though some deranged architect had blended the reptilian face of a snake with a man and a hyena.
 
 Splotches of fur sprouted from a rotund, greenish face.
 
@@ -38,7 +38,7 @@ A work that would make Doc Frankenstein weep with joy.
 
 It was beauty incarnate.
 
-Look on my visage, ye mighty, and despair.
+Look upon my visage, ye mighty, and despair.
 
 Trying to convey what I saw strains my mind to this day.
 
@@ -78,7 +78,7 @@ I hit a three-outer against a god. Not to make a pun but, Jesus.
 
 It smiled warmly.
 
-**“Pots yours.”**
+**“Pot's yours.”**
 
 I chuckled at the joke until I saw what it meant.
 
@@ -116,7 +116,7 @@ Its name.
 
 Its snakelike head bobbed and weaved, beaming from ear to ear.
 
-**“That is my name. Though you are certainly the first of your kind to know it, let alone speak it. You have many questions. I can smell them all., feel them coursing through the air.**
+**“That is my name. Though you are certainly the first of your kind to know it, let alone speak it. You have many questions. I can smell them all, feel them coursing through the air.**
 
 **Some I will answer. Some, I won’t.**
 
