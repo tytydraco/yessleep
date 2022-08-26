@@ -14,7 +14,7 @@ She is  delightful girl, former news reporter, today being an independent journa
 
 &#x200B;
 
-She me two days later, that she wanted to meet me again. Fortunately, I see to be walking already easier, only with some temporary, medical, prosthetics, no crouches. It was already close to night fall, she said that she is willing to help and go with me in search of these beings. I was surprised, but glad, and I accepted it. Robert agreed to drive to that area, even if he disliked the idea and told me I was horny...
+She called me two days later, that she wanted to meet me again. Fortunately, I see to be walking already easier, only with some temporary, medical, prosthetics, no crouches. It was already close to night fall, she said that she is willing to help and go with me in search of these beings. I was surprised, but glad, and I accepted it. Robert agreed to drive to that area, even if he disliked the idea and told me I was horny...
 
 &#x200B;
 
