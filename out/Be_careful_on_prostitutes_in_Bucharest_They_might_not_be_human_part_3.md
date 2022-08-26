@@ -98,7 +98,7 @@ We were all chilling, gradually, in silence. We came out of the forest, close to
 
 &#x200B;
 
-I laid on the back seat of the car, as we were mostly silent. When we reached the hospital, we parked in a shadowy place, as Ruxandra made sure I was capable to walk. I said to her: ”Thank you.” She smiled gently and said: ”Your welcome.” I turned to Helena, was still in the car: ”Thank you.” She replied with her usual delay and sternly: ”Your welcome.”
+I laid on the back seat of the car, as we were mostly silent. When we reached the hospital, we parked in a shadowy place, as Ruxandra made sure I was capable to walk. I said to her: ”Thank you.” She smiled gently and said: ”You„re welcome.” I turned to Helena, was still in the car: ”Thank you.” She replied with her usual delay and sternly: ”You„re welcome.”
 
 &#x200B;
 
