@@ -88,7 +88,7 @@ I winced as the needle slid into my flesh, the pinch severe, then tapering off. 
 
 “Oh, that’s unfortunate. He was probably seeing another patient. I’ll make sure he visits you and answers all of your questions beforehand. In the meantime, I’ll need you to change into a hospital gown.”  I followed her to a changing room. The room was small and dimly lit with a single, overhead bulb. Lockers lined each wall as I threw off my shirt, bra, jeans, and shoes. I slipped the massive hospital gown over my head. I met the nurse outside the door, who was now surrounded with four other nurses, two at each side, to lead me to the procedure room. I followed them closely, rounding corners and walking down long hallways. I didn’t see any other patients, or any other staff members. My chest felt heavy.
 
-“I still haven’t talked to any doctors yet, I have some concerns.” I said aloud.
+“I still haven’t talked to any doctors yet, I have some concerns.” I said aloud. I was ignored. The silence was palpable. 
 
 Just then, we rounded the corner into a massive room. Numerous, unfamiliar instruments were strung about. Large cylindrical drums were suspended from the ceiling. Futuristic looking computers were sprawled across the room. A man, maybe late thirties, stood in the middle of the room. His heavy black beard raised as he smiled warmly, his white lab coat pristine. 
 
@@ -124,7 +124,11 @@ I kicked and flopped around and screamed, hoping to pry myself free. More nurses
 
 “Sedate her. A paralyzing agent would be best.” He demanded. An IV bag was strung on a hook as a long needle was slid into the crook of my elbow. Then drugs were administered into the tube after a saline flush. I began to lose feeling in my entire body. I was conscious, but could not feel from the neck down.
 
-Then, strangely, a large metal… thing was placed around my neck, and locked from both sides with large padlocks. It was a half circle band that fit on top of my neck. In the middle of the band was a long, narrow cylinder that shot up a few inches, barely the width of pencil lead. Then Dr. Bergman wheeled over in a stool, with a four inch needle nestled in his hands. A tube ran from the needle. My head put two-and-two together. An ink injector. They were injecting ink into my brain through my throat. 
+Then, strangely, a large metal… thing was placed around my neck, and locked from both sides with large padlocks. It was a half circle band that fit on top of my neck. In the middle of the band was a long, narrow cylinder that shot up a few inches, barely the width of pencil lead. The metal felt cold on my skin as my throat tightened.
+
+Dr. Bergman wheeled over on a stool, with a four inch needle nestled in his gloved hands. A clear plastic tube ran from the needle. 
+
+“This is an ink injector. We use this to take images inside your brain. The ink is radioactive and highly toxic which is why we flush it via a catheter.” Doctor Bergman explained, grinning  devilishly.
 
 “No! Stop! I don’t want this!” I screamed, my vocal cords finding new strength. My screams were so loud that they echoed off the walls. Surely someone would check on me? Stop this?
 

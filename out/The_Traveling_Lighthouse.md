@@ -1,0 +1,30 @@
+From the summer of 2009 to winter of 2011, I worked a job in a small fishing town in northern Maine. During my time there I heard tales about something called the “Traveling Lighthouse”. Basically the legend goes like this:
+
+  In 1916, famous fisherman Captain William Longbottom started construction on a lighthouse to guide the ships that came to my town. Things were fine for awhile, construction was going well and overall the workers were in good spirits but when the lighthouse was completed in 1922 tragedy struck. While at the highest floor, Captain William was pushed over the railing by his wife Mary and subsequently fell to his death.
+  When the police arrived, they found the entire lighthouse missing and both the Longbottoms were found dead on the ground. There was a suicide note on Mary’s corpse that read:
+
+  “When you find this letter, me and my husband shall have departed this terrifying world. The lighthouse that we’ve been living in for the past five months is of the devil himself. My things have gone missing and the lighthouse disappeared into thin air when I came home one night. I have had visions of the devil killing my beloved husband and dear friends and I know these visions are predictions. Sadly, I cannot take my dear friends with me and my husband but they will soon join me so it hardly matters. Take heed of my warning and exit this world before it is too late.
+                                                  With love,
+                                                       Mary”
+
+  The next day, her friends were all found dead at Mary’s and William’s gravesites and the lighthouse was back. When the police came, the bodies were gone and the lighthouse was out in the middle of the ocean slowly sinking into it. Since then, most of the people who have seen the lighthouse have mysteriously died the next day.
+
+  On what would be my final day as a fisherman I went out in the bay on a small fishing boat to gather some lobster to sell at the marketplace. That’s when I saw the mist. At first I thought nothing of it and kept on fishing but then I started to hear the whispers. Most of it was unintelligible but I could make out these few whispers:
+
+“Turn back before it’s too late.”
+
+“Leave if you know what’s good for you.”
+
+“Save yourself.”
+
+  This was very jarring and I almost decided to call it quits but pressed on like the idiot I am. 
+  After a few hours, I was about done as I caught almost five dozen lobsters and was headed back the dock when I saw the light house. It was rising out of the ocean and was covered in grime and barnacles. Curious, I tied my boat up to the rusty metal pole sticking out of the water and climbed up the rocky ledges to the rotting mahogany door and went inside. Shockingly, the inside was not riddled with decay but instead was perfectly preserved as if it was frozen in time.
+  All the lights were on and the small living room had a cozy feel to it. It almost looked like a grandma’s living room rather than a sea captain’s. I walked into the kitchen and saw that there were a tray of cookies on the table as smelled as if they were freshly baked with the way the sweet smell of chocolate wafted into my nostrils. Not wanting to risk it, I left the tray alone and continued my journey upstairs and found Captain William’s study.
+  Papers and books were littered everywhere and one of the lamps was completely shattered. There were more spiderwebs than I could count. This room smelled more like the ocean and had slight signs of decay.      The oak desk had mold growing underneath it and the chair’s metal wheels were completely rusted. There was a moldy, dusty painting of which I could barely tell was the Captain William and his wife. Their eyes seemed to follow me which made me quickly go up to the next floor.
+  This room was indescribable. It was covered in so much coral, barnacles, and seaweed to the point I couldn’t tell what the room’s original purpose was. All I saw was Mary’s suicide note floating in the center of the room. I decided then and there that I needed to leave and go back to shore but when I turned around to go down the stairs the trapdoor was shut and soon covered in barnacles and seaweed. I did the only thing I could and ran up the stairs to the highest floor of the lighthouse. It was there what terrified me the most.
+  It was Mary Longbottom’s rotting corpse standing there as if she was still alive. Her left eye was completely missing and had seaweed dangling out of it while her right eye was a milky white and had barnacles slowly growing over it. Her hair was almost completely gone aside from a few brine soaked strands and her dress was reduced to a few rags. Mary’s skin was completely black with a few brown splotches on her arms. She began to slowly turn towards me and walk to me. I was absolutely paralyzed with fear and couldn’t move even if I wasn’t. I couldn’t even blink or breathe.
+
+This is it, I thought. Killed by an 89 year old corpse in Satan’s lighthouse.
+
+  When she got close to me, I was suddenly able to breathe and move again but that’s when she pushed me over the edge of the railing into the icy waters below. I miraculously survived when I hit the water but when I resurfaced the lighthouse was gone and only my boat remained. I swam back to my boat and went to shore to sell the lobsters. Later that night in my bed, I heard a foghorn and looked out my window only to see the lighthouse again. There were two people on the top floor who I realized to be the late captain and his wife. They waved at me and I immediately shut the curtains.
+  Two weeks later, I sold my home and moved out to Topeka, Kansas. This is the first time I’ve decided to share this story and I feel good that I can post it after 11 years. I can sometimes hear the dreaded foghorn in my dreams and bloodcurdling screams. Life has been relatively normal now but I am still scared of seeing that lighthouse again and not being so lucky a second time.
