@@ -1,0 +1,15 @@
+I know this all sounds crazy but please here me out, I'm scared beyond belief and don't know what to do. I'm in a hotel room far away. Far away. If this gets anywhere, I hope it gets to the right person because I really need help. 
+
+I'm a 14 year old girl called Aubrey, for context. This starts a few months ago when my brother (Steven, 16) started looking at me weird. I mean he would stare at me and his eyes would go black, I thought it was weird but every time I looked away or mentioned it he would look away. I really didn't like it but he was going on a one month long trip thing with his friends so I thought it would be fine after that. It wasn't. 
+
+He left and everything was fine for about three days until I walked into my dads office and he shouted at me so loud I felt like an animal was screeching at me. I don't cry when people shout at me mostly but this time it felt as if I would be thrown out or something. I felt so scared. I went to tell my mum this but when she looked at me I could tell she didn't care, this was weird again, she was always willing to talk to me if I was upset, but the look that was displayed on her face told me this time it was different. "Oh Aubrey I couldn't care less, you shouldn't be going in there anyway." She says looking extremely annoyed. Her brows scrunched and her lips parted. That meant she was really mad.
+
+After this things kept getting stranger, I wasn't allowed in certain rooms, then most rooms, and now I'm only allowed in my bedroom which has an en suite so I can't use the family bathroom. I'm fed through a flap in my door and at night I hear whispers, sometimes screams that make my blood go cold. I hear loads bangs and sometimes I hear them scream into the flap I get my food from.
+
+During the day I'm allowed to go outside for 30 minutes. Supervised. a minute more and I screeched at. It's the summer holidays so my friends aren't worried nor any teachers. We have no local family. Nearest is two states over and we live in the middle of nowhere. I had 100 dollars in cash that could get me a local motel for 5 nights. I snuck out my window, crept through the gates and jumped over the bushes.
+
+There was no one for miles until I noticed one thing down the old dirt track. Blood splatters everywhere. My eyes where covered and when I opened them I saw a beast.. well I think? It stood 8 feet tall and walked over to me. It was skinny and malnourished but in the dark resembled a human in some form. It then proceeded to state the words I had dreaded to hear. "try again"
+
+I was sent back to day one, the weird looks and then gradual months of torturous behaviour from my family but this time I knew what to do, go the other way. After what felt like years I got here, my aunt is coming soon. All I have to do is stay put and don't let them find me which I think I've done a pretty good job of so far. Until now where I've just my mums voice from outside the door, her words sending chills up my spine.
+
+"Did you really think you could do it?"
