@@ -1,0 +1,33 @@
+My name is Eli walker I'm twenty-three and I’ve just started working as a search and rescue/park ranger for Blue ridge national park. This was the job I always wanted to be in nature disconnected from the worries of city life not having to slave away at a fast-food restaurant or some retail park for the rest of my life. Nature has always been a safe space for me and you know what they say if you love your job you never work a day in your life. But I fear I don’t have much time left I'll tell you why.
+
+ It started on the first day of the job I and 3 recruits to the Blue ridge team had us do orientation we all ran through the basics of what we were expected to do and what areas we would be assigned to. Each of us had different sectors of the park we had to take care of and help out at. Then the head ranger molly said something a little odd she said “If I were you guys I wouldn't take any notice of the stupid talk about her” we all looked at each other concerned one of the recruit rangers Mikey piped up “and who exactly is she?” the head ranger catching on that she’d said too much she shut it down with an 
+
+“Oh don’t mind me I was just talking about some old rumour trying to spook you anyway it's about time you partnered up for your areas except walker”.
+
+ I had to work alone for a couple of weeks until they found a replacement partner for me. The person I was supposed to work with James B or something he went MIA nobody's heard from him they assumed he just quit or left without letting them know.
+ 
+We were given our equipment and a rifle, pistol and hunting knife with a tactical belt and jumped in a van that would take us to our watchtowers our new homes well for this season anyway. I was the furthest away almost a 2-hour drive I was slowly falling asleep when I saw my tower in the distance. The driver parked and opened the side door I got out and waited for my legs to adjust to standing after sitting for so long. The driver told me it was a 1.2-mile hike through the trees from here I thanked him and took off towards the tower.
+
+ When I finally got to the bottom of the winding steel steps the sun was just setting I quickly ran up the steel steps and used my key to open the cabin at the top. When I walked in I looked around the room there were 2 beds at the back corner a door that led to a bathroom some lockers up against the wall and two desks underneath a small skylight. The cabin looked cosy and homely I started putting all my gear away in my lockers and the bathroom and claimed the desk furthest from the door. 
+
+While going through the desk I found a memo pad that looked untouched I put it on the top of my desk and finished unpacking. I sat on my bed and looked out the window bored because it was too late and dark to go out and check around outside so I grabbed the note pad off the desk to doodle on and saw that the pad had a message scratched into the paper. 
+
+The message was faintly carved into the paper looked like it had been done with a fingernail I squinted to try to read it and I ran my finger over the page to see if I could make out what it said. I grabbed a pencil and shaded over the paper to see what was scratched into it said the 5 rules of blue ridge.
+
+ I was curious so I decided to entertain the idea and tried to see if there was any more scratched into the page it didn’t look like it at first. Then turned over the page and felt a 1 carved into the page and it said remember you and your partner are the only people you work with. I thought it was strange but I kept reading.
+
+ 2~said if you hear her crying run! I started to feel uneasy my hand trembled a bit was this the same her the head ranger mentioned earlier I just turned the page and kept reading. 
+
+3~said don’t let her see you if you do it's too late by this point I was spinning around the room looking in the corners I felt ill and an ominous feeling came over me my hand was fully shaking and I slammed the memo pad on the desk and flipped the page nearly tearing it.
+
+4 ~If you hear her moving around outside the tower DON’T MOVE. I stumbled back from the desk and fell onto my bed I knew it wasn’t real there’s no way it was real I decided to try to calm down. Thinking about it logically the chances are it's some ghost story to try to scare the new guy yeah that’s what I chalked it up to and laughed at how dumb I felt. I jumped into bed and went to sleep early to get ready for my first day on the job but I couldn’t get that notepad out of my head was it a joke?
+
+ I woke up in the middle of the night in a cold sweat I could hear the rain pounding off the roof of the then as if it was scripted I heard cries of what sounded almost human. I jumped up ready to help but then I remembered the memo pad what if it's her that thing. I could hear the screams getting closer and closer till it sounded like it was right outside. I put my boots and gear on I remembered that I never actually finished that stupid list so I walked over still listening to the screams picked up the pad and my blood ran cold when I read what it said.
+
+5~ if you hear a little girls voice calling your name it’s too late for you ps don’t try to attack her it only makes her more aggressive signed James broke. This was signed by my partner the guy who went MIA he wrote this. I stood frozen in place what did he mean by it’s too late. Was this the reason he’s missing how can this even be real…no it’s not real It’s some dumb Prank to scare me and honestly I had enough it’s not funny. I Picked up the radio and tried to get someone from the main cabin to answer I finally got molly on the radio and started to give her a piece of my mind.
+
+She sounded confused than concerned and asked me when the screaming stopped in the heat of the moment I didn’t notice it had stopped something felt off. Molly spoke up and asked me if I was still there I didn’t respond I was trying not to make any noise and listen…nothing I asked molly what happened to James who went MIA.
+
+She piped up and told me that they didn’t know but they had their suspicions that she got to him and that he was dead. Then calmly said to me “oh well guess you can ask me more questions if you make it till the morning” and just like that the frequency went dead. 
+
+I was alone and they didn’t care I now had to accept the gravity of my situation that I was in real danger. This brings us to the present. I'm now sitting waiting for either death or morning with my back to the cabin door rifle in hand with the screams still roaring on I’ll update if I make it.
