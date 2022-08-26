@@ -116,4 +116,4 @@ By midnight, we were staking out in a little shed we had in the backyard to reve
 
 &#x200B;
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/wt2fwt/im_filipino_and_our_culture_is_heavily_influenced/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/wt2fwt/im_filipino_and_our_culture_is_heavily_influenced/) [Part 3](https://www.reddit.com/r/TheGirlwithNoSleep/comments/wy1hzy/im_filipino_and_our_culture_is_heavily_influenced/)

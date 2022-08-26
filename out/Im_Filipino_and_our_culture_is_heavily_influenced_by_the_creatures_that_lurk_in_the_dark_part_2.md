@@ -97,3 +97,7 @@ Myra has been trying to talk to me, but I didn’t want to see her. She would st
 “I’ll leave some food here in case you’re hungry. When you’re ready to talk, just let me know,” she said. I heard her set a tray down on the floor and walk away.
 
 I’m not sure what I should do at this point. Am I overreacting? Am I being needlessly difficult? Should I just let Lola be a *manananggal?*
+
+&#x200B;
+
+[Part 3](https://www.reddit.com/r/TheGirlwithNoSleep/comments/wy1hzy/im_filipino_and_our_culture_is_heavily_influenced/)
