@@ -16,6 +16,6 @@ I ran as fast I could through the house, trying to find a phone or something. I 
 
 I thought maybe running out of the house, but based on where I was, there was no way I could get there, I would have to past the monster, but there was no way to get passed it without being mauled like a gazelle. 
 
-The creature was gaining on me, I managed to make it to my room, I tried calling the police but they just laughed at me and told me I've been watching too many scary movies. I wish my was still alive, she would have been able to talk some sense into my dad so he would have never used his own son in his experiment! That doesn't matter now, all that matters is that I get out of this.
+The creature was gaining on me, I managed to make it to my room, I tried calling the police but they just laughed at me and told me I've been watching too many scary movies. I wish my mom was still alive, she would have been able to talk some sense into my dad so he would have never used his own son in his experiment! That doesn't matter now, all that matters is that I get out of this.
 
 So now here I am in my room with the door locked and my dresser, desk and chair in front of the door, typing this out, if you could, please send help, I don't know how much time I've got left. God! I wish my room had a window! Why didn't I go to my dad's room, I would have been able to get out of here that way!
