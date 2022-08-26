@@ -130,7 +130,7 @@ He was right. Despite how banged up the SUV was, not a stain of it could be foun
 
 &#x200B;
 
-Doing so got us the same result.  
+Doing so got us the same result.
 
 &#x200B;
 
@@ -140,7 +140,7 @@ Doing so got us the same result.
 
 &#x200B;
 
-We agreed and got back in the car. As we were pulling into town, we expected to be greeted by the sound of traffic or anything. Instead, there was only silence with wrecked cars here as well. In addition to that, there were also knocked-over lamp posts and signs. Our tries are armored so driving through it wasn’t an issue. 
+We agreed and got back in the car. As we were pulling into town, we expected to be greeted by the sound of traffic or anything. Instead, there was only silence with wrecked cars here as well. In addition to that, there were also knocked-over lamp posts and signs. Our tries are armored so driving through it wasn’t an issue.
 
 &#x200B;
 
@@ -200,7 +200,7 @@ He pointed.
 
 &#x200B;
 
-“But where are they all connected?” 
+“But where are they all connected?”
 
 &#x200B;
 
@@ -522,13 +522,13 @@ Well, I mean, we did kind of wreck one of their facilities. Still, I won’t let
 
 &#x200B;
 
-Carl and Nick came over. Then I let the footage play at normal speed. This took place two months after we left.  It was daytime and raining. It’s in this kind of weather when the creatures our town fears come out to hunt. 
+Carl and Nick came over. Then I let the footage play at normal speed. This took place two months after we left.  It was daytime and raining. It’s in this kind of weather when the creatures our town fears come out to hunt.
 
 &#x200B;
 
 &#x200B;
 
-As a result, people may choose to close up shop. Mike doesn’t. I once saw him beat up what we call a long-necked creature with a rune-covered wrench. As an aside, runes are required to deal with the monsters in our town with the exception of the returned. Something was coming towards the shop from the left. 
+As a result, people may choose to close up shop. Mike doesn’t. I once saw him beat up what we call a long-necked creature with a rune-covered wrench. As an aside, runes are required to deal with the monsters in our town with the exception of the returned. Something was coming towards the shop from the left.
 
 &#x200B;
 
@@ -546,7 +546,7 @@ This was reminding me of something.  Nick realized what it was.
 
 &#x200B;
 
-“Pause it,” he ordered. 
+“Pause it,” he ordered.
 
 &#x200B;
 
@@ -608,7 +608,7 @@ The others were grabbed and lifted, struggling  He pulled out his gun and fired 
 
 &#x200B;
 
-It would be more correct to say he couldn't have the right ones since this thing was new. The question was, how did it get there? Mike put up one hell of a fight. Unfortunately, the tree managed to nab him by going for his legs. He yelled at it. 
+It would be more correct to say he couldn't have the right ones since this thing was new. The question was, how did it get there? Mike put up one hell of a fight. Unfortunately, the tree managed to nab him by going for his legs. He yelled at it.
 
 &#x200B;
 
@@ -645,3 +645,9 @@ Since then we’ve been making sure to keep quiet for the night in case more of 
 &#x200B;
 
 After all, it’s been [a](https://www.reddit.com/r/StoriesFromRose/) long [trip.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/wy4cu8/were\_investigating\_the\_disappearance\_of\_everyone/](https://www.reddit.com/r/nosleep/comments/wy4cu8/were_investigating_the_disappearance_of_everyone/) (I think we're going about this the wrong way)
+
+&#x200B;
