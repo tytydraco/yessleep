@@ -14,7 +14,7 @@ She is  delightful girl, former news reporter, today being an independent journa
 
 &#x200B;
 
-She called me two days later, that she wanted to meet me again. Fortunately, I see to be walking already easier, only with some temporary, medical, prosthetics, no crouches. It was already close to night fall, she said that she is willing to help and go with me in search of these beings. I was surprised, but glad, and I accepted it. Robert agreed to drive to that area, even if he disliked the idea and told me I was horny...
+She called me two days later, that she wanted to meet me again. Fortunately, I seem to be walking already easier, only with some temporary, medical, prosthetics, no crouches. It was already close to night fall, she said that she is willing to help and go with me in search of these beings. I was surprised, but glad, and I accepted it. Robert agreed to drive to that area, even if he disliked the idea and told me I was horny...
 
 &#x200B;
 
@@ -46,7 +46,7 @@ My heart shrunk when I so her. Imagine a dead witch, dressed in a long black vic
 
 &#x200B;
 
-Ruxandra smiled: ”It is ok, even to me she still gives me the creeps. Beings like her bring this reaction in mortals. It is an instinct.” Yes, it is. She gentle pushed towards Helena, as my fear grew. I followed, although I felt unreal, like in a dream when you do absurd things, even if your rationality is still there and tells you they are absurd things. Helena had a sharp, but curios look on me. I felt like closing my eyes not see her eyes anymore. How do you get properly introduced to a vampire? Shake hands? Say ”How do you do?” Then I had a thought, she is an ”old school” lady, from the 1930ties, so I approached her hand, took her and kissed it. My body started to tremble hard, as I touched that cadaver-like, cold and stone-hard hand, especially when I kissed it. Things got a little better after I let it down and rose up, to look in her eyes. She had a quirk smile and said in her sharp, hissed voice: ”I see that I can show respect to a lady. Yet, you went to pay a woman to give her body to you. For me, a man who goes to prostitutes can not feel no respect for women after this.”
+Ruxandra smiled: ”It is ok, even to me she still gives me the creeps. Beings like her bring this reaction in mortals. It is an instinct.” Yes, it is. She gentle pushed towards Helena, as my fear grew. I followed, although I felt unreal, like in a dream when you do absurd things, even if your rationality is still there and tells you they are absurd things. Helena had a sharp, but curios look on me. I felt like closing my eyes not see her eyes anymore. How do you get properly introduced to a vampire? Shake hands? Say ”How do you do?” Then I had a thought, she is an ”old school” lady, from the 1930ties, so I approached her hand, took her and kissed it. My body started to tremble hard, as I touched that cadaver-like, cold and stone-hard hand, especially when I kissed it. Things got a little better after I let it down and rose up, to look in her eyes. She had a quirk smile and said in her sharp, hissed voice: ”I see that I can show respect to a lady. Yet, you went to pay a woman to give her body to you. For me, a man who goes to prostitutes can not feel respect for women after this.”
 
 &#x200B;
 
