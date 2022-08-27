@@ -330,4 +330,4 @@ Right then, a van pulled up to the police line and stopped. Rosa got out with a 
 
 “Dang.”
 
-“Oh!” Her eyes lit up as she remembered something exciting. “Y’all probably didn’t hear, but while you were trapped in that cave, they passed a bill to [cancel a ton of student loan debt](https://www.gasstationjack.com/post/the-tale-of-the-spider-folk)!”
+“Oh!” Her eyes lit up as she remembered something exciting. “Y’all probably didn’t hear, but while you were trapped in that cave, they passed a bill to cancel a ton of student loan [debt](https://www.gasstationjack.com/post/the-tale-of-the-spider-folk)!”
