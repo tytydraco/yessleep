@@ -1,0 +1,43 @@
+Those words unsaid
+
+The place was a far cry from the teak lined doorways and leather studded queen furniture sets of the old Robin Hood pub on the corner of my old street.  My feet had dragged me here, not my head to the dark forest, a bar on the edge of town. How I got here I would never know.  Riding the monotonous waves of an unscrupulous melancholy I had left Virgil’s bleak bungalow without thought or consciousness and this is where the tide had taken me. 
+
+'I don’t know this area, I don’t know this place. I know that whiskey though.'  
+
+I ordered a double on the rocks and placed myself on one of the scatty looking dark green leather bar stools.  Colour faded from my vision and my thoughts rang through me as a murmured lament. 
+
+The tide of tears gently lapped against memories as the scotch slid down my throat. ‘My boy, my sweet Charlie.'  My eyes welcomed the saltiness that swelled and shone from my face. They filled and they fell, a slow soundless drip, mere pennies in the bank of a blackened soul. One tear for each memory. One tear for all the things my boy will never know.  His face smiled at me, swollen, blue lipped, eyes pert but rolled away. 
+
+The whiskey warmed my throat and belly but not my thoughts. Through one glass I clawed at possibilities, at alternative endings at desperation. Through one glass I suffered, through one I angered, through one I denied and through one I submitted.  Until my heart and head could take no more and I cast my eyes out from myself and into my surroundings. 
+
+The place was darker than I first noticed. A few subdued lanterns placed in the corners of the room, some tealights on the round oak tables and a few nestled behind dusty bottles on mirrored shelves behind the bar. Oppressive moody colours of the room added to the darkness and provided a dank atmosphere for customers to wade through. Old men, all of them, littered around the room, staring into a glass of liquid melancholy resting on ice in front of them, each man lost in his memories, each man, it seemed, vacant to the present, taunted by their past and chained to its misery. In their glasses they longed, they searched. For what? I couldn’t tell, each man as solemn as the next, worshipping a deity that evaded them. 
+
+One man forlornly carved words into the table in front of him with a small pocket knife, the letters large, capital and deep in indentation. 
+
+‘HOPE IS A WAKING DREAM’. 
+
+My eyes hovered on this for a while letting the words drift over before the rest of the room presented itself. Men, one table for each, one glass for each and a dusty ruggedly dressed white haired woman propped at the bar three stools down from me nursing two half full whiskey tumblers. In the corner, a worn dark brown leather sofa, tattered and cracked, sat next to the entrance 3 steps from the door and two from the bar. The indentations in it suggested use of prolonged periods of time. Next to it stood a peculiar looking coat stand, metal and tall with only a few hooks on the top. There were no coats on it. As I took in my surroundings, a muffled effigy of myself, my lolling eyes opened wide as the door to the bar did also. 
+
+The lacerations from torment could be seen in his eyes and were mirrored on his face.  In a raise of a hand and a signal to the barman the new entrant to the pub dropped his torso onto the sofa and ungloved his left hand. The hand was blackened and punctured. Though his hand was not what caught my surprise. 
+
+“His mouth was sown shut to keep the dishonest words from perforating others innocence.” The bedraggled old hag at the end of the bar let the words out in an emotionless sigh. The whiskey in front of her was the initial target but the comment aimed at me.  I turned my head to look at her as the words settled back to silence, and I gasped, a swift intake of breath. She had no eyes. Just hollows where the pearly white of the sclera should shine. I looked back down at my whisky quickly. Knowing to stare is rude, but more so because the hairs on the back of my neck had stiffened into attention and suddenly the bar did not feel so quiet, the drum of my heart filling the silence. Not wanting to look again at the hideous hollow of her features,  my eyes instead darted back to the wretched figure that had walked through the door. 
+
+The old hag was right, his mouth was sown tight. Like a pair of shoelaces drawn with strength to snugly house the foot, the brown elasticated string crusted through the puncture holes on each lip and zig zagged across the mouth like a leather boot. The lips had grown hard and callous with the mutation, stuck together by the cement of putrid saliva. His jaw still moved restlessly behind the tightly drawn covering, god knows what his teeth and mouth would be like without air or hygienic cleansing. My shock at the beldam's words, at a sound being made in the solemn bar was exasperated with some of my own 
+
+“What.. by.. who?” My choice question was not thought through and poured out of me clumsily. I didn’t want to know, I should have kept quiet, offered the harridan a nod of recognition, finished my whiskey, taken the hand of my misery and left quietly. Curiosity however is an emotion purely felt in the present, for the present, and because of that can creep out of a person unknowingly.  My eyes rested on the poor sown up soul intravenously injecting the alcohol he had just bought for a battery and two pieces of silver cutlery. The back of his hand showed the track marks of the Jackshots of past. Blackened veins protruded from the holes.  As he picked up the Jackbag and lifted it to the coat stand peg above his head his eyes rolled round in satisfaction. I couldn’t pull myself away from the sight. I had heard of these intravenous alcoholics but never believed I would lay my eyes on them. His desperate state made it all the eerier. A woeful retreat from the present in the worshipping of a habit. The old crone spoke, barely audible. 
+
+“Hateful to me as are the gates of hell, is he who, hiding one thing in his heart, utters another.” Her face suddenly raged with character, the forlorn furrows on her forehead angled sharply downward and encouraged the malice to explode out of her face.  
+
+“TRAITORS, LIARS TO THEIR LORD” The hag, in a flash, whipped up her glass turned and hurled it at the now unconscious sown soul. 
+
+“WORDS EMPTY AS THE WIND ARE BETTER LEFT UNSAID!!” 
+
+As swiftly as she had erupted, she subsided, head drawn towards the counter once more. Her angered state a mere memory as her face regained its broken composure. Not a movement, not a stir, not a word more did she speak, like a gargoyle blessed with nocturnal life returning to its statuesque pose as the sun rises. I turned to see if any of the other burdened men in the bar had noticed the commotion or at least had a reaction to the insanity of it all, but none had moved, not even flinched. All still sucked in and shackled to their thousand yard stare at the glass in front of them.  
+
+A chill worked and needed its way down my spine, plucking at every hair on the way down. The glass had struck the sown man in the face, in the mouth, blood trickling as a gentle waterfall onto his chest was the only evidence that any such event had occurred. He remained unconscious, limitless in the dreams provided by the alcohol. The shock I felt from the situation drained from me into my whiskey removing the melancholy that usually took center stage, my heart hammered harder, fingers flushed white at a reactive grip on the glass and I stared down into its contents once again. ‘What the fuck!?’ I mouthed to the glass, careful not to make a sound so as to disturb the old blind crone’s statue. Sweat began to perforate my skin and grow in small droplets around my hairline and I squeezed my eyes closed. Still I remained for what seemed like an eternity, blinded, mute, deafened by the silence. Charlie was nowhere to be seen.  The barman came out from the back and stood in front of me. 
+
+“You alright?” Came a muttered query from behind the bar. I dared not look at him, nor any other soul in this strange place. Instead, head down I muttered back.
+
+“Yeah, I’m fine” 
+
+The words were not a part of me, they were an auto-response answering machine, but to the barman they sufficed and he went about his work. Loosening my grip, I downed my final glass, one glass for the shock, placed it back on the bar and turned to leave. But as I swung round, movement from the end of the bar jolted my stomach. Staring back at me through hollowed eyes was the white haired hag, expression turned cold, anger scarring her cheeks to her forehead and in her shaking fist she held high the daggered shards of a broken whiskey tumbler. 

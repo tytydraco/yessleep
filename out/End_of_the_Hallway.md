@@ -4,7 +4,9 @@ Then, I opened the notes app. This is what I found:
 
 \--
 
-**Day 3.** September 10, 2010.My name is Celine McDougal. I am 18 years old, a senior in high school. Three days ago, I was going home after studying in the library for an exam next week. I was walking down the school corridor when suddenly the lights went out. I freaked out for a second and I stopped walking. After all, the school corridor gets pitch dark without the lights. I used my phone's flashlight for a while until it came back on after a few minutes. I continued walking. 
+**Day 3.** September 10, 2010.
+
+My name is Celine McDougal. I am 18 years old, a senior in high school. Three days ago, I was going home after studying in the library for an exam next week. I was walking down the school corridor when suddenly the lights went out. I freaked out for a second and I stopped walking. After all, the school corridor gets pitch dark without the lights. I used my phone's flashlight for a while until it came back on after a few minutes. I continued walking.
 
 The thing is, I walked for almost an hour and I could not reach the end of the corridor, the exit. Looking ahead, it felt like the hallway eternally stretched or like I was in a loop. I started running. I ran and ran. Nothing happened. I was still stuck in the same old place.
 
@@ -96,7 +98,9 @@ It ended there. There were no more notes telling me what happened to Celine afte
 
 After putting her phone in my pocket, I took out my own phone and opened the notes app.
 
-**Day no. 76**September 10
+\--
+
+**Day no. 76 (**September 10)
 
 I finally finished reading Celine's notes. Maybe I should start typing down stuff about myself too.
 
