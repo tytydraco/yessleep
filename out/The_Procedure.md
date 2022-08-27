@@ -4,7 +4,7 @@ So when I started to get strange headaches a few weeks ago, I immediately set up
 
 My urgent care visit was unconvincing. The doctor told me that it was indeed normal for a healthy adult in her mid-twenties to get headaches, but I, of course, needed reassurance. Finally, after pestering and badgering, and even flat out arguing, she conceded, and scheduled me for an MRI appointment. 
 
-Finally, after several weeks of worrying, I arrived for my MRI at St. John’s General Hospital. The waiting room I arrived in was a small rectangle. The administrative desk was in the front of the room, where two receptionists sat, looking irritated, busy on phone calls. A purple orchid in a pot sat on the corner of the desk. An aquarium tank was embedded in the wall behind the orchid, fluorescent greens and blues bloomed and highlighted the tropical fish that swam around the tank's interior. The air conditioning hummed over the sound of Good Morning America being played softly through the TV mounted in the corner of the ceiling. 
+Finally, after several weeks of worrying, I arrived for my MRI at St. John’s General Hospital. The waiting room I arrived in was a small rectangle. The administrative desk was in the front of the room, where two receptionists sat, looking irritated, busy on phone calls. A purple orchid in a pot sat on the corner of the desk. An aquarium tank was embedded in the wall behind the orchid, fluorescent greens and blues bloomed and highlighted the tropical fish that swam around the tank's interior. The air conditioning hummed over the sound of Good Morning America being played softly through the TV mounted in the corner of the ceiling. I remember thinking that I didn’t recognize any of the hosts on the TV.
 
 Stationed in this waiting room were fifteen identical, expensive looking, shiny black leather chairs that had button tufting going up the backrests. Five chairs were occupied with patients: an elderly man and his presumed wife, a middle aged, balding man with freckles, and a mother, maybe in her late forties, seated next to her teenage daughter. 
 
@@ -90,7 +90,7 @@ I winced as the needle slid into my flesh, the pinch severe, then tapering off. 
 
 “I still haven’t talked to any doctors yet, I have some concerns.” I said aloud. I was ignored. The silence was palpable. 
 
-Just then, we rounded the corner into a massive room. Numerous, unfamiliar instruments were strung about. Large cylindrical drums were suspended from the ceiling. Futuristic looking computers were sprawled across the room. A man, maybe late thirties, stood in the middle of the room. His heavy black beard raised as he smiled warmly, his white lab coat pristine. 
+Just then, we rounded the corner into a massive room. Numerous, unfamiliar instruments were strung about. Large cylindrical drums were suspended from the ceiling. Ancient looking computers were sprawled across the room. A man, maybe late thirties, stood in the middle of the room. His heavy black beard raised as he smiled warmly, his white lab coat pristine. 
 
 “Hello, I’m Doctor Bergman! I'm so very sorry I wasn’t able to see you earlier, I was preoccupied with another patient. Please, do lie down on that gurney and we’ll get started.”
 
