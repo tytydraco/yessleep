@@ -1,0 +1,53 @@
+*(Author's Warning!- This story contains heavy gore, harm to animals, harm to humans, mentions of nudity, character death, strong language, and violence, as well as multiple time jumps. Basically, a rated R movie. Enjoy?)*
+
+\--------------------------------------------------------------------
+
+"So, Mister Astra, we are here today to ask you about...your time in Harworth. Are you ready to begin?" The suited man asks, intertwining his fingers together and he set his tan hands down on the cold silver table. I look around and chuckle, looking at my hands, all wrapped in bandages. I frown, taking a long breath outwards remembering the hellish nightmare of Harworth Labs. All the pain, the suffering, the blood, Li-I cut me off, shaking my head as tears spring to my eyes. "Mister Astra? Don't be so formal," I say, crossing my arms over my chest with a small smirk. The suited man's sharp features move slowly, like gears in a machine, each movement, or twitch of the face a clockwork gear moves in his mind. I cross my thigh over my knee and start to noiselessly move my foot up and down, not hitting the ground. 
+
+"I apologize, Atlas." The suited man says, clearing his throat, lifting a gloved hand to his mouth quickly, and returning it to its original position.
+
+ "Where to start? The doctor, the violinist or-" I started and the suited man shook his hand and head at the same time. "From the beginning, *please*," The suited man says slowly, and seriously almost annoyed with me. I nod, and close my eyes for a moment, trying to remember the beginning of the story.
+
+After all, all stories have to begin sometime. We have to go back to a week ago, Atlas. We have to remember *our* story. Let us return, shall we? Welcome back to Harworth Labs.
+
+*Welcome Home, Atlas.*
+
+(Last week)
+
+"Well, Atlas, this article fucking sucks," Roger, my boss says, ripping, crumbling, and tossing my newest work into a large fireplace, with gray and red bricks on the side, covered in a thin layer of ash, the fire burns bright and hot for a few moments, the red-orange flames look nice to push Roger into. I grit my teeth, my blood boiling. "Look, *boss,* I tried my best, but nothing's new and popular at the moment, maybe it's finally time this town wasn't in the newspapers anymore," I say, half-truthfully, I am relieved that we haven't been mentioned in the newspaper from Lakeside West for a week now! A record earned, I say. "This shit won't let you keep your job, why don't you try scrounging around in the abandoned Harworth Labs building, eh?" Roger says, fumbling with a cigar, taking a long inhale of the drug, and exhaling a light blue smoke. 
+
+Harworth made cigars with different color smoke, sure the place was out of business, but he seemed to somehow get some of them monthly. I rub my temples for a second, thinking about his request. Roger's office is the most decorated place in the whole office, as it's all he spends company funds on, a few fur carpets of long-dead animals. Taxidermied animals hung on the wall, with wide eyes and some of their mouths open in forever silent screams. *Poor things, what a cruel thing to do.* I try to reason with the man, as his mind already is in shambles due to whatever chemicals are in the cigar.
+
+ "The place is abandoned, the police closed it off, even *if* I was allowed in there, which I'm not, it might be dangerous. Floorboards breaking, wooden floors breaking, the whole place is falling apart, I-" I say, putting my arms in the air and then moving them to my hips. "Look, just fuckin' go, At, were losin' money, and the people need something interesting! Something fresh, something...new." Roger giggles his dark charcoal locks fluttering in his face, but he doesn't wipe the strands of hair away.
+
+"I know how to work my way around police tape, you know?" Roger smirks, and he reaches his palm out to me, holding a small piece of plastic. I take it, with narrowed eyes and a clenched jaw, anxiety starting to take effect. I turn over the rectangular gray-ish white plastic to see my face, a cool-colored skinned man with shaggy dark brown hair, a long strand reaching down to my eye, the small strands of hair reach the middle of the back of my neck and kinda sit there loosely. A pair of light green eyes look back at me blankly. Freckles dotting my nose and rosy cheeks, a mid-length light brown overcoat on under a simple black top and black leggings with a pair of dark brown-black colored boots. Two large white words with a blue background read '*PRESS PASS'*. With small black text under the photo of myself reading 'Atlas Astra, Reporter For The Black-Bridge Impass' "What's this for?" I ask, holding the small purple lanyard the Press Pass hung on.
+
+ "Put it on," Roger nodded and I obeyed, slowly letting it hang around my neck, it lands over my heart. "You will be using the Press Pass to ask to interview Mr. James Harworth, he should still be there, and they should let you in." Roger huffs out another cloud of blue smoke.
+
+"Fine. If I do this," I motion to the Press Pass over my heart, "I get to keep my job, correct?" I ask, raising an eyebrow. Roger nods, "Correct." He says quickly, and I bite the inside of my cheek, closing my eyes for a brief moment. *Did I really want to keep this job?* As if knowing what I was thinking, Roger, speaks, "Don't forget about your mother, *Atlas,*" Roger warns with a small smile on his pale, placid face. *Motherfucker.* "Fine, I'll do it," I say, resisting the urge to punch Roger. I stand up, put my bookbag over my shoulder, and exit, remembering what I was supposed to do. I exit Roger's office and walk down the white-gray tiled hallway looking at the white walls, bearing the '*Employee of the month'* wall, this month was a man named 'Erick Gonzales'.
+
+I keep walking and turn left to the front door, seeing the rain start to fall, I take a step through the large wooden framed double doors with glass. I gingerly open the door and take a long breath inwards, smelling the fresh calming scent of rain. I smile, putting my hands into my pockets, walking to my small silver car, and opening the door. Keys in hand, I turn the key into the engine and it roars to life. I slowly pull out of the parking spot and drive down the road toward Harworth Labs. A wrecked building by now.
+
+I drive for at least ten minutes before reaching the place.
+
+I park at a nearby coffee shop called 'The Mean Bean'. Harworth Labs isn't too far away from the coffee shop, I start my walk along the sidewalk to see multiple police vehicles with their lights on and flashing, caution tape still lining the front of the building. I gently duck under multiple bushes, looking at the wreck of Harworth Labs, the building bearing a large scar that bore cracks along the entire three-story gray bricked building, the large neon sign that read 'HARWORTH LABATORY' with a small winking pink bunny rabbit flickering to life for a few seconds, the going dim again and then repeating the process again. I slow my breathing as a kneel behind a bush, thorns nicking my jacket, but they don't go through the fabric. I narrow my vision, finding the best vantage point to enter, screw this '*Press Pass'*, I watch as at least three police officers circle the area.
+
+ I wait a little while to find a moment when all three are at the front of the building, seeing a small broken window, I could squeeze through it. I just have to be careful of broken glass. I watch as all three quickly make their way to the front and they all sit there for a few moments, dashing to the window I squeeze inside. A few shards of glass cut the skin on my belly. I gently sit down, the wounds stinging and burning. I gingerly pull up my shirt, leaning and sitting on the wall across from the window, blood staining the glass slightly. I see at least three small cuts, they didn't go past the skin. *Phew,* I should be fine, I just need to stay calm, and pull out the shards. *I'll be okay, I'll be fine.*
+
+I take long deep breaths, my heartbeat slowing down and I grit my teeth as my hand touches one of the wounds. I let out a quiet whimper of pain as I pull out two of the eight shards. *You can do it.* I try to tell myself, but seeing the blood and multiple glass shards still wedged into my wounds, it's hard to have hope. I softly pull out five smaller shards, leaving the medium-sized one for last, it's deep inside my stomach, and it's going to take longer to remove. It's okay, you got this, Atlas," I mutter to myself, wrapping my hands around the shard and quickly pulling out. I scream in pain, tears run down my face and I whimper as I hear footsteps approach me.
+
+An officer with a large pistol, a head, and short brown hair approaches and stops when he sees me. The officer kneels as I read his name badge '*Lawson'.* Officer Lawson kneels and gently puts pressure on the wound and looks at me with confused eyes. "Why are you here, you shouldn't be here," Lawson says sternly, with a commanding and punishing voice. "I..." I try to speak through the waves of tears but then I hear a loud growl in the distance and the door slams shut. Officer Lawson gets up quickly, pulling out his gun and shooting blankly at something I couldn't see.
+
+Then, I manage to get up, using the wall as a support.
+
+I turn to see what Officer Lawson was looking at, and a scream caught in my throat and it wouldn't come out. A large man with burned and scarred flesh stood lazily, Officer Lawson screamed and begged to be let down, he struggled and squirmed, but nothing worked. The man holding Officer Lawson's small head in his large hands started to put pressure on the officer's skull, his hands gripping tighter and tighter...
+
+*Until Officer Lawson's head popped like a balloon.*
+
+*Then, a voice laughed over the P.A., and I screamed, the officer's limp body sliding to the floor, blood staining my shoes. I vomit, the vomit burns and I hurl again, blood, tears, and vomit staining the floor.*
+
+"Welcome to Harworth! I've been waiting for a new playmate, Friend\*..."\* The voice laughed loudly and giggled in a clown-ish manner. I couldn't move, I was frozen, and every nerve in my body shut off. My blood went cold, and tears rushed down my face. I look at the front door and the window I used to get in boarded shut! I rush towards the window, trying to pry off the planks with my bare hands, splinters managing their way into my fingers. I whimper and pain and look to the front door...
+
+*It had been deadbolted shut.*
+
+*I couldn't escape.*
