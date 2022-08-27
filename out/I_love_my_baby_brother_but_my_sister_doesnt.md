@@ -1,0 +1,58 @@
+I'm a 16 year old female almost 17 and my younger sister ,Lily , is 11. A few months ago my mother gave birth to a baby boy,  who I nicknamed Booger . I knows it's gross but when he first came home my sister was holding him and he sneezed a pretty gross and sizely booger     that managed to get on her new shirt.  My parents and I laughed it off but my sister was not laughing and instead demanded my mother to get the baby off of her before she drops it .  My parents were shocked but wrote it off as just being disgusted and that my sister didn't really intend to harm the baby . So did I.  Until I started to notice behavior from Lily that kept getting weirder and weirder as time went on. 
+
+First I noticed that after that incident she avoided booger at all costs, leaving the room when he was around whenever it was possible  and if she was asked to hold booger she refused and told me to do it .  Which was weird but I figured she just was holding a grudge . The only times she was around booger at first was at the dinner table and in the car rides too school  or when she was absolutely forced to be . But then she decided to start waking up early for the bus ... and insisting on eating in her room or that she wasn't hungry . And I know what you're thinking,  this all seems normal for a kid not used to being an older sibling . And I really thought that too and I really hoped for it to be true . But one night things changed my perception of my sister forever .
+
+ It was around 1am and I woke up with the urge to pee . As I was walking to the bathroom I walked pasted Booger's room ... when I noticed the door was open slightly and I could hear whispering. I recognized Lily's voice so I hid just out of sight to listen in . What Lily said made shivers run down my spine . " I killed you once and I'll do it again , I should have known it was you when you shot your disgusting snot rocket at me . " There was some rustling sounds and suddenly Booger was crying,  a blood curdling cry . 
+
+I hurried and tip toe ran back to my room just as Lily emerged from the room and went back to hers . Moments later , my mother woke up to comfort Booger . I layed awake in bed listening to my mom pace back and forth trying to comfort a still screaming Booger for a whole hour before she decided to wake my father too. It was another two hours before Booger's cries finally ceased and my parents went back to bed . 
+
+Morning came and I could hear movement through out the house but since it was Saturday I slept in until noon. When I woke up I went downstairs to find my parents and Booger in the living room . I greeted my parents and went to give my baby brother a kiss when my father stopped me . " Honey i know you love your brother but we think he's sick and don't wanna risk making it worse . " I understood and backed away . " What's wrong with him ? " I asked a bit worried.  My mom spoke up. " He's barely eating and what he has managed to eat , he's thrown up . And he feels warm . We have an appointment for him with the pediatrician at 1:30 and I'm gonna need you to watch Lily while we are gone ."
+
+ I nodded in understanding . " Where is she ? " I questioned . " She's still sleeping. Can you go wake her up? " I rolled my eyes and said sure . I walked up the stairs to Lily's room stopping right in front of her door . I was about to knock when I heard Lily talking.  Again . But this time i was sure she was alone . I lowered my fist and listened in . " He won't fucking die . This is the third time this happened and he keeps coming back ! I can't take it im gonna pull my hair out !" What the heck was she talking about,  was she insane ?! I considered running down to tell my parents what I heard when another voiced spoke up . 
+
+My heart stopped beating and I felt the blood leave my body . " I know , Honey . This will be the last time I promise ." The voice was soft and familiar.  No it was impossible , I just talked to my dad downstairs.  I couldn't bear to listening anymore,  my head was rushing and my heart was beating out of my chest . I knocked as calmly as i could and said " Mom and dad want you downstairs,  it's time to wake up. " I pretended like I didn't hear a thing and walked back downstairs and Lily followed shortly .
+
+
+ Strangely my father was no where to be seen .  I was about to ask where he was when he came out of the downstairs bathroom.   It was now 12:30 and my mom said they were gonna leave for the doctor now and listed all the rules and gave me emergency numbers . I couldn't help but laugh . She was so overprotective sometimes.  "Dont worry mom . Everything will be okay here. Just worry about Booger right now ." I heard my sister scoff beside me but ignored her. " Okay sweeties! Well be back in about an hour!" With that , her and my dad left the house.  
+
+And I was left alone with Lily. She just stared at me , glaring.  " They're always busy with that stupid baby . I wish it was never born ." I coughed awkwardly and tried not to lose my temper. " He's just a baby Lily and he's sick,  it's serious when a baby get sick they have weak immune systems and can die if not treated . You should be more understanding of that ." Lily laughed . " It would make my life alot easier if he did die . " I was so close to losing it but managed to hold it together . " I don't know what's wrong with you lately but you shouldn't say such horrible things.  Anyways do you want some lunch or not. ?" Lily shook her head. " No im not hungry and i have homework to do in my room ."
+
+ Then she left, going back upstairs . Of course you're not and of course you do ,I thought to myself sarcastically. I had to pee again . I didn't dare go upstairs again even though in my opinion it had the better and cleaner bathroom.  Wouldn't wanna disturb her majesty and her " homework ." So I made my way into the dingy and dusty downstairs barroom.  Ugh it reeked in here. I dont know why no one bothers to clean it . Well whatever I sat down on the toliet and released my waterfall.  I was staring into space when I noticed a small silver  circular knob jutting from the lower end of the wall . Thats so weird . I quickly wiped myself and wasted no time going over to the wall to examine it ,not even washing my hands, this felt more important.  
+
+I studied the knob . It looked like a metal knob you'd find on a dresser drawer . I reached out to touch it and it definitely was metal . I gave it a curious pull and suddenly the wall creaked and opened up slightly.  A door . I pulled with more force and revealed a small opening in the wall leading to a long and narrow hallway  , just big enough for a person to crawl though . 
+
+Did I do dare do it ? I've heard about things like this . People find a mysterious crawl space in their home and find out a homeless person has been living inside their house . I knew it was a bad idea and I should just turn around and forget it ... but curiosity got the better of me.  I gulped and began to crawl through the opening.  The floor was cement and hurt my knees as I crawled.  If there was a homeless person sleeping in here , they must have iron bones to sleep on such a hard surface.  
+
+ Eventually I did reach the end of the tunnel and saw a flight of stairs.  What the actual heck ? Well I went this far . I crawled my way up the stairs and came to another door ... in front of the door was a small cardboard box . This door ...had to lead somewhere inside our house.  And I had a bad feeling I knew where. I held my breath and decided to open up the box.  
+
+
+Photographs . Lots of photographs . I pulled out photo after photo . It started off as photos of out family . Me ,mom , dad and Lily and as I got to the more recent ones which for some reason were on the bottom , there was photos of Booger too . Normal enough I thought but when I got to the bottom of that stack of photos and moved onto the other stack.... I saw photos of my father and sister ... with some strange women holding a baby , that looked alot liked Booger . The photo looked old and grainy...
+ And everyone was wearing vintage style clothing... even Booger. 
+
+
+Then there was a news clipping with the title " Older sister accidently drops baby brother off balcony in tragic accident.  " The article goes on to say that the mother commited suicide out of grief ..While the father and daughter disappeared,  never to be found . Some say they went into hiding or also commited suicide . 
+
+
+What the heck is this .." I said in shock and a little too loudly . I heard a thump outside the door before it was roughly pulled open by ... Lily . I dropped the photos in shock and tried to speak but couldn't.  
+
+Lily grabbed me by my shirt and pulled me into her room . " You fucking bitch ! Now I have to kill you too ! " I punched her right in the throat ." Let me go !! " She hissed in pain and dropped me to the ground . " What is all of this ?!?! " I shouted motioning to the photos and news article . Lily sighed and rolled her eyes . " I'll explain . You're my older sister technically but I'm centuries older than you . And who you call Booger is none other than my mother's affair baby .  That's right.   Your precious mother lied , that is not our father's baby . And not our brother either ."
+
+I shook her shoulders ." What are you saying this makes no sense ! " She pushed my hands away . " Don't ever touch me like that.  And that's because you're a newborn this is your first life . But me , mother and father and the affair child have been lived several lives . The only difference is that father and I remember.  Mother doesn't.  I killed Maxwell or how you say Booger , twice now and this will be the last . He ruined our family . And now I have to kill you too . Its a shame because I was starting to like you . " 
+
+
+I backed into the wall , cowering in fear. As if she could read my thoughts she said " don't even try to run . Father is with Maxwell right now and he's been given a microdose of a toxic drug we invented . Enough to make him sick only,  but father has enough with him to give Maxwell the full dose . If you run , I'll send him the signal on my cellular device to give him the drug. " 
+
+
+I nodded ." Whatever you want . Just don't hurt booger ." Lily laughed. " He's gonna die either way but it will be a lot less painful for him if you listen to me ." Suddenly I heard a car pull into the drive way and Lily snatched me by the shirt again . " You are gonna act normal in front of mother.  I am gonna tell father in private that you know.  And if either of us hear you say anything or do anything strange . We will kill you , Maxwell and Mother . Do you want that ? " 
+
+" No . I won't say anything ". I replied in a monotone voice,  still shocked . 
+
+" Good . " 
+
+I ran into the bathroom and vomited into the toliet before cleaning myself and going back downstairs to act normal .
+
+
+It's nighttime now and I'm awake in bed again. I can hear Lily and father whispering to each other from Boogers room . And then Boogers sharp cries echo through the house again. 
+
+
+I wrote this here because its the only place I can feel like I can find comfort and solice... I can't tell anyone else in real life or they'll make Booger die a tortured death.  I only have strangers on the internet to tell this to and if Lily and father get suspicious of my online activity... I might not even have that.  I pray to God that he helps my brother because I am powerless.
