@@ -54,7 +54,7 @@ I ruffled his hair and smiled. "And then, today, I understood what Grandaddy tol
 
 "Put the mummy in the ground for ever and ever, and live with the new baby boy and you!" Ethan said in a sing-song voice. "But why can't I tell anybody, not even the mummy?" He asked again, voice a little more whiny this time.
 
-I have him my best smile, and the biggest daddy hug of all.
+I gave him my best smile, and the biggest daddy hug of all.
 
 "You'll understand when you're older."
 
