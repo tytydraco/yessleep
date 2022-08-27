@@ -1,0 +1,23 @@
+I still remember this event as clear as day, how could you possibly forget a little thing like *The Day You Almost Died?* 
+
+Now, I have anger management problems. It’s my biggest failing in life. I’ve been recently seeing someone about them, and they’ve gotten a lot better, but this story is from before then. This story is from back when I was fifteen years old in 2011. Playing *Modern Warfare 3* on my old, shitty PC that could barely run the game. 
+
+'FUCKING SHIT!' I cried after being shot in the head by another player in the newest *Call Of Duty* video game.
+
+'Suck shit cunt!' a child's mocking voice, distorted by a truly awful mic, cried into my ear.
+
+In my rage, I balled my hand into a fist and slammed it against my table. My Bluetooth keyboard, mouse, and monitor all bounced slightly with the force of the impact. After I had calmed down a little, I returned to my online match, my hand now dully throbbing with pain. Almost immediately after spawning, my pixelated head was perforated by another bullet. More profanities pierced my ears and I balled my hand into a fist and raised it again, ready to slam it back onto my table, when I suddenly stopped. The table was making a strange creaking noise. My arm went limp and fell to my side.
+
+Suddenly, with the strange crackling sound of splintering wood, two holes inexplicably appeared in the desk. Then a long slit suddenly jittered into existence, it began near the left end of the table and - with a short *SNAP! -* dug a shallow, horizontal trench across it, beneath my keyboard, and to the other end of the desk. The two holes then quickly closed - sending pieces of splintered wood flying while doing so - like eyes blinking. Then the long trench began to open, like a mouth.
+
+The trench opened to reveal a seemingly endless starry void inside my table, I bewilderedly leaned over this new hole with a terrified fascination. I watched, petrified, as my keyboard tumbled inside and was lost forever. I’m pretty sure that I could see galaxies spinning and swirling in the blackness. Some were crashing and colliding into each other like an entire universe was locked inside of my desk. Then sharp wooden teeth surrounded my view into this other world. They looked almost like a shark's teeth. Serrated with sharp splinters.
+
+'Stop... Hitting... Me' a slow, hissing voice cried. My table vibrated slightly with each word. 
+
+I darted my head backward as a long, pink, snakelike tongue suddenly shot straight out of the table's new mouth and narrowly missed my face. It then wrapped itself around my wrist. It began to pull. Images of cartoon characters’ heads exploding in space without a suit flashed through my teenaged mind and, terrified, I quickly yanked my hand backward with a sudden and unexpected force. With an awful *RRRIIIPPP!* The table's tongue was torn in half. Blood spurted and sprayed my face and shirt as both ends of the table's tongue wriggled and writhed about in apparent pain. The table made an awful hissing, screaming noise. Then I watched in horror as thousands of tiny black spiders, seemingly from nowhere, proceeded to crawl their way out of the table's mouth as it suddenly began closing, the spiders made a rhythmic sound on the desk like someone was drumming their fingers on it. Quite a few someones. I squealed and quickly stood up.
+
+'STOP... HURTING... ME.' The table cried before all of its grotesque facial features disappeared with a strange anticlimactic popping noise.
+
+My bedroom window was open, it was summer and I had been trying to tempt a cool breeze in. The tidal wave of spiders thundered towards the open window. It looked like a giant black blanket was steadily maneuvering its way across my room with strange scuttling noises. They all crawled out of that open window, all apart from one. In my horror, I had resorted to stamping my feet wildly in a feeble attempt to kill the many spiders. My accuracy was abysmal but I managed to get a single unlucky arachnid with a lucky strike. When my foot slammed against that spider, it exploded into a disgusting greenish-blue substance that had the same consistency as snot. I squealed and resorted to standing on my chair like a woman scared of a rat in a 50s-era cartoon. 
+
+In the following weeks, several news reports recounted tales of large spiders invading people’s homes. One elderly woman was rushed to hospital after seeing one in the shower, getting startled, and slipping. No one ever believed me.
