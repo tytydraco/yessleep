@@ -94,6 +94,6 @@ We must stay here for the mission for six months or until we finish it.
 
 The scary thing about it?
 
-We must study the behavior of an unknown breed of maggots when had been fed human blood.
+We must study the behavior of an unknown breed of maggots which had been fed human blood.
 
-[God help us all.](https://www.reddit.com/r/PostMortem33/)
+[God help us all.](https://www.reddit.com/r/PostMortem33/comments/gpnh5h/story_masterpost/)
