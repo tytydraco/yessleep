@@ -1,0 +1,13 @@
+As I awoke and looked around the room I was in, I realized I wasn't in a place I recognized. Beige walls, a small dresser, and a bed placed next to a window with a view of a park outside were all that greeted me. As I continued to try and gain my bearings, I saw on the dresser a photo of my son. A happy smile of his encased within the frame. It didn't make any sense, why wasn't I in my house, and why didn't I wake up in my bed? 
+
+
+I opened the door to the room and walked out into a dingy looking hallway. The floors were cracked linoleum, and the walls the same dull beige of the room I awoke in. Confused, I continued walking down the hallway, only to see the decrepit and shambling forms of ancient looking men and women. Each one was either muttering to themselves, staring at the wall, or looking around with a vague stare as lost and confused as I was. I don't belong here, I'm not some old doddering fool, left as refuse to rot in this dreadful place. 
+
+
+I wandered further, finding a nurse. Her wrinkled scrubs soiled with small bits of food smeared onto the smock. I tried to explain what was happening, that I don't belong here, that I don't know where I am. I asked where the exit was, she pursed her lips and guided me down a hallway. Not knowing what else to do, I followed. Each step guiding me into the unknown. As we walked down the hall she stopped, and opened a door to a room I did not recognize. It had four beige walls, a small dresser, and a bed placed next to a window with a view of a park outside.
+
+
+The nurse straightened a picture frame on the dresser and said, "Your son should be here next week. Aren't you happy to see him?" The man inside the frame was a stranger to me, I don't have a son, and I'd hardly have one the same age as me. All of this is impossible, and doesn't make any sense. I want to go home, I want to get out of this place. Feeling hopeless, and incredibly tired, I sat down on the bed. The nurse gave a frown, smoothed out her smock, and shut the door behind her as she left.
+
+
+I must have fallen asleep, because when I awoke I was in a room I did not recognize. Beige walls, a small dresser, with the bed next to a window facing a small park outside. I looked down at my hands, they were gnarled, withered like leathery claws, with fingers so stiff I could hardly move them. As I desperately tried to grasp what was happening, each thought being lost almost as soon as it was formed, struggling to comprehend my reality, barely able to scrape together enough mental coherence to remember even my own name, I buried my face in my wrinkled hands, and cried.
