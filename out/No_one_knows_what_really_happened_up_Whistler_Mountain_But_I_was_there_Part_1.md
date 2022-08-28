@@ -1,14 +1,12 @@
 Three bodies found in a remote log cabin, a gun lying beside them that hadn’t been fired. The police, the courts, the local media, all baffled. 
 
-Oh, to be a fly on the wall that day, the gossipers and the gorehounds said. Well, I was in that cabin. I heard every word as I sat there terrified that what had happened to me was going to happen again. That it was going to happen to someone else, that I was going to be trapped forever. 
+Oh, to be a fly on the wall that day, the gossipers and the gorehounds said. Well, I was in that cabin. I heard every word as I lay there terrified that what had happened to me was going to happen again. That it was going to happen to someone else, that I was going to be trapped forever.
 
-I couldn't say a thing but I heard it all.
+But now I have taken possession of a True Crime fanatic obsessed by the murders. I'm finally going to share what I heard and what I saw – my parting gift.
 
-And now I'm going to share those words – my parting gift.
+I must work fast. They say the killer always returns to the scene of the crime. I'm scared they will come for my new vessel, and the killer is beyond a doubt the most horrifying and cunning person I ever came across in what was once my life.
 
-Three bodies found in a remote log cabin, a gun lying beside them that hadn’t been fired. The police, the courts, the media, all baffled. 
-
-Oh, to be a fly on the wall that day, the gossipers and the gorehounds said. Well, in a way, I was. I heard every word said in that cabin. And now I'm going to share them – my parting gift. 
+----- 
 
 It all started with a woman sitting beside the cabin’s CB Radio, searching through the frequencies.
 
@@ -110,7 +108,7 @@ Rose: "And now I wait."
 
 And so she did wait. And she did stoke the fire, and she did turn on all the lights. All whilst I watched on, helpless.
 
-———
+----- 
 
 Nightfall, and there was an anxious energy in the cabin.
 
@@ -165,5 +163,7 @@ Chopper: "If you do as I say, no one is gonna get hurt. I’m coming to find you
 Rose: "Yes, yes, I'll do whatever you say."
 
 Chopper: "Glad to hear it. Over and out."
+
+----- 
 
 More soon, keeping control is exhausting.
