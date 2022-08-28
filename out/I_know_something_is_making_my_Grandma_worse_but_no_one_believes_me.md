@@ -1,0 +1,37 @@
+I can remember slamming the taxi door behind myself with one hand and using the other to pull my raincoat’s collar tight against the slanted drizzle. I even remember finding myself checking for the camera dangling by its worn striped strap in the scramble for cover. Like it would feel different than the last 20 checks. This was the time before everyone always had a fancy camera phone on them, you know. If you wanted to take a photo you had to plan, had to buy film, had to hope at least one would turn out. Should have brought a tote or a backpack to protect from the weather at least, I thought, but I was riding high on impulse and not wanting to think too hard about what I was there to do. My boyfriend didn’t believe me, my parents didn’t believe me, the specialists at the rehabilitation center wouldn’t have believed (if I had mustered up the courage to try). So, there I was, at visitor check in feeling the weight of my embarrassing plan. 
+
+Something was making Grandma sicker, fast. Just a few short weeks ago she was cracking wise ass jokes, eating desserts like a delicate queen in her royal bed chamber and slyly turning her shiny dark eyes to share a secret look with me when Dad did that thing where he hissed at his daughter for sitting “unladylike”. The memory made my eyes sting, but I wiped it away, ignored how prickly red hot my face felt and picked up stride to reach elevator doors before they closed. I knew what it must look like to everyone: poor kid was losing her beloved Grandma and couldn’t cope. Poor Kid was struggling with the idea Grandma might not make it out of recovery and was looking for someone, anyone to blame. Grandma stopped talking and Poor Kid took it personally. My parents whispered words like “deteriorating” when they thought I couldn’t hear. My boyfriend at the time was losing patience for emotional support. But they were wrong. Something was MORE wrong than natural: Grandma seemed beyond just exhausted, drained, dying in a million unreachable miles away medication fog. She looked terror-stricken.
+
+I shared a tight smile with the nurse’s station while turning down the hall that would take me to Grandma’s room. I needed to get my head straight. Ignore the smell of stale urine and noxious cherry scented cleaner and gather myself. A quick double check to make sure the hall was as clear as I thought suddenly made my hands clammy and my heart pound. The door was in reach, but I wilted with shame, thinking “What was I expecting to happen?” A quiet press up to the door gave no signs Grandma was awake just yet. No TV hum, no nurse making futile small talk. The plan was not a well thought out one by any means. Catch something unawares? Catch what exactly? Leaping into the room, camera blazing would scare the absolute shit out of Grandma, but so what? I recoiled, ashamed of the thought. Was I so desperate for any sort of reaction from the old woman at this point I’d even enjoy one at her expense? I did care. I was doing this for Grandma. For her and for answers. “Care enough to call off work, to sneak into Dad’s study, to steal his polaroid, to purchase expensive film for it, to be shaking now, to be here at the door...” This felt right. Something was happening in there when no one was around. My grip tightened on the camera held close, lens aimed high. I made sure to wipe my sweaty palm on the knee of my corduroys before grabbing the knob.
+
+1, 2, 3. Door was flung open with more force than intended. I closed my eyes tight without meaning to.
+
+Click, click, click. Press, shot, printed. A second in-between. The door hit the jam behind it loudly. 
+
+Click, click, click. The first polaroid fluttered to the floor, the second soon followed. The flash was intense.
+
+A soft gasp came from the bed. Click, click, click. 
+
+The vibrating door slowly bounced back from impact, striking my elbow just right and it was then my turn to gasp. I dropped the camera as it spit the last photo to the floor, clutching at sharp pain instead. “Shit!” 
+
+I opened my eyes to meet Grandma’s bewildered gaze. She was sitting up in bed, slack jawed. Awkward silence followed. Standing there in the doorway, sheepish in the quiet and feeling the urge to hide any evidence of theatrics I shifted quickly to gathering up the camera pieces before rushing to her side.
+
+“Sorry! I’m sorry, I… sorry I scare you Grandma.” 
+
+I blurted, gripping her neck in embrace. The tears came shortly after when there was no move to return it. Not unusual for Grandma these days, but it still hurt. I pulled back to wipe tears and dribble from my nose but instead was startled to be met with intensity. She was looking right at me for once, not through me. My hands still on her shoulders, I watched those coal eyes slowly trail up to the ceiling. Her lips parted in a perfect “o”. My gaze soon followed to join her… Nothing. Foam tiles on the ceiling. A grey water stain long dried, dampened, and dried again. A couple flies dead in their light fixture tomb. Still, I searched every inch before giving up. I remember sighing, looking back at Grandma’s face and it’s soft, familiar smile lines around eyes that did not lower again. Unblinking. We both sat in our separate worlds for a few moments, her staring at the ceiling and I feeling crushed. This was a dumb idea. 
+
+“You ok, Grandma?”
+
+The unbroken silence eventually made me retreat uncomfortably, releasing the shoulders I realized were probably clenched a little too hard for a hug. Feeling immensely embarrassed at the sight of the photos scattered on the floor, I set to work cleaning up. 
+
+“Such an idiot.” 
+
+I whispered to the ground, crouching. The thought of scaring the piss out of a nurse almost made me laugh, though. Can you imagine? I struggled to thumb the corner of the first photo off the tile. It was 50% occupied by part of my own finger. Great.
+
+“Sorry ma’am, just testing a theory.” 
+
+I mumbled to myself again. I did laugh then. How would I have explained any of this to another person without seeming unhinged? They would have jumped out of their skin at me barging in. Paparazzi style. The next polaroid tossed in the bin was all blur and bad lighting. Dad was going to be so angry I dropped his camera god I hoped it still worked.
+
+“Pardon me, Nurse, I’m cracking and no one seems to care.” 
+
+I froze then. Needing to reach for the corner of the bed’s metal frame for balance. Holding on too tight, way too tight, knuckles white, in the other hand a final developing picture. Stole a look at the old woman limp, quivering, small looking in her hospital gown, eyes watering in thin streams. She looked like a hungry baby bird. Mouth much too wide to be so silent. Shooting desperate glances from me to the ceiling, me to the ceiling, me back to ceiling again why is she making me look? I didn’t want to look, didn’t want to know, know any more than I already did. No, I thought, ripping away from the bed to look up in time to see a long, filthy trail of hair sliding back into the darkness of the above like so many creatures’ rotten tails. No, I repeated maybe out loud this time, watching the ceiling tile slide back into place by a set of too long too many fingered hands that had just been deep in Grandma’s throat, leaving fresh wet stains on the foam panel as they went.

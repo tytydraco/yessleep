@@ -50,7 +50,7 @@ I was relieved. I couldn’t really afford an MRI bill anyway, so if I could’v
 
 “What is this?”
 
-“Just some legal jargon, you know how it is.” The receptionist chucked, the first sign of emotion in her voice. I grabbed the pen and scrawled my signature on the bottom line. A mistake. 
+“Just some legal jargon, you know how it is.” The receptionist chuckled, the first sign of emotion in her voice. I grabbed the pen and scrawled my signature on the bottom line. A mistake. 
 
 “Great, you’re all set!” 
 

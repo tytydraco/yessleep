@@ -56,7 +56,7 @@ He was easy to recognize even in the dim light of the distant streetlights.  It�
 
 “I’m leaving,” I said as soon as our eyes met, and I turned around and started walking in the opposite direction.
 
-“Oh, you’re no fun,” he said, his voice growing closer as he jogged to catch up.  
+“Oh, you’re no fun,” he said, his voice growing closer as he jogged to catch up.
 
 He fell into stride next to me and I cursed my luck.  His long legs had no trouble keeping pace.
 
@@ -74,7 +74,7 @@ I stared straight ahead and began walking again.  He kept pace, leaning over to 
 
 “Why are you the one crying?” he asked.  “Not like you had a hand in it.  You tried to stop them.”
 
-“They never would have been there without me,” I hissed under my breath.  
+“They never would have been there without me,” I hissed under my breath.
 
 “College students,” he sighed happily.  “You think the world revolves around you.”
 
@@ -102,7 +102,7 @@ I took two steps away from him, but my resolve faltered.  He wasn’t trying to 
 
 “Of course I am.  It’s in my job description.”
 
-I squinted at him.  
+I squinted at him.
 
 “Are you *really* the devil?  There’s lots of tricksters out there.”
 
@@ -206,7 +206,7 @@ I sighed and took it.  There was a strange feeling when I touched it, like it wa
 
 With a gasp, I slapped the pencil down on the desk.  It took a moment to ground myself again, because my mind kept drifting to that feel of something immense clutched in my shaking fingers, so I distracted myself by asking what I was supposed to do with it.
 
-“That’s up to you,” the devil replied.  
+“That’s up to you,” the devil replied.
 
 “Is that all the help you’ll give me?”
 
@@ -216,7 +216,7 @@ I couldn’t keep from sounding upset.  It was like he didn’t actually want me
 
 “No thanks, I’m good.  Please leave, I want to have my anxious meltdown in private.”
 
-He was at least polite enough to do as I requested.  I emptied my pencil case and put it inside to keep it safe until I had to use it.  It also kept it out of eyesight.  Out of sight, out of mind hopefully.  
+He was at least polite enough to do as I requested.  I emptied my pencil case and put it inside to keep it safe until I had to use it.  It also kept it out of eyesight.  Out of sight, out of mind hopefully.
 
 I haven’t decided what I’m going to do with it yet.  But I’m not going to make the same mistake Patricia did.  This is on me.  I’m the one with the devil’s help and I’m not going to drag anyone else into it.
 
@@ -225,6 +225,8 @@ I keep wondering how bad of a mistake this is going to turn out to be.  If I can
 ‘We don’t make bargains with evil things.’
 
 The unofficial town motto.  I really am far from home.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+Keep reading.
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
