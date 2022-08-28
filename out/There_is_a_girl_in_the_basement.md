@@ -1,4 +1,4 @@
-If you have ever babysat you have a scary story and I think mine wins, this is one story that still haunts me to this day, Halloween night 2013. I was working as a babysitter in my local area, I was probably 15 or 16 when this happened. I talked to many therapist after this and they all told me the same thing. It would take me while to get over this, something I could of figured out on my own but I suppose they gave me a few tricks to get me back to what, normal? How could anyone be normal after this?
+If you have ever babysat you have a scary story and I think mine wins, this is one story that still haunts me to this day, Halloween night 2013. I was working as a babysitter in my local area, I was probably 15 or 16 when this happened. I talked to many therapist after this and they all told me the same thing. It would take me while to get over this, something I could've figured out on my own but I suppose they gave me a few tricks to get me back to what, normal? How could anyone be normal after this?
 
 Anyway, I went to this young girls house. I think she was about nine. Everything was going fine until about 8 o'clock. She asked me for some ice cream and her mom had told me she was allowed some earlier that night. Fine, I get up down to the basement where they kept a freezer as their kitchen was quite small. I glanced up at the window they had at the top, you know where it would be on the ground if you where stood outside, it was angled down slightly so anything in it looked to be staring at me, I take a step back when I see a young girls face. I feel fear run through me but it looks like a mask. As I said, Halloween night. It was probably some stupid kids messing about so I go and grab the ice cream, still a little shaken up. I didn't want to scare the girl, so I kept this to myself and would go back down and check before calling the police. Looking back that was the most stupid idea I have ever had.
 
@@ -6,6 +6,6 @@ I got her some in a bowl, she then looks at me with a sorrow look. "Could I have
 
 The police and parents get here, so do my parents. I'm crying uncontrollably which is understandable. I begin to tell the police everything and when I get to the bit about the window, her mom looks at me, white as snow. She then say the words that still appear in my nightmares to this day.
 
-"Hunny, we don't have a window in our basement, the planners wouldn't let us. What you saw is.." she pauses before the next phrase leaves her mouth. 
+"Hunny, we don't have a window in our basement, the planners wouldn't let us. What you saw is.." she pauses before the next phrase leaves her mouth.
 
 "A mirror"

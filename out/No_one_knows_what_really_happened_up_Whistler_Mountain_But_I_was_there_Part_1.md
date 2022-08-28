@@ -72,7 +72,7 @@ Rose: "It's stupid really, but we were arguing about the date of our wedding. I 
 
 Chopper: "No, it’s good to talk, Rose. What’s the problem with the wedding date? Do ya both wanna get hitched at different times? Over."
 
-Rose: "It’s not that. After we got engaged, Michael lost his job. It took him a few months to find a new one and, in that time, we burned through all our savings. Michael wanted to put off arranging the wedding until we’d built them back up again. Rose: "But we’ve both been working for a year now, Michael even has a much better job than he had before. We can afford this expensive holiday but apparently we still can’t afford a wedding. It’s frustrating. I just want to pin down a date, but he keeps brushing me off. Over."
+Rose: "It’s not that. After we got engaged, Michael lost his job. It took him a few months to find a new one and, in that time, we burned through all our savings. Michael wanted to put off arranging the wedding until we’d built them back up again. But we’ve both been working for a year now, Michael even has a much better job than he had before. We can afford this expensive holiday but apparently we still can’t afford a wedding. It’s frustrating. I just want to pin down a date, but he keeps brushing me off. Over."
 
 Chopper: "That’s a pickle, Rose. And I can see why it’s getting to you. Do you think Michael might be worried about losing his job again? Afraid he won’t be able to support you? Bein’ out of a job mighta hurt his pride. Over."
 

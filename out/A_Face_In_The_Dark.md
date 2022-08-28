@@ -1,0 +1,31 @@
+It was a breezy September evening. The yellow glow of street lights reflected off the rain-slickened sidewalk. I was making my way back from volleyball practice. I usually took the bus, but I ended up missing it that day and didn't feel like waiting another twenty minutes for the next one to show up, so I decided to save some time and just walk home instead. I am fortunate enough to live relatively close to my school, and it wasn't like I hadn't made the trek before.
+
+It's a fairly gated neighborhood—one of those places where your neighbors will judge you if you forget to mow your lawn that week, or neglect to put up the appropriate holiday decorations. Crime is virtually unheard of in these parts, so I, who couldn't have been older than thirteen at the time, didn't feel scared walking alone after dark.
+
+The only sounds were of crickets and the odd passing car. I checked the time on my phone. It was past nine o'clock. I still had homework that needed doing, including a report that was due tomorrow morning. I decided to cut the already short walk even shorter by going straight through the park.
+
+With the absence of daylight, the quaint little plot of greenery might as well have been a dark forest. The branching cobblestone paths snaked around the dense foliage, converging on a pond at the center of the park. This is where all the soccer moms and their kids usually spend their summer afternoons. All that greeted me now was a circle of empty benches. There were twigs and shriveled leaves littering the pond, disturbed only by the occasional ripple. My sole sources of light were the pair of lampposts positioned at opposite sides of the clearing.
+
+And then, as I glanced back towards the trees, I noticed something. The only reason it caught my attention was because I happened to be looking in that direction. I wonder what would've happened had I chosen to ignore it. Would it have just ignored me as well? Or had it already been watching me, waiting for the right moment to reveal itself?
+
+I used my sleeve to wipe my glasses, put them back on and squinted. There was something round and pale suspended between two pine trees. It didn't seem to be connected to anything; like a white dot in the middle of a black canvas. I stepped closer in an effort to get a better look. My heart sank to my stomach.
+
+Staring back at me was a face...
+
+I jumped back with a yelp. It, on the other hand, didn’t even flinch; just kept observing me with its wide, glassy, doll-like eyes. Its lips were curved into a porcelain smile; its complexion so deathly pale that it looked artificial, almost like a mannequin's. I wanted to run, to get as much distance between me and that thing as physically possible, but my legs refused to budge. I wasn’t paralyzed with fear, no. It was doing something to me: something I couldn't see. It was as if there were invisible hands holding me in place, their grip tightening the more I pleaded with my body to get me the hell out of there. 
+
+The disembodied face was now hovering towards me, gliding through the darkness that separated us. Or was I being dragged towards it? Whatever the case, it was getting closer, all the while maintaining that same eerie smile. I could do nothing but shriek in horror as its mouth suddenly began to open. It stretched past all conceivable limits, revealing a toothless void that could easily fit me whole. I squirmed against whatever was restraining me, but it made little difference. I could see it in its eyes—the satisfaction, the hunger, as its black maw drew ever closer.  
+
+I’ve never been a particularly religious person, but someone or something must’ve been looking out for me that night. What happened next was nothing short of a miracle. Just as I had all but surrendered to my fate, I was suddenly yanked back by the waistband of my sweatpants. A large and hairy shadow jumped in front of me, shielding me from the pale apparition’s impending approach. Judging by the collar around its neck and the leash it dragged behind, it appeared to be someone’s dog. Still in shock, I could only sit there and watch as it faced off against the thing in the woods. Its guttural barks reverberated throughout the park.
+
+The owner, an older woman in her fifties, came running not long after. She proceeded to try and help me up while apologizing profusely, immediately assuming that it was her dog that had attacked me. I shook my head and attempted to explain, although I doubt that anything that came out of my mouth sounded even remotely coherent. By the time I managed to formulate a full sentence, the face had disappeared. Only empty darkness occupied the space where it once had been.
+
+The most terrifying part? I never found out what that thing actually was. A ghost? A monster? A product of a schizophrenic episode*?* For all I know, I could wake up one night and spot it grinning at me from across the room. It’s been a whole decade since then and, thankfully, nothing like that has ever happened, but I doubt that the paranoia will ever truly go away. 
+
+Still, I suppose that my story does have somewhat of a happy ending. My canine savior went on to father eight healthy pups that following year. I remember how hard it was to sell my parents on the idea initially, but they eventually caved and we ended up adopting one of them for Christmas—a slobbery little princess we named Rosie.
+
+She’s actually snoring on the couch next to me as I type this, though we call her Granny Rosie now. She’s turning nine next month! Hopefully we’ll get to celebrate it. With how uncertain things are in the world right now, you never know. 
+
+I know it’s customary to end stories like these with some sort of warning. The problem is that I have as much of an idea of what happened that night as you do. Trust me; I’d love to randomly come across some old newspaper article or forum post that conveniently validates my experience. Unfortunately, the real world rarely works like that. My luck doesn’t stretch quite that far, it seems. I’ll just leave you with this small piece of advice instead:
+
+If it’s late and you have the option, please just take the damn bus.

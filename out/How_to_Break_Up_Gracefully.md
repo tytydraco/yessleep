@@ -22,7 +22,7 @@ I want to be single, I want to do what I want, use any space I want, I’ll neve
 
 Try 1:
 
-I approached her, she was sitting on a couch. “We have to talk” I said. She ignored me. 
+I approached her, she was sitting on the couch. “We have to talk” I said. She ignored me. 
 
 “HUUH!??” she screamed after a minute. 
 
@@ -60,13 +60,13 @@ To sum up, she react well, and I realized this could be one of the “drunk inci
 
 Try 3:  
 
-Since we have the most articulate conversations over text, I texted her that I want to break up with her and that I really mean it. That one of us should move out. And that I’m fine with her taking the PS6 and some other shit so that she knows I’m trying to be concrete, pragmatic and on point about this. 
+Since we have the most articulate conversations over text, I texted her that I want to break up with her and that I really mean it. That one of us should move out. And that I’m fine with her taking the PS5 and some other shit so that she knows I’m trying to be concrete, pragmatic and on point about this. 
 
 She replied with that meme where Trump makes different faces. 
 
 It continued for a while. She always had the right meme to send. 
 
-Not to bore you with further tries, my efforts continued, meticulously recorded in my journal. Day after day I tried and failed to break up with her. I realized this isn’t normal, I am in a type of relationship groundhog day where things keep getting reset back to our normal. 
+Not to bore you with further tries, my efforts continued, meticulously recorded in my journal. Day after day I tried and failed to break up with her. I realized this isn’t normal, I am in a type of relationship groundhog day where things keep getting reset back to our normal no matter how I approach this.
 
 We went out to a pub and someone asked how long we were together and I said 5 years, she corrected me, apparently, it’s 7 now. It makes no sense. 
 
