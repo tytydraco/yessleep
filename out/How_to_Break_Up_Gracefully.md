@@ -1,6 +1,6 @@
 I’ve been with her for about 6 years (I’m still always shocked when she says the exact number because how can it possibly be, it’s too much of my life), and I wanted to not be with her for at least 2-3 of those years although sometimes I think, all that time. 
 
-I loved her once. Our love story was impressive, filled with charming and unlikely coincidences, determination to be together despite all obstacles, our conversations were pure highs, our similarities were insane, she was my long-lost twin, and even though we’re both atheists we couldn’t help but see all the signs that implied we have something going on (e.g. our first names had the same number of letters and together formed a neat anagram). 
+I loved her once. Our love story was impressive, filled with charming and unlikely coincidences, determination to be together despite all obstacles, our conversations were pure highs, our similarities were insane, she was my long-lost twin, and even though we’re both atheists we couldn’t help but see all the signs that implied we had something going on (e.g. our first names had the same number of letters and together formed a neat anagram). 
 
 Through the years, we both told our story to people we met, it always started the same, we knew precisely what whoever was telling it would say line by line. And people would go “oh wow that’s so cute”. 
 
@@ -44,7 +44,7 @@ Every now and then we go out to drink. We do it together because we both want to
 
 If we meet up with friends then we all talk normally and behave like normal people. We both seem slightly embarrassed by the other at times. I notice that she has no attention span and interrupts or changes topics a lot when people are talking. I try to make up for it by being a very attentive listener who steers the topic back on track. I sometimes get too drunk and then she’s embarrassed. Sometimes we do ok. 
 
-However, when we’re alone drinking, we sometimes reach a point of drunkenness where we actually start talking. Half the time we end up fighting. Half the time we end up enjoying ourselves a little, and sometimes it even ends with good talk or even sex. Each time is a gamble, where will it take me, where will it take her, and what are the chances we meet in the same, good enough mindset? 
+However, when we’re alone drinking, we sometimes reach a point of drunkenness where we actually start talking. Half the time we end up fighting. Half the time we end up enjoying ourselves a little, and sometimes it even ends in a good convo or even sex. Each time is a gamble, where will it take me, where will it take her, and what are the chances we meet in the same, good enough mindset? 
 
 Well, I thought the next outing would be a good time to break up with her as it’s virtually the only time we are capable of having a real conversation. 
 
@@ -56,7 +56,7 @@ After 2 hours of beer and reddit, we started to engage in some convo. When I tho
 
 “This is why I can’t drink with you. You ruin everything. You can’t even pull it together for my fucking birthday.” 
 
-To sum up, she react well, and I realized this could be one of the “drunk incident” nights as things were getting heated, so I slightly backtracked. In the end, we had a fight, I went to sleep and I woke up feeling like shit. She was clearly pissed at me the next day and I was very hungover experiencing a panic attack the whole day, and then eventually things went back to normal. 
+To sum up, she didn't react well, and I realized this could be one of the “drunk incident” nights as things were getting heated, so I slightly backtracked. In the end, we had a fight, I went to sleep and I woke up feeling like shit. She was clearly pissed at me the next day and I was very hungover experiencing a panic attack the whole day, and then eventually things went back to normal. 
 
 Try 3:  
 
@@ -66,7 +66,7 @@ She replied with that meme where Trump makes different faces.
 
 It continued for a while. She always had the right meme to send. 
 
-Not to bore you with further tries, my efforts continued, meticulously recorded in my journal. Day after day I tried and failed to break up with her. I realized this isn’t normal, I am in a type of relationship groundhog day where things keep getting reset back to our normal no matter how I approach this.
+Not to bore you with further tries, my efforts continued, meticulously recorded in my journal. Day after day I tried and failed to break up with her. I realized this isn’t normal, I am in a type of relationship groundhog day where things keep getting reset back to *our* normal no matter how I approach this.
 
 We went out to a pub and someone asked how long we were together and I said 5 years, she corrected me, apparently, it’s 7 now. It makes no sense. 
 
