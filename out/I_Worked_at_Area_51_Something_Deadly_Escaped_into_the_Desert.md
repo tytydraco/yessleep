@@ -108,6 +108,8 @@ People need to know.  They need to be ready.
 
 Something escaped from Area 51.  And it won’t stop until we’ve all been [assimilated.](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
 
+[MAD](https://www.reddit.com/r/MidnightAllDay?utm_medium=android_app&utm_source=share)
+
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
 
 [YT](https://youtu.be/9RybtYtDzAk)
