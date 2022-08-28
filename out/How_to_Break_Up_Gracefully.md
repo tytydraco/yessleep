@@ -10,7 +10,7 @@ Now, we’re renting a small but nice apartment, my career’s finally going wel
 
 If it weren’t for some practicalities of life, I’d have dumped her long ago. I wanted to dump her back when we fought a lot, but I couldn’t. I wanted to do it back when I loved her because I thought I didn’t have it in me, but I couldn’t. I wanted to do it on and off throughout our whole relationship. It just never worked. We’d just end up fighting and then make up and then it didn’t seem fitting to say anything. And now I can’t just pack and leave, I have a job here and we both pay for this apartment, so it seems really inconvenient. 
 
-I spent so much time fantasizing about it. Sometimes just the sight of her would piss me off. Why is she always on the couch, she should be considerate and give me space to be on the couch alone too. I’m always in my home office. I watch Netflix from there, I play games from there, she’s always on the couch. 
+I spent so much time fantasizing about it. Sometimes just the sight of her would piss me off. Why is she always on the couch, she should be considerate and give me space to be on the couch alone too. I’m always in my home office. I watch Netflix there, I play games there, she’s always on the couch. 
 
 She also mutters shit to herself and I know it’s always some passive-aggressive comment about whatever I did wrong (e.g. left a cabinet open), sometimes I get pissed and challenge her and say “What? You have something to say?” and then she acts confused although we both know she does have something to say, we both know what it is. 
 
