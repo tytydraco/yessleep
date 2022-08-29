@@ -1,3 +1,7 @@
+
+[part 2](https://www.reddit.com/r/nosleep/comments/ws3rhs/he_called_himself_sleep_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+
 It was all black. It was a void and I was floating upwards like a string pulling me by my head. My feet were on a solid surface but I was unable to move. One by one as if poured by paint all the boys from the sleepover ten years ago started circling around me. Once all twelve stood around me then one by one they all burst into flames. I was then surrounded by burning piles of ash and again as if they liquid they pooled all back to the position in front of me then started filling in another shape from the bottom up. I quickly recognized my father. I wish I could say something. Anything.
 
 &#x200B;
