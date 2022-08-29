@@ -1,0 +1,27 @@
+I’m currently writing this on the back of a bus… it’s raining… and I don’t know what’s going on… 
+
+This was the year I was going to graduate. After a long summer I was excited to return to school and see all my friends. To my luck, and the bipolar weather in my state, my mom was not able to pick me up. Normally she picks me up right outside the front of the school and we go home, I don’t take the bus because we live in a remote, and mostly far location from the school. Because of the weather she simply was not able to pick me up today and I was going to have to ride home on the bus today.
+
+Because of where I live the bus driver would have to drive his usual route to a certain community then layover to drop me off. I was pleased to see some of my friends on the bus as I enjoyed the ride. The rain continued and wouldn’t let up. We eventually arrived at the community and the bus driver had me come to the front to confirm directions. I helped the guy out and returned to the back of the bus, simply because I liked the feeling of privacy.
+
+The bus sputted out it’s usual diesel noises as we drove away from the community. My watch read 5:34 PM. I decided to lay back and try taking a nap with my hood over my face. I dozed off then jolted up as the bus braked. I pop up and look around. The time now read 5:50. It seems we were on the road still, but pulled over? I recognized the swampy forest we were in. Only 30 minutes away from my house. I look up and notice the bus driver looking panicked.
+
+“Excuse me sir… may I ask what’s wrong?”
+
+The bus driver jolted his head at me. He spoke with a worried tone. “N~ nothing kid. We had a tire pop on us… this will be quick! I’m just going to seal it and keep us moving.”
+
+He opens the door. I look out the window as rain still came down in sheets. The bus driver stepped out. I waited and waited. I look down at my watch as minutes pass. At the top of the hour I get concerned. The man had been out there in the rain for a while. I stay laying back and notice the rain getting harder. I stand up and peer outside the window. The man was still out there working hard. It seemed that the rain water was causing the delay. I looked into the forest as a dark fog loomed over the swamp grounds. 
+
+My house is remote because of the swamp grounds that divide my county. Apparently the land on which my house resides on was very cheap as it was the only fertile land surrounded by the swampy mess. My past generations would farm on it, and take their goods down the road I’m on right now… the only road back into the main part of the county. Many were superstitious of the large swamp, my grandpa would laugh at the silly ghost stories, but they always intrigued me. I stood staring at the fog more as I turn to look back at the bus driver. He was gone? But he was- suddenly the entire bus shook. I could hear a man screaming from behind me. Out of fear I jumped back onto the seat of my bus. I could hear the screaming as it got farther and farther away.
+
+I fought my fear and looked outside. Nothing but rain and swamp. I go the length of the bus checking to make sure the man really was gone… once I checked out the rear window near the emergency exit I noticed something… a trail of a smear of… I gag as I realize what it was. There was a trail of blood running into the swamp. I quickly ran to the front of the bus and throw up into the trash. I pull out my phone and quickly call my mom. 
+
+“Pick up… pick up!”
+
+The phone rang… and rang. I re-dialed and tried again and again. It was my service. The thick brush of the surrounding area and the weather must’ve knocked it out. I sit on the ground in shock. An idea popped up in my head as I grab the man’s phone from the dash, the routing information still open. He must’ve had a better cellular company than me. I call my moms number. I sat on the drivers seat and waited for a response. I sat there for minute… after minute… after minute. Re-dial after re-dial.
+
+I propped myself up in the drivers seat giving the phone one last check. Again, nothing. I come to my senses and realize that I would have to try and drive the bus. I fasten my seatbelt as I put it into drive. It creeps forward… a loud screech sounded. THE FLAT TIRE! I quickly throw the bus into park and turn it off. I look outside the clear glass door and see the tire. It was worse than I thought and I realized why the driver seemed so concerned.
+
+The entire wheel was off and the spare was propped up against the bus. The man must’ve been fixing it! I look outside into the rainy swamp. I knew how to change a tire… I could do it… but what if whatever happened to the bus driver happens to me? I collect my bravery as I put my hood on and open the door. I run through the rain to the tires. I pick up the spare and slide it onto the axle. I see a wrench underneath the bus. I crawl under it slowly to grab it.
+
+I finally feel the cold metal of the wrench as I grab it. I start backing up while observing my surroundings. I would be fine- suddenly the body of the bus lowered. Thunder crashes as I jolt myself from beneath it. I sit on my back as I look up. A figure, in the shape of a tree stood atop the bus… I could feel it… staring at me…
