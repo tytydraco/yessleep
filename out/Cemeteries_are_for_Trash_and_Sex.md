@@ -34,7 +34,7 @@ Marco parks at the back. We take a final gasp of light before he clicks the head
 
 “Thanks Marco,” Victoria says. He shrugs and shuts the door, plugging his earbuds in and turning on his phone flashlight. We watch through the window as he fades into the night, the pinprick light of his phone wandering away like a lost firefly.  
 
-Victoria unclicks her seatbelt. Like a pistol firing at the start of a race, Victoria unclicks her seatbelt. At last we are alone.  
+Like a pistol firing at the start of a race, Victoria unclicks her seatbelt. At last we are alone.  
 
 She starts to wriggle out of her shirt, but bumps her head against the ceiling. “Ow.” I unbuckle my belt, then struggle to get my pants off my legs. We knock into each other and against the car as we undress – laughing the whole time. “This isn’t very erotic, is it,” Victoria says.  
 
