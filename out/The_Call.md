@@ -1,117 +1,51 @@
-“9-1-1, what’s your emergency?”
+ 
 
-“I’m at ___ boulevard. Only house out here. There’s someone outside my house.” I wanted to thank him for giving me the address without asking.
 
-“Okay, how long have they been there?”
+“Chris . . . . Chris?” I know the voice, the person it comes from, I know not the way it is spoken. A woeful silence hangs down the phone line as I ask my question; “Marie, Marie, what is it what’s wrong?” A knot tightens in my chest and the playful excitement of a few seconds before flees from my conscious. 
 
-“Uh... an hour?”
+“Marie talk to me, what’s happening are you ok?” 
+    
+“ . . . . What . . . What are you doing?” 
 
-I hummed, trying not to judge them for taking an hour to call someone in their situation. “I see, sir,” I replied, “where are they in relation to your house?”
+Her voice quivers with confusion and horror.   The tone in her voice and the question aimed not at me but at some unknown entity hits the alarm button in my body and suddenly I’m scared, and then I hear it. Behind her voice comes a sound of carnage, the crashing of a forced entry and the deep wrenching roar of mechanical destruction. 
 
-“...Uh, hard to say.”
+ “MARIE?!”  Exasperation explodes from my mouth. 
 
-“Why’s that?”
+ “. . Chris??! . . . . . …. ”
 
-“I can’t see them right now, but I know they’re out there. They keep moving. Damn, they are fast.”
+The terror in her questioning voice shreds its way down the phone line and stings my ear with a desperate impact.  
 
-“Okay, so, what are they-“
+“. . . . No . . . STOP! . . .  CHRIS!!” 
 
-“Fuck me!”
+The first words a command the second a plea. I cant believe what I am hearing. Is this real? My wife. Her terror only draws a thicker darkness over my thoughts and my imagination burns horrifying images onto my minds eye. The sounds, writhing their sickening way towards me, yank my stomach up to my throat and my lungs suffocate my heart. Crashing, crunching, broken ornaments, grinding and banging and the doeful cries of unyeilding lament pour through the phones speaker.  
 
-“Sir? What happened?”
+“MARIE HOLD ON, I’LL BE THERE, HOLD ON MARIE I’M COMING” 
 
-“Bastard just ran past the window!”
+I’m torn, in two minds, the instinctive thought to hang up the receiver and get over there as fast as I can burns bright but dies. Instead my despairing curiosity sticks the phone to my ear. Shock and panic roots me to the spot. I think, I hope, I pray.  I hear another timid sound from down the phone line. 
 
-“Can you describe them?”
+“No. .” The tearful plea almost inaudible but loud enough to work its way to me. With this, a word never spoken in such form by the other part of my heart, crushes me worst of all. A plea to an attacker. A plea for her life. And then it happens . . . 
+    ”aaaAaAAAAAAGHhhhhhh . .CRAACCCCCCSHRUUUKUUUNNK” 
 
-“Big. Real big. And hairy... not wait... shit, I think they were covered in fur.”
+A loud thud and deafening crunch, the sound of impacting metal and broken bones and torn flesh rings down the receiver in a duet with the horrible cry. The high pitch shrieking sound shocks me like a jolt of lightening burning 10,000 volts of desperation and fear through my torso. Oh god, Marie, whats happening to you, whats happening, no baby, please, please be ok baby 
 
-Probably a coat. “Can you describe the fur?”
+“I’m  comin, Marie, FUCK, oh god” Panic has its bloody claws around my heart tearing at the flesh like fingernails on a chalkboard. Shit, Marie, please be ok please, oh god I’m about to hang the phone up when a voice I hoped not to hear perforates the silence . . . . 
 
-“Like a dog or coyote or- oh. Oh shit, I know what this is.”
+“Daddy?” 
 
-“What is it?”
+“Charlie?” “Oh god Charlie no, please no. .” A picture of his confused unrefined soft and innocent face flashes before my eyes.  “Charlie listen to me, Run, get out, get away RUN CHARLIE YOU HEAR ME, RUN!” My desperate cries seem to fall on deaf helpless ears as the word comes once again . . .
 
-“You aren’t going to believe me.”
+“Daddy” His tears run through his vocal chords like the gargle of a slit throat. 
 
-“Why’s that?”
+“CHARLIE RUN . . RUUN!!!” His soft voice breaks through the dam of my resilient heart and the dread and despair drags my thoughts down and with it my fight- and my fears and my fury rise and shudder through me exploding tears out my eyes and profanity out of my mouth 
 
-“Well, it’s... like I said, you aren’t going to believe me, but it’s a werewolf.”
+“FUCKING RUN CHARLIE, GET OUT!” . . . . .
 
-Oh great. Someone’s on drugs.
 
-“You’re sure it’s a werewolf?” I said, already adding that the caller may be on a substance to the dispatch.
+ The silence returns, the other end of the line dead, still off the hook, but silent to the situation. Till one final sound seeps out and tears my heart soul and my world in two. 
 
-“Look, I know it’s hard to believe but this part of the woods... there’s an old legend, about a family of werewolves. I never believed it, but that thing was just- that was huge!”
+“Daaa. . . uh . h h” His little voice choked off, withdrawn, the sound cupped in wrathful hands and blanked out of existence. His life and my hope suffocated. The phone drops from my hand, the line still active. My memory blanks, my vision blurs, my heart yearns, my soul dies, my world cries for me, the future laughs at me. Daley tries to comfort me. His apartment becomes my wrecking ball. Desperation, anger and despair all help to litter the surroundings with my turmoil.  My world crushed in 1 minute, in one phone call, my bloody raged fists grab the keys, we get in the car and with the last remaining withering hopes, high tail it to my house in fear, in fury, in malevolence and despair. 
 
-There was silence as the man on the other end began panting. It sounded like he’d taken the phone from his ear.
 
-“Sir?” I said, trying to get his attention. “Sir?”
+Slowly, quietly at first but rising to a great crescendo, a sickening sound pierces the hanging phones’ silence and follows us as we exit. The laugh of a hyena as it’s enjoying its prey. . .  
 
-There was a shuffling sound in the static and then he spoke. “I was just checking the backyard. Damn thing is out there, I can see his eyes. They’re glowing yellow in the dark. Gotta be at least eight feet off the ground, I can see the outline from here, it’s- it’s just watching me.”
-
-“Okay, the police are on their way now, keep an eye on-“
-
-I was cut off by an ear-piercing howl that burst through my headset. I winced, hands grabbing at my ears.
-
-The man was yelling something. “Did you hear that?! Did you fucking hear that?”
-
-I gulped before answering. “Uh, yes sir, I did. What... was that the-“
-
-“No,” the man’s voice was quivering, “that thing didn’t move. Aw Christ, I think the whole family’s coming!”
-
-“Are you saying there may be more than-“
-
-“Whole family of werewolves, coming right at my house,” the man was muttering, “shit, shit, shit, damn it, where’s the silver?!” I could hear him rummaging. “Shit!”
-
-“Sir, police are on their way now. Please, stay indoors and don’t go outside.”
-
-“No shit, Sherlock, I-“
-
-Another howl, joined by an entire chorus of them.
-
-“Oh God, they’re here. Shit! There’s... there’s so fucking many of them! At least a dozen! They’re just busting out of the woods, like, shit, they’re huge!”
-
-I was already adding to the dispatch that more units would be needed. I was already positive something else was going on here, most likely, a bunch of teenagers pulling a mean prank.
-
-“Sir, get away from the window-“
-
-“Wait, they’ve stopped. One of them’s coming closer... there’s something in its jaws- oh dear Lord have mercy.”
-
-“Sir, what is the werewolf-“
-
-“It’s a dress. It’s a little girl’s dress.” I could hear him shaking.
-
-Dear God. If this was a prank it had gone way too far.
-
-“Sir, can you describe the dress?”
-
-The man didn’t answer.
-
-“Sir?”
-
-Then he began to sob. “Oh God... God have mercy, I know who’s dress that is.” His sobbing turned into anguished cries. “Oh Jesus,” he wailed, “oh sweet Jesus, I... I know who’s dress that is.”
-
-“Who’s dress, sir?”
-
-“She... she was a little blonde girl. Just ran out in the middle of the road, I would have used the brakes, I swear, I was... I tried to stop, I swear, I just, I didn’t mean to keep going, I-I haven’t touched anything since, not one bottle, I swear!” The man broke down. “Damn it, it was an accident, I swear!”
-
-I’d already pieced together what he’d done. My heart felt like stone as it sunk in. I rubbed my face.
-
-Then the man began screaming. His voice was fainter but still piercing. He’d lowered the phone again, but his voice was so loud it felt like he was right next to me.
-
-“What do you want?! You wanna kill me?! Fine! Go ahead, get it over with, you bastards, just do it! Just kill me! I don’t care! It won’t bring her back, will it? Nothing’s gonna bring her back! God, nothing’s gonna...” Then he began to wail. “Oh God, just kill me...”
-
-The man kept crying, even after the phone clattered to the ground alongside a loud thud. When the front door opened, I tensed, then relaxed when I heard someone declare themselves as police. That was when I hung up.
-
-A week after, I was summoned to give testimony concerning a hit-and-run that had taken place in rural Michigan. Terry Wright confessed to police he’d been driving while intoxicated and struck a girl on some lonely backwoods, he couldn’t remember which. The only evidence they had was a white dress found in his backyard, which he swore belonged to the girl. Police searched the roads, but no body was found anywhere. Not even a trace of blood. I gave a full transcript of what had transpired, from start to finish. When I got to the part about the howls, the atmosphere in the court room changed visibly. Before, there’d been a professional air. After it, there was a sense of unease, like someone had opened a window and let in something from outside.
-
-I thought that man would be declared insane, but he wasn’t. Instead, he was sent to a psyche ward for intensive care. It was concluded he’d suffered an intense mental breakdown and was a danger to himself. They put down what he’d seen to hallucinations brought on by his age and the trauma a perceived hit and run.
-
-I’m not sure what Terry Wright saw the night he went mad, but honestly? Part of me does wonder about the howls I’d heard that night. Those angry, grieving howls. I wonder how they were produced. Someone had to have made them.
-
-After another week, I was able to get my hands on the police report. What I found only deepened the mystery, for me anyway.
-
-Terry Wright was the only person on his property when police arrived. They found him in a state, unable to say anything except how sorry he was. Nobody could trace who the dress belonged to. It had been handmade, so there were no tags to find out who had manufactured it. Testing revealed traces of human and wolf DNA. Attempts to match the human DNA have failed. Various tracks, determined to be from a large mammal, were found in his yard. In total, it was estimated there were over eight or more individuals present.
-
-Now, you’d probably assume that I believe it was werewolves, but I’m not convinced. Until I see a werewolf for myself, I won’t believe they exist. My conclusion is simple; someone had faked all this as an elaborate ploy to break Terry Wright, for reasons I don’t understand and never will. I’ll be the first to admit there’s problems with this theory. If this was all a ploy, then someone went to a lot of trouble to make someone confess to killing a girl who, for all intents and purposes, doesn’t seem to exist.
+“heheh hehe. . . hehahahehah .. . hahehhehheHE HA . . . HAAHHAHAHHAHHEEHAHHAHHEHA”
