@@ -1,4 +1,4 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/wiby5e/cateater_part_1_cold_autumn_day/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/wiby5e/cateater_part_1_cold_autumn_day/)
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/wl926b/cateater_part_2_watching_pressence/)
 

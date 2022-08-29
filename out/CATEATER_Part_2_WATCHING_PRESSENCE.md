@@ -267,3 +267,5 @@ I smiled and he left. As I turned around, I remembered that I had to climb the g
 [Part 4](https://www.reddit.com/r/nosleep/comments/wsl816/cateater_part_4_what_to_do/)
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/wxs090/cateater_part_5_solution_found/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/x09a5k/cateater_part_6_we_are_ready/)

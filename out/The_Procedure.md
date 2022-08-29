@@ -120,7 +120,7 @@ I kicked and flopped around and screamed, hoping to pry myself free. More nurses
 
 “Please let me go.” I managed to squeak out, my throat still raw and dry. The doctor scoffed as he turned away. 
 
-“Insert the catheter.” He demanded. A thin, plastic tube was shoved into my genitals. I screamed as pain exploded up my back and down my legs. The tube was ran, I felt it move up slowly the entire way, up into my bladder. I cried, the pain horrific. 
+“Insert the catheter.” He demanded. A thin, plastic tube was shoved into my genitals. I screamed as pain exploded up my back and down my legs. The tube was ran up into my bladder. I cried out, the pain horrific. 
 
 “Sedate her. A paralyzing agent would be best.” He demanded. An IV bag was strung on a hook as a long needle was slid into the crook of my elbow. Then drugs were administered into the tube after a saline flush. I began to lose feeling in my entire body. I was conscious, but could not feel from the neck down.
 
@@ -128,7 +128,7 @@ Then, strangely, a large metal… thing was placed around my neck, and locked fr
 
 Dr. Bergman wheeled over on a stool, with a four inch needle nestled in his gloved hands. A clear plastic tube ran from the needle. 
 
-“This is an ink injector. We use this to take images inside your brain. The ink is radioactive and highly toxic which is why we flush it via a catheter.” Doctor Bergman explained, grinning  devilishly.
+“This is an ink injector. We use this to take images inside your brain. The ink is radioactive and highly toxic which is why we flush it via a catheter.” Doctor Bergman explained, grinning devilishly.
 
 “No! Stop! I don’t want this!” I screamed, my vocal cords finding new strength. My screams were so loud that they echoed off the walls. Surely someone would check on me? Stop this?
 
