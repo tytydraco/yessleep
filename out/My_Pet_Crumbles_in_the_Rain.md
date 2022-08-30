@@ -40,7 +40,7 @@ This time, lightning did flash, and I gasped at the huge, humanoid shadow cast u
 
 My useless bullets went straight through the monster as it barged in, its size four times that of Eevee’s as it pinned me inside my sleeping bag, crushing my cell phone. Panicking, I thrashed and screamed as I blindly punched at its limbs, my eyes squeezed shut as noxious sand rained down on me. My manic struggling left my knuckles raw and abraded, but it did nothing to stop the monster from suffocating me beneath its weight.
 
-With sand falling in my nose and mouth, I coughed as I gasped for breath, but I refused to give up as I changed tactics and focused on spitting and clawing. This had to be the monster Eevee was afraid of. Perhaps she even ran away from it, and now it was back. To kill me and to take her. Despite my terror, I was going to do all I could to keep it preoccupied until Eevee finds a safe place to hide.
+With sand falling in my nose and mouth, I coughed as I gasped for breath, but I refused to give up as I changed tactics and focused on spitting and clawing. This had to be the monster Eevee was afraid of. Perhaps she even ran away from it, and now it was back. To kill me and to take her. Despite my terror, I was going to do all I could to keep it preoccupied until Eevee found a safe place to hide.
 
 Thunder exploded above us, and lightning flashed as the tent erupted in the rush of pouring rain. The sound brought with it a drop of hope. With my desperate lungs spasming, I continued spitting, smearing my saliva over every part of the monster I could touch before clawing at it. If I could hurt it enough, perhaps I could wiggle free and lead it outside, letting the rain take care of the rest.
 
