@@ -1,3 +1,8 @@
+https://www.reddit.com/r/nosleep/comments/wt2r5c/my_wife_keeps_following_me_but_i_dont_think_its/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+
+
+
+
 Hey, I told myself I wouldn’t rely on this stuff for help but I don’t know who to turn to anymore. Let me start from the beginning.
 
 My names James, I’m 32 years old and my wife, Isabella, is 28. She and I have been married for about 3 years. She’s a generally nice and caring person, she’s also very smart and is very careful. Recently her actions have made it seem like she was never any of those things.
