@@ -100,4 +100,4 @@ I’m not sure what I should do at this point. Am I overreacting? Am I being nee
 
 &#x200B;
 
-[Part 3](https://www.reddit.com/r/TheGirlwithNoSleep/comments/wy1hzy/im_filipino_and_our_culture_is_heavily_influenced/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/x1hvgk/im_filipino_and_our_culture_is_heavily_influenced/)

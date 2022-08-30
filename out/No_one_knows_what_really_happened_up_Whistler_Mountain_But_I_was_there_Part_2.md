@@ -156,7 +156,7 @@ Chopper: "What do you mean?"
 
 Rose: "Well, how did you meet?"
 
-Chopper: "Well, I was celebrating after a job. Some bar near the safe house. Not exactly the smartest move, but I ain’t exactly the smartest guy. Anyway, the bar had one of those karaoke machines and I was drunk enough to give singing a shot. Ended up choosing Sonny and Cher but I needed a partner. I put it to the bar and, lo and behold, Lori appeared from the crowd. I can’t sing worth a damn but she had the voice of an angel. By the end of the song I was smitten."
+Chopper: "I was celebrating after a job. Some bar near the safe house. Not exactly the smartest move, but I ain’t exactly the smartest guy. Anyway, the bar had one of those karaoke machines and I was drunk enough to give singing a shot. Ended up choosing Sonny and Cher but I needed a partner. I put it to the bar and, lo and behold, Lori appeared from the crowd. I can’t sing worth a damn but she had the voice of an angel. By the end of the song I was smitten."
 
 Rose: "So you stuck around just to be with her?"
 
@@ -184,6 +184,6 @@ Chopper: "This ain’t about your holiday tokens, Rose. There are millions of do
 
 They say money is the root of all evil. Fitting then that such riches are what drew such a monster to the mountain.
 
-I hope I'm not calling that monster back to this cabin. Final part soon.
+I truly hope I'm not calling that monster back to this cabin. Final part soon.
 
 *
