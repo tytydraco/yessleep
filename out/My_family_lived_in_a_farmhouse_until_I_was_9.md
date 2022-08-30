@@ -78,4 +78,4 @@ As far as I know, that farmhouse has been vacant since me and my folks abandoned
 
 All of my happy memories of that little farmhouse have been tainted by that horrific night. What really haunts me though is just what those people were planning on doing to me. Merely imagining the possibilities is enough to make me go into a full blown anxiety attack.
 
-At night I always make sure to lock every single door and window and I make damn sure that my curtains are shut tight.
+At night I always make sure to lock every single door and window, and I make damn sure that my curtains are shut tight.
