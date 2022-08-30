@@ -4,7 +4,7 @@ Oh, to be a fly on the wall that day, the gossipers and the gorehounds said. Wel
 
 But I have a voice now. A vessel. I have taken possession of a True Crime fanatic obsessed by the murders. She strayed to close to the cabin and I pounced. I'm finally going to share what I heard and what I saw – my parting gift.
 
-I must work fast. They say the killer always returns to the scene of the crime. I'm scared they will come for my new vessel, and the killer is doubtless the most horrifying and devious person I ever came across in what was once my life.
+I must work fast. They say the killer always returns to the scene of the crime. I'm scared they will come for my new vessel, and the killer is doubtless the most ruthless and deceitful person I ever crossed in what was once my life.
 
 ----- 
 
