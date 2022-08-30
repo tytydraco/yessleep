@@ -34,7 +34,7 @@ When night came, and I began to feel sleepy, I began to duct tape some magazines
 
 Next, I enabled the GPS on my phone and slid my phone, fully charged, into my pocket.
 
-I settled down in bed. Despite the light from the desk lamp shining on the door, the discomfort of the duct taped magazines and my anxiety, I soon found myself lulled to sleep by Basky’s snores.
+I settled down in bed. Despite the light from the desk lamp shining on the door, the discomfort of the duct taped magazines and my anxiety, I soon found myself lulled to sleep by a recording of a dog snoring. 
 
 I woke up the next day with my vision half blocked by a piece of paper. I pulled the tape on it off my forehead, wincing at the sting.
 
