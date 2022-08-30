@@ -132,7 +132,7 @@ Rose: "We have to be out in four days. But why does that matter? Over."
 
 Chopper: "You need to listen to me, Rose. I have Michael. Over."
 
-Rose: "You … have Michael? Wha – I don’t understand."
+Rose: "You … *have* Michael? Wha – I don’t understand."
 
 Chopper: "I got to Michael and I knocked him unconscious. He’s tied up and gagged in the back of my rig. Over."
 
@@ -167,3 +167,7 @@ Chopper: "Glad to hear it. Over and out."
 ----- 
 
 More soon, keeping control is exhausting.
+
+*
+
+[[Part 2]](https://www.reddit.com/r/nosleep/comments/x1g44c/no_one_knows_what_really_happened_up_whistler/?) -- Where the killer weaved their twisted web.
