@@ -1,14 +1,17 @@
 My parents had divorced years ago when I was still a teenager. 
 
-My father  was left with my childhood home, a small rural farm house - and almost all our belongings and childhood memories. We didn't really have a chance to grab anything on our last night in the house. 
+My father was left with my childhood home, a small rural farm house - and almost all our belongings and childhood memories. We didn't really have a chance to grab anything on our last night in the house. 
 
 I hadn't really been in contact with my father after that. I know my siblings - big sister and little brother - stayed in touch with him, but not very often.
- My father was not a pleasant person to be around with - he was violent and unpredictable. 
+My father was not a pleasant person to be around with - he was violent and unpredictable. 
 A toxic asshole, I'd say. 
 
 Well, that happened long ago, and life was pretty good. But I did miss some things from the past every now and then.
- One day, after a wave of nostalgia, I had an idea. I walked to my husband, Pete. 
-"I think we should make a roadtrip together", I suggested. " Roadtrip? Where?" he answered. "To see my childhood home." My hubby looked surprised. "Why do you suddenly want to go there? I thought you didn't want to have any contact with your father."
+One day, after a wave of nostalgia, I had an idea. 
+I walked to my husband, Pete. 
+"I think we should make a roadtrip together", I suggested. " Roadtrip? Where?" he answered.
+ "To see my childhood home." 
+My hubby looked surprised. "Why do you suddenly want to go there? I thought you didn't want to have any contact with your father."
 "It's not about my father. He doesn't even live there anymore - Terri told me he bought a little condo from city and just occasionally goes to check that everything is fine at the farm house. They visited there last time."
  Terri was my big sister, who had visited our father earlier in the summer. 
 "You know, I'd really like to go see that place. Maybe get some of my old stuff back too - after all, it's my junk. It's not like my father needs it."
@@ -36,9 +39,13 @@ Everything was pretty much like I remembered.
 The outdated 80's style brown kitchen cabinets, wall clock with flower pattern.. 
 Even the same old calendar hanging on the wall.
 
- Pete was already raiding the kitchen cabinets. "Ew. Looks like your dad doesn't spend much time here", he said, pointing a box of cookies, way past the expiration date. I let out a little laughter. "That's just a good thing he doesn't. Come on, cookie monster, let's go see my room." I grabbed Pete's arm and gently pulled him with me to another door.
+ Pete was already raiding the kitchen cabinets. "Ew. Looks like your dad doesn't spend much time here", he said, pointing a box of cookies, way past the expiration date. 
+I let out a little laughter. "That's just a good thing he doesn't. Come on, cookie monster, let's go see my room."
+ I grabbed Pete's arm and gently pulled him with me to another door.
+
  "This is it", I said and turned the knob. I turned on the light and felt a tear falling from my eye. "Just like I left it." I smiled, gazing the posters on my walls. All my favorite rock bands back then. 
-And on the bookshelf, my manga collection and jewelry box. "Oh wow, I remember this teddy! It's Snuggles" I gasped. Pete smiled. "Well, here's the backpack. Grab what you want, and then we can leave", he reminded. 
+And on the bookshelf, my manga collection and jewelry box. "Oh wow, I remember this teddy! It's Snuggles" I gasped. Pete smiled. 
+"Well, here's the backpack. Grab what you want, and then we can leave", he reminded. 
 I dropped some things in the backpack when I noticed something weird. 
 
 My old laptop on my bed was turned on. 
@@ -57,11 +64,15 @@ We walked back to the guest room where the back door was.
 My sisters handbag. 
 
 "How is this here?" I mumbled. My sister had just visited my house two weeks ago, right after visiting our father, and she had the bag with her then. 
+
 "Come on, just leave it", Pete asked nervously. 
 " No", I said. "This shouldn't be here. It cannot be. Terri had this handbag with her when she was visiting and when we took her to the airport. It's her favorite handbag and she flew right to home", I reasoned. 
+
 "She would have told me if she came back here so soon. After all it's a five hour flight and the drive here is quite long too."
+
 I searched through her bag. Souveniers that she had bought for her friends, a rotten sandwich inside a tight plastic wrap, and most important - her wallet. 
 "Pete, look. This isn't right. Even her wallet is here" I said. "Tina, listen. She cannot be here. The house is empty and there's not even edible food in the cabinets. Maybe that bag is just a similar one, and she left it here with old her old wallet and got a new one.." Pete tried. 
+
 "Please, let's just go. I don't feel good in here" He begged. 
 I sighed. "Okay. I don't want to stay here any longer either." 
 
