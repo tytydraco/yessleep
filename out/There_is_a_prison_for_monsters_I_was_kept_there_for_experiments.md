@@ -1,24 +1,22 @@
-
-
 The last thing I remember before they kidnapped me, is sipping a vodka tonic at a bar in Romania. After that is blackness, followed immediately by blinding light.
 
-I found myself sitting in a metal chair, inside of a metal room with one door. I would find out later that this place is called holding room 315.
+I found myself sitting in a metal chair, inside of a metal room with one door. I would find out later that this was called holding room 315.
 
 It was very difficult to keep track of time but I'd guess that my first stay in the holding room lasted about 24 hours. At least from the moment that I became conscious.
 
-My fear kept me patient at first but I slowly grew more and more frustrated, eventually resorting to yelling and beating on the door, demanding that they let me out. I would come to regret those words.
+My fear kept me patient at first but I slowly grew more and more frustrated, eventually resorting to yelling and beating on the door, demanding that they let me out. I would come to regret that.
 
 After all of my threats and demands, the door suddenly slid open with a hissing pneumatic sound. A cold automated voice came from flush-mounted speakers that were installed in the ceiling throughout the facility.
 
 "Proceed to Cell 009 and enter the first chamber. Failure to comply will result in faculty confrontation."
 
-I would come to call that voice Cynthia, after my ex-girlfriend. They were both cold and seemed to want me dead. I hope I never have to hear either one of them again.
+I would later name that voice Cynthia, after my ex-girlfriend. They were both cold and seemed to want me dead. I hope I never have to hear either one of them again.
 
 After a few wrong turns, I eventually found my way to Cell 009. The door was open and the first chamber looked identical to my holding cell with the exception that it had a second door on the other side of the room.
 
 I stepped into the first chamber and the door slid shut behind me. A moment later the interior door opened with that same pneumatic hiss. The second room was pitch black but something was stirring in the darkness. I was beginning to regret that I didn't opt for the faculty confrontation.
 
-Sharp and precise footsteps approached the first chamber as panic spread through my body like a fever.
+Sharp and precise footsteps approached the first chamber and panic spread through my body like a fever.
 
 A white hand reached through the doorway and grasped the frame, something black and flowing trailed behind it.
 
@@ -52,7 +50,7 @@ The priest made his way over to me and kneeled at my side.
 
 "Are you saying they would have sent me to my death?"
 
-"I'm saying it would have been a far worse death. " at this, the old man rolled his mouth back revealing long white fangs that struck at my neck like a hungry cobra.
+"I'm saying it would have been a far worse death. " at this, the old man rolled his mouth back revealing long white fangs and struck at my neck like a hungry cobra.
 
 I was frozen with fear but even if I was ready for the attack I wouldn't have had the speed or the strength to counter. The power and quickness of a vampire are just too much for an ordinary guy like me. In an instant I could feel my consciousness fading, there was nothing I could do but try to hold on.
 
@@ -62,21 +60,21 @@ Everything was silent for a moment before Cynthia chimed in, no doubt disappoint
 
 "Return to holding cell 315 and wait for further instruction"
 
-The secondary door opened and I walked back into the hallway holding my head in my hands.
+The secondary door opened and I walked back into the hallway in a surreal stupor.
 
 It would be, by my estimation, 2 days, before I'd receive my next set of instructions. I don't think they knew what to do with me after the incident with the vampire priest.
 
 Back in my holding cell I sat in silence and tried to comprehend what had just happened to me. The best guess I had as to why the vampire had died was that he was severely allergic to my blood type. The absurdity of it made me laugh but I was still uneasy. I couldn't help but wonder what other creatures might be stored down here.
 
-Some hours later, Cynthia returned.
+Eventually, Cynthia returned.
 
 "Proceed to cell 014 and enter the first chamber. Failure to comply will result in faculty confrontation."
 
-I'd decided non-compliance was my best option. As it turns out, it was not. I stubbornly remained in my chair, and a few minutes later, two guards showed up dressed in full swat gear, minus the acronym. They proceeded to beat the daylights out of me until I said that I would comply. I'm pretty sure they broke several of my ribs and my nose was gushing blood.
+I'd decided non-compliance was my best option. I stubbornly remained in my chair, and a few minutes later, two guards showed up dressed in full swat gear, minus the acronym. They proceeded to beat the daylights out of me until I said that I would comply. I'm pretty sure they broke several of my ribs and my nose was gushing blood.
 
 My hope of surviving this place was hanging by a thread, as I shuffled down the hallways towards cell 014. When I found the room and peered inside the open door, that last thread of hope disintegrated in a flame of despair.
 
-Every surface, including the floor and the ceiling, was covered with blood stains and dents. I imagined a thousand rabid Pitbull's tearing people to shreds and throwing body parts in every direction.
+Every surface, including the floor and the ceiling, was covered with blood stains and dents. I imagined a thousand rabid Pitbull's tearing people to shreds and throwing their body parts in every direction.
 
 "Way to think positive Stan", I told myself
 
@@ -86,9 +84,9 @@ My feet were welded to the ground with anticipatory suspense and time stood stil
 
 An electrical shocking sound came from the secondary chamber and a nerve-melting, high-pitched scream filled the room. Then the hammering started. It sounded as if someone had shocked the Tasmanian devil with a cattle prod. It picked up speed like a tornado made of rocks and metal, bouncing off the walls, and threatening to tear the whole facility down. Then the door opened.
 
-Black fur and sharp angles burst into the room. Whatever it was had so much speed that I couldn't get a good look at it. It jumped off the floor and hit the wall with heavy feet, as it churned its legs like a spider on steroids. Around and around it went, threatening to take my head off with what looked like antlers, all the while screaming bloody murder.
+Black fur and sharp angles burst into the room. Whatever it was had so much speed that I couldn't get a good look at it. It jumped off the floor and hit the wall with heavy feet, churning its legs like a spider on steroids. Around and around it went, threatening to take my head off with what looked like antlers, all the while screaming bloody murder.
 
-It turned its demonic head in my direction and was on me in a flash. It knocked me on my back and pinned me with its antlers.
+It turned its demonic head in my direction and was on me in a split second. It knocked me on my back and pinned me with its antlers.
 
 I was face to face with pure evil. Mere inches away from a wendigo.
 
@@ -146,10 +144,10 @@ I sat down across from him and he looked at me with a faint smile as he opened t
 
 "You can't be serious..."
 
-"I'm serious as a heart attack, and you're here because we need your help, Stan Helsing. A new threat has emerged from the dark fog of ancient history and we think you are the only one who can stop it. "
+"I'm as serious as a heart attack, and you're here because we need your help, Stan Helsing. A new threat has emerged from the dark fog of ancient history and we think you are the only one who can stop it. "
 
-"Uhh ok, whatever you say."
+"Uhh ok."
 
 "So will you help us?" The man asked
 
-"Sure, why not".
+"This is the dumbest thing I've ever heard but sure, why not. "
