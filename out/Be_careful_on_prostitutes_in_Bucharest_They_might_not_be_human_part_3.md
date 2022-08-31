@@ -18,7 +18,7 @@ Ramona kept on looking at us angry. Helena had another of her strange expression
 
 &#x200B;
 
-Helena replied with a toned town irony: ”You know, there is a thing called internet, nowadays. People can share many things, stories, idea, opinions travel fast...” Ramona, slightly more irritated, but still trying to keep calm, looked at me: ”Of course. I read about your post about what you have been through, poor little thing...You know, centuries and millennia mortals at least knew, at least what was good for their bodily survival. But people changed so much, they lost their minds so much, that they are willing to give themselves up to death for just a second of living out the cage they themselves build for them. If someone would have told me just 500 years ago that I shall this, I would have probably laughed. But humanity is getting more and more insane as time passes.” Helena smiled softly and replied: ”I think we can agree on this.”
+Helena replied with a toned town irony: ”You know, there is a thing called internet, nowadays. People can share many things, stories, idea, opinions travel fast...” Ramona, slightly more irritated, but still trying to keep calm, looked at me: ”Of course. I read about your post about what you have been through, poor little thing...You know, centuries and millennia mortals at least knew, at least what was good for their bodily survival. But people changed so much, they lost their minds so much, that they are willing to give themselves up to death for just a second of living out the cage they themselves build for them. If someone would have told me just 500 years ago that I shall see this, I would have probably laughed. But humanity is getting more and more insane as time passes.” Helena smiled softly and replied: ”I think we can agree on this.”
 
 &#x200B;
 
@@ -82,11 +82,11 @@ Helena signaled us to get up. Ruxandra helped me walk, it did not seemed to hurt
 
 &#x200B;
 
-As we took the path, Ruxandra was still shaken, although she helped me walk. I tried to conform her, she made me understand that she only needs to let her chill a little. I tried to walk on my own, it seemed possible, but with some back ache. The thing I landed upon seemed to have been very helpful at that moment. So I asked, whispering to Helena: ”You did something to cushion my blow, isn„t it?” She answered short, without looking back: ”Yes.” ”Thank you.”
+As we took the path, Ruxandra was still shaken, although she helped me walk. I tried to confort her, she made me understand that she only needs to let her chill a little. I tried to walk on my own, it seemed possible, but with some back ache. The thing I landed upon seemed to have been very helpful at that moment. So I asked, whispering to Helena: ”You did something to cushion my blow, isn„t it?” She answered short, without looking back: ”Yes.” ”Thank you.”
 
 &#x200B;
 
-I asked Helena: ”We all trees alive, like her? Like her or they were another type of being?” She answered without turning at me: ”Probably they were her puppets, nothing more.”
+I asked Helena: ”Were all trees alive, like her? Like her or they were another type of being?” She answered without turning at me: ”Probably they were her puppets, nothing more.”
 
 &#x200B;
 
@@ -110,7 +110,7 @@ At the hospital, I said I tripped and fell on the some stairs, due to the prosth
 
 &#x200B;
 
-I have got what I wanted. Would I like more? At first, I thought not, as I rest in the bed and let the world of the real mythological creatures (an oxymoron, I know) drift away. But I realized it was, indeed, no way back now. I think I shall try to contact again non-human dwellers of this world. As they are, indeed, close to us, we just need to open our eyes a little. I first thought of reaching Robert, but he will not believe me anyway, if he wants to what happened, he can just read what I wrote here.
+I have got what I wanted. Would I like more? At first, I thought not, as I rest in the bed and let the world of the real mythological creatures (an oxymoron, I know) drift away. But I realized it was, indeed, no way back now. I think I shall try to contact again non-human dwellers of this world. As they are, indeed, close to us, we just need to open our eyes a little. I first thought of reaching Robert, but he will not believe me anyway, if he wants to know what happened, he can just read what I wrote here.
 
 &#x200B;
 

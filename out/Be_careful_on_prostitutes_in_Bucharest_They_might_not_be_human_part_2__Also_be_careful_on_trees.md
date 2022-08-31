@@ -30,7 +30,7 @@ I gave you the link to the first post [https://www.reddit.com/r/nosleep/comments
 
 &#x200B;
 
-I could not believe what I read. I do not want to spoil the story for you, she befriended a vampire lady, who was born in 1912, been a terror for Bucharest up the late 1930ties, when she went to hibernation until recently. She is a special, rare type of vampire. I let you know her on Ruxandra„s story. What I dare to say now is that the story confirmed the presence of un-human beings in Bucharest up to the 1930ties the least.
+I could not believe what I read. I do not want to spoil the story for you, she befriended a vampire lady, who was born in 1912, been a terror for Bucharest up the late 1930ties, when she went to hibernation until recently. She is a special, rare type of vampire. I let you get to know her on Ruxandra„s story. What I dare to say now is that the story confirmed the presence of un-human beings in Bucharest up to the 1930ties the least.
 
 &#x200B;
 
@@ -90,7 +90,7 @@ The ”gothic magic” bubble Helena kept us soon started to stop being the only
 
 &#x200B;
 
-My undamaged foot get caught up in a root, but being caught up was not a good term for what I felt. I felt the root moved on its own and tried to bring me down. My instincts and my experience did not failed me, I was able to make myself land on the undamaged leg and keep the damaged ankle from not touching down.  Ruxandra came out fast to see if I was hurt, she helped me got up. I was not a rough fall, the forest floor made it easier, I had many of those in the wilderness. If it was on pavement, it would have been much rough.
+My undamaged foot get caught up in a root, but being caught up was not a good term for what I felt. I felt the root moved on its own and tried to bring me down. My instincts and my experience did not failed me, I was able to make myself land on the undamaged leg and keep the damaged ankle from not touching down. Ruxandra came out fast to see if I was hurt, she helped me got up. I was not a rough fall, the forest floor made it easier, I had many of those in the wilderness. If it was on pavement, it would have been much rough.
 
 &#x200B;
 
@@ -106,11 +106,13 @@ Helena turned to us: ”Stay close to me and keep the torches as best as you can
 
 &#x200B;
 
-As we were getting deeper and deeper in the forest, me or Ruxandra got some bad touches from the trees, but nothing too serious. Helena went to trees each time she broke something on the tree or cut something from it, swiftly. Tension around us was building us. The mist kept the visibility pretty much. The feel of the forms of magic made me feel somewhat, surreal, if that makes sense. If I felt only one of them, it would not have felt so unreal.
+As we were getting deeper and deeper in the forest, me or Ruxandra got some bad touches from the trees, but nothing too serious. Helena went to trees each time she broke something on the tree or cut something from it, swiftly. Tension around us was building us. The mist kept the visibility pretty much. The feel of the forms of magic made me feel somewhat, surreal, if that makes sense. If I have had felt only one of them, it would not have felt so unreal.
 
 &#x200B;
 
-At some point, we reached small clearing. The trees were neither too young, or too old. Helena signaled us to stop. She suggested that we try to fix the torches in the ground and sit on the ground, close to each other, in silence. There was little or no wind. Yet, the branches were slowly moving above us. I did not dared to speak to much, and waited. As we sit there silently, in the mist, the branches decreased in movement. I kept looking above, the canopy was getting, slowly, darker. I was afraid of paranoia, so I broke the silence, still looking up: ”Is it me or it is getting darker?”
+At some point, we reached small clearing. The trees were neither too young, or too old. Helena signaled us to stop. She suggested that we try to fix the torches in the ground and sit on the ground, close to each other, in silence. There was little or no wind. Yet, the branches were slowly moving above us. I did not dared to speak too
+
+ much, and waited. As we sit there silently, in the mist, the branches decreased in movement. I kept looking above, the canopy was getting, slowly, darker. I was afraid of paranoia, so I broke the silence, still looking up: ”Is it me or it is getting darker?”
 
 &#x200B;
 
@@ -126,7 +128,7 @@ She added, like talking to herself: ”You know, there have always been women wh
 
 &#x200B;
 
-She stopped for a few seconds, looked around, then turned to us and continued: ”She feeds on men, when she does what she does to them. I do not know how much she actually needs to feed. I do not know if the Night Man steps in when she is doing it or when she is doing it too much. But my guess is that she does not need it too much, at least. Old stories show that she likes it. She likes it a lot. This is what I think. Indeed, she is a whore? She may a wood whore, but a whore, nonetheless.”
+She stopped for a few seconds, looked around, then turned to us and continued: ”She feeds on men, when she does what she does to them. I do not know how much she actually needs to feed. I do not know if the Night Man steps in when she is doing it or when she is doing it too much. But my guess is that she does not need it too much, at least. Old stories show that she likes it. She likes it a lot. This is what I think. Indeed, she is a whore. She may a wood whore, but a whore, nonetheless.”
 
 &#x200B;
 
@@ -142,7 +144,7 @@ The tree emitted a deep screech similar to the one I heard in that house, but mu
 
 &#x200B;
 
-The torches went out at this point. Me and Ruxandra ran towards Helena and fell to the ground, near her feet. I felt the safest place. She screamed, still sounding calm and terrifying at the same time: ”We can go on and on like until one of us gets down. Of both of us can go down. But we could just talk, you know... Like civilized people, you know... Perhaps you are not capable of this. What you do now shows me you are not. So, prove me wrong!”
+The torches went out at this point. Me and Ruxandra ran towards Helena and fell to the ground, near her feet. I felt the safest place. She screamed, still sounding calm and terrifying at the same time: ”We can go on and on like this until one of us gets down. Of both of us can go down. But we could just talk, you know... Like civilized people, you know... Perhaps you are not capable of this. What you do now shows me you are not. So, prove me wrong!”
 
 &#x200B;
 
