@@ -34,7 +34,7 @@ When night came, and I began to feel sleepy, I began to duct tape some magazines
 
 Next, I enabled the GPS on my phone and slid my phone, fully charged, into my pocket.
 
-I settled down in bed. Despite the light from the desk lamp shining on the door, the discomfort of the duct taped magazines and my anxiety, I soon found myself lulled to sleep by a recording of a dog snoring. 
+I settled down in bed. Despite the light from the desk lamp shining on the door, the discomfort of the duct taped magazines and my anxiety, I soon found myself lulled to sleep by a recording of a dog snoring.
 
 I woke up the next day with my vision half blocked by a piece of paper. I pulled the tape on it off my forehead, wincing at the sting.
 
@@ -213,3 +213,5 @@ Heart thudding, I began shovelling the soil back to hide the trapdoor. I checked
 If I tried my best to stay awake, I probably had a full 15 to 20 hours to figure out a plan before I fell prey to sleep again.
 
 I walked away from the muted cries, taking the trapdoor key with me. Marlene Toa. I needed to find out who she was. What happened to her. Why she took them, killed them, tortured him. Above all, why me[.](https://www.reddit.com/r/TheDarkSeas/)
+
+[P2](https://www.reddit.com/r/nosleep/comments/x2ad3p/no_sleep_for_the_living_final/?utm_source=share&utm_medium=web2x&context=3)
