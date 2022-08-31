@@ -62,4 +62,44 @@ After a few seconds of Ted tapping his temple, he snapped again. The lights spar
 
 Our leader was indeed an idiot.
 
-My apologies, but it's time for me to nap. Typing takes these arthritis stricken bones of mine a lot of effort, and reliving this isn't exactly pleasant, either. If you folks would like to hear the rest of my tale, tracking the doctor down, let me know. I still have my reservations about telling this story of mine.
+My apologies, but it's time for me to nap. Typing takes these arthritis stricken bones of mine a lot of effort, and reliving this isn't exactly pleasant, either.
+
+
+
+
+
+My arthritis isn't terrible today, so I thought I'd use this opportunity to post again. Now, where was I?
+
+Right, our leader is an idiot.
+
+As we congregated into our different groups, and left through the door, going our different directions, I caught a glimpse of someone familiar.
+
+"Eyyy Cyr, what's with the party?" Bill slapped a hand onto my shoulder, chuckling.
+
+Unlike Ted, I can cover my ass. "Cross department exercise," I casually said. Bill was a rookie detective. He graduated alongside me, though he's three years my senior. His thick mustache wriggled as though it were alive whenever he spoke. It was always challenging to look him in the eyes when that fuzzy strip danced atop his lip.
+
+"Fuuun" Bill oozed sarcasm, earning a real sigh from me. "Dispatch called in some sort of swamp monster. Washed up alongside a few dozen crocs, and a couple bodies. You and I were chosen to investigate the scene, c'mon."
+
+Bill and I drove our separate cars. While Bill seemed lighthearted about this, a pit was forming in my stomach. I knew what might be waiting for me. The doctor had been quite prolific with his experiments over his five years of recorded activity. My gut was screaming out in glee and terror over what would likely be my first face to face with one of the doctor's defects.
+
+I finagled my way through the knobs and dials of the radio in my new cruiser, until the doo doo doo, doo dit doo played in morse code, confirming my message had been received. For those unfamiliar, that translates to 'o k' in morse code. The chief was now aware that Ted was going to be busy sooner than anticipated, and we already had witnesses.
+
+Within five minutes, unmarked Austins were "cutting me off at every corner" according to Bill. That meant Ted was both an idiot, but quick when the going got tough. I sped my way there, slightly relieved at first, as I saw a mostly empty, dilapidated bridge, half submerged in the swampy murk. 
+
+That relief quickly turned to dread as I got out of my vehicle. Immediately, I could make out dozens of shapes, scattered haphazardly across the muck. The mud itself had a deep reddish hue to it, as if a blender had been fed a bog, crocodiles included.
+
+The sight itself did not bother me. What nawwed at my nerves was what I didn't see, rather. I drew my Colt M1911, and scoped out the area. I swerved my head left and right, but I didn't see it. All I could see was my cruiser, door still open, the crocodile and other assorted chunks that littered the ground, and the swarms of buzzing insects scavenging the scraps.
+
+Then I heard it. Or I suppose what I can only assume to have been it. A chittering clack of teeth nashing together. Grinding. The sensation of filing a finger nail spread across my body, filling me with an intense, warm discomfort. A drop of sweat dribbled down my temple, along my cheek, then fell from the base of chin.
+
+The chit chit hurghh chit chit grind and chitter grew in intensity and frequency, a telltale sign a predator was gearing to strike. My lungs tightened as anxiety strangled my breath away. I swiveled again and again, finding no sign the monster.
+
+Primal instinct blared alarms in my skull, screaming, protesting, begging to run from the encroaching danger. Unfortunately, my body and instinct were not on the same page. I stood, frozen, aware of the danger closing in, yet unable to do anything to avoid it.
+
+I never did see that creature. Even when I came to, I was barred from accessing it.
+
+The last thing I remember that day was hearing a revolting schlumk as the creature erupted from beneath me. The creature's wood chipper of a maw tore straight into my calf, all the way to the bone. If I screamed, I don't remember.
+
+My M1911 appeared before I knew it, and unloaded six of its seven rounds. According to the chief, three shots rang true. One through what once served as an eye, and two in its snout. The other three were found in the sludgelike mud around our bodies.
+
+My leg was not able to be saved. I still take pride knowing I was the one who killed that thing. Sometimes though, I still hear that chittering grinding from the corner of my room. Sometimes, I feel the lower half of my left leg in the moments just before it was taken from me. Whenever I think back to that day, it's almost as though I can still feel the leg. I suppose that's the phantom limb I was warned about.
