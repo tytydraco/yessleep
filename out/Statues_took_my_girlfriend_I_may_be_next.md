@@ -1,6 +1,8 @@
 Hello there.
 
-My name is Daniel, I am an architecture student in Bucharest, Romania. I write this to ask for your help, something seems to be after me. My girlfriends Ilinca is gone for about a week, what got her seem to be for me. I see that many people have unbelievable, supernatural experiences and share them in here, so this could be the right place.
+&#x200B;
+
+My name is Daniel, I am an architecture student in Bucharest, Romania. I write this to ask for your help, something seems to be after me. My girlfriends Ilinca is gone for about a week, what got her seem to be coming for me. I see that many people have unbelievable, supernatural experiences and share them in here, so this could be the right place.
 
 &#x200B;
 
@@ -44,7 +46,7 @@ Some strange footsteps were heard coming closer and closer. We speed up slowly, 
 
 &#x200B;
 
-We stopped near a group of people on the sidewalk, stopped and looked behind. They looked at us like we were mad or on drugs. No sign of the statue. We could not dare to leave them, but we could not find the words to talk. Eventually, they gave us an awkward look and left us. It did not make any sense to follow them, but we walk on, slowly, on the boulevard. We eventually reached our rented place. We fell asleep and woke up very late. Someone called on the phone earlier, I rejected the call, and got back to sleep, I did not felt capable of answering. Ilinca looked more sickly then ever. After she woke up, she just stared blankly. During our sleep, she babbled the name of Babblers in agony.
+We stopped near a group of people on the sidewalk, stopped and looked behind. They looked at us like we were mad or on drugs. No sign of the statue. We could not dare to leave them, but we could not find the words to talk. Eventually, they gave us an awkward look and left us. It did not make any sense to follow them, but we walk on, slowly, on the boulevard. We eventually reached our rented place. We fell asleep and woke up very late. Someone called on the phone earlier, I rejected the call, and got back to sleep, I did not felt capable of answering. Ilinca looked more sicklier then ever. After she woke up, she just stared blankly. During our sleep, she babbled the name of Babbler in agony.
 
 &#x200B;
 
@@ -60,7 +62,7 @@ Night came. I kept Ilinca in my arms, on the couch. Nothing was outside, and she
 
 &#x200B;
 
-Ilinca was running chaotically, I followed. All I could hear from her, at one point, was that the Babblers is getting close on her. The shadow was on our hearts and minds. Panic, despair and a sense of futility was over me, more and more. We saw two statues from the right, one from the left. On the right it was the statue of the thin woman that was on our window, on the left a statue of a fat man wearing a topper was coming. We heart their steps and from their mouth they gave out those muffled, low frequency sounds, almost like silent screams, like silent howling. Not just their eyes seemed red, but also the interior of their mouths.
+Ilinca was running chaotically, I followed. All I could hear from her, at one point, was that the Babbler is getting close on her. The shadow was on our hearts and minds. Panic, despair and a sense of futility was over me, more and more. We saw two statues from the right, one from the left. On the right it was the statue of the thin woman that was on our window, on the left a statue of a fat man wearing a topper was coming. We heart their steps and from their mouth they gave out those muffled, low frequency sounds, almost like silent screams, like silent howling. Not just their eyes seemed red, but also the interior of their mouths.
 
 &#x200B;
 
@@ -68,7 +70,7 @@ We kept on running without a target, partially in circles. Ilinca lost it alread
 
 &#x200B;
 
-I woke up a few days later in a hospital. I suffered multiple fractures. In all that pain, I was able to ask what happened. They found me fallen on the sidewalk, Ilinca was not found at all. Police think we were on some drugs, but the tests came out non-conclusive. When I got out of this hospital, there was no freedom, but I will be moved to a psychiatry hospital for people with serious illness, I do not know if I would ever came out of there. I still have my phone on me, my brother brought it to me. I do not know how long I shall still have it.
+I woke up a few days later in a hospital. I suffered multiple fractures. In all that pain, I was able to ask what happened. They found me fallen on the sidewalk, Ilinca was not found at all. Police think we were on some drugs, but the tests came out non-conclusive. When I got out of this hospital, there was no freedom, as I will be moved to a psychiatry hospital for people with serious illness, I do not know if I would ever came out of there. I still have my phone on me, my brother brought it to me. I do not know how long I shall still have it.
 
 &#x200B;
 
