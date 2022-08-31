@@ -78,7 +78,7 @@ He didn’t answer right away. His stare never wavered. Finally, he said, “Goo
 
 He didn’t reply, just stared at the tree.
 
-I looked at Bobby and Candace. They both seemed as shocked as I was that he was ignoring us. We’d always been on good terms with Mr. Hutchins. There were times we would help out around his farm and with his animals. He would reward us with some money or some treats, but always he was grateful for the help. 
+I looked at Bobby and Catherine. They both seemed as shocked as I was that he was ignoring us. We’d always been on good terms with Mr. Hutchins. There were times we would help out around his farm and with his animals. He would reward us with some money or some treats, but always he was grateful for the help. 
 
 I waved my hand in front of his eyes and he didn’t blink.
 
