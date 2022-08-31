@@ -4,7 +4,7 @@ Anyway, due to budget cuts and deplorable conditions (there were even rumors of 
 
 At the time of my hiring though, most of the 500 patients living at the Dovers were either released or relocated to other hospitals leaving only about 100 patients behind with 17 staff members including 3 doctors and 4 nurses (including myself).
 
-Now, Dovers itself was a  very grand hospital with its Gothic-style architecture and while it was open, it was the talk of the town, both good and bad.
+Now, Dovers itself was a  very grand hospital with its Gothic-style architecture and while it was open, was the talk of the town, both good and bad.
 
 Dovers was located on the edge of town and was surrounded by very dense woods with only one road leading in and out. 
 
