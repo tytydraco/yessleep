@@ -2,6 +2,8 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/64lsyd/how_to_survive_in_hell_part_3_final/)
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/x2h5jg/how_to_survive_in_hell_part_4/)
+
 
 I woke up in a birthing sac. Panicked and choking on amniotic fluid, I clawed at the fleshy walls, fighting with all my terrified strength to free myself. With a wet, ripping sound, I was dumped onto the muddy cobbles of the street below, twisting my ankle as I landed.
 
