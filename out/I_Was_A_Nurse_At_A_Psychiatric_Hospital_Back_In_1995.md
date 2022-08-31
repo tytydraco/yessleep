@@ -109,14 +109,14 @@ Several months into the affair, Donna found out she was pregnant and threatened 
 
 Scared his wife would leave him, he killed Donna in a fit of rage.
 
-After Dr. Ryan's arrest, I showed Sue the picture of Donna (which I found at the nurse's station) and she confirmed to me, that was the nurse that went missing back in 1978.
+After Dr. Ryan's arrest, I showed Sue the picture of Donna (which I found at the nurse's station) and she confirmed what I already knew, that she was the nurse that went missing back in 1978.
 
 It was a few days after Dr. Ryan's arrest, that the hospital closed its doors for the last time. 
 
-As I exited the hospital door, I felt a great sense of sadness and so, I glanced up at the 5th floor one last time, and standing there at the window was Donna. 
+As I exited the hospital door, I felt a great sense of sadness so, I glanced up at the 5th floor one last time, and standing there at the window was Donna. 
 
 I waved at her and she smiled at me then vanished.
 
-At that moment I felt a sense of calmness.
+At that moment I felt a sense of calm.
 
 I often think about that time back in 95, and wonder if Donna finally found peace in the afterlife...
