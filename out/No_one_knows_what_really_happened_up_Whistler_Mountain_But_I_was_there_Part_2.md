@@ -187,3 +187,5 @@ They say money is the root of all evil. Fitting then that such riches are what d
 I truly hope I'm not calling that monster back to this cabin. Final part soon.
 
 *
+
+[[Part 3]](https://www.reddit.com/r/nosleep/comments/x2f7q1/no_one_knows_what_really_happened_up_whistler/?) -- My final act.
