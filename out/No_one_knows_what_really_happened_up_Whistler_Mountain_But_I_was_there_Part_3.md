@@ -8,7 +8,7 @@ Every creaking floorboard, every rustling leaf. I wonder if it’s the killer. H
 
 The fear weakens my hold on this vessel. She will win the battle for control soon. But I have to share what I heard, what I saw.
 
-----
+*
 
 They were still talking in the forest, sitting on their tree stumps. I was there too, not that they could see me.
 
@@ -98,7 +98,7 @@ Rose: "Let’s get back to the cabin. We’ll check the radio and go from there.
 
 And with that they headed back towards the cabin. A terrible, final mistake.
 
-----
+*
 
 The cabin was exactly as they left it.
 
@@ -154,7 +154,7 @@ The woman pretending to be me fired, Chopper crumpled to the floor.
 
 The woman took the van and fled.
 
-----
+*
 
 And that's how I ended up dead in a log cabin between the corpses of my fiancé and a man I'd never met.
 

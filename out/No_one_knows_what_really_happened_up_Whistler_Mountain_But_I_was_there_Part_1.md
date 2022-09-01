@@ -2,11 +2,11 @@ Three bodies found in a remote log cabin, a gun lying beside them that hadn’t 
 
 Oh, to be a fly on the wall that day, the gossipers and the gorehounds said. Well, I was in that cabin. I heard every word as I lay there in silence terrified that what had happened to me was going to happen again. That it was going to happen to someone else, that I was going to be trapped forever.
 
-But I have a voice now. A vessel. I have taken possession of a True Crime fanatic obsessed by the murders. She strayed to close to the cabin and I pounced. I'm finally going to share what I heard and what I saw – my parting gift.
+But I have a voice now. A vessel. I have taken possession of a True Crime fanatic obsessed by the murders. She strayed to close to the cabin and I pounced. I'm finally going to share what I heard and what I saw – **my parting gift**.
 
 I must work fast. They say the killer always returns to the scene of the crime. I'm scared they will come for my new vessel, and the killer is doubtless the most ruthless and deceitful person I ever crossed in what was once my life.
 
------ 
+*
 
 It all started with a woman sitting beside the cabin’s CB Radio, searching through the frequencies.
 
@@ -108,7 +108,7 @@ Rose: "And now I wait."
 
 And so she did wait. And she did stoke the fire, and she did turn on all the lights. All whilst I watched on, helpless.
 
------ 
+*
 
 Nightfall, and there was an anxious energy in the cabin.
 
@@ -164,7 +164,7 @@ Rose: "Yes, yes, I'll do whatever you say."
 
 Chopper: "Glad to hear it. Over and out."
 
------ 
+*
 
 More soon, keeping control is exhausting.
 

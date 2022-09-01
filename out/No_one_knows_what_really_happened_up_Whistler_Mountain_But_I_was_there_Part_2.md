@@ -1,4 +1,4 @@
-[[Part 1]](https://www.reddit.com/r/nosleep/comments/wzqzy7/no_one_knows_what_really_happened_up_whistler/) -- Three bodies found in a remote log cabin, a gun lying beside them that hadn’t been fired. The police, the courts, the local media, all baffled. But I was there.
+[[Part 1]](https://www.reddit.com/r/nosleep/comments/wzqzy7/no_one_knows_what_really_happened_up_whistler/) -- Three bodies found in a remote log cabin, a gun lying beside them that hadn’t been fired. The police, the courts, the local media, all baffled. **But I was there**.
 
 *
 
@@ -6,7 +6,7 @@ The fear is all-consuming. Am I drawing the killer back here by telling my story
 
 On top of that my vessel fights me for control. But I must persist. I must shine a light on the evil that happened here.
 
-----
+*
 
 It didn't take Chopper long to drive up the mountain track and arrive. I watched as he parked his van under a tree near the cabin. 
 
@@ -106,7 +106,7 @@ Chopper: "Start moving down the track, Rose. We’re gonna have ourselves a nice
 
 And so they walked down the track and then into the trees lining it. I followed.
 
-----
+*
 
 Half an hour later they were sitting on a pair of tree stumps near the track, waiting in ambush for Michael. Ancient, looming forest towered over us.
 
@@ -180,7 +180,7 @@ Chopper gave Rose a grave look.
 
 Chopper: "This ain’t about your holiday tokens, Rose. There are millions of dollars at stake tonight."
 
-----
+*
 
 They say money is the root of all evil. Fitting then that such riches are what drew such a monster to the mountain.
 
