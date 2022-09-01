@@ -1,6 +1,8 @@
 I have never managed to go to the first day of school without throwing up. Initially, I thought it was a phase that would pass. Then high school came, and then my first couple years of college and the nervousness persisted. My anxiety medication and my anti-depressants cannot put a dent in the crushing feeling that everyone will see me enter the room and immediately know that I do not belong. A serious case of Imposter Syndrome that slowly dissipates throughout the year but recharges between semesters. This explains why at the onset of the pandemic, I was wholly relieved. Everyone started attending classes virtually and I was sure that my nervousness, my anxiety, my curse, would be quelled. I was wrong.
 
-I signed up for a course on writing horror. Scary movies have been a kind of comfort food for me throughout the years. Anytime I started to think that life was getting too bad I would throw on a slasher film and see that I was doing okay. I counted the minutes down before the first session was set to start. My plan was to log in fifteen minutes ahead of time. Not too early, but not too late to avoid drawing attention to myself. I ran to the bathroom and retched up my lunch, tuna salad. The bathrooms are far enough away from the desks in my co-work building that I was sure no one could have heard me.
+I signed up for a course on writing horror. Scary movies have been a kind of comfort food for me throughout the years. Anytime I started to think that life was getting too bad I would throw on a slasher film and see that I was doing okay. 
+
+I counted the minutes down before the first session was set to start. My plan was to log in fifteen minutes ahead of time. Not too early, but not too late to avoid drawing attention to myself. I ran to the bathroom and retched up my lunch, tuna salad. The bathrooms are far enough away from the desks in my co-work building that I was sure no one could have heard me.
 
 Upon logging in, I was happy to see there were four others in the virtual class. The professor, Malachi Frederickson, owner of quite possibly the most pompous name I have ever heard, John Geary, a middle-aged track coach, Gitcela Romero, a younger girl, and a user without their camera active with the name, T.A. I could only assume that was the teacher’s assistant. I made sure my mic was muted and sat there smiling, a loop of affirmations playing in my head.
 
@@ -10,7 +12,7 @@ I have never been one to quickly make friends, if at all. I was a mix of emotion
 
 &#x200B;
 
-T.A.: Hey! Welcome to class. I always feel so intimated by everyone on the first day. I hope that we can be friends. My name is Montague Druitt. Most of my friends call me Jack. You’re welcome to use either.
+T.A.: Hey! Welcome to class. I always feel so intimidated by everyone on the first day. I hope that we can be friends. My name is Montague Druitt. Most of my friends call me Jack. You’re welcome to use either.
 
 Me: Thanks for reaching out. I am Alex. It’s short for Alexandria, but that sound far too pretentious for my taste. I too suffer from feeling intimidated by everyone on the first day.
 
