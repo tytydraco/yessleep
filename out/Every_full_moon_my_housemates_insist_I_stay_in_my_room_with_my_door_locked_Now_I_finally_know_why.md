@@ -164,7 +164,7 @@ His lip curled into the slightest of smiles, and he picked up another cushion to
 
 Sam’s accent never failed to take me by surprise. Hard Aussie. When I first met him I could barely understand him.
 
-It didn’t help that upon first meeting him, he talked like he was he’d been fast forwarded.
+It didn’t help that upon first meeting him, he talked like he’d been fast forwarded.
 
 Originally from Victoria, Sam Fuller was my first friend. That’s how we became close, actually. His amusement at my failure to understand him. Poppy folded her arms, her gaze trailing after the group filing out of the room. They were mixed ages, though none of them were Sam’s. They all looked to be middle aged to ancient. I glimpsed a woman who looked to be at least 70 stride to the door. “Don’t give me that look.” Poppy said. “Your weird friends can find another meeting place for your games. I want to sleep. Allie and Tom have locked themselves in their rooms since you decided to invite the whole town.”
 
@@ -180,7 +180,7 @@ Ignoring Poppy slamming the door behind her, Sam’s attention flicked to me. �
 
 I couldn’t help it, the words slipping out before I could stop them. “Who were they?”
 
-Sam dragged his hands through his hair. “Just friends.” His eyes expression softened, and the knot in my gut loosened.
+Sam dragged his hands through his hair. “Just friends.” His expression softened, and the knot in my gut loosened.
 
 “You look like shit, Nin. What happened?”
 
@@ -432,7 +432,7 @@ Not Rowan.
 
 A stranger.
 
-I was being dragged, my bare arms burning through across rough concrete, before a shadow was looming over me.
+I was being dragged, my bare arms burning across rough concrete, before a shadow was looming over me.
 
 And a foot was slamming down on my head.
 
