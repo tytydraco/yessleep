@@ -1,4 +1,4 @@
-In the summer of 95, after graduating from nursing school I was hired at a nearby psychiatric hospital (which I'll call Dovers* for privacy reasons). At the time, I was living in the New England area, and let me tell you, the summers there were beautiful.
+In the summer of '95, after graduating from nursing school I was hired at a nearby psychiatric hospital (which I'll call Dovers* for privacy reasons). At the time, I was living in the New England area, and let me tell you, the summers there were beautiful.
 
 Anyway, due to budget cuts and deplorable conditions (there were even rumors of several doctors performing lobotomies back in the thirties and forties), Dovers was slated to close in September of that year.
 
@@ -10,7 +10,7 @@ Dovers was located on the edge of town and was surrounded by very dense woods wi
 
 Built in 1870, it was originally intended to house 200 patients with the purpose of treating the criminally insane, mentally ill, and people suffering from tuberculosis in order to cure them.
 
-Unfortunately though over the years, as the population grew overcrowding was a big issue, and by the '30s there were upwards of 3,000 patients at the hospital at any given time.
+Unfortunately though over the years, as the population grew overcrowding was a big issue, and by the '30's there were upwards of 3,000 patients at the hospital at any given time.
 
 Soon though, due to the overcrowdedness, lack of funding, and, staff shortages, the hospital fell into disrepair.
 
