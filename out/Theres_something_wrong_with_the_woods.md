@@ -1,0 +1,31 @@
+I grew up in a half Native American family with the other side Nordic and still believed in the old Norse gods. I apologize in advance for bad grammar and or wording and spelling because not only is the story old (about 12 years) but I didn’t have very good passing grades in most language related subjects. (English is my 2nd language)
+
+The story takes place in Canada not quite sure where because it was a no name village close-ish to Greenland back in 2010.
+
+I am the eldest child of my fathers side, (the Nordic side) and my father had been previously married to a Irish woman and had divorced around when I was 5 (22 currently) and later married a woman of Navajo and Native American descent. I have two brothers and 1 sister. Second oldest being closest to my age is 20, John step brother, third oldest which is my sister 17, telainy (blood related), and then my youngest brother, adam, 17 as well (Adam is 4 months younger than telainy)
+
+Going back to the no-name village, when me, my mom, and dad, along with John, moved to the village. Me and John had always noticed that the forest behind our house had always seemed, off. Not in a weird way like as in it felt wrong (which it did) but whenever we had walked in front of the woods it’s like someone hit the mute button along with turned off the lights in the room next door. While we were in the house the sounds resumed and went back to normal. My mom has already had both of my younger siblings both 3 years old now at the time.
+
+Me and John specifically got along very well despite being looked at weirdly when we explained to people we were brothers. This is important later on for a very specific reason. Our property was around 45 - 65 acres in size and the woods took up around 60-70% of the property. We had two houses on our property, we were renting out the other house to a old folks woman that told us stories about the things that wander our woods and that due to our heritage we had a bad omen involving all of the creatures. 
+
+The old woman had mentioned lokis children and an old corrupted Norse god I had never heard of before? Anyways she also mentioned the fire giants along with the ice giants and trolls and hellspawns that even Ymir couldn’t have imagined. She also mentioned wendigos, fleshgaits, skinwalkers and dog men. I had known all of those legends except for the hellspawns and two more things she mentioned. The old god and the wendigo spawn (she described both as similar beings as one had created the wendigos and the other creates the hellspawns and she had also said they might indeed be the same being)
+
+After hearing about all of those we still decided to play in the clearing in front of the woods and slightly past the tree line until one day we heard the utmost demonic guttural growl that not even hell or satan could conjure. Those events took place about 3 years after the story had started in 2010. I had a computer then and decided to try and figure out what could’ve made that deep guttural growl but I couldn’t find anything and I scoured the internet and I mean I skimmed through every single article or reading I could find and then decided to go to the old folks woman and she said we had encountered a hellspawn. I had realized then that the woods were evil.
+
+Things had only gotten worse from there. The folks woman had her home broken into and we found her body the next day on the trail cam. Her body was thrown. We saw one small feature of the thing that had murdered her. It’s hand. It’s hand was a demonic crimson red and that outrules a wendigo instantly because a wendigo doesn’t care much if it’s seen and if it did it would tear the camera apart but this, this thing only wanted it’s presence known. It wanted us to find out what was hiding in the woods. And me and John sadly found out. 
+
+Around a year later around Christmas was a very special week. Preparing for Christmas. It was so cheery and wonderful.. but all good things need to come to an end. 
+
+We needed to go and cut down a pine tree for our Christmas tree and we were making it big this year. This tree was practically the tallest we could see without heading far past the tree line. We had taken it back with the help of villagers and our dad and uncles.
+
+Fast forward to the evening. With the whole villages help we managed to put it up and decorate within the evening. But sometimes things don’t like bright lights. We awoke to the sound of panting and we looked out the window and found a 25 foot tall behemoth picking up the tree by its trunk and hurling it like a javelin straight into town. It was a crimson red again. It matched the exact description of the claws and we took a picture it had noticed it’s presence had been mad clear and stared directly into me and johns souls and then it lumbered toward our house and said something unrecognizable that if you could put into letters would look something like this;
+
+
+H͚̖̜̍̃͐t̘̟̼̉̈́͐͋͌̊a̘̫͈̭͌͛͌̇̇̍e̮̟͈̣̖̰̩̹͈̾ͨ̑͑d̥̝̮͙͈͂̐̇ͮ̏̔̀̚ͅ o̜̓̇ͫ̉͊ͨt̘̟̼̉̈́͐͋͌̊ u̟͎̲͉̲ͮͫͭ̋ͭ͛ͣ̈o̜̓̇ͫ̉͊ͨy͉̝͖̻̯ͮ̒̂ͮ͋ͫͨ l͕͖͉̭̰ͬ̍ͤ͆̊ͨl͕͖͉̭̰ͬ̍ͤ͆̊ͨa̘̫͈̭͌͛͌̇̇̍a̘̫͈̭͌͛͌̇̇̍a̘̫͈̭͌͛͌̇̇̍
+
+
+It sounded unintelligible but almost sounded like it made sense? Then I realized it was speaking ancient Nordic backwards and then it took me a second to be able to think of what it had said and be abt to translate it; DEATH TO YOU AAAALL. On text it almost looks cringe but in real life you would’ve been scared shitless. 
+
+Major timeskip but that was literally the last we saw the thing until this year. We saw it this October and we had encountered a hellspawn and it wasn’t that. It was the old god and it wanted blood. It had killed our dogs our sheep our horses and a few villagers and heavily injured my father. We experienced a few wendigo encounters as well but not anything trying to hurt us other than the god. 
+
+The god is quite literally right outside my window watching me as I type and had spoke a few unintelligible things again but not backwards or anything just straight nothing but gibberish. He is tapping on the window and it’s starting to crack. If I don’t add an update soon I might be gone or worse.
