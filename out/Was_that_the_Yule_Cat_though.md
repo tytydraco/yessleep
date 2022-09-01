@@ -98,7 +98,7 @@ Two or three steps behind me, a raging torrent was running across the forest. St
 
 That wasn’t why I screamed though.
 
-On the other side of the torrent… Reader, I will attempt to describe it, but you won’t believe me, and I won’t blame you, because it’s pretty ridiculous.
+On the other side of the torrent… Look, I will attempt to describe it, but you won’t believe me, and I won’t blame you, because it’s pretty ridiculous.
 
 It was, to put it bluntly, an enormous cat. It was looking down at me, slanted eyes glistening in the dusk. Its outstretched claws left long rakes in the mud. Deep in the shadows, I saw its raised tail twitch. I couldn’t make out the rest of its gigantic body, because it was flat on the ground, in a prowling position.
 
