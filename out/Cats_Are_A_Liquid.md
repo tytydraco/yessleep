@@ -4,7 +4,7 @@ On Tuesday, my cat got out.
 
 His name is Arnold. He is *not* an outside cat.
 
-Arnold is a mancoon, and a fat bastard of a cat. He’s not nice, he doesn’t show affection, he doesn’t shit in his litterbox, he doesn’t even look at me.
+Arnold is a maine coon, and a fat bastard of a cat. He’s not nice, he doesn’t show affection, he doesn’t shit in his litterbox, he doesn’t even look at me.
 
 But I live alone, and he’s all I got. So I keep him around, well, because if I don’t have him, I have nobody. And picking up after him brings me more comfort than listening to the sounds of my own thoughts. So, yeah. That’s why I deal with him.
 
