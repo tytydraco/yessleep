@@ -258,7 +258,7 @@ Slowly but surely, the weary-but youthful man was replaced by deep wrinkles, and
 
 The only thing that stayed the same was those alien emerald eyes. 
 
-I realized now what the thing had been staring for. Why all it had done was silently stand and observe, until I’d gone trigger happy. Until I’d decided I had to defend my castle. 
+I realized now what the thing had been staring for. Why it had been repeating my words. Why all it had done was silently stand and observe, until I’d gone trigger happy. Until I’d decided I had to defend my castle. 
 
 I figured somewhere out there, maybe miles away, maybe in this neighborhood, there was the body of a youthful, weary young man with buzzed hair who had been planning on committing a robbery this evening.
 
@@ -287,3 +287,7 @@ The thing’s smile grew even wider as I shook my head, pleading, trying to figh
 It spoke, but not to me. A spot on, if staccato imitation of my voice. 
 
 “Just stay put, honey. I love you.”
+
+- - -
+
+[More](https://old.reddit.com/user/mikeventure76/submitted/)

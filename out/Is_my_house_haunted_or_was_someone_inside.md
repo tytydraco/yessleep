@@ -14,3 +14,7 @@ I step out of my room and look inside my sons room and he is sound asleep. I ste
 Not sure what is going on but I lay in bed every night listening for any sound, double checking locks.
 
 Should I be worried?
+
+UPDATE: nothing has happened until last night. Kids are asleep and it's around midnight. Husband is away so just me and my 4lb wanna be alert dog in bed. All lights off and I'm trying to go to sleep. I hear a noise behind me by the door and turn over fast to look. My dog is also up and at foot of bed staring. I m listening but don't see or hear anything.
+
+All of a sudden I start to feel drugged. I have a very low tolerance for alcohol /medication and hadn't taken anything. But the feeling I had is like when the world is swaying back and forth. I don't know if that makes sense.  I felt like the bed was gently swaying. I'm laying there so out of it almost passed out but I can feel something going back and forth in the house. This all lasted about 20 minutes and then the feeling went away and nothing else happened. Well, except now everywhere in the house I smell super glue. There isn't any but that is definitely what I'm smelling.
