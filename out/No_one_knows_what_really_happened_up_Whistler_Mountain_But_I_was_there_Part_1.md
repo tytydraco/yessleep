@@ -168,4 +168,4 @@ Chopper: "Glad to hear it. Over and out."
 
 More soon, keeping control is exhausting.
 
-[[Part 2]](https://www.reddit.com/r/nosleep/comments/x1g44c/no_one_knows_what_really_happened_up_whistler/?) -- Where the killer weaved their twisted web.
+[[Part 2]](https://www.reddit.com/r/nosleep/comments/x1g44c/no_one_knows_what_really_happened_up_whistler/?)
