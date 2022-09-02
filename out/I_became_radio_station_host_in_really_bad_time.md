@@ -1,0 +1,22 @@
+"Hello to anyone who is out there"i said as i was  sitting in my old chair.
+"It has been 30 days since the snow storm came out of nowhere,if someone is still out there ,trapped or  waits for help,i am your host and i will try to make  you comfortable in this hard times".It  was  really cold but i was lucky i had a  small fireplace that i managed to craft because if i have not done that i would probably die  really fast.I  broadcasted some music as i was waiting for someone to call and say something.Five minutes passed and i could not hear anyone,so i  was standing up to grab some food that i managed to collect before the storm when someone interuppted the music:"umm...hey  is someone there?"
+I was shocked because i  didnt expect anyone so fast so i said"Hey,your host is here and you are live,what do you want to say"
+The voice on the other side just said"President is doing nothing for people in our country,he  is in a safe place while people are de..."
+I  turned him off and i kept on with the music because i didnt want to listen anything about politics.
+It is really lonely here hahaha,i would love to have some company and i would  prefer girls company hahaha.
+Looks like i have  someone on broadcast"hello there"
+The voice responded "hello,can you send someone to the old church at the center of the town?I am trapped for 3 days and managed to get signal just now".
+"I will send someone"i responded.
+It is importnant to  give people hope in bad times even if you cant help them.I  will keep music on as i go to sleep it helps me.
+
+I just got awake i have been sleeping pretty good,considering the  situation.I dont think anyone will come to help me .I dont feel  very well even though  i slept pretty good so i wont broadcast today.I need to  make  some food and grab wood for new fireplace.
+
+Well,looks like the snow is so wild that  i cant open the door of radio station anymore.At least i  have some food hahaha that  is only good thing until help arrives.
+
+It is early morning and i couldnt sleep anymore.I had a really bad dream tonight and i  was sleeping  really bad unlike last night.Well,i must be ready for broadcast "hello everyone it is your favourite host,is someone listening?".The voice said"i am really close to  your radio station and i see you are trapped"."well if you want to help out you can try to  unblock the doors and get in if you want " i said .He responded "i will try to".
+"Hello,your favourite host is here,help is coming "i said as i  am enjoying my quick meal that i prepared.Looks like i have somebody  "hello it is your favourite host" i said and the voice responded"my boyfriend called  one  hour ago i need to know where is he?"i dont know what is this woman talking about and im becoming sick of these people  that think i can help them.I turn this bitch off and music on.
+I wish  to do some changes to this radio station because people that worked here  have no clue.But only thing i can change for now is paint this old floor with only color i have hahahahaha."hey who is there"the voice interuppted me as i was thinking out loud so i answered "your host is here what do you want?" And he said"im selling my old str...."well not promotions on my channel sorry friend.I always wanted to be tv or radio host but i never got the chance until now...
+If  anyone is out there respond im kind of lonely here and i have been seeing some shadows lately hahaha.
+
+Five days have passed and i  am  sick of this.I am listening to music and  i respond to some  people on my broadcast."hell...hello is someone there?" Voice said as i responded "it is your favourite host".
+"The police is on their way to your radio station"as he said this i know this is the end of the road.I turned of the broadcast completely and i dont need to know when they come.I have  only one bullet and i will use it because  it is my only way out.This is  my last message.I tried to escape them but it is just not possible.Brother of Ryan the radio station host probably reported  his dissapereance .The bodies that i pilled up and ate these last few days are some of the best i ever tried.I killed four radio station workers and i left a map for them to find the bodies.The killing is just so fun i would do it  again.
