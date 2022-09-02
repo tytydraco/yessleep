@@ -60,4 +60,4 @@ The last thing I remember was her trying to open the car door to escape, before 
 
 I haven't got much longer left in this world, so this could be my last statement, I just hope if someone reads this, they understand that I didn’t hurt anyone, well, at least I don’t remember doing so, and if I did, I am truly sorry.
 
-[Sister's statement](https://www.reddit.com/r/nosleep/comments/x43r7o/interview_transcripts_of_witness_mrs_elezabeth/)
+&#x200B;
