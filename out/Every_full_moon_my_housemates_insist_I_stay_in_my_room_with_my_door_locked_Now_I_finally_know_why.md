@@ -438,4 +438,4 @@ And a foot was slamming down on my head.
 
 … 
 
-Sorry, I’ve hit the word-limit. I’ll be back tomorrow to continue. Honestly, this gives me time to breathe. Jesus.
+Sorry, I’ve hit the word-limit. I’ll be back in a few days to continue. Honestly, this gives me time to breathe. Jesus.
