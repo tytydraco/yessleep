@@ -495,4 +495,4 @@ They stayed on the dock and watched us go towards the center of the lake. 
 
 "That looks like me," said Gretchen.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/x476h5/the_property_up_north_continued/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/x47rix/the_property_up_north/?utm_medium=android_app&utm_source=share)
