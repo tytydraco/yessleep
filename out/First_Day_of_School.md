@@ -1,4 +1,4 @@
-Part 2: https://www.reddit.com/r/nosleep/comments/x3lj61/first_day_of_school_part_2/ 
+Part 2: https://www.reddit.com/r/nosleep/comments/x3motg/first_day_of_school_part_2/
 
 
 I have never managed to go to the first day of school without throwing up. Initially, I thought it was a phase that would pass. Then high school came, and then my first couple years of college and the nervousness persisted. My anxiety medication and my anti-depressants cannot put a dent in the crushing feeling that everyone will see me enter the room and immediately know that I do not belong. A serious case of Imposter Syndrome that slowly dissipates throughout the year but recharges between semesters. This explains why at the onset of the pandemic, I was wholly relieved. Everyone started attending classes virtually and I was sure that my nervousness, my anxiety, my curse, would be quelled. I was wrong.
