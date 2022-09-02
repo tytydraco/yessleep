@@ -27,7 +27,7 @@ back inside.
 
 It was about 2am when I awoke to a loud
 sound outside. On my way to the front door I grabbed
-the 1911 they keep in the cabin for emergencies, I
+our 1911 we keep in the cabin for emergencies, I
 walked to the front door and stepped out to the front
 step. I was walking to the tree line when I saw it, a
 demonic looking deer standing over a dead wolf, it
@@ -49,7 +49,7 @@ believed it until that night. A couple weeks later my moms friend went up their 
 
 A couple nights later we heard that he went up their and called the cops because something was walking around the front door and scratching the windows. At one point he said he thought he heard someone say “it’s ok you can come out” he thought about it but never went out. 
 
-I woke up the next morning and my mom told me that her friend had died last night and the police don’t know how. The police said that they think he died of a panic attack because no marks were on his body. 
+I woke up the next morning and my mom told me that her friend had died last night and the police don’t know how. The police said that they think he died of a heart attack because no marks were on his body. 
 
 
 
