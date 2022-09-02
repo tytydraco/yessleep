@@ -1,0 +1,45 @@
+I’ve hiked a lot of different trails all over the US, but some of my favorite backpacking trips have been while hiking sections of the Appalachian Trail (mostly in and around the Blue Ridge mountains).  I have lots of other friends that enjoy backpacking in the same area, and we often swap stories of our adventures.  Usually they involve wildlife encounters, getting turned around and temporarily lost, getting soaked due to a freak rainstorm and forgetting another pair of dry socks (yes, this happened to me).  Stuff like that.
+
+I’ve also heard some stories from fellow hikers and encountered a few things myself that unsettled me and stuck with me long afterwards.  These stories have a way of creeping into my thoughts  and haunting me on the rare times I hike alone.
+
+I spoke with a good friend recently who told me about a backpacking experience she had a couple of years ago.  She’s an experienced hiker and would sometimes go out on weekend trips hiking various sections of trail through the Blue Ridge mountains.  This particular time, she described the weather as being clear and cool with not a cloud in the sky.  She had been hiking toward a favorite camping spot of hers that she’d been to several times before.  She’d gotten a later start than she meant to that day, and the sun was starting to set by the time she got within about a mile of the spot.
+
+She said suddenly this heavy fog rolled in out of nowhere.  She remembered it being odd, because the weather had been so clear a few minutes before that.  Her visibility was limited to about 25-30 yards ahead of her, but she pressed on knowing that her camping spot was only about a mile further down the trail.   The whole time she felt this sense of dread creeping up on her.  Maybe a couple of minutes after this fog rolled in, she noticed what looked like the vague outline of an elk standing in the middle of the trail.
+
+Elk aren’t uncommon in the Blue Ridge mountains, but they can be a lot more dangerous than most people realize.  Inexperienced hikers, ignorant of the danger elk can pose, have been known to approach them thinking that they’re just gentle giants and have frequently gotten seriously injured or even killed by them as a result.  They’re no joke.
+
+Knowing this, she stopped when she saw it so as to keep her distance and then started backing away slowly.  As she did so, to her dismay, it started slowly approaching her.  The outline of the beast was still vague, but she could tell that it was bigger than any other elk she’d ever seen.  As the shape started to materialize out of the fog, she also realized, to her horror that this thing wasn’t an elk.  She could make out the shape of the elk-like antlers and the vague shape of the muzzle and part of the body, but the thing that truly startled her was that the beast was slowly loping towards her on two legs…
+
+As soon as she saw this, she turned and ran.  Visibility was still very limited, and she had to dodge overhanging branches, tree roots and large rocks as she ran in a blind panic.
+
+After about 10 minutes, she told me that the fog started to clear up and the feeling of dread also faded a little bit along with it.  She knew that there was no way she could make it back to her car before dark, so she got off the trail and made her way into the woods until she came to a spot which wasn’t visible from the trail and where she felt safe setting up her tent
+
+She described being hunkered down in her tent all night with her knife at the ready and hearing what sounded like an elk bellowing in the woods.  If you’ve ever heard this, you know they can sound pretty unsettling.  But she described this bellowing as being deeper and more guttural than a normal elk.  At times, it even sounded like the thing was forming what sounded like they could have been words.  Sometimes it was closer to her; sometimes further away and, at one point, she thought she heard a second one.  The bellowing faded off into the distance as it started getting light outside.  She waited until it was bright enough outside to pack up and then booked it out there.
+
+She didn’t go backpacking in the mountains for a year after that experience and now only goes with friends…
+
+As I mentioned, I’ve heard some strange stories, but that still ranks among the oddest I’ve heard, and it still bothers me to this day.  There’s one that bothers me more, though, because it happened to me.
+
+My son is in Boy Scouts and I’m fairly involved as a leader in his troop.  So, most of the time when his troop goes backpacking, I go too.  On one of these trips, we’d just reached our camping spot after a long day’s hike.  There were still a few hours of daylight left, so after everyone had gotten their tents and gear set up, most of the boys took to exploring the area around the camp site.
+
+Another hour or so went by and this thick heavy fog rolled in.  Everything went dead quiet.  The birds were no longer chirping, the leaves stopped rustling in the wind.  Total silence.   Even the words we spoke seemed muffled by the fog.  Along with that silence, I began to feel weighed down by this really oppressive sense of what I can only describe as “offness”.  It felt completely unnatural.
+
+The other leaders and I were concerned some of the boys could get lost or hurt in this fog, so we called them back to the campsite and counted them off to make sure everyone was present and accounted for.
+
+The boys are taught to always have at least one buddy with them at all times.  So we counted each scout and confirmed their buddy was with them.  The last boy we got to was in a sort of panic.  He told us his buddy (a younger scout named Adrian) had wondered off and, after the fog rolled in, was nowhere to be seen.
+
+Everything kicked into high gear after that.  We told the boys to stay at the camp and two of the adult leaders stayed with them there while the rest of us went out looking for the missing boy.  We had radios with us so we could communicate if we lost sight of each other.
+
+I decided to backtrack down the trail we initially came in on (in case Adrian had wandered back that way) and eventually came to a spot where I could make out his outline in the fog.  As I approached him, I noticed his back was to me and he was standing stock-still facing the woods.  I spoke his name softly and he seemed startled like he had been in some kind of trance.
+
+I asked him what he was looking at and why he’d come back down this part of the trail.  He looked up at me with an expression that was a mixture of bewilderment and worry and told me that, when we’d first passed this spot while we were hiking in, he’d heard what sounded like soft laughter and voices deep in the woods.  He came back to investigate thinking it must have been coming from another campsite.  It made sense, but it didn’t explain why he’d just been standing there staring.
+
+As I pressed him for more answers, he hesitantly told me that shortly after he’d started down this trail, the fog had rolled in.  He wasn’t aware that his buddy wasn’t with him; he was more interested in finding out who was in the woods.  When he’d arrive at the spot, he stopped to listen.  As he had been standing there trying to see through the fog, he noticed a very tall (he heavily emphasized the word “very”), pale man peering out from behind a tree at him while also being partially obscured by the fog.  As he stood staring, Adrian said he noticed more people scattered around the nearby trees also peering at him.  Not saying anything; just peering at him with blank expressions.  He said that one or two of them had made slow hand gestures like they wanted him to come over to them and he had suddenly felt very tired.
+
+That was when I’d found him and startled him, bringing him out of that trance-like state.  I looked around and didn’t see or hear anything – no birds, no insects and definitely no people.  There was just us and that heavy, oppressive fog.  As I started to glance back down at him, I caught a tiny movement out of the corner of my eye.  I looked up and for one brief moment caught  a glimpse of one of the people he described.  He was staring at us with a blank and hollow expression  as he backed further into the fog and melted away.
+
+If you’ve ever been to an open casket funeral, you know how the person you’re looking at in that wooden box looks so much different than they did in life.  They look more like a wax figure straight out of the uncanny valley.  That’s what the face of that man reminded me of as he was engulfed by the mist.
+
+I stood in stunned silence for a moment.  As soon as I snapped out of it, we high-tailed it back to camp and I radioed the other leaders to let them know I’d found the missing boy.  Eventually, the fog lifted, but the disquieting feeling I felt earlier remained.
+
+I still feel that same sense of disquiet whenever I think about that freakishly tall man and his blank, uncanny stare.  It’s stories and encounters like that that haunt me when I’m backpacking through the mountains and, just like the friend I mentioned earlier, I never go alone anymore…
