@@ -1,3 +1,5 @@
+[[PART 2]](https://www.reddit.com/r/nosleep/comments/x4ncte/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
+
 Hey everyone, a little background before we get started.
 
 My name is Naissance. Weird name, I know. I’m told by my mother it’s French for  

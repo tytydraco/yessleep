@@ -38,7 +38,7 @@ TOM: Hello!
 
 \[SHUFFLING, HEAVY EQUIPMENT DROPS\]
 
-STEVENS: Right now, we're in a large chamber near the mouth of a cave system we're naming the Sheer Strait. This is our last equipment check at the forward base before we head down a southwest lead passage Radio check?
+STEVENS: Right now, we're in a large chamber near the mouth of a cave system we're naming the Sheer Strait. This is our last equipment check at the forward base before we head down a southwest lead passage. Radio check?
 
 \[RADIO CLICKS ON\]
 
@@ -118,7 +118,7 @@ STEVENS: Next time it’ll be on your face, asshole.
 
 TOM: *Very funny. Did something die?*
 
-STEVENS: We’ll probably come across it further ahead. Just hurry up and get over he*—*
+STEVENS: We’ll probably come across it further ahead. Just hurry up and get over he—
 
 \[PAUSE\]
 
@@ -172,7 +172,7 @@ TOM: Aw, hell. I sure am glad I don’t have to get closer to that shit.
 
 STEVENS: Whatever died must’ve fallen off this cliff into the water. It’s fine, I can handle it. I’ll make it quick. Just stay on the radio. 
 
-TOM: Alright, let’s set you up then*—*
+TOM: Alright, let’s set you up then—
 
 \[PAUSE\]
 
@@ -184,17 +184,17 @@ DISTORTED VOICE: ***SANGUIS MANET. SANGUIS MANET. SANGUIS MANET.***
 
 \[PAUSE\]
 
-STEVENS: *—*fuck! It’s fucking everywhere, jesus christ. My god. How were their bodies… bent like that? Christ. 
+STEVENS: —fuck! It’s fucking everywhere, jesus christ. My god. How were their bodies… bent like that? Christ. 
 
 CLARA: *Jeffrey! Are you there? Are you alright? What happened?*
 
-STEVENS: There’s fucking blood everywhere, Clara. It’s all over the walls. So much blood*—* what did this? T-there’s two bodies*—* no, three? I can’t tell. There’s a couple arms I see… This is fucked up. These people didn’t fall. Ripped apart… guts everywhere. Torsos missing legs. The blood is pooling at the bottom of this pit… There's so much... 
+STEVENS: There’s fucking blood everywhere, Clara. It’s all over the walls. So much blood— what did this? T-there’s two bodies— no, three? I can’t tell. There’s a couple arms I see… This is fucked up. These people didn’t fall. Ripped apart… guts everywhere. Torsos missing legs. The blood is pooling at the bottom of this pit… There's so much... 
 
 TOM: *Bodies? You found bodies? Jesus Stevens, that’s horrible. — ve gotta get — ck up here. We —  to repo—* 
 
 \[PAUSE\]
 
-STEVENS: This blood is*—*  this blood is fucking warm. I*—*  this couldn’t have happened more than a couple hours ago*—* these bodies are *fresh*. And it doesn’t smell like rot anymore*—* what happened here?
+STEVENS: This blood is—  this blood is fucking warm. I—  this couldn’t have happened more than a couple hours ago— these bodies are *fresh*. And it doesn’t smell like rot anymore— what happened here?
 
 CLARA: *—at? We were h—  a cou— hours ago.*
 
@@ -204,7 +204,7 @@ STEVENS: Hello? Clara? Tom? Fuck, the radio.
 
 \[FAINT SCREECHING, PAIRS OF FOOTSTEPS APPROACH\]
 
-STEVENS: Oh shit*—*  what was that? CLARA! Pull me up! TOM! Something’s down here!
+STEVENS: Oh shit—  what was that? CLARA! Pull me up! TOM! Something’s down here!
 
 \[PANICKED MOVEMENT, METAL CLANGING\]
 
@@ -218,7 +218,7 @@ STEVENS: No no no! No please! CLARA! Fuck! Pull me up!
 
 \[SPLASH\]
 
-STEVENS: Oh fuck, there’s blood everywhere. Fucking rig brok*—* \[PAUSE\] What? How*…* Why is there a ceiling there? Where’s the fucking cliff? CLARA! TOM! Please, god. Help me! Where am I?!
+STEVENS: Oh fuck, there’s blood everywhere. Fucking rig brok— \[PAUSE\] What? How… Why is there a ceiling there? Where’s the fucking cliff? CLARA! TOM! Please, god. Help me! Where am I?!
 
 \[LOUD SCREECHING, GALLOPING\]
 
@@ -240,7 +240,7 @@ STEVENS: Please let me out, please! CLARA!
 
 \[PANICKED BREATHING\]
 
-STEVENS: Jesus, Clara. It has your fac*—*
+STEVENS: Jesus, Clara. It has your fac—
 
 \[CRUNCH, CRUNCH\]
 
