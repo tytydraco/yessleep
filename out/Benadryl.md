@@ -1,4 +1,3 @@
-
 When I decided I wanted to get high on Benadryl - of all things - you must understand I was not in the most rational of mental places.
 
 
@@ -69,7 +68,8 @@ When I finally blinked, I realized I had been crying. Tears streamed down my che
 
 
 I couldn’t read the last few words, the glitching screen obscured them too much
+
 ..........................
 
 
-(Part 1, I'm still writing the rest :)  )
+(Part 1, I'm still writing the rest :) Also first post was removed for some reason. leave me alone reddit. this is my own private domicile and i will not be harassed)
