@@ -6,7 +6,7 @@ That morning I awoke to find every girlfriend I’ve ever had lined up dead on m
 
 **Grace Keele**, first in the row. I hadn’t seen Grace since primary school.
 
-**Rabia Sahni**, second. The first girl I ever kissed. **Sarah Finnegan**, third in the row. I’d never watch Sarah smash a forehand winner again.
+**Rabia Sahni**, second in the row. Rabia was the first girl I ever kissed. **Sarah Finnegan**, third in the row. I’d never watch Sarah smash a forehand winner again.
 
 **Patricia Kotzen**, fourth. She was supposed to be living it up in Barcelona. And finally, **India Evans**. Four days ago India was alive. 
 
@@ -24,7 +24,7 @@ Or so I thought.
 
 *
 
-Half an hour later and I'd made it to Alex's house. Somehow I’d managed to stay calm on the way over. But, as soon as I reached Alex’s front door, I lost it.
+Half an hour later and I'd made it to Alex's house. Somehow I’d managed to stay calm on the way over but, as soon as I reached Alex’s front door, I lost it.
 
 Me: “Alex! Let me in!”
 
@@ -68,7 +68,7 @@ Alex: “Relax, it’ll be a delivery. They always come at this time. Drink the 
 
 I took another sip as Alex went to answer the door. 
 
-Eventually Alex came back with an A4 envelope and a confused expression.
+Eventually, Alex came back with an A4 envelope and a confused expression.
 
 Alex: “It’s addressed to you ...”
 
@@ -96,7 +96,7 @@ Alex lowered the photo to the table. She picked up the envelope.
 
 Alex: “There’s something else in here.”
 
-Alex pulled a [vandalised graduation photo](https://i.redd.it/wpe286mlail91.jpg) of me from the envelope, and then a letter.
+Alex pulled a [vandalised graduation photo](https://i.redd.it/wpe286mlail91.jpg) depicting me without a face from the envelope, and then a letter.
 
 Alex read the letter aloud. I'll type it out for you below:
 
@@ -104,7 +104,7 @@ Alex read the letter aloud. I'll type it out for you below:
 
 *Consider Grace Keele, your first romance. Aptly named, Grace showed poise and work ethic throughout school, eventually securing a coveted job in the finance sector.*
 
-*You shamelessly relied on family and friends to bail you out of endless trouble. It's high time you learned some humility. Take a naked photo of yourself and post it across  your social media accounts before 10am today. I'm watching. I'm closer than you think.*
+*You shamelessly relied on family and friends to bail you out of endless trouble. It's high time you learned some humility. Take a naked photo of yourself and post it across your social media accounts before 10am today. I'm watching. I'm closer than you think.*
 
 Alex lowered the letter to the table.
 
@@ -220,7 +220,7 @@ Then my phone pinged. I pulled it from my pocket and worked the screen.
 
 Me: “I have an email. I think it’s from …”
 
-Alex pocketed her phone as I opened the email and began to read aloud:
+Alex pocketed her phone as I opened the email and read the message aloud:
 
 *An eye for an eye, a tooth for a tooth. I hope you’ve learned a valuable lesson about humility.*
 
@@ -232,9 +232,9 @@ The game was about to get a whole lot more twisted.
 
 *
 
-It's nearly the start of Autumn Term and students are already starting to trickle back into the city. That means some of my safehouses (vacant student accommodation with neglectful landlords) won't be viable for much longer. I may have to spend more time in my much less comfortable back up safehouses — obviously I’m not going to reveal their locations here.
+It's nearly the start of Autumn Term and students are already beginning to trickle back into the city. That means some of my safehouses (vacant student accommodation with neglectful landlords) won't be viable for much longer. I may have to spend more time in my very scummy back up safehouses — obviously I’m not going to reveal their locations here.
 
-On the plus side, more students means more people to hide amongst. I know I'm being hunted, and I'm living in almost constant fear. But exactly who is hunting me I'm not sure.
+On the plus side, more students means more people to hide amongst. I know I'm being hunted, but exactly who — or *what* — is hunting me, I'm not sure.
 
 Anyway, I'm going to head out and try to scrounge some food without getting caught. I'll check back in soon.
 
