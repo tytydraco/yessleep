@@ -784,7 +784,7 @@ Carl grunted in annoyance.
 
 &#x200B;
 
-Stevenson began cursing. However, Carl shut off the radio. 
+Stevenson began cursing so Carl shut off the radio. 
 
 &#x200B;
 
