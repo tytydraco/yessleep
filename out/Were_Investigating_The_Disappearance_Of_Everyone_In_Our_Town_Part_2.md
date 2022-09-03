@@ -2,13 +2,13 @@
 
 &#x200B;
 
-We’ve managed to find out some things. The most concerning of which is that we aren’t alone here after all. The night after my last post, I saw one of those trees. Actually, I need to think of a better name for them. How about card trees?  
+We’ve managed to find out some things. The most concerning of which is that we aren’t alone here after all. The night after my last post, I saw one of those trees. Actually, I need to think of a better name for them. How about card trees?
 
 &#x200B;
 
 &#x200B;
 
-Sure, that works so anyway, I woke up having to take a leak something fierce.  The blinds in the bathroom window were up. I didn’t think much of it as I did my businesses. Then I glanced out the window to see one of those freaky as shit things coming out of the woods. I ducked, cursing. 
+Sure, that works so anyway, I woke up having to take a leak something fierce.  The blinds in the bathroom window were up. I didn’t think much of it as I did my businesses. Then I glanced out the window to see one of those freaky as shit things coming out of the woods. I ducked, cursing.
 
 &#x200B;
 
@@ -20,7 +20,7 @@ I heard it come closer and I pressed my back against the wall beside the window.
 
 &#x200B;
 
- Fortunately, we may be able to do something about it. The next morning I let Carl and Nick know what happened.
+Fortunately, we may be able to do something about it. The next morning I let Carl and Nick know what happened.
 
 &#x200B;
 
@@ -84,7 +84,7 @@ Carl stretched and headed to the living room.
 
 &#x200B;
 
-He cocked a thumb to its door. Then he left and Nick followed him. I went into the garage. 
+He cocked a thumb to its door. Then he left and Nick followed him. I went into the garage.
 
 &#x200B;
 
@@ -368,7 +368,7 @@ He nodded. Some sweat droplets were already forming along his forehead.
 
 &#x200B;
 
-Carl brandished the blade of his knife. 
+Carl brandished the blade of his knife.
 
 &#x200B;
 
@@ -610,7 +610,7 @@ Stevenson frowned and put down the pack of frozen peas.
 
 &#x200B;
 
-“A robot?” Carl said. 
+“A robot?” Carl said.
 
 &#x200B;
 
@@ -704,7 +704,7 @@ Stevenson sighed.
 
 &#x200B;
 
-He told us a white flash washed over the town that most people confirmed to have seen including him. 
+He told us a white flash washed over the town that most people confirmed to have seen including him.
 
 &#x200B;
 
@@ -782,7 +782,7 @@ I let out a light chuckle.  Stevenson glared at me.
 
 &#x200B;
 
-He didn't have a good retort to that which happens a lot to people whose words get used against them. 
+He didn't have a good retort to that which happens a lot to people whose words get used against them.
 
 &#x200B;
 
@@ -810,7 +810,7 @@ He didn't have a good retort to that which happens a lot to people whose words g
 
 &#x200B;
 
-What he was proposing didn’t sit well with me in the slightest. It was essentially a trial and error of different rune combinations to see if one would work on the card trees. We explained to him that if runes are too close, they cancel each other out. 
+What he was proposing didn’t sit well with me in the slightest. It was essentially a trial and error of different rune combinations to see if one would work on the card trees. We explained to him that if runes are too close, they cancel each other out.
 
 &#x200B;
 
@@ -920,7 +920,7 @@ We have no idea if we’ll be able to get them back and yet for some reason I’
 
 &#x200B;
 
- In fact, it seemed hellbent on snuffing it.
+In fact, it seemed hellbent on snuffing it.
 
 &#x200B;
 
@@ -1030,7 +1030,7 @@ It didn’t so much as leave a scratch.
 
 &#x200B;
 
-We tried again with the same results. 
+We tried again with the same results.
 
 &#x200B;
 
@@ -1052,7 +1052,7 @@ I was starting to get the same idea especially since those things were now much 
 
 &#x200B;
 
-“On it,” he replied. 
+“On it,” he replied.
 
 &#x200B;
 
@@ -1120,7 +1120,7 @@ One unexpected advantage was that as these things fell on each other, it was har
 
 &#x200B;
 
-Sure enough, the noise of a speeding car reached us. However, it wasn’t Carl’s. Instead, it came from a police car. As it got closer, the sirens were turned on. This caught the card trees’ attention which was a huge break for us. Honestly, we were practically a second away from being grabbed by them. As usual, we cut it way too close. 
+Sure enough, the noise of a speeding car reached us. However, it wasn’t Carl’s. Instead, it came from a police car. As it got closer, the sirens were turned on. This caught the card trees’ attention which was a huge break for us. Honestly, we were practically a second away from being grabbed by them. As usual, we cut it way too close.
 
 &#x200B;
 
@@ -1142,7 +1142,7 @@ The card trees let go of the roof and gave chase to the blaring sirens. I was dr
 
 &#x200B;
 
-By the time we were outside, the card trees were all gone, having been lured by the siren. 
+By the time we were outside, the card trees were all gone, having been lured by the siren.
 
 &#x200B;
 
@@ -1233,3 +1233,7 @@ Seeing them on camera and from far away was one thing. Up close was another matt
 &#x200B;
 
 That happened only hours ago. I was too tired to tell the others, but it made me think that maybe, we shouldn’t be trying to kill [them](https://www.reddit.com/r/StoriesFromRose/) after [all.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/x4keoy/were\_investigating\_the\_disappearance\_of\_everyone/](https://www.reddit.com/r/nosleep/comments/x4keoy/were_investigating_the_disappearance_of_everyone/) (Damn it, Stevenson)
