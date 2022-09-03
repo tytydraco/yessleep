@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 6476
+file count: 6477
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 Years ago I survived an airplane crash What I saw there scarred me for the rest of my life  Day 1](out/10_Years_ago_I_survived_an_airplane_crash_What_I_saw_there_scarred_me_for_the_rest_of_my_life__Day_1.md)
@@ -2071,8 +2071,8 @@ file count: 6476
 * [I saved a white snake](out/I_saved_a_white_snake.md)
 * [I saved a young womans life I should have let her die](out/I_saved_a_young_womans_life_I_should_have_let_her_die.md)
 * [i saw a skinwalker on riverdale road last night](out/i_saw_a_skinwalker_on_riverdale_road_last_night.md)
-* [I Saw Aka Manto](out/I_Saw_Aka_Manto.md)
 * [I saw Aka Manto](out/I_saw_Aka_Manto.md)
+* [I Saw Aka Manto](out/I_Saw_Aka_Manto.md)
 * [I saw heaven and now I want nothing more than to sin](out/I_saw_heaven_and_now_I_want_nothing_more_than_to_sin.md)
 * [I Saw It in the Depths](out/I_Saw_It_in_the_Depths.md)
 * [I saw my best friend again after 20 years](out/I_saw_my_best_friend_again_after_20_years.md)
@@ -3374,6 +3374,7 @@ file count: 6476
 * [My Birth Story](out/My_Birth_Story.md)
 * [My bones started slowly shrinking inside of me soon there will be nothing left](out/My_bones_started_slowly_shrinking_inside_of_me_soon_there_will_be_nothing_left.md)
 * [My boss gives me extra money because I look like his dead daughter Am I a terrible person for taking it](out/My_boss_gives_me_extra_money_because_I_look_like_his_dead_daughter_Am_I_a_terrible_person_for_taking_it.md)
+* [My boss worked a dangerous job as a speleologist and forgot the most important rule of his job](out/My_boss_worked_a_dangerous_job_as_a_speleologist_and_forgot_the_most_important_rule_of_his_job.md)
 * [My boyfriend and I really screwed up  As a prank we wrote a fake list of rules for our dormitory](out/My_boyfriend_and_I_really_screwed_up__As_a_prank_we_wrote_a_fake_list_of_rules_for_our_dormitory.md)
 * [My boyfriend didnt die in a car accident Part 1](out/My_boyfriend_didnt_die_in_a_car_accident_Part_1.md)
 * [My boyfriend keeps smiling at me and its really starting to freak me out](out/My_boyfriend_keeps_smiling_at_me_and_its_really_starting_to_freak_me_out.md)
@@ -4514,8 +4515,8 @@ file count: 6476
 * [Side Effects](out/Side_Effects.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
 * [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
-* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
+* [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
 * [Sirens arent like their folklore](out/Sirens_arent_like_their_folklore.md)
 * [Six Years Ago My Father Died when a Wildfire burnt my hometown to the ground Six Days ago I discovered he is still burning](out/Six_Years_Ago_My_Father_Died_when_a_Wildfire_burnt_my_hometown_to_the_ground_Six_Days_ago_I_discovered_he_is_still_burning.md)

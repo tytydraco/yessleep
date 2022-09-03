@@ -32,7 +32,9 @@ I could hear Alex through the door, even whilst I was hammering my fist against 
 
 Alex: “Hold on, I’m coming!”
 
-Alex was like me, a postgrad. One of the few people still around during the summer. She struck quite the note with her psychedelic-red hair and pinstripe pyjamas. I barged into her hallway without really noticing.
+Alex was like me, a postgrad. One of the few people still around during the summer. She struck quite the note with her psychedelic-red hair and pinstripe pyjamas.
+
+I barged into her hallway.
 
 Alex: “What the hell is going—”
 
@@ -98,7 +100,7 @@ Alex: “There’s something else in here.”
 
 Alex pulled a [vandalised graduation photo](https://i.redd.it/wpe286mlail91.jpg) depicting me without a face from the envelope, and then a letter.
 
-Alex read the letter aloud. I'll type it out for you below:
+Alex cringed at the photo and then read the letter aloud. I'll type it out for you below:
 
 *An eye for an eye, a tooth for a tooth. Five lovers slain, five dark lessons to learn. Fail any task and I’ll destroy what you love the most. Call the police and I’ll destroy what you love the most.*
 
@@ -160,7 +162,7 @@ A few minutes later I was standing in the middle of Alex's room, naked. I had to
 
 That was my thinking anyway. I grabbed my phone and raised my arm to take a photo.
 
-It's a very particular kind of horror being forced to expose yourself online against your will. I shudder to think of that image as the last thing so many people I know, and that I don't know, saw of me. And before anyone asks in the comments, no, I'm not going to post the photo here.
+It's a very particular kind of horror being forced to expose yourself online against your will. I shudder when I think of that image as the last thing so many people I know, and that I don't know, saw of me. And before anyone asks in the comments, no, I'm not going to post the photo here.
 
 Alex: “Have you done it yet?”
 
@@ -232,9 +234,9 @@ The game was about to get a whole lot more twisted.
 
 *
 
-It's nearly the start of Autumn Term and students are already beginning to trickle back into the city. That means some of my safehouses (vacant student accommodation with neglectful landlords) won't be viable for much longer. I may have to spend more time in my very scummy back up safehouses — obviously I’m not going to reveal their locations here.
+It's nearly the start of Autumn Term and students are already beginning to trickle back into the city. That means some of my safehouses (vacant student accommodation with neglectful landlords) won't be viable for much longer. I may have to spend more time in my even more grotty backup safehouses — obviously I’m not going to reveal their locations here.
 
-On the plus side, more students means more people to hide amongst. I know I'm being hunted, but exactly who — or *what* — is hunting me, I'm not sure.
+On the plus side, more students means more people to hide amongst. I know I'm being hunted, but exactly who - or *what* - is hunting me, I'm not sure.
 
 Anyway, I'm going to head out and try to scrounge some food without getting caught. I'll check back in soon.
 

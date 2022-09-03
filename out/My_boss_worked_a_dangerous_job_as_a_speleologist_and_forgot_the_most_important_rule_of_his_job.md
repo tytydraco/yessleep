@@ -1,0 +1,27 @@
+I worked with him as an intern for my masters in mineral studies and I watched him do lots of usually unsettling work. As a speleologist he was required to go “cave diving” where one is to fit into incredibly tight spaces inside of tunnels and shafts in order to map and finish exploration of different caves – there was lots of precautions and whatnot but they were all usually followed through using a large or small team of skilled individuals. 
+
+My boss was the type of guy to always go alone in a task he was assigned to do, to the point where it was a major inconvenience – like his own task team would usually be in the dark before he would finish the work he assigned his own team to do in the first place, or deny help with any assignments he was told to do with a team from his higher ups – don’t get me wrong, he has two pHDs and was usually an employee working to the highest standard, it was just his prejudices with having a team that stopped him. 
+
+I was with him the longest out of all his colleagues and staff because as an intern I was handling his calls and papers, I managed his schedule and at times even sat in his office and handled his files for all things related to mapping, rescue missions and even letters from the general public. It was quite a well paying job and I enjoyed it a little until something came up that caused me to quit days after.But before this incident happened, we were dealing with a more recent struggle we’ve been battling. 
+
+Back in 2019 is a large, unmapped cave system under a volcano, it has remained unexplored since 2004 when it was found – it wasn’t really a problem until the volcano became active and the internal cave structure began to rupture causing small level 1 – 3 earthquakes around the island we were on, it’s inhabitants consisted of maybe about a 100,000 people all experiencing the effects of the cave’s collapse so me and my boss were called in immediately and we flew over there hours later. 
+
+When we reached the docking bay of the camp our team was at, I overheard one of the members of the board talking to my boss saying something about going into caves without something forbidden and stated in a book as a rule and I couldn’t make out what he was implying as a rule but soon after that, my boss then nodded and the board member handed him a book of some kind – I look a bit closer and I find out it’s a manual of some sort and a few minutes later he comes back and shoves the book into my chest expecting me to grab it, which I did and told me to put it into my emergency bag because some of the work that I did required me to do things fast and without question, which I did.
+
+
+For the first time, my boss asks me to take a helmet and some gear to go inside with him, I was in shock and also honored but before I could think too much he also stated “I’ll do all the heavy lifting kid, if I tell you to sit tight you swear you won’t move an inch” I nodded and walked with him to the lockers as well as the tents to run some errands before we went inside and soon enough we stepped foot inside the gaping hole and crouched down.
+
+ I followed him in a sort of spiral stair pattern, I had to carefully bend down into the tunnel as every corner begged to scratch against my plastic armored padding for about an hour until we reached a small tunnel with a fork going two different ways, one with lights and equipment boxes scattered in the distance of the cave and the other tunnel dimly lit with one or two glowsticks in there desperately trying to illuminate the spot they were in in the first place.
+
+The tunnel was nearly big enough to be the size of an air vent and I had chills just looking into the dark abyss that lied ahead, meanwhile my boss nonchalantly tells me “In there, lets go” I strike back explaining that I don’t want to go inside the tunnel and then out of his bag, he pulls out a camera which he snaps onto the holder on his helmet and a tablet which he hands to me and tells me to “Observe the cave with me” I reluctantly agreed to doing because I knew I couldn’t go back up either way due to the fact I wouldn’t get the signal for the tablet to sync with the camera and it would take about an hour to go up there anyway, it was too risky anyway. 
+
+About 30 minutes go by and I am watching my boss pull himself inch by inch further into the tunnel as it started to become narrower and tighter but I pulled myself together and continued to watch him, he seemed like he was okay as I saw the front and back of my bosses view with the 360° camera on his helmet, he continued further into the abyss. 
+
+I decided to pull the book that he gave out of the bag and took a look at it’s contents page and went onto the first content and read what it implied. What I saw was the sentence chiseled into the sub-heading ‘Never Enter Alone’ and just seconds later I heard static from the tablet implying that the camera was disconnected, so I quickly rushed into the menu of the app on the tablet, it was old and non responsive most of the time due to mass usage by the team but eventually checked what was recorded on the camera and held the circle on the timeline and pushed it near the end until I found out what had happened..
+
+
+My boss had accidentally chipped the camera on his head right off, not because the tunnel got tighter
+
+
+
+But because he found a dead end.
