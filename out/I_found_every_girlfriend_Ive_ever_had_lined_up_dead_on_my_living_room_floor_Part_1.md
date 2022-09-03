@@ -32,9 +32,9 @@ I could hear Alex through the door, even whilst I was hammering my fist against 
 
 Alex: “Hold on, I’m coming!”
 
-Alex was like me, a postgrad. One of the few people still around during the summer. She struck quite the note with her psychedelic-red hair and pinstripe pyjamas.
+I barged into her hallway the instant the door was open.
 
-I barged into her hallway.
+Alex was like me, a postgrad. One of the few people still around during the summer. She struck quite the note with her psychedelic-red hair and pinstripe pyjamas.
 
 Alex: “What the hell is going—”
 
@@ -49,6 +49,8 @@ I did so.
 Alex: “Now, slowly. Why are you ranting and raving in my hallway at nine o’clock in the morning?”
 
 Me: “Because I came downstairs this morning and every girlfriend I’ve ever had was lined up dead in my living room."
+
+Alex let out a tired sigh.
 
 Alex: “Come with me.”
 
@@ -238,6 +240,6 @@ It's nearly the start of Autumn Term and students are already beginning to trick
 
 On the plus side, more students means more people to hide amongst. I know I'm being hunted, but exactly who - or *what* - is hunting me, I'm not sure.
 
-Anyway, I'm going to head out and try to scrounge some food without getting caught. I'll check back in soon.
+Anyway, I'm going to head out and try to scrounge some food. I'll check back in soon.
 
 — Stu (not my real name)
