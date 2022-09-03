@@ -1,10 +1,10 @@
-I placed one careful foot in front of another as I made my way through the street, navigating a path through the crowd and the chaos. My eyes were closed, but my senses were alive. The charred scent of skewered meat on the stick, the saccharine fragrance of a dozen different perfumes, the indescribable sweet-sour-bitter-and-everything-in-between cocktail of the sweat and vomit and tears and blood of the thousands of people who lived and worked and shat and slept here everyday - all of it surged into my orifices as once, a fragrant smorgasbord of an entire city full of living breathing humans.  
+My eyes were closed as I navigated through the street, but my senses were alive. The charred scent of skewered meat on the stick, the saccharine fragrance of a dozen different perfumes, the indescribable sweet-sour-bitter-and-everything-in-between cocktail of the sweat and vomit and blood of the thousands of people who lived and worked and shat and slept here everyday - all of it surged into my orifices at once, a fragrant smorgasbord of an entire city full of living breathing humans.  
 
 The smell of life.
 
 In the darkness, I breathed it in, letting the wonderful smell fill my entire being. A faint smile crossed my face. I was here. I was one of them. 
 
-My foot caught an obstacle and I felt myself trip forward, colliding into a wall of flesh. My eyes snapped back open at the unwelcome surge of pain, arms flailing in an attempt to regain my balance. But it was too late, and I tumbled onto my ass.
+My foot caught an obstacle and I felt myself trip forward, colliding into a wall of flesh. My eyes snapped back open at the unwelcome surge of pain, the world reeling as I tumbled onto my ass. 
 
 "Watch where you're going, dickhead." My gaze righted itself, turning towards the scowling face that towered above me, hardened eyes glaring at me like a pair of daggers. The figure jabbed an angry finger in my direction, face turning red with fury. 
 
