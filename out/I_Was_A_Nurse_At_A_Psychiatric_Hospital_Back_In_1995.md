@@ -73,7 +73,7 @@ Dr. Ryan was one of the 3 doctors who remained behind at Dover's.
 
 I had questions.
 
-It was the next day when I talked to Sue and asked her if any of the nurses died here and she said, as a matter of fact, a nurse that used to work here went missing about twenty years ago. It was rumored that she was having an affair with one of the Doctors and that, she was also pregnant with his baby.
+It was the next day when I talked to Sue and asked her if any of the nurses died here and she said, as a matter of fact, a nurse that used to work here went missing about seventeen years ago. It was rumored that she was having an affair with one of the doctors and that, she was also pregnant with his baby.
 
 "Do you know who the doctor she was having an affair with?"
 
