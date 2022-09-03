@@ -1,0 +1,15 @@
+I woke up in the middle of the night in a cold sweat. I had woken from a nightmare but I couldn’t remember what it was. I looked around the room and saw that the window was open. That was strange I didn’t remember opening it. I walked over to the window and shut it I then went downstairs to get some water I was bit thirsty. 
+
+On my way down the stairs I stepped into something wet. I turned on the hall light and saw the red liquid on my sock. I ran to where the wet spot was and saw the pool of blood being soaked up by the carpeted floor. 
+
+I ran to get my phone that I had left downstairs but when I got there my sock was dry and the red stain was gone. I went to where the pool of blood was and to no one’s surprise it was gone as well. I was sure it was there I was one hundred percent sure there was blood. 
+
+I had felt it on my sock. I was starting to think I was going crazy. I didn’t get the water I went straight back to bed but as my head hit the pillow and I closed my eyes I opened them again and looked around. Im pretty sure I heard something. I looked around the room terrified. I heard it again but it was closer. I hear it it’s over too of me? I looked up and sure enough I saw what was making the sound. 
+
+It’s teeth clattered together making a horrid clicking sound as blood dripped from its mouth and onto my face. It’s large clawed fingers dug deep into my ceiling it lower half was missing. It’s long black and shiny hair stocked onto its face with caked up blood and dirt all in it. The wrinkly skin around it’s large smile looked like it had tearing.  I stared at it then got up and started to run. I could hear it hit the ground and I heard nothing. I looked behind me and saw that it was chasing close behind. 
+
+I ran as fast as I could and so did that thing. It ran using its hands since it had no feet and oh boy was that terrifying I was running faster than I did in my whole life. I quickly opened the door and dashed outside. I looked around quickly and saw only woods well you know where I ran. I dashed into those woods and ran and ran then I quickly ducked behind a tree to catch my breath. I sat behind the tree with my hand over my mouth. I was surprised I made it into the woods alive. I looked over to the other side of the tree and saw that thing right in front of my face. With one swipe of its hand it cut the tree in half luckily it was a thick one or else I would be missing my lower half as well. 
+
+I shot up and ran again this time I wasn’t gonna take any breaks. I ran through the rest of the woods and came into town. I kept running like I said no more breaks. I ran into the abandoned subway. For some reason there were no people on the streets the again nobody lived here but me. I ran deep into it and this is time ima take a break because I know it will catch me no matter what a do. 
+
+So I’m writing this here I guess you can call this my final act. Shit I can hear it. I have to go I can see it right in front of me and it’s running towards me
