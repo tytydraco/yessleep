@@ -1,6 +1,6 @@
 Three bodies found in a remote log cabin, a gun lying beside them that hadn’t been fired. The police, the courts, the local media, all baffled. 
 
-Oh, to be a fly on the wall that day, the gossipers and the gorehounds said. Well, I was in that cabin. I heard every word as I lay there in silence terrified that what had happened to me was going to happen again. That it was going to happen to someone else, that I was going to be trapped forever.
+*Oh, to be a fly on the wall that day*, the gossipers and the gorehounds said. Well, I was in that cabin. I heard every word as I lay there in silence terrified that what had happened to me was going to happen again. That it was going to happen to someone else, that I was going to be trapped forever.
 
 But I have a voice now. A vessel. I have taken possession of a True Crime fanatic obsessed by the murders. She strayed to close to the cabin and I pounced. I'm finally going to share what I heard and what I saw – **my parting gift**.
 
