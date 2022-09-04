@@ -2,7 +2,7 @@
 
 The old man and I had been sitting under the sweltering august sun for hours, not doing much of anything. 
 
-Our cans of paint sat nearly full, brushes left dipped inside the bowls of bright white. I worried that the oppressive heat threatened to boil the cauldrons of varnish where they stood.
+Our cans of paint sat nearly full, brushes left dipped inside the containers of bright red. I worried that the oppressive heat threatened to boil the cauldrons of varnish where they stood.
 
 The two of us never seemed to get much done at all when we “worked” together,  but that was okay. I valued my time with the old man above all else. 
 
@@ -16,7 +16,7 @@ The old man hocked a massive clump of tobacco into his spittoon and yawned, recl
 
 He said nothing, but I knew he’d heard.
 
-“Well fuckface,” he finally said, “If you think you’ve got the stomach for it, I recently heared a story down at McCullough’s that might whet your appetite.” 
+“Well fuckface,” he finally said, using my endearingly insulting family nickname, “If you think you’ve got the stomach for it, I recently heared a story down at McCullough’s that might whet your appetite.” 
 
 He withdrew the bag of dip from where it sat next to his chair and packed another lip. 
 
