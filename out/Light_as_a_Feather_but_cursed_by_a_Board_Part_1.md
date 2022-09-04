@@ -1,4 +1,4 @@
- Do y’all remember playing “Light as a Feather” when you were at a sleepover? It was quite popular when I was a kid.
+Do y’all remember playing “Light as a Feather” when you were at a sleepover? It was quite popular when I was a kid.
 
 For those who are unfamiliar, it works like this. One person is the Feather, and lies down face-up on the floor, and the rest of the group surrounds them. Each person in the circle places two fingers from each hand underneath the Feather, and the person at the head (The Spirit Master) starts chanting. The wording must follow a specific pattern; the Feather is sick or injured, getting worse, dying, and finally dead, with everyone else chanting each section after the Spirit Master speaks it.
 
@@ -383,3 +383,7 @@ Beck was still crying, so Travis stepped in.
 “Resa, he was taking a shower. When he didn’t come out and wouldn’t answer us we called the operator and said we need help. When the firemen got here they broke down the door.” Travis struggled to go on.
 
 “John fell and hit his head, and there was a blockage in the pipes so the tub didn’t drain right. He drowned. In three fucking inches of water.”
+
+[**Part 2**](https://www.reddit.com/r/nosleep/comments/x5tif5/light_as_a_feather_but_cursed_by_a_board_part_2/)
+
+&#x200B;
