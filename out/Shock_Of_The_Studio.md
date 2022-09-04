@@ -278,7 +278,7 @@ In fact, it seemed everyone else who worked at the studio had made a circle arou
 
 Then they all started talking at once, telling me I couldn't leave and not to worry and that my dad would soon be here.
 
-I slapped my hands over my ears, screaming at everyone to stop talking and shouting, but they would.
+I slapped my hands over my ears, screaming at everyone to stop talking and shouting, but they wouldn't.
 
 Suddenly, a jolt went through my body and my hands fell off my ears.
 
