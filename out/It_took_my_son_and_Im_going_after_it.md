@@ -1,3 +1,7 @@
+[PART 2] ⬇️
+https://www.reddit.com/r/nosleep/comments/x5esfb/it_took_my_son_and_im_going_after_it_part_2/?utm_medium=android_app&utm_source=share 
+
+
 It's been three months since he passed.
 Three months since my husband left us.
 
