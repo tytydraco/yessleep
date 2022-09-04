@@ -40,7 +40,7 @@ Alex: “What the hell is going—”
 
 Me: “They’re dead, Alex. All of them. Jesus, Grace Keele must have been eleven the last time—”
 
-Alex put her hands on my shoulders, stopping me mid sentence.
+Alex slammed her hands on my shoulders, stopping me mid sentence.
 
 Alex: “Calm down. Take a deep breath.”
 
@@ -84,7 +84,9 @@ Tentatively, I did so.
 
 Me: “No …”
 
-I was holding a large photo of Grace Keele. Not as I remembered her from primary school, but dressed in smart office wear. I dropped the envelope and photo to the table. Alex reached over and picked up the photo.
+I was holding a large photo of Grace Keele. Not as I remembered her from primary school, but dressed in smart office wear. I dropped the envelope and photo to the table.
+
+Alex reached over and picked the photo up.
 
 Alex: “Who is it?”
 
@@ -102,13 +104,13 @@ Alex: “There’s something else in here.”
 
 Alex pulled a [vandalised graduation photo](https://i.redd.it/wpe286mlail91.jpg) depicting me without a face from the envelope, and then a letter.
 
-Alex cringed at the photo and then read the letter aloud. I'll type it out for you below:
+Alex cringed at the picture and then read the letter aloud. I'll type it out for you below:
 
 *An eye for an eye, a tooth for a tooth. Five lovers slain, five dark lessons to learn. Fail any task and I’ll destroy what you love the most. Call the police and I’ll destroy what you love the most.*
 
 *Consider Grace Keele, your first romance. Aptly named, Grace showed poise and work ethic throughout school, eventually securing a coveted job in the finance sector.*
 
-*You shamelessly relied on family and friends to bail you out of endless trouble. It's high time you learned some humility. Take a naked photo of yourself and post it across your social media accounts before 10am today. I'm watching. I'm closer than you think.*
+*You shamelessly relied on family and friends to bail you out of endless trouble and get you to where you are now. It's high time you learned some humility. Take a naked photo of yourself and post it across your social media accounts before 10am today. I'm watching. I'm closer than you think.*
 
 Alex lowered the letter to the table.
 
@@ -166,11 +168,13 @@ That was my thinking anyway. I grabbed my phone and raised my arm to take a phot
 
 It's a very particular kind of horror being forced to expose yourself online against your will. I shudder when I think of that image as the last thing so many people I know, and that I don't know, saw of me. And before anyone asks in the comments, no, I'm not going to post the photo here.
 
+I heard Alex yell at me through the bedroom door.
+
 Alex: “Have you done it yet?”
 
 I lowered the phone.
 
-Me: “No! And I’m not going to be able to with you yelling at me!”
+Me: “No! And I’m not going to be able to with you shouting at me!”
 
 Alex: “Sorry …”
 
@@ -210,7 +214,7 @@ Me: “They own a bakery, Alex. Why would they have any enemies?”
 
 Alex: “Don’t speak to me like that, I’m only trying to help.”
 
-Me: “Sorry, Alex. It’s just … I have no idea who could be doing this.”
+Me: “Sorry, Alex. It’s just, I have no idea who could be doing this.”
 
 Alex's phone pinged. She reached into her pocket and pulled it out.
 
