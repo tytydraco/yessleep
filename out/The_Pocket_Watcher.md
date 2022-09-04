@@ -86,7 +86,7 @@ He reached into one of the desk drawers and pulled out a packet of sweets, 'Humb
 
 'No thanks,'
 
-He shrugged his shoulders and popped a sweet into his mouth. It clacked around on his perfectly healthy teeth. He had his own teeth - another detail I had only just noticed about him.
+He shrugged his shoulders and popped a sweet into his mouth. It clacked around on his perfectly healthy teeth. He had his own teeth - another detail I had only just noticed about him. .
 
 'I’ll take it,' I said, putting the watch down on the desk. 'But I need to go to the cashpoint first. Will you hold it for me, just in case?'
 
@@ -140,7 +140,7 @@ Sitting him down in the chair, I slowly backed away. 'I’ll be back in a minute
 
 I hurried through the shop door, the bell ringing loudly again. Out on the street, I felt a tangible sense of relief. The atmosphere in the shop was oppressive, the air stale. I closed my eyes and breathed deeply for a few seconds. Casually, I turned to look through the window of the shop. The silver pocket watch I had seen on display was gone. Only an outline of dust showed where it had once been.
 
-A little perturbed, I wondered whether I should just go home and leave the watch altogether. It was a lot of money, and I’d only been seeing Helen for a few weeks. But the old shopkeeper had got himself into a right state. I couldn’t just leave him like that. And I wanted the pocket watch. It was perfect. I imagined how grateful Helen was going to be when she opened it for her birthday. We had such wonderful and exciting times ahead of us. The thrill of that thought spurred me on. Without looking, I stepped out into the road.
+A little perturbed, I wondered whether I should just go home and leave the watch altogether. It was a lot of money, and I’d only been seeing Helen for a few weeks. But the old shopkeeper had got himself into a right state. I couldn’t just leave him like that. And I wanted the pocket watch. It was perfect. I imagined how thrilled Helen was going to be when she opened it for her birthday. We had such wonderful and exciting times ahead of us. The thrill of that thought spurred me on. Without looking, I stepped out into the road.
 
 I barely had time to feel the car hit me. There was a catastrophic force smashing into me from the side. Then, all was darkness.
 
@@ -174,10 +174,10 @@ Well, I learned that time is precious, that you should spend it with those that 
 
 Yes, I almost forgot about that. I have the same dream every night. It never changes. Not a single detail. It’s always exactly the same. It begins with a loud ticking in my head…
 
-*I am sitting in the window of this old shop, watching the many people pass by. They hurry about their business, unaware that I am watching them all very closely. Every second, somewhere in the World, someone dies and someone is born, and I mark each and every one. I measure the pain of the passing years and days and hours and minutes and seconds. When you are young, I fool you with false promises; and when you are older, I steal your dreams and your memories. I take the love you once held dear, and with the shadows of the past I torture you. In your head you can hear my voice whispering, and it says, 'You are too late.' Nobody knows who made me or why. But I know. I am old and new, valuable and worthless, fast and slow, good and evil. My movement lies still and silent now.*
+*I am sitting in the window of this old shop, watching the many people pass by. They hurry about their business, unaware that I am watching them all very closely. Every second, somewhere in the World, someone dies and someone is born, and I mark each and every one. I measure the pain of the passing years and days and hours and minutes and seconds. When you are young, I fool you with false promises; and when you are older, I steal your dreams and your memories. I take the love you once held dear, and with the shadows of the past I torture you. In your head you can hear my voice whispering and it says, 'You are too late.' Nobody knows who made me or why. But I know. I am old and new, valuable and worthless, fast and slow, good and evil. My movement lies still and silent now.*
 
  *Waiting.*
 
  *Waiting for the one that will be here any…second…now.*
 
-*Tick, tick, tick, tick, tick….*
+*Tick, tick, tick, tick….*
