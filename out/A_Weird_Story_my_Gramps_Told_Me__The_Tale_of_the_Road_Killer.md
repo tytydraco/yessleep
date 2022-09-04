@@ -1,4 +1,4 @@
-Gramps always had a story. Always. We’d lived out in the sticks long ass I could remember, on the ass end of Culver Road, not far from the bombed out-looking-but-still-functional gas station.
+Gramps always had a story. Always. We’d lived out in the sticks long as I could remember, on the ass end of Culver Road, not far from the bombed out-looking-but-still-functional gas station.
 
 Not many people out this way, not much life at all really. Occasional big rig speeding by , stray car here and there. And tons and tons of roadkill. Pasty, mashed animals usually littered the road far as the eye can see.
 
