@@ -1,3 +1,5 @@
+[Part One](https://www.reddit.com/r/nosleep/comments/x3cjep/my_dad_hasnt_been_right_since_my_mum_died_part_one/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
+
 Hello everyone. It's Nickie again.
 
 I would like to take a moment to share a fond memory of my mother, my father and I. Funnily enough, it was the day I figured out that Father Christmas doesn't exist.
