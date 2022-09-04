@@ -247,3 +247,5 @@ On the plus side, more students means more people to hide amongst. I know I'm be
 Anyway, I'm going to head out and try to scrounge some food. I'll check back in soon.
 
 — Stu (not my real name)
+
+[[Part 2]](https://www.reddit.com/r/nosleep/comments/x5kl0v/i_found_every_girlfriend_ive_ever_had_lined_up/)
