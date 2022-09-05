@@ -191,5 +191,3 @@ That's when, I decided I'm gonna end my mom's life today. it's me or her.
 As I'm writing this, I'm sitting in a car with Jacob. Holding a shotgun. Waiting for what we humans call "mom" to end her shift and get out of the building.
 
 I'm going to commit a murder. I'm going to put a stop to this. Once and for all.
-
-[yt](https://www.youtube.com/watch?v=-MsPqDwmOPE)
