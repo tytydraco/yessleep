@@ -174,4 +174,10 @@ And she has my name.
 
 *
 
+**Update:** MM has generously lent me her login so I can share my story in the same place as hers. Read [my account here](https://www.reddit.com/r/nosleep/comments/x4bxtt/i_found_every_girlfriend_ive_ever_had_lined_up/).
+
+— Stu
+
+*
+
 [J](https://www.reddit.com/user/mediamusing)
