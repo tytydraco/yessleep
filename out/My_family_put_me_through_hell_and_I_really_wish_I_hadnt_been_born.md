@@ -1,4 +1,4 @@
-After my [grandfather](https://imgur.com/a/1MPEKm7) passed away a couple of years ago. My parents ended up in court, which resulted in their divorce.
+After my grandfather passed away a couple of years ago. My parents ended up in court, which resulted in their divorce.
 
 I was 17 years old at the time. and I've never figured out why it happened. They were highly attracted and very loving to each other, and I'd never seen them argue in my life. Not even once.
 
