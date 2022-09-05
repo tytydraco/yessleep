@@ -8,7 +8,7 @@ The home itself was that of a mansion once owned by an esteemed nobleman until h
 
 I wrote to the church several times for help, only to receive no answer. The situation was becoming increasingly desperate when a shiny black automobile made it’s way up our long driveway. It rattled as it went, and seemed to bring a shadow across the land with it. It had thin white rimmed tires and the cabin of the thing was large with black curtains blocking off any view one might hope to have of the inside.  
 
-It approach with no great urgency and finally came to a stop with gravel crunching under the wheels.  The fellow driving stepped out. He was tall and slim. Both his skin and clothing were dark. So dark in fact, that it seemed as though no light touched this person at all, he could have been a shadow for all the tangibility he seemed to have. He was dressed in an expensive valet suit, he wore a vacant expression and moved fluidly to open the rear passenger door of the vehicle. 
+It approach with no great urgency and finally came to a stop with gravel crunching under the wheels. The fellow driving stepped out. He was tall and slim. Both his skin and clothing were dark. So dark in fact, that it seemed as though no light touched this person at all, he could have been a shadow for all the tangibility he seemed to have. He was dressed in an expensive valet suit, he wore a vacant expression and moved fluidly to open the rear passenger door of the vehicle. 
 
 The valet then waited without getting back into the car, standing as still as a statue beside the passenger door. There was a moment of suspense before a second man stepped out. This man was almost as unusual as the first. He was young and handsome. He dressed in fine clothes with rings of all colour decorating his fingers. His hair was a light ash blonde, while his skin was slightly tanned. He made his way over to the Sisters and I, and gave a polite bow. 
 
@@ -20,7 +20,7 @@ I couldn’t be sure if he had the same effect on the other Sisters. However, I 
 
 Of course I found this odd, what conversation was so important he couldn’t trust the house? Manners prevented me from asking and I wasn’t privy to the discussions. However, when Mother Ruth left the automobile she did so by throwing the door open and herself out.  
 
-She watched the man go with malice, her arms folded tight across her chest and her jaw set firm. The man returned  her expression of contempt with a knowing smile and a polite tip of his hat, “When you change your mind, and decide to accept my generous offer, you only need send a letter.” 
+She watched the man go with malice, her arms folded tight across her chest and her jaw set firm. The man returned her expression of contempt with a knowing smile and a polite tip of his hat, “When you change your mind, and decide to accept my generous offer, you only need send a letter.” 
 
 “What did he propose?”, I asked the moment his vehicle departed, it drove off with no more rush than it had arrived with. Driving slow and purposeful on the gravel as it rolled away.
 
@@ -46,7 +46,7 @@ Personally I couldn’t see why such training would be necessary. It’s not as 
 
 The day I had been dreading for reasons I can’t fully explain came as fall began. You see, each of us had our own favourite orphans, and made efforts on those children’s behalf to keep them from the Doctor as best we could. For example, we would ban them from walking outside while the Doctor would visit under the pretence of a punishment. While truthfully it was because we noticed children the Doctor spent the most time with on his visits were the ones that were most likely to vanish. 
 
-It’s far easier to accept the loss of a child that you don’t particularly care for and it’s hard not to get attached. The child I most delighted in was Eric. Eric had come to us  in the strangest of ways. The night he arrived it was thundering outside, no one noticed him on our doorstep until the night rounds were completed and by then he was soaked through. Shivering like a leaf he sat curled over on himself, rain dripped from his dark hair and his eyes were focused unwaveringly out into the storm. 
+It’s far easier to accept the loss of a child that you don’t particularly care for and it’s hard not to get attached. The child I most delighted in was Eric. Eric had come to us in the strangest of ways. The night he arrived it was thundering outside, no one noticed him on our doorstep until the night rounds were completed and by then he was soaked through. Shivering like a leaf he sat curled over on himself, rain dripped from his dark hair and his eyes were focused unwaveringly out into the storm. 
 
 He was only 8-years-old, with him he had a suitcase, leg brace, and a letter. This was curious as most arrived with nothing. He did not speak a single word for three days and the other sisters feared he was simple. However, I knew this wasn’t the case for he followed instruction and behaved accordingly. The first time he spoke, it was to ask for a bread roll. 
 
@@ -58,15 +58,15 @@ Unfortunately, I had noticed him too late, and it was with horror that I watched
 
 “I’m going to climb that tree.” Eric explained to the man. Of course he was referring to the tree ahead of him and I realised his wheels had become tangled as he was trying to reach the tree. 
 
-“Oh?  You cannot possibly with that leg of yours.” The Doctor responded bemused, he reminded me of a cat toying with an injured bird. 
+“Oh? You cannot possibly with that leg of yours.” The Doctor responded bemused, he reminded me of a cat toying with an injured bird. 
 
-Eric scowled, “What do you know?”  He asked agitated, this was the tone of voice Eric often had whenever other children would tease him. 
+Eric scowled, “What do you know?” He asked agitated, this was the tone of voice Eric often had whenever other children would tease him. 
 
 “Do you truly believe you can do it?” The man asked with genuine interest. 
 
-“I will climb it.” The child retorted. 
+“I *will* climb it.” The child retorted. 
 
-I interrupted them there, “Doctor, you must forgive me, this is Eric, his manners are not well refined.” I addressed the man first, then Eric, “And young man, you should be inside.” I scolded him. I felt contempt boiling in me for this man and the way he was regarding Eric with such interest.   
+I interrupted them there, “Doctor, you must forgive me, this is Eric, his manners are not well refined.” I addressed the man first, then Eric, “And young man, you should be inside.” I scolded him. I felt contempt boiling in me for this man and the way he was regarding Eric with such interest. 
 
 The Doctor’s eyes move to me and he spoke, “That’s quite alright, this child is afflicted?” He asked. 
 
@@ -98,7 +98,7 @@ Relief washed over me as I crossed the threshold inside, the wheels on Eric’s 
 
 In the days following, I saw the Doctor speak to many other children and my fear that he would be taken next began to subside. It is perhaps a show of my true character to say that I was relieved that some other child may be chosen, so long as it wasn’t Eric. However, as I watched the children playing the Doctor made his way over to me. 
 
-“Sister, I don’t believe we have been formally introduced. My name is Dr. Small from the Dunkel Institute of Psychiatry.  Would you do me the honour of accompanying me on a walk?” He inquired.
+“Sister, I don’t believe we have been formally introduced. My name is Dr. Small from the Dunkel Institute of Psychiatry. Would you do me the honour of accompanying me on a walk?” He inquired.
 
 In response I smiled politely as a young woman was expected to and he offered me his hand to help me stand. I gathered my skirts and accepted his assistance with reluctance. I remember his hand being so cold that I startled. No living thing should have been so cold. Yet he seemed amused, as if I was the punchline to some kind of private joke with himself.
 
@@ -126,7 +126,7 @@ I spent the morning of the following day preparing Eric, “Speak only when spok
 
 “I don’t entirely know..” I admitted, “Wait here, and I will go get him.” 
 
-I nervously adjusted the collar of Eric’s shirt for perhaps the hundredth time, before departing to meet Dr. Small. The man stood leaning against his spotless black car as if he had been waiting for some time, and I hoped that I had kept him waiting. His driver, as always, stood beside him motionless and made no indication that he noticed my approach. 
+I nervously adjusted the collar of Eric’s shirt for perhaps the hundredth time, before departing to meet Dr. Small. The man stood leaning against his spotless black car as if he had been waiting for some time, and I hoped that I *had* kept him waiting. His driver, as always, stood beside him motionless and made no indication that he noticed my approach. 
 
 I offered a false apology to the Doctor for his wait as I lead him through the front doorway of the house into the entryway room. I half expected that the Doctor wouldn’t follow. Unfortunately he did. He stepped over the threshold into the house without any hesitance and I wondered what previous trepidation he may have had. 
 
@@ -158,7 +158,7 @@ Of course I followed after them. Eric navigated with effort through each room, c
 
 “I Don’t.. need. A.. rest.” He huffed, breathless from the effort. 
 
-“What about me? Perhaps I need a rest?” Dr. Small mused, catching both Eric and I by surprise, “Come, let’s sit.”  He insisted.
+“What about me? Perhaps I need a rest?” Dr. Small mused, catching both Eric and I by surprise, “Come, let’s sit.” He insisted.
 
 I pulled out a chair for Eric and he reluctantly sat in it, though I could see he was grateful for the break. 
 
@@ -172,7 +172,7 @@ I pulled out a chair for Eric and he reluctantly sat in it, though I could see h
 
 “There’s no need for that. We’ve walked quite far enough for one day.“ Dr. Small assured then leant in closer to Eric, speaking so softly that I’m not entirely sure what was said. I thought however that I heard him say, ‘You know Eric, I’m a doctor and I can fix that leg for you, if you have the will for it..’ 
 
-The surprise on Eric’s face is what convinced me over the years that I was correct in my assumption, “Keep trying to climb that tree. I will come see you again tomorrow, we will talk more of it then.” Dr. Small told him before checking his watch, “It was delightful to spend time with you both. But I must be going now. Sister, I believe another ‘adoption’ will take place tonight? Who do you believe most ‘deserves’ to be adopted?”  He spoke to me now, his expression smug. 
+The surprise on Eric’s face is what convinced me over the years that I was correct in my assumption, “Keep trying to climb that tree. I will come see you again tomorrow, we will talk more of it then.” Dr. Small told him before checking his watch, “It was delightful to spend time with you both. But I must be going now. Sister, I believe another ‘adoption’ will take place tonight? Who do you believe most ‘deserves’ to be adopted?” He spoke to me now, his expression smug. 
 
 “I couldn’t say. All children are deserving of loving homes.” I replied neutrally. However, I couldn’t help but feel as though he had in some way, threatened Eric’s safety. 
 
@@ -186,17 +186,17 @@ With this answer the Doctor seemed satisfied and I moved to Eric’s side swiftl
 
 Sleep never came to me that night. I spent it walking the hallways with a lamp in hand. Checking in on all the children repeatedly, but especially, on Eric. It was never a certain arrangement on when the child would be taken. The other Sisters and I would settle everyone into bed, and in the morning without fail, one would be missing. I was determined that it would at the very least, Not be Eric. 
 
-The floorboards creaked softly under my bare feet as I walked, the hallway clock ticked back and forth rhythmically, and the lantern illuminated the area before me in a weak circle of flickering light. Quietly I turned each door handle, the metal latches released with a hushed ‘click’ that seemed horrifically loud, but none of the children awoke as I peaked in.  Some hours passed this way and I began to consider that perhaps no ‘silent adoption’ would take place this night after all. 
+The floorboards creaked softly under my bare feet as I walked, the hallway clock ticked back and forth rhythmically, and the lantern illuminated the area before me in a weak circle of flickering light. Quietly I turned each door handle, the metal latches released with a hushed ‘click’ that seemed horrifically loud, but none of the children awoke as I peaked in. Some hours passed this way and I began to consider that perhaps no ‘silent adoption’ would take place this night after all. 
 
 As the hour grew long and nothing seemed out of place, I decided that I would at least try to find some time to rest. I made my final rounds and began walking back down the hallway towards my room. This is when I felt that something had changed. The clock had stopped ticking, allowing a heavy silence to settle in the air and the darkness of the house seemed thicker somehow. 
 
 It’s difficult to describe the feeling of such dread that came over me, it was as if something evil had infiltrated the walls and was leaking a poison into the atmosphere. My heart began to race and I hurried back to Eric’s room. His room was not all that much further down the hall and it didn’t take me long to return to it. 
 
-To my relief, he was still sleeping, tucked away safely just as he was when I last saw.  His bed was the lower bunk of two in the room. Moonlight shone in strongly through the window, glinting off the metal on his leg brace which was propped beside his bed. I glared long and hard into that room to make sure nothing was out of place. 
+To my relief, he was still sleeping, tucked away safely just as he was when I last saw. His bed was the lower bunk of two in the room. Moonlight shone in strongly through the window, glinting off the metal on his leg brace which was propped beside his bed. I glared long and hard into that room to make sure nothing was out of place. 
 
 However, it was as I turned away, quietly shutting the door to his room, that I noticed it. I held my lamp up higher, unsure of what I had seen, my heart began to thunder in my chest. Something was standing further down the hallway, appearing to be not more than a tall shadow in the darkness, “Sister?” I called optimistically to no reply. 
 
-“H-have you come to check on the children as well?” I called, the fear in my voice betraying my pretence. I knew already that this was no one familiar. As I watched the mass moved, it stepped slowly as a person would and it seemed to be dragging something behind it.
+“H-have you come to check on the children as well?” I called, the fear in my voice betraying my pretence. I knew already that this was no one familiar. As I watched the mass moved, it stepped slowly as a person would and it seemed to be dragging something behind it. 
 
 With shock I realised it were holding a child by the leg, I recognised her, Latasha was her name. The sight was horrid. The girl seemed to be broken, her limbs twisted in an unnatural way but her body seemed limp for she put up no fight at all. Her eyes wide open but glossed over white, her hair trailed behind her brushing the floor as the thing dragged her without any care across the slats.
 
@@ -208,7 +208,7 @@ Upon speaking with her my suspicions were confirmed for she refused me admittanc
 
 I was reminded then, that Sister Beatrice was always somewhat brutish in nature. Often quick to a temper and quicker still to punish any child whom she believed disobeyed her order. Sister Rose never returned in all the weeks since she had left and so I wrote to the church once more pleading for help. I sent the letter off with the post that very morning without telling Sister Beatrice.
 
-\*\*\*
+— 
 
 At breakfast Sister Beatrice announced that Latasha had been ‘adopted’. I could feel her gaze on me willing me to be silent and I was. I focused instead on fixing children’s clothes, tying shoe laces and feeding the youngest among them. The decision to ask for outside help without her permission was already made. Now I only had to keep my head down. I began to pray morning and night. In secret I blessed the hallways, cleansing the air with sage. Nothing seemed to help. 
 
@@ -316,10 +316,8 @@ After picking up the letter and gathering my thoughts I returned to Eric’s sid
 
 \*\*\*
 
-Part 2, hit the character limit :/
+[Part 2](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
 
-[Related](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
-
-&#x200B;
+[Realted](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
