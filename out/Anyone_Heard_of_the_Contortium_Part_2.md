@@ -1,5 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/ws5xyq/anyone_heard_of_the_contortium_part_1/?utm_source=share&utm_medium=web2x&context=3)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/x6lpze/anyone_heard_of_the_contortium_part_3/)
+
 No one helped me. Not one. I cried and screamed and kicked every step of the way, but not one single person helped me. At best, they would scowl and move on. At worst, they would stop and laugh. There's only so long you can struggle when that is how people react to you. You start to feel like you're the crazy one with all these knives lining the inside of your skull. Every thought feels like a trap. The lights are flickering, but no one else sees them, you know? I stopped trying after a while. It wouldn't have changed where I was going.
 
 The Consortium may not have had a haunted house, but it had a fun house. Gristle dragged me down endless rows of grotesque abominations before we arrived somewhere in the back. The house was pressed up against the fenceline like the Contortium's shameful secret. Which was odd because it was the nicest looking place there. It had bright, psychedelic colors painted all over it, each shade swirling together like paints in water. The shape was twisted but in a fun way with sloping roofs and wacky shapes. Only thing slightly creepy was the entrance.

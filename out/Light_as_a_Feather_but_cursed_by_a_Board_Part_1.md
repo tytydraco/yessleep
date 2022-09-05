@@ -6,7 +6,7 @@ The goal is to get enough help from the Spirit World to be able to lift the pers
 
 The last time I played was fifty years ago; this is the first & last time I will ever write about the events of that last summer with my friends.
 
-\*\*\*
+\*\*/\*
 
 I was fifteen and ’72 promised to be the best summer ever. Beck had been my best friend since we were nine and I was going to spend the summer with her. Both our mothers worked a lot and this way we would be together and keep each other company. My mother and I did not have a good relationship, and I’m sure she was happy to have me away for the whole summer; not nearly as happy as I was, though. Beck’s mom Dee dated a lot, so we would also have the place to ourselves most evenings, and I couldn’t wait for Beck and I to have so much freedom. There were two girls our age who lived close by, Lycia and Robin. We weren’t really friends because they bullied us when we were younger but they still hung out with us sometimes. Our usual friend group consisted of Beck, me, John, Kama and Travis. Beck and I were both in the throes of first love; she with Kama and me with John.
 
@@ -218,7 +218,7 @@ Beck laughed as I hoped she would. “I know, Resa, I’m sorry. I’m just scar
 
 &#x200B;
 
-**\*\*\***
+**\*\*/\***
 
 &#x200B;
 
@@ -240,7 +240,7 @@ Beck pulled away from me and went into the bathroom where I could still hear her
 
 &#x200B;
 
-**\*\*\***
+**\*\*/\***
 
 &#x200B;
 
@@ -266,7 +266,7 @@ Tears streamed down her face as she answered. “After we left, I was still sick
 
 &#x200B;
 
-**\*\*\***
+**\*\*/\***
 
 &#x200B;
 
@@ -316,7 +316,7 @@ I pushed those doubts to the back of my mind. *The Board has to be behind this. 
 
 &#x200B;
 
-**\*\*\***
+**\*\*/\***
 
 &#x200B;
 
@@ -362,7 +362,7 @@ Beck had just taken a drink from her Coke and spit it everywhere and we laughed 
 
 &#x200B;
 
-**\*\*\***
+**\*\*/\***
 
 &#x200B;
 
