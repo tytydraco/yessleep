@@ -1,0 +1,19 @@
+I work night shifts at a plasma donation place. Most of the time it’s pretty chill, I take the blood and I process it to be tested and used. I work alone, usually, since my center is pretty small, but I get to listen to music and podcasts while I’m there. For those who don’t know, we store the plasma bottles and the samples we draw in big freezers. I have enough time to process the plasma and get it in the freezer, with my time limit being about half an hour.
+
+Obviously, I’m not just posting about my job that I’m pretty okay with. Some weird shit keeps happening and I need to tell someone who’s gonna believe this.
+
+So, it’s getting pretty late. We had two phlebotomists working and every few donors. I had three bottles, but it looked like I had a bit of time before my next, so I grabbed all of them and went in. I’m usually only in for about a minute. It’s cold as hell (-30 C) and I’m not looking for my ear to freeze off, so I hurry.
+
+There’s an antechamber and then the actual freezer. Probably keeps the temperature in check. I open the door to the freezer and I just stop in place. The ceilings are high, maybe 10 or 15 feet, give or take, to give room for the huge fans that keep air circulating and the room cool. It’s pretty full, usually, with stored boxes of plasma and racks for all the small samples we have to send out every day. Problem is, there’s some guy in there.
+
+Not just some guy, obviously. I mean, that’d be weird, too, I just mean that he’s a big, spindly-looking guy. He had this stretched, pale face. His skin looked grey, like he’d been in there for ages, and his eyes were bulged out and round. He’s staring at me with his round, way-too-open eyes with these dark circles beneath. He’s in the farthest corner, tucked near the temperature gauge, and won’t stop staring.  He had these long, thin arms curled up into him and his weird, stretched hands were slack at the wrist. His back was slouched like the room was just a bit too short for him, but he probably would’ve had a good six inches of clearing if he were standing straight.
+
+And he just stood there. Staring at me. I didn’t really know what to do. I didn’t wanna turn my back to him or give him an opening, so I just put the bottles on the floor and backed out. He wasn’t there half an hour ago, when I ran in the last bottles, and I definitely would’ve noticed something like that walking in.
+
+I had to tell someone, right? Like, that isn’t the sort of thing I could’ve just ignored, but I knew it would’ve sounded crazy if I just walked up to a manager and told them there was some spindly guy in the fridge.
+
+So I told them it was weirdly foggy in there and felt a bit warm. Weird enough that they’d look, not weird enough that they’d send me home. My manager and I walk into the freezer, with him leading. He opens the door, looks around, and tells me not to keep bottles just loose on the ground. The spindly man was still in the corner, eyes still burning a hole into my head, but it was obvious that he didn’t even see him. He said it seemed fine and the freezer was probably just doing a defrost run for the fans. I put the bottles where they were supposed to go, keeping my eyes on the man the entire time. He just watched, motionless, as I did it.
+
+I kept having to go back, at least twice an hour, to put things in there. He never moved or said anything, just watched me. I have to go back tomorrow, but I don’t know if I can keep working while he stares at me like that. If he tried to come at me there’s no way I’d be able to fight back, he’s no less than double my height and his hands are big enough to grab my head like Shaq does a basketball.
+
+What do I do? He seems harmless enough, can I just ignore him?
