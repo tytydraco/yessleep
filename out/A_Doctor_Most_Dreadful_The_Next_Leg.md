@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/x2kmax/a_doctor_most_dreadful/?utm_medium=android_app&utm_source=share)
+
 I spent a little over a month in the hospital, followed by half a year of intense physical therapy. About a week in, Ted strolled into my room.
 
 "Hey there Cyr, I see you're all right" he said in a deadpan voice, then chuckled dryly.
