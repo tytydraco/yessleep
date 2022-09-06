@@ -58,7 +58,7 @@ On the other side was another door. Similar to those found in the rest of the ho
 
 “How do you know it doesn’t open?”
 
-Jeff pointed at the doorframe. “This door is meant to open outward. It’s already several inches into the wall, so if it does open, it’ll only be just crack.”
+Jeff pointed at the doorframe. “This door is meant to open outward. It’s already several inches into the wall, so if it does open, it won’t be more than a crack.”
 
 I sighed. “Well, that sucks.”
 
@@ -68,7 +68,7 @@ I gripped and turned the doorknob just for the hell of it and pushed, and to our
 
 The room was about the size of a child’s bedroom and completely empty. The floor was wooden, like the attic, but clean. No dust or dirt or dead bugs. None of that which you’d expect to find in an attic. The walls were white plaster, and also, seemingly spotless. But most baffling of all, was the window at the far end from which daylight flooded the room.
 
-“Maybe we were wrong about this being an exterior wall,” Jeff said. “But I sure don’t remember seeing that window when we were outside.”
+“Guess we were wrong about this being an exterior wall,” Jeff said. “But I sure don’t remember seeing that window when we were outside.”
 
 I stood in silence, staring at the window from the other side of the room.
 
