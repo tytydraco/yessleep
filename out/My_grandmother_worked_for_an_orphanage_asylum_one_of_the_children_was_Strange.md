@@ -316,7 +316,7 @@ After picking up the letter and gathering my thoughts I returned to Eric’s sid
 
 \*\*\*
 
-[Part 2](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/x7c6mv/my_grandmother_worked_for_an_orphanage_asylum_one/)
 
 [Realted](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
