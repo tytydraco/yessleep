@@ -1,6 +1,6 @@
 sometimes you think back on a memory and all the red flags are so... red. They are vibrant and in your face and waving so hard they couldn't look at anything else. But at the moment? It's mildly uncomfortable. Especially when you are only six years old.
 
-The first time I saw her, I was in the park with my mother playing in the sandbox. I heard the perky "Hello!" And looked up to see a woman in a tiny red cocktail dress, black heels to match her black hair, and her tiny handbag. She waved at me with this cute smile, like I was the cutest thing she had ever seen, like a puppy or something. "What'cha up too?" She asked in that same voice. This didn't strike me as weird, most people talked to ms this way, I was and I was most definitely cute back then.
+The first time I saw her, I was in the park with my mother playing in the sandbox. I heard the perky "Hello!" And looked up to see a woman in a tiny red cocktail dress, black heels to match her black hair, and her tiny handbag. She waved at me with this cute smile, like I was the cutest thing she had ever seen, like a puppy or something. "What'cha up too?" She asked in that same voice. This didn't strike me as weird, most people talked to me this way, I was and I was most definitely cute back then.
 
 "I'm making a turtle," I said. "They live in the sand on the beaches!" I was happy to share this wrong information with a total stranger. I was proud I learned something from tv. I bought books too but no one really read to me back then, so I kept this bit of falsehood in my head for far too long. I was so dumb then. But I'm not much better.
 
@@ -79,3 +79,5 @@ I was taken by the police and questioned. I spent a week in jail and mom got me 
 "I don't have anyone to turn to, Jessica. No one else." I tried to cover my mouth with a hand but it was like I couldn't keep it all in anymore. Not from her. "Dad remarried, he won't speak to me, mom hates me, all my friends hate me! Over a lie someone else told!"
 
 A few short wobbles and her thin arms hugged me. She stank like mold and mildew and dirt and bird shit. Fuck I wanted to run but she was strong. She buried her head in my shoulder and hugged me to her tightly. "My... Nate." She rasped out. "I... held my promise... for you. Now, you'll let... me keep you safe... forever!" Her squeeze tightened on me. My ribs were starting to ache from her grip. But my Ex claimed she was pregnant. What choice did I have?
+
+Edit: spelling/grammar
