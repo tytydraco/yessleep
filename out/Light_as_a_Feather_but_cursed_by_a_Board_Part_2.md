@@ -2,6 +2,8 @@
 
 [**Part 3**](https://www.reddit.com/r/nosleep/comments/x6n5bi/light_as_a_feather_but_cursed_by_a_board_part_3/)
 
+[**Final**](https://www.reddit.com/r/nosleep/comments/x7ijpp/light_as_a_feather_but_cursed_by_a_board_final/)
+
 \[Trigger Warning\] ("Child Abuse")
 
 The next couple of days were a blur. First was Robin’s funeral, and the next day was John’s. Lycia was still in the hospital and couldn’t be there for either one. She had slipped into a coma, and wasn’t expected to awaken from it.

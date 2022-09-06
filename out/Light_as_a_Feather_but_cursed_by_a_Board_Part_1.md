@@ -388,4 +388,6 @@ Beck was still crying, so Travis stepped in.
 
 [**Part 3**](https://www.reddit.com/r/nosleep/comments/x6n5bi/light_as_a_feather_but_cursed_by_a_board_part_3/)
 
+[**Final**](https://www.reddit.com/r/nosleep/comments/x7ijpp/light_as_a_feather_but_cursed_by_a_board_final/)
+
 &#x200B;

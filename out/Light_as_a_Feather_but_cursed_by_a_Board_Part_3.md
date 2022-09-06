@@ -2,6 +2,8 @@
 
 [**Part 2**](https://www.reddit.com/r/nosleep/comments/x5tif5/light_as_a_feather_but_cursed_by_a_board_part_2/)
 
+[**Final**](https://www.reddit.com/r/nosleep/comments/x7ijpp/light_as_a_feather_but_cursed_by_a_board_final/)
+
 \[Trigger Warning\] ("Child Abuse")
 
 Travis was Jewish, so his funeral was the next day. The three of us sat together and held hands; we were in shock, this just couldn’t be real. I didn’t hear a word that was spoken, all I could hear were his screams echoing over and over in my head.
