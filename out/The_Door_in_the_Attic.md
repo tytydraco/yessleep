@@ -22,7 +22,7 @@ Jeff leaned into one side of the bookshelf and began pushing. “Damn, this thin
 
 “Let me try.”
 
-He stepped away and I pushed against the bookshelf, but it didn’t budge. I dug my feet into the floor and put my shoulder into it and pushed even harder, but still it would not move. Next Jeff joined me and we both pushed against it simultaneously, and again it remained firmly in place.
+He stepped away and I pushed against the bookshelf, but it didn’t budge. I dug my feet into the floor and put my shoulder into it and pushed even harder, but still it would not move. Next, Jeff joined me and we both pushed against it simultaneously, and again it remained firmly in place.
 
 “Well, shit,” Jeff said. We stood back and examined it for a moment, then I stepped over to the wall, where I noticed something.
 
@@ -30,7 +30,7 @@ He stepped away and I pushed against the bookshelf, but it didn’t budge. I dug
 
 Jeff raised his eyebrows and smiled. “Secret room!”
 
-For a second, I was just as excited as Jeff, but it quickly dissipated as I realized this could not possibly be the case. I knocked on the wall a couple of times and looked at Jeff. His smile faded as he came to the same realization to me.
+For a second, I was just as excited as Jeff, but it quickly dissipated as I realized this could not possibly be the case. I knocked on the wall a couple of times and looked at Jeff. His smile faded as he came to the same realization as me.
 
 “Exterior wall,” he said.
 
@@ -44,7 +44,7 @@ I shrugged. “I guess it could be hiding something in a little alcove. It won�
 
 “God, I hope so. Help me figure out how to open it.”
 
-Jeff stepped beside me and we ran our fingers along each shelf and corner, until I found what felt like a button in the top left corner nearest to me. I pressed it and there was a click from behind the shelf. Jeff and I exchanged excited glances, and pulled the right side of the bookshelf toward us and it swung open.
+Jeff stepped beside me and we ran our fingers along each shelf and corner, until I found what felt like a button in the top left corner nearest to me. I pressed it and there was a click from the back of the bookshelf. Jeff and I exchanged excited glances, and pulled the right side of the bookshelf toward us and it swung open.
 
 On the other side was another door. Similar to those found in the rest of the house, wooden with a brass doorknob. But with one major difference.
 
@@ -86,7 +86,7 @@ On the other side, I could hear Jeff’s muffled voice, saying, “Lee?”
 
 I desperately fought to turn the knob, but it would not move. “Open the door!” I yelled, even though I knew Jeff couldn’t have possibly been the one to shut it.
 
-“I’m trying,” he yelled back. I let go and watched the brass knob jiggle as Jeff tried to turn it. “I thought you said it couldn’t lock.”
+“I’m trying,” he yelled back. I let go and watched the brass knob jiggle as Jeff tried to turn it. “I thought you said it didn’t have a lock.”
 
 “Stand back!” My heart racing, I reared back and kicked the door.
 
@@ -98,15 +98,15 @@ I listened as his footsteps faded away.
 
 As I stood staring at the door, heart pounding in my ears, I heard what sounded like a slammed car door coming from outside the window. From where I stood, I could see only blue sky on the other side of the glass, a clear indicator of daytime. But there was no denying what I’d heard. 
 
-I moved toward the window, growing more and more nervous with each step. Maybe I could see Jeff or his truck. Maybe this was all a big misunderstanding. Maybe it wasn’t even a window, but rather some sort of artwork or optical illusion. Those are the things I told myself. But those thoughts disappeared as I reached the window and saw the truth.
+I moved toward the window, growing more and more nervous with each step. Maybe I could see Jeff or his truck. Maybe this was all a big misunderstanding. Maybe it wasn’t a window, but rather some sort of artwork or optical illusion. Those are the things I told myself. But those thoughts disappeared as I reached the window and saw the truth.
 
 It was a window, and while what I saw outside was somewhat familiar, it was also different. The neighbors’ homes were different. The street was different. The cars were different. 
 
-And standing in my driveway was a stranger. A woman. She had long black hair and was staring up at me. People walked down the sidewalk past her. Ignoring her. Nobody looking to see what it was she was looking at.
+And standing in my driveway was a stranger. A woman. She was dressed in black and had long black hair, and was staring up at me. People walked down the sidewalk past her. Ignoring her. Nobody looking to see what it was she was looking at.
 
 As a couple walked along the sidewalk past the driveway, I pounded on the window and hollered, “Hey!” But they just kept walking, as if they never even heard me.
 
-I looked back down at the woman and she lifted her arm and beckoned me with her hand. I should’ve turned and left. But it was as if I was under a spell. I couldn’t hear Jeff. He would’ve been back by then. All I could hear was the muffled afternoon outside the window — singing birds and barking squirrels, car motors and stereos, people talking as they walked by. And in contrast to the beautiful day, was the woman in black, beckoning me to her.
+I looked back down at the woman and she lifted her arm and beckoned me with her hand. I should’ve turned and left, but it was as if I was under a spell. I couldn’t hear Jeff. He would’ve been back by then. All I could hear was the muffled afternoon outside the window — singing birds and barking squirrels, car motors and stereos, people talking as they walked by. And in contrast to the beautiful day, was the woman in black, beckoning me to her.
 
 I lifted the window and the outside world flooded in — all the sounds, smells, and the summer heat. Propped just beneath the windowsill was an aluminum ladder. I climbed outside and stepped onto it and carefully descended, then when my feet touched the freshly mowed grass, I turned around.
 
@@ -145,8 +145,8 @@ I’m not crazy. I wasn’t going to wait around and let someone tell me otherwi
 
 ________________________________
 
-The world outside the widow is different than the one I know. But it’s the same world, I’ve come to learn. It’s my world and it’s your world. It’s Earth. But, nonetheless, I am a stranger in it. Everyone I know is gone. 
+The world outside the window is different than the one I know. But it’s the same world, I’ve come to learn. It’s my world and it’s your world. It’s Earth. But, nonetheless, I am a stranger in it. Everyone I know is gone. 
 
-It’s 2022 now. I don’t know if that room is still in the attic, but I need to try to get to  it and climb through that window again, and maybe it’ll be my way back to the world I know. 
+It’s 2022 now. I don’t know if that room is still in the attic, but I need to try to get to it and climb through that window again, and maybe then I can get back to the world I know.
 
 Back to [1948.](https://reddit.com/r/FishermanTales/comments/pvh0ue/stories/)
