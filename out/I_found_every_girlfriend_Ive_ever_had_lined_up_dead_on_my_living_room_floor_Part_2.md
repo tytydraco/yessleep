@@ -207,3 +207,5 @@ I'm not surprised. This city is a university town. The local economy is heavily 
 The worst thing though; the truth is even more chilling. No wonder I'm too afraid to sleep at night. More to follow.
 
 — Stu(dent Ripper)
+
+[[Part 3]](https://www.reddit.com/r/nosleep/comments/x78dh0/i_found_every_girlfriend_ive_ever_had_lined_up/?)
