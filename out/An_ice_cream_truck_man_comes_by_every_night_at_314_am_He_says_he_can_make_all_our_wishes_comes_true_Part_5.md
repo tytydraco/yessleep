@@ -6,7 +6,7 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/vjntv2/an_ice_cream_truck_man_comes_by_every_night_at/)
 
-[Epilogue](https://www.reddit.com/r/nosleep/comments/wubvew/an_ice_cream_truck_man_comes_by_every_night_at/)
+[Final Part](https://www.reddit.com/user/Revolutionary-Bit630/comments/x7bk4d/an_ice_cream_truck_man_comes_by_every_night_at/)
 
 # Friday, 03:14 AM, July 6th 2012
 
