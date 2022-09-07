@@ -222,7 +222,7 @@ The creature took a few timid steps toward the woman’s corpse. “Mommy…” 
 
 I guess Kilroy had more of a killer instinct than even someone like me. It hadn’t taken her long to move on from the inherent horror of this situation, and get back to the job. The job is the job, after all.
 
-Unable to take my eyes off the mourning, faceless, creature I had a perfect view of its faceless head snapping backward in a spray of blood as Kilroy took her shot. 
+Unable to take my eyes off the mourning, faceless, creature I had a perfect view of its faceless head snapping backward in a spray of dark liquid as Kilroy took her shot. 
 
 Arthur went flying backward from the impact, slamming into the living room wall. That snapped me out of it. Whatever that thing was, we weren’t safe here. We had been thrust into something that we weren’t prepared for. 
 
@@ -230,11 +230,11 @@ Arthur went flying backward from the impact, slamming into the living room wall.
 
 Kilroy scowled at me. “I know that.” “What the fuck did Detlev have us walk into here?” I asked her. “I don’t know.” The angry expression never left her face. “But either way, we did what we were supposed to right? Or at least, *I* did.” 
 
-I wasn’t so sure the thing was dead. My fears were confirmed when a guttural roar erupted from across the room, and Arthur lunged at Kilroy. She tried to get off another shot, but the bleeding thing was undeterred, now fueled by rage and hatred. It tackled Kilroy and set itself upon her, clawing at her chest, easily ripping out wet meaty chunks like a barbecue chef shredding pork. “Mommy mommy mommy mommy mommy!” It screamed as it tended her flesh. 
+I wasn’t so sure the thing was dead. My fears were confirmed when a guttural roar erupted from across the room, and Arthur lunged at Kilroy. She tried to get off another shot, but the bleeding thing was undeterred, now fueled by rage and hatred. It tackled Kilroy and set itself upon her, clawing at her chest, easily ripping out wet meaty chunks like a barbecue chef shredding pork. “Mommy mommy mommy mommy mommy!” It screamed as it rended her flesh. 
 
 The room filled with the scent of copper as Kilroy wheezed. I rushed forward and grabbed at the thing, desperately trying to do what I could to help my partner. As I pointed my gun at the back of its head, it turned, feeling my grip on its clammy arm. 
 
- Lightening fast, it spread open its gaping maw and clamped down with its teeth on my hand as I fired, missing my shot. It bit, hard, rearing it’s head back and taking my thumb and index finger with it in a massive spray of red. I bowled in pain and fell backward. 
+ Lightening fast, it spread open its gaping maw and clamped down with its teeth on my hand as I fired, missing my shot. It bit, hard, rearing it’s head back and taking my thumb and index finger with it in a massive spray of red. I howled  in pain and fell backward. 
 
 As Arthur turned to continue its assault on Kilroy, it was blasted in its empty face by another point blank shot from her pistol. With her last ounces of strength, body convulsing, Kilroy had made a desperate attempt to do the job. 
 
