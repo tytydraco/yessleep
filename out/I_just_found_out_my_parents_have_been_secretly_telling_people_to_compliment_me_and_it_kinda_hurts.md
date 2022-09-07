@@ -178,4 +178,4 @@ Already half asleep again, she yawned, nested her head against my chest, and sai
 
 “I always wanted to go there,” she said lazily, eyelids drooping shut. Bella placed her head on Katie’s lap.
 
-To the East, that first slivof sunlight peaked out over the horizon. Now the tide had finally reached its lowest point.ief, and then set a course for our new home.s
+And then, little by little, the constant, black terror plaguing me [since the announcement evaporated.](https://www.reddit.com/r/thoughtindustry/comments/te0fum/welcome_i_hope_you_enjoy_your_stay/) I breathed a long, deep, sigh of relief, and then set a course for our new home.
