@@ -79,3 +79,6 @@ I had enough punishing myself, and cursing this life for giving me this torment 
 &#x200B;
 
 **I know this chapter might have raised even more questions than it answered but stay with me, there is a reason for why I'm telling you all of this. I'll try to be back soon.**
+
+
+Part 3: https://www.reddit.com/r/nosleep/comments/x8bmhz/i_know_im_not_crazy_but_i_wish_i_was_part_3/
