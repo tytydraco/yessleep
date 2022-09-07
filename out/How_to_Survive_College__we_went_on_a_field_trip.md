@@ -34,13 +34,13 @@ I got a solid B on that paper though, which I believe will net me an A in the cl
 
 Unless I get myself killed first, that is.  It’s a possibility.  Because I’ve been experimenting with the pencil.
 
-I’ve gotten to where I can hold it without it sucking my mind in and making me panic.  There’s a trick to it.  I don’t look at it.  I don’t think about it.  I think about what I’m going to do with my hand - the motions I’m going to make to write something, for instance.  Anything but thinking about the pencil itself.  If I slip up and let myself realize that there’s a pencil in my hand, that I’m holding this impossible thing that reaches out into incomprehension, then I put it back in the case and go do something else.  Like binge eating potato chips and listening to Taylor Swift a dozen times on loop.  
+I’ve gotten to where I can hold it without it sucking my mind in and making me panic.  There’s a trick to it.  I don’t look at it.  I don’t think about it.  I think about what I’m going to do with my hand - the motions I’m going to make to write something, for instance.  Anything but thinking about the pencil itself.  If I slip up and let myself realize that there’s a pencil in my hand, that I’m holding this impossible thing that reaches out into incomprehension, then I put it back in the case and go do something else.  Like binge eating potato chips and listening to Taylor Swift a dozen times on loop.
 
 It’s not a great coping mechanism but it works.  I’m finding that ear worms are just distracting enough to keep me grounded.  (and if you want to know which one gets stuck in my head the most when I’m trying to use the pencil, the answer is *all of them*)
 
 I still don’t know how to use it, which is a shame, because things have gotten weirder around here.
 
-There was one class that didn’t do a traditional final exam.  Our grades were determined by a bunch of smaller exams we’d done throughout the year and attendance.  This was also the professor that didn’t cancel class because of the rain, for the record.  Instead of a final, we had a field trip.  
+There was one class that didn’t do a traditional final exam.  Our grades were determined by a bunch of smaller exams we’d done throughout the year and attendance.  This was also the professor that didn’t cancel class because of the rain, for the record.  Instead of a final, we had a field trip.
 
 On our final day of class we piled into a small bus and were driven about twenty minutes off of campus.  I admit I was a little apprehensive and the subject of the field trip was doing nothing to ease my nerves.
 
@@ -50,7 +50,7 @@ I dragged my attention back to the professor with an effort.  We weren’t on ca
 
 “-to wear closed-toe shoes,” he was saying, quite annoyed.  “Did *none* of the women wear the right shoes?”
 
-I turned around to face the group, trying to ignore the shiver that ran down my spine as I put my back to the river.  The professor was holding waders and surveying the female members of the class.  
+I turned around to face the group, trying to ignore the shiver that ran down my spine as I put my back to the river.  The professor was holding waders and surveying the female members of the class.
 
 He’d told us to not wear sandals.  And guess what?  All the other women in the class had worn sandals!  Sure, they were cute and I was a little jelly of a couple of them, but they were rather impractical for tromping through the woods and certainly not suitable for wearing waders over.  The professor had also elected to only bring two waders sized for men and the third was sized for women.  Clearly he believed in the stereotype that women aren’t willing to get our hands dirty and had decided to force the issue by limiting our options.  I’m not sure what I’m more pissed off about - that he bought into the stereotype to begin with or that my classmates *proved him right*.
 
@@ -62,11 +62,11 @@ And that’s how I wound up sloshing through the river for the other bank becaus
 
 I no longer regret wrecking the curve on midterms.  They deserved it.
 
-It didn’t seem like it’d be a big deal to wade over to the other bank, right?  I used to work on the campground.  Even though the lake wasn’t part of the land for most of when I was there, I’m still no stranger to doing outdoorsy things.  Wading through thigh-deep water is nothing.  
+It didn’t seem like it’d be a big deal to wade over to the other bank, right?  I used to work on the campground.  Even though the lake wasn’t part of the land for most of when I was there, I’m still no stranger to doing outdoorsy things.  Wading through thigh-deep water is nothing.
 
-At least, it wasn’t a big deal before I came to this campus and saw what lurks in the river.  
+At least, it wasn’t a big deal before I came to this campus and saw what lurks in the river.
 
-I clutched my end of the line like it would save me and mentally cursed my classmates, the professor, and myself for thinking geology would be the easiest of my science requirement options.  At least by this point we were done taking the measurements we needed and I only had to walk back to their side of the river.  
+I clutched my end of the line like it would save me and mentally cursed my classmates, the professor, and myself for thinking geology would be the easiest of my science requirement options.  At least by this point we were done taking the measurements we needed and I only had to walk back to their side of the river.
 
 Then the other student helping me reel in the line thought it would be funny to jerk on it real hard.  He said afterwards he was hoping to pull me over and into the water.  Which is a pretty stupid prank, I mean, it’s not like I’m going to hold onto the line like a dumbass and let that happen.  I let go of it and let it fall in the water.  He could just reel it in the rest of the way, I decided, and continued slogging through the water.
 
@@ -78,7 +78,7 @@ I tugged on the line where it emerged from the water.  It gave, but only a littl
 
 Something shifted close to my feet.  I froze, my hands poised just under the water.  It was just a fish.  That’s all.  Just a fish.  Yet my muscles refused to cooperate and I stood there, panicked into immobility.
 
-The water in front of me thinned.  It ran shallow across a sleek, smooth surface that drifted up to float just below the surface.  An eye opened in the ebony flesh and stared up at me.  Dark brown, glinting with hints of amber where the sunlight struck it.  The creature shifted and I saw the flash of a row of ivory teeth.  
+The water in front of me thinned.  It ran shallow across a sleek, smooth surface that drifted up to float just below the surface.  An eye opened in the ebony flesh and stared up at me.  Dark brown, glinting with hints of amber where the sunlight struck it.  The creature shifted and I saw the flash of a row of ivory teeth.
 
 The line was clutched in its mouth.  It ground its jaw together and the line snapped.  Then it vanished back under the water and I saw hair rippling like seaweed, then the hint of a broad back, then nothing but the running water.
 
@@ -96,7 +96,7 @@ What would have happened if I’d kept searching for it, flailing blindly underw
 
 But there was something else stirring in the back of my head.  An idea.
 
-I called Grayson once I was back in my dorm.  He had access to a car and could take me back to the river.  
+I called Grayson once I was back in my dorm.  He had access to a car and could take me back to the river.
 
 I wanted to find the kelpie again.  And this time, it’d be just me, and the horse wouldn't have to hide in the water from all those watching eyes of my classmates.
 
@@ -132,7 +132,7 @@ I was focused on the river up ahead.  I could hear the sound of water gently lap
 
 It wasn’t like being carried through the forest by the shulikun.  It would be fine.  Still, my mouth was dry, and a healthy dose of fear fluttered in the depths of my chest.  It might not be as dangerous as some other things I’ve encountered, but this still wasn’t safe.
 
-We were within eyeshot of the river.  I shone the flashlight up and down the length of it, searching for the shine of dark eyes.  Nothing.  
+We were within eyeshot of the river.  I shone the flashlight up and down the length of it, searching for the shine of dark eyes.  Nothing.
 
 “Hey,” I called out tentatively.  “So.  I know there’s a kelpie out here.  I saw you earlier today.  I just… have some questions?”
 
@@ -170,7 +170,7 @@ Tinged with streaks of red.
 
 I snatched the light up and swept it back and forth over the water with shaking hands.  Had I imagined it?  Did I really see blood?
 
-I told Grayson to wait a moment.  I thought I saw something.  I wouldn't go far, I promised.  
+I told Grayson to wait a moment.  I thought I saw something.  I wouldn't go far, I promised.
 
 “Uh, no, I’m not letting you go off on your own,” Grayson sighed.
 
@@ -189,6 +189,8 @@ I think I know why there’s no recognizable inhumans on campus.
 The eyeball is a weapon, the devil said.
 
 And whatever is controlling it is killing the other monsters off.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/x7tbc4/how_to_survive_college_im_trying_to_figure_the/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
