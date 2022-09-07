@@ -282,7 +282,7 @@ Silence on the other end.
 
 I said nothing.
 
-He continued. “And even if you *know* this old hag is lying, you *know* that it’s bullshit, well… you still have to put a stop to it, right? And you put your best men on it, just in case. Just on the small, off chance that the bastard son who drowned in a well all those years ago really did come back.”
+He continued. “And even if you *know* this old hag is lying, you *know* that it’s bullshit, well… you still have to put a stop to it, right? And you put your best men on it, just in case. Just on the small, off chance that the little ankle biter, bastard son who drowned in a well all those years ago, really did come back.”
 
 “Yeah.” 
 
