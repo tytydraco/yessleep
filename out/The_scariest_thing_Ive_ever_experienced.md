@@ -1,0 +1,13 @@
+I want to note here that unlike many of the well written stories here, this is actually a true story. And one that left me with *no sleep.*
+
+So, I was in Bullhead City, Arizona, hanging out with my boyfriend at the time and his two younger sisters, plus one of their friends. My boyfriend and I were 18 and the others were 14-15. We were just a bunch of dumb teenagers having a night out to celebrate my boyfriend's graduation.
+
+We talked about what we should do, since we hadn't really planned this night out at all. We soon decided to hop in my truck and drive to a local arcade (I think it was an arcade anyway, something similar to Main Event or GattiTown).
+
+We stopped at a gas station off the side of the road and I asked one of the sisters to call the place we were going to and ask if they were still open. She did, and she asked what time they close. When she got off the phone, she told me they close at 11 and it was only 9pm. So, we all hopped in the car and drove straight to the arcade.
+
+However, when we pulled into the parking lot, the first thing I noticed was that there was nobody there. Not a single light was on, not a single sound was heard, and not a single car was in the parking lot, or anywhere near. There was no sign of life. I made the mistake of parking, and turned to the window on the bed of my truck where the girls were. I asked, "are you sure they said they were still open?" My boyfriend's sister nodded. I asked again, "you weren't just listening to a robot voicemail or something?" She shook her head. "No, it was a real person. She definitely said they were open."
+
+Now, there was only one of these arcades in the entire state, maybe even in the whole country, so there's no way we called the wrong place. And there wasn't a national holiday in the previous or next week, so there wouldn't have been a mistake with them closing early or something. His sisters tend to be liars, however I don't think this was the case since not only did their website say they're open til 11, but my boyfriend also confirmed they should be open.
+
+I got a bit lightheaded and freaked out. I yelled to the girls in the bed of my truck, "hang on tightly!" And as fast as I could, I put the truck in reverse and got the fuck out of there. We parked down a random road and my boyfriend spent the whole time yelling at me. He told me I was being overdramatic and freaking out over nothing. I told him I didn't want to be on a murder documentary and that I was trying to keep everyone safe. To this day, nobody would believe me, but there's no way that what happened was normal.
