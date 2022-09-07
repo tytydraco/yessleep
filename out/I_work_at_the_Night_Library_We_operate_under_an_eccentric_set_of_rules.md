@@ -120,10 +120,142 @@ Then I finished my entry packet and flipped it over to find the last paper on th
 
 We look forward to working with you. Welcome to the Night Library.”
 
-I’ve had several experiences worth recounting, to say the least, but I felt like laying the foundation out there was a decent place to start. If you’d like to hear more, stick around. 
+I’ve had several experiences worth recounting, to say the least, but the first story that comes to mind is in regards to Rule 2, so I thought I'd share that with you today. 
 
-Thanks for reading. 
+I’d been working at the Night Library for exactly seven days (four shifts, but it was one week to the day since I’d been hired) and everything was going surprisingly smoothly. As any sane person would do, I had put the list of rules out of my mind, gathering that they were nothing more than a tactic to haze new employees. Assuming that I would have a leg up on them if I didn’t acknowledge the list at all, I hadn’t even mentioned it when I’d finished filling out my entry paperwork, simply slipped it into my locker and handed the rest in to Matt.
 
-Until next time, I guess.
+Oh, I was asked about it, of course. Several times over the course of the following nights, various coworkers approached me to inquire as to whether anything had happened to me yet. When I asked what they meant, their response was always some variation of, “You know…the Rules?” and I would just snort and roll my eyes and be on my way.
 
-\-Adam
+On the evening of my fourth shift, I had stepped away from the little hole in the back office that Matt had set up as a book mending station for me and was briefly helping Jenny out; we were unusually swamped at the desk and Matt had taken off for the night, so I figured she could use a little extra manpower. 
+
+We’d worked our way almost entirely through the line, and when the face of the last patron finally surfaced from the crowd, Jenny was still busy with someone else, so naturally it was me they looked to. 
+
+“Hi,” I said. “What can we do for you?”
+
+That was when I noticed their eyes.
+
+There wasn’t anything wrong with them. Not technically. They were dark, but not unnaturally so. Not bloodshot. The pupils weren’t abnormally large. But there was something behind them that…no. No, let me try that again. There was *nothing* behind them. That was the problem. 
+
+I looked away.
+
+“Pool,” they said.
+
+I cleared my throat. “Sorry?”
+
+“Pool. Your pool. I need help finding it.”
+
+I laughed, and a cool air of relief washed over me. They looked soulless and creepy as hell on purpose, of course. Matt had put them up to this—or if not Matt, one of the other employees. “Sorry, buddy,” I told them. “That’s not gonna work on me. Nice job, though. You kind of freaked me out for a second.”
+
+The patron said nothing. Just ever so slightly furrowed their brow and tilted their head to the side, as though they didn’t understand what I was saying. “I need help finding your pool,” they repeated.
+
+I leaned partway across the counter, lowering my voice so that Jenny wouldn’t overhear. She seemed preoccupied enough, but you never quite know with her. “Look, dude, I don’t want to spoil the fun for everyone else, so I’m gonna let them think they’re pulling one over on me for a while, okay? But I’m not buying it. I’ll walk away from the desk with you, but once we’re out of the line of sight you can drop the act.”
+
+This seemed to satisfy them well enough, because they turned and began heading opposite my direction. 
+
+I quickly ducked out from behind the counter to follow. 
+
+We walked in silence until we were safely hidden in the stacks, and then I stopped, reaching out to place a hand on their shoulder. “Alright, pal, I think we’ve made it far enough.”
+
+They faced me, and I waited for the façade to fall away.
+
+It didn’t.
+
+“Your pool,” they recited once more. 
+
+Slowly, a quiet unease began to creep up my spine. “Um,” I managed.
+
+“Where is it?”
+
+For a moment, I considered. There was absolutely no way in hell any of this *Rules* bullshit was real. But why were they so dedicated? “Is Matt paying you to do this?”
+
+They stared blankly back at me, the same, dead eyes as before unblinking and cold. *“Where.”* they demanded icily, *“Is. Your. Pool?”*
+
+As little stock as I had put into the list, it had, in its absurdity, stuck with me in such a way that made it difficult not to recall near to every detail. *There is no pool in the library,* I remembered reading, and then, *Not in the basement (which doesn’t exist).* “It’s in…the basement?” I tried, fearing that the next query would be where the basement was located. 
+
+But no more questions came. 
+
+Instead, the patron nodded and left me alone between Stephen King and Liane Moriarty. 
+
+I shouldn’t have followed them. For countless reasons, I shouldn’t have. But I wanted—*needed*—to know what was going on. So I peeked around the edge of the shelf, ensuring that I’d given them enough leeway not to take notice of me trailing them, and then I set off. 
+
+They were headed toward the children’s area, which was entirely across the building from where we’d just been, and I was forced to keep my pace brisk so as not to lose sight of them. They bobbed and weaved in and out of my view, but I always managed to catch up just before it was too late. 
+
+We traversed through the baskets of puzzles and blocks, along the dingy train mat thrown thoughtlessly across the largest expanse of open floor, and somewhere to my right, a read-along book that had been left open was stuck on a loop of animal sounds. We passed by the library’s small collection of secondhand Leapfrog learning pads and stepped over a spilled bin of well-worn stuffed animals, me keeping as quiet as I could all the while.
+
+Finally, we reached the rear wall, and I saw something I’d never noticed before.
+
+There was a door. 
+
+Nothing about it was special or notable in the slightest; it was a metal rectangle that had been painted the same deep, flat shade of blue as the building’s exterior doors, and it was fitted with an identical window so high up I would’ve needed a ladder to see what lay beyond. 
+
+As was the only logical next event in our sequence, the patron approached it and turned the handle, which opened to them fluidly and without issue. Half of me hoped it would do the same when it was my turn. 
+
+Half hoped it wouldn’t.
+
+The door wasn’t loud; I wasn’t particularly concerned that they’d hear me breach it once it had fallen closed behind them, but just to be safe, I counted off ten Mississippis before easing it open and slipping inside.
+
+Immediately, I was immersed in darkness. It would have been total had it not been for the dim glow permeating through from the bottom of the set of descending steps before me. 
+
+My brain, scrambling to compute, insisted that the lack of a basement in the building must have been part of the elaborate ploy. The fact that I’d never noticed the door didn’t mean it didn’t exist; clearly it *did,* as I’d just used it. I’d only been here a week. It wasn’t like I’d had a chance to explore every cubic inch of the place. 
+
+Taking a steadying breath, I mentally chastised myself for being so gullible and started down the stairs. 
+
+It took longer than I felt it should to reach the end. Far longer. But I chalked it up to anticipation and kept on until I reached a level, concrete platform. The only turn to make was a right one, so I took it, drawing steadily closer to the disembodied light source. 
+
+I traveled down a narrow corridor, minding my step once I realized that the floor was covered in about an eighth of an inch of water—just enough to result in a soft, echoing splash if I swung my foot down with enough force. I didn’t hear anything ahead of me, but the patron hadn’t preceded me by much. They had to be fairly close. 
+
+Soon, the hallway opened into what I understood to be the basement. Beams and pipes littered the ceiling in an impossible maze, and I found that the light I’d been following was produced by a single, low-wattage bulb suspended from the rafters by a wire. I could see the center of the room clearly, but the edges blurred back into shadow. Straight ahead, I thought something shifted, but I couldn’t be sure. 
+
+Considering that I was out in the open now with nowhere to hide, I called out a reluctant, “Hello?”
+
+No direct response came, but there was a quiet skittering from the same area where I thought I’d seen motion, so I moved toward it against my better judgment, squinting in attempt to make out a shape of any form. 
+
+When I finally settled on one, it was the yawning, black mouth of an entryway. Almost blindly, I felt my way forward and stuck my hand inside to be met with empty air. The basement was cooler than upstairs already, but as I stepped fully through, I estimated the temperature drop to be another five degrees at the very least. 
+
+The water that had veiled the floor from the bottom of the stairs had never receded, but it grew a hair deeper here, just enough so that it began lapping at the canvas above the soles of my shoes. “Hello?” I asked again. Too unsure of my surroundings to go any further, I stood my ground and listened intently. 
+
+This time, I could swear I heard a faint splash. 
+
+It’s difficult to explain what happened next. It was as though a film of a sort lifted from the entirety of the premises, and with it, the darkness. Not like someone had flipped on a switch; more like opening a blackout curtain. 
+
+That’s when I realized that it was because something was emerging. From underwater. 
+
+Before I go into detail about *that*, let me set the scene for you.
+
+As soon as my environment was illuminated, my heart gained sentience and decided there was no time like the present to explore the outside of my chest. I was the origin of *freeze* being tacked onto the old fight or flight adage, but once I’d thawed, I took a liberal, stumbling step backward. So close to the space my toes had just inhabited that I’d have been done for had I allowed myself so much as a readjustment, there was a pool. Or, rather, a pit full of water, so dark and deep it appeared bottomless. Something about it affected my perception of the rest of the space; it was so all-encompassing that everything around it seemed to be pulling toward it as though it was the center of gravity, dizzying and cloying.
+
+Thankfully, however, my focus was instantaneously directed elsewhere.
+
+Have you seen an anglerfish? I assume you have, but if not, take a second to Google it. 
+
+What had arisen from the depths of the pool/pond/liquid grave greatly resembled one in several respects—the most notable being the giant, pulsating bulb protruding from the center of its head and dangling in such a way as to perfectly illuminate the *second* most notable feature: the teeth.
+
+The most prominent difference between the thing before me and a traditional anglerfish was the size. For example, a fully grown anglerfish generally reaches the length of a ruler, but has on rare occasion been known to scarcely outgrow a yardstick. 
+
+A yardstick may have been a match for a single, dagger-like protrusion jutting like a stalagmite from this creature’s jaw. 
+
+I ran. 
+
+Slipping along the damp floor and barely catching myself on the walls several times before finally finding myself in the stairwell again, I began ascending it with all the force and swiftness in my being. They say the drive home always feels shorter, and this was apparently applicable to the trip up the stairs *from* the gate to hell versus down the stairs *to* it as well, because it felt as though not a second had passed before I was shoving the door open and collapsing onto the carpeted ground outside to catch my breath. 
+
+When I got my bearings and stood, glancing quickly over my shoulder to be sure I hadn’t inadvertently invited anything to accompany me out of the basement, I felt my stomach plummet. 
+
+The door was gone. 
+
+I looked insane by the time I made it back to the desk, and Jenny wasn’t shy about telling me so. “What happened to you?” she asked. “Did somebody waterboard you or is that sweat?”
+
+“I saw it,” I told her. “The pool.”
+
+She cocked one brow, eyes minutely widening. “Welcome to the club, noob. Get out of here. I’ll see you tomorrow.”
+
+I got out. 
+
+Needless to say, I started studying that list like gospel the next night and never questioned it again. It’s saved my ass a fair few times now, as it has everyone’s here. And before you ask why I don’t quit—why any of us doesn’t—I have to admit that I don’t have a solid answer for you. 
+
+The money is definitely part of it. Matt knows what he’s doing, buttering us up, giving us incentive not to seek out alternative employment. He keeps the staff small and cuts corners pretty much anywhere else he can so he’s able to pay us what he does. 
+
+But there’s something else, too. Something too intangible to verbalize. And it’s unspoken between the lot of us that the sensation is mutual.
+
+We’re just *supposed* to be here.
+
+Besides, I don’t know if the library would take too kindly to us leaving.
