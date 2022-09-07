@@ -21,6 +21,6 @@ I got to the ladder to escape this awful place and I hoped to get help but as i 
 
 I found a room in this maze of tunnels to hide in and as of now they haven't found me yet but I hear them getting closer and closer as I type this.
 
-To anyone visiting Disney World don't eat the food and don't ever go alone I hope this gets out as I have no service in these tunnels, I  hope I don't have the same fate as my friend.
+To anyone visiting Disney World don't eat the food and don't ever go alone, I  hope I don't have the same fate as my friend.
 
 Disney is where nightmares are made of.
