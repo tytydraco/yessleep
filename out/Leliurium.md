@@ -2,13 +2,13 @@ Throughout history, we asked ourselves many questions. For the majority of those
 
 Yet, even today we have questions that can't be answered effectively, questions that are relegated to theories and speculation, conspiracy theories.
 
-Now certain people came into this world with a special ability. An ability to look at this chaotic world and make sense of it like no other before. To see the world in a new and novel way. Some people had the luck of experiencing things that could only be described as supernatural. 
+Now certain people came into this world with a special ability. An ability to look at this chaotic world and make sense of it like no other before. To see the world in a new and novel way. Some people had the luck of experiencing things that could only be described as supernatural.
 
 Of course, many of those things were explained by science. But many things still remained unanswered. The Roswell incidents, sightings of UFOs, miracles and legends, myths of eldrich beings and Gods.
 
-The following is a transcript of an interview with a man who was not a special individual, but a man whom through certain circumstances came to know a man who was unique. 
+The following is a transcript of an interview with a man who was not a special individual, but a man whom through certain circumstances came to know a man who was unique.
 
-The interview was conducted sometime during the summer of 1998. The man interviewed was a retired police investigator from Oklahoma. 
+The interview was conducted sometime during the summer of 1998. The man interviewed was a retired police investigator from Oklahoma.
 
 Here is the transcript in full :
 
@@ -44,7 +44,7 @@ FS - "Tall, over six feet, lean... Brown eyes, dark hair. He was very well kempt
 
 INT - "Not a very sociable type I see."
 
-FS - "You would be surprised! He was not the type for chit-chat absolutely, but when it came to work, and some certain topics he would turn into a completely different person. At the drop of a hat, he would completely change his entire demeanor, to the point where even his body language was completely different. I remember we were investigating an armed robbery, and we had a suspect up for an interview. Now, we played the good ol' good cop bad cop. It was me and Mike, and uhh... Once he got into the room, he was playing the good cop. He was playing it extremely well. Now I'll spare you the details. In the end, I was certain he was the guy. 
+FS - "You would be surprised! He was not the type for chit-chat absolutely, but when it came to work, and some certain topics he would turn into a completely different person. At the drop of a hat, he would completely change his entire demeanor, to the point where even his body language was completely different. I remember we were investigating an armed robbery, and we had a suspect up for an interview. Now, we played the good ol' good cop bad cop. It was me and Mike, and uhh... Once he got into the room, he was playing the good cop. He was playing it extremely well. Now I'll spare you the details. In the end, I was certain he was the guy.
 
 But once we exited the room, after around 30 minutes of interrogation... Mike just looked me straight in the eye and told me 'He didn't do it'... He was right, we caught the real robber a week later. I asked him how he knew, and the only response I got was... 'I just did."
 
@@ -90,13 +90,15 @@ FS - "... I think... Yes, sounds familiar. Excuse my memory, I'm getting old..."
 
 INT - "No problem. Do you remember anything else? You told me about visiting his home once actually. Was that before or after he went into hiding?"
 
-FS - "After... Let me elaborate, around January of 1970 he stopped coming to work under the pretense that he was sick. Which was unusual, because he never took sick days off, he never took a vacation for that matter. Months went by, he said it was bad... Then he stopped picking up his phone and we went to investigate what was going on. Of course, we tried to knock on his door before, but he would just tell us to go away so we don't get sick... We listened to him and went back home each time. But after he stopped all communication we went to his apartment, and knocked on the door \*sigh\*... There was no answer so we broke in. Inside was a complete mess.
+FS - "After... Let me elaborate, around January of 1970 he stopped coming to work under the pretense that he was sick. Which was unusual, because he never took sick days off, he never took a vacation for that matter. Months went by, he said it was bad... Then he stopped picking up his phone and we went to investigate what was going on. Of course, we tried to knock on his door before, but he would just tell us to go away so we don't get sick... We listened to him and went back home each time. But after he stopped all communication we went to his apartment, and knocked on the door \*sigh\*... There was no answer so we broke in. Inside was a complete mess. The immediate thing that hit me was a sense a horrible sense of dread, like something was wrong, but I couldn't tell what exactly. At least in those first moments...
 
 The walls were painted with what seemed like blood... Symbols, what looked like some kind of maps. Paper and books were strewn across the floor. And for Micheal himself, he was nowhere to be found. Now I did what I shouldn't have done, and I took some evidence from the crime scene... Those are some of the papers you hold here, others I managed to get hold of at your request."
 
 INT - "I see... These are copies of the original text. You said I can take them right?... Anything else?"
 
-FS - "We wanted to open up an investigation on the disappearance of our colleague... But another agency was quick to step in... FBI."
+FS - "We wanted to open up an investigation on the disappearance of our colleague... But another agency was quick to step in... FBI. To be honest, after that I wanted to distance myself as much as possible from... that. I had a feeling I would be swimming in foreign waters. That room... Something was really wrong in that room. And Micheal... In hindsight the man was different, but I've never experienced something so... Excuse me."
+
+\*silence\*
 
 INT - "Right... Okay, I'll wrap this up now. I'll take a look at these texts, if you find anything else give me a call."
 
