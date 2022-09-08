@@ -1,4 +1,4 @@
-Many people have expressed an interest in the other stories I have to tell, so here is a story about the Footprint, and my Uncle Peter's disappearance. 
+
 
 You can find the first part of my story here: https://www.reddit.com/r/nosleep/comments/x4cdzt/i_live_on_a_farm_that_is_still_very_much_in_tune/ 
 
@@ -206,7 +206,4 @@ They had all searched, despite the eyewitness account. Little kids calling and c
 "We all got packed off to bed," my father told me. "My parents were white as milk and my aunts and uncles were crying, but they still tucked us all in, boys in one room, girls in another, and told us to stay put. We heard them for hours, calling for Pete, whacking bushes. Then later, way, way, later, we heard them all wailing in the house. I was used to the adults being noisy after us kids had gone to bed, but it was usually singing and laughing and telling stupid stories, but not that night. They knew he'd gone. We all knew he'd gone… "
 
 
-Uncle Pete had disappeared without a trace that day, but not forever. He'd come back. But that day had been just as horrifying as the day he'd disappeared. 
-
-
-This has taken a long time to write and the rest of this tale is also long, so if you want to hear about that day too, let me know :) 
+Uncle Pete had disappeared without a trace that day, but not forever. He'd come back. But that day had been just as horrifying as the day he'd disappeared.
