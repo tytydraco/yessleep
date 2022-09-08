@@ -129,6 +129,8 @@ The more I stared, the more I could make out a vaguely, humanoid face. It was al
 
 This was all yesterday.
 
+When I woke up, all I could see was the blue mist. I didn’t even realize I had woken up until I saw two firefighters rush into the house to rescue me. I’ve been in the hospital ever since. Nobody has been able to identify the mist or where it came from. When I first arrived, the first thing I saw was the image of the Visage. It’s been on every TV in town for the past five hours.
+
 I’m sure this all sounds crazy, I’m sure you people can see about a dozen or so holes in the story, and I’m almost certain I’ve gone in circles a few hundred times already. What matters is that this is all I’ve gone through. *So far*. Could be delusions, could be drugs, I’m even more than willing to be convinced it’s all some prank by Alice. This is the first time I have *ever* told anyone what I have been experiencing, much less expressed through text.
 
-When I first started going on these treks, I was ignorant and incurious, yet safe from any real danger. Now that I’ve crossed the line, I’m not sure if I’ll even have a tomorrow. All I can do now is pray the Visage doesn’t find me awake.
+When I first started going on these treks, I was ignorant and incurious, yet safe from any real danger. Now that it’s crossed into my regular life, I’m not sure if I’ll even have a tomorrow. All I can do now is pray the Visage doesn’t find me awake.
