@@ -1,4 +1,5 @@
 [[PART 1]](https://www.reddit.com/r/nosleep/comments/x2tn6o/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
+[[PART 3]](https://www.reddit.com/r/nosleep/comments/x8kcd8/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 
 Hello again, it's Naissance. Weird name, I know.
 
@@ -255,8 +256,6 @@ STEVENS: Jesus, Clara. It has your fac—
 &nbsp;
 
 ___
-
-&nbsp;
 
 It was difficult to listen to this one. When I first transcribed it, I was still under the assumption that most of these were student projects, or fake. Now doubtful of that, I can’t help but feel horrified when I think of those dark caverns. When I think of that creature— Stevens, he was about to say *face*, wasn’t he? It had Clara’s face. Why would it have her face? I hoped to god that this creature was a hoax. I hoped that my initial assumption was correct. But as I go back through these tapes, the less plausible that conclusion is to me. 
 

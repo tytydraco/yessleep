@@ -49,3 +49,67 @@ Alyssa leaned over the table and whispered to me. “Name, Isabella Evangeline Y
 “I’m sorry, I’m totally convinced that you know your stuff but… *What* war? Who are us?” I asked, still confused.
 
 Alyssa smiled again, her pristine teeth seemingly a bit more pointy than before. “Oh, the demons. We are demons. And we will depose The One Above.”
+
+——
+
+The bell rang and I made the twins promise to explain everything, in intricate detail, to me. They agreed and we went on to our afternoon classes.
+
+After school we met at the statue of the school’s mascot, a red herring (yes, I see the irony), and started to walk home.
+
+“Okay, so… you are demons.” I was still trying to wrap my head around this during the entirety of the afternoon.
+
+“Not just us.” Alyssa made the gesture of a handgun and pretended to fire at me.
+
+“**I** am a demon??!” Needless to say I was shocked beyond belief.
+
+“Not just a demon.” The never-smiling Henrique chimed in, with his soft voice. “*The* demon. You are the daughter of the last monarch in our world.”
+
+“So I’m a demon princess? Oooh, they should make a videogame about me” I joked, but it fell flat with the twins looking at me absolutely unfazed.
+
+“You do realize you have to take all of this seriously when our battle starts for real, right?” Henrique just couldn’t shut up, could he?
+
+“Yeah yeah I’m aware. So what am I? If not a demon princess…”
+
+Alyssa sighed. “Our world is democratic *and* a monarchy. People appoint their candidates, they get elected, they can take the people’s concerns to the monarch, who then has the power to approve or deny the petition.”
+
+“So… you’re not a monarchy neither a democracy?” Alyssa just tiredly stared at me with a ‘please don’t make me explain it again’ face. “Okay, cool. When do I get powers?”
+
+“You have to train.” Henrique’s voice got harder. “They are already inside you, just—“ he trailed off when my foot got stuck on a rock and I fell hard on my knee. “Are you okay?!” He didn’t seem to know what to do to help me.
+
+“Hey, I’m okay. Happens all the time.” I chuckled and got off the ground, dusting my jeans off of dirt. Then I rolled up my sleeve so they could see the bruises. “Most of them I don’t even know where they come from. I remember some; this was in the kitchen cabinet…” i point to a purple spot on my forearm. “I get bruises a lot, but that’s okay, I’m used to it.
+
+My explanation didn’t appear to make the twins relax, eyeing my bruising with suspicion; I rolled back my long sleeve shirt and pretended this was not awkward.
+
+After a few seconds, Henrique’s voice got soft again. “You scraped your knee, didn’t you?”
+
+“No! I mean, yes! I mean, kind of?” I shrugged. “It’s not hurting.”
+
+He took a seemingly expensive handkerchief and dipped some water from a bottle in it, pulling the leg of my jeans gently upward. I let him do it for one simple reason: I lied, it was hurting as hell.
+
+Henrique gently tapped the scrapes on my leg, his handkerchief getting redder as he went. I noticed it had an emblem of some sort in the corner, but I couldn’t read it.
+
+“We should sit down. Don’t want you getting in accidents just for being inattentive”, Alyssa’s voice had a tinge of smugness in it, but I decided to ignore her provocation. Henrique finished his job and rolled the leg of the pants down.
+
+“Thank you, I feel much better.” I told him, and for a split second I could see the shadow of a smile.
+
+“Don’t mention it.” He said, turning away from me, but I could see the tip of his ears were bright red.
+
+“Going back to the important stuff…” Alyssa resumed as if nothing had happened. “You do have your powers, and when you learn how to use them, you could wipe a whole platoon at once.”
+
+“But how do I do that?!” I was frustrated feom all their cryptic answers.
+
+“The journey is different for everyone. For me and Henrique, it was a jigsaw puzzle. Some people compare it to a game of chess. And yet others say it’s a maze. I’m afraid you’ll have to find out on your own.”
+
+“I don’t feel anything of the sort. Are you sure you have the right— WHA—“ I got crudely interrupted when someone pulled my hair from behind jerking my head back and i hear a *CHOP*, like scissors. The momentum made me move forward, and I touched my hair. No. NO. “What the FUCK do you think you are doing?!” I snarled to Henrique.
+
+“Your picture is all over our world.” He explained, playing with the scissors. “We need hair dye and colored contacts to be safe.”
+
+“NO WAY. No, ok? I’m pretty sure you have the wrong person, I’m not special and you just fucking chopped my hair off!” My hair, a shade of orange, was spread like huge tentacles behind the bank. The rest now, instead of my back, ended right on my neck.
+
+“It is for your own safety—“ Henrique insisted.
+
+“I said NO!” As soon as I said it, a medium gush of wind flowed through Henrique’s hair. Alyssa looked confused but then hid it under a huge smile.
+
+“See? You have powers. We will teach you how to. But you have to trust us.” She extended her hand for a handshake.
+
+I took her hand. “No hair dye and no contact lenses though.”
