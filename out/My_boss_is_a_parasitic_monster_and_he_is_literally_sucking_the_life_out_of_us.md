@@ -170,4 +170,4 @@ Oh no. I just looked out at the exit. My dead coworkers are there. I thought the
 
 The guy just came out of the office. He looks dead too. And- *Oh god.* I just heard another announcement on the loudspeaker.
 
-“*Canopy Hydrangea, please come into my office.*”
+“*Canopy Hydrangea, please come into my [office](https://www.reddit.com/r/JulianPageInstitute?utm_medium=android_app&utm_source=share).*”
