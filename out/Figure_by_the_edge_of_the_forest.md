@@ -47,7 +47,7 @@ Wednesday
 
 Dear Diary
 
-Last night I woke up Johnny because of a noic3 by my window when he went outside to check nothing was there  no trace of scratches on the window no footprints in the mud nothing. I'm loosing mg mind
+Last night I woke up Johnny because of a noice by my window when he went outside to check nothing was there  no trace of scratches on the window no footprints in the mud nothing. I'm loosing mg mind
 
 Nat
 
@@ -58,7 +58,7 @@ Sunday
 
 Dear Diary 
 
-I went for a jog in the forest to clear my head something my therapist described me to do along with some anxiety pills I haven't seen the figure nor heard any sounds maybe it was the  stress about the wedding get to me.
+I went for a jog in the forest to clear my head something my therapist described me to do along with some anxiety pills I haven't seen the figure nor heard any sounds maybe it was the  stress about the wedding getting to me.
 
 Nat
 
@@ -74,4 +74,4 @@ I gotten a strange note with my mail, no address no return one either just a let
 Nat
 
 
-With shaking hands I read the last diary entry, with tears falling freely. My sister death was ruled out as a sucide, but why do I have proof of a murder sitting in my hands. as I moved my hand to wipe away the falling tears the pages fell to the floor that's when I noticed the note written in the same red substance behind the  last diary page " 5 minutes " as I looked out my living room window I could see a figure dressed in a black robe with a white mask. with shaking hands I dialed 911, but the only sound I got back from the phone  was " Your time is up"....
+With shaking hands I read the last diary entry, with tears falling freely. My sister's death was ruled out as a sucide, but why do I have proof of a murder sitting in my hands. as I moved my hand to wipe away the falling tears the pages fell to the floor that's when I noticed the note written in the same red substance behind the  last diary page " 5 minutes " as I looked out my living room window I could see a figure dressed in a black robe with a white mask. with shaking hands I dialed 911, but the only sound I got back from the phone  was " Your time is up"....
