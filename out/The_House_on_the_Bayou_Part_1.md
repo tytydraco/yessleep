@@ -5,6 +5,7 @@ It's a pretty long story, but I have to get it out. More people need to know. I 
 My name is Oscar. This happened 8 years ago when I was 17, which means I'm 25 as I'm writing this now. Well, almost anyway.
 A little bit of background regarding my family and the place this all happened.
 I have.. had.. two parents and a younger sister. She was just 11 years old at the time. Her name is Lucy. My father was a rather successful writer, which also meant that he traveled around the country quite a lot - he found it aided his writing to be in the actual city/town/state one of his novels took place in.  And seeing as my mom always worked from home, she decided it would be better for us as a family to join him in his travels wherever he may go, instead of waiting at home for him for months at a time.
+
 Basically, we moved a lot. A fucking lot.
 Anyone who grew up in a similar situation would understand how much it sucks. You can't really make friends at school or build solid relationships with anyone because in a little while you'll be in a whole different state again and that person would be out of your life again, just like that.
 No need to say, school sucked. More for me than the kids who actually lived in whatever town or city in whatever state I found myself in during my school years. It sucks to be the new kid. It sucks even more to be the new kid for multiple times every goddamn year.
@@ -36,6 +37,7 @@ Let me give you an idea of the layout of the house:
 When you walk up to it, you're greeted with a wrap-around porch. I've actually always liked that design on a house, but this one was so old, I wouldn't dare lean on the 100 year old railing. 
 When you enter through the front door, you step into the foyer where the main staircase sits directly infront of you, leading up to the 2nd story. Directly to the left is the living room, which is connected to the kitchen and the dining area a bit further back on the left side. Directly to the right is another door that leads to another rather large room, which my dad turned into his office area and lined it with some of his favorite books.
 A bit farther down on the right side of the stairs, was the 1st floor bathroom. And finally on the other end of the house directly across from the front door (behind the stairs) was the back door, leading to an overgrown and rather derelict backyard with a small dilapidated wooden shed, seemingly equally as old as the house.
+
 When you walk up the stairs you step onto a balcony on the inside that runs along the back wall of the house as well as the right and left side, forming it into a sort of U shape.
 This balcony leads into the three upstairs bedrooms as well as the upstairs bathroom. 
 The bathroom was in the middle as you got up the stairs, my parents' bedroom was to the right, my sister's bedroom was on the front left looking over the front yard, and mine on the back left, looking over the gross backyard. 
@@ -130,9 +132,11 @@ About 30 minutes later, I heard it again. Only, this time, it didn't sound like 
 I tried to hear if I could make out the sounds of my parents' voices. Nothing. Just the stairs.
 It kept getting closer. Climbing the stairs slowly, one by one. And with each step it climbed, it became louder, harder. More urgent. I didn't know what to do. I knew it couldn't be my parents. They wouldn't be back until mid afternoon. Who could it be? An intruder? Was someone watching the house to see when we left so they could break in?
 They weren't being very stealthy because by now the footsteps turned into stomping. Like they were slamming their heels into the wooden floorboards. I could feel it through my bed.
+
 The footsteps came all the way up the stairs, stopped, and took a step towards my room. My door was closed (out of habit) so I couldn't see if there was someone. The footsteps slowed down but came all the way to my door and stopped.
 I held my breath. My eyes fixed on my doorknob. I looked down to the gap between my door and the floor. The unmistakable shadow of two feet was visible at the bottom.
 My doorknob started to rattle slightly. I felt my heart beating in my throat. It started rattling more and more and more. Becoming more violent by the second. I started hyperventilating. Sweat was starting to form on my forehead. 
+
 "This is it," I thought. "This is how I die. By the hands of an intruder, all alone in a massive old house."
 I closed my eyes. I couldn't take it anymore. The rattling doorknob was now accompanied by a deafening banging on the door. I put my hands over my ears. I was about to start screaming when suddenly it went completely quiet. So quiet, I could hear my heart beating through my laboured breaths.
 I opened my eyes. Nothing. My door was still closed. No stranger in my room. No gun to my head.
@@ -158,11 +162,13 @@ I could hear the distinct sound of someone taking a deep breath in, with a scree
 It came from somewhere behind me. 
 
 I got up from my chair, almost involuntarily. I turned and walked, slowly through the dining room, through the living room and into the foyer - the noise getting louder the closer I got. 
+
 I turned my head to see if I could hear where it came from. It dawned on me that it came from directly infront of me - inside my dad's office. I took a step closer to the closed door. I put my ear against the door. What I heard next almost brought tears to my eyes due to sheer fear. 
 Through the laboured, gargling breaths, I could hear what sounded like a whimper. Like a woman crying in pain. I don't know how long I stood there listening. I almost went inside, when it changed. The crying started turning into... laughter. 
 I could feel my eyes starting to water. It just got worse. The almost rhythmic laughter started turning into a cackle. It got louder and louder until I could even hear the gargling noise anymore.
 This time, I didn't fucking dare open the door. I don't know what would've been worse. Opening the door and seeing some witch cackling at me or seeing nothing at all.
 Both would've been equally terrifying. So instead, I turned and ran.
+
 I ran up the stairs, straight to my room. I locked my door and sat on my bed with my knees to my chest. I didn't put my headphones back on. I didn't do anything for the rest of the day. I just sat on my bed as quietly as possible. Listening. 
 I didn't hear anything again for the rest of the time until my parents came home.
 I unlocked the door for them and they hurried inside. It started raining a little while before they got home.
@@ -185,11 +191,13 @@ I was right. It was my sister. But something was very off about her appearance.
 And then I noticed it. Her eyes. Her eyes were completely white! No iris, no pupil. Nothing!
 "Lucy! Can you hear me?! Wake up!"
 Still nothing. 
+
 But then she started moving. Not even moving really, she started shaking. Just her shoulders and her little head. Like she was nodding really fast. Going quicker and quicker until her whole body started to shake. Still not making a sound.
 I didn't know what to do. By this time I sat up in my bed. Finally, I decided to try to snap her out of it. I reached out my hand to put it on her shoulder but right before I could touch her I saw.. it.
 In my doorway, peeking in from the landing, I saw the silhouette of a head with long black strands of hair. This thing was being illuminated by the backlight from the bathroom so I couldn't really make out a face. But what I could see was two white, glowing eyes. Staring right at me. It was hiding the rest of its body behind the doorframe. 
 Without knowing it, I placed my hand on my sister's shoulder. She stopped shaking. I forced my gaze away from the creature in my doorway to look back at her.
 The moment I did, she let out a blood curdling scream. I instinctively pulled my hand away, staring at her, wide eyed. The thing in my doorway stepped fully into the frame. It was hunched over and I could almost make out a slight smile on its face. In a moment Lucy was silent again. I looked behind her and saw the thing turning around to walk away. As it did, I saw what looked like a baby in it's arms. It was a woman. She turned her head and looked at me one more time before she was gone.
+
 "Oscar?" Lucy spoke.
 I looked at her, still in shock.
 "Oscar, where am I? What happened?" Her voice caught in her throat. She started crying.
@@ -203,6 +211,7 @@ My mom looked back down at me. Her eyes asking me if I could help her understand
 "It was just a nightmare, sweetie. It's okay now. Mommy's got you. Let's get you back to bed."
 "No!" Lucy almost shouted. "I don't want to go back. Can I sleep with you and daddy tonight, please?"
 "Of course, dear. Let's go."
+
 She turned and walked towards my door. 
 "Could you close my door please, mom?"
 She said nothing. Just flicked the light back off as she slowly closed my door.
@@ -229,6 +238,7 @@ She replied with a smile but I could see the worry in her eyes.
 I decided to go check up on him myself. I grabbed a cup of coffee to bring to him.
 I knocked on his office door and, to no surprise, he didn't answer. I decided to just go in.
 He wasn't busy writing. He wasn't even sitting at his desk. He was sitting on a chair, hunched over and facing the far left corner of the room.
+
 "Hey, dad. I, uhh, brought you a cup of coffee. Mom said that you seemed a bit distracted lately. Wanna tell me what's up?"
 Nothing. I sighed, put the coffee on his desk and was on my way out when I heard him whispering something. I stopped and turned back around.
 "Dad?"
@@ -258,9 +268,12 @@ His expression changed as if he was trying to recall a distant memory.
 "I was just, uhm, taking a little break from writing. I haven't been feeling.. myself lately."
 "Mom mentioned that you've been withdrawn. Do you feel sick or something? Do you need to go to the doctor?"
 He forced a smile. Probably something he learned from my mom.
+
 "Oh, no, son. That's not necessary. I'm sure I'll be fine. Maybe I just need to get some more rest. I'll try again next week," he said as he got up and glanced at his open laptop.
 I walked with him to his room and asked him if he needed anything. He said that he just wanted to be left alone for a while. 
 I was very worried. I've never seen my dad like this. He could be a serious man at times, but usually he was very easy going and quite fun to be around. 
 
 I went downstairs to my mother who was busy doing the dishes. I told her about what had happened in my dad's office. When I told her about what he had been whispering, she actually dropped the plate she was busy drying.
 We were both very concerned and decided to give it a couple of days and if he doesn't get better, we have to get him some help. This change was way too sudden, and considering the batshit crazy stuff I had experienced in that house up until that point, I wasn't taking it lightly.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/x9c1yf/the_house_on_the_bayou_part_2/)
