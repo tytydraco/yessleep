@@ -78,11 +78,7 @@ We had gone from hanging out almost every day to barely talking, and I figured i
 
 Making a fool out of myself, it was. 
 
-Sam lived in a large build with ivy crawling up red-brick. It was fancy. The house was old. Victorian maybe. I think Sam said it was Victorian. It looked damn good, with a red brick structure, an awkward roof and big, wide windows. A worn red fence surrounded the place, cutting the little house from the rest of the small cul-de-sac.
-
-There was no yard, except from a small patch of grass which looked abandoned. I remembered freshman days, sitting under the late glow of the sun, the two of us spread out on a worn picnic blanket watching the July 4th fireworks in the sky.
-
-Before I could hesitate, I knocked three times. The window’s were dark, so that wasn’t exactly comforting.
+Sam lived in a large build with ivy crawling up red-brick. It was fancy. The house was old and crumbling, but cosy. I remembered freshman days, sitting under the late glow of the sun, the two of us spread out on a worn picnic blanket watching the July 4th fireworks in the sky. Before I could hesitate, I knocked three times. The window’s were dark, so that wasn’t exactly comforting.
 
 Sam used to leave the door open so I could slip in whenever I wanted. Seeing it locked in front of my face made my stomach twist. Sure, it was midnight.
 
