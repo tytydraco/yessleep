@@ -42,7 +42,7 @@ The next morning, as I shuffled into the bathroom, my eye happened across this b
 
 When pressed, Glen held his hand behind his back and tried to distract me by insisting I should read the five-hundred-page study he WhatsApped me.
 
-Using my height/weight advantage—let’s just say the kids in my English class didn’t call me ‘Hagrid’ for nothing—I wrestled Glen’s hand out of hiding.
+Using my height/weight advantage—let’s just say the kids in my English class didn’t call me ‘Grizzly Adams’ for nothing—I wrestled Glen’s hand out of hiding.
 
 A string was tied around the base of his forefinger, so tight the digit had inflated to triple its regular size. It quickly deflated once I pulled the thread loose.
 
