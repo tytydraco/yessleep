@@ -1,8 +1,8 @@
 *An eye for an eye, a tooth for a tooth. Five lovers slain, five dark lessons to learn.*
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/x4bxtt/i_found_every_girlfriend_ive_ever_had_lined_up/) I awoke to find **every girlfriend** I've ever had lined up **dead** on my living room floor. Then came [the photos](https://i.redd.it/wpe286mlail91.jpg) and the twisted game.
+[[Part 1]](https://www.reddit.com/r/nosleep/comments/x4bxtt/i_found_every_girlfriend_ive_ever_had_lined_up/) I awoke to find **every girlfriend** I've ever had lined up **dead** on my living room floor. Then came [the photos](https://i.redd.it/wpe286mlail91.jpg) and the twisted game.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/x5kl0v/i_found_every_girlfriend_ive_ever_had_lined_up/) My **worst fear** realised as the game took a menacing turn.
+[[Part 2]](https://www.reddit.com/r/nosleep/comments/x5kl0v/i_found_every_girlfriend_ive_ever_had_lined_up/) My **worst fear** realised as the game took a menacing turn.
 
 *
 
@@ -211,3 +211,5 @@ The big problem we have now that we've gathered all of this material is what the
 Final part to follow.
 
 — Stu(mped)
+
+[[Part 4]](https://www.reddit.com/r/nosleep/comments/x92ztn/i_found_every_girlfriend_ive_ever_had_lined_up/?)

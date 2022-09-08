@@ -1,7 +1,8 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/x6ptk0/i_stole_a_purse_now_im_running_for_my_life_part_2/)  
-
+[Part 2](https://www.reddit.com/r/nosleep/comments/x6ptk0/i_stole_a_purse_now_im_running_for_my_life_part_2/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/x845t3/i_stole_a_purse_my_body_is_no_longer_under_my/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/x91qfi/i_stole_a_purse_what_i_found_inside_is_taking_me/)
 
 I looked down into the leather purse I’d stolen.
 

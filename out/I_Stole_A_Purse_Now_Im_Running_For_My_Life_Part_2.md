@@ -1,7 +1,8 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/x5vxq3/i_stole_a_purse_part_1/)  
-
+[Part 1](https://www.reddit.com/r/nosleep/comments/x5vxq3/i_stole_a_purse_part_1/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/x845t3/i_stole_a_purse_my_body_is_no_longer_under_my/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/x91qfi/i_stole_a_purse_what_i_found_inside_is_taking_me/)
 
 The tapping on the door intensified. The squeaky doorknob twisted. I crept out of the bathroom–
 
