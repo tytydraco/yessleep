@@ -4,6 +4,8 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/x91qfi/i_stole_a_purse_what_i_found_inside_is_taking_me/)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/x9xe0i/i_stole_a_purse_ill_never_sleep_again_after_what/)
+
 During the rickety elevator ride to her apartment, Thys made a phone call. She spoke angrily to a tired man on the other end of the line in a language that I guessed was Arabic. When finished, she turned to me and smiled.
 
 “Your paperwork is on the way. I hope you like the name Mateo.”

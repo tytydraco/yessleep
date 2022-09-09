@@ -4,6 +4,8 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/x91qfi/i_stole_a_purse_what_i_found_inside_is_taking_me/)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/x9xe0i/i_stole_a_purse_ill_never_sleep_again_after_what/)
+
 The tapping on the door intensified. The squeaky doorknob twisted. I crept out of the bathroom–
 
 *“Careful.”* The black worm inside my head warned. *“If she sees your shadow, she’ll just shoot you through the door.”*

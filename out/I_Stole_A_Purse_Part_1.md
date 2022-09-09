@@ -4,6 +4,8 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/x91qfi/i_stole_a_purse_what_i_found_inside_is_taking_me/)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/x9xe0i/i_stole_a_purse_ill_never_sleep_again_after_what/)
+
 I looked down into the leather purse I’d stolen.
 
 Not only was the designer label fake, but there wasn’t a single billfold or bit of jewelry inside.
