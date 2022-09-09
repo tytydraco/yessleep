@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 6726
+file count: 6727
 
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
 * [10 Years ago I survived an airplane crash What I saw there scarred me for the rest of my life  Day 1](out/10_Years_ago_I_survived_an_airplane_crash_What_I_saw_there_scarred_me_for_the_rest_of_my_life__Day_1.md)
@@ -1025,6 +1025,7 @@ file count: 6726
 * [has anyone ever had sleep paralysis get too real](out/has_anyone_ever_had_sleep_paralysis_get_too_real.md)
 * [Has anyone ever played hide and seek with a god Part 1](out/Has_anyone_ever_played_hide_and_seek_with_a_god_Part_1.md)
 * [Has anyone experienced this](out/Has_anyone_experienced_this.md)
+* [Has anyone heard of a streamer named BadBeaver69](out/Has_anyone_heard_of_a_streamer_named_BadBeaver69.md)
 * [Has anyone heard of the LeftRight Game Part 10Final](out/Has_anyone_heard_of_the_LeftRight_Game_Part_10Final.md)
 * [Has anyone heard of the LeftRight Game Part 1](out/Has_anyone_heard_of_the_LeftRight_Game_Part_1.md)
 * [Has anyone heard of the LeftRight Game Part 2](out/Has_anyone_heard_of_the_LeftRight_Game_Part_2.md)
@@ -1189,8 +1190,8 @@ file count: 6726
 * [How I learned about something that I really fucking wish Id never known](out/How_I_learned_about_something_that_I_really_fucking_wish_Id_never_known.md)
 * [How long had the watching man stood there for](out/How_long_had_the_watching_man_stood_there_for.md)
 * [How me and my friends sneaked into the biggest naval base of the country](out/How_me_and_my_friends_sneaked_into_the_biggest_naval_base_of_the_country.md)
-* [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
 * [How the sausage is made](out/How_the_sausage_is_made.md)
+* [How the Sausage is Made](out/How_the_Sausage_is_Made.md)
 * [How the Scarecrow Died](out/How_the_Scarecrow_Died.md)
 * [How TikTok helped me save a kid from trafficking](out/How_TikTok_helped_me_save_a_kid_from_trafficking.md)
 * [How to access the Forbidden Wiki](out/How_to_access_the_Forbidden_Wiki.md)
@@ -1638,8 +1639,8 @@ file count: 6726
 * [I found a strange book in a clients library Now Im not sure Ill make it out alive](out/I_found_a_strange_book_in_a_clients_library_Now_Im_not_sure_Ill_make_it_out_alive.md)
 * [I found a strange notebook in my car after getting fired from my job](out/I_found_a_strange_notebook_in_my_car_after_getting_fired_from_my_job.md)
 * [I found a strange vase at an antique shop](out/I_found_a_strange_vase_at_an_antique_shop.md)
-* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
+* [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I found a usb stick  The Long Face](out/I_found_a_usb_stick__The_Long_Face.md)
 * [I found a VHS in a VCR I boughtI wish I hadnt hit play](out/I_found_a_VHS_in_a_VCR_I_boughtI_wish_I_hadnt_hit_play.md)
 * [I Found A Video Disc At An Abandoned Moon Base](out/I_Found_A_Video_Disc_At_An_Abandoned_Moon_Base.md)
@@ -1787,8 +1788,8 @@ file count: 6726
 * [I had the chance to see my husband one last time through a dream I wish I never did](out/I_had_the_chance_to_see_my_husband_one_last_time_through_a_dream_I_wish_I_never_did.md)
 * [I had to burn it](out/I_had_to_burn_it.md)
 * [I Had To Bury My Boy](out/I_Had_To_Bury_My_Boy.md)
-* [I Had To Follow A Strange Set Of Rules While Petsitting](out/I_Had_To_Follow_A_Strange_Set_Of_Rules_While_Petsitting.md)
 * [I Had To Follow A Strange Set Of Rules While PetSitting](out/I_Had_To_Follow_A_Strange_Set_Of_Rules_While_PetSitting.md)
+* [I Had To Follow A Strange Set Of Rules While Petsitting](out/I_Had_To_Follow_A_Strange_Set_Of_Rules_While_Petsitting.md)
 * [I had to stand in a circle twice in a day and I think Im traumatized](out/I_had_to_stand_in_a_circle_twice_in_a_day_and_I_think_Im_traumatized.md)
 * [I hate leaving my dog alone at home](out/I_hate_leaving_my_dog_alone_at_home.md)
 * [I hate my mothers mannequins](out/I_hate_my_mothers_mannequins.md)
@@ -2363,8 +2364,8 @@ file count: 6726
 * [I think the clouds are trying to tell me that something is coming](out/I_think_the_clouds_are_trying_to_tell_me_that_something_is_coming.md)
 * [I Think There is A Reason No Ones Heard of the Breaking Wheel Cartel](out/I_Think_There_is_A_Reason_No_Ones_Heard_of_the_Breaking_Wheel_Cartel.md)
 * [I think there is someone outside my house](out/I_think_there_is_someone_outside_my_house.md)
-* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
+* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
