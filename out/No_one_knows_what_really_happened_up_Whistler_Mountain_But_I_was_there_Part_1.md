@@ -60,7 +60,7 @@ Chopper: "Can’t say I do, Rose. I’m from out of state. But if I am nearby, t
 
 Rose: "I see. So how come you’re not driving, Chopper? Are you on a rest stop? Over."
 
-Chopper: "Yeah, somethin’ like that. Say, tell me if I’m crossing the line here, but I’m curious. A beautiful evening, your sweetheart goes for a stroll along the mountainside and you stay in the cabin to play with an old radio? Everything all right up there? Over."
+Chopper: "Yeah, somethin’ like that. Say, tell me if I’m overstepping the mark here, but I’m curious. A beautiful evening, your sweetheart goes for a stroll along the mountainside and you stay in the cabin to play with an old radio? Everything all right up there? Over."
 
 Rose: "It’s okay that you ask, Chopper. I suppose it’s not hard to tell that something’s up. Michael and I had an argument. A bad one. Over."
 

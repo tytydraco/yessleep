@@ -72,6 +72,8 @@ Chopper: "You – you really want to help me?"
 
 Rose: "Yes. And if you tell me everything, I might just be able to."
 
+Chopper nodded.
+
 Chopper: "Heist was a museum bust. Van is full of paintings, gemstones, stuff like that. When he got nearby the other driver was supposed to call for ‘Chopper’ over the CB, say he’d come from the ‘Blue Hen State’. I had to answer ‘Never been but I hear the burgers are great.’"
 
 Rose: "Then what?"
@@ -96,7 +98,7 @@ Chopper: "You got yourself a deal, ma’am. I promise."
 
 Rose: "Let’s get back to the cabin. We’ll check the radio and go from there."
 
-And with that they headed back towards the cabin. A terrible, final mistake.
+And with that they headed back towards the cabin. A final, terrible mistake.
 
 *
 

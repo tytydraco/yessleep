@@ -20,11 +20,11 @@ Chopper: "Stop right there, Rose. We need to have a little talk."
 
 Rose: "Oh God, please don’t shoot me. I’ve done everything you told me to do."
 
-Chopper: "The shooter is just a precaution, to make sure you —"
+Chopper: "The shooter is just a precaution, to make sure you—"
 
 Rose: "Have you shot Michael?"
 
-Chopper: "No, I haven’t shot anyone. I want you to —"
+Chopper: "No, I haven’t shot anyone. I want you to—"
 
 Rose: "Why do you have a van? You said you had a truck?"
 
@@ -38,7 +38,7 @@ Rose: "So … what's going on? Why are you here?"
 
 Chopper: "All you need to know is that I need a place to lay low for a while."
 
-Rose: "But Michael still isn’t back. He won’t know what’s going on if he sees you with a gun, what if —"
+Rose: "But Michael still isn’t back. He won’t know what’s going on if he sees you with a gun, what if—"
 
 Chopper: "We’ll talk about that soon, Rose. Right now we got work to do."
 
@@ -172,7 +172,7 @@ Chopper: "Last I heard she’d set up on the east coast. Works in a laundromat, 
 
 Rose: "Have you ever thought of going to see her, telling her you’re sorry?"
 
-Chopper: "Sometimes. A lot as a matter of fact. But if I ever do show up on her doorstep I don’t wanna be the same lowlife I was before. I wanna have money in the bank, I want Lori to know that I can look after her, treat her right. I guess that’s kinda why I’m doing this job."
+Chopper: "Sometimes. A lot as a matter of fact. But if I ever do show up on her doorstep I don’t wanna be the same broke lowlife I was before. I wanna have money in the bank, I want Lori to know that I can look after her, treat her right. I guess that’s kinda why I’m doing this job."
 
 Rose: "If you need money to impress Lori, why didn’t you just take mine?"
 

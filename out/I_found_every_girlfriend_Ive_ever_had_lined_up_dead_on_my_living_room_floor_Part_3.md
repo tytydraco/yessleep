@@ -182,7 +182,7 @@ Me: “Okay, just don’t – don’t hurt her. Please.”
 
 Caller: “Good boy. Now, you’re going to come to the university campus, to the Humanities building. Your next task is waiting for you on the roof.”
 
-Me: “But all that way, what if the police–”
+Me: “But all that way, what if the police—”
 
 Caller: “No dawdling. Be there by 5pm. You know what will happen to Alex if you defy me. And dump your phone, bring Alex’s instead. Bring the knife too. Do you understand?”
 

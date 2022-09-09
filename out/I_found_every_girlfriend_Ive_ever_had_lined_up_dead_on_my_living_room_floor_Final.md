@@ -242,7 +242,7 @@ I've decided that I'm going to listen.
 
 I'll hand myself in first thing tomorrow morning. MM is going to go to the police station in Pitwell and give a statement in support of me as well. If we can just get the police to believe us then they will have a real chance of solving not just the Student Ripper murders, but the [Whistler Mountain killings](https://www.reddit.com/r/nosleep/comments/wzqzy7/no_one_knows_what_really_happened_up_whistler/) as well.
 
-All that remains is to ask you to stay vigilant whilst I'm in custody. Rose is still out there, and there's no telling what she'll do or where she'll strike next.
+All that remains is to ask you to stay vigilant. Rose is still out there, and there's no telling what she'll do or where she'll strike next.
 
 Take care,
 
