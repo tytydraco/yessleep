@@ -18,3 +18,18 @@ Another night, they left, and I searched the house. The attic is empty, their ro
 I decide to check the source of all horror in any house, the basement. I walk down the steps, and I see nothing and hear nothing, as well. But as I walk down the steps, I notice something I had never thought would be here. A door under the basement stairwell. It smells awful, and I can already tell I’m gonna piss myself walking in there. 
 
 My heart beats like a machine gun with a sticky trigger, and I reluctantly open. The room is empty. Or is it? As I really focus on the walls, I notice…. hooks? Chains? That’s when I notice two things. One thing was a person on a rack on the end of the room. He was strung up with old wire, and was smiling a horrible, forced unnaturally smile, and was smeared in blood, and his eyes were… in his open mouth. The second thing? My parents unlocking the door to get in. And when they walked in the door, my mind finally clicked, and the switch turned on. That’s when I connected the dots. The red glitter in my “sisters” hair isn’t glitter. It’s blood.
+
+
+
+
+
+
+
+
+
+
+
+
+https://www.reddit.com/r/nosleep/comments/x8z8ja/ive_been_blind_since_i_was_eight_but_i_recently/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+
+Link to part 2
