@@ -1,3 +1,4 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/x9c152/the_house_on_the_bayou_part_1/?utm_medium=android_app&utm_source=share)
 
 That night I had another restless sleep. I kept having the same recurring dream.
 I dreamt that I woke up standing at the top of the stairs. Looking down at my feet, I saw that I was standing over two wet footprints, coming out of the bathroom behind me, going down the stairs. I followed them down and, at the bottom, they turned around, into the hallway, past the kitchen and out the back door.
@@ -11,24 +12,27 @@ Just as I'm about to run into the shed, the dream ends. Every single time.
 
 I woke up in a cold sweat. It was still dark outside but the sun was coming up soon. I checked my phone. It was 05:15 am.
 I got up to get a glass of water from the kitchen. I walked back upstairs sipping my water when my mom peeked out of her room.
+
 "Edgar? You feeling bet... oh, Oscar dear. Have you seen your dad? He said he wasn't feeling well and he went to get something to drink. You didn't see him in the kitchen?"
 "No, I didn't see anyth.. oh god."
-
 Just then I remembered that I saw something that didn't immediately register to me in my sleep deprived state. 
 The back door was open.
 My mom could see the panic on my face. It spread to her like a contagion. Just then, we heard a loud SLAM coming from the backyard. 
+
 I already knew what was happening, but I refused to believe it. I thought I'd woken up. In the dream I couldn't feel my body. This time, I could feel every beat of my heart. The hair on my neck standing up. The cold air blowing in from the back door.
 Time slowed down. I watched my mom running, almost leaping, down the stairs. I watched the glass of water fall from my hands and shatter into pieces on the floor by my feet.
 I snapped out of it.
 I ran down the stairs and out the back door to my mother, who was banging on the door to the shed. Crying out, "Ed! Ed! Please! Open the door, Ed! Just open it!" It wouldn't budge.
 
 I stood back, took a running start and slammed into the door with the full weight and force of my body. It felt like the door somehow reciprocated my energy and pushed me back, causing me to land on the ground on my back. I was just about to get up again when the doorknob twisted by itself and slowly the door creeked open.
+
 And there, illuminated only by the light of the rising sun, was my dad. Hanging by a rope, suspended from the almost rotten roof. His neck, broken into a gruesome angle.
 My mother let out an earth shattering scream. The kind of scream only ever heard when a human realizes that someone they love dearly, had died. I never want to hear that sound again. It will stay with me until the day I die.
 All I could do was stare silently, in total shock of what I'm seeing. This time the dream didn't end. This time it was real. It was never a dream. 
 
 
 The funeral was just a few days later. He was a beloved writer, so there were quite a few people in attendance. I spent that day and the days leading up to it trying my best to take care of my mom and sister. Oh, Lucy. I'm so glad she didn't see what we saw. She didn't understand what was happening. 
+
 As for me, Angela tried her best to console me as much as she could from so far away. I've been telling her every detail of what was happening. She's been nothing but supportive. 
 After the funeral we were on our way home again. I didn't want to go back to that fucking house. I knew that whatever was happening there, wasn't over. But with my father gone, we have to move again soon. We just needed to find a place and then we could be on our way.
 
@@ -102,14 +106,15 @@ I practically leaped down the stairs after grabbing my lantern from the bathroom
 "Keys, keys, keys. Where are the goddamn keys?!" I whispered to myself.
 "Got them!"
 I turned and went towards the front door. I was in the foyer busy unlocking the front door when I heard a loud bang followed by my mom screaming.
-I turned to look where the noise came from. I saw that it was my sister's bedroom door that slammed shut. The doorknob was rattling and I could hear my mom's panicked screaming as she was banging against the door trying to open it.
 
+I turned to look where the noise came from. I saw that it was my sister's bedroom door that slammed shut. The doorknob was rattling and I could hear my mom's panicked screaming as she was banging against the door trying to open it.
 I ran towards the stairs to help them. I managed to get about halfway up the stairs when I got grabbed by the neck and picked up. I was hanging about 3 feet off the ground. I looked down to see who or what was busy choking me. I struggled to see because when I got grabbed, I dropped my latern, but I could make out the shape of a man. A very large man with very little facial features. In the small amount of light I could see that he had abnormally long arms and legs. His fingers had to be very long too because they wrapped around my neck entirely. His skin was very dark. Almost black. He didn't seem to have a mouth and where his nose was supposed to be, there was only blackness. Like it had rotten away. And the smell. Oh god, the smell. I'll never forget that stench.
 
  It was the same stench as the first day we moved in. The only things I could see cleary were his eyes. They were abnormally large and sort of elongated. They were completely white. The same as Lucy's eyes were on that night. His neck was also bent into a disgusting angle.
 I tried to free myself but to no avail. It pulled me closer towards it's face. That's when I could make out that he did in fact have a mouth, but it was covered by a layer of skin. Like it was sewn shut where his lips should have been. It started streching like he was opening his mouth behind the skin. The next moment he let out a deafening scream right infront of my face. 
 
 I reciprocated.
+
  He tightened his grip around my neck. I felt my legs getting weaker. I tried kicking him but I had no power. 
 Everything happened in a few seconds but it felt like an eternity. 
 I started seeing stars. I knew I was passing out from his grip. The world around me started getting darker and darker. The desperate screams from my mom and sister, became muffled echoes.
@@ -140,8 +145,8 @@ Just as I turned around to make my way outside, I heard a loud bang, followed by
 I looked up to see that the door to my sister's room is completely ripped off. Like a grenade had exploded right next to it.
 The force was so strong that it nearly pushed my mom over the balcony. 
 Seconds later, the loudest shriek I'd ever heard erupted from inside my sister's bedroom. It was so loud I thought my eardrums would burst.
-
 And then, through the smoke and splinters surrounding my sister's bedroom door, the creature emerged. It was that same woman I saw that night my sister came to my room. My mother and I both froze. All we could do is stare at this thing. She was only standing there for a second, but I could see that she was dragging the lifeless body of a baby girl behind her as she walked.
+
 Her face contorted into a mix of sorrow and hatred when her eyes darted between the creature burning on the stairs,  and me. In one swift motion, she lunged the lifeless baby towards me and dropped to the floor. I actually tried catching the little body, but right before I could grab it, it simply vanished.
 
 Looking up at the balcony again, I saw this woman crawling on al fours towards the top of the stairs; letting out an angry growl of despair every couple of feet.
@@ -151,7 +156,6 @@ Just after, she came bursting out the door with my sister's limp body in her arm
 
 "Drop her down to me, mom! I'll catch her!"
 I had to shout this a few times before she finally snapped out of it. There wasn't time to argue. The smoke started filling the lower floor and the fire was spreading rapidly. Without another moment of hesitation, my mother gently lowered my sister down to me far enough so I could grab her. I threw her over my shoulder and ran outside. I put her in the back of the car and ran back inside to help my mom.
-
 I wasn't fast enough. Right as I stepped back inside, my mother jumped down from the balcony. She landed badly and I knew she broke something in her right foot. 
 I immediately ran to help her up.
 "I got you, mom. Come on, we gotta go!"
@@ -193,10 +197,9 @@ Eventually Evelyn figured that if the church couldn't give her what she wanted, 
 Eventually though, it worked. She got pregnant. Karl was so happy, he didn't even bother questioning how it happened. At first.
 
 Many months into the pregnancy though, he became suspicious. He started thinking if he wasn't perhaps the reason she couldn't get pregnant in the first place. Perhaps she'd been unfaithful and found another man who could give her the child they wanted.
-
 His suspicion grew every time he saw her. Until he couldn't take it anymore. One night after a few drinks, it finally surfaced. He confronted Evelyn about it. By this time, she too was feeling very guilty and afraid about what she'd done to become pregnant. In hindsight she regretted her decision and she admitted everything to Karl.
-Karl, being a deeply religious man, went into a fit of rage. In his drunken anger, he became violent. Screaming and cursing at his wife, until words weren't enough to quench his rage. He threw her out of their bedroom and pushed her down the stairs.
 
+Karl, being a deeply religious man, went into a fit of rage. In his drunken anger, he became violent. Screaming and cursing at his wife, until words weren't enough to quench his rage. He threw her out of their bedroom and pushed her down the stairs.
 Filled with immediate regret, he raced down the stairs. But it was too late. Evelyn had broken her neck on the fall and a pool of blood began to form between her legs.
 
 Realizing what he'd done, Karl ran into the backyard, went into their wooden shed, and hung himself from it's roof. Cursing himself to an eternity of torment before doing so.

@@ -275,3 +275,5 @@ I was very worried. I've never seen my dad like this. He could be a serious man 
 
 I went downstairs to my mother who was busy doing the dishes. I told her about what had happened in my dad's office. When I told her about what he had been whispering, she actually dropped the plate she was busy drying.
 We were both very concerned and decided to give it a couple of days and if he doesn't get better, we have to get him some help. This change was way too sudden, and considering the batshit crazy stuff I had experienced in that house up until that point, I wasn't taking it lightly.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/xa84xc/the_house_on_the_bayou_part_2/?utm_medium=android_app&utm_source=share)
