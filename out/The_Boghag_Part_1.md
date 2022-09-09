@@ -31,6 +31,3 @@ Thinking quickly, she threw a pouch of angel dust into the air near the creature
 With a flourish, she produced a vial of stomach acid rendered from the head of a three-headed crocodile. The creature's eyes went wide as the realization dawned on her, and Jo dumped the contents of the vial into the open cuts. She exploded into a mess of bloody, swampy bits, and Jo was knocked back by the force into a tree. She lost consciousness in the morass as the surviving officers shouted orders.
 
 Jo woke up in a hospital bed, clean of all the filth & gunk from her latest adventure, and all fingers intact. Another job...done at least, but not well, though she didn't feel too bad about losing a few cops. At least the kids would be safe. She got up, grabbed her stuff, and checked out of the hospital, ready to face the next nightmare.
-
-
-*EDIT: Sorry, not a series. It's long, so I thought I'd break it up, but the rules weren't my friend. Maybe it still can be though - if y'all like it, then I can recount the tale of a different creature for part 2.
