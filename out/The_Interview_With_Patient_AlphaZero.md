@@ -55,7 +55,7 @@
 "No problem. Sorry, please continue."
 
 
-"They tested on him for weeks. He was strapped to a table the entire time. They changed his drip bag that was filled with experimental drugs every six hours. Each bag contained a different strain. They never thought that their very first candidate would be a complete success. They sent him out in the field for more tests, building up his endurance and pushing the limits. The final test was to gauge how many bullets the superhuman would be able to withstand, and locations of the body which could handle more impacts and injuries....he absorbed 46 rounds all over his body, barring the head and heart."
+"They tested on him for weeks. He was strapped to a table the entire time. They changed his drip bag that was filled with experimental drugs every six hours. Each bag contained a different strain. They never thought that their very first candidate would be a complete success...Patient A-0. They sent him out in the field for more tests, building up his endurance and pushing the limits. The final test was to gauge how many bullets the superhuman would be able to withstand, and locations of the body which could handle more impacts and injuries....he absorbed 46 rounds all over his body, barring the head and heart."
 
 
 *"And he survived?!"*

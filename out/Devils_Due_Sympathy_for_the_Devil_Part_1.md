@@ -146,3 +146,5 @@ Once more, with feeling
   "Go," he said softly, with the words somehow whispering directly into my ear. 
 
   I felt my eyes begin to well up as my mind flashed back to the last time I stared back through this opening, with that same single word being spoken to me. As I had last time, I swung the door shut, uncertain if the one I left behind had a hope of surviving. Of course, given my suspicions of his identity, I was certain a little wormhole of darkness was nothing he couldn't handle, but as always, these things were far above my pay grade.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/xa6ajn/devils_due_sympathy_for_the_devil_part_2/?utm_medium=android_app&utm_source=share)
