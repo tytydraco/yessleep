@@ -102,7 +102,7 @@ Rose: “I’m not. I had my fingers crossed when I promised I would – cheated
 
 Me: “You lying—”
 
-Rose cut me off with a cruel laugh. 
+Rose cut me off with a cruel laugh. I clenched my free fist.
 
 Me: “If you hurt Alex I’ll rip your head off.”
 
