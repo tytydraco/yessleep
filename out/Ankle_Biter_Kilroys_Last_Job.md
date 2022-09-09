@@ -4,7 +4,7 @@ Whenever we had a job, she was always, always late. This night was no different.
 
 I rhythmically rapped my fingers against the steering wheel , glancing back and forth between the hotel’s entrance and the dashboard clock. 
 
-It was nearly 20 minutes past our scheduled meet time. Any minute now she’d come barreling through the front doors of the swanky five star joint where our employers put her up, black coffee in one hand and black briefcase in the other. 
+It was nearly 20 minutes past our scheduled meet time. Any minute now she’d come barreling through the front doors of the swanky five star joint where our employer put her up, black coffee in one hand and black briefcase in the other. 
 
 She’d get in the passenger’s seat without a word and fuss with her dirty blond ponytail and huff and puff like it was my fault she wasn’t on time, and god help me if I opened my mouth. It wasn’t worth it.
 
@@ -20,9 +20,9 @@ Kilroy juggled the coffees and briefcase and opened the passenger door, sliding 
 
 Wordlessly, she thrust one of the coffees in my direction. 
 
-Oh, uh, thanks.” I said, surprised. For someone with Kilroy’s personality, this felt like an act of uncharacteristic warmth, 
+“Oh, uh, thanks.” I said, surprised. For someone with Kilroy’s personality, this felt like an act of uncharacteristic warmth, 
 
-She ignored me, and flipped open the ebony briefcase , sipping her coffee and she thumbed through the papers within. Those papers the info on the job. 
+She ignored me, and flipped open the ebony briefcase , sipping her coffee as she thumbed through the papers within. The papers with the info on the job. 
 
 The info on the person we were supposed to kill. 
 
@@ -56,7 +56,7 @@ The first  was an older, well off looking woman. She wore a garish dress and the
 
 She wasn’t quite the most harmless looking person I’d ever killed, but it was close. Like I said though, it’s a waste getting caught up in that. For whatever reason, this was someone Detlev needed done and we were on his dime, so we’d do her. 
 
-I I moved on to the second photo, nestled behind, and for the first time in years and years and years, I was truly given pause. 
+I moved on to the second photo, nestled behind, and for the first time in years and years and years, I was truly given pause. 
 
 In the photo was a little boy. No more than four, maybe five years old. Grinning ear to ear and hugging an old timey tin-toy robot to his chest, a massive Christmas tree making up the photo’s background. 
 
@@ -66,7 +66,7 @@ I stared up at Kilroy, who was still nonchalantly sipping her coffee, incredulou
 
 I knew that, and she knew that I knew that. In the first month that I’d been in Detlev’s employ, Kilroy and I had done a middle aged soccer mom while her kids slept in their rooms above us. 
 
-And even before I’d entered Detlev’s employ, it’s not like I had some kind of self-deceptive moral code about who I would or wouldn’t kill. I had no misconceptions about who I was, the things I’d done. I wasn’t in the business of lying to myself. I was in the business of killing. 
+And even *before* I’d entered Detlev’s employ, it’s not like I had some kind of self-deceptive moral code about who I would or wouldn’t kill. I had no misconceptions about who I was, the things I’d done. I wasn’t in the business of lying to myself. I was in the business of killing. 
 
 A kid though. An actual, literal child. Maybe this was a line I couldn’t cross. It would’ve been something I’d have wanted to think on, normally. Something I’d like the chance to turn down. 
 
@@ -124,7 +124,7 @@ Kilroy glanced at me. I nodded and drove past the mansion, eventually pulling th
 
 “We should be able to get in through the back,” Kilroy said as she exited the car. 
 
-I followed silently, popping the trunk and withdrawing the carrying back that held our tools. Two handguns, a few knives, one shotgun. Nothing too fancy. The jobs were never more than one or two mostly defenseless people at a time, and Kilroy and I were good enough to not need excessive firepower. 
+I followed silently, popping the trunk and withdrawing the carrying bag that held our tools. Two handguns, a few knives, one shotgun. Nothing too fancy. The jobs were never more than one or two mostly defenseless people at a time, and Kilroy and I were good enough to not need excessive firepower. 
 
 I slung the bag over my shoulder and handed one of the pistols to Kilroy, who had pulled gloves over her slender hands after exiting the car. 
 
@@ -222,7 +222,7 @@ The creature took a few timid steps toward the woman’s corpse. “Mommy…” 
 
 I guess Kilroy had more of a killer instinct than even someone like me. It hadn’t taken her long to move on from the inherent horror of this situation, and get back to the job. The job is the job, after all.
 
-Unable to take my eyes off the mourning, faceless, creature I had a perfect view of its faceless head snapping backward in a spray of dark liquid as Kilroy took her shot. 
+Unable to take my eyes off the mourning creature, I had a perfect view of its faceless head snapping backward in a spray of dark liquid as Kilroy took her shot. 
 
 Arthur went flying backward from the impact, slamming into the living room wall. That snapped me out of it. Whatever that thing was, we weren’t safe here. We had been thrust into something that we weren’t prepared for. 
 
@@ -266,7 +266,7 @@ The line went dead.
 
 It was a long shot, but I figured it would work. Detlev would need to know if something went wrong with his two best men. 
 
-Sure enough, after a few tense minutes passed, minutes in which I ever took my eyes off Arthur, the phone rang again.
+Sure enough, after a few tense minutes passed, minutes in which I never took my eyes off Arthur, the phone rang again.
 
 “Taggert.” A commanding, bassy voice on the other end. Detlev.
 
@@ -278,13 +278,13 @@ Sure enough, after a few tense minutes passed, minutes in which I ever took my e
 
 Silence on the other end. 
 
-“Taggert,” Detlev finally broke the silence. “There’s  just certain things in this world that aren’t fit to discuss. Things men do, mistakes men make. When an crazy old flame you haven’t spoken to in years starts incessantly calling you, your places of business, yelling about seeing an illegitimate child that’s been dead for decades… Well you can’t have that, can you?”
+“Taggert,” Detlev finally broke the silence. “There’s  just certain things in this world that aren’t fit to discuss. Things men do, mistakes men make. When a crazy old flame you haven’t spoken to in years starts incessantly calling you, your places of business, yelling about seeing an illegitimate child that’s been dead for decades… Well you can’t have that, can you?”
 
 I said nothing.
 
-He continued. “And even if you *know* this old hag is lying, you *know* that it’s bullshit, well… you still have to put a stop to it, right? And you put your best men on it, just in case. Just on the small, off chance that the little ankle biter, bastard son who drowned in a well all those years ago, really did come back.”
+He continued. “And even if you *know* this old hag is lying, you *know* that it’s bullshit, well… you still have to put a stop to it, right? And you put your best men on it, just in case. Just on the small, off chance that the little ankle biter, the bastard son who drowned in a well all those years ago, really did come back.”
 
-“Yeah.” 
+I considered his words, still not opening my mouth to answer. 
 
 “Now, let me talk to Sasha.”
 
@@ -292,13 +292,13 @@ After a beat, I realized that he meant Kilroy.
 
 “She’s… Kilroy didn’t make it.”
 
-“That truly, truly is unfortunate.” Detlev opined, a seemingly genuine sadness in his voice . “Well, if the job is done, you can go Taggert. The clean up crew will be by shortly to do their job. I knew I could trust you with this Taggert. You’ll be one of my top men for a long, long time.”
+“That truly, truly is unfortunate.” Detlev opined, a seemingly genuine sadness in his voice . “Well, if the job is done, you can go. The clean up crew will be by shortly to do their job. I knew I could trust you with this, Taggert. You’ll be one of my top men for a long, long time.”
 
-Detlev hung up. His story made sense, and the earlier thought I’d had about the other name the old woman had repeated. Roger. 
+Detlev hung up. His story made sense in a twisted way, and the earlier thought I’d had about the other name the old woman had repeated floated back to the front of my mind. Roger. 
 
 Roger Detlev. 
 
-Like I said, I try my best not to know too much about my targets, my associates, my bosses. But being totally clueless is just as dangerous and knowing too much. 
+Like I said, I try my best not to know too much about my targets, my associates, my bosses. But being totally clueless is just as dangerous as knowing too much. 
 
 I knew enough, just enough to keep myself aware. 
 
