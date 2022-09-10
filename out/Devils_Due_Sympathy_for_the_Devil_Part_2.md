@@ -205,3 +205,5 @@ Back to the beginning
   In many ways, I didn't. My life was defined by the hatred I had for my folks, but I needed to know. Would it change how I felt about them or my childhood? Likely not, but I can't deny that the story he told me did make me sad; both at what became of my parents as well as what Tommy and I were forced to endure all those years. 
 
   Sometimes, it's the things that could have been that can inspire far more torment than the way they ended up. 
+
+[Parts 3&4](https://www.reddit.com/r/nosleep/comments/xb1pz2/devils_due_sympathy_for_the_devil_parts_34/?utm_medium=android_app&utm_source=share)

@@ -30,4 +30,4 @@ My heart beats like a machine gun with a sticky trigger, and I reluctantly open.
 
 
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/x8z8ja/ive_been_blind_since_i_was_eight_but_i_recently/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[Part 2](https://www.reddit.com/r/nosleep/comments/xb0j8y/ive_been_blind_since_i_was_8_but_i_recently/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
