@@ -8,11 +8,11 @@ Back to the beginning
 
   Just seeing him behind the bar my friend used to do business in caused my face to redden once more. Not only did I consider it an insult that he was parading around in Grant's meat suit, but he had some nerve just assuming it was alright to act like he owned the place. 
 
-  Though the old man had assured me that Malphas was here to help, I still felt uneasy around the guy. These were feelings I would have to push to the side, though. I had to keep my head right if we were going to get through whatever lay ahead. 
+  Though the old man had assured me that Malphas was here to help, I still felt uneasy around the guy. These were feelings I would have to push to the side, though. I had to keep my head right if we were going to get through whatever lay ahead.
 
-  "Sure," I replied, unable to deny I could use something to take the edge off. 
-  
-  He handed me a fresh and blissfully chilled beer, which inspired me to light up a cigarette to accompany my brooding thoughts. I offered Malphas one, to which he screwed up his face in disgust, holding up his hands as though I'd pulled a gun on him. Yeah, I didn't care for this guy, or whatever he was underneath. 
+  "Sure," I replied, unable to deny I could use something to take the edge off.
+
+  He handed me a fresh and blissfully chilled beer, which inspired me to light up a cigarette to accompany my brooding thoughts. I offered Malphas one, to which he screwed up his face in disgust, holding up his hands as though I'd pulled a gun on him. Yeah, I didn't care for this guy, or whatever he was underneath. 
 
   I wasn't exactly judging him for turning away my offer, as I knew it to be a habit I had to kick one of these days, but his aggravated dismissal only fueled the insult of him being dressed the way he was, so to speak. I knew I had to discuss our plans from here, but I was having a hard time convincing myself to do anything more than puff on my cigarette and nurse my drink in silence. 
 
@@ -104,9 +104,9 @@ Back to the beginning
 
   Other than a few aggravated mutters and many more heavy sighs, the six-hour drive to reach the town I grew up in was less than noteworthy. Being some time in the wee hours of the morning by the time we arrived in the small city that appeared to have not changed in the slightest all these years, I suggested getting some hotel rooms for the night. 
 
-  Malphas grimaced, naturally, claiming we shouldn't delay. Regardless of his protests, he was yawning just as much as I was. Clearly, he was not quite used to the upkeep a human body requires. Either way, I was physically and mentally beat, being not remotely in a fit state to deal with whatever we were looking for, back at the old homestead. My traveling companion reluctantly agreed to my request, and I covered the cost of two rooms for the night in a roadside motel, just off the interstate. 
-  
-  Though we still didn't converse much after loading back up into the truck the following morning, I could tell that my companion was a little more at ease after a night's rest. I didn't make any inquiry as to how he slept or anything, as I neither felt the urge to talk to the man, nor did I expect him to answer with anything short of sarcasm, but the drive to my old home didn't take long at least. 
+  Malphas grimaced, naturally, claiming we shouldn't delay. Regardless of his protests, he was yawning just as much as I was. Clearly, he was not quite used to the upkeep a human body requires. Either way, I was physically and mentally beat, being not remotely in a fit state to deal with whatever we were looking for, back at the old homestead. My traveling companion reluctantly agreed to my request, and I covered the cost of two rooms for the night in a roadside motel, just off the interstate.
+
+  Though we still didn't converse much after loading back up into the truck the following morning, I could tell that my companion was a little more at ease after a night's rest. I didn't make any inquiry as to how he slept or anything, as I neither felt the urge to talk to the man, nor did I expect him to answer with anything short of sarcasm, but the drive to my old home didn't take long at least. 
 
   The entire street I used to live on was deserted and dilapidated; something that caught me by surprise, truth be told. On one hand, I was glad to not have to face any of my neighbors from back in the day, who likely would still see me as a cold-blooded murderer and nothing more. On the other, it made my return even more painful than I had anticipated. 
 
