@@ -89,7 +89,7 @@ As I was about to enter the elevator to go down to the first floor, it began to 
 
 I stood there in utter shock, unable to move.
 
-Somehow though, I built up enough courage to turn around and that's when I saw the ghost of the nurse gliding toward me.
+Somehow though, I built up enough courage to turn around and that's when I saw the ghost of the nurse gliding towards me.
 
 Unable to move, she approached me and within a blink of an eye placed her hand (which was somehow solid) on my shoulder.
 
