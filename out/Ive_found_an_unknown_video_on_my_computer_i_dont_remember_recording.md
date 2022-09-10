@@ -40,4 +40,4 @@ The image that's been stuck in my mind for the past 2 days, My daughter's dismem
 
 &#x200B;
 
-I couldn't escape It. Everywhere I went, there was a constant reminder of what I did. I did that to my own daughter. I was that sick fuck. I am disgusting. Tomorrow I'm going to kill myself. God won't let me escape from my crime.
+I couldn't escape It. Everywhere I went, there was a constant reminder of what I did. I did that to my own daughter. I was that sick fuck. I am disgusting. Tomorrow I'm going to turn myself in. God won't let me escape from my crime.
