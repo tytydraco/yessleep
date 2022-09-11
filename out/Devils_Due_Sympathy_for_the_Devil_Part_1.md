@@ -150,3 +150,5 @@ Once more, with feeling
 [Part 2](https://www.reddit.com/r/nosleep/comments/xa6ajn/devils_due_sympathy_for_the_devil_part_2/?utm_medium=android_app&utm_source=share)
 
 [Parts 3&4](https://www.reddit.com/r/nosleep/comments/xb1pz2/devils_due_sympathy_for_the_devil_parts_34/?utm_medium=android_app&utm_source=share)
+
+[Parts 5&6](https://www.reddit.com/r/nosleep/comments/xbvmit/devils_due_sympathy_for_the_devil_parts_56/?utm_medium=android_app&utm_source=share)

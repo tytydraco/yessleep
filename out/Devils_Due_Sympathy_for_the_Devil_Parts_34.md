@@ -281,3 +281,5 @@ The House on the Hill
   When a near blinding light erupted from a ways behind us, we both winced, while Brandon attempted to focus on keeping the car straight. It was just for the briefest moment, like the whole world lit up for a second, before falling into darkness once more. 
 
   I allowed myself a small chuckle, taking satisfaction in the fact that those trees likely had no idea what they were getting themselves into. Brandon offered a giggle in return, and before we knew it, we were laughing hysterically as we sped onwards.
+
+[Parts 5&6](https://www.reddit.com/r/nosleep/comments/xbvmit/devils_due_sympathy_for_the_devil_parts_56/?utm_medium=android_app&utm_source=share)
