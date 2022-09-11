@@ -160,7 +160,7 @@ The woman took the van and fled.
 
 And that's how I ended up dead in a log cabin between the corpses of my fiancé and a man I'd never met.
 
-They say the dead linger when they have unfinished business. They took my body away, but my essence remained. The police, local reporters, even kids looking for cheap thrills. All of them came and went, but I remained trapped on this mountain for years. I wanted the world to know what had happened, but I was so afraid and I had no voice.
+They say the dead linger when they have unfinished business. They took my body away, but my essence remained. The police, local reporters, even kids looking for cheap thrills; all of them came and went, but I remained trapped on this mountain for years. I wanted the world to know what had happened, but I was so afraid and I had no voice.
 
 Then came the girl. A True Crime obsessive, she was attracted to the cabin by the grizzly tales circulating the nearby towns. She has the Gift, the Sight, just like I did growing up. I pounced.
 

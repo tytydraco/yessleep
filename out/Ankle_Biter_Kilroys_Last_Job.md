@@ -320,4 +320,4 @@ I leaned down and talked directly to the thing, figuring that whatever Arthur wa
 
 “Hey Arthur - wanna go see your dad?”
 - - -
-[More](https://old.reddit.com/user/mikeventure76/submitted/)
+[Part Two](https://old.reddit.com/r/nosleep/comments/x8796f/ankle_biter_kilroys_last_job/)
