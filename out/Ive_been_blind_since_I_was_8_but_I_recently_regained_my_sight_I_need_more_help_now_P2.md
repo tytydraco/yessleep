@@ -44,7 +44,7 @@ Instinctively, I slowly start to walk along the dirt wall and pray they don’t 
 
 Nonetheless, fear keeps me going. I can still hear them scuttling about, screeching for me. Its apparent that they know what I’m trying to do, and there’s no point in trying to hide themselves. 
 
-I decide to continue decoding the chapter names. One chapter in particular calls my attention. “How to make a portal to your home.” Who’s home? I read, and I finally learn whom I’ve been living under. The first sentence states, “You may want a way back to our master, but it is no easy task. Hell waits for no one.” My heart gallops a mile in my rib cage and I start to slowly sink to the ground. I look up to the sky. I expect to see a welcoming evening sunlight and a brick breeze. What I get, is my sister staring down at me, smiling a hellish grin.  
+I decide to continue decoding the chapter names. One chapter in particular calls my attention. “How to make a portal to your home.” Who’s home? I read, and I finally learn whom I’ve been living under. The first sentence states, “You may want a way back to our master, but it is no easy task. Hell waits for no one.” My heart gallops a mile in my rib cage and I start to slowly sink to the ground. I look up to the sky. I expect to see a welcoming evening sunlight and a brisk breeze. What I get, is my sister staring down at me, smiling a hellish grin.  
 
 She lunges at me, and I kick her away, and she falls into the water. I use the confusion as a chance to escape as she tumbles through the water. (She was never very good at swimming) 
 
