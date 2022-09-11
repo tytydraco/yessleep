@@ -62,13 +62,6 @@ That is, until today. I heard a phone call from her after she used my brother's 
 
 
 
-***
-
-
-Day 3 (06/26/2022)
-
-
-
 After arriving back home in the afternoon, I immediately took note of my brother's appearance. He looked like a complete and utter mess. It was like seeing someone have all their energy sapped away from them. His fiancé was freaking out and she told me that she came to me with him because she didn't know if she should go to the hospital at first and tell my parents beforehand. 
 
 
@@ -165,7 +158,7 @@ Time passed and we eventually left the hospital, but the only one who stayed ove
 
 
 
-Day 4 (06/27/2022)
+Day 3 (06/26/2022)
 
 
 
@@ -233,7 +226,7 @@ I distinctly remember saying these exact words to her. 
 
 
 
-But before the stranger could answer my questions, I suddenly felt a familiar yet completely unfamiliar sensation. It came out all at once, and it was the only thing that occupied my mind. 
+But before the stranger could answer my questions, I suddenly felt a series of familiar yet completely unfamiliar sensations. It came out all at once, and it was the only thing that occupied my mind. 
 
 
 
@@ -252,7 +245,7 @@ And before I could do anything else, the last thing I remembered was me losing c
 *** 
 
 
-Day 5 (06/28/2022)
+Day 4 (06/27/2022)
 
 
 
