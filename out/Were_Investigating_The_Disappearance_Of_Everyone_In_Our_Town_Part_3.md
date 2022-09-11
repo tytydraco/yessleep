@@ -1,4 +1,4 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/ws6uv0/were_investigating_the_disappearance_of_everyone/)  [Part 2](https://www.reddit.com/r/nosleep/comments/wy4cu8/were_investigating_the_disappearance_of_everyone/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/ws6uv0/were_investigating_the_disappearance_of_everyone/)  [Part 2](https://www.reddit.com/r/nosleep/comments/wy4cu8/were_investigating_the_disappearance_of_everyone/)
 
 &#x200B;
 
@@ -8,7 +8,7 @@ I brought up what I mentioned in my last post to Carl and Nick.  We discussed it
 
 &#x200B;
 
-"Are you sure?" Carl asked me. 
+"Are you sure?" Carl asked me.
 
 &#x200B;
 
@@ -102,13 +102,13 @@ Admittedly, he made a good point. That said, I don’t think we have it in us to
 
 &#x200B;
 
-He left the dining room and went back down to the basement, leaving us in annoyed silence. 
+He left the dining room and went back down to the basement, leaving us in annoyed silence.
 
 &#x200B;
 
 &#x200B;
 
-"Great, guess we'll have to become murderers then," I said and then absentmindedly shoved a spoon full of now soggy cereal into my mouth. 
+"Great, guess we'll have to become murderers then," I said and then absentmindedly shoved a spoon full of now soggy cereal into my mouth.
 
 &#x200B;
 
@@ -146,7 +146,7 @@ Carl was lost in thought.
 
 &#x200B;
 
-She was the librarian of our town and responsible for hand-copying journals of runes our town's settlers left. If not for her, we would've been helpless against the monsters that used to be here. Speaking of, it is odd that the card trees are the only ones we've seen. I guess they killed or took the others. 
+She was the librarian of our town and responsible for hand-copying journals of runes our town's settlers left. If not for her, we would've been helpless against the monsters that used to be here. Speaking of, it is odd that the card trees are the only ones we've seen. I guess they killed or took the others.
 
 &#x200B;
 
@@ -278,19 +278,19 @@ Oddly enough, the front entrance was completely fine, not a crack in or scratch 
 
 &#x200B;
 
-I was about to answer when I realized I didn’t actually know why we were. 
+I was about to answer when I realized I didn’t actually know why we were.
 
 &#x200B;
 
 &#x200B;
 
-“Force of habit?” I said after a brief moment, letting my voice go from whispering to talking low. 
+“Force of habit?” I said after a brief moment, letting my voice go from whispering to talking low.
 
 &#x200B;
 
 &#x200B;
 
-Even if we were the only ones there, talking any louder than that still felt almost sacrilegious. It’s like getting drunk at a funeral. You just don’t do it. We made our way to the front desk, figuring that would be the best place to search first. What we were looking for, we didn’t know yet. Then I remembered something. 
+Even if we were the only ones there, talking any louder than that still felt almost sacrilegious. It’s like getting drunk at a funeral. You just don’t do it. We made our way to the front desk, figuring that would be the best place to search first. What we were looking for, we didn’t know yet. Then I remembered something.
 
 &#x200B;
 
@@ -344,7 +344,7 @@ We did so.
 
 &#x200B;
 
-“Well, let’s see if we can’t find that book,” Carl told us. 
+“Well, let’s see if we can’t find that book,” Carl told us.
 
 &#x200B;
 
@@ -372,13 +372,13 @@ We knew things would be pretty dim inside, being without power and all so we bro
 
 &#x200B;
 
-“I think I see something,” Nick said, shining his flashlight past some cobwebs.  
+“I think I see something,” Nick said, shining his flashlight past some cobwebs.
 
 &#x200B;
 
 &#x200B;
 
-Some books were on the floor. Investigating showed us a pile as if someone had raked them off the shelves. My grip on my flashlight tightened. The hairs on my arms were beginning to stand. Looking further confirmed our fears. We didn’t know what was worse, the smear of blood on the carpet or the nail marks on the wood flooring that lead to the open back exit. 
+Some books were on the floor. Investigating showed us a pile as if someone had raked them off the shelves. My grip on my flashlight tightened. The hairs on my arms were beginning to stand. Looking further confirmed our fears. We didn’t know what was worse, the smear of blood on the carpet or the nail marks on the wood flooring that lead to the open back exit.
 
 &#x200B;
 
@@ -440,13 +440,13 @@ He and Nick went out the back to keep searching. I stayed in and paced around. E
 
 &#x200B;
 
- I smiled upon seeing the Stephen King books. I read his work a lot back then. Oftentimes, due to my shitty behavior, they’d be my only source of entertainment. As I was reminiscing, my foot hit something. I cast my eyes downward to see part of a book sticking out from under the shelves. Picking it up revealed that it was none other than the one we were searching for.
+I smiled upon seeing the Stephen King books. I read his work a lot back then. Oftentimes, due to my shitty behavior, they’d be my only source of entertainment. As I was reminiscing, my foot hit something. I cast my eyes downward to see part of a book sticking out from under the shelves. Picking it up revealed that it was none other than the one we were searching for.
 
 &#x200B;
 
 &#x200B;
 
-“Guys, I found it,” I yelled out to them after  I ran out the back exit to them with it in hand. 
+“Guys, I found it,” I yelled out to them after  I ran out the back exit to them with it in hand.
 
 &#x200B;
 
@@ -504,7 +504,7 @@ Whoever had done it only got halfway before being dragged off as indicated by ho
 
 &#x200B;
 
-While I was doing that, they were searching other areas around the building. I came back to the blood on the floor. I hadn’t noticed it before part of it seemed unusual. I knelt down and got closer to it. Part of the stain almost looked like a letter. I shined my flashlight on it and confirmed that it was. 
+While I was doing that, they were searching other areas around the building. I came back to the blood on the floor. I hadn’t noticed it before part of it seemed unusual. I knelt down and got closer to it. Part of the stain almost looked like a letter. I shined my flashlight on it and confirmed that it was.
 
 &#x200B;
 
@@ -528,7 +528,7 @@ This confused me. Granted, being dragged by the legs while you’re bleeding doe
 
 &#x200B;
 
-Panic bubbled within me. 
+Panic bubbled within me.
 
 &#x200B;
 
@@ -540,7 +540,7 @@ Panic bubbled within me.
 
 &#x200B;
 
-Rushing outside, I turned to see Carl and Nick already running in my direction.  I glanced at the woods. Much to my dismay, I could already see some movement among the trees. It appeared the rain rule also applied to the card trees. A quick aside, while creatures in our town don’t usually come out during the day, stormy weather is the exception and that was the case here. 
+Rushing outside, I turned to see Carl and Nick already running in my direction.  I glanced at the woods. Much to my dismay, I could already see some movement among the trees. It appeared the rain rule also applied to the card trees. A quick aside, while creatures in our town don’t usually come out during the day, stormy weather is the exception and that was the case here.
 
 &#x200B;
 
@@ -784,7 +784,7 @@ Carl grunted in annoyance.
 
 &#x200B;
 
-Stevenson began cursing so Carl shut off the radio. 
+Stevenson began cursing so Carl shut off the radio.
 
 &#x200B;
 
@@ -836,7 +836,7 @@ We found a motel. The guy at the desk was naturally curious upon seeing both a s
 
 &#x200B;
 
-The man handed him a key card and we headed to our room. That brings me to now. There was also a laptop in the trunk belonging to Carl’s friend, Ivan. Actually, the car is really his as well. He said Carl could use it. 
+The man handed him a key card and we headed to our room. That brings me to now. There was also a laptop in the trunk belonging to Carl’s friend, Ivan. Actually, the car is really his as well. He said Carl could use it.
 
 &#x200B;
 
@@ -849,3 +849,7 @@ Speaking of which, it’s in desperate need of repairs. Anyway, I’m typing thi
 &#x200B;
 
 At the very least, I'm glad I don't have to sleep on an empty stomach. On that note, I should get some shuteye.  When we see Stevenson, I might smack him upside the head again only this time it won’t be an accident, but for now, [I’ll](https://www.reddit.com/r/StoriesFromRose/) say [good night.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/xb579u/were\_investigating\_the\_disappearance\_of\_everyone/](https://www.reddit.com/r/nosleep/comments/xb579u/were_investigating_the_disappearance_of_everyone/) (Fucking hell, first the card trees and now this)

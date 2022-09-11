@@ -2,7 +2,7 @@ My dad wasn't always "crazy." He used to be a loving guy who cared for those aro
 
 "Diana, stay away from your mother!! She is not who you think she is!!" He would coo. Of course, I didn't believe him. The day I realized something was off, I admitted him to a mental institution, something that I will forever regret.
 
-"I have a story I'd like to tell you, Diana." He exhaled, calmer than usual. I nodded, signaling for him to continue on. "There once was a young man, about seventeen years old. He was kind and caring, compassionate and determined, very well mannered, but very gullible. He was walking through the forest one day when he heard pained cries. He went to investigate, wanting to make sure the person or thing was safe. He eventually found the source of the high-pitched wails: a young girl. She seemed about the same age, so he comforted her. Short after, they became good friends, and eventually started dating." He paused for a moment.
+"I have a story I'd like to tell you, Diana." He exhaled, calmer than usual. I nodded, signaling for him to continue on. "There once was a young man, about seventeen years old. He was kind and caring, compassionate and determined, very well mannered, but very gullible. He was walking through the forest one day when he heard pained cries. He went to investigate, wanting to make sure the person or thing was safe. He eventually found the source of the high-pitched wails: a young girl. She seemed about the same age, so he comforted her. Shortly after, they became good friends, and eventually started dating." He paused for a moment.
 
 "That sounds like a wonderful story! They lived happily ever after, correct?" I beamed. To my dismay, he sighed.
 
