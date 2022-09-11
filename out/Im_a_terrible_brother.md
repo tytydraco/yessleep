@@ -180,6 +180,6 @@ And so, that was the day that I had failed Mike. How I had let him be used, let 
 
 Now, I just got to hope that Mike would return. One day soon. Pray that that thing would keep its promise and let my brother have his life back, after the “one to two years”.
 
-I got to get my brother back.
+I got to get my brother back[.](https://www.reddit.com/r/TheDarkSeas?utm_medium=android_app&utm_source=share)
 
 [Update.](https://www.reddit.com/r/nosleep/comments/vktk3v/i_was_a_terrible_brother/?utm_source=share&utm_medium=web2x&context=3)
