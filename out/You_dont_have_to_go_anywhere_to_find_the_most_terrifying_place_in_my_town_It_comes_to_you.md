@@ -18,7 +18,7 @@ As you can probably guess, that’s not where the story ends. The basement still
 
 Now, at least in my town, any escalator, elevator, or set of stairs you take down could bring you down here instead of where you were intending to go. It doesn't matter where you are, or where they usually lead. One of my classmates once claimed that he was just going downstairs in his house, but upon reaching the last step before the bottom, instead of his living room, he was staring into the basement of the store. I believe him, too – because his story lacked the bravado of others I've heard, you could tell he was deeply afraid. He also mentioned things that I now know to be true from my own experience, like the smell of old and decaying things, the odd stale breeze that emerges like a sigh from deep within the windowless store.
 
-There are some steps you can do to increase your odds of finding this place, but I’m not going to share those here – I don’t need that on my conscience.
+There are some steps you can take to increase your odds of finding this place, but I’m not going to share those here – I don’t need that on my conscience.
 
 For my entire life, it’s just been a given that you always have to be vigilant and pay close attention to where you are, because rumor has it that if you take both feet off the stairs, you’re stuck here forever.
 
@@ -56,7 +56,7 @@ New people seem to join me from time to time – sometimes I hear them, once or 
 
 I’ve been down here long enough now that I’ve started noticing certain things, and the more I notice these details, the more they unnerve me.
 
-For example, the store and items within it seem to just grow and grow. For everyone that disappears down here, the store seems to grow just a bit bigger. The clothes and housewares I’ve run past, if you take a really close look, you’ll see they aren’t quite right looking; the textures are all wrong. They aren’t made out of fabric, plastic or metal – everything in here is made of something else. Something more… familiar.
+For example, the store and items within it seem to just grow and grow. For everyone that disappears down here, the store seems to grow just a bit bigger. The clothes and housewares I’ve ran past, if you take a really close look, you’ll see they aren’t quite right looking; the textures are all wrong. They aren’t made out of fabric, plastic or metal – everything in here is made of something else. Something more… familiar.
 
 Now that I’m looking, I’ve noticed that the clothes seem to sigh with something like resignation under my touch. It’s never truly silent down here. I’ve developed a theory, maybe I’m just losing my mind, but I’m starting to suspect that there is no such thing as death down here – maybe just deconstruction and remaking.
 
