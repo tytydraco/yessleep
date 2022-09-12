@@ -20,7 +20,7 @@ Now, at least in my town, any escalator, elevator, or set of stairs you take dow
 
 There are some steps you can do to increase your odds of finding this place, but I’m not going to share those here – I don’t need that on my conscience.
 
-For my entire life, it’s just always been a given that you always have to be vigilant and pay close attention to where you are, because rumor has it that if you take both feet off the stairs, you’re stuck here forever.
+For my entire life, it’s just been a given that you always have to be vigilant and pay close attention to where you are, because rumor has it that if you take both feet off the stairs, you’re stuck here forever.
 
 It turns out it’s not just a rumor.
 
@@ -46,7 +46,7 @@ I hope I never see it again. I’m still holding out hope that dehydration gets 
 
 You can’t tell day from night down here, there are no windows, just weakly flickering florescent lights in some areas and a darkness unlike anything I’ve seen before, in others. It's disorienting and makes it so easy to imagine what must be lurking in the shadows, just out of sight. I’m grateful I have my phone with me. Before now I just used it to check the time or illuminate pitch black areas and turned it off to conserve the battery, but when it finally sunk in that I was never leaving, I started writing this. It’s been comforting in a way.
 
-This store is massive, it’s got to be tens of miles if not more. I’ve run and walked off and on for days and I’ve yet to find the end. I’ve stopped calling out for my sister or our friends. Not because I’ve lost hope of finding them – but because I know something else already did.
+This store is massive, it’s got to be tens of miles if not more. I’ve ran and walked off and on for days and I’ve yet to find the end. I’ve stopped calling out for my sister or our friends. Not because I’ve lost hope of finding them – but because I know something else already did.
 
 At first, I had been relieved when those footsteps finally veered off in a different direction and began to fade into the distance. I was so grateful for the chance to stop and rest that I didn’t even think about what it meant at the time. Until I heard the screams – far enough away that there was no way I could help, but close enough for me to hear everything.
 
@@ -60,7 +60,7 @@ For example, the store and items within it seem to just grow and grow. For every
 
 Now that I’m looking, I’ve noticed that the clothes seem to sigh with something like resignation under my touch. It’s never truly silent down here. I’ve developed a theory, maybe I’m just losing my mind, but I’m starting to suspect that there is no such thing as death down here – maybe just deconstruction and remaking.
 
-I’m worried that I may find out very soon. I’m so tired – I don’t even have the energy to sit upright, much less to continue onward. I hear the sharp sound of hangers slowly sliding on racks as it searches for me under racks of clothing. I hear the footsteps far too close for comfort.
+I’m worried that I may find out very soon. I’m so tired – I don’t even have the energy to sit upright, much less to continue onward. I hear the sharp sound of hangers slowly sliding on metal as it searches for me under racks of clothing. I hear the footsteps far too close for comfort.
 
 I’m hoping that in sharing this, it will encourage more caution in others and maybe prevent a few thrill seekers from following in our footsteps.
 
