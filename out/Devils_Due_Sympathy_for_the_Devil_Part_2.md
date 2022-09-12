@@ -209,3 +209,5 @@ Back to the beginning
 [Parts 3&4](https://www.reddit.com/r/nosleep/comments/xb1pz2/devils_due_sympathy_for_the_devil_parts_34/?utm_medium=android_app&utm_source=share)
 
 [Parts 5&6](https://www.reddit.com/r/nosleep/comments/xbvmit/devils_due_sympathy_for_the_devil_parts_56/?utm_medium=android_app&utm_source=share)
+
+[Parts 7&8](https://www.reddit.com/r/nosleep/comments/xcq9ld/devils_due_sympathy_for_the_devil_parts_78/?utm_medium=android_app&utm_source=share)

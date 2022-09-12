@@ -330,3 +330,5 @@ Give the Man a Hand
   While I too hoped to be able to be reunited with whatever remnants of my soul this place still held hostage, I can't say I envied Orchid on this one. The last I saw him before I even understood that this place could tear pieces of us away, claiming them for its own, he was being dragged to the budding metropolis in the heart of downtown Hell. Somehow, I think he's in for a rude awakening when he reconnects with the rest of himself; another example of things I will never get used to saying. 
 
   When the smoke cleared from the last remaining piece of Jensen Orchid's soul being burned away, the raging storm fell still, the sky once more brightened, and I was no longer alone in this place. There was still a long way to go; I did not doubt that, but I most certainly felt better about things, now that I had friends by my side. 
+
+[Parts 7&8](https://www.reddit.com/r/nosleep/comments/xcq9ld/devils_due_sympathy_for_the_devil_parts_78/?utm_medium=android_app&utm_source=share)

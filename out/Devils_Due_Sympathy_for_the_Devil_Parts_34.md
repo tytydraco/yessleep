@@ -289,3 +289,5 @@ The House on the Hill
   I allowed myself a small chuckle, taking satisfaction in the fact that those trees likely had no idea what they were getting themselves into. Brandon offered a giggle in return, and before we knew it, we were laughing hysterically as we sped onwards.
 
 [Parts 5&6](https://www.reddit.com/r/nosleep/comments/xbvmit/devils_due_sympathy_for_the_devil_parts_56/?utm_medium=android_app&utm_source=share)
+
+[Parts 7&8](https://www.reddit.com/r/nosleep/comments/xcq9ld/devils_due_sympathy_for_the_devil_parts_78/?utm_medium=android_app&utm_source=share)
