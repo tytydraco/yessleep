@@ -38,7 +38,7 @@ Honey, I'm Home!
 
   "Um, okay, Ed. Why exactly are you here? Why have you been following me? What the hell…"
 
-  "Woah now, kid," he said, waving his elongated fingers before him, "ain't what year thinkin' at all. I didn't mean to be so cloak and dagger an' all. I got some personal business with this place, just didn't know how to track it. Heard through the grapevine that a friend of Lucifer was makin' his way here. It was a good deal easier to track you and yer demon buddy than the house itself." 
+  "Woah now, kid," he said, waving his elongated fingers before him, "ain't what yer thinkin' at all. I didn't mean to be so cloak and dagger an' all. I got some personal business with this place, just didn't know how to track it. Heard through the grapevine that a friend of Lucifer was makin' his way here. It was a good deal easier to track you and yer demon buddy than the house itself." 
 
   "Lucifer?" Brandon asked, "how do you know about him, or us for that matter?" 
 

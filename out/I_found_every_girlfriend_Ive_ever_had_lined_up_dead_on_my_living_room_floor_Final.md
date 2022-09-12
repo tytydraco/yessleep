@@ -220,13 +220,13 @@ I found myself in an empty bedroom. There was only one thing to do. I climbed un
 
 In the cold light of morning, I realised that there was no *To Let* sign outside the house and the bedrooms were all full of stuff. Clearly the students that lived here had gone away for Summer Recess and would no doubt be back in time for Autumn Term.
 
-I found this old laptop in the bottom of one of the students’ cupboards and set about looking for updates on Rose and the murders. There was nothing on any of the local news sites or on social media, I couldn't find word of the murders anywhere.
+I found this old laptop in the bottom of one of the students’ cupboards and set about looking for updates on Rose and the killings. There was nothing on any of the local news sites or on social media, I couldn't find word of the murders anywhere.
 
 I didn't get any updates until three days later when Alex started posting short stories on her personal blog. They contained cryptic messages to me that were lawfully vague (and pretentious) enough for her to maintain plausible deniability. Alex was obviously being watched by the police, just as I thought she would be.
 
-*…and so the thorny rose wilted, wilted but did not expire. It cast its wicked seed to the wind so it might spawn again in pastures new…*
+*…and so the thorny rose wilted, wilted but did not expire. It cast its wicked seed to the wind so that it might spawn again in pastures new…*
 
-I shot that monster in the heart. I don't understand how she even survived, let alone escaped. And did she escape from the warehouse before the police got there like I did? Or did she escape from custody, or perhaps from the hospital? Maybe some of [MM’s research](https://www.reddit.com/user/mediamusing/comments/x3xxf0/potential_rose_evidence/) holds [a clue](https://www.reddit.com/user/mediamusing/comments/x41e6i/rose_blog/) as to how she managed it. I really don't know what to think.
+I shot that monster in the heart. I don't understand how she even survived, let alone escaped. And did she escape from the warehouse before the police got there like I did? Or did she escape from custody, or perhaps from the hospital? Maybe some of [MM’s research](https://www.reddit.com/user/mediamusing/comments/x3xxf0/potential_rose_evidence/) holds [a clue](https://www.reddit.com/user/mediamusing/comments/x41e6i/rose_blog/) as to how she managed it.
 
 Whatever the answer, ever since reading Alex's first story I have been afraid for my life, certain that Rose would be hunting me. But, after writing everything down and clearing my head, I'm not so sure. Rose made such an effort to frame me, surely killing me after all that would be pointless? Maybe I'm just being naïve.
 
@@ -240,7 +240,7 @@ Over the last few days I've been continuing my conversations with MM, we've both
 
 I've decided that I'm going to listen.
 
-I'll hand myself in first thing tomorrow morning. MM is going to go to the police station in Pitwell and give a statement in support of me as well. If we can just get the police to believe us then they will have a real chance of solving not just the Student Ripper murders, but the [Whistler Mountain murders](https://www.reddit.com/r/libraryofshadows/comments/xbnpyr/the_whistler_mountain_murders/) as well.
+I'll hand myself in first thing tomorrow morning. MM is going to go to the police station in Pitwell and give a statement in support of me as well. If we can just get the police to believe us then they will have a real chance of solving not just the Student Ripper killings, but the [Whistler Mountain murders](https://www.reddit.com/r/libraryofshadows/comments/xbnpyr/the_whistler_mountain_murders/) as well.
 
 All that remains is to ask you to stay vigilant. Rose is still out there, and there's no telling what she'll do or where she'll strike next.
 
