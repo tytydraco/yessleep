@@ -1,0 +1,27 @@
+Seriously what the fuck is wrong with people? It’s freezing outside and now I have to walk home. Alone. At… *What even time is it*? I pull my phone out to look and: dead. Of course it is. This is the *best* night of my life, why wouldn’t I be walking home. In the middle of the night. Across town. With a dead phone.
+
+Luckily Portridge isn’t huge by any means so maybe I’m only an hour or so walk away. What do I know? I’ve never walked home from this side of town drunk. I’m just trying to keep going in a straight line listening to my footsteps on the pavement. I use my breath to warm up my hands as I trudge along. Good thing I swiped this bottle of whiskey before I left. Something has to keep me warm.
+
+I mean, what was I *thinking* getting together with her? She’s cute but damn, she’s never had a girlfriend before. Did I really think it wasn’t just going to be a phase for her? But *him*, seriously? That guy is a total douche. I was late to the stupid party, but she knew I was coming. Oh yeah, I’ll just quit my fucking job, so my dumbass “bicurious” girlfriend doesn’t suck some guys dick every time I’m late.
+
+I stop and take a big swig of the bottle. Where even am I? There are factories on both sides of me. Why am I so stupid? It’s just like I’m given all these options but always choose the wrong one. Including this. I should have asked to borrow someone’s phone before I left and called someone to take me home because it’s fucking winter, but *no*, I chose to storm out and walk my happy ass all the way home. And now, I’m walking through some part of town I didn’t even know existed. All these large buildings that look like no one has even been here in years. They’re just here to commiserate with me.
+
+Fuck, *I can’t feel my face*. At this point I don’t know if it’s from the booze or the cold. I smack my cheeks a couple times just to see. I look around again. At this point am I just wandering around in this weird, dilapidated neighborhood? Am I even heading home? My mind is jumbled with thoughts. I shake my head hard as if trying to shake the past few hours out of my brain. I woozily regain my footing and set off again for the path I think will take me home when something stops me dead in my tracks.
+
+Wait, what the *fuck* is that? My heart skips a beat. The warehouse across the street is… *glowing*? Goosebumps cover my whole body. The hair on the back of my neck is on end. My stomach does a somersault and I feel like I may puke. My mind is racing. I smack my cheeks again, *get it together*. I still see the glow. I take a deep breath and I breathe in something sweet. Maybe one of these buildings is a bakery. Although it really doesn’t look like any of them are still functioning.
+
+*What is that?*
+
+*Think logically*. Is thinking logically even possible? I’ve finished half this bottle of whiskey in… Wait, *how long have I been walking*? Okay, back to this weird glowy light. It’s the softest white I’ve ever seen. Such a stark contrast to the disgusting yellow of these streetlights. I want to see it up close. I *need* to see it up close.
+
+I cross the street and start across the vast overgrowth of a yard that hasn’t been up kept in years. The sweet smell is so much stronger. It reminds me of freshly flowering honeysuckle. It’s so nice. Almost hypnotizing. *Did I just hear someone say something*? My heard palpitates again. I swear I just heard someone. Is someone fucking with me? Maybe I shouldn’t go in. But the smell… I *need* to know what it is.
+
+I search the building for a way in. Most of the windows are busted out, but I’d rather not face getting tetanus. I walk around the corner of the building and there it is. The door. It’s wide open asking me to come in. Is it actually asking me? I swear I hear someone whispering to me.
+
+The sweetness flows over me as I step into the building. The aroma is so strong it makes me dizzy, or is that just the liquor? The huge room is ever so faintly lit by the subtle otherworldly white glow. My thoughts instantly go to aliens. *Oh shit, am I going to have an encounter with aliens*? *What if they want to abduct me or something*?
+
+I’m overly aware of how fast my heart is pounding. How hard. I can hear it pounding in my ears. I can hear it. *Come closer.* I definitely fucking heard that. Someone… *Something*? Is whispering.
+
+I scan the room trying to find the source of the light when I notice the outline of a doorway that is much brighter than the room. *Should I go?* This seems really fucking insane, but something inside me is telling me to keep going and I move across the room like I’m walking on air. The whispering getting louder with each step.
+
+Through the doorway the warm white glow envelops me. In the middle of the room an orb. The shimmering thing is so beautiful it almost seems like liquid. Is that even possible? It’s still whispering to me, *come closer. Feel my warmth*. I can see my breath billowing out like soft clouds intertwining with the steam rising from this silky ball of radiant light. I’m still moving forward, though at this point I cannot tell if it is my own legs that are moving me. I reach out my hand towards it. A sudden calm takes over my body, I can no longer hear my heart pounding. I just want to be warm. *I know it will keep me warm*.

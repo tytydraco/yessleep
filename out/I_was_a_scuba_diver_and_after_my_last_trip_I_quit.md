@@ -1,0 +1,17 @@
+I was a scuba diver for 10 years until one very fateful trip I had to quit. Now let me say this now, it wasn’t just *my* choice to quit, I was **strongly** recommended to by my therapist, friends and family. This trip was so fateful I was diagnosed with PTSD after it. I now have Thalassophobia (fear of the ocean) and I can’t imagine going near the sea anymore. 
+
+Most people don’t realise this, but deep down in the ocean it is pitch black. If you don’t have a light, you may as well just close your eyes, it looks the same. Luckily me and my team all had lights attached to our heads so we could see pretty clearly, it was still trippy to see the dark get consumed by the darkness of the ocean.  
+
+We had one of my most trusted crewmembers (and friends) stay at the top on the ship watch the radar and communicate if anything came or something happened so we could stop any injuries or even death. I honestly felt good and felt capable of anything with him watching over us. Me and three of my men jumped in the deep sea with me after setting up our gear and switching on our lights. 
+
+The sea made way for us as we began our journey and as we sank in the water consumed us. We began swimming down and I felt something very off already. I’d heard that you should always trust your gut but I didn’t this time. I wish I did. We all split up to cover as much ground as possible and as I went around 10,000 feet down my most trusted crew member just went silent. Then static. Oh, the static was so loud I can still hear it ringing in my ears now. I tried to swim back up but it seemed like something was stopping me, sucking me down from the bottom. 
+
+I tried to float but I sunk even faster and ever deeper, my heart was racing like a Formula One car, pictures of my children began racing through my mind- How they loved to see the fast cars speed through. I blacked out. Only awoken by a loud sort of snoring noise, echoing through the depths of the ocean. I opened my eyes in a split second of waking up. At that point I just hoped I had enough oxygen left to survive until somebody found me. **If** somebody found me. 
+
+I looked down and beneath me I saw the ocean floor, and marine blue ruins scattered around. There was what looked a church ruin, which still stood at at least 50 feet tall. I looked around and saw a town or a city of the ocean, I had heard old wife's tales about a lost city in the ocean but I could never had thought it was true.  
+
+I swam even further on the ocean floor and noticed a murky green scaly foot-looking thing. I was so confused I swam further and further upwards, this time feeling as though I was being sucked upwards instead of down, and what I saw embedded myself in my mind. A face the size of at least 100 mutated elephants, eyes like a fish’s (bulging out of its eyelids), scales around everywhere except its mouth which split up and stretched across its face. As it opens its mouth to let out a bellowing snoring sound, I noticed razor sharp curled teeth the size of me stuck in its gums. Flashes of this creature ripping me apart with just one finger echoed in my mind and as it opened its eyes everything went black. 
+
+I woke up coughing up blood and water still seeing flashes of this monster lurking on the deep sea’s floor. I still see flashes and I'm beginning to believe it’s a warning. I’m letting the world know now in case somebody of importance reads this and can prepare the world for what may be coming. 
+
+\-Billy
