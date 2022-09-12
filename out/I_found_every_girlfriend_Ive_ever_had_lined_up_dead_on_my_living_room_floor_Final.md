@@ -232,7 +232,7 @@ Whatever the answer, ever since reading Alex's first story I have been afraid fo
 
 I was also able to determine from Alex’s blog that Professor Dance survived his injuries (thank God) and that the police still consider me the prime suspect in the murders. Exactly as Rose planned.
 
-*…led by the magistrate the townsfolk chided the Student Ripper, for in their ignorance they did not see the roseroot woven all through the foul business that sickened them so…*
+*…led by the magistrate the townsfolk chided the Student Ripper, for in their ignorance they did not see the roseroot woven all through the dark business that sickened them so…*
 
 Alex hasn't mentioned **Grace**, **Rabia**, **Sarah**, **Patricia**, or **India** in her writing, but I know she will be thinking of them. And she'll know that my heart is broken because of what happened and the part I played in it.
 
