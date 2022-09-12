@@ -1,0 +1,17 @@
+I don’t even know where to start. I am so scared I don’t know what to do. This all started when I (26f) and my boyfriend (29m) moved into his late fathers home. He was ecstatic and was so excited to move back to the home he grew up in, determined to make better memories for our children than he remembers having. I was just about 5.5 /6 months pregnant with our first. He was married before me but said his wife died in a tragic accident while pregnant with their first as well. 
+
+The house is beautiful. It’s right on the water , surrounded by trees …and trees…and more trees. It doesn’t have a homey feel. We’ve been living here about 3 months now and I feel trapped. It started with scuffling noises behind our headboard when we would make love, then it progressed to a moan whenever my boyfriend was gone to work. He never heard it and always told me it was just the house settling. I can hear a woman sobbing in the night , and it gets louder when my boyfriend holds me. 
+
+Things got worse when we got into fights. It’s like the house would shake when  I would scold or yell at him. He always laugh it off and said it was a sign he was right and I would get so scared I would just stop it there and let him win. The worst part was I always thought I saw I woman coming out of the closet to feel my belly but I chalked it up to sleep paralysis when my boyfriend told me it’s not possible for something to live in the walls. I felt like I was going crazy. 
+
+The further along in my pregnancy I got the more protective and wigged out over little things claiming it’s because his wife was this far along and after what happened. I tried to be as understanding as possible but it was a little frustrating. 
+
+I started having a few contractions , and my h boyfriend freaked out and wanted to paint “good luck symbols” on my belly and I reluctantly agreed to make him happy understanding his trauma. As I laid on the couch he swore he was just going to get our go bags. He hasn’t come back, but the noises in the wall have. It sounded like they were calling out for me. I am in so much pain but I got up and tried to hide.
+
+So that’s where I am now, hiding in a closet scared for my life while the walls cry out for me. I don’t know where my boyfriend went but the contractions are getting closer 
+
+Theres a woman? A woman just came down the stairs , the walls are quiet but she’s calling out for me still. My boyfriend is with her, he’s calling my name asked where I am. It’s hard ti stay quiet with the contractions but I fear for my life if I don’t. 
+
+This woman looks so familiar , but she’s so pale and thin. She’s wearing a wedding ring? She’s getting closer to me now and I realize who she is. She’s my boyfriends wife. I don’t know how, I don’t know why but she’s going to find me and I am scared to know what will happen if she does. The contractions are strong now and she’s just standing outside the closet, staring in at me through the thin slits in the door. Her eyes are glossed over and white. They’re opening the door now , tell my fam
+
+Oh! Oops! I must’ve forgotten to close this silly app before we went off to the hospital. I finally have a warm, healthy baby, and I’m back where I should be. Silly me always making up stories. Doc says it was probably the pressure of living up to my boyfriends dead wife. In the end he is mine like he should be and we finally have our happy family.

@@ -1,6 +1,6 @@
 I've been married to my beautiful wife for 5 years now, and it's been an absolute delight! She is the sweetest, and most prettiest lady you could ever speak to, but lately, something's been off about her. She's been... Quieter? She hasn't been speaking to me for a few days, and it was quite sudden. She's been... Quite aggressive too.
 
- Every time I spoke to her, she would turn around, and give me this glare. This glare, it was as if the devil has possessed her, like she'd burn me, like she WANTS to burn me. I was worried. Every night, while I was sleeping, she's start.. whispering. She would whisper profanities, curses, threats. I'd eventually move to the couch where it was more peaceful. A week ago, I decided to clean my basement. Worst decision ever. 
+ Every time I spoke to her, she would turn around, and give me this glare. This glare, it was as if the devil has possessed her, like she'd burn me, like she WANTS to burn me. I was worried. Every night, while I was sleeping, she'd start.. whispering. She would whisper profanities, curses, threats. I'd eventually move to the couch where it was more peaceful. A week ago, I decided to clean my basement. Worst decision ever. 
 
 Most people would love a clean basement, to make it look as if you'd want to live there. Me? After this week? I'd WANT IT to look unwelcoming, as a warning. While my wife was... I don't even know what she was doing?  She was... Staring at a painting in out bedroom... Blankly... For 5 hours. 
 
@@ -9,7 +9,7 @@ I decided to do something productive, as it was my day off work. I decided to do
 
  I closed the door to get some febreze. I emptied the whole can. Once I finally got the courage to enter the basement again, it smelt... Better. Slightly. Just enough to bare.I got to work. After about 2 hours, I found a photo album, my wife's.
 
-The latest photo in there was from about a year ago. Our vacation to South Africa. The oldest was from the year she was born. 19 September, 1985. As I scrolled through the album, I noticed something off about her face. I'd know since I've been with her for 15 years (including the dating and engagement period.)
+The latest photo in there was from about a year ago. Our vacation to South Africa. The oldest was from the day she was born. 19 September, 1985. As I scrolled through the album, I noticed something off about her face. I'd know since I've been with her for 15 years (including the dating and engagement period.)
 
 
 Her jawline was sleek and smooth, on the 5th page in the album, her jaw was slanted to the left, a bit crooked, and her chin was longer. She had braces which she'd never had before, and her ears were smaller.
