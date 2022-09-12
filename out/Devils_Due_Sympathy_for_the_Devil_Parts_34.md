@@ -3,6 +3,8 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/xa6ajn/devils_due_sympathy_for_the_devil_part_2/?utm_medium=android_app&utm_source=share) 
 
 
+  When the man wearing my friends face began to speak, it was as though the tale he spun played out before my eyes. What he revealed to me will likely haunt me just as much as the many horrific things I have witnessed throughout my life. This is the story of what really happened to my parents.
+
 Part 3:
 July 8th, 1988
   
@@ -110,7 +112,11 @@ July 8th, 1988
 
   While only one day had passed since they made that ill-fated trip to the county fair, the burdens of decades of pain still lingered just out of the reach of their memories. Though their conscious minds were fully aware of the happy times that came before that night out on the town, whatever happened to them during their time away had stolen a significant piece of their souls. 
 
-  "Those missing parts, Michael, are what we are now in search of. What remains of you father; what is now bonded with this compass, desperately wants back what it has lost."
+•
+
+  Malphas just looked at me when his story came to a close. I was stunned by what he told me, unable to form a coherent thought, let alone anything to say to all of this. 
+
+  "Those missing parts, Michael, are what we are now in search of," he said, still glaring at me, "What remains of you father; what is now bonded with this compass, desperately wants back what it has lost."
 
   I had no words to offer. Could this be true? My agonizing childhood, the loss of my beloved brother, and all of the years of suffering; were all due to that God-forsaken building!? 
 
