@@ -1,9 +1,9 @@
 I don't know where else I should post this so here it goes. I found a disc for a game show that doesn't exist.
 It was a warm summer day. I was walking back from the store, I passed the post office
 
- when I saw something on the ground. It was a laser disc with something written on it ”Great or Grim?” I picked it up wondering who the hell still uses laser discs. Anyways I tossed it in my bag and went home.
+ when I saw something on the ground. It was a disc with something written on it ”Great or Grim?” I picked it up wondering who the hell still uses laser discs. Anyways I tossed it in my bag and went home.
 
- I worked for a few hours then I did some research on whatever Great or Grim was, surprisingly there were 0 results for Great or Grim. I put the disc into my laptop but first, I turned on my anti-virus so that if the disc contained a virus I would be protected. I opened it and then saw a screen.
+I worked for a few hours then I did some research on whatever Great or Grim was, surprisingly there were 0 results for Great or Grim. I put the disc into my laptop but first, I turned on my anti-virus so that if the disc contained a virus I would be protected. I opened it and then saw a screen.
 “Great or Grim Season 1 DVD” There were 10 episodes listed. All of them had normal names except for Episode 10, Which was just jumbled up letters and numbers
 the letters and numbers kept on changing. There were also previews of the Episodes. the first Episode’s preview showed what appeared to be a Man wearing a grim reaper outfit, it looked terrible like a costume from some bootleg Halloween costume store, he was holding some sort of note and on his left, there was an old 
 man, he looked to be in his 70s he also seemed miserable like as if his son was shot right in front of him.
