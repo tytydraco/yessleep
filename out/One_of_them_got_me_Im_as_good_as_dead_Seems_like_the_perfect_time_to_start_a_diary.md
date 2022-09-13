@@ -20,7 +20,7 @@ I couldn’t think of anything else to write so I waited until I came back from 
 
 My leg is doing alright actually; didn’t hold me up at all. I saw Jonah too. He’s looked better, I have to say. It’s strange because this is only the second time I’ve seen him since we came here. Maybe his ears were burning.
 
-Anyway, I found some tinned pineapple in a [manky old caravan](https://i.redd.it/yohwr7346mn91.jpg) I hadn’t searched yet. Had to bust the door open with Old Trusty – which I thought might attract some unwanted attention – but it was fine. I’m actually eating the pineapple right now, tastes good. I also found a radio in there. I already have three down here, but none of them work. Not that the caravan radio works either, all you get is static. It’s just nice to collect something. You know, to have a hobby.
+Anyway, I found some tinned pineapple in a [creepy old caravan](https://i.redd.it/yohwr7346mn91.jpg) I hadn’t searched yet. Had to bust the door open with Old Trusty – which I thought might attract some unwanted attention – but it was fine. I’m actually eating the pineapple right now, tastes good. I also found a radio in there. I already have three down here, but none of them work. Not that the caravan radio works either, all you get is static. It’s just nice to collect something. You know, to have a hobby.
 
 *
 
@@ -38,9 +38,7 @@ I guess I should probably write something about my real sister now. But I don’
 
 *
 
-Daylight is starting to fade and I’m getting ready to go out on my rounds. I always take my satchel with me, filled with useful objects.
-
-I have Old Trusty (a crowbar) which sticks out of the top for easy access, a small toolbox, a pair of heavy-duty gloves (there’s a good story about how I got those, I might write that one down later) and a hammer. I carry a penknife I found down here in my pocket, my purse and phone, and a torch in my hand.
+Daylight is starting to fade and I’m getting ready to go out on my rounds. I always take my satchel with me, packed with useful objects. I have Old Trusty (a crowbar) which sticks out of the top for easy access, a small toolbox, a pair of heavy-duty gloves (there’s a good story about how I got those, I might write that one down later) and a hammer. I carry a penknife I found down here in my pocket, my purse and phone, and a torch in my hand.
 
 I don’t like to use the torch because its battery is running out and there’s always the chance it might attract *them*. I probably shouldn’t have used it last night when I got back. Maybe I’m starting to enjoy this writing malarkey? I need to be careful with luxuries.
 
@@ -56,9 +54,9 @@ Like I said before, I need to be careful with the torch so I think I’ll try an
 
 I slept pretty well last night; no nightmares or cold sweats. Maybe a midnight chase was just what I needed to blow away the cobwebs.
 
-I actually woke up wondering about you. If you’re reading this, who are you? If you’re like me, living through this village nightmare, how have you managed to go this long without being killed or whatever? Maybe you’re Army or some such. Maybe you’re just some kid who’s played so many videogames that surviving all of this was already second nature to you. Or maybe you’re like me; living on borrowed time and searching for a good place to die. Maybe Future Me was brave enough to *Submit* this diary and you're reading this on your phone or computer.
+I actually woke up wondering about you. If you’re reading this, who are you? If you’re like me, living through this village nightmare, how have you managed to go this long without being killed or whatever? Maybe you’re Army or some such. Maybe you’re just some kid who’s played so many videogames that surviving all of this was already second nature to you. Or maybe you’re like me; living on borrowed time and searching for a good place to die. Maybe Future Me was brave enough to tap *Submit* on my diary and you're currently reading this on your phone or computer.
 
-Here’s an idea. Maybe you can carry on this diary from wherever I left it at. God, I really hope this isn’t my last entry, although I suppose any entry might be. If you do carry the diary forwards when I'm a corpse, maybe it will become cursed. **Spooky**.
+Here’s an idea. Maybe you can carry on this diary from wherever I left it at. God, I really hope this isn’t my last entry, although I suppose any entry might be. If you do carry the diary forwards, and I'm a corpse, maybe it will become cursed. **Spooky**.
 
 *
 
@@ -70,7 +68,7 @@ So, I’m taking a pair of shears from the shelf of old tools down here. That wa
 
 If you are local, I wonder how you like to kill them? Pretty morbid question I know, but everyone around here seems to have their preferred method. The last villager I saw alive carried a pair of cricket bats and seemed to have bludgeoning down to an art form. He never saw me though, I was watching from a grove of trees as he killed his way along the main road near the village.
 
-That was before I decided to stay inside during the daylight hours. As I was saying before, we can see okay at night. They can’t though. I’ve seen them; they bump into things. It’s pretty funny to be honest. If they hear a noise, they walk in the direction of the sound, never trying to avoid any object in their path. They either bash said object out of the way, or, like that hedge, blunder right through it. Obviously bigger things stop them dead (ha!) though. If that happens, they sort of shuffle backwards and then try again a few times. Eventually – and I’ve seen this too – they just give up and stand there, waiting for something else to attract their attention.
+That was before I decided to stay inside during the daylight hours. We can at least see a little bit at night; ambient light and everything. They can’t though. I’ve seen them, they bump into things. It’s pretty funny to be honest. If they hear a noise, they walk in the direction of the sound, never trying to avoid any object in their path. They either bash said object out of the way, or, like that hedge, blunder right through it. Obviously bigger things stop them dead (ha!) though. If that happens, they sort of shuffle backwards and then try again a few times. Eventually – and I’ve seen this too – they just give up and stand there, waiting for something else to attract their attention.
 
 That’s **not how it works in the daytime** though.
 
@@ -186,7 +184,7 @@ If none of this had happened, I think my sister would have eventually gone into 
 
 *
 
-I’ve decided that here’s not the place. I'll hit *Submit* on this diary and then I’m going to do it in those woods I wrote about. I’ll be able to find a nice spot to sit and look at the trees, some place that's calm and peaceful. I’m going to leave the picture of guitar girl in this cellar, she belongs in this house. The leaves will remind me of my sister more than any photo ever could anyway.
+I’ve decided that here’s not the place. I'll hit *Submit* on this diary and then I’m going to do it in those woods I wrote about. I’ll be able to find a nice spot there to sit and look at the trees, some place that's calm and peaceful. I’m going to leave the picture of guitar girl in this cellar, she belongs in this house. The tree leaves will remind me of my sister more than any photo ever could anyway.
 
 I guess all that’s left to say is thank you for listening.
 
