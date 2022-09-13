@@ -403,3 +403,5 @@ An Unexpected Detour
   It was then that I noticed the mounds of ash scattered across the floor, leading me to believe that the old man had to deal with a great many custodians as he fought to keep the door ajar. 
 
   "If we got time, we'll come back for 'em," he said, still breathing heavily, "but we gotta find Lucifer before it's too late."
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/xdkrqq/devils_due_sympathy_for_the_devil_part_9/?utm_medium=android_app&utm_source=share)

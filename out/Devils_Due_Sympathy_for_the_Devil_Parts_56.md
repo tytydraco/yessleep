@@ -332,3 +332,5 @@ Give the Man a Hand
   When the smoke cleared from the last remaining piece of Jensen Orchid's soul being burned away, the raging storm fell still, the sky once more brightened, and I was no longer alone in this place. There was still a long way to go; I did not doubt that, but I most certainly felt better about things, now that I had friends by my side. 
 
 [Parts 7&8](https://www.reddit.com/r/nosleep/comments/xcq9ld/devils_due_sympathy_for_the_devil_parts_78/?utm_medium=android_app&utm_source=share)
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/xdkrqq/devils_due_sympathy_for_the_devil_part_9/?utm_medium=android_app&utm_source=share)
