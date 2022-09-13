@@ -112,7 +112,7 @@ I stared, blindsided. "What?"
 
 "But are you the good guys?"
 
-"Does it matter? You mentioned survival of the fittest. Accepting this offer would be to your advantage."
+"We are all fighting for what we believe in. You mentioned survival of the fittest. Accepting this offer would be to your advantage."
 
 "Why me?"
 
