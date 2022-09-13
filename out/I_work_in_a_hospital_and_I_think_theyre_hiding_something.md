@@ -1,0 +1,14 @@
+I have been working at this new hospital for around a month now. It was an amazing opportunity, good benefits and hours. Close to home and I could finally live out my dream of being a nurse. First day was fine, like any other day and yeah the smells coming from the patient rooms were off putting but what did I expect from a hospital? Rose scented candles? Of course not. That's fine. Focus on your job. 
+ 
+My boss keeps the rooms on lock and key, not allowing anyone in or out without his permission. Especially Room 209 but again, not abnormal... I think, patient safety and all. Jason, my coworker, says I shouldn't question it and maybe he's right he's been here for six years. But I can't let go of that smell. 
+ 
+There's groans and moans from room 209, right by the end of the hall on my side of the hospital. It must've been the 30 hour shift and lack of caffeine because I could've sworn I heard a scream from there but Jason and my boss said it was nothing, they went in and came out just fine. Boss had blood splatter on his shoes, said it was from surgery. 
+ 
+About two weeks in was when it really started. Maybe it's my lack of sleep and long shifts, maybe my brain is playing tricks on me but room 209 scares me. The smell comes from all rooms but the worst of it seeps out of room 209, walking past it is like walking into a morgue with temperatures of Arizona. Death lingers when you leave and the groans echo in my ears. Lately I've heard scratching too. 
+ 
+Gina, a friend and coworker told me the rumors of experimental vaccines and treatments they do here she refuses to go into detail but I've heard about these things. Doctors will take dying patients and use them as guinea pigs in hopes of winning some prize. Thing is, they often don't account for certain things and it ends up going wrong. Terribly wrong. I did my research, nothing about my hospital said anything of experiments. 
+ 
+I'll ask Jason. He's close with our boss. 
+I fear the worse though. So I'm writing here. To keep a paper trial and say it's the lack of sleep and long shifts but room 209... What are you hiding? I'll find out. 
+
+ Was it a mistake taking this job? If something's too good to be true is it? On a lunch break and room 209 won't leave my mind. More things are adding up. The patients that check in and never seem to check out. The empty morgue despite the deaths. The Deaths... poor Jason, he's called over ten deaths since I've been here, I called one and it was hard I can't imagine how he feels. But where do their bodies go? I've been to the morgue, it's empty. There's no smell there, you'd think from a morgue there would be. But there isn't. Death doesn't linger in the morgue it lingers in and by room 209 and I'm dying to know that's behind that door.
