@@ -164,6 +164,6 @@ I got home and locked my door. I breathed a sigh of relief and went to call the 
 
 My heart raced with fear, surely it wasn’t Jude. He was passed out when I left, he wouldn’t be up for an hour at the least. The air turned frighteningly cold which nipped at my skin. I looked around hoping to see something, but all I saw was darkness.
 
-I heard my floorboards creak behind me and felt a warm breathe breathe against my neck. O froze up with fear.
+I heard my floorboards creak behind me and felt warm air breathe against my neck. I froze up with fear.
 
 “I told you, I’d silence you all permanently,” Jude’s disembodied voice said.

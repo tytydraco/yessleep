@@ -2,11 +2,11 @@ I must be going crazy. I can see a town that doesn’t exist.
 
 My name is Samuel Baker, I’m a Yellowstone National Park Ranger and I need some advice.
 
-I've spent my entire career fighting wildfires for the National Park Service, and after two decades in the field I thought I'd seen everything. Then, about four months ago, an entire town just appeared in the middle of Yellowstone national park, and the other ranger and I are the only ones who’ve been in it.
+I've spent my entire career fighting wildfires for the National Park Service, and after two decades in the field I thought I'd seen everything. Then, about four hours ago, an entire town just appeared in the middle of Yellowstone national park, and the other ranger and I are the only ones who’ve been in it.
 
 We're not alone, however, as you might expect from something appearing out of nowhere inside one of America's most famous parks. The town is home to many people, some of whom have been there for years. They all seem perfectly normal, but they aren't aware that they live inside a national park. The town has grown over the past few months and now covers several square miles.
 
-My partner, Thomas, was the first to notice the town. He'd driven into the valley a few hours before dawn one morning and saw a brand new sign on the road. “Welcome to Hungry Horse!” It read. When he drove past the next bend in the road he saw the motel. That’s when he turned around to come and get us.
+My partner, Thomas, was the first to notice the town. He'd driven into the valley a few hours before dawn one morning and saw a brand new sign on the road. “Welcome to Hungry Horse!” It read. When he drove past the next bend in the road he saw the motel. That’s when he turned around to come and get me.
 
 The two of us had driven up the valley together in our trusty old Chevy Blazer and taken the long way around because we hadn't wanted to pass through the town until we were sure what it was. We parked at the base of the mountain and hiked up. We walked across the railroad tracks and passed a small gas station with a lone oil drum full of diesel fuel and another filled with water. The street was lined with old cars, some of which looked like they'd been there for a while, others which had probably just arrived that morning.
 
@@ -48,7 +48,7 @@ I looked over at him. He was staring at a man standing by a large semi-trailer o
 
 "Sam, are you listening to me?"
 
-I snapped back to reality and looked at my partner. "Sorry, what did you say?"
+I snapped back to reality and looked at my partner, Thomas had started quivering in fear. "Sorry, what did you say?"
 
 "I said, I think we should leave. I don't want to be here anymore."
 
