@@ -156,7 +156,7 @@ I don’t think I’ll go out tonight. I have enough tins left and one of them i
 
 *
 
-There are two mattresses down here. Obviously one is mine, and the other one was my sister’s. After she died, I couldn’t bring myself to get rid of it. I don’t have a photo of her, only guitar girl’s. Her bed is the only thing of hers I have left. And she didn’t even sleep in it that many times.
+There are two mattresses down here. Obviously one is mine, and the other one was my sister’s. After she died, I couldn’t bring myself to get rid of it. I don’t have a photo of her, only Guitar Girl’s. Her bed is the only thing of hers I have left. And she didn’t even sleep in it that many times.
 
 *
 
@@ -184,7 +184,7 @@ If none of this had happened, I think my sister would have eventually gone into 
 
 *
 
-I’ve decided that here’s not the place. I'll hit *Submit* on this diary and then I’m going to do it in those woods I wrote about. I’ll be able to find a nice spot there to sit and look at the trees, some place that's calm and peaceful. I’m going to leave the picture of guitar girl in this cellar, she belongs in this house. The tree leaves will remind me of my sister more than any photo ever could anyway.
+I’ve decided that here’s not the place. I'll hit *Submit* on this diary and then I’m going to do it in those woods I wrote about. I’ll be able to find a nice spot there to sit and look at the trees, some place that's calm and peaceful. I’m going to leave the picture of Guitar Girl in this cellar, she belongs in this house. The tree leaves will remind me of my sister more than any photo ever could anyway.
 
 I guess all that’s left to say is thank you for listening.
 

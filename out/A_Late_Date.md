@@ -24,7 +24,9 @@ Once I stopped, in a very shady looking side road made of dirt, she told me to d
 
 I was simply following instructions. I drove for a little longer until I found that said cabin. She told me to turn off the car and lights and wait there, just for 5 minutes. Then, she would be ready for me. I did as she asked me to. While I was checking my pockets to find the proper protection I was going to need, I dropped my phone by accident. When I picked it up, I saw a message. It was a message from Olivia. While I had no signal in the middle of the woods, I could only assume it was a text that she had sent me before or even during our dinner. It read as it follows:
 
-"I'm sorry I couldn't show up today J. My brother had an accident, we're still at the hospital. I hope you don't get mad at me. We can still go out next week, right? <3"  
+"I'm sorry I couldn't show up today J. My brother had an accident, we're still at the hospital. I hope you don't get mad at me. We can still go out next week, right? <3"
+
+Needless to say...I drove the hell out of there, without looking back.  
 
 
-Needless to say...I drove the hell out of there, without looking back.
+UPDATE:  [(Part 2)](https://www.reddit.com/r/nosleep/comments/xdatnf/a_late_date_part_2/)
