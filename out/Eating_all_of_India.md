@@ -1,4 +1,4 @@
-Hunger. It's all I've ever felt. Sadness? Love? Happiness? Nothing could shadow the overwhelming feeling of hunger that cursed my every waking moment.
+'Hunger. It's all I've ever felt. Sadness? Love? Happiness? Nothing could shadow the overwhelming feeling of hunger that cursed my every waking moment.
 
 Hundreds of doctors, always the same 5 words 'must have a high metabolism'. It was more than that. 
 
@@ -32,4 +32,8 @@ When I finally came back to my senses I was being carted away by the police, eve
 
 Now here I am, in a mental institute. Hungry. I'm on my 3rd mattress of the day, I weigh over 400 pounds. They told me that if I keep eating the bed I'll be made to sleep on the floor, but I don't care. I'm hungry. I'll never stop eating. Not until I can taste it again, I just want to feel the slimy, rich tasting meat in my mouth one more time. My plot to eat the nurse didnt work, I now receive food through a little hatch under my door and all doctors consolations are online. I pass out atleast 4 times a day without it and its unbearable, I'd rather die than never eat flesh again. 
 
-I stood infront of the mirror and stared at the monster I had become, but when I looked at myself for once I didn't see a monster, I saw the most beautiful thing I had ever laid my eyes on. Iwas like a lightbulb went off in my head and suddenly I knew everything was going to be okay. I wasnt just 400 pounds. I was 400 pounds... of flesh.
+I stood infront of the mirror and stared at the monster I had become, but when I looked at myself for once I didn't see a monster, I saw the most beautiful thing I had ever laid my eyes on. Iwas like a lightbulb went off in my head and suddenly I knew everything was going to be okay. I wasnt just 400 pounds. I was 400 pounds... of flesh.'
+
+I shut the Diary of the Girl who Ate India, leaning back in my seat as I puffed through the cigarette which hung over my pale, thin lips. I always wanted to know what happened to my daughter after the day she was taken from us. This wasnt the update I was expecting, as a Mom no one ever wants to see their child turn into a cannibalistic, family eating monster. 
+
+Well, I guess she took after her Mother. Only, I never got caught.
