@@ -90,7 +90,7 @@ I was asleep in bed when I heard a muffled scream. I shot out of bed and grabbed
 
 I nodded, “Didn’t it sound like Rebecca to you?”
 
-We rushed over to Rebecca’s room to see a horrible sight. She had been murdered. Her eyes were wide open with fear. Her chest had so many stab wounds you almost see in it. We heard someone come up behind us and turned around.
+We rushed over to Rebecca’s room to see a horrible sight. She had been murdered. Her eyes were wide open with fear. Her chest had so many stab wounds you could almost see in it. We heard someone come up behind us and turned around.
 
 It was just Jude, he looked like he just woke up. He looked past us and saw Rebecca and paled instantly, “W-what happened t-to Rebecca?!”
 
@@ -110,7 +110,7 @@ We didn’t know who would do this.
 
 They both nodded their heads. 
 
-I sighed, “Alright, fine. But what should I do if someone knocks on the door and I’m sure if it is either of you?”
+I sighed, “Alright, fine. But what should I do if someone knocks on the door and I’m not sure if it is either of you?”
 
 “A secret code. You’ll say ‘bears’ and if it is either one of us, we will say ‘cougars’,” Jude said
 
@@ -118,9 +118,9 @@ I sighed, “Alright, fine. But what should I do if someone knocks on the door a
 
 I kept watch of the time, but more than an hour passed and I heard no one outside. I unlocked my door and walked out of my room. I saw no signs of anyone. Did the killer get them both?
 
-I walked around on the first floor and then headed up to the second floor. I shined my light in the den and on the floor laid Riley. Riley, unlike Rebecca, seemed to be killed in a more peaceful way. He didn’t have so many stab wounds, but he had a big slice on his neck. His blood had already pooled around him.
+I walked around on the first floor and then headed up to the second floor. I shined my light in the den and on the floor laid Riley. Riley, unlike Rebecca, seemed to have been killed in a more peaceful way. He didn’t have so many stab wounds, but he had a big slice on his neck. His blood had already pooled around him.
 
-Tears they wanted to fall when I saw Rebecca, finally fell as I fell to my knees. I heard the floorboard creek behind me and saw Jude’s silhouette.
+Tears that wanted to fall when I saw Rebecca, finally fell as my knees hit the floor. I heard the floorboard creek behind me and saw Jude’s silhouette.
 
 “J-Jude, we need t-to leave. The killer g-got R-Riley,” I said through sobs.
 
@@ -148,12 +148,22 @@ My back hit the wall, fuck, I was trapped.
 
 “Like a rabbit chased by a wolf, you have nowhere to go now,” Jude said as he squatted before me. 
 
-I fumbled my hands around until I felt something firm in my hand. I gripped it tight and waited till he leaned in and swung it, hitting him in the hand. He fell over, hopefully passed out. I ran to Riley’s body and searched his pockets for his keys. I grabbed them and ran outside to his car. I got in and floored it to my house. 
+I fumbled my hands around until I felt something firm in my hand. I gripped it tight and waited for the perfect moment.
+
+"I don't understand, they were your friends, why would you kill them? And why in suck a way? I asked
+
+"Well Rebecca died like that cause she was always a bitch to me," he responded
+
+"What about Riley? He was your bestfriend," I said
+
+He smiled, "It's because he was my bestfriend I killed him in the most painless way I knew of."
+
+He leaned towards me and I swung at his head. The bat connected with his head and he fell over. He didn't get up. I got up and ran to Riley's body and searched his pockets. I got his keys and ran to his car. I turned it on and floored it all the way to my house.
 
 I got home and locked my door. I breathed a sigh of relief and went to call the police on my phone, it was dead. That’s fine, I can call the police on my house phone. I rushed to it but it was dead as well. What the hell was going on? Then my lights cut off.
 
 My heart raced with fear, surely it wasn’t Jude. He was passed out when I left, he wouldn’t be up for an hour at the least. The air turned frighteningly cold which nipped at my skin. I looked around hoping to see something, but all I saw was darkness.
 
-I heard my floorboards creak behind me and breathe on my neck. I froze with fear.
+I heard my floorboards creak behind me and felt a warm breathe breathe against my neck. O froze up with fear.
 
 “I told you, I’d silence you all permanently,” Jude’s disembodied voice said.
