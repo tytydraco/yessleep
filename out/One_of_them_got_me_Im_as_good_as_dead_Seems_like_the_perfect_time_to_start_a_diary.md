@@ -32,7 +32,7 @@ And a cold sweat. **That’s new.**
 
 I’ve been through the box of photo albums I found at the back of the cellar again. I’ve looked through them a few times now, but I always notice something new.
 
-There’s a photo of this little girl playing with a pretend guitar. I can tell it’s pretend because it doesn’t have strings, only brightly-coloured plastic levers. Kind of like *My First Guitar Hero* or something. The girl has dark hair and she looks a tiny bit like my sister did a million years ago. I don’t have a picture of my sister. I suppose I could go and get one from my old house, but it’s right in the middle of the village. I’m lucky I wasn’t torn to shreds the last time I went back. So, what I’ve done is put this girl’s photo in my back pocket as a substitute.
+There’s a photo of this little girl playing with a pretend guitar. I can tell it’s pretend because it doesn’t have strings, only brightly-coloured plastic dials. Kind of like *My First Guitar Hero* or something. The girl has dark hair and she looks a tiny bit like my sister did a million years ago. I don’t have a picture of my sister. I suppose I could go and get one from my old house, but it’s right in the middle of the village. I’m lucky I wasn’t torn to shreds the last time I went back. So, what I’ve done is put this girl’s photo in my back pocket as a substitute.
 
 I guess I should probably write something about my real sister now. But I don’t think that’s a good idea just yet.
 
@@ -46,7 +46,7 @@ I don’t like to use the torch because its battery is running out and there’s
 
 Okay, that **could have gone better**. 
 
-Picture the scene: I’m using Old Trusty to try and lever a kitchen window open, when one of them just walks right through the garden hedge. Seriously, straight through it. It’s not the mightiest of hedges but, still, it just appeared like it was walking through one of those Japanese paper walls. My satchel was on the floor, but I legged it anyway. I’m not stupid. I know I can go back for it tomorrow. I felt strangely naked without it on the way back here though.
+Picture the scene: I’m using Old Trusty to try and lever a kitchen window open, when one of them just walks right through the garden hedge. Seriously, straight through it. It’s not the mightiest of hedges but, still, it just appeared like it was walking through one of those Japanese paper walls. My satchel was on the ground, but I legged it anyway. I’m not stupid. I know I can go back for it tomorrow. I felt strangely naked without it on the way back here though.
 
 Like I said before, I need to be careful with the torch so I think I’ll try and get some sleep now.
 
@@ -66,7 +66,7 @@ If I know I’m going somewhere I’ll likely run into an ugly, I like to take e
 
 So, I’m taking a pair of shears from the shelf of old tools down here. That way, if I lose Old Trusty, I’ll have a backup weapon.
 
-If you are local, I wonder how you like to kill them? Pretty morbid question I know, but everyone around here seems to have their preferred method. The last villager I saw alive carried a pair of cricket bats and seemed to have bludgeoning down to an art form. He never saw me though, I was watching from a grove of trees as he killed his way along the main road near the village.
+If you are local, I wonder how you like to kill them? Pretty morbid question I know, but everyone around here seems to have their preferred method. The last villager I saw alive carried a pair of mini cricket bats and seemed to have bludgeoning down to an art form. He never saw me though, I was watching from a grove of trees as he killed his way along the main road near the village.
 
 That was before I decided to stay inside during the daylight hours. We can at least see a little bit at night; ambient light and everything. They can’t though. I’ve seen them, they bump into things. It’s pretty funny to be honest. If they hear a noise, they walk in the direction of the sound, never trying to avoid any object in their path. They either bash said object out of the way, or, like that hedge, blunder right through it. Obviously bigger things stop them dead (ha!) though. If that happens, they sort of shuffle backwards and then try again a few times. Eventually – and I’ve seen this too – they just give up and stand there, waiting for something else to attract their attention.
 
@@ -132,11 +132,11 @@ That’s not the worst of it though. On the way back my leg started to hurt. A l
 
 *
 
-I woke up this morning and I’m walking with a limp. It’s funny, Dad had a limp when he and Mum died. He was nailing planks of wood across our windows and doors because there was no signal (as bloody usual) and we thought what was happening here was probably happening everywhere. It's only recently that I realised this was a local outbreak. Anyway, Dad dropped the hammer onto his toe – he always was useless at DIY. I think it was only a couple of hours after that when he and Mum were taken.
+I woke up this morning and I’m walking with a limp. It’s funny, Dad had a limp when he and Mum died. He was nailing planks of wood across our windows and doors because there was no signal (as per bloody usual) and we thought that what was happening here was probably happening everywhere. It's only recently that I realised this was an isolated, local outbreak. Anyway, Dad dropped the hammer onto his toe, he always was useless at DIY. I think it was only a couple of hours after that when he and Mum were taken.
 
-It was like a wave of death. No, not like, that’s exactly what it was. A hoard of uglies swept through the village, probably from the secret research facility in the woods we're not supposed to know about. My sister and I wouldn’t have had a prayer if Mum and Dad hadn’t charged down the first few that got into our house. They gave us just enough time to escape, to run away and leave them to die. My sister was screaming all the way and I had to drag her like she was four again.
+It was like a wave of death. No, not like, that’s exactly what it was. A hoard of uglies swept through the village, probably originating from the secret research facility in the woods we're not supposed to know about. My sister and I wouldn’t have had a prayer if Mum and Dad hadn’t charged down the first few that got into our house. They gave us just enough time to escape, to run away and leave them to die. My sister was screaming all the way and I had to drag her like she was four again.
 
-She wouldn’t speak to me for a few days after that. I didn’t blame her, I hated myself too. But I would have hated myself even more if I hadn’t done what I did next. On my own, I snuck back into our house with a crowbar I found here. Then I dispatched my parents. I can’t bring myself to write it down any other way. It wasn’t like in the movies, I didn’t pound their skulls into mush whilst sobbing, ‘*Why*?’ over and over again. I just found them, or what was left of them, forced the crowbar through each of their eye sockets, and came straight back here.
+She wouldn’t speak to me for a few days after that. I didn’t blame her, I hated myself too. But I would have hated myself even more if I hadn’t done what I did next. On my own, I snuck back into our house with the crowbar I found here. Then I dispatched my parents. I can’t bring myself to type it any other way. It wasn’t like in the movies, I didn’t pound their skulls into mush whilst sobbing, ‘*Why*?’ over and over again. I just found them, or what was left of them, forced the crowbar through each of their eye sockets, and came straight back here.
 
 **Then came the crying**.
 
@@ -144,7 +144,7 @@ She wouldn’t speak to me for a few days after that. I didn’t blame her, I ha
 
 I haven’t told you about the heavy-duty gloves yet, have I? 
 
-After I got back from our old house, my sister started speaking to me again. A shared, day-long cry will do that for sisters. Once we felt up to it, we decided to explore the parts of the farmhouse we hadn’t searched yet. All the bedrooms were empty, only a few belongings flung about the place (I suspect the previous tenants left in a hurry). The problem came when we investigated the attic. Once we’d opened the ceiling panel in the upstairs hallway, once we’d pulled the compact staircase down, I went in. My sister stood at the top of the hatchway shining the torch beam over my shoulder. And that’s when it touched me. Terrified, I fell to my left, screaming as the thing came crashing down on top of me. I was yelling things like, ‘Shoot it!’ and, ‘Run!’ but my sister was just laughing her head off. I soon realised that my attacker was in fact a shop-window mannequin.
+After I got back from our old house, my sister started speaking to me again. A shared, day-long cry will do that for sisters. Once we felt up to it, we decided to explore the parts of the farmhouse we hadn’t searched yet. All the bedrooms were empty, only a few belongings flung about the place (I suspect the previous tenants left in a hurry). The problem came when we investigated the attic. Once we’d opened the ceiling panel in the upstairs hallway, once we’d pulled the compact staircase down, I went up. My sister stood at the top of the hatchway shining the torch beam over my shoulder. And that’s when it touched me. Terrified, I fell to my left, screaming as the thing came crashing down on top of me. I was yelling things like, ‘Shoot it!’ and, ‘Run!’ but my sister was just laughing her head off. I soon realised that my attacker was in fact a shop-window mannequin.
 
 I think the people who previously lived here must have been arty (or into some seriously freaky stuff) because the mannequin was dressed in scarves, bandannas, ties, watches – loads of things. The rest of the attic was pretty empty but at least we got the mannequin’s gloves.
 
@@ -164,11 +164,11 @@ The tinned *Full English* was vile! You’ve got to laugh though, what else can 
 
 *
 
-I’m **crying as I write this**. Tears of sorrow, shame and regret. 
+I’m **crying as I write this**. Tears of sorrow, shame and regret.
 
-It happened as we were searching a cottage just off of the main road. We’d used Old Trusty to get inside the smallest, and I’d rushed straight into the kitchen to find the food. We’d run out more than a day before and I was famished. My sister followed me into the kitchen, a wide grin on her pretty little face because I was sitting there with an open can of beans. Then one of them came at her from behind. I must have walked right past it on my stupid way to the cupboards. It bit into her neck and blood gushed over the tiles in a torrent. As she yelled out in agony, I leapt up and implanted the crowbar right into the thing’s skull. It crumpled to the floor, but the damage was done.
+It happened as we were searching a cottage just off of the main road. We’d used Old Trusty to get inside, and I’d rushed straight into the kitchen to find the food. We’d run out more than a day before and I was famished. My sister followed me into the kitchen, a wide grin on her pretty little face because I was sitting there with an open can of beans. Then one of them came at her from behind. I must have walked right past it on my stupid way to the cupboards. It bit into her neck and blood gushed over the tiles in a torrent. As she yelled out in agony, I leapt up and implanted the crowbar right into the thing’s skull. It crumpled to the floor, but the damage was done.
 
-‘Don’t let me lose myself.’ That was the last thing my sister said to me before she passed out. Her wound was much more severe than mine is, and much closer to the brain. That seems to make it quicker. I took grandpa’s revolver from behind my back and blew her brains out.
+‘*Don’t let me lose myself*.’ That was the last thing my sister whispered to me before she passed out. Her wound was much more severe than mine is, and much closer to the brain. That seems to make it quicker. I took grandpa’s revolver from behind my back and blew her brains out.
 
 I **buried her** in the back garden.
 
@@ -176,11 +176,11 @@ I **buried her** in the back garden.
 
 After my sister died I went kind of crazy. I took Old Trusty out across the fields and pulverised every ugly I could find. I don’t even remember it that well, it was just, find, kill, find, kill…
 
-We’d only been going out in daylight before then but, in my anger, I carried on through the nights. That’s how I learned about their inability to evade in darkness. Eventually, though, one got me. I found three munching on a dead cow and ran straight at them. Took out the first two easily enough, but the third managed to scratch my leg with a bloody fingernail just before I clobbered it into oblivion. Once I realised its nail had broken the skin, it was like a switch had been flicked inside me. That’s it, I’m dead too. I lost my bloodlust and came back here.
+We’d only been going out in daylight before then but, in my anger, I carried on through the nights. That’s how I learned about their inability to evade in darkness. Eventually, though, one got me. I found three munching on a dead cow and ran straight at them. Took out the first two easily enough, but the third managed to scratch my leg with a bloody fingernail just before I clobbered it into oblivion. Once I realised its nail had broken the skin, it was like a switch had been flicked inside me. *That’s it, I’m dead too*. I lost my bloodlust and came back here.
 
 *
 
-If none of this had happened, I think my sister would have eventually gone into medicine. I was doing okay at College but she was top of her class. And she had a really kind nature too. She’d never squish any bugs that got trapped in our house; she’d get a glass, scoop the little critter up and seal it inside with a book. Then she’d take it outside and release it, even if it was a wasp.
+If none of this had happened, I think my sister would have eventually gone into medicine. I was doing okay at College but she was top of her class at school. And she had a really kind nature too. She’d never squish any bugs that got trapped in our house; she’d get a glass, scoop the little critter up and seal it inside with a book. Then she’d take it outside and release it, even if it was a wasp.
 
 *
 
