@@ -56,3 +56,7 @@ She lunges at me, and I kick her away, and she falls into the water. I use the c
 
 “HELP ME, YOU WORTHLESS SHIT!”
 She said as she drowned. No humane tone of voice could produce the undertone she made. I ran after that, because that was loud as hell. I’m currently hiding in a dead log, at 12:47. I hear my parents getting closer every second. Someone, please help me. I’ve been raised by demons
+
+
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/xcwglk/ive_been_blind_since_i_was_eight_but_ive_recently/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

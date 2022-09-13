@@ -18,8 +18,8 @@ Hello Again, and Goodbye.
   "No! He's already been lost in this damn place once. I didn't even want him here in the first place! You dragged him back into this!" 
 
   He studied me for a moment, cutting his eyes to Malphas, who returned a shrug in response. As desperate as I was to find Grant; to know once and for all if there was even a chance to make him whole again, I couldn't allow my friend and roommate to endure whatever he was going through any longer. 
-  
-  Even months after he returned to the house, he wouldn't tell me what he went through that last time. Granted, he didn't recoil or fall apart as he had during our first visit to this damned building, but he downright refused to discuss it with me. I could only imagine the horrors he had to deal with before Grant gave his life in an attempt to free us both. 
+
+  Even months after he returned to the house, he wouldn't tell me what he went through that last time. Granted, he didn't recoil or fall apart as he had during our first visit to this damned building, but he downright refused to discuss it with me. I could only imagine the horrors he had to deal with before Grant gave his life in an attempt to free us both. 
 
   "Alright," the old man said with a nod, "Brandon first." 
 
