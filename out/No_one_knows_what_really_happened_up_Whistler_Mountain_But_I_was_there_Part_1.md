@@ -152,6 +152,6 @@ Chopper: "Glad to hear it. Over and out."
 
 *
 
-They say the killer always returns to the scene of the crime. I'm afraid the killer will come back here for my new vessel now I'm finally telling my story. But keeping control is exhausting, I must take a respite. More soon.
+They say the killer always returns to the scene of the crime. I'm afraid the killer will come back here for my new vessel now I'm finally telling my story. I'm afraid I'll be silenced before I can finish. But keeping control is exhausting, I must take a respite. More soon.
 
 [[Part 2]](https://www.reddit.com/r/nosleep/comments/x1g44c/no_one_knows_what_really_happened_up_whistler/?)
