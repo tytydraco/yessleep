@@ -25,3 +25,5 @@ so yeah. that was odd but again, not something that you would call the police ov
 there was no name saying who the writer was nor was there a "to \_\_\_\_\_". i don't know what to make of this. is the paper just from someone in my apartment block? or is it all connected with the guy from the park. anyways, ill keep you guys updated :)
 
 edit- probably not important but he was wearing a black hood.
+
+part two- [https://www.reddit.com/r/nosleep/comments/xdodl5/i\_think\_i\_have\_a\_stalker\_pt2/](https://www.reddit.com/r/nosleep/comments/xdodl5/i_think_i_have_a_stalker_pt2/)

@@ -158,13 +158,13 @@ Who Are You, and Where Have You Been?
 
   "STOP!" I screamed.
 
-  Grant was still holding onto me, attempting to remain upright. The expression he wore suggested that he was just as puzzled by the old man's words as I was, but he didn't speak. He kept staring at my face, as though attempting to put together the features in his mind's eye; to attempt to recognize who or what I really was beneath the flesh. When Max began to speak again, my friend turned his attention back to the man before us. 
+  Grant was still holding onto me, attempting to remain upright. The expression he wore suggested that he was just as puzzled by the old man's words as I was, but he didn't speak. He kept staring at my face, as though he was trying to put together the features in his mind's eye; to attempt to recognize who or what I really was beneath the flesh. When Max began to speak again, my friend turned his attention back to the man before us. 
 
   "You see, Michael, when an angel dies a true and complete death, they move on, not unlike how a human does. It's the subconscious that makes the decisions in the long run. Angels have souls, not unlike those who walk the earth. Should they choose to reincarnate, they will be brought back into the world in the traditional manner, completely unaware of what they once were. Funny thing about it, though; be it by design or just plain old crazy coincidence, they will always be reborn with the name they were given by their one true father…your true father, Michael." 
 
   "No no no no, you guys are fucking with me here!" I said, backing away from them, shaking my head, and waving my arms like they had me at gunpoint, "Is this a bit, or something? Did you guys work all this out before Grant died? What the hell is this!?" 
- 
-  Of all the barely believable things I had witnessed throughout my life, this was something I could not even begin to take seriously. Why Grant and who I had thought the old man to be would play such a ridiculous joke, I couldn't figure out, but I knew who I was, and I wasn't what they were claiming; not by a longshot! 
+
+  Of all the barely believable things I had witnessed throughout my life, this was something I could not even begin to take seriously. Why Grant and who I had thought the old man to be would play such a ridiculous joke, I couldn't figure out, but I knew who I was, and I wasn't what they were claiming; not by a longshot! 
 
   "There's a reason you two grew so close all those years ago, kid. It may not coincide with the tales that've been spun over the years, but Lucifer and Michael were among the closest of all the angels. It broke Michael more than anyone when their daddy cast Lucifer out. It was that very thing that led to Michael's sacrifice. He chose to fall; to leave heaven behind and never look back. It could be said that you pitched a lil fit when yer daddy wouldn't hear what you had to say; how you tried to tell him your brother could change. You lil rebel, you." 
 

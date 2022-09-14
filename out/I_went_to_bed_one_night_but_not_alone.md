@@ -1,0 +1,28 @@
+Before this, I had never had a supernatural encounter. I’ve never been too big on the whole horror genre but I never did mind it. If someone wanted to watch a horror movie I’d watch, but go on my phone throughout the most of it. It just never bothered me enough to actually pay attention. After tonight I don’t think I will ever want to be involved with anything defined as scary, but not because it bores me, but because I feel as though pure fear will take control of me.
+
+It was genuinely just an ordinary day, I woke feeling like shit, but not anything a cup of coffee can’t fix, had my cereal, got ready and set off for college. College. Same shit as always: going to lesson and everyone on my arse about what they expect of me in the future. I spent the whole day missing my bed. However, what I didn’t expect, was that my bed would be the last thing I would want to come home to following this maniacal nightmare. At least I thought it was a nightmare. God I hope it was a nightmare.
+
+When I got home, I launched my bag onto the couch and ran upstairs, my body following the same action as my bag as i flung myself face first onto what i thought was my safe cozy bed. The instance my face hit my pillow, my consciousness sailed far from my being. 
+
+I woke up and checked the time. 2:00 am. I realised I hadn’t called my girlfriend or even said goodnight to her. I kinda just shook it off and texted her apologising, hoping everything would be fine the morning coming. I was feeling thirsty, so I went downstairs to get a glass of water. I trudged upstairs to find my door opened when I thought I had closed it, I was still half asleep so I thought nothing of it. I slumped back over into my bed but I couldn’t go to sleep as easy as before.
+
+Have you ever had the feeling that someone is watching you, but you know someone is actually watching you. This is how I felt; the slight tingle of a stare burning into the back of my head. I faced the wall so it was the only thing I could see, obviously doing nothing for my safety but it helped ease the fear. I closed my eyes and tried my best to sleep. 
+
+Just as I’m about to fall asleep, I hear my papers on the floor rustle and a slight pull on the covers I used as my shield. I hesitated and decided to curl up into a ball as though an armadillo would do to protect themselves. 
+
+Then I felt the covers rise, and the mattress slowly start to sink under the weight of another person. Someone was fucking getting into bed with me. In a small voice I whispered, “mum?”
+I was greeted with a slight chuckle in a deep grotesque voice. My eyes widened but I didn’t want to turn around, fuck that. I lay in fear, sweating, until i felt the touch of a hand caress my arm and grab it gently. It slowly turned me towards the direction of the person. It turned me until my head fell into place. I was now facing this person, this thing. their arm was still holding my arm, gripping tighter with every passing second. My eyes were closed, I didn’t want to look. I couldn’t. 
+
+The grip on my arm got so tight it started to cause unbearable pain. I had to open my eyes; see what was in my bed.
+
+As my eyes focused, i could faintly make out a grin, almost from ear to ear, with teeth that were decayed and hanging loose from his bloodied gums. His eyes were wide and his stare,crazed and bloodshot. His forehead wrinkled and a few strands of hair poked from his worn scalp. I tried to get up and get the fuck out of there but I couldn’t. Not only was he squeezing my arm, but he was holding me down onto my bed. 
+
+I kicked him in the groin and bolted for the front door, his heavy footsteps following behind. I scrambled for the keys and burst the door open. When I saw that he wasn’t following, I remembered that I wasn’t alone in that house. My mum and brother were sleeping still and I knew they weren’t light sleepers. I calmed myself down and with a sudden wave of adrenaline I ran back inside and armed myself with a knife from my kitchen.
+
+I slowly crept up the stairs and to my horror, the man just stood at my little brothers room.His door was closed but the mans hand was already on the handle; before he entered his room, he looked over at me with the same wide eyed grin as he did in my bed. I was already scared but this just made me feel uneasy, because I could see intent in his glaring eyes. I don’t know what kind of plan he had but those are not the eyes of a sane person.
+
+He then slowly entered my brothers room and I ran after him. The door closed on my face and with all my force I tried to break down the door. This obviously woke up my mother and she ran out her room to see what was going on. I explained the situation and she immediately helped me break down the door. We ran in to find the man in the bed with my brother, just stroking his hair and humming. the hum sounding more like a growl.
+
+That’s when I woke up, or at least I thought that’s when i woke up. I was in my bed as I would usually be, but the aura of the whole house felt off. I got up and went to open my door; before I did i heard a faint whimper, then followed by a growl. I opened the door to find my brother stood there with the same expression of the man. Wide eyes and a haunting smile, this time with the gross addition of snot travelling all the way from his left nostril to the bottom of his chin. Leaving a trail on his lips.
+
+I instantly shut the door and started writing this. I’m not sure if it was all a dream but how can it be. I don’t know what to do and now I’m scared of my little brother. Please help me.

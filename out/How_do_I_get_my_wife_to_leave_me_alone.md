@@ -43,3 +43,9 @@ And I feel shitty for not loving how much she loves me. I feel bad about closing
 And I hate that I hate her. I don’t want to hate her. I used to tell her I would move mountains for her. And I would have. I would have done anything for her. 
 
 It was just so much easier to love her when she was alive.
+
+
+
+
+
+Update [here.](https://www.reddit.com/r/nosleep/comments/xdnmc3/update_how_do_i_get_my_wife_to_leave_me_alone/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

@@ -1,3 +1,5 @@
+What happened next: (Coming soon)
+
 **I think I have anatidaephobia.**
 
 I remember the laughs I had when I learned there was a fear of a duck always watching you.  I practically laughed *so hard* that my face became red. My friend, Emily, made a remark about how it's not funny, because people actually suffer from that fear. I just laughed harder and started making duck noises, which prompted her to double down laughing also.
@@ -16,13 +18,13 @@ He was amazing. Key word: WAS.
 
 Anyways, ice cream. I got strawberry in a cone, paid for by Jackson, of course. It was great.
 
-Then, I saw something in the corner of my eye. A white blob behind the trashcan. I pointed it out to Jackson, and we investigated. 
+Then, I saw something in the corner of my eye. A white blob behind the trashcan. I pointed it out to Jackson, and we investigated.
 
-It was a duck. 
+It was a duck.
 
 I thought it was cute when I saw it. Jackson tried to coax it over, even throwing a piece of his ice cream cone at it. The duck didn't flinch at the action. It just stood there. I don't think it registered at the time, but now that I recall it, I think it was looking at me. The way I remember it, its eyes were unnatural. They were gray. I remarked to Jackson about it, but he didn't seem to hear me.
 
-That day went on as normal, and I didn't think about the duck for a while. I think it was a week before it was brought to my memory. 
+That day went on as normal, and I didn't think about the duck for a while. I think it was a week before it was brought to my memory.
 
 This time, it was just me and Emily. We were out shopping, and I saw it.
 
@@ -32,7 +34,7 @@ It was just... *standing* there, in a dark corner. Gray eyes, white feathers.
 
 Watching me.
 
-I pointed to it, and prodded Emily to look. 
+I pointed to it, and prodded Emily to look.
 
 "Emily, do you see that? Its that duck from last week!" She turned her head, and so did I. But the duck was gone. May finger dropped, and I shook my head. "It was there!" I ran to the corner, peeking around it, but no duck was present. It had just *disappeared.*
 
@@ -62,7 +64,7 @@ Watching me.
 
 At the time I was still not sure whether I was sane or not, so I went into my apartment, hoping all would go back to normal.
 
-About a month later, I still hadn't seen the duck again. I went over to Jackson's house for some chill time, and he got me a gift. I hadn't mentioned the duck thing to him yet, because I thought he'd be weirded out by it. Not that I thought he wouldn't believe me - he would. He was the most supportive person on earth. I just didn't want him worrying. 
+About a month later, I still hadn't seen the duck again. I went over to Jackson's house for some chill time, and he got me a gift. I hadn't mentioned the duck thing to him yet, because I thought he'd be weirded out by it. Not that I thought he wouldn't believe me - he would. He was the most supportive person on earth. I just didn't want him worrying.
 
 But then, I opened the gift.
 
@@ -98,7 +100,7 @@ Meanwhile, after observing all this, I saw the icing on the cake.
 
 The duck's eyes were directly staring at me, and it had a maddened look in those gray hues. I screamed, but I didn't run. If I remember correctly, I shouted at the duck. I yelled loud enough to be heard, but no one came. "I hate you!" I shouted. "I HATE YOU!" Even louder. I threw my shoe at the duck, doing all I could to *make it move.* But the shoe deflected off of the duck's face. It didn't move an inch, until...
 
-It nibbled on the skin in into mouth. 
+It nibbled on the skin in into mouth.
 
 My stomach churned. I wanted to vomit, but I couldn't stop looking at the duck. If I did, I knew if would disappear. So, I sat down, and I cried. Right in front of the duck, right beside the torn apart body of my beloved. I decided to be bold.
 
