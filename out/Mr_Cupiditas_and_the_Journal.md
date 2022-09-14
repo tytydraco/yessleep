@@ -1,0 +1,39 @@
+I found a journal while going through boxes in the attic of the house I just bought. Most of the entries hold nothing of significance, but there a handful that have me worried, to say the least.
+
+*August 21, 1992 - Today was a good day. I went to church and found a new couple to work with. They seemed very nice, somewhat gullible. Perfect. I can't wait to invite them over for their orientation dinner. Meanwhile, I have Mark and Jeannie coming for their second session tonight, and I'm hoping that I can finally convince Mark to let me have my first personal session with Jeannie soon. It's getting close to that time of the month and I need to move fast if I'm going to make good use of her.*
+
+>I need to move fast if I'm going to make good use of her.
+
+That line of text gave me straight up chills, even without any further context. This person is/was obviously religious to some degree, but I didn't know if this was in reference to bible study sessions, or something more sinister. And what can they mean by "close to that time of the month"?
+
+*August 27, 1992 - I finally convinced Mark and I have my first personal session scheduled with Jeannie for tonight. It's the perfect night for it. There's a new moon and it's going to be nice and cool. I have the clearing all prepped and the fire ready to light. I hope those stupid kids aren't messing around out there again tonight. That really put a damper on my last session with Linda. I really need this one to be a success, or else...*
+
+God damn...or else what? There was one other entry between those two, but that one was just mundane shit, nothing worth noting compared to these two. This last one though...had me on edge. It was starting to sound more and more like some witch stuff or cult stuff. Nothing I wanted anything to do with.
+
+*August 28, 1992 - Thank you, my lord, for giving me the time and space to fulfill my duties to you. I was able to successfully complete the ritual with Jeannie. She was weary at first, but I managed to convince her that it was the only way for her to redeem herself after her life of sin. She did, after all, dedicate her life to Christ. She had no choice but to heed my warnings and do as I told. The new moon brings forth new opportunities, after all.*
+
+Okay, what? I mean, am I nuts, or does this seriously sound like some cult shit? And what was the ritual? There was no detail on that anywhere. I was starting to feel like it would be a mistake for me to keep reading, but I had to know more. My curiosity needed it, ached for it. I had left the journal in the attic every time, and after this last entry I read, I tried taking a break, forgetting it was up there. But something inevitably drew me back to that musty space after only a few days.
+
+*September 23, 1992 - I managed to talk Linda into having another session so we could try to complete the ritual again. Just in time, too. I only have a few days left to prepare, and this one really pushed me to the edge. I was worried I would have to tell my lord that I was unable to do my duties this month, but my prayers were answered. Thank you, my good lord. You always provide for me in the toughest times. I can't wait for this one. Linda must be so ripe at this point, so ready for this. She must feel it now.*
+
+Um...so the new moon would have been a few days after that date, according to a quick search. So, yeah...and what do they mean by 'ripe'? Ripe for what? Made my skin crawl.
+
+*September 27, 1992 - Finally did it. Linda has been properly taken care of and my lord is satisfied with my work, once again. This time around, Linda was far more receptive than the previous session. I don't know if it was the exceptionally cool night, or if she just wanted it more after the extra couple months of anticipation. But it was spectacular. Thank you, my lord for providing me with the best vessels.*
+
+Vessel? Now I was really getting bad vibes. Was this guy impregnating these women? And to what cause?
+
+*October 4, 1992 - Mark showed up at the house, seemingly upset. I guess he didn't understand his role in this. I tried explaining it to him again, but this time he wasn't receptive at all, claiming I was some sort of false profit, only out for my own pleasures. Boy does he have me wrong. If I can't manage to get this under control, my lord will not only punish me, but he will surely show Mark the way, and not using any of my gentle, worldly techniques. I fear for Mark the most, as I can handle the wrath of my lord. I am not like Mark, or any of the others before him or after him. I will always survive.*
+
+Shit. I wish I had last names and could look these people up...see if they're still around. This was getting more and more menacing as I continued reading. After that, there was little in the way of these types of entries, only one at the end that went as follows:
+
+*My duties have been fulfilled, my time here well spent. I have been granted my leave, being able to spend my days fulfilling my own destiny from here on out. My lord has treated me well and I will always be indebted to him. I thank you, my lord, for all you have given me, in return for all I have given to you.*
+
+There was little detail as to what all happened after these rituals, but one can only imagine...I mean it sounded like these women were being impregnated or something, and their husbands were supposed to just go along with it and raise whatever came out. Sounds pretty wild right?
+
+I had left that journal in the attic, almost forgetting about it after a few years, until one day when my wife brought it down to the kitchen. She had flipped through it and was pretty freaked out by what she read. But then she pointed out something I had missed...or had I? There was an entry a few pages after that last one I read, one which made my stomach turn.
+
+*August 31, 2022 - I have been called back to duty for reasons I am not ready to hear, according to my lord. He promised a great debt owed to me for my return, and I agreed to take on my role, once more, to serve my lord and bring forth more of his foot soldiers. I have met a new couple, Adam and Eveline, whom I have graciously invited into my home to stay, promising them the future they dream of. I have yet to schedule their orientation, but I have a few weeks before I have to do my ritual once again. It shouldn't be a problem.*
+
+I am Adam. My wife is Eveline, although she goes by Eve (yeah, I know, Adam and Eve...it was a huge joke when we first got together). This house we just moved into last week was shown to us by a strangely eccentric man named Mr. Cupiditas, the type of person who you would imagine lives in a hobbit house, or something weird like that. He said this house was empty for years, that the man who owned it loved it dearly and never wanted to sell until now. It went for a steal, which should have been a huge red flag, but it did need some work. I figured the seller just wanted to make sure whoever bought it would be able to afford to fix it up, get it back to it's original glory. Now...now I'm a bit worried. There's only eleven days until the next new moon, and this "person" hasn't shown up for this supposed "orientation". I want to believe that it's all just some weird game, or a hoax, that the strange man is messing with us for fun. Something inside of me thinks everything will be okay. I mean, the guy that showed the house did tell us he would help our dreams come true by getting us into this house. I should trust him on that, right? Who doesn't want their dreams to come true? He had warned us that we would have to give the house everything we had, but that in return, we would receive far more in gratitude. I think I'm up to the task. I know Eve is. She's chomping at the bit, wanting only the best for us and our future family.
+
+Gotta go. Eve said Mr. Cupiditas is on the phone and wants to talk to us about something important.
