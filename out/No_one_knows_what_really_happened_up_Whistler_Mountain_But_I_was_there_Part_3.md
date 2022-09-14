@@ -154,7 +154,7 @@ Fake Rose: "Over and out, Chopper."
 
 The woman pretending to be me fired, Chopper crumpled to the floor.
 
-Then woman took the van and fled.
+Then the woman took the van and fled.
 
 *
 

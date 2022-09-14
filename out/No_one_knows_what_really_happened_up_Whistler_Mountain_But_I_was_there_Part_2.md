@@ -104,19 +104,19 @@ Rose: "So what now?"
 
 Chopper: "Start moving down the track, Rose. We’re gonna have ourselves a nice sit down whilst we wait for Michael to walk back, catch him unawares so he doesn't cause no trouble."
 
-And so they walked down the track and then into the trees lining it. I followed.
+And so they walked down the track and then into the dark forest lining it. I followed.
 
 *
 
-Half an hour later they were sitting on a pair of tree stumps near the track, waiting in ambush for Michael. Ancient, looming forest towered over us.
+Half an hour later they were sitting on a pair of tree stumps near the track, waiting in ambush for Michael. Ancient forest towered over us.
 
 Chopper still had his firearm of course. 
 
 Rose: "You're very comfortable with that gun."
 
-Chopper: "Afraid that's what a life of unsavoury work and regret gets you."
+Chopper: "Afraid that's what a life full of unsavoury work and regret gets you."
 
-Rose: "You said you were going steady with a girl once, you can't regret that?"
+Rose: "On the radio you said you were going steady with a lady once, you can't regret that?"
 
 Chopper: "That was a long time ago. Reckon its best we just sit quietly and wait for Michael."
 
@@ -126,7 +126,7 @@ Chopper: "You really don't need to know about her, Rose."
 
 Rose: "But I want to know. And sitting in the dark waiting for Michael, it’s not like we have anything better to do than talk."
 
-Chopper: "Hard to disagree with that …"
+Chopper: "I suppose it's hard to disagree with that …"
 
 Rose: "Exactly. So tell me, what was her name?"
 
