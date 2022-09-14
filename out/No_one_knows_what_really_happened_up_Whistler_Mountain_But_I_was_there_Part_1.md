@@ -88,8 +88,6 @@ Rose: "I hope so. Anyway, I better go and turn on all the lights, stoke the fire
 
 Chopper: "Pleasure was all mine, Rose. Good luck to ya. To both of ya. Over and out."
 
-Rose: "Over and out."
-
 A click, and the CB was switched off.
 
 Rose: "And now I wait."
