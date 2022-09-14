@@ -405,3 +405,5 @@ An Unexpected Detour
   "If we got time, we'll come back for 'em," he said, still breathing heavily, "but we gotta find Lucifer before it's too late."
 
 [Part 9](https://www.reddit.com/r/nosleep/comments/xdkrqq/devils_due_sympathy_for_the_devil_part_9/?utm_medium=android_app&utm_source=share)
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/xefgkw/devils_due_sympathy_for_the_devil_part_10/?utm_medium=android_app&utm_source=share)

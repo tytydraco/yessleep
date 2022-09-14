@@ -334,3 +334,5 @@ Give the Man a Hand
 [Parts 7&8](https://www.reddit.com/r/nosleep/comments/xcq9ld/devils_due_sympathy_for_the_devil_parts_78/?utm_medium=android_app&utm_source=share)
 
 [Part 9](https://www.reddit.com/r/nosleep/comments/xdkrqq/devils_due_sympathy_for_the_devil_part_9/?utm_medium=android_app&utm_source=share)
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/xefgkw/devils_due_sympathy_for_the_devil_part_10/?utm_medium=android_app&utm_source=share)

@@ -181,3 +181,5 @@ Who Are You, and Where Have You Been?
   With Grant still far from himself and my mind spinning from this series of barely believable revelations, I knew there was nothing we could do to escape this place, let alone bring it down to its foundations. All hope had been stripped away, once and for all. Whether I would leave this world as the son of Jacob and Dorothy Bourdon, or a true child of the man upstairs didn't matter anymore. 
 
   As I helped my closest friend through the opening that led from one plane of reality to another, I felt drained and exhausted. Perhaps it was better that it all ends now. If nothing else, whether he remembered who I am now or not, I would be with Grant as we fell into the black together. I would accompany him; my brother, towards whatever may truly lie beyond this place. 
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/xefgkw/devils_due_sympathy_for_the_devil_part_10/?utm_medium=android_app&utm_source=share)
