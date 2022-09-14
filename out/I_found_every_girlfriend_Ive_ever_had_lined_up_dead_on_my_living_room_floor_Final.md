@@ -18,13 +18,13 @@ There was only one thing for it. I had to go in.
 
 Inside, the building was quiet. I passed through long hallways skirted by empty lecture halls without seeing anyone.
 
-Before long, I reached the stairwell. Slowly, I made my way towards the top of the building. About halfway up I heard footsteps. I froze.
+Before long, I reached the stairwell. Slowly, I made my way up towards the top of the building. About halfway up I heard footsteps. I froze.
 
 A few moments later a young Professor carrying a small stack of books came down the stairs.
 
 Thankfully, he seemed to be in a rush and paid me little notice as he passed. I carried on upwards.
 
-I soon reached the top of the stairs and a large door that led out onto the roof. It seemed like the kind of door that ought to be locked, but Rose had apparently seen to that.
+I soon reached the top of the stairwell and a large door that led out onto the roof. It seemed like the kind of door that ought to be locked, but Rose had apparently seen to that.
 
 Outside, the roof was empty. I could see the campus and then the city stretching out in all directions, but the people down there looked like ants. I couldn't tell if any of them seemed suspicious. Then I noticed something on the floor at the other end of the roof.
 
@@ -74,7 +74,7 @@ Me: “Do you have your phone?”
 
 Professor Dance: “Er – yes. Do you need to make a—”
 
-I drew the knife from behind my back.
+I drew the knife from behind my back, silencing him.
 
 **I did it for Alex.**
 
@@ -162,7 +162,7 @@ Rose: “But really I'll be escaping with the painting whilst you're spinning so
 
 Me: “You murdered five women just to steal a painting? How did you even find my exes?”
 
-Rose: “Through your Facebook account. I borrowed your phone and locked you out of Facebook whilst you were sleeping off one of our little extra-curricular sessions. I've been posing as you, talking to your wretched exes for weeks, listening to their pathetic little sob stories, luring them to come and meet me with tales of wanting to reconcile. It really wasn't hard.”
+Rose: “Through your Facebook account. I borrowed your phone and locked you out of Facebook whilst you were sleeping off one of our little extra-curricular sessions. I've been posing as you, talking to your wretched exes for months, listening to their pathetic little sob stories, luring them to come and meet me with tales of wanting to reconcile. It really wasn't hard.”
 
 Rose kept her eyes and gun trained on me as she spoke.
 
@@ -200,7 +200,7 @@ When she was gone, Rose wiped a trickle of blood away from her mouth.
 
 Rose: “Alone at last. Whatever will you do with me now?”
 
-Rose had murdered five amazing women, stole them from the world. I may not be the best person, but those women were an important part of my life. They made the world a better place and it's not everybody that gets to do that. I certainly didn’t. 
+Rose had murdered five amazing women, stole them from the world. In life those women made the world a better place and it's not everybody that gets to do that. I certainly didn’t. 
 
 But faced with true evil, I saw a way to at least improve the world in one small way.
 
@@ -214,7 +214,7 @@ That night I ran and I ran. Not because I was being chased, but because some ani
 
 I was standing in a back alley behind a large townhouse. It was the kind of house landlords rent out to several students at a time. Even in the gloom I could see the open window on the second floor. I climbed a sturdy drainpipe and managed to slip inside.
 
-I found myself in an empty bedroom. There was only one thing to do. I climbed under the duvet and cried myself into an exhausted sleep.
+I found myself in an empty bedroom. I crawled under the blanket strewn across the bed and cried myself into an exhausted sleep.
 
 *
 
@@ -228,7 +228,7 @@ I didn't get any updates until three days later when Alex started posting short 
 
 I shot that monster in the heart. I don't understand how she even survived, let alone escaped. And did she escape from the warehouse before the police got there like I did? Or did she escape from custody, or perhaps from the hospital? Maybe some of [MM’s research](https://www.reddit.com/user/mediamusing/comments/x3xxf0/potential_rose_evidence/) holds [a clue](https://www.reddit.com/user/mediamusing/comments/x41e6i/rose_blog/) as to how she managed it.
 
-Whatever the answer, ever since reading Alex's first story I have been afraid for my life, certain that Rose would be hunting me. But, after writing everything down and clearing my head, I'm not so sure. Rose made such an effort to frame me, surely killing me after all that would be pointless? Maybe I'm just being naïve.
+Whatever the answer, ever since reading Alex's first story I have been afraid for my life, certain that Rose would be hunting me. But, after writing everything down and clearing my head, I'm not so sure. Rose made such an effort to frame me, surely killing me after all that would be pointless? Who knows how that psycho thinks.
 
 I was also able to determine from Alex’s blog that Professor Dance survived his injuries (thank God) and that the police still consider me the prime suspect in the murders. Exactly as Rose planned.
 

@@ -186,7 +186,7 @@ Me: “But all that way, what if the police—”
 
 Caller: “No dawdling. Be there by 5pm. You know what will happen to Alex if you defy me. And dump your phone, bring Alex’s instead. Bring the knife too. Do you understand?”
 
-Me: “Yes, 5pm Humanities building roof. Alex’s phone and knife. Are you going to tell me why you're doing this to me? Who you are?”
+Me: “Yes, 5pm Humanities building roof. Alex’s phone and the knife. Are you going to tell me why you're doing this to me? Who you are?”
 
 Caller: “Why I'm doing this? No, I'm not going to tell you that yet. Who I am? That's an interesting question. Over the years I have used many names, but I think my favourite is … Rose.”
 
