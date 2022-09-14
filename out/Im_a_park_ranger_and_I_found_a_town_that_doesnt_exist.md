@@ -81,3 +81,5 @@ Two men came inside, both dressed in black suits.
 I looked at him and nodded. The guy was wearing a badge on his chest and a gun on his hip. He looked like an FBI agent. 
 
 I’m about to go and talk to them, and I don’t know if they’ll believe me. What the fuck do I do?
+
+[Update](https://www.reddit.com/r/nosleep/comments/xdryay/im_a_park_ranger_and_i_found_a_town_that_doesnt/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
