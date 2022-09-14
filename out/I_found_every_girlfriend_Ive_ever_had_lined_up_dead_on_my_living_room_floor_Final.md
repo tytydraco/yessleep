@@ -162,7 +162,7 @@ Rose: “But really I'll be escaping with the painting whilst you're spinning so
 
 Me: “You murdered five women just to steal a painting? How did you even find my exes?”
 
-Rose: “Through your Facebook account. I borrowed your phone and locked you out of Facebook whilst you were sleeping off one of our little extra-curricular sessions. I've been posing as you, talking to your wretched exes for months, listening to their pathetic little sob stories, luring them to come and meet me with tales of wanting to reconcile. It really wasn't hard.”
+Rose: “Through your Facebook account. I borrowed your phone and locked you out of Facebook whilst you were sleeping off one of our little extra-curricular sessions. I've been posing as you, talking to your wretched exes for months, listening to their pathetic little sob stories, luring them to come and meet me with talk of wanting to reconcile. It really wasn't difficult.”
 
 Rose kept her eyes and gun trained on me as she spoke.
 
@@ -200,7 +200,7 @@ When she was gone, Rose wiped a trickle of blood away from her mouth.
 
 Rose: “Alone at last. Whatever will you do with me now?”
 
-Rose had murdered five amazing women, stole them from the world. In life those women made the world a better place and it's not everybody that gets to do that. I certainly didn’t. 
+Rose had murdered five amazing women, stole them from the world. In life those women made the world a better place and it's not everybody that gets to do that. I certainly haven't.
 
 But faced with true evil, I saw a way to at least improve the world in one small way.
 
@@ -228,7 +228,7 @@ I didn't get any updates until three days later when Alex started posting short 
 
 I shot that monster in the heart. I don't understand how she even survived, let alone escaped. And did she escape from the warehouse before the police got there like I did? Or did she escape from custody, or perhaps from the hospital? Maybe some of [MM’s research](https://www.reddit.com/user/mediamusing/comments/x3xxf0/potential_rose_evidence/) holds [a clue](https://www.reddit.com/user/mediamusing/comments/x41e6i/rose_blog/) as to how she managed it.
 
-Whatever the answer, ever since reading Alex's first story I have been afraid for my life, certain that Rose would be hunting me. But, after writing everything down and clearing my head, I'm not so sure. Rose made such an effort to frame me, surely killing me after all that would be pointless? Who knows how that psycho thinks.
+Whatever the answer, ever since reading Alex's first short story I have been afraid for my life, certain that Rose would be hunting me. But, after writing everything down and clearing my head, I'm not so sure. Rose made such an effort to frame me, surely killing me after all that would be pointless? Then again who knows how that psycho thinks.
 
 I was also able to determine from Alex’s blog that Professor Dance survived his injuries (thank God) and that the police still consider me the prime suspect in the murders. Exactly as Rose planned.
 

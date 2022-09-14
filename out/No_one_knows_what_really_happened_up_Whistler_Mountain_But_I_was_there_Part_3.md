@@ -152,7 +152,7 @@ Chopper: "No, please …"
 
 Fake Rose: "Over and out, Chopper."
 
-The woman pretending to be me fired, Chopper crumpled to the floor.
+The woman pretending to be me fired. Chopper crumpled to the floor, his empty gun tumbled out across the floorboards.
 
 Then the woman took the van and fled.
 
