@@ -1,4 +1,6 @@
-  
+[Part 2](https://www.reddit.com/r/nosleep/comments/xeeat8/i_shouldnt_have_returned_to_the_colorado_mountains/)
+
+&#x200B;
 
 Has anyone had any similar experiences? Me and my friend Sam decided to go on a vacation to Colorado. We recorded plenty of videos, because it’s not every day you go to Colorado. Looking back, I should have noticed that something was up.
 
@@ -16,11 +18,11 @@ The next day, we found something even weirder. Another hiker saw us, and whipped
 
 &#x200B;
 
-I was relieved, I thought he would rob us for sure. But I waved at him, and he waved back. Sam laughed once we were far away, but I just told him to stop and think. “He may be following us!” I told him. Sam just laughed harder. After a bit, he eventually calmed down. 
+I was relieved, I thought he would rob us for sure. But I waved at him, and he waved back. Sam laughed once we were far away, but I just told him to stop and think. “He may be following us!” I told him. Sam just laughed harder. After a bit, he eventually calmed down.
 
 &#x200B;
 
-We kept walking, but I couldn’t shake off the feeling of being watched. I kept looking behind me, but I saw nothing. One time I thought I saw something disappear behind a tree, but I shrugged it off. As I looked ahead, Sam gasped. 
+We kept walking, but I couldn’t shake off the feeling of being watched. I kept looking behind me, but I saw nothing. One time I thought I saw something disappear behind a tree, but I shrugged it off. As I looked ahead, Sam gasped.
 
 &#x200B;
 
@@ -36,7 +38,7 @@ I whipped around, and saw the guy from earlier. He handed me a piece of paper an
 
 &#x200B;
 
-We decided to head back to the cabin we rented, but we heard a weird grinding noise. We saw a deer staring us down, and then continued whatever it was doing. It started scraping a rock with its antler. It looked at us again, and started foaming at the mouth. It started walking towards us, and we bolted. We heard it behind us, screeching. 
+We decided to head back to the cabin we rented, but we heard a weird grinding noise. We saw a deer staring us down, and then continued whatever it was doing. It started scraping a rock with its antler. It looked at us again, and started foaming at the mouth. It started walking towards us, and we bolted. We heard it behind us, screeching.
 
 &#x200B;
 
@@ -56,11 +58,11 @@ We woke up the 4th day, checked each other for bites, nothing. We decided to hik
 
 &#x200B;
 
-Since we’d stocked up on weapons, we decided to go hiking, armed this time. We saw a deer looking around our cabin. It was foaming at the mouth, and its antler seemed whittled down. We shot at it, and our bullets connected. It turned around, and reared up on its hind legs. Sam screamed and threw his knife at it. 
+Since we’d stocked up on weapons, we decided to go hiking, armed this time. We saw a deer looking around our cabin. It was foaming at the mouth, and its antler seemed whittled down. We shot at it, and our bullets connected. It turned around, and reared up on its hind legs. Sam screamed and threw his knife at it.
 
 &#x200B;
 
-The knife stuck into the deer’s head, causing it to recoil. It walked away, and seemed to be taunting us, begging us to shoot it. Its head was constantly facing me. I wanted so badly to shoot it, but that wouldn’t harm it. 
+The knife stuck into the deer’s head, causing it to recoil. It walked away, and seemed to be taunting us, begging us to shoot it. Its head was constantly facing me. I wanted so badly to shoot it, but that wouldn’t harm it.
 
 &#x200B;
 
@@ -84,7 +86,7 @@ Truth be told, I always loved the snow. But in that moment, I loved it more. I b
 
 &#x200B;
 
-We barricaded the door. We didn’t think we’d survive. We decided to sleep in shifts again, so we could at least make the night feel a bit faster. I was asleep when I heard it. Glass shattering, and a scream from the living room. I heard something that sounded like paper tearing, and Sam screamed loud as he could. 
+We barricaded the door. We didn’t think we’d survive. We decided to sleep in shifts again, so we could at least make the night feel a bit faster. I was asleep when I heard it. Glass shattering, and a scream from the living room. I heard something that sounded like paper tearing, and Sam screamed loud as he could.
 
 &#x200B;
 
@@ -92,11 +94,11 @@ I ran into the living room. The deer was gone. Sam was okay. Sam was white as a 
 
 &#x200B;
 
-After a long drive of Sam never talking, we got home. I dropped him off, and headed to my apartment. I walked in, and collapsed on the bed. I finally got some sleep. 
+After a long drive of Sam never talking, we got home. I dropped him off, and headed to my apartment. I walked in, and collapsed on the bed. I finally got some sleep.
 
 &#x200B;
 
-In the morning, I texted Sam asking him why he was screaming. No answer. I called him. He answered, but he just kept breathing. He never answered anything. 
+In the morning, I texted Sam asking him why he was screaming. No answer. I called him. He answered, but he just kept breathing. He never answered anything.
 
 &#x200B;
 
@@ -104,7 +106,7 @@ I turned on the news, and was shocked.
 
 “Two human bodies were discovered in the Denver mountains. One seems to have been dead a long time, due to its skin decaying away and its teeth being ripped out, but the other one is fresh. Dead by a self-inflicted wound, with the knife still in his throat. We have identified the fresh one, but due to the other one’s teeth being ripped out, we cannot determine their identity.”
 
-The news showed a picture of the identified corpse. It was the guy with the knife. I went to Sam’s apartment to tell him what had happened, but the door was wide open. Everything in his room was destroyed. Muddy footprints went towards the road. A note was in the room. 
+The news showed a picture of the identified corpse. It was the guy with the knife. I went to Sam’s apartment to tell him what had happened, but the door was wide open. Everything in his room was destroyed. Muddy footprints went towards the road. A note was in the room.
 
 "Be back soon!"
 
