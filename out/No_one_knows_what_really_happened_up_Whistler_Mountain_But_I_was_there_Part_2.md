@@ -182,8 +182,6 @@ Chopper: "This ain’t about your holiday tokens, Rose. There are millions of do
 
 *
 
-They say money is the root of all evil. Fitting then that such riches are what drew such a monster to the mountain.
-
-I truly hope I'm not calling that monster back to this cabin. Final part soon.
+They say money is the root of all evil. Fitting then that such riches are what drew such a monster to the mountain. Final part soon.
 
 [[Part 3]](https://www.reddit.com/r/nosleep/comments/x2f7q1/no_one_knows_what_really_happened_up_whistler/?)

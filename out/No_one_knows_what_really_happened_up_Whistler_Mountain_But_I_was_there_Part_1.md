@@ -1,12 +1,4 @@
-Three bodies found in a remote log cabin, a gun lying beside them that hadn’t been fired. The police, the courts, the local media, all baffled. 
-
-*Oh, to be a fly on the wall that day*, the gossipers and the gorehounds said. Well, I was in that cabin. I heard every word as I stood there in silence terrified that what had happened to me was going to happen again. That it was going to happen to someone else, that I was going to be trapped forever.
-
-But I have a voice now. A vessel. I have taken possession of a True Crime fanatic obsessed by the murders. She strayed to close to the cabin and I pounced. I'm finally going to share what I heard and what I saw – **my parting gift**.
-
-I must work fast. They say the killer always returns to the scene of the crime. I'm scared they will come for my new vessel, and the killer is doubtless the most ruthless and deceitful person I ever crossed in what was once my life.
-
-*
+Three bodies found in a remote log cabin, a gun lying beside them that hadn’t been fired. The police, the courts, the local media, all baffled. **But I was there**.
 
 It all started with a woman sitting beside the cabin’s CB Radio, searching through the frequencies.
 
@@ -38,8 +30,6 @@ Chopper: "Sounds about right, Rose. Often times snow comes down hard and fast ou
 
 Rose: "Oh, I see. You know, it’s funny, it’s so isolated up here. There’s no phone signal, no Wi-Fi, nothing like that. This radio is all Michael and I have. I guess we’re a bit like the hunters of old. We’re getting the proper American adventure experience. Over."
 
-Indeed, the adventure of a lifetime. Or at least the adventure to end three lifetimes.
-
 Chopper: "So, are you enjoying your big adventure, Rose? Over."
 
 Rose: "Yes, the scenery up here is stunning. Over."
@@ -65,8 +55,6 @@ Chopper: "Yeah, somethin’ like that. Say, tell me if I’m overstepping the ma
 Rose: "It’s okay that you ask, Chopper. I suppose it’s not hard to tell that something’s up. Michael and I had an argument. A bad one. Over."
 
 Chopper: "I’m real sorry to hear that, Rose. What happened? Over."
-
-Was Chopper sorry to hear that? I remember thinking he wasn't, I remember thinking he sensed an opportunity.
 
 Rose: "It's stupid really, but we were arguing about the date of our wedding. I think Michael is sick of me asking about it. He got angry and stormed off. He shouted something about walking to Pitwell, but that’s miles away, and … sorry, you really don’t want to hear this ..."
 

@@ -154,23 +154,19 @@ Fake Rose: "Over and out, Chopper."
 
 The woman pretending to be me fired, Chopper crumpled to the floor.
 
-The woman took the van and fled.
+Then woman took the van and fled.
 
 *
 
 And that's how I ended up dead in a log cabin between the corpses of my fiancé and a man I'd never met.
 
-They say the dead linger when they have unfinished business. They took my body away, but my essence remained. The police, local reporters, even kids looking for cheap thrills; all of them came and went, but I remained trapped on this mountain for years. I wanted the world to know what had happened, but I was so afraid and I had no voice.
+They say the dead linger when they have unfinished business. They took my body away, but my essence remained. The police, local reporters, even kids looking for cheap thrills; all of them came and went, but I remained trapped on this mountain for years. I wanted the world to know what had happened, but I had no voice, no form.
 
 Then came the girl. A True Crime obsessive, she was attracted to the cabin by the grizzly tales circulating the nearby towns. She has the Gift, the Sight, just like I did growing up. I pounced.
 
-**She's a fighter.**
-
-Strange, I think her brave spirit is what has allowed me to share my story despite my fear. I thank her for that.
-
 I'll release my vessel soon. After I've burned the cabin to the ground, of course. No need for me to linger, I feel my passing coming on. Like a heavy fever finally lifting.
 
-My only regret, that evil woman is still out there. 
+My only regret, that evil woman is still out there.
 
 And she has my name.
 
