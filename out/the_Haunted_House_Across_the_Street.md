@@ -1,0 +1,23 @@
+
+
+My house was the only house on my side of the street, and across the street are three other houses. Two of them being haunted. My Grandma's house being one of them. Next to Grandma's house and directly across the street from me was what we all called the White House. Obviously not the President's residence, but a regular two story home that was painted white. And it was absolutely haunted.
+
+This fact was confirmed when I was young simply because I was 10 and it looked like a house that would be haunted. It was abandoned, old looking, and not well kept. So it just had to be haunted right?
+
+As I got older I didn't even think about the house anymore until after my first paranormal experience at my Grandmother's house. (I documented that experience in my paranormal podcast Brave the Basement) After that, I started taking a big interest in ghosts and ghost hunting. I decided it was time to do the unthinkable, and see if I could get inside the white house.
+
+The task was easier than I thought it would be. You could see the back door of the house from Grandma's backyard. I went up to the door and it was unlocked! (Oh the luck) When I stepped inside the door, the first thing that I seen was the entrance to the basement. It was right in the entrance of the back door. It was very scary looking because it was just a big hole in the floor with a set of steps. I just had to go in!
+
+As I went down and turned on my flashlight I was very disappointed. The stairs led to the smallest basement in the history of basements. And there was nothing down there but concrete walls. 
+
+I then walked back up the stairs to explore the rest of the  house. As I got to the top of the stairs I turned right to walk into the living room. As I turned, there was a man standing in the entryway between the kitchen and living room. I stood there and stared at the man. He was about 6 foot tall, average build, he was wearing black pants and a white shirt. The thing I remembered most about the man was his dark hair and his black mustache. The mustache was well trimmed, and it spanned across the width of his lips. The man just stood there and looked at me. After what seemed like hours, we just looked at each other. I was trying to work up the courage to say something, and as I started to say something the man started to dematerialize right in front of my eyes! 
+
+To say the man disappeared would not be the correct description of what happened. When I say dematerialize, I mean it appeared as if all the atoms and matter that holds form to shape a human body started breaking off like porcelain breaking in slow motion. As the pieces fell,  they disappeared completely. I would estimate that this whole process lasted about 5 seconds until the man was gone completely! I stood there in disbelief at what I just witnessed. I immediately ran out of the house in terror! I went straight to my Grandma's house and told my cousin what I had just seen. She didn't believe me, and wanted to see for herself. I reluctantly agreed to go back in the house.
+
+We searched the house for about 45 minutes and found nothing of interest. I knew we wouldn't find anyone because this guy was a ghost, not just someone hiding. People do not dematerialize. If I would have looked away and looked back and he wasn't there I could say he hid. Since I watched the fabric of his being fall off like crumbs falling off a piece of cake and disappear before hitting the floor, I can say without any doubt that this man was a ghost.
+
+As time went on I found out something that not a lot of my cousins knew, but all my aunts and uncles knew about that house. My Grandma was sitting on the steps outside of her house facing the street. My uncle was a little boy and was playing on the sidewalk. A car pulled up to the white house and a man got out. He went to the door and knocked. When the person who was living in the white house came to the door, he was shot and killed. His body fell down a small set of stairs and he landed on the sidewalk. My grandmother witnessed the murder. And ever since she would swear that when she did the dishes in the evening she would see a man watching her from the abandoned white house. 
+
+After sharing this story on my podcast, my uncle confirmed that the description I have of the ghost met the description of the man my Grandmother witnessed being shot. 
+
+To this day I still get the creeps whenever I look at that house.
