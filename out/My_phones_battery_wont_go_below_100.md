@@ -1,0 +1,70 @@
+\---Start of phone note
+
+I’ve never had a good memory, but it’s been getting worse lately. When I meet someone new, I have to put their name into my notes app or I’ll forget it, even seconds later. 
+
+I first noticed something was up a week or so ago. I woke up to the alarm on my phone playing that one stupid song by Deltron 3030. I used to like it, I think, but having it as the obnoxious smash cut between my night and day has made me grow to abhor it. 
+
+I rolled and stretched my arm to gently silence it, being careful not to knock it off my desk. It was a new phone, but not a brand that many people would recognize. My Dad always finds the best deals on this kind of thing, shipped overseas from China. Apparently, it has some of the best specs on the market, but it isn’t popular because the developers didn’t include a fingerprint sensor. The phone was a gift from my parents, replacing the old blackberry that I was still hanging onto from high school. They gave it to me just before leaving for college. 
+
+Eventually, I took a breath and forced myself to stand. 7:35 AM the phone showed. I was definitely not used to being up so early yet. Listening for activity from my roommates, I collected my clothes, towel, and toiletry bag. I’m sort of an introvert, so I was okay with waiting to meet them. The apartment seemed quiet, so I opened my door and went to take a shower. 
+
+Once I had finished, I opened the shower curtain – forcing the steam to disperse through the bathroom. Drying off, and dressing, I wiped the screen of my phone down with the sleeve of my sweater. Two new texts. One from my girlfriend, Sarah, and one from my mom. Both wishing me well on my first day. I quickly responded and grabbed my things. 
+
+I remember being late that morning, having to sit in the back. The whiteboard was so far away, that I had to use my phone’s camera as a kind of telescope – zooming in to take pictures of the board. My deskmates were struggling seeing too and took inspiration to do the same. They were both pretty quiet; fine by me. I could have sworn I got their names though, but I can’t even recall seeing them in class since then. 
+
+At one point while I was taking pictures of the board, I saw my phone was still at 100% charge. It was strange, but I disregarded it because the phone was brand new, of course the battery is going to be good. The day went on as expected, more boring classes learning the syllabus and getting into the material. However, by my last class, the phone was still at 100%. I certainly knew that wasn’t true as I had used it throughout the day to take pictures, text Sarah, and play a couple games during the boring lectures. I was sure there was bug in the software, the phone must be at more like 60%. Oh well I thought, good thing I brought my old blackberry. I can just swap the SIM back in when this one dies. But it never did.
+
+When I returned to my apartment, my roommates were gathered in the common area chatting. They said hi and asked about my day. I wrote each of their names in my notes app, and it turned out they knew mine already. I was confused, but they said I had already introduced myself last night when I moved in. Maybe I forgot, or was sleep walking, but I was sure I had never met any of them. I could tell they thought I was acting strange, so I quickly snuck back into my room.
+
+Over the next few days, I kept using the new phone and it always stayed at 100% no matter what. I eventually talked to my dad about it, he suggested that they might overcharge the phone at the factory before shipping. Something to boost the specs, I guess. I kept my old phone on me, just in case.  
+
+School was going well. I eventually was able to wake up earlier, passing out after 8 PM and waking up for 7 AM. School was exhausting me. I caught myself sleeping a couple of times in class, so I started bringing in a thermos of coffee. I pretty much kept sipping that thing until hopping into bed at night. My roommates kept to themselves, a relief because I didn’t have the energy to engage them even if I wanted to after class. 
+
+Fast forward to Friday in the lecture hall. The first week was almost done. Sarah had texted me during the week that she wanted to see me tonight. We were each going to different schools, about 1.5hrs away from each other. 
+
+During class a girl I had been talking with invited to me to a party at her residence. Not being all that popular in high school, I jumped at the opportunity to get the full college experience and see what I had been missing out on. The party wasn’t until Saturday, and I wasn’t old enough yet to buy alcohol, but Sarah was. I texted her to ask if she minded and got the green light. 
+
+The GPS on my phone guided me to her house fine but finding the keys for my car was the challenging bit. I was supposed to leave right after my last class at 3 PM, but after turning my room over I didn’t get on the road until 5 PM. I could tell she was not pleased when I saw her face, but her warm hug engulfed me, and that disdain melted away in our embrace. We spent the next few hours laying in bed, talking about how our first week had been. Well really, I was more just listening – typing her stories into my notes app to tease her about later. I eventually got to tell her about my phone that hasn’t needed charging since Sunday evening, still at 100%. My story was quickly overshadowed by something Sarah’s new friends were planning for their weekend with her. 
+
+I felt my leg twitch and I was jolted awake. Sarah was kneeling on the bed, hunched over with my phone taking pictures of me drooling in my sleep. I quickly grabbed my phone from her and noticed that she had also kindly set my wallpaper and lock screen to one with my glistening slobber spilling out onto her pillow. I felt like a jerk for passing out, but after she was finished laughing, she was understanding that I was tired from the drive and my first week at school. We ended up cuddling, making sure to take a cute picture to replace my phone background before drifting off. 
+
+In the morning, Sarah shook me awake. Not realizing what a heavy sleeper I was, this was our first time sleeping in the same bed. We went out for breakfast and to grab drinks for the party tonight. I took a picture of the receipt, so I knew how much to transfer Sarah when we got back. We spent the rest of the morning in bed, until the sun receded from the slits in the blinds. Sarah had to get ready to go out with her friends, and I had to make the drive back. We hugged, kissed, and said goodbye.
+
+Driving home, I couldn’t help but thinking how Sarah got into my phone to change my wallpaper. Had I told her the password at some point? No, I surely would have remembered. Had she just guessed? The code was the year I was born, so it wasn’t exactly hard to crack. I decided to just let it go, after changing my password. I didn’t exactly have anything to hide, but I figured I should change it to something more secure. 
+
+I made it back to my apartment sometime in the afternoon and decided to have a power nap before the party which I guessed would be starting around 9 PM. I set an alarm for 3 PM, the battery logo on my phone completely filled – 100%. 
+
+My snoring snapped me awake. I felt my phone vibrating under my arm, its alarm muffled by my flesh. Peeling my skin from the screen, revealed it was 8 PM! Shit, I thought, I’ve gotta get ready for the party. A quick shower and shave later, I grabbed the booze and walked off to catch the next bus.
+
+The party was pretty decent as far as I could remember. I had only been drunk a couple of times before - hanging with friends during the summer. I met Rachel, one of Sarah’s friends from high school. We caught up and joined in on some drinking games. I got to know more about the girl in class who invited me. I secretly wrote a few details in my notes – stuff we had in common to chat about during our boring lecture. 
+
+I woke up the next morning feeling like shit. I couldn’t remember much about the night before, or how I got home. Definitely not an experience I want to duplicate. I spent most of Sunday in bed, sleeping, drinking water, and trying not to puke, hoping I would be recovered for Monday.
+
+I ended up waking at 7AM on TUESDAY. Fuck. I missed an entire day. This is when I realized something was wrong with me. I made an appointment with the doctor. After explaining my symptoms, I was given a prescription for modafinil which I’ve been taking ever since. It seems to help, but I always feel a strange sense of being simultaneously drowsy and completely alert. 
+
+When I returned to class on Wednesday, that girl who invited me to her party was sitting at the front of her class, her friends on either side. It was just then that it occurred to me, I had forgot her name. At the same time, I felt my phone rumble in my pocket. I pulled it out and saw the notification:       
+“13.67 GB OF DATA FREED”. I unlocked my phone and the notification expanded: “ALL FILES NOT MODIFIED OR PROTECTED ARE DELETED AFTER 11 DAYS”. Fuck, I thought, why the hell would my phone have a feature like this? 
+
+I went through my gallery and notes. Sure enough, most of the stuff I had created since I got the phone was erased. I searched through the settings to try to disable this feature or restore the lost data but found nothing. I ended up protecting everything, so I don’t lose anything else. My stomach churned. Just then I realized, I couldn’t remember where I lived. I could not recall. My brain swelled in my skull; the blood pumping made it throb. My face went flush. I stood up and got out of the room.
+
+Finding myself on a park bench, breathing deeply in the cool fall air. I was just panicking, I thought. It’s just a side affect from the meds, I thought. The note I made with my address was deleted. Surely, I could find my way back. I stared at the map on my phone. None of the apartment complexes looked familiar. I must have spent and hour thinking. Eventually, I gave up, frustrated. 
+
+I stood and began walking in the direction of most of the student housing in the city. I wandered the streets, each one passing and looking as unfamiliar as the last. I was sure I had been down them before, but none of the buildings were mine. Suddenly, a guy shouted and waved to me. I had never seen him before. He must have noticed my confused look because he also looked confused. He asked if I was going up too. “Up where?”, I said. “Up to our apartment”, he responded. Right, he must be one of my roommates. But why couldn’t I remember him?
+
+I followed him up to our unit. I wasn’t foolish enough to ask for his name. I had known him for a week and a half at this point, and him telling me stories of funny things I did must mean we were close enough to know each other’s names, surely. I quickly excused myself to my room and began consolidating my remaining notes into this one. 
+
+I decided to check the storage on the phone. I had no idea how much space I had left. The settings tab showed: USED: 29.10 GB, FREE: 226.9 GB. Below the storage info was an option: SYNC DATA? I tapped yes, and that’s all I could remember before waking. 
+
+I must have collapsed. I was crumpled on the cold tile floor of my apartment room. My phone’s screen illuminated with a notification. Sarah was asking if she could come over to see me again tonight. I unlocked the phone to respond. 
+
+The phone opened back on the settings tab, the screen showed: USED: 83.03 TB, FREE: 0 GB. 83.03 TB? How the fuck is that even possible? I opened my gallery, and it was populated with tens of thousands of pictures and videos. I scrolled through them. What I saw made me sick to my stomach. These were images of my life – my high school graduation, my grandma’s funeral, my first date with Sarah. The gallery went years back, memories that I forgot I even had, returned. These pictures were all taken from my perspective, looking out of my eyes. Like they were digital copies of my memories. 
+
+A few of the recent pictures I immediately deleted. The most disturbing part is, I can’t remember what they were of. It looked like they were taken sometime during the party, maybe I ended up puking there. And that brings us up to the present. I’ve been laying here on the floor, writing down everything I can recall. I’m copying this note to a google drive document in case it too gets deleted. I feel like I’m going fucking insane. 
+
+\---End of phone note
+
+Shortly after uploading that note, there was a knock on the apartment door. I raced to open it. It was Sarah. Fuck, I had forgotten to get back to her. I collapsed in her arms, but her hands quickly grabbed me and peeled me off. She was fuming. I started, but she wouldn’t let me get a word in. She started yelling about what Rachel told her happened at the party. Saying I cheated on her with the girl who threw it. Suddenly, she snatched my phone and ran to the bathroom with it, locking herself in. 
+
+I tried to reason with her but all I got back was yelling and asking for my passcode to prove I was cheating. I wanted to tell her the code, but I realized I couldn’t remember it. Fuck, if only I could prove I didn’t cheat and show her the crazy shit that’s going on with my phone. I calmly told her I would unlock it and we could look at it together. She reluctantly unlocked the bathroom door and thrusted the phone towards me. I looked at the phone screen and my eyes nearly popped out of my skull. In a second, I grabbed the phone from her, my laptop, and keys. 
+
+I’m currently in the car with my phone and laptop, posting this story to Reddit just in case my paranoid thoughts are true. I’ll be able to read my story back and understand what happened to me. Wish me luck. The message on my phone is glaring up at me from my lap: “9/10 ATTEMPS FAILED - YOU HAVE ONE MORE ATTEMPT TO ENTER YOUR PASSWORD BEFORE ALL DATA IS ERASED”.
