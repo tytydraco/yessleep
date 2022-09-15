@@ -4,7 +4,7 @@ Hey guys it’s Sam again, I’ve finished reading Thomases journal. I can’t b
 
 Thomas knew everything. He knew what the town was all along. He knew Irene would come after me. And he didn’t tell me anything. I feel like such an idiot.
 
-Every. Single. National. Park. Has one of these towns. He had been the head of a team of people called the Watchers, a branch of a company called the Foundation, assigned to monitor Hungry Horse. To make sure that the people who go missing in national parks are found before the town can get them. 
+Every. Single. National. Park. Has one of these towns. He had been the head of a team of people called the Watchers, a branch of a company called A.R.C (Anomaly Research Corporation), assigned to monitor Hungry Horse. To make sure that the people who go missing in national parks are found before the town can get them. 
 
 Jesus Christ, why didn’t I figure this out sooner? Why did I trust him? Stupid, stupid, Sam.
 
@@ -16,7 +16,7 @@ I flip to another page and it explains that the town doesn’t take everyone. So
 
 I think Hungry Horse just took the last Watcher in Yellowstone.
 
-There’s a phone number and a note written inside the front cover of the journal, it says to call the number if Thomas is missing or if he seems off and to tell the person who pick up on the other end that there’s an XK Class End of the World scenario in Hungry Horse.
+There’s a phone number and a note written inside the front cover of the journal, it says to call the number if Thomas is missing or if he seems off and to tell the person who picks up on the other end that Thomas has been compromised.
 
 This is fucking insane, I thought to myself.
 
@@ -110,7 +110,7 @@ Thomas stopped moving and leaned against the door. His breathing became shallow 
 
 Eventually, he stopped banging on the door, but I could still hear him yelling.
 
-I think I might just call that number he wrote down in his journal. Maybe the Foundation will send someone to deal with Thomas. I dialed the number.
+I think I might just call that number he wrote down in his journal. Maybe A.R.C will send someone to deal with Thomas. I dialed the number.
 
 It rang three times before a man picked up and said, "Hello? Thomas?"
 
@@ -130,7 +130,7 @@ I sat there silently.
 
 "Okay, stay put and don't let him get inside the cabin." He said. Then he hung up.
 
-I layed back down on the bed and tried to ignore the sounds coming from downstairs. I could hear Thomas pounding against the door again. I was terrified that the Foundation wouldn't show up soon enough. 
+I layed back down on the bed and tried to ignore the sounds coming from downstairs. I could hear Thomas pounding against the door again. I was terrified that A.R.C wouldn't show up soon enough. 
 
 Then suddenly, I heard a car pull up outside. I jumped off the bed and rushed downstairs and looked out of the window.
 
@@ -150,4 +150,8 @@ The two men got into the van and drove off as another car pulled up to the cabin
 
 “I don’t have time for your bullshit. Just leave me alone!” I yelled at him.
 
-I heard him sigh and that’s when I felt an arm grab my shoulder and something prick my neck, I started to curse and the world faded to black.
+I heard him sigh and that’s when I felt an arm grab my shoulder and something prick my neck, I started to curse and the world faded to black. I woke up on the couch about thirty minutes later. Looking around I saw that Dr Oxblood was sitting in a chair across from me.
+
+“Now that everything has calmed down, you’re going to tell me everything you know.” He said.
+
+I guess I don’t have a choice guys. I’ll update you all after I talk with Dr. Oxblood.
