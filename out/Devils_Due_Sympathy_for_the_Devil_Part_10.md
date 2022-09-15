@@ -169,3 +169,5 @@ Into the Heart of Darkness 
   "You'll beg for the end before this is done, boys," Max said, staring down at us with as much contempt as the Orchid family had what felt like decades ago, "or you could make this so much easier on yerselves, and just do what yer told!"
 
   I had no words to offer as my parents drew closer. Even Grant looked lost for words, but we were on the same page, as always. Yes, we were not going to survive this, but I would be damned if I was about to just give the old bastard what he wanted, regardless of what may be left of me by the time this was done. 
+
+[Parts 11&12](https://www.reddit.com/r/nosleep/comments/xfa3w5/devils_due_sympathy_for_the_devil_parts_1112/?utm_medium=android_app&utm_source=share)

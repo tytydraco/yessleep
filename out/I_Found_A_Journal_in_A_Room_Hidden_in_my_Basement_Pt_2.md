@@ -107,3 +107,9 @@ We ended the conversation, and I retired for the evening. I plan on getting the 
 Until tomorrow,
 
 *Cpt Grady White*
+
+&#x200B;
+
+[Pt. 3](https://www.reddit.com/r/nosleep/comments/x22b9e/i_found_a_journal_in_a_hidden_room_in_my_basement/)
+
+&#x200B;

@@ -162,6 +162,6 @@ I don’t think I like this [app](https://www.reddit.com/r/JulianPageInstitute/)
 
 &#x200B;
 
-Update: I'm trying to delete the app. My phone isn't letting me though.
+EDIT: I'm trying to delete the app, but my phone keeps taking me back into the app itself. I don't know what's going on.
 
-Update 2: There's noises coming from my closet. I don't think I can get out of my house in time.
+EDIT: Oh my god. That guy just posted again. I'm going to call the police. did I just hear something from the closet? There's breathing. It's getting closer. I don't think I have time to get out in time. Oh no.

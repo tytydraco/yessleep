@@ -183,3 +183,5 @@ Who Are You, and Where Have You Been?
   As I helped my closest friend through the opening that led from one plane of reality to another, I felt drained and exhausted. Perhaps it was better that it all ends now. If nothing else, whether he remembered who I am now or not, I would be with Grant as we fell into the black together. I would accompany him; my brother, towards whatever may truly lie beyond this place. 
 
 [Part 10](https://www.reddit.com/r/nosleep/comments/xefgkw/devils_due_sympathy_for_the_devil_part_10/?utm_medium=android_app&utm_source=share)
+
+[Parts 11&12](https://www.reddit.com/r/nosleep/comments/xfa3w5/devils_due_sympathy_for_the_devil_parts_1112/?utm_medium=android_app&utm_source=share)

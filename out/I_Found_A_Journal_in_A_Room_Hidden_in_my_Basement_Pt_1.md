@@ -185,3 +185,7 @@ I look forward to leaving this place.
 Until tomorrow,
 
 *Cpt Grady White*
+
+&#x200B;
+
+[Pt. 2](https://www.reddit.com/r/nosleep/comments/x13ggf/i_found_a_journal_in_a_room_hidden_in_my_basement/?utm_source=share&utm_medium=web2x&context=3)
