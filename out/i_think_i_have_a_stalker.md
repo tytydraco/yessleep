@@ -26,4 +26,4 @@ there was no name saying who the writer was nor was there a "to \_\_\_\_\_". i d
 
 edit- probably not important but he was wearing a black hood.
 
-part two- [https://www.reddit.com/r/nosleep/comments/xdodl5/i\_think\_i\_have\_a\_stalker\_pt2/](https://www.reddit.com/r/nosleep/comments/xdodl5/i_think_i_have_a_stalker_pt2/)
+&#x200B;

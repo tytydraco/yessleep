@@ -478,4 +478,4 @@ I’d like to tell you the second time I ended up in Bolivia House’s basement,
 But then I’d be lying.
 
 
-I’ll post more tomorrow.
+I’ll post more in a few days.
