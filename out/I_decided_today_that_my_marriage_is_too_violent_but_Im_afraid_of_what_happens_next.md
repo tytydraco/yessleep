@@ -104,6 +104,12 @@ I didn’t look at her, because I knew I’d try to kill her and die in the atte
 
 “If there were a chance to get her back, who would you be willing to [hurt](https://www.facebook.com/P-F-McGrail-181784199029462/)?”
 
+--------
+
+[The chance](https://redd.it/xfoxqz)
+
+------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
