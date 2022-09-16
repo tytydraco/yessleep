@@ -1,0 +1,17 @@
+I had spent several nights up to this point in the library studying for finals, the college library was under renovation, so the town one would have to make do. One night I stayed out particularly late and began driving home when I realized that my tired ass forgot to put gas in the car that mourning. The car stopped on the side of the road and the college was at least a 10-minute walk away. It was 11:58 Pm when I got out of the car, this was a horrible time for my phone to be at home charging because I forgot to charge it the night before.
+
+I took maybe a few steps down the road and That’s when I felt the worst thing I could at the time, a tiny rain drop hit my forehead before it became a downpour. “Just my luck.” I sighed, that’s when the gentle downpour started to become torrential. This was bad I had to double time it. A flash of lighting betrayed something at the end of the street, two red lights. I thought another car was coming and could help me, but then the rain let up and under the streetlights I could see something grinning, a figure that looked like a little girl in a purple night gown, sporting razor sharp claws and bright red eyes. 
+
+It ran towards me with its arms out screeching like a banshee, I ran off the road and forced my way through the glass of an abandoned warehouse in a neighboring field. I got up, bleeding but not dead, I look behind me and see the figure standing in the rain staring me down. “Maybe it can’t get me unless I am actually in the rain?” I thought to myself. I was wrong dead wrong. when I turned around, I saw the shadows on the wall begin to morph and contort as that thing crawled out of the wall. I ran back outside; this thing was going to get me! it’s everywhere. 
+
+&#x200B;
+
+There was another flash of lighting, and the thing was directly in front of my view now. I booked it the other direction already feeling exhausted when I found myself back on the road. Because of the rain I couldn’t see in front of me, but I could see my car. I got in and locked the doors. The lighting flashed again and this time she was right at my window. I could make out the details of her pouting blood covered face and sharper than average teeth. And her razor-sharp nails against the window. I was going to die I knew it, she was going to force her way in. 
+
+  
+
+I closed my eyes and cried as I awaited the end, but then the rain stopped. The torrential downpour went deafeningly silent. I looked around and, in the backseat, there was no sign of her. I decided to wait until dawn before going back out for a phone. When dawn broke, I was scared and exhausted. Eventually though I made it to college and my professor let me use his phone to call my mom and let her know what was going on. I didn’t tell her about the monster in the rain, just that my car ran out of gas, and I was stuck in the rain until mourning. 
+
+&#x200B;
+
+You would think that this is then end of the story, but you would be wrong. Whatever that thing was, it marked me like pray. Every night where it rains after midnight, I see it come through the walls of my house where the rooms aren’t lit, it moves through the shadows. I think about running to my moms but what if it gets her? The only option I had was to go to a hotel and keep the lights on all night. I’m only writing this because I am making a stand against whatever this thing is, if I succeed, I will update you, if I don’t well, you won’t be hearing from me.
