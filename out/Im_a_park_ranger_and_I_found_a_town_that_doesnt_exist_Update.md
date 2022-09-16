@@ -108,7 +108,7 @@ She snarled and lunged forward. Her teeth had grown sharp and she snapped at me,
 
 "Goddamnit!" I yelled.
 
-I grabbed her shoulders and threw her into the side of the car. She slid across the hood and fell to the ground. I jumped out of the car and kicked her once in the ribs.
+I grabbed her shoulders and threw her into the side of the car. She slid across the hood and fell to the ground. I jumped around the car and kicked her once in the ribs.
 
 "I'm going to kill you." I said.
 
