@@ -136,7 +136,7 @@ As I fell to my knees crying, pieces of the large bird nest fell upon my head, I
 
 
 
-I sat there on my knees holding this pearl colored egg in my hands, like a broken record, the first rays of sunshine through the trees again. I got up, and I walked slowly to the barn. I stared at the egg the whole way there. I knew I was in for a beatin’, but I didn’t care. I had one of Laima’s eggs. 
+I sat there on my knees holding this pearl colored egg in my hands, like a broken record, the first rays of sunshine through the trees again. I got up, and I walked slowly to the barn. I stared at the egg the whole way there. I knew I was in trouble, but I didn’t care. I had one of Laima’s eggs. 
 
 
 
@@ -212,7 +212,7 @@ I was a monster, in the true sense of the word. Almost like what my mama had des
 
 
 
-I bound myself over and over towards her nest, snapping my jaws violently, trying to get at another egg. Until I realized that I had a heavy chain bound around my right ankle. The chain trailed off into the center of the pond. 
+I threw myself over and over towards her nest, snapping my jaws violently, trying to get at another egg. Until I realized that I had a heavy chain bound around my right ankle. The chain trailed off into the center of the pond. 
 
 
 
@@ -222,9 +222,9 @@ I howled at the moon for solace, in which he gave none.
 
 
 
-I’ve been shackled to this pond for over 100 years now. Sometimes I find my chain lets me go further. I sneak a chicken or cow,  sometimes I find a person to enact my vengeance on.  Laima and Saule refuse to release me from this prison though. 
+I’ve been shackled to this pond for over 100 years now. Sometimes I find my chain lets me go further. I sneak a chicken or cow,  sometimes I find a person to frighten. Laima and Saule refuse to release me from this prison though. 
 
 
 
 
-It’s been a very long time, but I’m starting to hear a new song. If I sit at the bottom of the pond and stay silent on the night of a full moon, I can hear him. He sounds very sad, sadder than me.  He twists melodies about his dedication to the sun, Saule, and his loss of her. Maybe, just maybe, if I bide my time, I can convince him to release me so that I may claim our loves for us. No, Laima- you are mine.
+It’s been a very long time, but I’m starting to hear a new song. If I sit at the bottom of the pond and stay silent on the night of a full moon, I can hear him. He sounds very sad, sadder than me.  He twists melodies about his dedication to the sun, Saule, and his loss of her. Maybe, just maybe, if I bide my time, I can convince him to release me so that I may re-claim our loves for us. No, Laima- you are mine.
