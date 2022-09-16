@@ -1,0 +1,19 @@
+Disclaimer: This story is not "real life events"
+
+\------------------------------------------------------------------------------------------------------------------------------------------
+
+Hello, my name is Benjamin, however you can call me Ben, A little bit about me is I like to fix technology like computers, watches or whatever intricate technology you can give me, The me in the present is not really relevant to the story so I'll tell you about my past, I was born a really gifted kid and always had a knack for technology, I loved taking apart stuff then putting it back together and still do to this day.
+
+When I was a little one I used to listen to the radio a lot, being a little rascal I'd also sneak out into the living room to listen to it till 11-pm, I could've watched the television but I found satisfaction in creating the pictures with my mind, I know, it's a little weird.
+
+I was sitting out in the living room up super late as I always do when I had this thought, what if I alter the radio dial so I can go to the higher channels, I grabbed a screwdriver and opened up the radio to see the interesting components, I could remove the volume constriction to make the thing louder or I could change the colors on the 7-segment display, that is when I found the channel knob, I scrapped away the little plastic nub with a file and I tested out my work.
+
+I started at 95 FM, then 105 then I went to 109 which was the last available channel to the nub that allowed it, then I kept scrolling and surfing, 120 FM, 150, 180, The farther I scrolled the higher pitch the static and noise became, it was about 250 FM when the noise sounded like the screech of a jet engine in lower case if that makes sense, When I reached 261.97 FM, I found a "channel" of sorts, it sounded like a bag of gravel being continuously stepped on.
+
+I listened intently for about 30 until I got bored, I was about to switch the station when a mans voice came in, "Samoa, Samoa do you copy", after a second I heard another voice "Yes team Luna, this is Samoa, what do ya got for us", "Oh nothing much, I just wanted to say how beautiful the landscape was, I waited about 5 seconds itching for a response, "Umm, Samoa there's some regolith we found that has a yellowish tint to it, what is this stuff?"
+
+I heard a blip then like three different guys in the same room talking for a minute about what to do, I heard the word "Retreat" and "End mission" A lot, then I heard one of them say "Something could go very wrong y'know, do you know what will happen if they don't make it?, we'll get our funding cut!" After ten seconds of really long silence I heard a blip and then following words, "Team Luna, you need to end your mission now, if you don't get to your lander soon I'm afraid it's too late", There was another long pause of radio silence when I then heard screaming, loud enough to make the radio shake the coffee table it was resting on, I felt my blood go cold when I heard a loud thud followed by static.
+
+After that I turned the radio off because I did want to hear that "broadcast" or whatever someone may call that ever again, after I got up my seat I saw my mother staring around the corner of the door, staring at me like I just recited the nuclear launch codes or something, I didn't wanna look at her anymore and just ran right to bed, I tossed and turned all night getting no sleep, all I could think about was the thud and the myriad of questions that boggled my mind; How long was my mother there listening?, Where the heck was Team Luna not on the news? and most importantly, What the hell caused that Thud?
+
+When I woke up the next morning my parents sat me down because they thought I was "Horrifically mentally scarred" from that and asking how can they "Undo the damage", well I can't really say whether or not I was scarred, all I can say is that I was rather unsettled by the whole thing.

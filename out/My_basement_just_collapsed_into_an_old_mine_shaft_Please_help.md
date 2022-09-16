@@ -12,9 +12,9 @@ I found him standing at the top of the stairs, looking pale. He pointed down—t
 
 Both of us were too scared to go down the stairs. But upon closer inspection we noticed it was really only half the floor missing. The area behind and around the stairs seemed intact, while beyond the stairs was a huge hole that seemed to go down at least ten feet. We couldn’t see the bottom from the dim light the basement bulbs cast.
 
-The next few hours after that were devoted to frantically calling our home insurance and having the police/fire department come. They told us it that this had actually happened a few times before in our area. Apparently a lot of smaller mines here went unregistered during copper mining in the 1600s. People just built homes over them without even knowing.
+The next few hours after that were devoted to frantically calling our home insurance and having the police/fire department come. They told us this had actually happened a few times before in our area. Apparently a lot of smaller mines here went unregistered during copper mining in the 1600s. People just built homes over them without even knowing.
 
-While I’m thankful for their help, the firemen and police officers were honestly a little rude. They immediately cordoned off the basement and wouldn’t let us get anywhere near it. “It’s really dangerous,” they said—but that didn’t stop *them* from going into the basement. They were down there for hours. 
+While I’m thankful for their help, the firemen and police officers were honestly a little rude. They immediately cordoned off the basement and wouldn’t let us get anywhere near it. “It’s really dangerous,” they said—but that didn’t stop *them* from going into the basement. They were down there for hours.
 
 Insurance would most likely cover the repairs, but the house would be unsafe to live in until it was fixed. Thankfully our elderly neighbor, Gertrude, offered for us to stay with her. “I could use some help around here, anyway,” she said with a smile.
 
@@ -58,7 +58,7 @@ I froze.
 
 I whipped around.
 
-It was the bedroom door. *I was just in there. No one’s in there.* I frowned, watching as it pushed open another inch--*creeeeeaaaak--*and then stopped.
+It was the bedroom door. *I was just in there. No one’s in there.* I frowned, watching as it pushed open another inch--\*creeeeeaaaak--\*and then stopped.
 
 There was a draft coming from somewhere.
 
@@ -80,7 +80,7 @@ In all the commotion from earlier, we didn’t get much time to really inspect t
 
 I rummaged in my pocket and found a bobby pin. I held my breath, and threw it in. *One-one-thousand… two-one-thousand…*
 
-Seven seconds passed before I heard the light *tink* of it hitting rock.
+Three seconds passed before I heard the light *tink* of it hitting rock.
 
 My physics is rusty, but I don’t think that mine is only twelve feet deep, like the officer told us.
 
