@@ -169,11 +169,11 @@ Fathers, Sons, and Old Friends
 
   "You two are goin' in there one way or another," Max exclaimed, pointing back at the pulsing orb, "ain't nothin' you can…" 
 
-  "You also clearly did not do your research, you stupid, old git," Grant cut in, barely missing a beat, "have you not heard about the master of lies; the Lord of deception?* 
+  "You also clearly did not do your research, you stupid, old git," Grant cut in, barely missing a beat, "have you not heard about the master of lies; the Lord of deception?"
 
   The flock drew closer by the second, while I fought to control my trembling limbs as they still twitched from the invigorating sensation pulsing through my veins. I didn't know if my body was giving into the fear, finally being overcome by the immense weight my subconscious had carried all these years, or if something I was still struggling to accept was indeed true after all. When I felt my face to find that I did not wince from the many injuries my father had beaten into me, I had no answers for how they could have faded so quickly, without the healing touch of my friend. 
 
-  "You gave it your best, mate, and I can't fault you for trying,* Grant said as his carefree expression adjusted itself to something far more sinister, "but this ends now." 
+  "You gave it your best, mate, and I can't fault you for trying," Grant said as his carefree expression adjusted itself to something far more sinister, "but this ends now." 
 
   When the approaching hoard stopped in place, only feet from us, I was not the only one surprised by this. The old man appeared completely lost for words at the time; for a moment anyway. 
 
@@ -200,7 +200,7 @@ Bridges Once Burned, May Still be Mended
 
   "It's been a long time, son."
 
-  I felt my jaw drop in the same manner as Grants did, as his cigarette dropped to the countertop. 
+  I felt my jaw drop in the same manner as Grants did, as his cigarette fell to the countertop. 
 
   "Father!?" 
 
