@@ -185,3 +185,5 @@ Who Are You, and Where Have You Been?
 [Part 10](https://www.reddit.com/r/nosleep/comments/xefgkw/devils_due_sympathy_for_the_devil_part_10/?utm_medium=android_app&utm_source=share)
 
 [Parts 11&12](https://www.reddit.com/r/nosleep/comments/xfa3w5/devils_due_sympathy_for_the_devil_parts_1112/?utm_medium=android_app&utm_source=share)
+
+[Final](https://www.reddit.com/r/nosleep/comments/xg5btz/devils_due_sympathy_for_the_devil_final/?utm_medium=android_app&utm_source=share)

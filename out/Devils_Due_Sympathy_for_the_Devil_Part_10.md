@@ -171,3 +171,5 @@ Into the Heart of Darkness 
   I had no words to offer as my parents drew closer. Even Grant looked lost for words, but we were on the same page, as always. Yes, we were not going to survive this, but I would be damned if I was about to just give the old bastard what he wanted, regardless of what may be left of me by the time this was done. 
 
 [Parts 11&12](https://www.reddit.com/r/nosleep/comments/xfa3w5/devils_due_sympathy_for_the_devil_parts_1112/?utm_medium=android_app&utm_source=share)
+
+[Final](https://www.reddit.com/r/nosleep/comments/xg5btz/devils_due_sympathy_for_the_devil_final/?utm_medium=android_app&utm_source=share)

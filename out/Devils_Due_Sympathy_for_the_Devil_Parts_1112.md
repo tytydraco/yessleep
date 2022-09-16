@@ -309,3 +309,5 @@ Bridges Once Burned, May Still be Mended
   "That's what I would do." 
 
   As I gazed upon that all too familiar mischievous smile, the images before me once again faded away. I found myself back in that cavern with the rippling, blackened walls, to see my friend still wearing that same grin. 
+
+[Final](https://www.reddit.com/r/nosleep/comments/xg5btz/devils_due_sympathy_for_the_devil_final/?utm_medium=android_app&utm_source=share)
