@@ -1,0 +1,77 @@
+Every day I roll over and reach for her but the bed is empty as usual. It’s been 476 days since I lost my family.  476 days of misery and pain.  When I say I lost my family, that's truly what happened. They are just....gone. Or, at least, they were gone.
+
+&#x200B;
+
+I remember it like it was yesterday.  I got home from work at about 4:45 like always and the last I heard from my wife she had picked the kids up from school and they were going to the grocery store. Should be home around 5:30 is what her last text said. 5:30 came and past with no word. I wasn’t worried at this point, as it was 5:30 on a weekday so the stores were probably packed.  6:00 passes and still no word. I still wasn’t too worried but dread was slowly starting to creep in to my thoughts.
+
+&#x200B;
+
+My wife, Margrett, is (or was, I still haven’t come to grips with stuff like this yet) the kind of person that runs on her own time. A 'free spirit" some would call her. When we first met it was kind of cute; forgetting about a date because her plants needed attention or being a little more than fashionably late to an event because she saw the cutest puppy on the way to the car. But now, with 2 kids and various school/athletic/family things as well as day to day life stuff, it got to be a bit frustrating.  However, that coupled with having our 9yo William and 11mo old Lilly with her, I simply just shot her an "everything ok" text. No response.
+
+&#x200B;
+
+The clock struck 7 and that’s when I started to panic. I texted and got no response, I called over and over but it went straight to voice mail every time. That’s when I decided to start searching. I hopped in my truck and raced to the grocery store.  As I circled the parking lot, I spotted her car which filled me with a bit of hope. I parked close and started looking around but nothing seemed out of the ordinary. I peeked in the windows and again, nothing strange. Maybe they are just sill inside? I went inside and scoured every aisle, looked in the bathrooms, even showed the folks at the front desk a picture to see if they had seen them. Nothing. There was an older lady at the front desk who took some pity on me and led me to the security office where she said we can take a look at the security footage and see if they made it in the store.
+
+&#x200B;
+
+At 4:30 her car pulls in to the grocery store parking lot, parks in the same spot where I found it but they never get out. We watched the footage (sped up) from 4:30 to the moment my truck pulls in and nobody ever leaves the car. Old gal immediately called the police and hours after waiting for them and then answering a hundred questions (all the while I’m calling her phone even though it keeps going straight to voice mail) the lead officer put a hand on my shoulder and told me to go home and get some rest. They will be in touch.
+
+&#x200B;
+
+That was 476 days ago. My wife and kids seemingly just vanished from the face of the earth. I live in a mid-size city so there was the initial search and the media frenzy (white mom and cute white kids go missing in "dangerous" city story writes its self) but after a few weeks and other stories took precedent, everybody kind of just moved on (police included). I was devastated, a shell of myself. I took leave from my job which turned in to extended leave which turned in to them telling me if I didn’t start showing back up they would have to let me go, I never responded. Past due bill notices piled my mail box, my electricity got cut, I was basically squatting in my own house. I really didn’t snap out of it until there was an incident in my (well overgrown) front yard.
+
+&#x200B;
+
+The mortgage company sent somebody out to assess the property since the bill hadn’t been paid in some time and I met the poor fella in the front yard with a fully loaded AK-47. Police were called, nobody was hurt but I was arrested and sent to a psychiatric facility for a bit and my parents stepped in and bought my house. They said I could continue living there but would have to get my shit together, which I did. It’s been 147 days since I was released from the psych ward. I got a part time job, adopted a puppy (a beagle mix, the kids would have loved her) and I was doing really really well. Was being the key word there.
+
+&#x200B;
+
+It was 3 days ago when I first noticed it. I woke up, rolled over and reached for her but the bed was empty as usual. I got out of bed and made my way for the bathroom and I saw it. My son’s door standing wide open. I hadn’t been in there in months. I kept both of the kid’s rooms exactly like they left them; toys on the ground, beds unmade, clothes folded but not put away etc. but I was fanatical about keeping the doors shut. I peeked inside of his room and it was clean. Not spotless or anything like that; but the bed had been made, clothes put away and toys put in the toy box. I was furious, my initial assumption had been that my parents sent somebody over here to clean up and they accidentally went in there, but then I distinctly remembered saying good night to a closed door the night before as I do every night.
+
+&#x200B;
+
+That’s when I saw it. In the middle of the floor sat a weird looking doll. It almost looked like a cabbage patch doll but slightly off.  I don’t really know how to explain it but all of the features were just slightly blurred.  I slowly shut the door and walked to my daughter’s door. Initially, it looked shut but was slightly opened.  I poked my head in and saw a similar scene.  Instead of a clean room it looked like a bomb went off in there. Toys everywhere, dresser drawers rifled through, blankets and crib sheets all over the place and right there in the center of the room a slightly off looking doll. Needless to say, I freaked out and rushed to my parents’ house.
+
+&#x200B;
+
+I told my parents everything and they, rightfully, assumed I was having another mental breakdown. How could they not? After the 4th or 5th "sure, bud. I bet that did happen" I convinced my dad to come take a look. We get to the house and I was almost giddy to prove I wasn’t crazy but as I open the boy’s bedroom door it looks almost like it did before it got "cleaned up". I raced to my daughter’s room and same thing, exactly how it had been for 476 days. I crumpled to the floor devastated. I had been doing so well, I didn’t want to go back to treatment. My dad put his hand on my shoulder, sighed and helped me off of the floor and walked me to my bed. "Listen, I understand it’s got to be hard but you have to keep flying straight. We'll chalk this up to a minor setback but I’m going to start keeping a closer eye on you. If you start to go backward I am going to have to take you back to the hospital." I nodded and put a pillow over my head until I was certain he was gone.
+
+&#x200B;
+
+I took the pillow off of my head and just laid there for the rest of the day. I watched the sun set and sky grow dark as tears slowly rolled down my cheek, as they did every night. I got up to do my nightly routine of making sure the house was locked up, pup was all set and lastly saying good night to the closed doors of my children. First was William, I put my hand on the door and whispered "good night buddy, I love you so so much and miss you every single god damned day. I wish I could see you just one more time." As I walked away I could swear I heard a faint whisper, somebody talking back to me, but after what happened earlier I figured it was best to leave it alone. Next was Lilly, I said the same thing I said at Williams door and again, as I walked off a faint whisper. I immediately went to my room, popped some sleeping pills, said good night to Margrett and closed my eyes as tight as possible. As I drifted off in to a sweet pharmaceutical induced sleep I swear I felt somebody brush my hair to the side and whisper goodnight in to my ear.
+
+&#x200B;
+
+\*\*\*CRASH\*\*\* \*\*\*thud, thud, thud, thud, thud\*\*\* \*\*\*slam, slam\*\*\* were the sounds that woke me up the next day. I rolled over and reached for her but the bed was empty as usual. "What the hell was that?" I said to myself. I got up and made my way to my bedroom door, cracked it open and peered up and down the halls...nothing. I decided I needed to get out of the house for the day. I didn’t have to work until the next day and the puppy needed to get some outdoor time so I decided we'd go to the park and just make a day of it. I pulled a dirty shirt on as well as the jeans I had been wearing for the past few days and made my way out to the living room. What I saw stopped me in my tracks.
+
+&#x200B;
+
+Sitting at the dining room table were the same two dolls I had seen the day before but this time there was a third. Slightly larger than the other two but with the same blurred facial features. Laid out around them was a large breakfast consisting entirely of plastic food and plastic dishes. A back pack sat next to the male doll and my daughter’s favorite blanket was tied around the neck of the small female doll like a cape. All the while the puppy doing circles around the table, nose to the ground then up to the dolls and back to the ground. I didn’t know what to do, I just stood there and stared. Finally, when my wits returned, I called the pup and we quickly left the house. I walked around the rest of the day in a daze. Surely, somebody is messing with me. What kind of person would do this? The only person I ever wronged was the guy from the mortgage company but I never hurt him and I faced my consequences for that.
+
+&#x200B;
+
+When I made it back home, all of the lights in the house were on and the front door was standing wide open with the glass storm door shut. A welcome sight I was used to coming home to 477 days ago but not since. Margrett’s car, which had been gathering dust and dirt, looked like it did the day she drove it off of the lot. The front yard had been cut and Margrett’s black eyed susans in the front flower bed had been meticulously weeded and looked better than they ever had. My heart raced, my throat got dry and I felt the all too familiar feeling of tears welling in my eyes. I ran to the front door and burst in the house "Margrett!?! Margrett? William!?" but no response.  I looked around and at the table, was the male doll with his backpack and papers strewn about. The small female doll sat in Lilly's high chair with plastic food laid out in front of it. And in the kitchen was the bigger doll, standing on a stool at the stove with empty pots sitting on each eye. I quietly picked the puppy up and slowly backed myself in to my bedroom. I didn’t even bother with my nightly routine; just popped some more sleeping pills, curled up with the puppy and forced myself to sleep.
+
+&#x200B;
+
+I woke up the next day, reached over for her but the bed was empty as usual. The smell of coffee made me sit up instantly. When I got my bearings I saw a cup of coffee sitting next to me, the 3 dolls at the foot of the bed and my dad standing in the bedroom door way. "Uh, hey bud, how are you feeling? You, uhm, get in to something last night"? "Huh? What are you talking about? Not to sound rude but what are you doing here?" I asked. "Well, I’ve been here since last night. Your mother got a call from Margrett's cell phone last night and it was pretty strange. She said it sounded like an old staticy recording of Margrett's voice. I thought you got that deactivated? Worried the hell out of your mother. She said the voice sounded like it was saying it was worried about you. I came over and found the house locked up like Fort Knox and you passed out in your bed. You, uh, been doing some coping exercises or something with these creepy dolls? Found them all sitting on the couch watching a movie when I came in and this bigger one was holding Margrett's old cell." "What? Uh, yeah, coping exercises. It helps me not feel so alone" I lied, not wanting to see his face become more saddened by what he was seeing.
+
+&#x200B;
+
+"Ok, well, just don’t call your mother from that phone again.  Get up, you’ve got work, then this afternoon I want to help you get your yard cleaned up and that old car out of the driveway and then I think you should come stay with us for a few days. Might do you some good to, uh, not be alone with some actual people." "Thanks Dad, I really appreciate it, but I think I’m ok. I should really get in the shower, been a few days". He looked at me, then back to the dolls, then back to me and said "ok son, but, just think about reconsidering. Give me a call when you get off and we can talk a little bit further. Want me to stick around until you leave"? "Yeah, sure, thanks Dad".
+
+&#x200B;
+
+I got dressed and ready to go, told my dad I needed to check something real quick and went back to my room to see what the dolls were doing. Just sitting there like regular dolls but I swear when I left the bedroom earlier they were facing the other direction, now they were all 3 staring at me.  I said an awkward good bye and again, I swear I heard a whispered unison good bye. The rest of the day went by without incident, though it was incredibly hard to focus, I made it to the end of my shift and felt something I hadn’t in a long time. I was excited to go home. A little scared, but excited to see what they had done today. Excited at the thought of what kind of homework doll William had and if he needed help, excited to see what kind of mess doll Lilly had made and excited to see what doll Margrett was making for dinner. Was I losing my mind? I had completely skipped over finding out if somebody was messing with me to full blown doll family excitement.
+
+&#x200B;
+
+I raced home with a smile on my face and my chest pounding only to have that feeling slip away upon pulling up to my house. It the drive way sat my dad’s car, with him sitting on the front porch. "Hey, what’s up Dad? Sorry, I think I’m just going to stay home tonight. I’ll be ok, I promise". "Son, we need to talk. I got a call from William's old school today. They said they received a phone call from somebody claiming to be Margrett. Saying that William wouldn’t make it to school today because he was sick. Listen, I know this has been really tough on you but this has got to stop. I think it’s best if we get you back in to treatment". It broke my heart to see him like this, to watch his son free fall in to what he thought was pure insanity. I took a deep breath and said "ok dad, let me go inside and get a few things".
+
+&#x200B;
+
+I unlocked the door, stepped inside and quickly shut the door behind me, locking it up tight. I heard him banging on the door, shouting my name, pleading with me to come out but all I cared about was finding my family...I mean the dolls. I needed to see them. Sure enough, there they were, sitting at the table. Doll William working on some tough looking math, doll Lilly with her blanket and favorite stuffed animal and doll Margrett cooking up something I’m sure they all would enjoy. I peeked out the window and saw my Dad drive off, probably the last time I would ever see him. It’s ok though, I’ve got my family.
+
+&#x200B;
+
+I woke up this morning, reached over for her and there she was. Right next to me. A little smaller, a little softer and a little quieter, but there none the less.

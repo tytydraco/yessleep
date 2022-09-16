@@ -1,4 +1,4 @@
-There is a place near my village that I am **too afraid** to visit at night. They say **Old Monastery Pool** is **haunted** and that this is the story that proves it.
+There is a place near my village that I am **too afraid** to visit at night. They say **Old Monastery Pool** is **haunted** and that this is the story which proves it.
 
 *
 
@@ -55,7 +55,7 @@ But Charlie didn’t hear the end of what Mr Allsopp had to say because he was a
 
 *
 
-As soon as he had his fishing tackle, Young Charlie raced across the local fields towards Glover’s Wood. What he found in the dying light disappointed him. The pond was easy enough to find but it was clogged with pond weed and full of dead branches. Only a few patches of clear water remained and Charlie thought he could see through them right to the bottom. It seemed that the water was only a few inches deep, hardly the sort of place that might harbour a monster.
+As soon as he had his fishing tackle, Young Charlie raced across the local fields towards Glover’s Wood. What he found in the dying light disappointed him. The pond was easy enough to find but it was clogged with pond weed and full of dead branches. Only a few patches of clear water remained and Charlie thought he could see through them right to the bottom. It seemed that the water was only a few inches deep, hardly the sort of place that might harbour a monster fish.
 
 But he had come this far. Charlie chucked out a little stick float and worm, hoping that there might still be a few minnows around, maybe even an eel or two. Almost as soon as his float stood straight in the water it was yanked under with all the ferocity of a colossal pike strike. 
 
@@ -77,8 +77,8 @@ Young Charlie stood and ran without retrieving so much as a broken float.
 
 The above is a story that is endlessly passed around campfires where I grew up. Most of my local ponds are inhabited by mirror carp and, apparently, they’re all descended from carp the monks used to rear in their monastery pond hundreds of years ago.
 
-According to local legend, the monastery was burned down when a cruel abbot refused fish to starving villagers after a failed harvest. In doing so he bought death and a terrible curse upon himself. Now he’s doomed to patrol Old Monastery Pool day and night, making sure no villagers try to take his precious fish.
+According to local legend, the monastery was burned down when a cruel abbot refused fish to starving villagers after a failed harvest. In doing so the abbot bought death and a terrible curse upon himself. Now he’s doomed to patrol Old Monastery Pool day and night, making sure no villagers try to take his precious fish.
 
 [This picture](https://i.redd.it/dm2js4l558o91.jpg) is of the Burrell Arms back in its heyday as well as me with a local monastery-descended mirror carp. I have visited Old Monastery Pool in the daytime and I can report that it is weedy, murky and surrounded by twisted trees and thorny undergrowth. It is certainly an eerie, unsettling place. I don’t mind admitting that I was too creeped out by the pool to stay for very long. On top of that I've always been too scared to visit at night or throw in a fishing line like Young Charlie did. In fact, I don't know of anyone in the village who's ever fished the pond or been up there at night.
 
-However, even with the cautionary tales and all the whispers of curses, I can’t help but wonder **what might happen if I did…**
+However, even with the cautionary tales and all the whispers of curses and ghostly abbots, I can’t help but wonder **what might happen if I did…**
