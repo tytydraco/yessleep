@@ -1,5 +1,36 @@
+LAIMA – cuckoo of the Lime tree
 
 
+“The Cuckoo is a fine bird,
+
+
+She sings as she flies;
+
+
+She brings us good tidings,
+
+
+She tells us no lies.
+
+
+She sucks little birds’ eggs
+
+
+To make her voice clear;
+
+
+And when she sings
+
+
+“Cuckoo,”
+
+
+The summer is near.”
+
+
+
+
+———————————————
 
 Do you like the wilderness? It’s peaceful. There’s almost a spiritual component to it if you allow yourself to see it. I love the outdoors, it’s been a refuge for me. I would run away to the fields, or the trees, or the water. Id find myself surrounded by acres of wildflowers and a gentle breeze, or maybe at the top of the tallest tree on othe edge of the forest line just so I could feel bigger.   One day, I found myself at the edge of a pond I couldn’t remember. There was a linden tree on the edge. A large bird nest perched in the furthest limb, overhanging that pond. 
 
@@ -51,7 +82,7 @@ The nasty summer months had ended, and the leaves were starting to release thems
 
 
 I wound my way through the woods, under branches over thorn thickets. I floated past a river, and through briar patches so tangled a mouse couldn’t tip toe through. It was so surreal, I felt as if I was in a dream. I found myself at the edge of that pond. The same proud linden tree perched over the edge to the left, the large bird nest I had seen earlier in the year thicker and more robust. To my surprise, there was a large bird perched in the tree behind the linden tree. 
-I swear it wasn’t there when I had arrived, but there had been no commotion upon its arrival. I’m not sure how I missed her. 
+I swear it wasn’t there when I had arrived. there had been no commotion upon her arrival. I’m not sure how I could’ve missed something so ethereal. 
 
 
 

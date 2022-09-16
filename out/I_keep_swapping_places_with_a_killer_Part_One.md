@@ -95,3 +95,7 @@ I had to find the number for that police station.  Warn them that the woman that
 Getting off the sofa where I’d been sitting, I started looking for my phone.  It was on the counter in the kitchen, and as I reached for it, it lit up and began to rumble.  Holding my breath, I forced myself to pick it up.  My hand started shaking as I read the text message there.
 
 [**Now you’ve fucked up.**](https://redd.it/9ndww5)
+
+**** 
+
+[Part Two](https://redd.it/xg4681)
