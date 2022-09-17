@@ -2,7 +2,7 @@ I still haven't slept, I'm leaving the station now.
 I've been sitting in a holding cell. How is this my life?
 
 
-I looked everywhere for within reason for that girl while my brother's girlfriend screamed at me relentlessly trying to convince me that it was all in my head. I didn't want to get lost amongst the trees and be useless to her so instead I decided to call for help.
+I looked everywhere for her within reason while my brother's girlfriend screamed at me relentlessly trying to convince me that it was all in my head. I didn't want to get lost amongst the trees and be useless to her so instead I decided to call for help.
 
 
 My brother's girlfriend was fuming, she kept demanding that I stop acting insane and drive them home. My brother was vomiting in the back of my car and he needed to go home and get cleaned up.

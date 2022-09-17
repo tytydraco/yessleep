@@ -106,7 +106,9 @@ Pyromaniac ghosts aren’t exactly the best legal defense, as my exasperated law
 
 I just hope Teddy wakes up one day soon.  I know he’ll tell them I’m innocent.  
 
-I just hope my best friend can clear my name - or I’m gonna be in this asylum for a long, long [time.](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
+Someone smuggled in a cell phone for me so that I could share my story.  A true friend.
+
+I just hope Teddy can clear my name - or I’m gonna be in this asylum for a long, long [time.](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
 
 [MAD](https://www.reddit.com/r/MidnightAllDay?utm_medium=android_app&utm_source=share)
 
