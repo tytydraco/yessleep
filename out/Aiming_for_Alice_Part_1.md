@@ -1,36 +1,32 @@
-*She left me…She really left me.*
+She left me…She really left me.
 
 I stared at the blank wall across from me as tears streamed down my face.
 
 “Dklsowkdllkspowln?”
 
-I looked up at my friend Jeff. “What?” I asked him.
+I looked up at my friend Jeff. “What?”
 
-“Do you want to go for a ride and see if that will make you feel better?
+“Do you want to go for a ride and see if that will make you feel better?”
 
 I looked at the floor, staring at my shoelaces for a moment. I nodded my head before standing up. I felt like a zombie as I followed him to the car. He talked to me the whole way, more than likely making dumb jokes like he always does, but all my ears heard were a dull murmur.
 
 As we headed down the driveway, Jeff handed me his phone as another mumble escaped his lips. I looked at the device in my hand to see a list of song playlists. I picked one at random, and I handed it back to him as I felt the bass begin to rattle beneath my feet. We drove in silence for a while, listening to one bass booming song after another. Dozens of blurred red, green, and yellow splotches flashed by as we drove. The soft pitter-patter of rain began to hit the windshield.
 
-*Did I not do enough for her? Is there a way I could get her back?*
+Did I not do enough for her? Is there a way I could get her back?
 
-Jeff slammed on the brakes suddenly, causing me to nearly fly into the dashboard. My hands slammed against it, bracing myself for possible impact. I slammed back into my seat before it came as Jeff’s horn wailed at its target: an SUV that had pulled out in front of us. His hands waved dramatically as he yelled at the other driver. The moment of anger passed swiftly, though, and we were back on our way before it had even ended.
+Jeff slammed on the brakes suddenly, causing me to nearly fly into the dashboard. My hands slammed against it, bracing myself for possible impact. I slammed back into my seat before it came as Jeff’s horn wailed at its target: an SUV that had pulled out in front of us. His hands waved dramatically as he yelled at the other driver. The moment of anger passed swiftly, though, and we were back on our way before it had even ended. He mumbled something to me, but I felt too numb to care.
 
-*I have to try and get her back. I can’t live without her.*
+I have to try and get her back. I can’t live without her. I don’t want to.
 
-I felt the rattle of the bass diminish, followed by Jeff asking “Dksljpowklejeioenrk?”
+I felt the rattle of the bass diminish. “Dksljpowklejeioenrk?”
 
 “What?” I asked, broken out of my trance once more.
 
-“Do you want to go through McDonald’s and get a coke?”
+“Do you want to go through McDonald’s and get a coke? I’ll buy you one to help make you feel better.”
 
-“Are they still open?” I felt like my speech was too sluggish. I sniffled loudly to try and sound less congested.
+“Thank you,” I responded. It wouldn’t make me feel better, but I thought it was kind of him to try.
 
-“They should be,” he said. “I’ll buy you one to help make you feel better.”
-
-“Thank you,” I responded. I didn’t think that it would make me feel better, but I thought it was kind of him to try.
-
-The bass increased once more, vibrating my whole body. The variety of light colors increased as well as we entered downtown. I could see the tell-tale signs of the yellow arches in the distance like peaking mountains. I closed my eyes and tried to minimize my thoughts, focusing them on cheeseburgers and milkshakes instead. When that didn’t work, I counted the beats as they rattled my fingertips and played the guessing game of what song might be playing.
+The bass increased once more, vibrating my whole body. As we entered downtown, I could see the yellow arches in the distance like peaking mountains. I closed my eyes and tried to minimize my thoughts, focusing them on cheeseburgers and milkshakes instead. When that didn’t work, I counted the beats as they rattled my fingertips and played the guessing game of what song might be playing.
 
 I was in the middle of a guessing attempt for the third song when I heard Jeff let out a horrific scream. The car jerked to the left as my eyes shot open. I caught a glimpse of a dark-haired woman in a white dress just before the car began to spin. Her ghostly complexion contrasted with her dark and brooding eyes.
 
@@ -40,13 +36,13 @@ I was in the middle of a guessing attempt for the third song when I heard Jeff l
 
 I woke up to the horn blaring and the bass still rattling under my fingertips. A glance to my left told me why the horn was screaming: Jeff lay unconscious on top of the steering wheel. His arms were splayed out at awkward angles on the dashboard, and his bloody forehead could explain the huge crack in the windshield. His head bent over the steering wheel as if he were looking deeply into the instrument panel, his chest practicing road rage etiquette.
 
-*What the fuck happened?*
+What the fuck happened?
 
-My brain felt even more zombified than before like its gears were attempting to run through jello. I tried to rub my neck, but it was hurting too much for me to even touch it. It wasn’t until I looked over at Jeff again and thought, *Man, he’s bleeding a lot,* that my brain seemed to click back into focus. I hopped out of the passenger side, ignoring my body screaming in pain, and made my way to the driver’s side. I winced in pain as I dragged him out of the car. My whole body felt so sore, but I ignored it sending warning signals to my brain. I needed to make sure Jeff was okay.
+My brain felt even more zombified than before like its gears were attempting to run through jello. I tried to rub my neck, but it was hurting too much for me to even touch it. It wasn’t until I looked over at Jeff again and thought, Man, he’s bleeding a lot, that my brain seemed to click back into focus. I hopped out of the passenger side, ignoring my body screaming in pain, and made my way to the driver’s side. I winced in pain as I dragged him out of the car. My whole body felt so sore, but I ignored it sending warning signals to my brain. I needed to make sure Jeff was okay.
 
 I laid him gently down on the asphalt beside us, grabbing a stray jacket out of his back seat to place under his head. Hovering over him, I listened closely to see if he was breathing still. I let out a sigh of relief when I realized he was, and I leaned back, sitting on my legs beside him. I patted my pockets to see if I could find my phone.
 
-*Shit, I left it at his house,* I thought.
+Shit, I left it at his house, I thought.
 
 I slowly stood up to go look for it in the car, but I got distracted. I saw the woman in white off in the distance, just staring at us. When I noticed her watching, she headed toward us. She had a determined look on her face like she was on a mission. As she got closer, I realized it was my ex-girlfriend.
 
@@ -54,7 +50,7 @@ I slowly stood up to go look for it in the car, but I got distracted. I saw the 
 
 “Hello, Alex,” she greeted me. How cold her voice sounded sent chills down my spine. She didn’t sound like herself at all.
 
-“What are you doing here?” The gears once more felt like they were taking a swim in some jello as I tried to figure out why she would be here. *Is she here to come to our rescue?* As I looked into her eyes, the iciness of her stare made my body feel rigid. I didn’t get the feeling that she was eager to help.
+“What are you doing here?” The gears once more felt like they were taking a swim in some jello as I tried to figure out why she would be here. Is she here to come to our rescue? As I looked into her eyes, the iciness of her stare made my body feel rigid. I didn’t get the feeling that she was eager to help.
 
 She very suddenly slapped herself, catching me so off guard that I gasped.
 
@@ -80,11 +76,11 @@ We spent a very long night at the hospital, but, long story short, the doctor fo
 
 As I was making ramen noodles, Alice texted me.
 
-Alice: *Would you like to come over for dinner tonight? I’m making your favorite :)*
+Alice: Would you like to come over for dinner tonight? I’m making your favorite :)
 
 Questions that I wanted to ask raced through my mind going 90 to nothing, but she texted once more before I could ask them.
 
-Alice: *I’m sure you probably have a million questions, and I want to talk it all out tonight. Do you think you could come at around 6?*
+Alice: I’m sure you probably have a million questions, and I want to talk it all out tonight. Do you think you could come at around 6?
 
 Her text practically read my mind, and I felt slightly relieved at the possibility that things would be settled tonight. I eagerly agreed to come, and then I spent the next few hours daydreaming about what would happen tonight. She said to be there at five, so, after chowing down on my noodles, I quickly scribbled down a note for the sleeping Jeff, requested an Uber, and then went home to get ready.
 
@@ -136,22 +132,23 @@ The rest of our dinner flowed beautifully. She asked me to be her boyfriend agai
 
 Some things about our visit tonight did worry me, though. Even with how well things went, two things jumped out at me about our visit tonight, but they didn’t seem important enough to mention at the time, especially not when we were discussing a sensitive topic like getting back together. I mean, they could really be written off with the mood change’s possible explanation, which could be stress. But they just seem so incredibly unlike Alice, and I’m really worried it has become more than just stress.
 
-1. She loves my friends, especially Jeff. All my past girlfriends thought Jeff was an asshole, but Alice was always fond of Jeff because she saw him as I see him, which was like the brother I never had. Sometimes he got on her nerves, but, hell, he gets on mine, too, sometimes. And, at the end of the day, she is grateful he has always been there for me when she couldn’t be. For her to call him an idiot was strange.
-2. Alice absolutely hates honey in her tea. She said her mom used to drink it when she was little, and she couldn’t stand anything that reminded her of her mom.
+She loves my friends, especially Jeff. All my past girlfriends thought Jeff was an asshole, but Alice was always fond of Jeff because she saw him as I see him, which was like the brother I never had. Sometimes he got on her nerves, but, hell, he gets on mine, too, sometimes. And, at the end of the day, she is grateful he has always been there for me when she couldn’t be. For her to call him an idiot was strange.
+
+Alice absolutely hates honey in her tea. She said her mom used to drink it when she was little, and she couldn’t stand anything that reminded her of her mom.
 
 \-
 
 I fought the urge to yawn as I stared at the TV screen. Alice had chosen another rom-com, and I was just never into those. It was always 80% cheesy romance and 20% comedy. I looked over at her laying down beside me on the couch, and I noticed her eyes were closed. She began snoring, and I couldn’t help but grin at the familiar noise I had always found adorable. My phone beeped loudly on the armrest beside me, and I grabbed it before turning it to silent mode. I looked over to see Alice still sleeping peacefully. I looked down at the notification on my phone and realized it was from Alice’s friend Jacie.
 
-Jacie: *Hey, I heard u and Jeff got into an accident. I just wanted to check on u guys*
+Jacie: Hey, I heard u and Jeff got into an accident. I just wanted to check on u guys
 
 Stretching a bit beforehand, I got up from the couch and headed to the sliding glass doors. I needed some fresh air, so I decided to relax on the back porch. I slid the door shut carefully behind me, not wanting to disturb Alice.
 
-Alex: *Alice must have told you. It honestly wasn’t that bad, though. Jeff ended up with a minor concussion and some scratches. We both have some whiplash. That’s about it.*
+Alex: Alice must have told you. It honestly wasn’t that bad, though. Jeff ended up with a minor concussion and some scratches. We both have some whiplash. That’s about it.
 
 I stared off into the woods, listening to the chirping cicadas. My fingers traced the wooden grain of the rocking chair I sat in, gliding around it in rhythmic circles. It didn’t take long for my phone to ding again.
 
-Jacie: *Oh no, not at all. I haven’t heard from Alice in like a week. I just saw the picture Jeff posted of the car on his story. It looked pretty bad, and I was worried about u guys. I’m glad u guys are okay though!*
+Jacie: Oh no, not at all. I haven’t heard from Alice in like a week. I just saw the picture Jeff posted of the car on his story. It looked pretty bad, and I was worried about u guys. I’m glad u guys are okay though!
 
 Reading the message made my heart race. Why would Alice have lied to me? My fingers hovered over the keyboard, debating what to say back. The sliding glass door opening behind me sent me into a frenzy, and I quickly locked the phone and placed it downwards onto the chair’s armrest.
 
@@ -171,7 +168,7 @@ She wrapped her arms around my shoulders and pulled me in for a kiss. The rest o
 
 The alarm clock evaded my dreams with its incessant ringing. I accidentally shoved it off the bedside table in my haste to quiet it. Flopping over onto the other side of the bed, I felt the cotton sheets against my skin. I opened one eye and noticed the empty space beside me. Sunshine rays peeked through her blinds and highlighted her abandoned spot.
 
-*Where’d she go?*
+Where’d she go?
 
 Right on time, I heard her walking down the hallway. I look towards the doorway to see her bringing in her tv tray with a plate of breakfast food on it. The meal of eggs, bacon, buttered toast, and orange juice smelled heavenly and instantly made my mouth water.
 
@@ -199,26 +196,46 @@ After many minutes of haggling, we were on our way to a local hiking spot. I let
 
 Alice requested no phones while we were hiking, and I happily obliged. The only exception was when we took a selfie just for memories sake. I didn’t get to check my phone until we got back to the car. I had a few app notifications plus a text from Jeff, so I went ahead and responded.
 
-Jeff: *You feeling okay, dude? I know we just got into a wreck…but you looked kinda rough in that picture Alice posted of you guys on her story.*
+Jeff: You feeling okay, dude? I know we just got into a wreck…but you looked kinda rough in that picture Alice posted of you guys on her story.
 
-*Alex: Dude, we went hiking. Of course, I’m a wreck. Other than that, I’m fine. How are you feeling?*
+Alex: Dude, we went hiking. Of course, I’m a wreck. Other than that, I’m fine. How are you feeling?
 
-Jeff: *I feel like shit, but at least I don’t look like shit like you.*
+Jeff: I feel like shit, but at least I don’t look like shit like you.
 
 I rolled my eyes at his message and tried to think of a snappy comeback. He sent another one before I could.
 
-Jeff: *Jk. Let me know if you guys need anything, dude. Always here.*
+Jeff: Jk. Let me know if you guys need anything, dude. Always here.
 
 “You’ve been on your phone a lot lately,” said Alice, making me jump. I hadn’t realized she had returned. “My surprise better be good.”
 
 “Oh, I'm just texting Jeff,” I said honestly before swapping to a white lie. “Your present is still in transit.”
 
-*Shit…* I thought. *I gotta remember to get her something*.
+Shit… I thought. I gotta remember to get her something.
 
 We rode the rest of the way in silence. I was glad she chose to drive again because it gave me time to get a little snooze in. I had been so incredibly tired lately, yet it seemed like Alice had a constant burst of energy. Honestly, it was hard to even get out of the car as we made our way back home.
 
-I stumbled inside and made it to the couch, collapsing like a sack of potatoes. My eyes fluttered open for just a second, and I smiled at the view of Alice looking down at me. She was smiling back, but it didn’t seem genuine. Just like the night of the crash, the happiness didn’t meet her eyes. Before my brain could register how weird that was, I was gone to dreamland.
+I stumbled inside and barely made it to the bedroom, collapsing like a sack of potatoes onto the mattress. My eyes fluttered open for just a second, and I smiled at the view of Alice looking down at me. She was smiling back, but it didn’t seem genuine. Just like the night of the crash, the happiness didn’t meet her eyes. Before my brain could register how weird that was, I was gone to dreamland.
 
 My slumber was filled with nightmares. The night of the car crash repeated over and over in my head, only it was much worse. Jeff’s blood stained the asphalt as Alice’s incomprehensible screams filled my ears. I could see her off in the distance, watching, but she wouldn’t come any closer. Even when I beckoned her and flat out begged her for help, she kept her distance while howling something I could never make out. Jeff’s breathing always stayed steady, as did the blood flow, but he never woke up no matter what I did. After getting fed up with my situation, I tried to run to Alice, but no matter how much I tried to lessen the gap between us, she just seemed to stay the same length away.
 
-And then the car crash would start over: the impact, Jeff’s blood draining as he refused to wake up, Alice’s incessant screaming, and my inability to fix anything. It felt like I was stuck in my own eternal hell, and I only felt more exhausted when I woke up the next [morning.](https://www.reddit.com/r/ShortTalesWithAsh/)
+And then it would start over: the impact, Jeff’s blood draining as he refused to wake up, Alice’s incessant screaming, and my inability to fix anything. It felt like I was stuck in my own eternally looping hell. That is, until whatever force that was keeping me away from Alice finally broke, and I ran to her so fast I felt my legs would snap like twigs. Her wails grew more painful, more urgent.
+
+As I drew closer, I began to let out screams of my own as Alice dropped to her knees. She reached an arm out towards me, grasping at the air as her voice grew hoarse.
+
+“I’m coming, baby!” I screamed. I was close enough to see the tears falling from her face now. It made my heart ache even more. But…wait, why would I be able to see tears?
+
+I stopped a few feet before her, my body frozen from shock. She continued to beckon me, screeching more aggressively as I refused to step forward. It’s just…her face looked off. I realized it wasn’t tears that I saw falling, and that’s why I was scared to move forward. The feeling of fear in my gut only grew stronger as she reached up and dug her fingers into her cheeks. She dug deep, dragging the skin and flesh down until it fell to the ground. I slapped a hand to my mouth as I began to gag, but she just kept clawing. As my nose finally comprehended the horrific stench of her rotting flesh, the immobilization curse placed upon me broke and I began backing up.
+
+“Don’t fall for it, Alex!” she screeched before giggling like a hyena. She clawed out an eyeball, throwing it at me as she stood up. “Don’t fall for it!” she repeated before she charged at me.
+
+I sprang to action in bed, body fully ready to flee. Alice sat up a moment later and placed a hand on my forearm. I felt claws dig into my skin, and I looked up to see the same terrifying monster from my dream.
+
+I reared back, ready to swing.
+
+“Babe, babe!” she shrieked, flinging her arms up in defense.
+
+My eyes adjusted to the darkness, showing that she was her regular self and not some dream demon. I felt her clawless hand caress my back as I slumped in defeat.
+
+The blaring of my alarm made us both jump, and I reached over to my nightstand to turn it off.
+
+“Time to get up for work,” I [announced.](https://www.reddit.com/r/ShortTalesWithAsh/)

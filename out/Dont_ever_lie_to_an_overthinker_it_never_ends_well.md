@@ -22,6 +22,26 @@ And then I waited.
 
 And waited. 
 
-The snores then stopped. When I noticed my husband moving, I took a deep breath. Then he whispered in my ear "Are you awake?". I turned to face him and thrust the knife into his neck without warning. I could hear him making horrifying guttural sounds. Then he collapsed on the bed's side and fell silent. 
+The snores then stopped. When I noticed my husband moving, I took a deep breath. Then he whispered in my ear "Are you awake?". I froze. My breath was shallow, but my heart was racing. I didn't want him to notice that I was awake. Waiting, I tightened my grip on the kitchen knife under my pillow. But nothing happened. He sat back down on his side of the bed. I took a deep breath and sucked it down my dry throat. I was sweating and on the verge of a heart attack by the time he started snoring. I stayed there, counting down the hours until morning. I jumped out of bed when I heard my husband's car start driving away. I went to work as usual, but my mind was scattered. What should I do now? At 12 p.m., my phone rang. It was him! I hesitated a moment. Why is he calling me? 
 
-I closed my eyes, leaned back, and finally... I fell asleep.
+"Hey honey, when are you coming home?" he inquired. 
+
+Silence. 
+
+"Hello? Honey? Did you hear what I said? "
+
+"I did. I'll be home by 4 p.m. Why do you asking?"
+
+"I can’t tell you. You'll know when you get there. Bye." 
+
+He then hung up.
+
+I stood there for nearly 5 minutes, barely breathing, imagining the worst-case scenarios. 
+
+I left for lunch at 12:30 p.m. 
+
+That day, I did not return to my office.
+
+I never returned home either.
+
+The sound of the moving train was loud, but I didn't mind. Its constant back-and-forth pulling was actually soothing. It would be a long travel. I closed my eyes, leaned back, and finally... I dozed off.
