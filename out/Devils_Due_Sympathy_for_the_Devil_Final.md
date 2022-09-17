@@ -107,7 +107,7 @@ All Shall Fade
 
   When the little girl blinked from existence right before my eyes, only to return moments later, holding a small, purple ball, I hoped that this nightmare was truly behind us. As she crushed the tiny orb in her fist, allowing the dust of its remains to sprinkle on the ground, I felt a smile reach across my lips. 
 
-  There were things to be said; conversations to be had, but not yet. I glanced over to Brandon, who still held his trembling girlfriend in his arms. We would learn sometime later, that whatever corruption had been spoonfed to the little scarlet-haired gypsy girl, faded along with those last remaining specs of power the building held. 
+  There were things to be said; conversations to be had, but not yet. I glanced over to Brandon, who still held his trembling girlfriend in his arms. We would learn sometime later, that whatever corruption had been spoonfed to the scarlet-haired girl since childhood, faded along with those last remaining specs of power the building held. 
 
   She would have a lot to deal with when her reeling mind settled down enough for her conscience to grasp the horrific things the building made her do over the centuries. Brandon would stand by her side, though. They would shed many tears together, but they would recover from this, safe in each other's arms. 
 
