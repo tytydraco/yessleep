@@ -1,0 +1,43 @@
+hey all! apologies for the radio silence! been working like crazy this week and I havent had a change to sit down and really check out this book more. i borrowed my friends film scanner but it took me forever to figure out and I only had time to scan one page spread and a single negative before my friend needed his scanner back for work. but it's something, right??
+
+I scanned an entry about a disease called, Glossaposteosis. I cant find anything on this one either, which i guess checks out for a weird mud beach book. While definitely creepy AF, it could certainly just be some weird fan fiction, as some of you pointed out. The part's that got me definitely unnerved tho are the negatives. I couldnt really make out what they were before i scanned them but seeing them upclose is...well, check them out yourself. i dont think any word i come up with is gonna do em justice. 
+
+link to photos: https://imgur.com/a/LG3gWs7
+
+The page spread is kinda hard to read from the scan ( the book is pretty thick so a lot of it is out of focus) so I transcribed it here. It took ages so apologies for any accidental misspellings - i got lazy and i dont feel like proofreading. I also didnt bother with any of the italics/bolds/what have you. Plus, honestly, the negatives gave me the heebyjeebies and i think ive had my fill of creepy old book for today.
+
+
+
+
+> Glossaposteosis, historically known as “Liar’s Tongue,” is caused by a parasitic infection from the larva of Hemiceratoides tacitus (H. tacitus,) or the Mute Moth. Prior to finding a suitable host, the larva is only 5nm in size and thus, very easily hidden . Infection typically begins when the host inadvertently eats food or drinks water containing the moth larva. The larva instinctually attempts to burrow into the base of the tongue by way of the laryngeal tonsils - although often the larva harmlessly continues into the stomach to be digested.
+
+
+> If the larva is able to attach itself to a host, it enters a state of dormancy that ranges from a minimum of 1 month to a maximum of 4 years. Generally, if after four years, the larva has not yet revived, it will remain in the larval stage indefinitely. The longest known case of a dormant larval infection is sixteen years; it was discovered during a post-mortem analysis of a death from unrelated causes (see Tineasarx Letalis).
+ 
+   
+> In the event of the host's death, the larva will always attempt to find a new host, regardless of the length of its dormant period. Consequently, any discovery of H. tacitus larva should be treated as a Category 4b hazard event and all relative precautions taken.
+
+> Upon revival, the larva begins secreting both a digestive enzyme and a paralytic/numbing toxin into the tissue surrounding the larva, growing as the host tissue breaks down. Although the host may feel pressure or itching near the larval attachment site, it is not uncommon for the host to dismiss this as lingering cold; there may also be no symptoms at all, further obfuscating a correct diagnosis.
+
+> As the larva grows, the nerves within the tongue may misfire, causing the host to “taste” phantom foods - or it may even result in the complete loss of taste sensation. While an H. tacitus infection has become synonymous with loss of taste to the general public, in the study, taste receptor reinnervations with mute moth papillae: an allosteric model, J Long and N Webber found that it it is becoming increasingly rare. Because the loss of taste is so detrimental to a patient's QOL, its development typically leads to the patient seeking immediate medical intervention and the subsequent destruction of the moth larva.
+
+> Consequently, as the moth has evolved to survive in its new ecosystem, selection pressures have discouraged this subset of symptoms, and as a result, Adjudicators have reported fewer instances of this in the field. Given that rhomocularpariphrenia shares a similar initial pathology, it is essential that one keep these findings top of mind as any delay in treatment will significantly impact patient prognosis, treatment efficacy, and long term mortality.
+
+> As the infection progresses, lingual nerves rewire and, surprisingly, accommodate the larva - although tongue dexterity is generally reduced. While speech at this stage can be difficult, there are increasing reports of the larva forming a sort of ectosymbiosis with the host, and with sufficient SLT, patients are generally able to regain at least basic speech functions.
+Once the larva enters its pupal stage, fully replacing the host's tongue, the more advanced speech functions are often relearned with practice and taste, if previously incomplete, returns.
+
+> Despite the many extensive studies into all stages of the moth’s biological structures, it’s ability to detect and transmit taste sensations to the host is entirely unknown - taste receptors as we understand them are absent in any meaningful capacity for the moth; there is neither a biological nor a chemical explanation as of this writing. The pupal stage generally lasts a minimum of two years, although similar to the larval stage, the pupae may never progress if the conditions are never satisfactory.
+
+> The pupae will often grow its own nervous system into the hosts, effectively hijacking the host’s own nervous system to best accommodate its eventual emergence. Symptoms include, but are not limited to, increased sociability and outgoingness, perceived increase in energy (a caffeine-like analog is steadily released into the sublingual mucous membranes, blocking adenosine-a1 receptors), and a decrease in appetite. (see the chapter preface: The Wreck and the growth of neurological impairment and divergent control through glialblastic synapse analysis and sodium ion dysfunction. )
+
+> The imago usually completes over the course of 2-4 days and results in drastic behavioral changes in the host; the pupa preemptively releases a hormone cocktail that causes extreme paranoia and reclusion. The evolutionary process for such stark behavioral shifts is currently unknown - it is theorized that the upswing in sociability followed by the forced and complete isolation increases the likelihood that new hosts will be introduced by way of psychological “check-ins” while also ensuring that the metamorphosis can complete without interruption.
+
+> Some argue, however, that this explanation applies intelligent intention to evolutionary processes that disallows such intent. As the moth emerges, the pupal tongue is split into parts, rendering it entirely inoperable to the host. The jaw is opened to dislocation via reflex mechanisms introduced during the pupal stage to allow for the moth’s exit.
+
+> If the nervous system growth was successful, the severing of the spinal cord via pressure differential is common, and it is theorized to result in a type of “locked-in” syndrome for the host. Because of the behavioral changes in the host and the resulting isolation, this can only be theorized as previous hosts are almost always found in the early stages of decomposition. Recovery of the host after complete moth emergence is exceedingly rare - priority should be placed on diagnosis and treatment prior to this - even treatment during a partial emergence can significantly improve patient outcome.
+
+> Until recently, the only treatment for the pupal stage was amputation of the facsimile pupal tongue and the surrounding tissues before the emergence of the moth. Because we now know the moth only emerges when the body’s lymphokines levels are sufficiently low, maintaining artificially higher quantities in the blood allow for the patient to have seemingly an only moderately reduced lifespan.
+
+> This treatment, however, has had negative consequences among the general population: as the QOL increases, we are seeing a disproportionately large uptick in infection rates believed to be from intentional self-infections. Because the mid-stage symptoms are, arguably, positive changes to some, they seem to view the side-effects of treatment as worth the behavioral “enhancements.” It is incredibly important to stress to any suspected self-infected patients the dangers of glossaposteosis, the financial burden of lifetime injections, and the relative unknown efficacy in the long term.
+
+Like i said in the last thread - its so specific, I cant help but feel that someone experienced this at some point? But also, it doesnt exist literally anywhere else. Im at a loss - thoughts? either way, ill talk to my friend about getting the scanner back so I can scan a few more.

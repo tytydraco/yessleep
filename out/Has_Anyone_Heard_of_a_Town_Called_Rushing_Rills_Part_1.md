@@ -100,7 +100,6 @@ In other words, it was a bloody awful day for a long car journey. Dad didn’t c
 
 “Mommy, I need to go pee.” my sister whined. Throughout the whole trip her and my little brother had been absorbed by a colouring book or my old gameboy colour 
 
-“Mamma, jag behöver gå på toa.” gnällde min lillasyster. Under hela bilresan hade hon och min lillebror suttit försjunkna i antingen en målarbok eller mitt gamla gameboy colour that was surprisingly still alive after all these years. 
 
 “Honey.” mom sighed, “I asked back at the gas station. Can you hold it until we’re there? It’s not long now.” 
 

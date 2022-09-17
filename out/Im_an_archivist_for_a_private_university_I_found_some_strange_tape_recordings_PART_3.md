@@ -1,4 +1,4 @@
-[[PART 2]](https://www.reddit.com/r/nosleep/comments/x4ncte/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [[PART 4]](https://www.reddit.com/r/nosleep/comments/xg5a6g/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
+[[PART 1]](https://www.reddit.com/r/nosleep/comments/x2tn6o/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [[PART 2]](https://www.reddit.com/r/nosleep/comments/x4ncte/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [[PART 4]](https://www.reddit.com/r/nosleep/comments/xg5a6g/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 
 Hey everyone, Naissance here. It’s a weird name, I know. It’s been a while.
 
