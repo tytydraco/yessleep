@@ -6,7 +6,7 @@ I was ready to tear whoever the hell was at my door at three in the morning to s
 
 There was a woman standing on my doorstep, wearing a black pantsuit, blonde hair slicked back into a bun- though there were a few crazy looking strays sticking out, with grey tired and dead looking eyes. Standing right besides her hip was a pale bruised up little boy looking up at me with his familiar blue eyes. I hadn’t seen him since he was an infant, but I could recognize those crystal blue eyes and silky black hair anywhere. He looked just like his mother. My heart sank into my stomach as there was only one reason why he’d be brought here.
 
-Social services didn’t call to notify me or nothing. Didn’t give me time to prepare or even mourn, just dropped Matthew at my feet in the middle of the night, dusted their  hands off, and left. 
+Social services didn’t call to notify me or nothing. Didn’t give me time to prepare or even mourn, just dropped Matthew at my feet in the middle of the night, dusted their hands off, and left. 
 
 Sorry I’m tired and a bit frantic at the moment so I’m probably not making much sense. My name is Kieran Gates and I’m the godfather to my best friend’s son Matthew Hues. 
 
@@ -20,11 +20,11 @@ That was seven years ago, and now I’m the Head Architect at the firm I work fo
 
 Before the social worker had left she explained to me what happened and why Matthew was all banged up.
 
-He and his mother had gotten into a pretty severe hit and run earlier in the night. Catherine had gotten the brunt end of it since they got T-boned on the drivers side of the vehicle, Matty escaping with a minor concussion and some bruises. Thankfully, Catherine and Matty were able to make it out of the car before she called nine-one-one for help. She had already passed when the first responders got there. Along with other internal injuries, their was a piece of shrapnel wedged in her leg that had cut into her femoral artery, so she essentially bled to death. Matty hadn’t said a single word since the accident, which is understandable however, from what I heard he hadn’t talked much since his grandmother died in front of him, which again, is understandable.
+He and his mother had gotten into a pretty severe hit and run earlier in the night. Catherine had gotten the brunt end of it since they got T-boned on the drivers side of the vehicle, Matty escaping with a minor concussion and some bruises. Thankfully, Catherine and Matty were able to make it out of the car before she called nine-one-one for help. She had already passed when the first responders got there. Along with other internal injuries, there was a piece of shrapnel wedged in her leg that had cut into her femoral artery, so she essentially bled to death. Matty hadn’t said a single word since the accident, which is understandable however, from what I heard he hadn’t talked much since his grandmother died in front of him, which again, is understandable.
 
 I had to call off of work that morning since I didn’t know anybody who could look after him on such short notice, or at all. Instead of going to the meeting and introducing my new project, I had to spend the day getting Matthew situated and making preparations for Catherine’s body since she had no other friends and family besides me. In the meantime though, it was still early in the morning, so I set Matthew up in one of my two guest bedrooms- which would be converted into his own once his belongings from their house had been collected and brought to mine. I myself went back to sleep. 
 
-When my eyes filtered open there was a child sitting there staring at me. I jumped and grabbed my chest before checking the time on my phone. It was seven thirty in the morning. 
+When my eyes flittered open there was a child sitting there staring at me. I jumped and grabbed my chest before checking the time on my phone. It was seven thirty in the morning. 
 
 “Jesus Christ, Matty! What are you doing just standing there?”
 
@@ -40,19 +40,19 @@ My commute was about thirty minutes away from my house so that left about fiftee
 
 I had decided to forgo a quick shower but I did wash my face and brush my teeth. I combed my little mop of dark brown hair and touched up the light stubble growing on my face, all the while Matty stood behind the door that led into my bathroom, watching me. Since I was practically a stranger to him, I think he was just trying to scope me out, but that didn’t explain why he was watching me sleep.
 
-He followed me to my closet where I picked out a business casual outfit. Normally I’d be wearing a three piece suit, but I wasn’t going to be working. Seeing as I still would be going into the office, business casual felt like the right choice instead of one of my sparse T-shirts and sweatpants. I had to close the door to the walk-in so for some privacy to change into a pair of black dress pants and a white, long sleeve, collared, button up. 
+He followed me to my closet where I picked out a business casual outfit. Normally I’d be wearing a three piece suit, but I wasn’t going to be working. Seeing as I still would be going into the office, business casual felt like the right choice instead of one of my sparse T-shirts and sweatpants. I had to close the door to the walk-in for some privacy to change into a pair of black dress pants and a white, long sleeve, collared, button up. 
 
-When I re-emerged I was met with Matthew. I looked him up and down, getting a better look at the kid now that I was fully awake. He was wearing a white T-shirt and some light blue jeans. There were bandages littering his face covering up the little cuts he’d gotten from the accident and a few bruises had started showing up on his arms. He looked a little creepy to be honest, like his face was void of all emotion and his eyes looked empty. I remembered the happy little baby he was seven years ago and couldn’t believe I was looking at the same kid. To be fair though, he’d gone through stuff the average seven year old doesn’t. He didn’t say anything as I took a second to analyze him, just looked me dead in the eyes, peering into my soul. 
+When I re-emerged I was met with Matthew. I looked him up and down, getting a better look at the kid now that I was fully awake. He was wearing a white T-shirt and some light blue jeans. There were bandages littering his face covering up the little cuts he’d gotten from the accident and a few more bruises had started showing up on his arms. He looked a little creepy to be honest, like his face was void of all emotion and his eyes looked empty. I remembered the happy little baby he was seven years ago and couldn’t believe I was looking at the same kid. To be fair though, he’d gone through stuff the average seven year old doesn’t. He didn’t say anything as I took a second to analyze him, just looked me dead in the eyes, peering into my soul. 
 
 After I got a good look at the kid, I slipped on some shoes, grabbed my wallet and keys, and got ready to leave.
 
-“C’mon Matty, let’s go.” I called from my office downstairs, blueprints in hand. He hadn’t followed me back to the ground floor after leaving my room and instead went back to his. I didn’t feel comfortable leaving him alone in my house by himself, not wanting him to get overwhelmed be alone in a new place he’s never been before. It was also a good opportunity to go shopping for some things he needed like bedsheet, clothes, and other stuff seven years old boys need.
+“C’mon Matty, let’s go.” I called from my office downstairs, blueprints in hand. He hadn’t followed me back to the ground floor after leaving my room and instead went back to his. I didn’t feel comfortable leaving him alone in my house by himself, not wanting him to get overwhelmed and be alone in a new place he’s never been before. It was also a good opportunity to go shopping for some things he needed like bed sheets, clothes, and other stuff seven year old boys need.
 
 I heard his little feet pitter-patter down the stairs a few seconds later. 
 
-He followed me out into my driveway, so I assumed he’d hop right into the back seat of my BMW. I was confused when the engine had been running for at least a minute and I didn’t hear the sound of the passenger door opening. I turned my head and saw him just standing there, staring at me. 
+He followed me out into my driveway, so I assumed he’d hop right into the back seat of my BMW. I was confused when the engine had been running for at least a minute and I didn’t hear the sound of the rear passenger door opening. I turned my head and saw him just standing there, staring at me. 
 
-“What are you doing just standing there?” I asked after rolling down the window. It then hit me like a ton of brick and I felt like an asshole. He’d just been in a car accident where his mom died. I got out of the car and met with him.
+“What are you doing just standing there?” I asked after rolling down the window. It then hit me like a ton of bricks and I felt like an asshole. He’d just been in a car accident where his mom died. I got out of the car and met with him.
 
 “Are you feeling up for a car ride, Matty? I really have to drop these blueprints off. We also need to do a little shopping too.”
 
@@ -76,9 +76,9 @@ I waited for another minute weighing my options on what to do. I was extremely n
 
 We drove in silence for a little bit before I glanced back at him, where he was now looking out the window.
 
-“I’m sorry.” I said quietly. His head didn’t move, which meant he was just ignoring me.
+“I’m sorry.” I said quietly. His head didn’t move. 
 
-“Sorry.” I said louder, his head still not moving. “You’re safe with me Matty, ok? I promise you. I won’t let anything happen to you.” 
+“Sorry.” I said louder, his head still not moving, meaning he was just ignoring me. “You’re safe with me Matty, ok? I promise you. I won’t let anything happen to you.” 
 
 He didn’t say anything, but his arms unfolded and he placed them in his lap. A bit of the tension between us dissipated then. 
 
@@ -91,7 +91,7 @@ Matthew and I had just finished eating some Chinese takeout I’d ordered when a
 
 “Oh shit. Whitney” I mumbled to myself as I got up from my dining table. 
 
-“What the hell, Kieran!” My girlfriend Whitney yelled as her evil little purebred apple head chihuahua jumped from her arms and into my house. She pushed her way passed me and into the house. 
+“What the hell, Kieran!” My girlfriend, Whitney, yelled as her evil little purebred apple head chihuahua jumped from her arms and into my house. She pushed her way passed me and into the house. 
 
 I’d totally forgotten about date night with everything going on. I didn’t even tell her about Matty. 
 
@@ -121,8 +121,7 @@ Nothing much happened that night as Matthew scurried off to his room to play wit
 
 The next day, which is today, I couldn’t call off of work again and still found no babysitter, so I brought him into the office with me. There was some resistance getting into the car again, but not as much as the first time. He mostly spent the day playing with the new teddy bear I’d gotten him in my office with a few awkward interactions with him and my co-workers. 
 
-
-Everything was fine and dandy until I got home where I immediately slipped on a pool of dog piss. Cinnamon had the come up to me and started mopping my face as her urine seeping into the clothing on my back. When I got up Matty had latched onto the back of my leg, trying to hide from the dog.
+Everything was fine and dandy until I got home where I immediately slipped on a pool of dog piss. Cinnamon had then come up to me and started nibbling my face as her urine seeped into the clothing on my back. When I got up Matty had latched onto the back of my leg, trying to hide from the dog.
 
 Scanning my living room there were two piles of dog poop and the pee I’d just slipped on. I limped my way towards my table where there was a note from Whitney.
 It read:
@@ -143,7 +142,7 @@ Eventually I cleaned up Cinnamon’s mess before heading into my garage for my s
 
 Since I’m an architect I designed and helped build my house. It’s a three bed two bath two story American Craftsman with a decent sized front yard and driveway. There’s a pool in the back yard with an in ground deck with a little patch of grass that was about two and a half yards by two and a half yards big. 
 
-Obviously I couldn’t burry the dog in the front yard where my neighbors could see me, so I headed to the back. It took me a few hours, but the deed is done. 
+Obviously I couldn’t bury the dog in the front yard where my neighbors could see me, so I headed to the back. It took me a few hours, but the deed is done. 
 
 Matty hasn’t come out of his bedroom since the incident. 
 
