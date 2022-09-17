@@ -4,19 +4,19 @@ I guess that wouldn’t be the worst thing.  Sure, it’d mean I’m being pursu
 
 I decided to test that theory.
 
-(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
-We’ll get to that in a bit.  First, an interesting development with the Rain Chasers.  Obviously they aren’t having regular meetings right now, since it’s the summer semester and all.  I think I might be the only Rain Chaser left on campus.  The discord is sporadically active, as some of the more dedicated members are still looking for weird things in their hometowns.  Visiting local cemeteries or talking to great-grandma about family traditions or the likes.  Which I guess is neat and all, if it weren’t for the fact that some of them might find out things that can’t be taken back.  
+We’ll get to that in a bit.  First, an interesting development with the Rain Chasers.  Obviously they aren’t having regular meetings right now, since it’s the summer semester and all.  I think I might be the only Rain Chaser left on campus.  The discord is sporadically active, as some of the more dedicated members are still looking for weird things in their hometowns.  Visiting local cemeteries or talking to great-grandma about family traditions or the likes.  Which I guess is neat and all, if it weren’t for the fact that some of them might find out things that can’t be taken back.
 
 Maria has been quiet about it all.  I’m kind of hoping she’ll do some reflection over the summer and decide to bail on all of this.  I’m in too deep to do that, but she still has a chance.
 
 I was in too deep before I ever got here.  My own hometown saw to that.
 
-Anyway, Rain Chasers aren’t having regular meetings.  The lack of social interaction is actually a little nice after everything that’s happened.  Being on campus during the summer is pretty weird though.  I have my own dorm room because there’s few enough of us that we don’t need to share.  I’m enjoying the privacy.  I’m even staying on top of my studying, because even though I don’t have Cassie around to make me feel like I’m slacking, I have the threat of the devil popping up for another hellish study session looming in the back of my mind.  
+Anyway, Rain Chasers aren’t having regular meetings.  The lack of social interaction is actually a little nice after everything that’s happened.  Being on campus during the summer is pretty weird though.  I have my own dorm room because there’s few enough of us that we don’t need to share.  I’m enjoying the privacy.  I’m even staying on top of my studying, because even though I don’t have Cassie around to make me feel like I’m slacking, I have the threat of the devil popping up for another hellish study session looming in the back of my mind.
 
 Summer classes (at least so far) just feel a bit easier as well.  Like the professors aren’t wanting to work as hard either.  That or only the most dedicated students stay for the summer so they cut out the busy work.  My classes have more discussion in them than I was expecting for freshmen level stuff, at least, based on my experiences so far.  I’m enjoying it.  It’s also been an opportunity to get to know some of the professors, which is *weird*, but also really neat.  Like, I can interact with them as an adult now.  The power dynamic is all different.
 
-I’m also getting to know some of the professors that aren’t teaching any of my classes.  I ran into my former geology professor on my way back from one of the classes.  He recognized me, surprisingly, and since we were walking in the same direction I slowed to match his pace so we could talk.  I did have a legitimate question for him, as I wasn’t sure which class I needed to take to finish up my science requirement.  Turns out there were a couple options and he recommended the one that was essentially a semester of fossils and dinosaurs which sounds *lit*.  
+I’m also getting to know some of the professors that aren’t teaching any of my classes.  I ran into my former geology professor on my way back from one of the classes.  He recognized me, surprisingly, and since we were walking in the same direction I slowed to match his pace so we could talk.  I did have a legitimate question for him, as I wasn’t sure which class I needed to take to finish up my science requirement.  Turns out there were a couple options and he recommended the one that was essentially a semester of fossils and dinosaurs which sounds *lit*.
 
 Then I asked him about the field trip.  I was still unnerved by it, I said.
 
@@ -36,7 +36,7 @@ I floundered for a moment before finally deciding to just go for it.  Sort of.  
 
 But it did care.  Very much so.  That’s the nature of kelpies.
 
-And now it was dead, its body dragged away into the water by a creature I inadvertently helped create. 
+And now it was dead, its body dragged away into the water by a creature I inadvertently helped create.
 
 “-nevermind the other professors help perpetuate it,” he sighed.  I shook myself, realizing he was still talking.  “It’s a damn shame they give into the students like that, canceling class and all when it rains.”
 
@@ -78,7 +78,7 @@ They talked briefly and then one of them got up.  He walked past me and out the 
 
 I hadn’t seen the possum leave.  But perhaps that was its trick?  I hesitated, torn between staying here and making sure it wasn’t still lurking at the table somehow - or chasing after the other student.  It was only when the man at the table opened his laptop up did I decide that he was in no further danger.  I grabbed my own belongings and bolted out the door.
 
-I glanced wildly up and down the sidewalk, searching for the other student.  Nothing.  He couldn’t have gotten *that* far and there weren’t many convenient alleyways to duck into on this campus.  
+I glanced wildly up and down the sidewalk, searching for the other student.  Nothing.  He couldn’t have gotten *that* far and there weren’t many convenient alleyways to duck into on this campus.
 
 Unless he was behind the building.
 
@@ -94,7 +94,7 @@ That’s all it took.  One step to break through the fear and then the dam colla
 
 He turned at the last second.  I saw his face, blood-streaked, his mouths still chewing and a thin sliver of meat dangling from one cheek.
 
-I stabbed him with the pencil.  It went into his shoulder.  
+I stabbed him with the pencil.  It went into his shoulder.
 
 That was all that happened.  For a moment, we stood there face-to-face, he staring up at me, me staring down in anticipation and mounting horror as the seconds ticked by and nothing happened.  Then his gaze shifted to the pencil and he lifted a bloody hand to gently pull the tip out of his shoulder.
 
@@ -161,6 +161,8 @@ But wasn’t that how it was at the campground?  I just didn’t see the worst o
 It must have worked though, because then she offered me a job.
 
 I said yes.  If nothing else, it’ll be a way to see if the possum returns… or if the eyeball beast takes him out.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/xgc73c/how_to_survive_college_im_sure_i_can_graduate/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
