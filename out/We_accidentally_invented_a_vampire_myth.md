@@ -1,4 +1,4 @@
-A few years back I got a text in the middle of the night. I was a high school senior, and my parents had pretty much given up on keeping me in check. As long as no one was getting hurt they could focus all their attention on my three younger sisters. So there was little to keep me from sneaking out to see what the fuzz was about.
+A few years back I got a text in the middle of the night. I was a high school senior, and my parents had pretty much given up on keeping me in check. As long as no one was getting hurt they could focus all their attention on my three younger sisters. So there was little to keep me from sneaking out to see what the fuss was about.
 
 I met my friends down by the path leading to Frog Lake. There were six of us, lead by Brandon and his devotee, Vicky. They were all gathered in a little group along the path, and it wasn’t until I stepped up that I could see why.
 
