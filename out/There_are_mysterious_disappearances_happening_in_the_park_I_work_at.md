@@ -23,7 +23,7 @@ Anyways, that's enough banter, onto the actual story. Eric was finishing up for 
 
 I go outside, and lock up the gates to the entrance of the fire tower. 
 
-I hear a loud, ear shattering screech. I sounded as if a car tyre was rubbing against tar. I dash to the camera feed. Nothing, just a few campers, the occasional night-time hikers. Nothing out of the ordinary.
+I hear a loud, ear shattering screech. It sounded as if a car tyre was rubbing against tar. I dash to the camera feed. Nothing, just a few campers, the occasional night-time hikers. Nothing out of the ordinary.
 
 Suddenly, static from the radio.
 
@@ -47,7 +47,7 @@ Suddenly, static from the radio.
 
 I look over at the cameras.
 
-"Yes. I see you. I need you to walk over continue forward. Over"
+"Yes. I see you. I need you to walk over the hill, next to the cave, and continue forward. Over"
 
 "Alright."
 
