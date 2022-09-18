@@ -69,7 +69,7 @@ She must have been so scared. If my stupid brother's girlfriend didn't act like 
 
 
 
-If my stupid brother wasn't so drunk in the backseat of my car, vomiting with every bit of anything that was in him all over my cloth seats, he could have helped me find her. 
+If my stupid brother wasn't so drunk in the backseat of my car, vomiting every bit of anything that was in him all over my cloth seats, he could have helped me find her. 
 
 
 
