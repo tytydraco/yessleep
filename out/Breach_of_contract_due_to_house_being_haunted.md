@@ -260,7 +260,7 @@ The defendant in the nice suit seemed to positively swagger across the courtroom
 
 Well, roared may be an anemic word for what emitted from the mouth of the defendant. All of the lights in the room turned off, windows shattered, and wind started to gust into the room.
 
-As soon as the roar began to dissipate, the doors at the rear of the room SMASHED open and a double line of priests filed into the courtroom, eyes locked on whatever it was that sat down. The priest who was initially sitting behind the plaintiff grabbed him and pushed him to the rear of the room, and with speed an agility one would expect from a man half his age, grabbed both of the lawyers and began to drag them away from the stand.
+As soon as the roar began to dissipate, the doors at the rear of the room SMASHED open and a double line of priests filed into the courtroom, eyes locked on whatever it was that sat down. The priest who was initially sitting behind the plaintiff grabbed him and pushed him to the rear of the room, and with speed and agility one would expect from a man half his age, grabbed both of the lawyers and began to drag them away from the stand.
 
 The judge, being not stupid at all only froze in panic for just a moment and then did as she was instructed and grabbed the bailiff and went in the same direction the priest was pulling people.
 
