@@ -76,7 +76,7 @@
 "Gooood."
 
 
-There was an airy, awkward silence between us.
+There was an airy, awkward silence.
 
 
 "These so-called "aliens" that you speak and hear of in movies and books, are actually...*human souls."* I thought he may have responded here, but he didn't. I continued, "My employers are the ones in control. The aliens people *claim* to have seen, are actually just the outer-skins we use to trap the souls before they leave this world."
