@@ -48,7 +48,8 @@ In the seventh time crossing the same particular area, this time at the northern
 
 He tried peering down the mysterious puddle, but not even the bleak moon dared to shine upon the abyss that the puddle had become.
 
-But, no matter how impregnable the dark, there was something we could see clearly.One bulbous, bloodshot eye.
+But, no matter how impregnable the dark, there was something we could see clearly.  
+One bulbous, bloodshot eye.
 
 'What the fuck?'
 
