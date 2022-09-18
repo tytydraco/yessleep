@@ -1,6 +1,6 @@
-Where I come from, we don't believe in ghosts or spirits. We have our own frightening creatures. We call them "Jinns." In my culture, they are said to have houses, families, and communities, just like humans. Some of them are good and some are evil. But the most frightening thing about them is that… they live among us, but we cannot see them. They basically mind their own business and don't bother us unless we cause them harm or disrupt their lives. 
+Where I come from, we don't believe in ghosts or spirits. We have our own frightening creatures. We call them "Jinns." In my culture, they are said to have houses, families, and communities, just like humans. Some of them are good and some are evil. But the most frightening thing about them is that… they live among us, but we cannot see them and they can’t see us. And as long as they can’t see us we are safe. Otherwise, they have the ability to harm us or even do much worse.
 
-When I was a kid, I honestly believed everything people said about Jinns. But as I grew older, I began to doubt the existence of those mythical creatures. For me, it became a nonsense stories made up by ancient and ignorant people to scare children. So I just stopped believing in Jinns and never paid much attention to Jinn's stories. As a 45 years old man, I consider myself a logical and practical person. I believe only what I see. Or so I thought, until last week.
+As a 45 years old man, I consider myself a logical and practical person. But when I was a kid, I believed everything people said about Jinns. But as I grew older, I began to doubt the existence of those mythical creatures. For me, it was just a creepy stories made up by ancient and ignorant people to scare children. So I just stopped believing in Jinns and never paid much attention to Jinn's stories. I believe only what I see. Or so I thought, until last week.
 
 I work as a taxi driver and prefer to work the night shift because it is cooler in the evenings and at night in my country. But also because night drives cost twice as much as day drives and because the drunk people I occasionally drive tip me generously.
 
@@ -14,9 +14,7 @@ I stopped alongside the woman and leaned over to the side of the passenger seat 
 
 "Which side of the city center?" I asked her while scanning her from head to toe.
 
-It is a very important skill in my profession to be able to profile the people we drive. This is how we identify thieves and criminals. My coworkers always make fun of me and refer to me as "Eagle Eyes." If there was one thing I was most proud of in my 20 years as a taxi driver, it was that I had never been robbed. The woman was rather old, maybe in her late fifties. She was dressed in a long-sleeved dress in white or beige, it was difficult to tell due to the dim light from the street lamp.
-
-She had no distinguishing features and was holding nothing. I'm used to driving prostitutes in the middle of the night. I immediately recognize them, with their obvious getups and feeble attempts to seduce any potential client. But this woman did not appear to be a prostitute. 
+It is a very important skill in my profession to be able to profile the people we drive. This is how we identify thieves and criminals. My coworkers always make fun of me and refer to me as "Eagle Eyes." If there was one thing I was most proud of in my 20 years as a taxi driver, it was that I had never been robbed. The woman was rather old, maybe in her late fifties. She had no distinguishing features and was holding nothing in her hands. She was dressed in a long-sleeved dress in white or beige, it was difficult to tell due to the dim light from the street lamp.
 
 "The Rialto Cinema, in front of the kiosk," the woman said. 
 
@@ -34,7 +32,7 @@ And, as if the floodgates had just opened, I began telling her about my marital 
 
 This strange question took me by surprise. I never considered suicide seriously. For a few seconds, I was lost in this strange thought when I noticed two silhouettes waving at me to stop a little further ahead on the deserted road. One of the men was tall, while the other was short and skinny. I got closer to them without even realizing it, most likely due to a taxi driver's automatic reflex. I was about to stop when I remembered I had a passenger in my taxi.
 
-In my country, we are allowed to pick up up to three passengers, but I never pick up a man when I have a female client in my taxi. I then changed my mind and waved at the two men to apologize, and I continued on my way. I was completely absorbed in this strange conversation with the woman when I noticed we had arrived in front of the Rialto Cinema Kiosk. I came to a complete stop and checked the rearview mirror to inform the woman that she had arrived at her destination.
+In my country, we are allowed to pick up up to three passengers, but I never pick up a man when I have a female client in my taxi. I then changed my mind and waved at the two men to apologize, and I continued on my way. I was completely absorbed in this strange conversation with the woman when I noticed we had arrived in front of the movie theater’s kiosk. I came to a complete stop and checked the rearview mirror to inform the woman that she had arrived at her destination.
 
 She wasn’t there!
 
@@ -82,7 +80,7 @@ I raised my head and reached for a cigarette. But my hand was trembling so badly
 
 "Sure, you're right," I responded. 
 
-After I finished my cigarette, I decided to leave my taxi where it was and walk home. I never worked the nightshift again after that night's adventure, and I never smoked weed again.
+After I finished my cigarette, I decided to leave my taxi where it was and walk home. 
 
 My story quickly spread throughout the taxi driver community. We laughed and made countless jokes about it. Some have even labeled their joints "Eagle Eyes quality." 
 
@@ -104,7 +102,7 @@ The man took a newspaper from his jacket pocket and placed it in front of me.
 
 "Take a look at this!" He then showed me an article from the newspaper's front page. The article was about the arrest of two criminals who wreaked havoc in isolated suburbia over the summer. The killers apprehended their victims late at night, posing as in need of help, robbed them of their belongings, and murdered them with machetes. They dumped their victims in pits away from the road and covered them in dirt. 
 
-I wasn't a fan of crime or police cases, so I politely inquired of the man: 
+I politely inquired of the man: 
 
 "I'm not sure why you're showing this to me." 
 
@@ -112,8 +110,10 @@ The security guard tapped the bottom of the page with his index finger.
 
 In the spot where the man tapped, it said: " The killers confessed that all of the victims apprehended were attacked on the same spot, with no chance of escape. With the exception of one taxi driver who was about to stop in front of them one night at the end of August. " 
 
-" That one was lucky. It was as if he had been stolen from us by some Jinn,"said one of the killers to the police. 
+" That one was lucky. It was as if a Jinn had been stolen him from us,"said one of the killers to the police. 
 
 A photograph showed them being driven back to a police vehicle. One was tall, while the other was very short and skinny. 
 
-My heart dropped into my stomach.
+My heart sank into my stomach. I'm doomed. 
+
+When I looked up, the security guard gave me a concerned look, because we both know. *If you can see a Jinn, they can see you too.*
