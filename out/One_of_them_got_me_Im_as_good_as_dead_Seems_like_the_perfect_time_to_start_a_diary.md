@@ -184,7 +184,7 @@ If none of this had happened, I think my sister would have eventually gone into 
 
 *
 
-I’ve decided that here’s not the place. I'll hit *Submit* on this diary and then I’m going to do it in those woods I wrote about. I’ll be able to find a nice spot there to sit and look at the trees, some place that's calm and peaceful. I’m going to leave the picture of Guitar Girl in this cellar, she belongs in this house. The tree leaves will remind me of my sister more than any photo ever could anyway.
+I’ve decided that here’s not the place. I'll hit *Submit* and then I’m going to do it in those woods I wrote about; consider this diary as my Note. I’ll be able to find a nice spot to sit and look at the trees, some place that's calm and peaceful. I’m going to leave the picture of Guitar Girl in this cellar, she belongs in this house. The tree leaves will remind me of my sister more than any photo ever could anyway.
 
 I guess all that’s left to say is thank you for listening.
 
