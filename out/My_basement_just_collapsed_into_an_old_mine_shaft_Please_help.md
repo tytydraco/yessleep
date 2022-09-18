@@ -105,3 +105,5 @@ I mean, the safest and smartest thing would be to not go back at all.
 But I can’t just leave my engagement ring and wedding ring there. They’re right at the bottom of the steps. It would be easy to just go down and grab them without even getting too close to the mine at all.
 
 What should I do?
+
+[Update](https://www.reddit.com/r/nosleep/comments/xhbo1z/my_basement_just_collapsed_into_an_old_mine_shaft/)
