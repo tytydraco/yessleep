@@ -1,5 +1,3 @@
-*Everything in the story is fictitious*
-
 Hi, I'm David, I couldn't believe what I saw that night. Let me tell you about that.
 
 I had to work overtime that day, so I got home very late, by the time I got to the door, it was already 12 o'clock at night. I found the key and tried to open the door, when I heard a crash coming from inside the house. I rushed over. But some force forced me to turn around. Behind me, right at the street lamp pole, there was a rather thin man, with a red shirt covering his face, this man's back seemed to be hunched, in his hand he was holding a stone, which What I noticed most was his hand, it was covered with a red thing that looked like blood. He threw the rock up but he missed the shot, now what I said I couldn't believe my eyes arrived.
@@ -23,5 +21,3 @@ We ate until late at night. John and I don't know how to drink wine or beer so w
 Still the same figure, still the same shirt. The man still had the stone in his hand, and now John saw it too. He threw the rock up but this time he caught it. Suddenly, there was a 'bang' on the roof, and both of us reflexively turned our faces upwards. I looked back to the front, the man had disappeared without notice. I no longer thought about anything, went out to check and immediately drove home.
 
 After that event, John and I lived peacefully. We will never forget that night, it was so creepy. But when we tell it, we always laugh a lot.
-
-*Use google translate to translate from Vietnamese to English*
