@@ -48,8 +48,7 @@ In the seventh time crossing the same particular area, this time at the northern
 
 He tried peering down the mysterious puddle, but not even the bleak moon dared to shine upon the abyss that the puddle had become.
 
-But, no matter how impregnable the dark, there was something we could see clearly.  
-One bulbous, bloodshot eye.
+But, no matter how impregnable the dark, there was something we could see clearly.One bulbous, bloodshot eye.
 
 'What the fuck?'
 
@@ -97,7 +96,7 @@ Never looking back, Ven weaved through each obstacle with great difficulty yet r
 
 What most likely kept him going, though, were the horrible sounds that threatened to catch him from behind.
 
-Hastily crossing the forest, a bruise built up for every mistake Ven had made.The trees around him slowly got fewer in quantity and smaller in size, but in a moment so close to victory, the urge to give up was just as close to winning too.
+Hastily crossing the forest, a bruise built up for every mistake Ven had made. The trees around him slowly got fewer in quantity and smaller in size, but in a moment so close to victory, the urge to give up was just as close to winning too.
 
 Finally, in the distance, I saw the end of the forest nearing.
 
