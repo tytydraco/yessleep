@@ -390,7 +390,7 @@ I pumped my legs, subconsciously gripping at the smooth stump of my arm with my 
 
 I knew it was too late. 
 - - -
-The police arrived quickly that day, but they didn’t find anything. 
+The police arrived quickly, but they didn’t find anything. 
 
 No bodies. Not Tammy, not my brother. And they didn’t find an otherworldly creature that looked like the Easter Bunny. They knew that *something* strange had happened that day. My missing friend, missing brother, and missing arm were proof of that. But the story just didn’t add up. 
 
@@ -403,7 +403,7 @@ I spent a long time in an institution. No one believed my story. Why would they?
 The picture I’d  taken that day of Kyle didn’t show an Easter display or a costumed man. It just showed my brother posing awkwardly in the middle of the dilapidated and desolate interior of an abandoned mall. Every picture was like that. 
 Showing storefronts and tiled floors that were much more run down and ruined than they had actually looked in the moment. 
 
-We’d gone somewhere that we shouldn’t have that day - and something was waiting to greet us when we arrived. 
+We’d gone somewhere that we shouldn’t have - and something was waiting to greet us when we arrived. 
 
 No amount of drugs or doctors or anything could divorce me from the reality of what had happened. My missing arm was proof enough. 
 

@@ -241,7 +241,7 @@ Not to mention, another question driving me crazy: Why were the town protecting 
 
 The man, or at least the outline of him, faded—as well as the stink of sour milk.
 
-I was back in reality standing in front of my psycho teacher’s house after his victim just told me had murdered six teenager’s in the 90’s and had kidnapped three of my classmates who were no doubt going to have the same fate. I wanted to turn and run, but before I could, the gate swung open. The speaker crackled, my teacher’s voice coming through. “Cassandra Samuels?” Even his voice was tainted with the stink of rot and mould. “What brings you here? This is quite the surprise. I was actually just about to attend a dinner date.”
+I was back in reality standing in front of my psycho teacher’s house after his victim just told me had murdered three teenager’s in the 90’s and had kidnapped three of my classmates who were no doubt going to have the same fate. I wanted to turn and run, but before I could, the gate swung open. The speaker crackled, my teacher’s voice coming through. “Cassandra Samuels?” Even his voice was tainted with the stink of rot and mould. “What brings you here? This is quite the surprise. I was actually just about to attend a dinner date.”
 
 I managed to find my voice. “I need help.” I said, panicking. “With The Crucible. I don’t understand it.”
 
@@ -281,9 +281,7 @@ I risked using my voice in a whisper, scanning the room.
 
 “Hello?” I hissed, “Is anyone down here?”
 
-I nearly jumped out of my skin when the structure next to me, the blue one, flashed suddenly. It hummed, like it was powering up. I’d triggered it somehow. Voice activation, maybe? I Ignored it and kept searching. There were empty boxes at the back of the room, as well as door which looked like it led into an old bathroom. 
-
-I was twisting the handle when the humming grew louder, and I could have sworn it sounded like a groan mixed with a yawn. “Cassandra?” The voice sent me twisting back around, my gaze going to the structure which was now powered on. 
+I nearly jumped out of my skin when the structure next to me, the blue one, flashed suddenly. It hummed, like it was powering up. I’d triggered it somehow. Voice activation, maybe? I Ignored it and kept searching. There were empty boxes at the back of the room, as well as a door which looked like it led into an old bathroom. I was twisting the handle when the humming grew louder, and I could have sworn it sounded like a groan mixed with a yawn. “Cassandra?” The voice sent me twisting back around, my gaze going to the structure which was now powered on. 
 
 “Oh, thank god.” Kai was talking, his cry filling up the room. But I couldn’t see him anywhere. “You need to help us.” He hissed. For some reason I couldn’t stop staring at the blue machine. It seemed to be flashing in sync with what he was saying. “Mr Asher went fucking crazy and knocked me out! I don’t know what he’s done to me, but I woke up here. I can’t fucking move, man. I think he’s drugged me or something—”
 
@@ -293,7 +291,7 @@ I was twisting the handle when the humming grew louder, and I could have sworn i
 
 My brain was suddenly in full control of my body. I took a step forwards, and then another and another until I was resting the palm of my hand on the thing’s metallic shell which hummed in response. “Hey, no touchy! Get me out of here! God, man, he’s done something fucked up to me. Does he have me like, tied down or something? I can’t feel my legs or arms.”
 
-I don’t think I words can describe what I felt at that moment.
+I don’t think words can describe what I felt at that moment.
 
 What I felt when I searched the room further—when I pulled open the mysterious door and found a toilet leaking bright red, and what my teacher had tried to stuff down it. I was screaming, and I couldn't stop myself. I didn’t care that I could get caught, that I might freak Kai out. 
 
@@ -307,7 +305,7 @@ The teacher’s voice rang in my head.
 
 Looking at shiny metal structure in front of me, I came to the realisation that Kai was the pilot.
 
-He was the pilot, I thought, thinking about what was stuffed down the toilet in, what spattered the walls and floor. I only saw half a torso and slimy pink and red before I’d backed out of there and heaved up everything in my gut. I couldn’t leave him—leave them. I didn’t look at the metal thing with Kai’s voice. I looked at the old wooden door hiding his remains which our teacher had failed to hide. “Kai.” I spoke softly. Gently. So he wouldn’t freak out. “I’m going to get all of you help. Okay?”
+He was the pilot, I thought, thinking about what was stuffed down the toilet--what spattered the walls and floor. I only saw half a torso and slimy pink and red before I’d backed out of there and heaved up everything in my gut. I couldn’t leave him—leave them. I didn’t look at the metal thing with Kai’s voice. I looked at the old wooden door hiding his remains which our teacher had failed to hide. “Kai.” I spoke softly. Gently. So he wouldn’t freak out. “I’m going to get all of you help. Okay?”
 
 “What?” His tone grew frightened. “No. No, Cassie don’t leave me here! I can’t… I can’t move.”
 

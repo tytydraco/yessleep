@@ -22,4 +22,4 @@ I didn't tell anyone about what happened to me. I didn't think anyone would beli
 
 A few years later, my cousin and I were snooping around in a closet upstairs. We found this old 1800's style photograph. In the photograph was a man. On the back of the photograph was hand written Mr. Sellers.
 
-Since this house was owned by my Grandmother, and it was right across the street, I spent a lot of time there. This wasn't the only paranormal thing to happen there, but it was the first paranormal experience to happen to me. And it was the inspiration for me to start Brave the Basement.
+Since this house was owned by my Grandmother, and it was right across the street, I spent a lot of time there. This wasn't the only paranormal thing to happen there, but it was the first paranormal experience to happen to me. And it was the inspiration for me to start [Brave the Basement](https://bravethebasement.weebly.com/)
