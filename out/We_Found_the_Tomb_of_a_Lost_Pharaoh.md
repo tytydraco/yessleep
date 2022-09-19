@@ -1,0 +1,27 @@
+Me and my archaeological team were surveying the Pyramids looking for lost tablets, scriptures or even Relics. When one of my men dug into a wall it collapsed into a hidden chamber. “Hey Boss, found something interesting.” I put down my pen (which was bleeding dry from the amount of paperwork I had to submit about our research) and made my way over to the opening in the wall, it was a small square empty room with walls depicting Hieroglyphs and a hole in the center of the wall on the other side.
+
+We got David our language translator to read what the glyphs were depicting. After about 2 hours of deciphering David said that the hieroglyphs depicted a series of events. On one wall it tells the story of a tyrannical pharaoh stealing wealth and women from the locals. The second wall depicted an uprising against the Pharaoh. The third depicts the pharaoh being entombed with words like forbidden and “to seal away.” The last wall depicted the people of Egypt burning records of his regime and banishing his name. 
+
+This was without a doubt the archaeological discover of the decade. A pharaoh whose rule had been lost the passages of time and we were going to be the first ones to discover its secrets. All we had to do was find where this hidden chamber was. We had to find whatever went into the empty hole in the center of the wall, we spent the next month searching the pyramid for any kind of clue or key all the while speculating what was in the forgotten tomb. Some men said gold, others said it was cursed and we should leave it be.
+
+  
+
+Looking back, I wish I had listened to them.
+
+&#x200B;
+
+One of our men said that they found something in an urn sealed away in a coffin. A bright red ruby. I took it over to the opening in the wall and it happen to be the perfect fit, there was the sound of settling as the gem nestled into its hole. Then beneath our feet the floor collapsed. The fall wounded two men and I had a sprained ankle. “Are you alright?!” David asks from the other room on the surface. “We have no fatalities to report, grab a ladder.” I turned on my flashlight and found myself in a large cave system that seemed to run under the desert.
+
+As soon as my men got medical attention, we would begin our investigation into the tomb of the unknown Pharaoh. That sense of wide-eyed wonderment would be the last hope I feel for perhaps the rest of my life. a week had past, and we had been digging into the cave systems tirelessly. There was a commotion, Abdul one of the diggers, went raving mad. He was screaming like he was terrified. I got up to check out the commotion and when I got to the further side of the cavern everyone was restraining him, but he flailed and yelled. “ITS COMING, ITS COMING FOR US!” he was sent back to the surface for psychiatric care. 
+
+After that a lot of men were having seconds thoughts. By now we had gotten the grants to hire a few more extra hands though it didn’t matter because more resigned going on about nightmares and seeing shadows out the corner of their eyes. even some who reported being watched. Finally, there was cheering as one of our explosive experts was able to breach the rubble of a collapse and find on the other side the tomb of the nameless king. 
+
+We all rushed to see it, but as though there was an invisible barrier nobody crosses into the room. It was like the reality of having to take the first step into the unknown was too much. One man faced his fear and went to open the coffin on the other side, the others joined him in removing the lid to the coffin that we were sure was full of gold, scriptures or even a body. The coffin was empty.
+
+Empty of everything except one stone mask. Painted white with a blank expression on its face and the eyelids closed. “What is this?” one man asks, while the others were disappointed there was no treasure. I was disappointed myself; this wasn’t anything special, well be lucky to get funding's for our expedition after this let alone an award. Suddenly the man drops the mask and yells like he just burnt his hands on a pan.
+
+Dust and shadow then gathered around the mask, lifting it from the ground until a single entity stood before me and the crew. It towered like smoke had long skeletal like arms that dripped with ooze and a stone mask to act as a face. It picked up one of my workers and began to siphon the energy from him and the man went limp before his husk was tossed to the side. We all ran wailing through those twisted caverns. The only thing that stood between me and this monster were the people slower than me. 
+
+I was the only one who made it out of those caverns and when I got back to the main pyramid. I ordered the immediate evacuation of the pyramid and looked back at the hidden room to see dark, shadowy tendrils ascending from the depths. We ran taking nothing with us as the shadows flooded the corridors of the pyramid. When we got out into the desert we wanted to collapse from exhaustion. I rolled on my back and looked up at the night sky to see that there were more stars than usual, and all of different colors and hues. The ground shook and we finished running to our vehicles and called for immediate extraction.
+
+I don’t know what Horror we unleashed upon the world, the government terminated the project, and I have no way of going back to see what happened to that place or surrounding areas. All I know is that the world must now suffer the curse of the nameless pharaoh.
