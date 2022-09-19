@@ -1,0 +1,27 @@
+ 
+
+This is a recounting of events from my childhood. I know this is a bit of a cliche, but if you don’t believe me, I understand, I wouldn’t believe this story either. 
+
+I was in sixth grade the first time it happened. Nothing was weird about the day, nothing that could prepare me for what would happen.
+
+That night, I was lying in my bed, trying to go to sleep, when I noticed a bright light shining from under the door of my closet. The light shone many different colors, from an emerald green to a dark gray and finally settling on a deep blood-red. I watched curiously, since the light in my closet was normally a bright white, and nobody had been in there all day. All of a sudden the lights shut off. Not just the closet light, that would be too simple. All of the lights in my room instantly shut off. The soft lamp I sleep with next to my bed, the lava lamp in the corner of my room, even my speaker playing it’s white noise shut off. It’s at this point I’ll say that it was about 3 am, and understandably scared shitless. What happened next was easily the worst thing that could’ve happened. In the pitch-black of my room, I heard the sound of my closet door creaking as it opened. The second that noise spoke out through the darkness, I couldn’t move, not only from the fear, but even if I wanted to, I was in a state of sleep paralysis. Nothing happened for several minutes, the only thing keeping the time being the red numbers on my alarm clock. The next thing that happened will be imprinted on my mind forever. I heard a scuttling like a thousand spiders crawling along the floor. The sound seemed to last for hours, giving me an extreme sense of anxiety along with the feeling of pure terror. The sound grew closer and closer to my bed, until it was right by my side. A voice sounded from the darkness after a time of silence. The voice sounded like the embodiment of all the possible sounds of grinding and all the voices of the damned in hell collectively shouting.
+
+“I am the culmination of humanity’s darkest fears, put into being by the writers who long for the darkness, I am the inspiration for the most disturbing of stories. I am, the Storyteller,
+
+You young child, are lucky enough to encounter me, only those who have a true connection to the darkness within themselves may be granted this chance. Now let the fun begin.”
+
+This entity, the storyteller, then opened a book they must’ve carried from my closet. As it opened, a bloodred light shone from the pages like it had from my closet, illuminating this monstrous creature. I have never felt as afraid as I did in that moment. The creature had the head of a man, but with all the features of a corpse. Rotting skin, sunken eyes, but he had long, skinny teeth, like those of a whale, but more plentiful. His body I could not see, but he had eight limbs, all human arms, that looked as if he had taken them off other’s bodies and sewn them onto his. As he finished looking through the pages, he began to read, looking up to me as he did.
+
+“You always knew to fear your closet door, and keep one eye open forevermore;
+
+Something is waiting for you to douse the light, it dances across your room at night;
+
+Hungry, it shambles towards your bed, you forget in that moment, the brave words your father said;
+
+Terror washes over you, more than any child should feel, and those sleepless night continue, making you an evermore delicious meal.“
+
+As he finished, he slowly closed the book, and I was thrust back into darkness. The scuttling resumed, and instead of heading back to the closet, it came closer to my bed. I felt a change in pressure on my bed sheets, and had the horrifying realization that it was climbing onto my bed. He moved his face closer to mine, until it was an inch away, and whispered to me in a soft tone, “Sleep well child, for these events shall soon come to pass.” With that, he backed up, climbing off of my bed. The scuttling noise continued back to my closet, and the door creaked shut.
+
+I was baffled, assuming it was all a dream. So I walked to my closet, and opened it, not sure what I would see. But nothing was there, just a normal closet. I decided that I was just tired, and that it was all a hallucination, and tried to go back to sleep. But I could not get that face out of my mind, with its sunken eyes and horrifying smile. As the sun came out, I lay in bed, unable to get even a wink of sleep. For the next few days, that sight would haunt me, always accompanied by the scuttling, the never ending scuttling. But as all things, the memory started to fade from my mind, never comprehending the gravity of the situation.
+
+About a month after the night, I saw something on the news, and it all came rushing back. In the next state over, there was a small child found dead by his parents. The local police were extremely confused, for the child had been bitten in half, but the teeth marks matched no bite marks that exist on earth. There was a blood trail that led from the bed to the closet, and the trail went up the wall, and ended in what was one of the most disturbing images imaginable. There was a pool of blood on the wall, as if gravity did not apply to it, and there were handprints, eight of them, in a circle around the pool. In writing above it all was a message that said, “Ready or not child, I draw closer.”
