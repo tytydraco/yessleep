@@ -1,0 +1,35 @@
+I never thought that anything like this would ever happen to me. I thought it was all fiction, just something a bored teenager came up with. But now I know it's very real and they are coming.
+
+The talk of S.C.P's I have heard as a high school teacher. These unknown beings the government keeps locked under their constant supervision didn't seem real. Just things that kids tell one another to scare each other. Conspiracy theories. Nothing more than that. But this is my warning to you all, they are real, and they are dangerous. Please hear me out, I do not have much time left, and I don't know what will happen next.
+
+My wife and I decided it was time to get all new furniture, we finally got our german shepherd housebroken, and she destroyed many of our items. We expected this to happen, so we began saving up for new furniture when she finally learned how to behave inside. My wife works a government job, not sure where, but she gets called into work a lot. I am a high school biology teacher, and we make okay money, but this new endeavor was big for us. We originally planned on ordering everything online and having it shipped to us, but the shipping prices were way out of line. So since my schedule is more stable, we decided to order our items for pickup, and I would retrieve them.
+
+A week after we ordered the items, I got a notification on my phone that my items had arrived and were ready for pickup. I had just gotten home from work, so I walked the dog, fed her, and drove to Ikea. The drive itself was about 40 minutes, but off the bat, something was wrong. The Ikea I drove to was located in a very random spot, not in a shopping district like I had expected. It was in the middle of a field. I just figured that maybe it was an older store, and it was more difficult to change locations. The parking lot was almost empty, except for a few cars at the front, which I thought were the cars for the employees at the time.
+
+Once inside the store, it was very eerie. It looked like an Ikea is supposed to look, except the lights were a little dimmer than most stores. I was fine with this, but what bothered me most was how empty the store was. The complete absence of people gave me the chills. The air felt dry, and I felt like I was choking. Something was filling the air and made it so hard to breathe. I wanted to leave, but I knew I only had so much time to grab my items, and my wife would have my head if she found out I didn't get our stuff. So I tried to find the customer service desk as fast as possible, and it was at the entrance. I was excited that this would only take a little bit. I was walking toward the desk when an employee popped up out of nowhere. 
+
+"I am sorry, sir. You are going the wrong way. Please follow the path." She looked like a normal employee with a yellow shirt and blue jeans. Except there was something very wrong with her. Her eyes didn't blink normally. One would blink, but the other would stay open. She also had this very large and eerie smile across her face. Then her talking was the scariest thing I had ever seen. If you have ever watched a video and the audio is not perfectly synched with the visual on the screen. Or when you lipsynch a song, you don't know, and you just make mouth movements that are nothing like the words you hear. That is how she spoke. She stared me down with that smile while pointing to an obvious pathway in the opposite direction I wanted to go. After a few seconds, I finally mustered up the courage to speak to her. My mouth was dry with anxiety.
+
+"Ma'am, I need to get to customer service. I'm just here to pick up my online order." I was shaking at this point as there was no sign that she understood what I said. Her eyes were blank and emotionless. But that smile stayed strong on her face. After a few seconds, she "spoke" again.
+
+"Follow the path sir. You will arrive where you need shortly." with that, she turned around and walked, more like shuffled, away. I was too scared to try again, so I followed the path. The store seemed normal; items were placed as they usually are in Ikeas. I wandered for what felt like half an hour. At that point, I was frustrated and wanted to return to the front and get my shit. That's when I saw another worker shuffling about the aisles. He seemed to be looking at the merchandise, but he was slightly slumped and had that wide-faced grin. We locked eyes for a second, and that was all I needed to keep me going on the path. 
+
+I became hyperaware of my surroundings at this point and noticed employees placed in peculiar spots. But I realized that they were everywhere, and nowhere I went, I could get away from them. They all behaved the same, with dark emotionless eyes and huge face-splitting smiles. When I passed one, they stopped whatever they were doing and stared me down until I walked past.
+
+I don't know how long I was wandering through this store, and it felt like it could go on forever. I felt my phone buzz in my back pocket. So I stopped and grabbed it. I looked at the screen, and there was something wrong. My background, originally a picture of my wife sleeping, was now a black screen. There was no date or time. The only thing on my screen was a message from an unknown number. 
+
+"Please keep following the path :)"
+
+The already dry air felt like it had dropped ten degrees; I saw another worker standing before me. I didn't know they could get scarier, but this one was the worst I had seen. She had the face of a young girl, those emotionless blank eyes, that smile. Except.
+
+She looked 10 feet tall; her torso and neck were elongated to the point where it was humanly impossible. Her arms dragging on the ground. She had her back to me at first, but she had now twisted her neck around and stared at me. 
+
+I was frozen. I couldn't move, breathe, or even think.  I wanted to run, but my body would not move. That's when she let out an inhuman screech. I covered my ears and tried to run, but as soon as I turned, there was a swarm of employees blocking me. They all had something wrong with their body. Too tall, short, different arm or leg length. It was truly something out of a horror movie. 
+
+They did nothing, just stared at me with that smile; that's when the tall one bent her neck over me and into my face. 
+
+"Continue following the path." With that, she returned to her position and watched me. I did as told. I turned back around and continued on my way. 
+
+I don't know how long it's been. It feels like I have been walking for hours. My phone is still bugging out, but I managed to find a computer somehow, which is how I am typing this. There is a skylight on the ceiling, and it looks like the sun is beginning to set. The employees are acting weird again. They are not shuffling around. They are running around the store. I made a little hut from some tables and chairs, but I don't think that I am going to survive the night. I wish I was home with my wife and dog, but I do not think that anyone will ever find me. So please, take my story as a word of warning. 
+
+Do not follow the path in Ikea.
