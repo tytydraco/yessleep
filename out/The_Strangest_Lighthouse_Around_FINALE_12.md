@@ -1,4 +1,4 @@
- Part 4: [https://www.reddit.com/r/nosleep/comments/tqoga2/the\_strangest\_lighthouse\_around\_part\_4/](https://www.reddit.com/r/nosleep/comments/tqoga2/the_strangest_lighthouse_around_part_4/)
+Part 4: [https://www.reddit.com/r/nosleep/comments/tqoga2/the\_strangest\_lighthouse\_around\_part\_4/](https://www.reddit.com/r/nosleep/comments/tqoga2/the_strangest_lighthouse_around_part_4/)
 
 Part 5: [https://www.reddit.com/r/nosleep/comments/uh9jz7/the\_strangest\_lighthouse\_around\_part\_5/](https://www.reddit.com/r/nosleep/comments/uh9jz7/the_strangest_lighthouse_around_part_5/)
 
@@ -76,7 +76,7 @@ It was only when I heard the engines of motorboats that my mind kicked back into
 
 I barely got my hands over the back of my neck before the explosion sounded. I only heard the first second or so of the explosion before everything went silent, and fluid began seeping from my ears. The air pressure hit me simultaneously, launching hot shards of steel and concrete straight into my skin. What followed shortly thereafter was a series of gusts of wind followed by more debris slicing me up.
 
-When the wind had settled, I slowly opened my eyes, first glancing to the now collapsed pile of rubble. I couldn’t believe it, the lighthouse was actually gone. I then glanced around Grizelda and I. There were a few large hunks of reinforced concrete sticking out of the ground. I’d been careless, but our luck saved us. 
+When the wind had settled, I slowly opened my eyes, first glancing to the now collapsed pile of rubble. I couldn’t believe it, the lighthouse was actually gone. I then glanced around Grizelda and I. There were a few large hunks of reinforced concrete sticking out of the ground. I’d been careless, but our luck saved us.
 
 That was when I felt myself being yanked to my feet. Metal wrapped around my wrists and I was spun around to see a man screaming at me. I just looked at him in confusion. The man grabbed my face, turning it to each side. He turned to a soldier on his left, still holding my face, and said something. Then, he sprayed something in my face, and I was out cold.
 
@@ -130,7 +130,7 @@ I stared him dead in the eye, my face reddening, “What the FUCK do you mean!?�
 
 “Well, quite simply, I was lyin to ya before. We’ll always have need for them lighthouses, I just… y’know what, nevermind. I’ve got everythin’ I need now. I sure as hell hope to never see you again.” Finishing, he stood, putting his glasses back on, and exiting the room, leaving me to fume in my ignorance.
 
-The next few days were a fog. Everything after the conversation was simply vague ideas of distant emotions, coupled with a few frames of either nightmares, or a horrifying reality. But when I eventually found myself fully conscious, nothing was familiar. 
+The next few days were a fog. Everything after the conversation was simply vague ideas of distant emotions, coupled with a few frames of either nightmares, or a horrifying reality. But when I eventually found myself fully conscious, nothing was familiar.
 
 The room was bland, a hard wood floor, white walls, a couple windows in the back of the room, metal bars covering them. Across from the windows laid a door, a big metal one, not unlike the ones in schools, there was even metal netting in the glass. Then, just beside my bed, there was a small desk with a notebook and rubber pen.
 
@@ -200,4 +200,4 @@ I quickly left the room, taking a glance around. Most people seemed to still be 
 
 &#x200B;
 
-Finale (2/2): Coming Soon!
+Finale (2/2): [https://www.reddit.com/r/nosleep/comments/xi3yc8/the\_strangest\_lighthouse\_around\_finale\_22/](https://www.reddit.com/r/nosleep/comments/xi3yc8/the_strangest_lighthouse_around_finale_22/)
