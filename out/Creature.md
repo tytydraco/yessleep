@@ -2,7 +2,7 @@ When I was sixteen, I had a part time job babysitting. I babysat mostly for fami
 
  Dave, a 38 year old single father of two girls, Blair, who was five, and Bella who was one. He traveled constantly for work, so I was with them all of the time. He asked if I would be willing to babysit overnight while he attended a business meeting three cities away. I agreed, as he always paid very well and I loved his girls
 
- I showed up at his place around five and by that point, they had already eaten, and were calmly watching television in the TV room, so, my teenage self figured it would be an easy night. When the sky was beginning to dark, sometime around 9:30, I got a text from my boyfriend Julian.
+ I showed up at his place around five and by that point, they had already eaten, and were calmly watching television in the TV room, so, my teenage self figured it would be an easy night. When the sky was beginning to darken, sometime around 9:30, I got a text from my boyfriend Julian.
 
  It just so happened that he was babysitting his little brother, Tommy, for the night only a few blocks away from Dave’s house. I quickly invited him over as Blair and Tommy were great friends and it could give us a chance to hang out alone while they played. 
 
@@ -22,9 +22,9 @@ We remained still, completely still. Since Julian was on top, he had a perfect v
 
  He immediately scrambled to his feet, not even bothering to fully dress himself beforehand. Once he was up, he practically dragged me off of the couch and forced me up as well.. “What the hell Julian?!” I shouted, but he wasn’t listening. 
 
-He turned on the light, temporarily blinding me for a second and frantically began pointing out the glass, patio doors. I spun around, expecting to see some ax-wielding killer, but there was nothing. Absolutely nothing. 
+He turned on the light, temporarily blinding me for a second and frantically began pointing out the glass, patio doors. I spun around, expecting to see some axe-wielding killer, but there was nothing. Absolutely nothing. 
 
-“There was someone out there!” he yelled, his face now directly against the glass, peering out. I let out a loud sigh. “Babe, you’re imagining it,” I said, my hands now frantically re-dressing myself. 
+“There was someone out there!” he yelled, his face now directly against the glass, peering out. I let out a loud sigh. “Babe, you’re imagining it.” I said, my hands frantically re-dressing myself. 
 
 Julian ran back over to me, his face red and sweaty, “What about that sound?” He asked, his eyes darting back and forth between me and the door, “I know you heard that too.” I let out another sigh. 
 
