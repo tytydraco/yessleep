@@ -1,4 +1,4 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/ws6uv0/were_investigating_the_disappearance_of_everyone/) [Part 2](https://www.reddit.com/r/nosleep/comments/wy4cu8/were_investigating_the_disappearance_of_everyone/) [Part 3](https://www.reddit.com/r/nosleep/comments/x4keoy/were_investigating_the_disappearance_of_everyone/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/ws6uv0/were_investigating_the_disappearance_of_everyone/) [Part 2](https://www.reddit.com/r/nosleep/comments/wy4cu8/were_investigating_the_disappearance_of_everyone/) [Part 3](https://www.reddit.com/r/nosleep/comments/x4keoy/were_investigating_the_disappearance_of_everyone/)
 
 &#x200B;
 
@@ -8,7 +8,7 @@ Man time flies.  Stores are already coming out with Halloween decorations. I wis
 
 &#x200B;
 
-Yeah, apparently, we were parked in a handicapped spot at the motel. With it being dark at the time and the paint faded, we didn’t have any reasonable way of knowing this. Despite bringing up these valid points, that son of a bitch cop still fined us. Whatever, if they want to send someone to our town to collect on it, they can be my fucking guest. Otherwise, we have way more important things concerning us. 
+Yeah, apparently, we were parked in a handicapped spot at the motel. With it being dark at the time and the paint faded, we didn’t have any reasonable way of knowing this. Despite bringing up these valid points, that son of a bitch cop still fined us. Whatever, if they want to send someone to our town to collect on it, they can be my fucking guest. Otherwise, we have way more important things concerning us.
 
 &#x200B;
 
@@ -44,7 +44,7 @@ My body needed time to process the caffeine so I was just barely operating beyon
 
 &#x200B;
 
-“Well, from what we saw,  it’s not like she had time to write a clear thought-out message,” Nick chimed in from the backseat. 
+“Well, from what we saw,  it’s not like she had time to write a clear thought-out message,” Nick chimed in from the backseat.
 
 &#x200B;
 
@@ -112,7 +112,7 @@ While it was, that didn’t mean it was in good condition.  Pulling up to it, th
 
 &#x200B;
 
-“Alice is going to have a heart attack when she sees this,” I said as we were surveying the damage. 
+“Alice is going to have a heart attack when she sees this,” I said as we were surveying the damage.
 
 &#x200B;
 
@@ -122,7 +122,7 @@ While it was, that didn’t mean it was in good condition.  Pulling up to it, th
 
 &#x200B;
 
-Searching for it was like trying to find a needle in a haystack. It took a while, but eventually, Nick spotted it sticking out from under the front desk. I figure it got knocked over there when I dropped it. 
+Searching for it was like trying to find a needle in a haystack. It took a while, but eventually, Nick spotted it sticking out from under the front desk. I figure it got knocked over there when I dropped it.
 
 &#x200B;
 
@@ -306,7 +306,7 @@ I looked at Stevenson.
 
 &#x200B;
 
-For someone who claimed to be a professional, he was acting pretty childish. 
+For someone who claimed to be a professional, he was acting pretty childish.
 
 &#x200B;
 
@@ -470,7 +470,7 @@ That was something else I could agree with. Honestly, I still can’t tell if ou
 
 &#x200B;
 
-We were on the edge of our seats now. I was thinking about what I’d be doing in his situation. 
+We were on the edge of our seats now. I was thinking about what I’d be doing in his situation.
 
 &#x200B;
 
@@ -594,10 +594,14 @@ Even though it took a while, we managed to locate it. Nick spotted its crystal r
 
 &#x200B;
 
-Truth be told, she didn’t even realize it was gone until much later. Now we have it. She was right. It does feel as if it’s alive somehow. However, contrary to what she told me, I didn’t want to drop it. The way it feels reminds me of holding my mom’s hand when I was little. I’m not sure how, but Stevenson thinks we should study it. 
+Truth be told, she didn’t even realize it was gone until much later. Now we have it. She was right. It does feel as if it’s alive somehow. However, contrary to what she told me, I didn’t want to drop it. The way it feels reminds me of holding my mom’s hand when I was little. I’m not sure how, but Stevenson thinks we should study it.
 
 &#x200B;
 
 &#x200B;
 
-We’ll be doing that sometime in the future. It may be able to help us against the card trees and that thing in the woods. One other thing I should mention before I end this post, we did find this weird tree that almost seemed to have been pulled apart and then collapsed back [together.](https://www.reddit.com/r/nosleep/comments/vvjyd5/a_cryptid_killed_my_exbest_friend_finale/) I’m getting the sense, we’re soon to be in for a lot more trouble. For now, though, I need to [rest.](https://www.reddit.com/r/StoriesFromRose/) Later, [everyone.](https://twitter.com/RoseBlack2222)
+We’ll be doing that sometime in the future. It may be able to help us against the card trees and that thing in the woods. One other thing I should mention before I end this post, we did find this weird tree that almost seemed to have been pulled apart and then collapsed back [together.](https://www.reddit.com/r/nosleep/comments/vvjyd5/a_cryptid_killed_my_exbest_friend_finale/) I’m getting the sense we’re soon to be in for a lot more trouble. For now, though, I need to [rest.](https://www.reddit.com/r/StoriesFromRose/) Later, [everyone.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/xi3da9/were\_investigating\_the\_disappearance\_of\_everyone/](https://www.reddit.com/r/nosleep/comments/xi3da9/were_investigating_the_disappearance_of_everyone/) (Weird skull)
