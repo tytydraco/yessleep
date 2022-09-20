@@ -1,3 +1,5 @@
+[Final Part](https://www.reddit.com/r/nosleep/comments/xjazpd/aiming_for_alice_final_part/)
+
 She left me…She really left me.
 
 I stared at the blank wall across from me as tears streamed down my face.
@@ -60,7 +62,7 @@ I looked over to see him holding a hand up to his head. “My head is killing me
 
 “Alex!” screamed Alice. “Don’t fall for it!”
 
-“What the fuck are you talking about?” yelled back Jeff. 
+“What the fuck are you talking about?” yelled back Jeff.
 
 She ignored him and kneeled down beside me, grabbing my jaw to return my focus to her. “You have to stay away from me, Alex,” she warned. “No matter what I say or how I act, do not come back.”
 
