@@ -790,7 +790,7 @@ For whatever reason, something clicked in my head, a memory.
 
 &#x200B;
 
-The ensuing explosion sent parts of its body shooting in all directions. The clearing smoke revealed something falling from the sky. The shapeshifter's smoldering head hit the ground, rolling, and came to a stop at my feet.
+The ensuing explosion sent parts of its body shooting in all directions. The clearing smoke revealed something falling from the sky and then the shapeshifter's smoldering head hit the ground, rolling, and came to a stop at my feet.
 
 &#x200B;
 
