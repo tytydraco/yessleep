@@ -13,7 +13,7 @@ I pull up unsure where to park, there's no driveway, cars are parked on grass an
 
 I get out to search for my brother, I call his phone again and again, straight to voicemail, typical. 
 
-I nearly trip over people having sex out in the grass, they remained unbothered. I awkwardly nod at random greetings I get from today people who swear they know me. 
+I nearly trip over people having sex out in the grass, they remained unbothered. I awkwardly nod at random greetings I get from tipsy people who swear they know me. 
 
 I scream my brother's name over the music in vain, no one can hear me and the one guy that responded was not even named Miguel. 
 
