@@ -1,0 +1,37 @@
+I honestly thought I had found the person I would spend the rest of my life with. I didn't hesitate when he proposed to me. I mean, we had known each other for six years. He was with me through the bad and the good. Everyone kept telling me I was young and we should wait longer. But we had been dating for two years. He truly made me happier than anyone else had. He seemed happy being with me as well.
+
+Maybe that's why I felt shocked when I found out he had been cheating on me. We had been married a little less than a year at this point. We were very open with each other. I knew all his passwords and he knew every complaint I had about life. So when I saw pictures of him kissing another woman on his phone, I was shocked. I didn't say anything for a week. I kept blaming myself, trying to figure out what I did wrong. The more I let time pass, the madder I got. I started noticing the days he stayed out late. I remembered when he forgot about our date and didn't come home until the next day. At some point, I got angry and silently asked for the name of the woman on his phone. His grip on me tightened as a heavy silence filled our room.
+
+"What do you mean?" I turned to face him, the bed slightly creaking as I moved.
+
+"I saw the pictures, Will. You could have at least erased them before you came home." At this point, I could feel my bottom lip shake as I smiled at him. His eyes were wet like he was about to cry.
+
+"Fin I-I'm so sorry. I didn't mean-it never meant to-"
+
+"I want you to leave my house now." I felt the tears run down my face as I tried to sit up. His grip on me was still tight but I managed to pry him off.
+
+"Fin, baby, please. It was a mistake."
+
+"How long?" He looked at me as if he were confused. I wiped my tears away and asked him again. "How long, Will?" He sighed and turned away from me.
+
+"Two months." I silently nodded before standing up. I grabbed a bag from the kitchen and started throwing his things in it. My mind was blank. I almost didn't register when he walked up to me and grabbed my wrist.
+
+"I told you I wouldn't forgive you if you cheated again." I knew that broke him. Not as much as I was breaking at that moment but at least I could hurt him back.
+
+That was the last time I had any physical interaction with him. He kept coming by my house for a week straight. I wanted to give in. I wanted to forgive him but this time was different. Instead of just sleeping with someone else, he was in a whole other relationship. A relationship he continued after I threw him out of the house we shared for two years. Just being in that house hurt me. We had so many memories there.
+
+So when my aunt called me saying she couldn't stay with my grandmother anymore, a part of me was really happy. My grandmother was getting really old. Doctors didn't trust her living alone and her husband had long passed. My aunt didn't like living alone so when we first found out, she agreed to move in with my grandma. I quickly told her I could take her place, no questions asked. I just knew I couldn't stay in the same house my ex-husband proposed to me. I couldn't stay in the same house I found out he betrayed me in. I packed as much as I could in a week. Told my uncle to throw away anything I left behind. Or sell it. At that point, I didn't care.
+
+The biggest perk to moving in with someone is not having to worry about the furniture or stocking up on food. What I didn't know was the day I moved in was the day my grandmother had guests over. I will admit that I hadn't visited in so long. I could come up with excuses and say I was busy with work and life. There's never an excuse. I could make time if I really wanted to. So I slowly brought my boxes into my new home as voices and music filled this tiny home. It made me smile feeling such a warm environment, especially everything that transpired not too long ago.
+
+My grandmother set a mug in front of me after everyone left. A small gesture that I greatly appreciated. She patted my hand softly before walking away, her own mug in hand. I watched her walk away before taking a sip of my coffee. I winced at how sweet it was. I didn't like drinking coffee before bed anyways but what a waste. I dumped it down the sink anyway, leaving everything clean.
+
+The house looked almost the same as when I grew up here. A few renovations and a new dining room were the most noticeable things as I walked down the hall. My room was the same one I used before. This room was nothing like I remembered. The old bookshelves filled with my grandfather's books were all gone. The tile was covered in carpet. Even the walls were painted over with a hideous yellow. I let out a deep sigh as I sank into the sofa that was left to me, my exhaustion quickly hitting me like a wave. I could have sworn I only closed my eyes for a second before I got startled. I looked up and saw a shadow pass my door. I got up and looked down the hall. I couldn't see anything but darkness.
+
+"Granny, is that you?" I waited for a few seconds, the silence was eerie as I held my breath. I grabbed my phone and torn on the flashlight, slowly making my way down the hall. It seemed longer in my panicked state. Nothing. I slowly swept the whole house and found no one wandering in the dark corners of this old home. Now at ease, I went back to my room and slept. It was a long night filled with me constantly waking up. From what, I have no idea.
+
+It didn't take long for me to get used to living here. Occasionally I broke down under the cover of night, missing the life I had with the man I was still in love with. It also didn't take me long to notice patterns in this place. See, the last time I lived here, I was so young. I barely had any memories. I just remember it was after my grandfather passed. The only memories I had was of my mom rushing me past the living room that was dark. I could remember hearing whispers in that room and seeing the soft flicker of a dozen candles. "They're saying goodbye to grandpa." was all she told me. The other memory I had is when she left me here. She looked angry as my grandmother begged her to stay. I watched silently out the window, knowing she would never return.
+
+Now, the house sat empty most of the day. My grandmother spent most of the day at church or with church friends. The only thing that bothered me was the constant calls to the house phone. It wasn't an everyday thing but on the days it happened, I couldn't sleep at night for some reason. I never answered because my grandmother told me not to. If it was important they'll leave a voicemail, she said. But these phone calls are invading my dreams now. I dream about answering that phone. I can never remember what happens after I pick up but it's driving me mad. Sometimes I find myself reaching to answer it, as if in a daze. I feel like someone or *something* watches me as it rings.
+
+I'm sorry, I have seemed to ramble a lot. I guess this was a long way of asking, should I pick up the phone? I know I was told not to and normally, I would do it by now but she looked so afraid when she told me. That and the way this house makes me feel, I'm not sure anymore. Maybe that's why my aunt left. The eerieness of this house wasn't here before. Or maybe it was. It's making me wish I never left my husband. I can share more if needed. I can keep you updated. There are things I didn't add here. Just, please tell me. Should I answer the phone?
