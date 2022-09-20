@@ -18,7 +18,7 @@ Not so empty.
 
 Something can take shape in those places. “Wrong” and “horrible” and “monstrous” aren’t even the words for it. Our words can’t do it justice. It doesn’t belong.   
 
-Kyle. I’m so, so sorry. Nothing I can do or say or write will ever fix it. But every time I feel that itch on the empty space where my left arm used to be, when my phantom limb sears with hot pain, I think of you. Maybe telling the story will help.
+Kyle. I’m so, so sorry. Nothing I can do or say or write will ever fix it. But every time I feel that itch on the empty space where my right  arm used to be, when my phantom limb sears with hot pain, I think of you. Maybe telling the story will help.
 - - -
 Going to explore the mall had been my idea. Nothing much had been going on that day. Kyle and I were just loafing around in my dorm, playing fighting games. Kyle came to visit all the time back then. 
 

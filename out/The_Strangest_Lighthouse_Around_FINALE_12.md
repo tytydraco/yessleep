@@ -60,7 +60,7 @@ There was a bit more murmuring, the shade leader spoke again, “How do we know 
 
 The C4 was the tricky part. While it came with a manual, I didn’t know where to find the weak points of a fucking lighthouse, and I’d already tossed my only access to the internet. So instead, I decided to place it around, just far apart enough that I could fit 12 pounds around the circumference of the inside, and 13 around the outside.
 
-By the time I finished, I could smell the stuff on my hands. I’d already moved Grizelda and all of our belongings next to the docks before loading the batteries into the remote and ensuring it was wirelessly connected to the receiver. That was when I noticed a white flake pass by my face. It startled me for a second, reminding me of the ash from the wildfire some months prior. But as more flakes began to fall, I looked up, seeing snow clouds overhead, obscuring the moon. Smiling, I kind of just took it in for a moment, trying to appreciate the weather.
+By the time I finished, I could smell the stuff on my hands. I’d already moved Grizelda and all of our belongings next to the docks before loading the batteries into the remote and ensuring it was wirelessly connected to the receiver. That was when I noticed a white flake pass by my face. It startled me for a second as I tried to figure out what it was. But as more flakes began to fall, I looked up, seeing snow clouds overhead, obscuring the moon. Smiling, I kind of just took it in for a moment, trying to appreciate the rare weather phenomena.
 
 I wondered how much time had passed. “Surely it’d been longer than 30 minutes by now? So wher—”
 
