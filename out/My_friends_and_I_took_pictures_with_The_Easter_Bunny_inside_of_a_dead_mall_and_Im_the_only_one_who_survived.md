@@ -426,5 +426,4 @@ I know this because some nights, I feel Kyle’s hand squeeze the phantom hand o
 I know that wherever Kyle is, it’s cold and lonely and dark. So far away. 
 
 And I try with everything inside of me to squeeze back. 
-- - -
-[More](https://old.reddit.com/user/mikeventure76/submitted/)
+-
