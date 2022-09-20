@@ -50,9 +50,9 @@ I hung up the phone and stared at it for several seconds before dialing Oxbloods
 
 I hung up the phone as I began to run faster than any human has ever run before. I thought about Irene and how close she was to opening another hellgate. I was filled with rage knowing that I might die trying to stop her, but I couldn't think about that now. I needed to focus on what I was doing. If Irene opened another gate, who knows what will happen.
 
-The moon was slowly rising into the sky, casting long shadows across the ground. The air was cold, the temperature dropping as I ran. I could hear the sounds of the wolves chasing their prey somewhere nearby. As I drew closer to Glacier I could smell smoke emanating from the campground. I shivered at the familiar scent and continued to run.
+The moon was slowly rising into the sky, casting long shadows across the ground. The air was cold, the temperature dropping as I ran. I could hear the sounds of the wolves chasing their prey somewhere nearby. As I ran towards the campground near Glacier I could smell smoke emanating from the campground. I shivered at the familiar scent and continued to run.
 
-As I got closer to Old Faithful, I noticed the campground was packed full of tents and RVs. I started hearing gunshots and screams. I looked around frantically for A.R.C operatives, but it didn't appear that they were here yet. There was a large fire burning in the middle of the campground. It looked like someone had set it.
+As I got closer to Glacier, I noticed the campground was packed full of tents and RVs. I started hearing gunshots and screams. I looked around frantically for A.R.C operatives, but it didn't appear that they were here yet. There was a large fire burning in the middle of the campground. It looked like someone had set it.
 
 I kept running, weaving between the tents, until I found a tent that was completely shredded on one side and engulfed in flames.
 
