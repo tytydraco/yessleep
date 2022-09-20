@@ -68,7 +68,7 @@ And the girl watching her looked like her.
 
 A darker, angrier version of her.
 
-I swallowed hard, my fingers watching my wife’s doppelgänger grow closer, seeing photos of her in my room with the shadow of herself watching her. 
+I swallowed hard watching my wife’s doppelgänger grow closer, seeing photos of her in my room with the shadow of herself watching her. 
 
 My vision swam and I felt sick. Snapping the album shut, I wedged it under my arm and fled the attic, taking the stairs two steps at a time down from the attic. As I closed the door and leaned my head against it, I took a slow shuddering breath.
 
@@ -81,7 +81,7 @@ And dumping the shopping bags full of groceries on the table, “how was your da
 
 I paused and slowly cleared my throat. “I found it, Isabel.”
 
-She was pulling the milk out and was about to turn to the fridge to stack them when I said this. 
+She was pulling the milk out and was about to turn to the fridge to stack it when I said this. 
 
 She frowned, putting the milk down on the table.
 
@@ -93,11 +93,11 @@ I quietly lifted the album off my lap and put it on the table.
 
 She looked at the album and her face turns pale as though she has seen a ghost. But when she looks at me she says “I’ve never see that before in my life.” And without another word walks out of the room.
 
-I chased after her, “Isabel, who is the girl in this-look at me when I’m talking to you!” I grasp her arm and turn her towards me.
+I chased after her, “Isabel, who is the girl in this-*look* at me when I’m talking to you!” I grasp her arm and turn her towards me.
 
-She slapped me hard across my face.
+She *slapped* me hard across my face.
 
-My wife who wouldn’t even raise her voice at our cat when he scratches her slapped me.
+My wife who wouldn’t even raise her voice at our cat when he scratched her slapped me.
 
 I watched in open mouthed shock as she stormed up the stairs into our bedroom and slammed the door. 
 
