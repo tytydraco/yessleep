@@ -1,5 +1,7 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/xjfm12/the_kids_in_my_neighborhood_are_following/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/xkfru4/the_kids_in_my_neighborhood_are_following/)
+
 Before I start this, I just wanna make it clear: I'm not here to complain about young people.
 
 God knows my generation had our obsessions too. Bell bottoms. Tie-dye. The war in Vietnam.
