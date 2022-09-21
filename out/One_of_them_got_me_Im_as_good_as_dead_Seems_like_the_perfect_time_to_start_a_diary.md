@@ -10,9 +10,9 @@ Okay, I’m an idiot. There’s nothing else I can do down here. I’ve rooted t
 
 But there’s just enough light coming through the boards I nailed over the cellar’s tiny window to type by. So I may as well type. Stops me staring up at the window just waiting for a shadow to pass by.
 
-Maybe I'll just write and not hit *Submit*. Anyway, where to start? Well, my name is – actually, I think I’m going to refer to myself as ‘X’. That sounds mysterious. If you’re reading this and want to know my real name, I still carry my purse. My railcard is in there and, if you really want to know who I am, go find me and fish it out. I won’t bite...
+Maybe I'll just write and not hit *Submit*. Right, where to start? Well, my name is – actually, I think I’m going to refer to myself as ‘X’. That sounds mysterious. If you’re reading this and want to know my real name, I still carry my purse. My railcard is in there and, if you really want to know who I am, go find me and fish it out. I won’t bite...
 
-So, my name is X. I live in a little English village in the middle of nowhere. Before all *this* happened, I had a mum, a dad, a sister and there was a guy I liked, his name was Jonah.
+So, my name is X. I live in a little English village in the middle of nowhere. Before all *this* happened, I had a mum, a dad, a sister and there was a boy I liked, his name was Jonah.
 
 *
 
@@ -20,7 +20,7 @@ I couldn’t think of anything else to write so I waited until I came back from 
 
 My leg is doing alright actually; didn’t hold me up at all. I saw Jonah too. He’s looked better, I have to say. It’s strange because this is only the second time I’ve seen him since we came here. Maybe his ears were burning.
 
-Anyway, I found some tinned pineapple in a [creepy old caravan](https://i.redd.it/yohwr7346mn91.jpg) I hadn’t searched yet. Had to bust the door open with Old Trusty – which I thought might attract some unwanted attention – but it was fine. I’m actually eating the pineapple right now, tastes good. I also found a radio in there. I already have three down here, but none of them work. Not that the caravan radio works either, all you get is static. It’s just nice to collect something. You know, to have a hobby.
+Anyway, I found some tinned pineapple in a creepy old caravan I hadn’t searched yet. Had to bust the door open with Old Trusty – which I thought might attract some unwanted attention – but it was fine. I’m actually eating the pineapple right now, tastes good. I also found a radio in there. I already have three down here, but none of them work. Not that the caravan radio works either, all you get is static. It’s just nice to collect something. You know, to have a hobby.
 
 *
 
@@ -102,7 +102,7 @@ He’s one of those people that I can’t remember meeting. My family has always
 
 *
 
-I’ve perked up a bit. Out of sheer frustration, I went upstairs (naughty, I know) and looked out of a window. Sure, I [saw an ugly](https://i.redd.it/oyemnd526mn91.jpg), wandering aimlessly as they always do, but I saw that the trees are starting to turn too. That means it’s nearly autumn, and I love autumn!
+I’ve perked up a bit. Out of sheer frustration I went upstairs (naughty, I know) and looked out of a window. Sure, I saw an ugly, wandering aimlessly as they always do, but I saw that the trees are starting to turn too. That means it’s nearly autumn, and I love autumn!
 
 My sister and I always used to go out and kick leaves at each other in the autumn. I don’t know if it was because of her low centre of gravity, but my sister was amazing at it. She could somehow whip up a blazing whirlwind of golden-yellow and fire-red, surrounding us both in a leaf storm that I couldn’t help but flail my arms madly at. Then we’d both fall backwards into the leaves laughing, me wondering how on earth what had happened was possible. She was that good.
 
@@ -122,7 +122,7 @@ I’ll check back in later.
 
 I’m **still alive**, but only just.
 
-I made it through [the woods](https://i.redd.it/8csa8x806mn91.jpg) just fine (only the odd leaf on the forest floor at the moment though, sadly), the trouble started at the farmhouse. I couldn’t get in – the doors and windows were barricaded – so I tried one of the outbuildings. Locked. It had a cat flap though.
+I made it through the woods just fine (only the odd leaf on the forest floor at the moment though, sadly), the trouble started at the farmhouse. I couldn’t get in – the doors and windows were barricaded – so I tried one of the outbuildings. Locked. It had a cat flap though.
 
 My first instinct was to leave it, but then I wondered if there might be something useful inside. Lord knows what thinking about it now. I lifted the cat flap with one hand and shone the torch beam through with my other. That’s when an ugly dived at my pinkies. Luckily, it misjudged its leap and got a mouthful of plastic cat flap instead. As for me, I fell backwards onto my bum.
 
@@ -142,7 +142,7 @@ She wouldn’t speak to me for a few days after that. I didn’t blame her, I ha
 
 *
 
-I haven’t told you about the heavy-duty gloves yet, have I? 
+I haven’t told you about the heavy-duty gloves yet, have I?
 
 After I got back from our old house, my sister started speaking to me again. A shared, day-long cry will do that for sisters. Once we felt up to it, we decided to explore the parts of the farmhouse we hadn’t searched yet. All the bedrooms were empty, only a few belongings flung about the place (I suspect the previous tenants left in a hurry). The problem came when we investigated the attic. Once we’d opened the ceiling panel in the upstairs hallway, once we’d pulled the compact staircase down, I went up. My sister stood at the top of the hatchway shining the torch beam over my shoulder. And that’s when it touched me. Terrified, I fell to my left, screaming as the thing came crashing down on top of me. I was yelling things like, ‘Shoot it!’ and, ‘Run!’ but my sister was just laughing her head off. I soon realised that my attacker was in fact a shop-window mannequin.
 
@@ -196,4 +196,4 @@ I know it’s possible that no one will ever read this, but that’s not really 
 
 *
 
-[J](https://linktr.ee/JackCroxall)
+[J](https://www.reddit.com/user/mediamusing/)
