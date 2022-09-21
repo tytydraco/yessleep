@@ -1,0 +1,26 @@
+\[DATE: 8/4/2003\]  
+\[TIME: 2:29 PM EST\]
+
+Hello everybody. Before we get started feel free to grab any of the snacks from that table in the back. There's coffee and water as well. We're gonna wait a few more minutes since I still see a few people aren't here yet. And please remember to drop your phones and other smart devices in the bin here.
+
+\[TIME: 2:33 PM EST\]
+
+Okay, let's go ahead and get started now. Today we're gonna go over some of our findings from last week's DSVX dive. If you recall, that was our first dive with the new cameras installed, and we were hoping to maybe get a peek at what we were picking up on the radars. Sure enough, we do have some pictures today, which I think deserves a round of applause \[speaker and audience both clap\].
+
+Let's take a look at these. I'm gonna blow these up on the projector, hopefully, there's not too much glare. Otherwise, we might need to turn off the lights \[speaker projects a photograph\] \[whispering among the audience\]. Take it all in, we are some of the first people in the world to see this. Keep it together folks, we have a few more, let's take a closer look first \[shushing from audience\].
+
+I think it goes without saying that this is one of the strangest-looking fish you have ever seen, right? I mean, it doesn't even look like a fish. The shape of the eyes in particular is fascinating, that's something we don't see at all in organic life. It could be an evolutionary thing, we're not sure yet. The mouth is clearly massive, and given the size of the thing already, you can just imagine what this guy must be eating. The structure of the jaw indicates a carnivorous diet, which makes a lot of sense when you consider the possible sources of energy at this depth and under this amount of pressure. Given the distance that the photo was taken, we estimate this fella to be somewhere around 180 feet long. That makes it the new largest known animal to ever exist on Earth by a mile. Not literally \[crowd lightly laughs\].
+
+Here's a different picture that we took a few hours after the one we just looked at \[speaker replaces photograph with a different one\]. 
+
+This one's not quite as long, we estimated it to be around 120 feet tall, but that's still pretty big compared to what we see in low-pressure environments. Now what's interesting is that we found this guy oriented vertically, not unlike a sperm whale. This is another photo but at a different angle \[speaker places a different photograph on top of the previous one\].
+
+Look how many there are. That's at least, let's see, one, two, three, four, five, six, seven, eight, nine, ten, eleven, twelve, thirteen, fourteen, fifteen of 'em. And once again, take a look at its mouth. It's absolutely enormous, even for its size. It makes up the large majority of its head. We were also lucky enough to be able to pick up vibration patterns of what we believed to be a call. Unfortunately, the frequencies are in the range of 1-3 hertz, and it is nearly impossible to hear with our ears. Because of this, we infer that this whale-esque creature might read these calls using the physical vibration of the water rather than having especially sensitive ears.
+
+This is the final picture we took, at nearly eighty-thousand feet underwater \[replaces both photographs with a different photograph\]. This pile of what looks like sand is actually detritus, the tiny pieces of flesh and bacteria from dead sea creatures above. Now, this isn't anything too special, it actually occurs almost everywhere where there's a sea floor. But what makes it incredible is what it tells us about Earth. The sample we collected carbon dates to over one hundred billion years ago. Do you realize what that implies? It means Earth was capable of sustaining life way before what we guessed were the earliest organisms to ever appear. This theory seems to be backed up by the fact that we were only able to match about half of a percent of the biomaterial to the DNA records we have.
+
+While this is all very amazing, I think it brings up a lot of questions about what we really know about our own planet. We are still such a young species compared to some of the life we discovered last week. What makes us so sure that we are the most advanced beings to have existed on Earth? With so much time for life to spawn, it wouldn't be so outlandish to think that some sealife could have evolved to become even more complex than us. Maybe the creatures you saw today are intelligent. Something that still remains to be seen is how deep the layer of detritus actually goes. Due to the stress of the pressure, our probe was only able to travel about one foot into the dust. As we develop more technology here, we will be capable of uncovering more. Regardless, I think we all deserve a pat on the back for the progress we have made thus far.
+
+That's all I have for you today. Please don't forget to sign your disclosures, I know I say it every week but there are still a couple of you guys who don't get them in. Grab what you came in with, we don't want anyone to lose their phones or tablets or whatever \[chuckle from the audience\]. Other than that, have a good weekend!
+
+\[END OF DEBRIEF\]
