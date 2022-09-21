@@ -22,7 +22,7 @@ I went back downstairs and heard noises coming from the kitchen. When I peeked i
 
 He looked over at me and yelled "Me was hungry and you didn't give me food" I realized this was the couple's son. He started drooling and said "Me eat you" I tried to run but his long arm grabbed me and wouldn't let go.
 
-So I grabbed a piece of the broken vase and stabbed his arm, he let go of me and screamed but I got the fuck out of there. I ran to the neighbor's house and called the cops.
+So I grabbed a piece of the broken vase and stabbed his arm, he let go of me and screamed but I got the fuck out of there. I ran to the neighbor's house trying to get help. They eventually came out and called the cops.
 
 The cops eventually arrived and when they went in but did know one was in there but they noticed the back door was open. I told them about the parents but they couldn't get ahold of them and they haven't found them yet.
 
