@@ -30,23 +30,23 @@ For my own little boy was not well.
 
 I had big dreams for my nephew. I was there when he was born and I was there for his christening and baptism.
 
- I named him Peter—Peter the Tenth—after me and my father and all the men that came before me. I was hoping, as all fathers would, that he would follow me into priesthood. I dreamed of the day I could teach him my tips and tricks, the day he could successfully exorcise his first demon like a baby taking his first steps, and of the day I could finally tell him *Son, I am so proud of you.*
+I named him Peter—Peter the Tenth—after me and my father and all the men that came before me. I was hoping, that he would follow me into priesthood. I dreamed of the day I could teach him my tips and tricks, the day he could successfully exorcise his first demon like a baby taking his first steps, and of the day I could finally tell him *I am so proud of you.*
 
 But the house was too quiet as I slipped back home and hung up my hat. The sunlight slipped into the late afternoon, illuminating a long white arm that stretched across the hall. My sister, Maria, was frozen on the couch, staring listlessly at the television. The sound had dulled out to babble that did not matter anymore.
 
-I tiptoed up to my son’s room where he lay. He was barely moving; his face was the colour of weak tea. Shadows fluttered beneath closed eyelids. Sweat dribbled down his face and moistened his bedsheets.
+I tiptoed up to my nephew’s room where he lay. He was barely moving; his face was the colour of weak tea. Shadows fluttered beneath closed eyelids. Sweat dribbled down his face and moistened his bedsheets.
 
 I lay a hand on his forehead. It came away hot.
 
 “You’ll get better, Junior,” I whispered, lips trembling. “Daddy swears he will do everything he can to help you.”
 
-The empty promise hung into the air as I closed the door and went downstairs to sit with my sister. He would never get better. That was the fact I had to deal with, the fact my wife had to deal with, the reality that hit us day after day as our dear son got worse and worse. Money was running out; time was running out.
+The empty promise hung into the air as I closed the door and went downstairs to sit with my sister. He would never get better. That was the fact I had to deal with, the fact my sister had to deal with, the reality that hit us day after day as Junior got worse and worse. Money was running out; time was running out.
 
 We simply did not know what to do.
 
 My sister gripped my hand, her knuckles white. She leaned against me like a house of cards, and she closed her eyes and went to sleep. Poor Maria. Tomorrow she would wake up to another nightmare.
 
- I drifted off myself, my dreams plagued with worry.
+I drifted off myself, my dreams plagued with worry.
 
 ***
 “Good morning, Mother.”
@@ -63,7 +63,7 @@ It had been a long time since I saw him smile.
 
 “How are you feeling, Junior?” I gasped.
 
-“Perfectly fine, thank you so much for asking, Father.”
+“Perfectly fine, thank you so much for asking, Uncle.”
 
 I clasped my nephew’s hands into my own. It felt like grasping a cold fish but his eyes shone like fire. “Thank you, Lord,” I whispered, tears in my eyes, “for healing my nephew. I will forever repay you with your kindness.”
 
