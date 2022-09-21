@@ -23,3 +23,5 @@ one of the listed diseases (i think the xray must be related?):
 Weird, right? If anyone recognizes anything, definitely let me know - I'd feel better knowing this is just some weird fan fiction. There's like, a whole book of this bizarro shit too so I can post a few more if it might jog anyone's memory.
 
 UPDATE 8:14pm EST: so glad I’m not in this alone! Makes me feel much less freaked out. I really want to post some more of the book (borrowing a negative scanner from a friend tomorrow!) but I’m working late tonight so sadly, it’ll have to wait to tomorrow. I’ll make a new post so it’s easier to follow? Or I can just post it here? Not sure what the protocol is but regardless, thanks for making me feel less alone in all this - and updates to follow!
+
+Update: https://www.reddit.com/r/nosleep/comments/xk53vl/update_i_found_a_book_on_the_beach_i_went_back_to/

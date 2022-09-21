@@ -50,3 +50,7 @@ My mom leaves tonight, and after she leaves I'll be throughly cleansing my whole
 Depending if anything even happens I'll be updating. 
 
 (Also so sorry for all the writing errors, I'm writing this at school and it's rather rushed)
+
+
+
+(Update) Last night was my first night alone since what happend. I did a deep cleansing of my house yesterday and so far nothing new has happend.  So yay!!
