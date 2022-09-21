@@ -6,9 +6,9 @@ There are a few here so Ill explain what they are. First and foremost, I scanned
 
 I scanned a negative that was between the pages, although im not sure what it depicts - none of them are labeled.
 
-Also pictured are photos from last night. I went on a walk last night with my dog (also pictured) and brought my little point and shoot, thinking i would get a photo of where i found the book and itd be at night and therefore dark and spooky. It was indeed dark as hell so i took a few photos, couldnt see much, and walked home.
+Also pictured are photos from last night. I went on a walk last night with my dog (also pictured) and brought my little point and shoot, thinking i would get a photo of where i found the book and itd be at night and therefore dark and spooky. It was indeed dark as hell so i took a few photos, couldnt see much, and walked home. The only thing worth mentioning about the beach was the smell- it smelled overwhelmingly of burning rubber and like…rotten garlic? I can still kind of smell it on my clothes. 
 
-There’s something in the photos though. I cant tell what it is - but i absolutely did not notice anything when i was there. If anyone recognizes what it is, please let me know. Ive tried cranking the brightness but it doesnt help, at least for me.
+There is something in the photos of the beach though. I cant tell what it is - but i absolutely did not notice anything when i was there. If anyone recognizes what it is, please let me know. Ive tried cranking the brightness but it doesnt help, at least for me. 
 
 This will probably be my last update for a bit. Like i said, i havent been sleeping great and looking through all of this constantly is kinda messing with headspace.
 
