@@ -1,4 +1,4 @@
-I am currently doing an online college mostly because I'm not a people person. It's pretty easy staying home and doing my schoolwork online.
+I am currently doing online college mostly because I'm not a people person. It's pretty easy staying home and doing my schoolwork online.
 
 Even though it's cheaper doing it online I still try to make money. I usually will babysit for people for $10 an hour, and I've made over $140 doing it.
 

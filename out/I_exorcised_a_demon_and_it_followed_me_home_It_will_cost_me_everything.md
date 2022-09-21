@@ -107,7 +107,7 @@ My hand went to my mouth.
 
 Junior was nowhere to be found.
 
-Images flashed into my mind of my young son on a tree somewhere, or on a wall, nailed down with his head dangling like that of a raccoon. 
+Images flashed into my mind of my young nephew on a tree somewhere, or on a wall, nailed down with his head dangling like that of a raccoon. 
 
 I shivered. My heart leapt in my throat. My brain screamed at me to go find him.
 
@@ -217,7 +217,7 @@ Then it finally exploded into light, and the treehouse was bathed in orange and 
 
 It was time. I lay my right hand onto him and placed my cross on his forehead. Junior screamed. Smoke was coming out from where the cross met skin.
 
-Then, before I even started to pray, he dissolved into a mound of black ash. More rained down from the roof, flooding the treehouse, spilling over into the ground. I looked to my left and saw my wife was crumbling too, first her legs, belly, head. Blood gushed out and baked the ash into something hard.
+Then, before I even started to pray, he dissolved into a mound of black ash. More rained down from the roof, flooding the treehouse, spilling over into the ground. I looked to my left and saw my sister was crumbling too, first her legs, belly, head. Blood gushed out and baked the ash into something hard.
 
 I was left with the graves of the only family I had ever known. I knelt in front of them, and said a final goodbye, my tears falling like the ashes scattered around me. Then I wordlessly blew out the candle, climbed down the rope ladder and looked at the shadow of the treehouse for the last time.
 
@@ -268,4 +268,4 @@ The voice gave out another hearty chuckle. Once again a shiver ran up my spine. 
 
 [Let us dance.](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
-[SK](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[SK](https://www.reddit.com/r/SimbaKingdom)
