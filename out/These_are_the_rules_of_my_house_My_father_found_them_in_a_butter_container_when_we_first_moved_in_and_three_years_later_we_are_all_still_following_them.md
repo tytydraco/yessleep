@@ -55,4 +55,10 @@ There was no way I could possibly outsmart it. I shut my eyes as tightly as poss
 
 I'm not religious, but the day after I thanked every God I could think of. I had woken up, and I was seemingly unharmed, other than a cracked rib. I told my parents and they smiled, "They must like you" my dad said, nonchalantly. I didn't feel lucky, I didn't feel much at all. Of course I was grateful, anyone would be, but why didn't they kill me? Why did they choose to save me? Am I more valuable alive to them? I don't think I'll ever find out. I'm hoping to move out soon.
 
-The previous tenants have been sectioned under the mental health act recently, apparently suffering from paranoia, they sent us a cease and desist order after we asked them how long they lived here. According to the landlord's bank, all of their checks never existed, there is no evidence they ever were here, even though they left family photos in a box in the attic, and the landlord still has the money. My parents act like this is normal, they don't seem concerned at all. My brother seems unbothered. There's something off with them. I hope my summerhouse keeps me sane, but I can't help but feel this is the only good way to live. Maybe I should join them in the house. Maybe you should join us too. The house knows best. They know best.
+The previous tenants have been sectioned under the mental health act recently, apparently suffering from paranoia, they sent us a cease and desist order after we asked them how long they lived here. According to the landlord's bank, all of their checks never existed, there is no evidence they ever were here, even though they left family photos in a box in the attic, and the landlord still has the money. My parents act like this is normal, they don't seem concerned at all. My brother seems unbothered. There's something off with them. I hope my summerhouse keeps me sane, 
+
+
+edit: This next part was written in the original post, apparently by me, a commenter alerted me to it, so big kudos to them, but what the hell? 
+
+
+but I can't help but feel this is the only good way to live. Maybe I should join them in the house. Maybe you should join us too. The house knows best. They know best.
