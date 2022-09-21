@@ -38,7 +38,7 @@ I tiptoed up to my nephew’s room where he lay. He was barely moving; his face 
 
 I lay a hand on his forehead. It came away hot.
 
-“You’ll get better, Junior,” I whispered, lips trembling. “Daddy swears he will do everything he can to help you.”
+“You’ll get better, Junior,” I whispered, lips trembling. “I swear he will do everything he can to help you.”
 
 The empty promise hung into the air as I closed the door and went downstairs to sit with my sister. He would never get better. That was the fact I had to deal with, the fact my sister had to deal with, the reality that hit us day after day as Junior got worse and worse. Money was running out; time was running out.
 

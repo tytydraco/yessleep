@@ -1,0 +1,14 @@
+I know it sounds stupid, but he follows me. 
+
+It was about a month ago when I was browsing the Web. It was late at night, almost 4 am. I was scrolling down until I saw a link. "Can YOU find Wally?" with a picture beside it with the famous character. I was bored, so I clicked into it.
+
+The Web page loaded immediately. I saw a timer, and a big green button that said "START". I clicked it, and the timer started going down. I had 2 minutes. I started to get engaged and soon enough I found him, seeing his little face with his glasses and famous little hat. I clicked onto him, and immediately my browser brought me into a diffrent page. "Congratulations, you found wally. Now it's his turn to find you". I was a little skeptical, and figured it must be some joke. I was getting tired and went to bed.
+
+It was a few days later when I first got the feeling of constantly being watched. I would always look around, frantically trying to see who was looking at me. Every time I didnt see anybody. It was two days ago when I first saw him. 
+
+It was late at night. I had been out with my friends and decided to leave a little early. I was on my own, and the cold night made me shiver. I started to hurry home, thinking about my bed. Then the feeling of being watched come over me. I stopped, looked around, even did a full 360 but to no avail. When I looked back the way I was going, I saw it. Under a street light, it was impossibly tall, around 10 ft. The light blocked its face but I could faintly see two big, round eyes staring at me. it had long arms, almost down to it's knees, and the hands. They were grotesque. Long, bony fingers with nails so sharp they looked more like claws. I froze, I couldn't move, only stare at it. Suddenly, I heard someone slamming a car door shut and I unfroze, but Wally had disappeared. I was shaken up, and decided to get a taxi home instead of walking.
+
+It was last night when I saw it again.
+I was trying to sleep. I didnt get much rest the night before, and tonight wasn't any diffrent. I turned over and gazed out my window l, but something was wrong. There was a  face. A face with two round glasses, and a hat. It's neck was stretched so far I thought it would snap. It's eyes stared at me, two white pits of nothingness. As soon as it saw me looking, it ducked down and again, disappeared. I was terrified at this point. 
+
+It's been 18 hours since then. Yes, I've counted, for no reason. As I'm writing this I can feel it watching me. I just have to warn other people. I don't want to turn around, and see its white eyes staring at me and its bony, gnarled fingers hold the window still, exited that it sees its prey. I think this might be my last encounter with it. My window starts to creak open. I dont know what to do.
