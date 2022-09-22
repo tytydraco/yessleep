@@ -18,7 +18,7 @@ Not so empty.
 
 Something can take shape in those places. “Wrong” and “horrible” and “monstrous” aren’t even the words for it. Our words can’t do it justice. It doesn’t belong.   
 
-Kyle. I’m so, so sorry. Nothing I can do or say or write will ever fix it. But every time I feel that itch on the empty space where my right  arm used to be, when my phantom limb sears with hot pain, I think of you. Maybe telling the story will help.
+Kyle. I’m so, so sorry. Nothing I can do or say or write will ever fix it. But every time I feel that itch on the empty space where my right arm used to be, when my phantom limb sears with hot pain, I think of you. Maybe telling the story will help.
 - - -
 Going to explore the mall had been my idea. Nothing much had been going on that day. Kyle and I were just loafing around in my dorm, playing fighting games. Kyle came to visit all the time back then. 
 
@@ -122,9 +122,9 @@ My eyes widened as Tammy and Kyle sauntered over to me, giggling.
 
 “Look at this!” I exclaimed, thrusting a finger at the small sign.
 
-Kyle and Tammy both leaned down to read the bright yellow words, bursting off of a bright pink background.
+Kyle and Tammy both leaned down to read the bright yellow words, bursting off of a pink background.
 
-It was a simple sign really. Loud and bright, the kind of thing that would get a little kid’s attention.  
+It was a simple sign really. Loud and attention grabbing, the kind of thing that would draw a little kid’s eye.  
 
 The face of a smiling cartoon rabbit with baby blue fur stared wide eyed and grinning open mouthed next to the text, the corners of the poster adorned with colorful eggs.
 
@@ -246,7 +246,7 @@ I turned and scowled at the Easter Bunny, the photo display now behind us. The m
 
 I nodded. “Yeah, I guess so. We got some good pics anyway. But I’m gonna say something to that weird fuck.” 
 
-Kyle didn’t respond. Instead, his eyes widened, mouth gaping open in pure, abject fear. “Kyle…?” I asked. My brother yelled out, but not to answer me.
+Kyle didn’t respond. Instead, his eyes widened, mouth hanging open in pure, abject fear. “Kyle…?” I asked. My brother yelled out, but not to answer me.
 
  “Tammy!” 
 
@@ -292,7 +292,7 @@ He stared at me, wide eyed. “I know…” he said meekly. “Tammy….”
 
 I fought back tears as I cupped Kyle’s face with both hands. “We need to figure this out Kyle. Something is wrong. We can’t leave.”
 
-He looked back and forth exasperatedly, glancing down both ends of the now infinite corridor. He turned to me with a look of pure horror. “I’m gonna try to call 911,” I said, pulling out my phone. 
+He looked back and forth exasperatedly, glancing down both ends of the now infinite corridor. He turned to me with a look of pure terror. “I’m gonna try to call 911,” I said, pulling out my phone. 
 
 It wouldn’t turn on. The screen remained black no matter which buttons I pressed. Kyle’s was the same. I threw my hands up in frustration. “What the fuck!” I exclaimed. “What the fuck is going on!” 
 
@@ -338,7 +338,7 @@ Underneath… was nothing. No coal skinned monster, no freakish homeless pervert
 
 I dropped the bat in disbelief, gawking at the now headless being that stood in front of me.
 
-“Oh god…” Kyle murmured in horror as he turned to observe the horrible sight. 
+“Oh god…” Kyle murmured, in shock as he turned to observe the horrible sight. 
 
 The headless bunny suddenly lurched down and forward , so that the empty, naked neck hole faced me. It raised its arms, stretching them toward me. 
 
@@ -356,7 +356,7 @@ Suddenly, the massive creature shot forward and engulfed my arm in its maw. I ga
 
 Suddenly, I was knocked loose from the thing’s grasp. I fell to the floor, and saw Kyle standing where I had been moments ago. My brother had regained enough of his senses to stand and push me out of the thing’s grip. He’d saved me. Of course, with this action, he’d planted himself directly in front of the creature.
 
-I made to extend my arm down to the floor and push myself up, but an abject horror took me as I realized I couldn’t feel anything below my right shoulder. 
+I made to extend my arm down to the floor and push myself up, but a sudden panic surged through me as I realized I couldn’t feel anything below my right shoulder. 
 
  I looked down to see that my arm was gone. It almost looked like it had never been there to begin with. There was no blood, no wound. Just a smooth lump of flesh that cut off where my elbow should've started.  
 
@@ -392,7 +392,7 @@ I knew it was too late.
 - - -
 The police arrived quickly, but they didn’t find anything. 
 
-No bodies. Not Tammy, not my brother. And they didn’t find an otherworldly creature that looked like the Easter Bunny. They knew that *something* strange had happened that day. My missing friend, missing brother, and missing arm were proof of that. But the story just didn’t add up. 
+No bodies. Not Tammy, not my brother. And they didn’t find an otherworldly creature that looked like the Easter Bunny. They knew that *something* strange had happened that day. My missing friend, missing brother, and missing arm were evidence of that. But the story just didn’t add up. 
 
 Why would an Easter photo display be set up in a mall that had been shut down for over a year? 
 
@@ -425,5 +425,4 @@ I know this because some nights, I feel Kyle’s hand squeeze the phantom hand o
 
 I know that wherever Kyle is, it’s cold and lonely and dark. So far away. 
 
-And I try with everything inside of me to squeeze back. 
--
+And I try with everything inside of me to squeeze back.

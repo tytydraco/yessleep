@@ -1,8 +1,8 @@
 College has really been a special time for me. I’ve learned a lot, made lifelong friends, and grown as a person. Now that I’m about to graduate, I can absolutely say the experience was worth it in every way.
 
-It didn’t start out like that though. My freshman year was.. challenging. *Really* challenging. At one point I nearly dropped out. 
+It didn’t start out like that though. My freshman year was.. challenging. *Really* challenging. At one point I nearly dropped out.
 
-Everything started to go downhill when I decided to Rush. 
+Everything started to go downhill when I decided to Rush.
 
 I’d always known I wanted to be in a sorority. I’d imagined it many times while I was in high school. All the friends, the parties, everything. I thought it would be a blast.
 
@@ -14,7 +14,7 @@ So when I received a coveted bid from the most exclusive sorority on campus- Del
 
 Everyone knows about Delta Psi. How they accept the smallest group of pledges each year, and somehow they’re always the most gorgeous girls in the class. Their reputation for exclusivity was warranted. Still, I went to the open house along with my other hallmates, mostly out of curiosity.
 
-All the Greek houses were aging mansions on a single street off campus. Delta Psi had a charming, three story gray Victorian complete with gingerbread and a turret. The interior was rich and moody, with burning logs crackling in the fireplace and plush leather chairs in the seating area. A vintage Moroccan rug covered the dark wood floor. 
+All the Greek houses were aging mansions on a single street off campus. Delta Psi had a charming, three story gray Victorian complete with gingerbread and a turret. The interior was rich and moody, with burning logs crackling in the fireplace and plush leather chairs in the seating area. A vintage Moroccan rug covered the dark wood floor.
 
 I made polite conversation with a dark haired girl who introduced herself as Alexis, the Delta Psi treasurer. *Not a hair out of place, and those clothes must have cost a fortune,* I thought.
 
@@ -28,7 +28,7 @@ The morning of Bid Day I awoke to find a small, pink envelope slipped under my d
 
 Signed, Taylor Murphy, President, and Brooke Smith, Vice President.”
 
-I waited around most of the morning, but no other bids arrived. My roommate, Emily, of course received a slip for ADPi, which I had *hoped* I would be joining as well. Her eyebrows raised when I showed her the pink card. “Good luck with that,” she smirked as she bounced out the door, leaving me alone with my apprehension. I could hear her in the hallway talking to our neighbors about her luck. 
+I waited around most of the morning, but no other bids arrived. My roommate, Emily, of course received a slip for ADPi, which I had *hoped* I would be joining as well. Her eyebrows raised when I showed her the pink card. “Good luck with that,” she smirked as she bounced out the door, leaving me alone with my apprehension. I could hear her in the hallway talking to our neighbors about her luck.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
@@ -38,9 +38,9 @@ I took a deep breath and walked forward alone. The Victorian mansion seemed a lo
 
 I crossed the threshold into a room bathed in warm light. Two other girls sat in the leather chairs by the fire, one of which I recognized from my Biology class. She gave me a weak smile. We introduced ourselves, and then sat in tense silence.
 
-“Ladies,” a strong voice called out, “this way.” I turned to see Taylor, her platinum blonde hair perfectly curled and her lips a deep scarlet. She smiled, knowingly. Others stood behind her carrying candles. We rose as if on command. “Only three this year?” one of them murmured as we passed. 
+“Ladies,” a strong voice called out, “this way.” I turned to see Taylor, her platinum blonde hair perfectly curled and her lips a deep scarlet. She smiled, knowingly. Others stood behind her carrying candles. We rose as if on command. “Only three this year?” one of them murmured as we passed.
 
-Taylor led us to a stairwell where we followed her into the basement. The room was lit with the soft glow of hundreds of candles, covering every surface. The rest of the Sorority was down here already, standing in quiet groups. 
+Taylor led us to a stairwell where we followed her into the basement. The room was lit with the soft glow of hundreds of candles, covering every surface. The rest of the Sorority was down here already, standing in quiet groups.
 
 Taylor moved to the front and began with the usual things. Charity work, secret sayings. I thought it was odd that they were all in Latin, but what did I know? Alexis schooled us on the history of Delta Delta Psi, and another girl who’s name I vaguely remembered as Chloe taught us our house song.
 
@@ -58,19 +58,19 @@ A cheer went up through the group. She waited for them to quiet down before cont
 
 When you drink from this cup, when you join *us-* well, you can turn the head of anyone you want. You will have power over men. Just ask Brooke,” she said, winking, “She’s had half the basketball team.” Brooke looked sheepish but laughed with everyone else. “Pussy is power, ladies, don’t forget it.” She turned up the chalice and took a big gulp. “Welcome to Delta Delta Psi.”
 
-There was a round of intense cheering and clapping. I’ll admit, I was enjoying myself. When the cup finally made its way around to me I drank deeply. The heat of the alcohol washed over me from scalp to toes. I felt energized. Alive. 
+There was a round of intense cheering and clapping. I’ll admit, I was enjoying myself. When the cup finally made its way around to me I drank deeply. The heat of the alcohol washed over me from scalp to toes. I felt energized. Alive.
 
 We partied far into the night, dancing in the long shadows that can only be cast by candlelight. All of my apprehension had dissipated. I felt safe and at home with my new family. Between the communal vodka and the joints that were floating around, my evening quickly descended into a warm, hazy blur.
 
 I awoke the next morning on one of the plush leather couches by the fireplace. My head swam and my mouth was drier than sand. I gingerly sat up and shuffled to the bathroom, where I examined my face in the mirror.
 
-I was surprised to see that I didn’t look that haggard after all. My hair looked different. *Shinier.* And my skin was dewier than ever. *Best I’ve ever looked after a night of drinking,* I thought. 
+I was surprised to see that I didn’t look that haggard after all. My hair looked different. *Shinier.* And my skin was dewier than ever. *Best I’ve ever looked after a night of drinking,* I thought.
 
-I didn’t think much about that first meeting for several days. I was busy, and class took up most of my time. 
+I didn’t think much about that first meeting for several days. I was busy, and class took up most of my time.
 
 A few days later, I started to think something was off.
 
-It started small- a guy staring at me tripped on the sidewalk. Then, my lab partner was suddenly *very* interested in me. I thought it was just a coincidence. Then boys started trailing me through the library with lost looks on their faces, or lingered nearby as I tried to study. They were drawn to me like a magnet. 
+It started small- a guy staring at me tripped on the sidewalk. Then, my lab partner was suddenly *very* interested in me. I thought it was just a coincidence. Then boys started trailing me through the library with lost looks on their faces, or lingered nearby as I tried to study. They were drawn to me like a magnet.
 
 Those? They were one thing. Pleasantly annoying, easy to ignore.
 
@@ -88,11 +88,11 @@ Bag Head would watch me from fifty feet away, not moving any closer, just standi
 
 Another three appeared together, always- I thought of them as the Trio. Their pale faces were coated in dried blood, and their limbs stuck out at odd angles. Because of this, they had a hard time walking properly. They followed me from building to building, their slow, pained shuffle always a few feet behind me. I knew they could never catch me, but their footsteps made my heart race with dread.
 
-The worst was the Jogger. He followed me closely, standing near me in the library, waiting outside the shower, sitting on my bed. No matter what I did, I couldn’t get away from him. 
+The worst was the Jogger. He followed me closely, standing near me in the library, waiting outside the shower, sitting on my bed. No matter what I did, I couldn’t get away from him.
 
 He was always waiting. Always watching.
 
-I did my best not to look directly at him. The first time I saw him I stared right into his face. Big mistake. His white, undead eyes pierced my soul, and maggots writhed on his rotted cheeks. He opened his mouth to reveal broken yellow teeth, and the sound that came from within still makes me shudder to this day. 
+I did my best not to look directly at him. The first time I saw him I stared right into his face. Big mistake. His white, undead eyes pierced my soul, and maggots writhed on his rotted cheeks. He opened his mouth to reveal broken yellow teeth, and the sound that came from within still makes me shudder to this day.
 
 I was desperate to make them go away. *I’m losing my mind,* I thought as I wept in my room. I did my best to get through each day. I knew my grades were suffering- I could barely concentrate on anything.  I wouldn’t be at college long if this kept up.
 
@@ -133,3 +133,7 @@ It’s one of our rituals,” she continued, “and it’s something that’s pa
 She leaned in close.
 
 “And if you don’t do it? If you try to rat, or back out? You’ll regret it. You think you’re seeing ghosts now? Just wait til you’re one of them.”
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/xkzyxe/i_joined_a_sorority_with_some_weird_traditions/)
