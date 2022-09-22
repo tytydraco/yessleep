@@ -54,3 +54,14 @@ Depending if anything even happens I'll be updating.
 
 
 (Update) Last night was my first night alone since what happend. I did a deep cleansing of my house yesterday and so far nothing new has happend.  So yay!!
+
+
+
+
+Update 2
+
+It's nighttime, it's 9:19 pm. Earlier there was knocking on my door, it was so light I brushed it off as a random noise. About five minutes ago there was scratching on my window. It's closed but unlocked. I'm scared. I'm too scared to lock it. I'm trying my hardest not to think about it. 
+
+I heard scratching at my front door tòo,
+
+I'll update if anything else happens.
