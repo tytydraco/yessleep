@@ -1,4 +1,4 @@
- When I was a kid, I was friends with this girl in my building, Abigail Buch. She didn’t have many friends. She was always very sickly. Spent the first six months of her life in a hospital, and for the rest of her short life, she’d be in and out for surgery or observation or tests. I never learned specifically what it was. I was too young to learn too many of the specifics. The doctors never expected her to make it to a month. Then a year. Then five. But Abby was a fighter. Well, as much a fighter as someone like her could be.
+ When I was a kid, I was friends with this girl in my building, Abigail Buch. She didn’t have many friends. She was always very sickly. Spent the first six months following her premature birth in a hospital, and for the rest of her short life, she’d be in and out for surgery or observation or tests. I never learned specifically what it was. I was too young to learn too many of the details. The doctors never expected her to make it to a month. Then a year. Then five. But Abby was a fighter. Well, as much a fighter as someone like her could be.
 
 There were bullies at school. There always are, and when you’re a pale, sick kid like Abby, there are vultures circling, waiting to pick your bones. When we all got chicken pox, she got it worse than all of us. They called her Scabby Abby. How terrible is that? We all had it, but they still singled her out. Kids are dicks.
 
@@ -45,7 +45,7 @@ And in the years since it happened, I’ve often found myself thinking about it.
 
 Sometimes I blame myself. Sometimes, only sometimes, I think that maybe I did hear that voice. That it was her time to go. That Melinda Grady saw it coming and did exactly as we knew she would. She didn’t cause her death, but she was right about the where and when. And in those times, I wonder if it was destiny. If Abby would have had a heart attack on that August 7th, whether we were in the apartment summoning ghosts or not.
 
-And I then I think, if that’s true, if the ghost of Melinda Grady really did come to her to tell her how she died, I wonder did she tell her she would die alone? Did she tell her she would have survived if her I, sitting just on the other side of the apartment front door, would have just told the truth.   
+And I then I think, if that’s true, if the ghost of Melinda Grady really did come to her to tell her how she died, I wonder did she tell her she would die alone? Did she tell her she would have survived if I, sitting just on the other side of the apartment front door, would have just told the truth.   
 
 Sometimes, when I lie in bed at night, unable to sleep, I can almost hear the voice of Melinda Grady echoing in my memory.  
 
