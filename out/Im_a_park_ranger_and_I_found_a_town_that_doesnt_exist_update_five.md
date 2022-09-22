@@ -83,3 +83,5 @@ My vision went red and I let out the loudest, most visceral roar I’ve ever hea
 Well looks like I’m fighting Irene I thought to myself. 
 
 If I don’t update you guys within forty-eight hours I probably lost the fight. Wish me luck I really could use it.
+
+[update 6](https://www.reddit.com/user/ParkRangerBaker/comments/xlcm1d/im_a_park_ranger_and_i_found_a_town_that_doesnt/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
