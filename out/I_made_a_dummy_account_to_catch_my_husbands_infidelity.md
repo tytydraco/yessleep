@@ -1,4 +1,4 @@
-My (28F) husband (30F) thought he was doing great in hiding his cheating, but I know him to well not to notice. 
+My (28F) husband (30M) thought he was doing great in hiding his cheating, but I know him to well not to notice. 
 
 I’m not here for sympathy, I’m here to ask for help. 
 
