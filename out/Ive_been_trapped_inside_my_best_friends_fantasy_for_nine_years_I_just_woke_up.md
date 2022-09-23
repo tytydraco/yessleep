@@ -337,7 +337,7 @@ The smile on her face was plastic. Everything about her was plastic, from superf
 
 I was moving away from her, my body working on its own. Autopilot. I kept going up the stairs. Photo frames were covering the walls. Each one I saw my own smiling face. I saw what I was supposed to look like. But my face kept morphing. Changing. Growing older in each one.
 
-I saw different styles. Colors in my hair. Make up. No makeup. Smiling and not smiling. Laughing and glaring at the camera. I wasn’t alone. In all these photos were two faces I knew from the younger photos. Twelve years old. But I also saw them at 13, and then 14, 15, 16, 17… it kept going, and my breath was thinning. Isadora’s red hair turned brown, and then black, and then half pink and pastel blue— before settling on a neat ponytail. Callen’s curls grew out until he settled on a ponytail, before cutting and styling it in sophomore year where he adopted more handsome features and lost his baby face. 
+I saw different styles. Colors in my hair. Make up. No makeup. Smiling and not smiling. Laughing and glaring at the camera. I wasn’t alone. In all these photos were two faces I knew from the younger photos. Twelve years old. But I also saw them at 13, and then 14, 15, 16, 17… it kept going, and my breath was thinning. Isadora’s red hair turned brown, and then black, and then half pink and pastel blue— before settling on a neat ponytail. Callen’s curls grew out until he settled on a short style, before cutting and styling it in sophomore year where he adopted more handsome features and lost his baby face. 
 
 I noticed every photo was the same. Our smiles were the exact same, our eyes not quite meeting the camera. My manicured nails were in my hair, and I was clawing, like I could wake myself up. High school homecoming, I wore a pink dress and posed with my arms wrapped around a laughing Callen and Isadora. I squinted. 
 
@@ -347,21 +347,19 @@ Rich Bitch.
 
 She was… beautiful.
 
- And not just because she was attractive; dark blonde hair curled and styled—- in each photo we were flawed to push her up. Junior prom, Isadora’s dress looked like a curtain, so Emmaline looked like she was walking the Met Gala. At some point I’d shaved my eyebrows off, so her makeup perfectly captured the camera. The photos kept going, an endless string of memories which weren’t mine. Which belonged to the stranger who lived in this house. The strangers whose friends had grown up and left me in the past. The stranger who wore expensive dresses and owned a phone which looked like it had been plucked directly from the future. 
+ And not just because she was attractive; dark blonde hair curled and styled—- in each photo we were flawed to push her up. Junior prom, Isadora’s dress looked like a curtain, so Emmaline looked like she was walking the Met Gala. At some point I’d shaved my eyebrows off, so her makeup perfectly captured the camera. The photos kept going, an endless string of memories which weren’t mine. Which belonged to the stranger who lived in this house. The stranger whose friends had grown up and left me in the past. The stranger who wore expensive dresses and owned a phone which looked like it had been plucked directly from the future. 
 
 There were vacations. Halloween. Christmas and birthdays. I could feel myself slowly moving back, my stomach twisting. As we grew up, we got closer and closer, until we were practically bound at the hip. I pulled off a photo of Emmaline and Callen. And then another. And another. Each photo progressed, a blossoming relationship forming, from the two of them sharing looks and flirty smiles. From holding hands and looking awkward at fifteen, to practically straddling each other at seventeen. And in each one, Callen looked more and more brain dead.
 
 Like he wasn’t even there anymore.
 
-There was a mirror on the wall I had been avoiding, and finally I was seeing myself. My fully grown self I couldn’t deny anymore. Blood spattered my temple, and my eyes were blood shot. But I was definitely an adult. My teenage life was right in front of me, and it meant nothing to me. A scream clawed at my throat. I had to get out. I had to get out of that house.
-
-A scream clawed at my throat. I had to get out. I had to get out of that house.
+There was a mirror on the wall I had been avoiding, and finally I was seeing myself. My fully grown self I couldn’t deny anymore. Blood spattered my temple, and my eyes were blood shot. But I was definitely an adult. My teenage life was right in front of me, and it meant nothing to me. A scream clawed at my throat. I had to get out. I had to get out of that house..
 
 There was a note on the refrigerator in moms handwriting:
 
 “Stella has control of the TV tonight. Don’t argue with Daniel, please. At least try and get along.”
 
-“You saw the note.” A voice. A boy was standing in the doorway. Maybe 17 or 18. He grabs food and steps away. “Stella has the TV, and I’m one year younger than you so you have to watch her. I’ll be in my room where I’m neither seen nor heard.”
+“You saw the note.” A voice. A boy was making his way over to the refrigerator. Maybe 17 or 18. He grabbed food and steped away. “Stella has the TV, and I’m one year younger than you so you have to watch her. I’ll be in my room where I’m neither seen nor heard. Since that's the way you like it, Gab's."
 
 I stepped in front of him. 
 
@@ -373,7 +371,7 @@ My cheeks were burning. “How do you know my mom? Why are you… why are you in
 
 For a moment his expression seemed to flicker, his lip curling. Before he smiled widely. 
 
-But his gaze wasn’t on me. It was on each corner of the ceiling, like he was searching for something. The kid pushed me out of the way, before scooping half of the refrigerator into his arms. “Didn’t you tell me never to make eye contact with me or you’ll scoop my eyes out?” He backed away. “Your words. Not mine.”
+But his gaze wasn’t on me. It was on each corner of the ceiling, like he was searching for something. The kid pushed me out of the way, before scooping half of the refrigerator into his arms. “Didn’t you tell me never to make eye contact with you or you’ll scoop my eyes out?” He backed away. “Your words. Not mine.”
 
 “What’s going on, Gabby? Did you get the lemon frosted cupcakes?”
 
