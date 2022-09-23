@@ -1,3 +1,5 @@
+*Don't ever do it...*
+
 Everytime the “Ghouls Challenge” gets posted on no sleep, odd directions or any other subreddit dedicated to horrifying tales and experiences the mods take it down. For good reason too. I shouldn't even talk about this story considering there have been at least forty nine deaths as a result of this challenge. 
 
 If you haven't read the story, it's about someone who had to do a report on the origins of their town during highschool. During this person's school assignment they came across an old journal in the library, since it didn't belong to the library the author of this macabre tale just took it home with them. The journal belonged to a pastor named Jebidiah Crowe and revealed a past rife with sin and evil.
