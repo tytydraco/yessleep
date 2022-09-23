@@ -28,11 +28,11 @@ Unfortunately, there isn’t instant relief like I hoped there would be, but I c
 
 Thank God for generic brand ointments. 
 
-Instead of throwing the tub back into the drawer, I leave it laying on my vanity next to my hairbrush. I know I’ll need it again later because one use is not going to stop the incessant itching of these bites— they’ll fight until their very last breath.
+Instead of throwing the tube back into the drawer, I leave it laying on my vanity next to my hairbrush. I know I’ll need it again later because one use is not going to stop the incessant itching of these bites— they’ll fight until their very last breath.
 
 Damn mosquitoes.
 
-The more then cream sinks into the agitated area of my skin, the more relief washed over me. The intense itching has become more of a dull throb now. I’m definitely able to bear it without scratching. Tonight I’ll probably take Benadryl so I’m not woken up by the itching either. I can’t stand how crazy it makes me.
+The more the cream sinks into the agitated area of my skin, the more relief washes over me. The intense itching has become more of a dull throb now. I’m definitely able to bear it without scratching. Tonight I’ll probably take Benadryl so I’m not woken up by the itching either. I can’t stand how crazy it makes me.
 
 A shiver trails up my spine and I try to shake it off, making my way to the kitchen. Logan will be home soon from work, and I’m starving, so cooking sounds like a great way to take my mind off everything between the mosquito bites and cleaning up Logan’s messes. 
 
@@ -46,11 +46,11 @@ Eventually, I pull up Facebook and scroll through my feed, seeing Logan’s mom 
 
 I like them— the pictures; they remind me just how easy it is to throw on a smile for a quick snapshot that takes up a millisecond of time to show just how happy your life is, when in reality you feel trapped in a body that must be someone else's. You were supposed to be independent and move far away from your small town— not run back to it with open arms, married to your high school sweetheart of ten years.
 
-I’m so lost in thought, I don’t notice I’m scratching the bites on my leg until it’s too late. I’ve drawn blood. In fact, one of the bites has bursted open and is pouring blood and pus and some strange clear liquid. My fingers and nails are coated in a conglomeration of each. 
+I’m so lost in thought, I don’t notice I’m scratching the bites on my leg until it’s too late. I’ve drawn blood. In fact, one of the bites has burst open and is pouring blood and pus and some strange clear liquid. My fingers and nails are coated in a conglomeration of each. 
 
 I make a gagging noise in the back of my throat, thinking I’m going to be sick, so I run to the bathroom and wash my hand off with scalding hot water, scrubbing my nails, my cuticles, my knuckles, and everything in between. 
 
-The blood and pus has run down my leg so I reach into the medicine cabinet hanging between our vanities and grab the hydrogen peroxide. I use a towel to sop up the mess on my leg, pouring peroxide on the wound as I go. It burns. Bad. Sizzling in pain. I wince, seething through my teeth. I pour more. I pour and pour until eventually, the wound doesn’t bubble up anymore and I’m able to pat it dry with a new washcloth and place a band aid on the infected area. So much for not scratching the bites. 
+The blood and pus have run down my leg so I reach into the medicine cabinet hanging between our vanities and grab the hydrogen peroxide. I use a towel to sop up the mess on my leg, pouring peroxide on the wound as I go. It burns. Bad. Sizzling in pain. I wince, seething through my teeth. I pour more. I pour and pour until eventually, the wound doesn’t bubble up anymore and I’m able to pat it dry with a new washcloth and place a band aid on the infected area. So much for not scratching the bites. 
 
 In my rush to clean myself up, I must’ve not heard Logan come through the front door because I see him in the mirror, standing in the doorway to the bathroom.
 
@@ -110,13 +110,13 @@ Out of the corner of my eye, I notice Logan scrambling to find what I think is a
 
 My stomach roils and I lean over the bed, vomiting up everything we ate for dinner. Chunks of red noodles and granules of cheese hack their way out of my stomach and into a pile on the carpet. I cough aggressively after everything comes up, spitting the leftover bile onto the carpet with the rest of the mess. That’s when I notice it.
 
-A lone mosquito on top of the pile of vomit, rubbing its front legs together, preparing to take off. I can feel the blood drain out of my face. My stomach twists in pain. I vomit again, this time sending a couple more mosquitos shooting out of my body. But they aren’t just coming out of my throat; they’re coming out of the pustules too. 
+A lone mosquito on top of the pile of vomit, rubbing its front legs together, preparing to take off. I can feel the blood drain out of my face. My stomach twists in pain. I vomit again, this time sending a couple more mosquitoes shooting out of my body. But they aren’t just coming out of my throat; they’re coming out of the pustules too. 
 
 It’s dozens of mosquitoes at first, flying out one by one like each burst of a bite is hatching one egg after the other. Logan is standing farther away from the bed now, unsure of what to do. To be honest, I’m not sure I want him near me anyway. 
 
 More mosquitoes make their way out of me. There’s hundreds, maybe thousands. One by one they fly out of the holes in my body, fly out of my vomit on the floor, buzzing and whirring around the room. I feel like I might pass out. 
 
-At some point I think Logan opens the window because, with time, the amount of mosquitos lessens within the room. They must be going outside to find their next victim. In the distance, I can hear the screeching noise of what sounds like an ambulance siren.
+At some point I think Logan opens the window because, with time, the amount of mosquitoes lessens within the room. They must be going outside to find their next victim. In the distance, I can hear the screeching noise of what sounds like an ambulance siren.
 
 I think I see red, flashing lights, but I don’t register anything because within the next few moments, I pass out from exhaustion.
 
