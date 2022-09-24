@@ -410,7 +410,9 @@ His words flew right past me.
 
 Cal sighed, pulling out his phone. “Gabriella, relax.” He said, “I’ll call Emmaline.”
 
-“No!” I slapped the phone out of his hand and grabbed him. "Cal, I’m scared. I’m really scared, and I don’t know what’s happening." I spat out in a hiss. I wasn't expecting him to react the way he did, his eyes flashing like something was coming alive-- it was that same light. The same one I'd seen in the dark. He blinked, and the light flickered out, but I sensed it was still there circling his iris. I backed away when his expression seemed to darken before he lunged forward, wrapping his hand around my throat--squeezing. 
+“No!” I slapped the phone out of his hand and grabbed him. "Cal, I’m scared. I’m really scared, and I don’t know what’s happening." I spat out in a hiss. I wasn't expecting him to react the way he did, his eyes flashing like something was coming alive-- it was that same light. The same one I'd seen in the dark. He blinked, and the light flickered out, but I sensed it was still there circling his iris. I backed away when his expression seemed to darken before he lunged forward, wrapping his hand around my throat--squeezing until I was... I was choking. 
+
+He was going to kill me. 
 
 Black spots danced in my eyes. I felt him lift me, but my own body was working against me, kicking into a reaction I didn’t understand. I slammed my head into his and he stumbled back, grabbing for a knife. I only manged to see it slice through the air, a silver blur, before my hand whipped out and I caught it. Just like a movie. For a moment I was baffled, and kind of excited by my own reflexes, though reality settled in, and I dropped it. Before it could hit the ground, though, he got the upper hand, ducking and grabbing the blade and slamming the teeth into my exposed throat. “Concussion, Gabby?” Cal gasped out, his blazing eyes searching mine. “You’re bleeding. Which means something has become undone.”
 
