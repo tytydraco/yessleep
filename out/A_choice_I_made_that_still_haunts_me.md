@@ -1,4 +1,4 @@
-Obligatory “this is happened 40 years ago”.Throwaway, because I don’t want people of my life back then to find me.
+Obligatory “this has happened 40 years ago”.Throwaway, because I don’t want people of my life back then to find me.
 
 I meant to talk about this for a while, and though I (M64, 24 at the time) never said anything to anyone in person, I think reddit might be the and best place to get this out of my chest and maybe use the kindness, or judgment of strangers, to get a sense of where I could have done something more
 
