@@ -72,7 +72,7 @@ I’ve been drinking for a while. This isn’t the first time I’ve woken up so
 
 The nurse comes into the room. She’s asking me questions – and refusing to answer mine. She leaves without revealing anything. 
 
-She left breakfast tray. I open the heat lid. What should have been breakfast was a plate of a thousand writhing maggots. I throw the tray across the room in disgust.
+She left a breakfast tray. I open the heat lid. What should have been breakfast was a plate of a thousand writhing maggots. I throw the tray across the room in disgust.
 
 It lands at the feet of a family - a husband and wife sitting with their two children between them. 
 
