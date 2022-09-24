@@ -258,10 +258,9 @@ I didn’t mean to say that. I meant to slam my hand over my mouth, but my hands
 Her smile split open her face. She leaned close to me with wide eyes. “No, you said I had no friends.”
 
 “You don’t.” I spat. “You’re a rich bitch and you suck. You look down on kids like me. You look down on me because I don’t have nice clothes and a nice house— “
+I clamped my mouth shut before I could say anything else. My thoughts were no longer private. I expected her to get upset, maybe slap me, but the prick of her smile only turned my gut. A buzzing sound and the bed I was on started to move, reclining, so I was staring at the ceiling. Above me, Emmaline held something which perfectly melded into her palms.
 
-I clamped my mouth shut before I could say anything else. My thoughts were no longer private. I expected her to get upset, maybe slap me, but the prick of her smile only turned my gut. A buzzing sound and the bed I was on started to move, reclining, so I was staring at the ceiling. 
-
-Above me, Emmaline held something which perfectly melded into her palms. A drill in one hand, and a weird circular metal thing in the other. “I need to do some cutting first.” She said, frowning at the thing in her hand, dragging her finger across the butt. “According to that episode of Teen Titans with the mind control, I need to do some work here,” Emmaline’s finger stabbed me in the back of the head. “And then you’ll be my best friend’s forever.” She giggled. “You said I had no friends, Gabby. But I’ve had you all along. We’re all going to be best friends! You, me, Isadora, and Cal.”
+ A drill in one hand, and a weird circular metal thing in the other. “I need to do some cutting first.” She said, frowning at the thing in her hand, dragging her finger across the butt. “According to that episode of Teen Titans with the mind control, I need to do some work here,” Emmaline’s finger stabbed me in the back of the head. “And then you’ll be my best friend’s forever.” She giggled. “You said I had no friends, Gabby. But I’ve had you all along. We’re all going to be best friends! You, me, Isadora, and Cal.”
 
 She pointed across the room, and I struggled to twist around. Callen and Isadora were on the other side, covered in white sheets. They weren’t moving. I opened my mouth to cry out to them, but then I saw the red splatters, the pooling darkness on the floor. 
 
@@ -299,7 +298,9 @@ I only woke up once following that day. I was somewhere between the ages of 15-1
 
 I vaguely remember him crying out, a twelve-year-old stuck inside a teenager’s body. I remember how scared he sounded, the terror in his voice as he begged to be let go. The second time it was me, but he was awake too. Maybe that was a fault. I think when one woke up, so did the others. I was back in that room, and the spike was in my head, but clarity was there. And it was enough to move my own head around and blink my own eyes. Twisting around in the restraints which held me, I only saw a body trembling under a white sheet. 
 
-A shadow loomed over my friend’s head which was exposed, pearly white bone glinting in the dim light. I saw the blade of the saw dig deep into his head as the drilling continued, endless, while shards of his skull and splashes of deep, dark red spiraled in the air. I twisted back around and closed my eyes. I begged for the darkness to take me again—and it did. When they realised I too was crying, sobbing, shaking, they switched me back on. I’m not sure what point it was that I snapped out of it for the final time.
+A shadow loomed over my friend’s head which was exposed, pearly white bone glinting in the dim light. I saw the blade of the saw dig deep into his head as the drilling continued, endless, while shards of his skull and splashes of deep, dark red spiraled in the air. I twisted back around and closed my eyes. I begged for the darkness to take me again—and it did. When they realised I too was crying, sobbing, shaking, they switched me back on.
+
+I’m not sure what point it was that I snapped out of it for the final time.
 
 Was it seeing the blinding flash of headlights coming toward me as I smiled mindlessly at a fake world?
 
@@ -375,9 +376,7 @@ But his gaze wasn’t on me. It was on each corner of the ceiling, like he was s
 
 “What’s going on, Gabby? Did you get the lemon frosted cupcakes?”
 
-The voice sent me twisting around. There was a guy standing in the doorway. The same guy I’d seen in the most recent photos with his arms around Emmaline. 
-
-It was like looking at a mannequin in place of my best friend. I could still see Cal’s childhood features, freckles dotting his cheeks and warm brown eyes. But he had a jawline now, his dark brown hair sculpted into a style I knew he’d hate. Dressed in a sherpa jacket over a band shirt and jeans, my best friend who had grown up way beyond me, came to stand in front of me. He reached out, gingerly prodding my temple. “Ouch.” His eyes weren’t even on me, they were somewhere else entirely. I noticed his whole body was rigid, his shoulders straight, stomach out. “Did you get the cupcakes?”
+The voice sent me twisting around. There was a guy standing in the doorway. The same guy I’d seen in the most recent photos with his arms around Emmaline. It was like looking at a mannequin in place of my best friend. I could still see Cal’s childhood features, freckles dotting his cheeks and warm brown eyes. But he had a jawline now, his dark brown hair sculpted into a style I knew he’d hate. Dressed in a sherpa jacket over a band shirt and jeans, my best friend who had grown up way beyond me, came to stand in front of me. He reached out, gingerly prodding my temple. “Ouch.” His eyes weren’t even on me, they were somewhere else entirely. I noticed his whole body was rigid, his shoulders straight, stomach out. “Did you get the cupcakes?”
 
 Daniel slipped away making barfing noises. “And with that, I pay you adieu. The sexual tension is killing me.”
 
@@ -387,7 +386,7 @@ He cocked his head. “Nineteen. Have you been knocked on the head?”
 
  "No. No, I'm twelve. We’re twelve!” I hissed. “Why do you keep asking me about cupcakes?!”
 
-He folded his arms. “You were an accident.” His lip curled, “And I think… something came undone.”
+He folded his arms. “You were in an accident.” His lip curled, “And I think… something came undone.”
 
 His words flew right past me.
 

@@ -194,7 +194,7 @@ We only mobilised once I finally realised what the fucking thing was trying to d
 
 I remember asking the words as we pushed through the glass doors into the hospital’s lobby. The entrance was open for barely a few seconds, but I could feel the entire battalion of armed soldiers behind us tense nervously as we stepped through. Only once the door was shut and locked down did I get the feeling they’d relaxed, but that left my team and I on the other side and even though New Delhi was scorching at that time of year it was cold enough to see our breath. I guess the sudden change in temperature must have taken the others by surprise because I had to repeat my earlier question.
 
-“We definitely got that fucking computer *off* the internet, right?” I asked and one particularly nervous hazmat suit fumbled for their tablet and nodded.
+“We definitely got that computer *off* the internet, right?” I asked and one particularly nervous hazmat suit fumbled for their tablet and nodded.
 
 “The surgical team finished removing the port sixteen hours ago,” they said. “And all other tests have shown there were no redundancies or back ups. Now they’re asking what they should do with the computer scientist?”
 
@@ -202,31 +202,25 @@ I remember asking the words as we pushed through the glass doors into the hospit
 
 “He’s still alive. He’s um, he’s… they’re saying he’s in pain. They think they can remove him from the machine but they’re not sure he’ll survive. It’s uh… it’s apparently integrated itself with most of his nervous system. He *was* in there for six full weeks.”
 
-I shone my light across the lobby and saw overturned chairs lit only by the flashing amber lights that declared the hospital was in a state of emergency. Otherwise the hospital was trapped in an oppressive darkness that seemed ready to swallow us all. Despite my experience, my breath caught in my throat. I could feel it, the ambient pain and misery. Something awful had been let loose and now I was dragged in to clean it up.
+I shone my light across the lobby and saw overturned chairs lit only by the flashing amber lights that declared the hospital was in a state of emergency. Otherwise the hospital was trapped in an oppressive darkness that seemed ready to swallow us all. Despite my experience, my breath caught in my throat. I could feel it, the ambient pain and misery. Something awful had been let loose and not only were we stuck in that building with it, but we had no choice but to head right towards something that gave even me nightmares.
 
 “Leave him,” I said. “It’ll be a good reminder to the next guy I hire. When you negotiate with these things, you don’t give them what they want without checking *why* they want it.”
 
-“But they think it’ll sustain him indefinitely.”
+I could hear the tension in my voice, my fear escaping whether I wanted it to or not. The nervous figure nodded and tapped a few keys. I couldn’t see their face but I guessed they weren't happy to realise their boss was prone to doling out literal lifetimes of unspeakable agony. At least the guards were a bit more focused. Eight of them armed to the teeth and all fairly experienced, they were painting the walls with their flashlights and slowly mapping the different ways in and out of the lobby. They had their own frequency so I wouldn’t be overwhelmed with every bit of chatter, but I could tell from the subtle bobbing of their heads that a lot was going back and forth.
 
-“Then it’ll make for a *very* effective warning,” I said.
-
-The nervous figure nodded and tapped a few keys. I couldn’t see their face but I guessed they weren't happy to realise their boss was prone to doling out literal lifetimes of unspeakable agony. At least the guards were a bit more focused. Eight of them armed to the teeth and all fairly experienced, they were painting the walls with their flashlights and slowly mapping the different ways in and out of the lobby. They had their own frequency so I wouldn’t be overwhelmed with every bit of chatter, but I could tell from the subtle bobbing of their heads that a lot was going back and forth.
-
-“What’s the plan guys?” I asked.
+“What’s the plan guys?” I asked not wanting to linger in that graveyard atmosphere for one second longer.
 
 “We have heat signatures in paediatrics.”
 
 “Survivors?” my assistant asked.
 
-Three of the guards turned to look at me, their mirrored visors somehow communicating expressions of utter contempt.
-
-“No,” I said to my assistant before gesturing to the guards and telling them to pick a door. One of the men turned his weapon and its light towards the most obvious exit and we began our journey into one of the worst places I’ve ever been.
+“I doubt it,” I said to my assistant before gesturing to the guards and telling them to pick a door. One of the men turned his weapon and its light towards the most obvious exit and we began our journey into one of the worst places I’ve ever been.
 
 I’ve seen a lot of awful stuff, but it was the quiet that bothered me the most about that place. Most sites I visit are a violent eruption of body horror and contagious nightmares. Communicable cancer that lumps people together like pieces of raw bread dough. Contagious ideas that cause needles to spontaneously erupt out of your flesh. A hole in the ground that has no bottom but demands the most peculiar sacrifices. I took those sorts of things in my stride, but those silent halls terrified me. Maybe it was because I had an inclination as to what the computer’s goals were…
 
 We passed room after room devoid of any living soul and over time it became clear there had been something of an exodus. Gurneys with blood stains and bed pans knocked over, their contents half-frozen to the floor. IV bags left dripping where the needle had been torn out and left dangling. Blood streaked walls and beds with outlines of sweaty unwell people who were nowhere to be found. At one point we found what I think was an open-heart surgery patient who had heeded the same terrible call as everyone else, including his surgeons who did not bother to close him up. He must’ve woken hours after everyone else, late to the party, but that didn’t deter him. He rolled off the bed and crawled desperately. He didn’t even remove the metal bar holding his rib cage open.
 
-He got a few metres before dying. When I flipped him over with my foot I saw ribs splayed open like an ivory Venus fly trap, his organs covered in a thin veneer of frost. Dead as a door nail, his lips blue and his eyes cloudy from ice, and yet somehow he looked damned happy to be lying there in his own offal.
+He got a few metres before dying. When I flipped him over with my foot I saw ribs splayed open like an ivory Venus fly trap, his organs covered in a thin veneer of frost. Dead as a door nail, his lips blue and his eyes cloudy from ice, and yet somehow he looked damned happy to be lying there in his own offal. I grimaced at the sight and tried to put it out of my mind, but the glee in his eyes still haunts me.
 
 “How far are we from paediatrics?” I asked the guards.
 
@@ -254,7 +248,7 @@ There was a bustle of activity as each one reached to radios and tablets and beg
 
 And it did, until at last there was no floor to see. There was only a carpet of discoloured gowns and broken humans. All of them victims of some unseen compulsion drawing them towards those doors. Two of them. Each with a window painted black with blood and flesh. And just beyond lay our heat signature.
 
-“Oh it fucking did it, didn’t it?” I muttered to myself as I suppressed a shiver.
+“Oh it actually did it, didn’t it?” I muttered to myself as I suppressed a shiver.
 
 “Pardon?” my assistant asked.
 
@@ -264,7 +258,7 @@ And it did, until at last there was no floor to see. There was only a carpet of 
 
 Inside was a little girl who paced like a tiger in a zoo. She didn’t smile when she saw us, but she did stop and stare at us with eyes that could have pierced steel.
 
-“Oh boy,” I muttered.
+“Oh boy,” I muttered, secretly glad no one could see the sweat pouring down my face.
 
 “A survivor?” my assistant asked and I wondered if he paid any attention to his surroundings. Much like outside this room had been coated with what seemed like half-a-foot of blood, meat, and muscle.
 
@@ -282,7 +276,7 @@ He looked closer, perhaps coming to appreciate the absolutely monstrous expressi
 
 “Until?” my assistant asked.
 
-“Until a bunch of idiots in hazmat suits arrived.”
+“Until some arrived to inspect the trap."
 
 “We could… we could just let it go,” he replied.
 
@@ -302,7 +296,7 @@ The girl stopped pacing once more and looked at us.
 
 I knew we’d been compromised the second we saw the girl as a girl and not a scuttling arachnid monstrosity larger than most cars, but I still jumped at the sound of that thing’s voice. It meant it had a direct wire tap into our minds. Angels don’t do wireless. Everything is physical. Somewhere in that room were organic filaments thinner than hair but tougher than steel and they’d already breached our suits and were communicating directly with our brain stems.
 
-“Uhhhh… no,” I replied. “Letting you out means that my final moments will be painful. But you’re weak, that much is clear. And we’ve been pumping all sorts of nasty shit into this place for two days straight and I’m pretty sure that’s why I’m not trapped in a literal nightmare of eternal suffering and degradation.”
+“Uhhhh… no,” I replied. “Letting you out means that my final moments will be painful. But you’re weak, that much is clear. And we’ve been pumping all sorts of nasty stuff into this place for two days straight and I’m pretty sure that’s why I’m not trapped in a literal nightmare of eternal suffering and degradation.”
 
 ***Let me go.***
 
@@ -330,42 +324,48 @@ We don’t even remember them. If it wasn’t for Agatha, neither would I.
 
 ***That makes you livestock.***
 
-“Still, we are at an impasse,” I said. “You’re dying. We’ve made sure of that because some of those same gods provided us with a few useful chemicals. You need *our* active intervention to survive from now, like someone with diabetes needing insulin. I suspect you’re probably not on good terms with the others of your species otherwise they would have told you to avoid these kinds of signals. And if you weren’t before, you definitely aren’t on good terms now. I mean, this whole situation is just going to absolutely destroy your reputation. That’s why you’re so pissed, right? But it doesn’t have to be like that. It doesn’t have to look so bad. What if… what if this is about *you* tricking us?”
+“Still, we are at an impasse,” I said. “You’re dying--"
 
-The girl stopped pacing.
+Even as I spoke I could feel the facade of my plan start to crumble. There was no easy out in this situation, and I'd entered it terrified as to how I was going to make it work. Angels are a sophisticated species and they would be deeply unhappy to know that a bunch of primitives had gotten the better of one of their own. I'd hoped to try out some kind of negotiating, but that'd be like one of us negotiating with a stray dog that had bitten a child. No matter what happened, if this angel died I could count on the others finding me.
 
-***What do you have in mind?***
+And that'd be a best case scenario, living a day or even a week. Unfortunately, I didn't even get that far.
 
-I turned to my assistant.
+Without even appearing to move, the angel unmade the guards. I've thought about this a lot, believe me, but there's no other way I can describe it to you. They were pulled apart into their disparate tissues in the blink of an eye. A bloodless vivisection that struck the room like an explosion. Muscle. Bone. Eyes. Teeth. Skin. Nerve endings. They were thrown against the walls and subsumed into the living carpet of flesh all around us.
+
+I had to suppress a whimper as I realised they were still alive, possibly even aware. Beside me my assistant fell to his knees and began to weep, but I knew that no amount of begging  or praying would change the angel's intentions.
+
+We just had to hope it'd be relatively quick and that the consequences wouldn't be
+
+***Your mind tastes awful,*** it boomed, the words so loud I fell to my knees as my willpower crumbled. ***Not like the others. How amusing. It has been so long since I bothered to keep a pet.***
 
 \-
 
-“It agreed to those terms?”
+“It agreed to your terms?”
 
 My bosses sat before like three judges at a tribunal. A man and two women with faces that looked like they’d been carved out of granite. The board room was supposed to be a professional environment where meetings could be had with other relevant departments, but in truth it just turned into the site of disciplinary meetings like this.
 
-“He agreed, yes,” I replied.
+“Something like that,” I replied.
 
 “Why?” one of them asked.
 
-“He was younger than we thought. Just a few hundred years old. And, thankfully for us, something of a history buff. That’s why he heeded the signal from the hospital in the first place. Apparently the creator is something of a taboo topic in their culture. He was hoping to learn a little more about it all. He’s very thrilled to have access to our interview archives. Some of our residents are older than the solar system so, plenty of juicy stuff there.”
+“He was younger than we thought. Just a few hundred years old. And, thankfully for us, something of a history buff. That’s why he heeded the signal from the hospital in the first place. Apparently the creator is something of a taboo topic in their culture. He was hoping to learn a little more about it all. He has been... *thrilled* to enter our organisation from within and peruse our archives.”
 
 “And none of his… none of the others have come looking for him?” the man asked.
 
-“He uh… he wrote home, so to speak. Told them he has a new hobby. Obviously it’s not in his interest to let them know he has been compromised. If their wider community realised that we had some way of harming them, or manipulating them, they would tear us *and* him to pieces.”
+“No need. He is alive and well and enjoying himself. Business as usual."
 
 There was a knock on the door and I turned to see my assistant poking his head through. He waved and smiled and showed me the tray of coffee he wanted to bring in. I smiled back and gave him a thumb’s up.
 
 “We were always led to believe angels and other Abrahamic abominations were not on the cards for this organisation. Will he have trouble working with the program?” one of my bosses asked as the young man placed the tray down and began to distribute drinks.
 
-“Well unlike others they’re actually very well versed in human mannerisms and our society. Not much rehabilitation to do, really. And of course, they can appear however they want, so long as they have direct line of sight,” I answered. “The only real job is to continue providing the medical assistance necessary for them to survive, and hopefully help them have a relatively pleasant time with us. The idea is to maintain a mutually beneficial relationship.”
+“Well unlike others they’re actually very well versed in human mannerisms and our society. Not much rehabilitation to do, really. And of course, they can appear however they want, so long as they have direct line of sight,” I answered. “A lot of the time they let our mind do the heavy work. We fill in the necessary blanks. If they appear as a policeman, we'll see everything we need to in order to support that idea. Gun. Badge. So on. Ultimately it's our own minds that make their disguises so convincing without them even having to move."
 
 “And what are you calling him, this angel?”
 
 ***Uriel.***
 
-My bosses’ eyes went wide as they processed the voice that had been inserted directly into their mind. One by one they lowered their drinks and turned to face my assistant.
+My bosses’ eyes went wide as they processed the voice that had been inserted directly into their mind. One by one they lowered their drinks and turned to face my assistant. Even I, who had spent days with the walking nightmare, could not suppress a shiver.
 
-“Oh sorry,” he said before coughing to clear his throat. “Force of habit. I like Uriel.”
+“Sorry,” he said before coughing to clear his throat. “Force of habit. I like Uriel.”
 
-“He told me I couldn’t pronounce his name,” I explained. “So I let him pick an appropriate and respectful alternative.”
+“He told me I couldn’t pronounce his name,” I explained as my assistant stood behind me and placed a single hand on my shoulder. I tried to ignore the taste of copper in my mouth, and the intense itch at the back of my neck. “So I let him pick an appropriate and respectful alternative.”
