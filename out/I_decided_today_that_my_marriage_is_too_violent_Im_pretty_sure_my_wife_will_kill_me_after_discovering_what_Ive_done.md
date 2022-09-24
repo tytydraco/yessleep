@@ -70,6 +70,13 @@ Eggers stared at me, eyes sunken. “What the fuck do you have planned?”
 
 I wiped my eyes. Vomit chunks stung my cornea. “It’s probably going to kill us both, and it will probably make things much worse on your son, but it’s the only chance to save him. Now, if you promise to do exactly as I say, you’re going to help me find my bitch of a wife, and we’re going to skin her alive until she [spills every secret](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+-----------------
+
+[The skinning](https://redd.it/xmr06u)
+
+-----------
+
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
