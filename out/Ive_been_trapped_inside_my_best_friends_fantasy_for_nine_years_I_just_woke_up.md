@@ -103,7 +103,7 @@ My parents and I lived in a trailer so it wasn’t hard for someone to break in.
 
 Before I could grab the handle, though, something flew through the smashed window and hit the refrigerator. I picked it up, frowning. An Almond Joy. They were my favorite candy. By the time I’d unwrapped it and stuffed the chocolate into my mouth, I knew who was standing outside. 
 
-1I pulled open the door and stepped out into the freezing cold, cringing I stepped in a dusting of snow settling on the steps. There were two figures standing in the dark. Isadora and Cal. The only kids I could tolerate. The two of them were smiling, but I could see something in their eyes—worry, sympathy, they were trying to hide. They didn’t know about my dad, but they did know I was always hungry. Cal had a pack of Almond Joy’s. “Gabby!” He yelled, peering at me through thick brown hair sticking from his hood. “Where the heck have you been?”
+Pulling open the door, I stepped out into the freezing cold, cringing when I stepped in a dusting of snow settling on the steps. There were two figures standing in the dark. Isadora and Cal. The only kids I could tolerate. The two of them were smiling, but I could see something in their eyes—worry, sympathy, they were trying to hide. They didn’t know about my dad, but they did know I was always hungry. Cal had a pack of Almond Joy’s. “Gabby!” He yelled, peering at me through thick brown hair sticking from his hood. “Where the heck have you been?”
 
 He dramatized a gasp. “She’s aliiiiveeee!”
 
@@ -299,7 +299,7 @@ I only woke up once following that day. I was somewhere between the ages of 15-1
 
 I vaguely remember him crying out, a twelve-year-old stuck inside a teenager’s body. I remember how scared he sounded, the terror in his voice as he begged to be let go. The second time it was me, but he was awake too. Maybe that was a fault. I think when one woke up, so did the others. I was back in that room, and the spike was in my head, but clarity was there. And it was enough to move my own head around and blink my own eyes. Twisting around in the restraints which held me, I only saw a body trembling under a white sheet. 
 
-A shadow loomed over my friend’s head which was exposed, pearly white bone glinting in the dim light. I saw the blade of the saw dig deep into his head as the drilling continued, endless, while shards of his skull splashes of deep, dark red spiraled in the air. I twisted back around and closed my eyes. I begged for the darkness to take me again—and it did. When they realised I too was crying, sobbing, shaking, they switched me back on. I’m not sure what point it was that I snapped out of it for the final time.
+A shadow loomed over my friend’s head which was exposed, pearly white bone glinting in the dim light. I saw the blade of the saw dig deep into his head as the drilling continued, endless, while shards of his skull and splashes of deep, dark red spiraled in the air. I twisted back around and closed my eyes. I begged for the darkness to take me again—and it did. When they realised I too was crying, sobbing, shaking, they switched me back on. I’m not sure what point it was that I snapped out of it for the final time.
 
 Was it seeing the blinding flash of headlights coming toward me as I smiled mindlessly at a fake world?
 
