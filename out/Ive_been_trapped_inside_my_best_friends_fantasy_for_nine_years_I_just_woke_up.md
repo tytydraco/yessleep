@@ -233,7 +233,7 @@ The girl lifted her head, her lips stretched out into a maniacal grin.  “I do
 
 Her eyes were sparkling. “I have you guys. You’re my best friends!” Her words kind of startled me. I looked up to grin at the others, but the world suddenly tilted, and I tipped sideways and landed on one of the plushies. Instead of laughing, my stomach did a funny turn, and I couldn’t get back up. Emmaline, though, was still moving, looming over me. 
 
-She waved the picture album in my face, but my eyes were growing heavy, fathering around the edges.  I couldn’t see. I couldn’t see what she was pointing at. When I tried to heave my body to a sitting position, I crumpled back onto my back—and Emmaline was still laughing, tears rolling down scarlet glowing cheeks.
+She waved the picture album in my face, but my eyes were growing heavy, fathering around the edges.  I couldn’t see. I couldn’t see what she was pointing at. When I tried to heave my body to a sitting position, I crumpled back onto my back—and Emmaline was still laughing, tears rolling down glowing cheeks.
 
 “See!” She squealed. “See!”
 
@@ -270,7 +270,7 @@ Callen was lying on his side. His eyes were closed, and he was pale. He was so p
 
 Her smile was as cruel as mine. “He said I had no friends. So, I’m going to make him into one.”
 
-I couldn’t resist the sob wracking my chest. At that moment, I would have happily apologized to the girl I had terrorized, as long as she took Cal to the hospital. “I want my mom.” I whispered. “Please. Emmaline, I’m sorry. It was just a joke. I didn’t say you had no friends. You do have friends! You were… you were right! We are your friends. Just please let us go—"
+I couldn’t resist the sob wracking my chest. At that moment, I would have happily apologised to the girl I had terrorized, as long as she took Cal to the hospital. “I want my mom.” I whispered. “Please. Emmaline, I’m sorry. It was just a joke. I didn’t say you had no friends. You do have friends! You were… you were right! We are your friends. Just please let us go—"
 
 “Miss Odair?”
 
@@ -280,7 +280,11 @@ The butler’s voice sent me feral, screaming, and wrenching against restraints 
 
 Emmaline’s butler blurred into view. He snatched the drill off of Emmaline with a disapproving frown. “Miss Odair, that is not how you do it,” he said, “we use a bone saw first to cut through the skull and then we implant your mother’s device.”
 
-I screamed, the words twisting my gut. But Emmaline giggled, covering my mouth. “But what about the funny video?”
+I screamed, the words twisting my gut.
+
+Emmaline giggled, covering my mouth. 
+
+“But what about the funny video?”
 
 “That comes after implantation.”
 
@@ -292,11 +296,13 @@ The butler held up the drill-like machine, sticking the circular metal thing ont
 
 All I remember are the spinning blades getting closer and closer, until they were piercing me. Pain flooded me. And my screams grew choked. My body trembled. The man’s hand was holding me down, strapping velcro over my head so I couldn’t move. 
 
-Something sharp was stuck into the back of my head, and my cries grew strangled until I was praying for the darkness. I was praying because I could feel it. I could feel the thing being forced into the back of my skull. I could hear the drilling. I could hear my own screams and Emmaline’s laughter and excited squeak when the Butler passed the drill and saw to her. I’m not going to describe the rest.
+Something sharp was stuck into the back of my head, and my cries grew strangled until I was praying for the darkness. I was praying because I could feel it. I could feel the thing being forced into the back of my skull. I could hear the drilling. I could hear my own screams and Emmaline’s laughter and excited squeak when the Butler passed the drill and saw to her. I’m not going to describe the rest. 
 
 I only woke up once following that day. I was somewhere between the ages of 15-16 and Callen’s strangled screams combined with the sounds of drilling had woken me up. I think it was him who started the pattern of us coming back to fruition. 
 
-I vaguely remember him crying out, a twelve-year-old stuck inside a teenager’s body. I remember how scared he sounded, the terror in his voice as he begged to be let go. The second time it was me, but he was awake too. Maybe that was a fault. I think when one woke up, so did the others. I was back in that room, and the spike was in my head, but clarity was there. And it was enough to move my own head around and blink my own eyes. Twisting around in the restraints which held me, I only saw a body trembling under a white sheet. 
+I vaguely remember him crying out, a twelve-year-old stuck inside a teenager’s body. 
+
+I remember how scared he sounded, the terror in his voice as he begged to be let go. The second time it was me, but he was awake too. Maybe that was a fault. I think when one woke up, so did the others. I was back in that room, and the spike was in my head, but clarity was there. And it was enough to move my own head around and blink my own eyes. Twisting around in the restraints which held me, I only saw a body trembling under a white sheet. 
 
 A shadow loomed over my friend’s head which was exposed, pearly white bone glinting in the dim light. I saw the blade of the saw dig deep into his head as the drilling continued, endless, while shards of his skull and splashes of deep, dark red spiraled in the air. I twisted back around and closed my eyes. I begged for the darkness to take me again—and it did. When they realised I too was crying, sobbing, shaking, they switched me back on.
 
@@ -318,7 +324,9 @@ I turned to him, biting back a hiss when pain sliced across the back of my skull
 
 “How old are you, Gabby?”
 
-I stared down at myself. I looked… different, though I couldn’t put a finger on why. I felt different too. I was wearing a coral-colored dress fitted to my knees and strappy sandals. The clothing was definitely not my style, and way out of my usual price range. Wincing, I ran a hand through tangles of my hair—which was silky and smooth easily slipping through my fingers. I wasn’t used to that. I had to my fingernails through it usually. “Twelve.” I whispered, “And a half. I’m actually almost 13.”
+I stared down at myself. I looked… different, though I couldn’t put a finger on why. I felt different too.
+
+ I was wearing a coral-colored dress fitted to my knees and strappy sandals. The clothing was definitely not my style, and way out of my usual price range. Wincing, I ran a hand through tangles of my hair—which was silky and smooth easily slipping through my fingers. I wasn’t used to that. I had to claw my fingernails through it usually. “Twelve.” I whispered, “And a half. I’m actually almost 13.”
 
 When I tried to get up, the paramedic gently pulled me back to my knees. “Gabby, you’re suffering from concussion,” he said calmly. “We’re going to take you to hospital to get you checked out, okay? Just try to stay still and we’ll get a stretcher.”
 
@@ -328,17 +336,21 @@ The paramedic shook his head. “No, miss, we need to perform a check up to make
 
 I was going to my mom's trailer. My head twitched, my eyes flickering. Pain pounded. It was like my body had a mind of its own. I ended up on the doorstep of a house unfamiliar to me, and yet the key in my pocket fit the lock. The door was open, and I took a hesitant step inside. The house was warm and cosey, and I shouldn’t have felt relief, but I did. Because my body knew this house. “Gabby?” A little girl’s voice shouted. “Gabs, is that you?”
 
-I found the source of the squeaky voice dancing in front of a large flatscreen TV. She turned and flashed me a smile. “Did you bring me a cupcake?” She asked me through a toothy grin. I stared at the little girl— and my gaze caught photo frames on the wall. The little girl was in each one— smiling at the camera. With her was a man, a boy who looked like he was in high school, and..
+I found the source of the squeaky voice dancing in front of a large flatscreen TV. 
+
+She turned and flashed me a smile. “Did you bring me a cupcake?” She asked me through a toothy grin. I stared at the little girl— and my gaze caught photo frames on the wall. The little girl was in each one— smiling at the camera. With her was a man, a boy who looked like he was in high school, and..
 
 My head pounded again.
 
 Mom.
 
-The smile on her face was plastic. Everything about her was plastic, from superficial looking hair which looked like it had been styled by an actual professional, and clothes which clung to her in all the right places. I only knew mom who wore baggy sweaters and oversized jeans.  The girl lost her smile. “You look funny.” She giggled. “Did you hurt yourself?”
+The smile on her face was plastic. Everything about her was plastic, from superficial looking hair which looked like it had been styled by an actual professional, and clothes which clung to her in all the right places. I only knew mom who wore baggy sweaters and oversized jeans.  The girl lost her smile. “You look funny. Did you hurt yourself?”
 
-I was moving away from her, my body working on its own. Autopilot. I kept going up the stairs. Photo frames were covering the walls. Each one I saw my own smiling face. I saw what I was supposed to look like. But my face kept morphing. Changing. Growing older in each one.
+I was moving away from her, my body working on its own. Autopilot. I kept going up the stairs. 
 
-I saw different styles. Colors in my hair. Make up. No makeup. Smiling and not smiling. Laughing and glaring at the camera. I wasn’t alone. In all these photos were two faces I knew from the younger photos. Twelve years old. But I also saw them at 13, and then 14, 15, 16, 17… it kept going, and my breath was thinning. Isadora’s red hair turned brown, and then black, and then half pink and pastel blue— before settling on a neat ponytail. Callen’s curls grew out until he settled on a short style, before cutting and styling it in sophomore year where he adopted more handsome features and lost his baby face. 
+Photo frames were covering the walls. Each one I saw my own smiling face. I saw what I was supposed to look like. But my face kept morphing. Changing. Growing older in each one.
+
+ I saw different styles. Colors in my hair. Make up. No makeup. Smiling and not smiling. Laughing and glaring at the camera. I wasn’t alone. In all these photos were two faces I knew from the younger photos. Twelve years old. But I also saw them at 13, and then 14, 15, 16, 17… it kept going, and my breath was thinning. Isadora’s red hair turned brown, and then black, and then half pink and pastel blue— before settling on a neat ponytail. Callen’s curls grew out until he settled on a short style, before cutting and styling it in sophomore year where he adopted more handsome features and lost his baby face. 
 
 I noticed every photo was the same. Our smiles were the exact same, our eyes not quite meeting the camera. My manicured nails were in my hair, and I was clawing, like I could wake myself up. High school homecoming, I wore a pink dress and posed with my arms wrapped around a laughing Callen and Isadora. I squinted. 
 
