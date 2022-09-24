@@ -1,0 +1,21 @@
+Hey guys. Reading all of your experiences made me want to share mine.
+
+This experience has made me a believer, but is also something I once in a while have insanely vivid nightmares about.
+
+So I’m from this small town in the middle of Denmark, and my grandfather used to live about 10 kilometers from us. He was what you would roughly translate as a nature caretaker. He lives at the place, and gets paid to take care of it. The place he lived was in a protected area in the forest, just where denmarks biggest river meets a huge lake. The place had a lot of old buildings, an old paperfactory and a watermill. It used to be run by the munks of The Benedictine Order. They build the mill to utilize the water stream, to power the machines at the paper factory. The place is basically called The Monastery Mill. Most buildings are from late 1500-1700, but some are from the 1100.
+All up till the 1800 the place was run by the munks. On the other side of the river lived The Nuns of the Benedictine Order, who were said to have a bad relationship to the munks. 
+
+I know this is a lot of info, but it will make sense in the end I promise.
+
+No one knows what started this feud, firstly it was small, food would go missing from the munks stock. Then the water mill would stop, and they would realize an insane amount of wood was blocking the water, lastly they would wake up to cattle and chickens killed. And one night the paper factory (which was build entirely of wood) was set on fire. Since that day, no one saw the munks, everyone thought they had left the mill to go somewhere else, as the order had many monasteries across the country.
+
+Well then 4 years ago when I had just turned 18, my grandad was going hunting in Sweden. He asked me if I could take care of his place and his dogs for a couple of days. And since I didn’t have a car yet, I would just slept there and take the bus to school in the morning. The place is beautiful, and I was so excited to spend some time there. When I went to sleep the first night, I was woken up at exactly 12 o’clock by what sounded like a small church bell. It rang for a couple of minutes and then it stopped. A small bell the munks used to use to call to mass was just outside my grandads house, so I assumed that was what I heard.
+
+But when I woke up the next morning and checked out the bell, it was tied tightly, so no wind (or person) would have made the bell ring. The next night it happened again, woke me up exactly at 12 and rang for a couple of minutes. I slowly made my way to the front door (which was made of glass) to look at the bell, and there were my grandads two dogs, looking out while growling. And I swear to god when I looked out, I saw a bald man wearing a long white dress/robe disappearing into the woods, almost like he was floating.
+I called my dad SOBBING asking him to come pick me up and he did.
+
+We both went back the next day, checked on the bell and it was tied up still. My dad then confided in me that even though he doesn’t believe “that stuff”, that he had had many weird experiences as a kid there, that he still couldn’t find no possible explanation to.
+
+Fast forward to last year, my grandad was still living there and the council decided to split the river and make it wider. Had something to do with the forest environment, I didn’t really get exactly why. It took weeks for them to plan it out, and then the day when they came with all machinery to start the expansion they only worked for a couple of hours until they had to stop the work. As they were digging they had found a couple of bones, no big deal, but what they soon realized was that by the river on the munks side, was dug a mass grave. After a specialist team and weeks of digging, they approximated that the grave had about 40 bodies, ALL from the 1800. And soon realized that the munks never went away, they actually stayed there forever.
+
+My grandad moved away after that, he was present through all of this, and it took a toll on him realizing that he had been living right next to that almost his whole life. Both my dad and grandad grew up there, and I have spent countless days that place. But since they found what they did, I haven’t been back.
