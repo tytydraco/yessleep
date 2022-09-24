@@ -412,16 +412,16 @@ Cal sighed, pulling out his phone. “Gabriella, relax.” He said, “I’ll ca
 
 “No!” I slapped the phone out of his hand and grabbed him. "Cal, I’m scared. I’m really scared, and I don’t know what’s happening." I spat out in a hiss. I wasn't expecting him to react the way he did, his eyes flashing like something was coming alive-- it was that same light. The same one I'd seen in the dark. He blinked, and the light flickered out, but I sensed it was still there circling his iris. I backed away when his expression seemed to darken before he lunged forward, wrapping his hand around my throat--squeezing. 
 
-Black spots danced in my eyes. I felt him lift me, but my own body was working against me, kicking into a reaction I didn’t understand. I slammed my head into his and he stumbled back, grabbing for a knife. I only manged to see it slice through the air, a silver blur, before my hand whipped out and I caught it. Just like a movie. For a moment I was baffled, and kind of excited by my own reflexes, though reality settled in, and I dropped it. Before it could hit the ground, though, he got the upper hand, ducking and grabbing the blade and slamming the teeth into my exposed throat.
-
-“Concussion, Gabby?” Cal gasped out, his blazing eyes searching mine. “You’re bleeding. Which means something has become undone.”
+Black spots danced in my eyes. I felt him lift me, but my own body was working against me, kicking into a reaction I didn’t understand. I slammed my head into his and he stumbled back, grabbing for a knife. I only manged to see it slice through the air, a silver blur, before my hand whipped out and I caught it. Just like a movie. For a moment I was baffled, and kind of excited by my own reflexes, though reality settled in, and I dropped it. Before it could hit the ground, though, he got the upper hand, ducking and grabbing the blade and slamming the teeth into my exposed throat. “Concussion, Gabby?” Cal gasped out, his blazing eyes searching mine. “You’re bleeding. Which means something has become undone.”
 
 I struggled under his weight and planted my left foot into his gut, shoving him back. When he stumbled, I grabbed the closest thing I could snatch up, a fork, and held it, prongs out. The perfect weapon. 
 
 If it went in his eye. There were other pressure points which would fit, easily buckling his legs. Instead of giving in to that urge burning inside my brain, I let the fork slip through my fingers. Though once he knew I was backing down, he snapped again, lunging forward, perfectly poised on his toes. He grabbed me by the hair and slammed my head into the counter. 
 
-Pain exploded. But it only motivated my next move. With him straddling my body, and pinning me to the countertop, I snatched up the closest thing I could grab--a frying pan. “Listen to me!” I squeaked, waving the damn thing. When he directed a punch at my face, I ducked, and wrapped my arms around his waist, slamming him into the refrigerator. He crumpled finally, but his body was still squirming, like there was something alive underneath his skin. With him pinned to the silver base of the fridge, I finally managed to spit out words.
+Pain exploded. But it only motivated my next move. With him straddling my body, and pinning me to the countertop, I wrapped my fingers around a frying pan. “Listen to me!” I gritted out. When he directed a punch at my face, I ducked, and wrapped my arms around his waist, slamming him into the refrigerator. 
 
-"Cal." I gasped out, trying to ignore his gritted teeth and the feral look taking over his expression.
+He crumpled finally, but his body was still squirming, like there was something alive underneath his skin. With him pinned to the silver base of the fridge, I finally managed to spit out words. "Cal." I gasped out, trying to ignore his gritted teeth and the feral look taking over his expression. Inhuman. I'd never seen anything like it. Like he was possessed. 
+
+Like I was possessed. 
 
 "You've got to tell me what’s going on.”

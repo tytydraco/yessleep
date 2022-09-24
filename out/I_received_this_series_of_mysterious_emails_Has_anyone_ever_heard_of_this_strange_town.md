@@ -20,7 +20,7 @@ Here is the first letter, reposted in its entirety:
 
 *I am writing this letter in the hopes of finding others out there who have experienced the same strange and horrifying occurrence that I shall relate below. My suspicion is that there is a community of other survivors out there. With your help, perhaps we can come together, share our stories, and through this process begin to understand what happened to us, who was responsible, and what their larger agenda might be. In this way we can heal. But also, I believe we must warn others of the hidden dangers lurking among us. As I now know…*
 
-*No one is safe.*
+***No one is safe.***
 
 *My story begins in Bennington, Vermont. A small town in the foothills of the Green Mountains. I was raised there. A friendly sort of town where everyone knows your name and your business. This does make for its share of rumors, including a few unkind ones that circulated about me from time to time, but that’s beside the point.*
 
@@ -52,7 +52,7 @@ Here is the first letter, reposted in its entirety:
 
 *“Here’s a baseball bat. You keep this under your bed,” I told him. “And if that monster, or whatever-it-is, shows up you hit him in the head with this bat. Don’t hit him too hard though, you might hurt him. You don’t want to hurt him, do you?” My goal was to make him feel empowered, that the monster was more scared of him than he was of it. But it didn’t take. He was still scared, despite my best efforts.*
 
-*Just as I was coaching him up on how to swing the bat —* *something shot past the window so fast I nearly had a heart attack*\*.\*
+*Just as I was coaching him up on how to swing the bat —* ***something shot past the window so fast I nearly had a heart attack.***
 
 *Now I have to admit, I didn’t see it clearly. I just saw a shape. And I heard a clatter on the roof as it scrambled down the shingles and onto the grass below.*
 
@@ -92,7 +92,7 @@ Here is the first letter, reposted in its entirety:
 
 *It said: “Whooorrrrrryoooo.”*
 
-*It was mimicking me*\*.\*
+***It was mimicking me.***
 
 *Again I had that sense of otherworldly fear. I didn’t want to run. I didn’t want to show weakness. It wanted me to know it was there. It wanted to make me think* ***it was human.***
 
@@ -128,7 +128,7 @@ Here is the first letter, reposted in its entirety:
 
 *I didn’t know who she meant. I knew of no Shepherd family in the region. But I didn’t even know if she meant the name of some people or actual shepherds. Then I noticed what she was holding in her hand. It was a knife. More of a makeshift shank to be honest, with a taped-up handle. She lifted it up to show me.*
 
-*There was blood on that knife.*
+***There was blood on that knife.***
 
 *“I got one of them sombitches,” she said, through the faintest trace of a smile. Before I could ask her to explain, her stare became fixed and the smile drifted away. She was gone. She died right there in my arms.*
 
