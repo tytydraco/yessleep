@@ -6,7 +6,7 @@ I’m afraid to ask for a different housing placement because I’m scared that 
 
 My building is beautiful, defined by elaborate stone ceilings, chandeliers, stained glass windows. It’s right off the Green Line and the location is perfect for me.
 
-I’m incredibly lucky, I tell myself each night as I try to ignore the things behind the wall screaming again. I should be grateful.
+I’m incredibly lucky, I tell myself each night as I try to ignore the things behind the wall as they screech and wail. I should be grateful.
 
 This wasn't always an apartment building -- it used to be another sort of building, back when it was built in the early 1800s, but I forget what. It sat abandoned for a long time, but they've restored it nicely. I’ve had a hard time getting food and other deliveries here – some people will say that apartment building is still on the map under some other name, others have claimed the address doesn’t exist at all, which is kind of funny – you’d think it’d be either one or the other.
 
