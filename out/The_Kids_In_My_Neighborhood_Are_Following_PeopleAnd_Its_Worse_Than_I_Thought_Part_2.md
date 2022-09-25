@@ -4,6 +4,8 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/xlquaz/the_kids_in_my_neighborhood_are_following/)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/xnh2yz/the_kids_in_my_neighborhood_are_following/)
+
 Before all this started, I never paid much attention to young people. I didn’t give a damn if they played their music too loud or walked across my lawn. They’d do their thing, I figured, and I’d do mine. But ever since a group of kids started stalking people–me included–I’ve begun to notice something very wrong with the youth in my town.
 
 At first, I couldn’t put my finger on what it was.
