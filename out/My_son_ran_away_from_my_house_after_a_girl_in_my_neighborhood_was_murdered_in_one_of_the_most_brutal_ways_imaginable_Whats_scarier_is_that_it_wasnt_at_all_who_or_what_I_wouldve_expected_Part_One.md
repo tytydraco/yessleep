@@ -211,3 +211,7 @@ I closed my eyes and took a deep breath. "Y-Yes sir."
 "Thank you, and I'm gonna have my partner here posted outside your house, in case he comes back or somebody else comes around that shouldn't be." I nodded my head. "Don't worry, Mr. Warren, we'll find him." I just kept nodding.
 
 *Please, God, find him and bring him home!*
+
+[Next](https://www.reddit.com/r/nosleep/comments/xn9x8t/my_son_ran_away_from_my_house_after_a_girl_in_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
+
+r/CorpseChildGospels
