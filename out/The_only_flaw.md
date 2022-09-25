@@ -48,13 +48,9 @@ I didn't work that day and stayed in bed eating pizza and watching horror movies
 
 As we were talking, I looked out the window and saw a woman coming up the walkway. As James prattled on about his day in the phone, the woman and I made eye contact. 
 
- 
+&#x200B;
 
-The woman continued approaching the door and passed out of my line of vision.
-
- 
-
-I hastily got off the phone, got dressed and waited for the doorbell to ring. I felt like a prisoner going to my execution.
+The woman continued approaching the door and passed out of my line of vision. I hastily got off the phone, got dressed and waited for the doorbell to ring. I felt like a prisoner going to my execution.
 
 &#x200B;
 
@@ -90,7 +86,7 @@ When I got home that day after work, the woman from the day before was standing 
 
 &#x200B;
 
-I invited her inside and she told me everything, how she and "Robert" met, their subsequent engagement and dream wedding. They were going to start a family once Robert got transferred to a desk position. As it were his job took him on the road three weeks out of the month. The pay was good, but she might as well be a single mother with that kind of schedule.
+I invited her inside and she told me everything, how she and "Robert" met, their subsequent engagement and then dream wedding. They were going to start a family once Robert got transferred to a desk position. As it were his job took him on the road three weeks out of the month. The pay was good, but she might as well be a single mother with that kind of schedule.
 
 &#x200B;
 
@@ -162,7 +158,7 @@ James chuckled. "So you finally met my wife."
 
 &#x200B;
 
-I could tell he was still not taking this seriously. James was the type who could never see the bad in other people. He didn't believe in evil. I felt as if I had lost him already.
+I could tell he was still not taking this seriously. James was the type who could never see the bad in other people. He didn't believe in evil. 
 
 &#x200B;
 
@@ -174,7 +170,7 @@ It was a warm April day but the chills ran down my back. "I don't know," I said.
 
 &#x200B;
 
-In my previous life I was a realtor. I sold houses, a lot of houses. I made more money than I knew what to do with and then I met David.  He lived in a sort of artistic squalor with a vast and confusing array of friends, and was as elegant and fragile as a hothouse plant. I was fascinated by him at first sight; he was so different from the kind of people I knew in the world of real estate. 
+In my previous life I was a realtor. I sold houses, a lot of houses. I made more money than I knew what to do with and then I met David.  He lived in a sort of artistic squalor with a vast and confusing array of friends, and was as elegant and fragile as a hothouse plant. I was fascinated by him at first sight, he was so different from the kind of people I knew in the world of real estate. 
 
 &#x200B;
 
@@ -218,7 +214,7 @@ I had actually sent them an invite to my wedding and was surprised to not receiv
 
 &#x200B;
 
-My husband David died in a hotel room while on the road with a theater group he was working with that summer. The police told me he had most likely died of self-induced hypoxyphilia. I thought they meant some kind of rare disease at first. 
+My husband David died in a hotel room while on the road with a theater group he was working with that summer. The police told me he had most likely died of self-induced hypoxyphilia. I thought they were talking about some kind of rare disease at first. 
 
 &#x200B;
 
@@ -226,7 +222,7 @@ The police barely investigated it. The hotel security cameras had been broken fo
 
 &#x200B;
 
-But if somebody had murdered David, then it couldn't have been random. Because next to the body the police had found a model toy house, small enough that it could fit on a the palm of a hand. I knew the house just like I knew all the houses I had ever sold by heart inside and out: it was the exact replica of the house I had sold the Henderson's down to the custom windows and marble tiling. Somebody had made it with painstaking care, and it was found in the room in which my husband had died under suspicious circumstances.
+But if somebody had murdered David, then it wasn't random. Because next to the body the police had found a model toy house, small enough that it could fit on the palm of a hand. I knew the house just like I knew all the houses I had ever sold by heart inside and out: it was the exact replica of the house I had sold the Hendersons down to the custom windows and marble tiling. Somebody had made it with painstaking care, and it was found in the room in which my husband had died under suspicious circumstances.
 
 &#x200B;
 
@@ -290,7 +286,9 @@ On the outside at least, life went on more or less as usual.  One day I did a de
 
 &#x200B;
 
-"It's my daughther-in-law," Mrs. O said. "She's in the local theater group. They just put on a play, it's very popular. Have you seen it?"  
+"It's my daughter-in-law," Mrs. O said. "She's in the local theater group. They just put on a play, it's very popular. Have you seen it?"  
+
+&#x200B;
 
 "Your daughter-in-law?" I choked out.
 
@@ -346,7 +344,7 @@ I was immediately suspicions. Perhaps, I thought, she was one of James' ex-girlf
 
 She started to cry and I began to think she might be telling the truth.
 
- 
+&#x200B;
 
 "I wasn't getting any acting jobs then and really needed the money with the final payments for the wedding coming up," she said. "He saw me at a workshop and said I looked just the part. I thought he was a creep at first, but then I went to the house to check it out, and it seemed like what he said."
 
@@ -418,13 +416,13 @@ He nodded. "He was ten years older, so more of a father figure to me than a brot
 
 "Two years later, my brother started feeling unwell. Both he and his wife actually. At first they thought it was work stress and the long commute, but it quickly became obvious that wasn't the case. And they had both seen what had happened with the dog, so they knew what was in store for them."
 
- 
+&#x200B;
 
 There was a silence as he looked off into a point behind my head as if he had forgotten I was there. 
 
 &#x200B;
 
-"When they realized what was happening," he said, "the first thing they did was to send the daughter away to her grandmother's. The girl was healthy for the time being anyway, and they were desperate to keep it that way. They were convinced there was something in that house making them all sick one by one, you see?"
+"When they realized what was happening," he said, "the first thing they did was to send the daughter away to her grandmother's. The girl was healthy for the time being anyway, and they were desperate to keep it that way. They were convinced there was something in that house making them sick, you see?"
 
 &#x200B;
 
@@ -536,7 +534,7 @@ He took out a gun and played with it as if it were a toy. I went up to him as if
 
 &#x200B;
 
-Shock temporarily paralyzed him and the gun fell with a clatter to the floor. Few people are mentally prepared to attack another person with their teeth, but rage had made all kinds of inhibitions irrelevant in me. The pain jolted him into action and he twisted like a large muscular fish beneath my grasp, but to no avail: I did not let go. I couldn't punch or kick but grappling holds came naturally to me, and I clung like a tick to his neck with my hands as we fell to the floor. My teeth were clamped tight on his nose and I could taste the blood on my tongue. He was screaming in agony.
+Shock temporarily paralyzed him and the gun fell with a clatter to the floor. Few people are mentally prepared to attack another person with their teeth, but rage had made all kinds of inhibitions irrelevant in me. The pain jolted him into action and he twisted like a large muscular fish beneath my grasp, but to no avail: I did not let go. I couldn't punch or kick but grappling holds came naturally to me, and I clung like a tick to his neck with my hands as we fell to the floor. My teeth were still clamped tight on his nose and I could taste the blood on my tongue. He was screaming in agony.
 
 &#x200B;
 
