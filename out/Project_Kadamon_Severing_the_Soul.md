@@ -1,4 +1,15 @@
-*Dr. Williams — Report: 0930 Hours on June 15, 1978.*
+*My father was a cold man for most of his life. I rarely saw him smile. He was pragmatic and intelligent and had seemingly no need for emotions. That all seemed to change around the late 70s. He had been engrossed in stone project at work and, one day, he came home covered in blood with a demented smile on his face. I'll never forget that smile... Something in him had snapped, but he showed no change to us aside from the physucal one. He walked into the room, sat down on his recliner and began watching the TV.*
+
+*My mother and I had quickly vacated, phoning the police. Dad was taken to a psychiatric hospital where they said he'd had a psychotic break at work and... tore apart his colleagues. Literally. He'd ripped them limb from limb like some animal. He died in that hospital, leaving us with more questions than answers.*
+
+*But that changed today. I was sorting through the attic and found a box of my parents' old things. At the bottom was a locked journak. It was pretty easy to crack open, but, now, I wish I'd just left it alone.*
+
+*I hope these were just the ramblings of a madmam, but something in my churning gut tells me they're true.*
+
+~
+
+
+**Dr. Williams — Journal Entry: 0930 Hours on June 15, 1978.**
 
 
 Most Judeo-Christians hold to the belief that Adam was the first created being, or human. Borne from dust and clay, perfect in the image of God. The unread person would take this to mean the physical likeness of God, but that's simply not correct. The image of God is something much deeper and spiritual. Imago dei, as it were, is the metaphysical side of human nature. 
