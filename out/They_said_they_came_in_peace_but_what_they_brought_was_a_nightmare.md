@@ -56,13 +56,11 @@ My eyes dart around the room, trying to locate the source of the voice but if it
 
 **DO YOU BELIEVE US TO BE A HOSTILE FORCE, HUMAN?**
 
-"What did you to them?" I say, gesturing to my coworkers. "They aren't moving. Are they even still alive?"
+"What the hell did you do to them?" I bark, gesturing to my coworkers. "They aren't moving. Are they even still alive?"
 
-**YOUR COWORKERS HAVE BEEN GIVEN WHAT THEY ASKED. NOTHING MORE.**
+**YES. THESE DRONES HAVE BEEN GIVEN WHAT THEY ASKED. NOTHING MORE.**
 
-Just a few more steps to the exit. My heart flutters as I redouble my efforts to find the voice. If I can see it, then I can at least *prepare* to defend myself. Right now I'm a sitting duck if it decides to attack. I won't even have the chance to react.
-
-"That so? They all asked to be turned into zombies?"
+"That so?" I mumble, taking note of my distance to the exit door. It's just a handful of steps away. My heart flutters as I redouble my efforts to find the voice. If I can see it, then I can at least *prepare* to defend myself. "They all asked to be turned into zombies?"
 
 **ZOMBIE… PROCESSING TERM.**
 
@@ -292,33 +290,33 @@ My phone’s vibrating on my desk. The screen says a ghost is calling me, and I 
 
 “... Tom?”
 
-“Yeah, it’s me. You just called? Oh wait– don’t tell me you can’t make it to the party tonight! Eevee was so excited to see you, Ethan…”
+*“Yeah, it’s me. You just called? Oh wait– don’t tell me you can’t make it to the party tonight! Eevee was so excited to see you, Ethan…”*
 
-There’s a voice in the background. A woman’s. “Hey, Ethan! Hope you can make it tonight! I know I said I’d grab the pumpkin’s ahead of time, but things are hectic over here. Mind snagging them on the way over?”
+There’s a voice in the background. A woman’s. *“Hey, Ethan! Hope you can make it tonight! I know I said I’d grab the pumpkin’s ahead of time, but things are hectic over here. Mind snagging them on the way over?”*
 
 I’m stunned. My voice is empty.
 
-“Ethan? You there?” Tom says on the other end.
+*“Ethan? You there?”* Tom says on the other end.
 
 “Yeah…Hey. Uh, was that Jill?”
 
-Tom laughs. “Yeah, she and I called in sick to work– but don’t tell anybody. She’s got party fever for Eevee and I uh, kinda just wanted to finish my season in NHL. You know, before the kids take over my Playstation tonight.”
+Tom laughs. *“Yeah, she and I called in sick to work– but don’t tell anybody. She’s got party fever for Eevee and I uh, kinda just wanted to finish my season in NHL. You know, before the kids take over my Playstation tonight.”*
 
-I haven’t heard his voice in years. It’s like listening to a phantom, and yet somehow I know he’s anything but. “That tracks,” I say laughing. “I’ll definitely be by tonight… and you um… You can tell Jill I won’t forget the pumpkins either.”
+I haven’t heard his voice in years. It’s like listening to a phantom, and yet somehow I know he’s anything but. *“That tracks,”* I say laughing. *“I’ll definitely be by tonight… and you um… You can tell Jill I won’t forget the pumpkins either.”*
 
-“Great!” Tom says. “Can’t wait to see you. Anyway, I’ve gotta go. Jill’s giving me the death glare so I’m pretty sure I’ve gotta scrap the games and start helping… She wants tonight to be perfect. Oh, and Ethan?”
+*“Great!”* Tom says. *“Can’t wait to see you. Anyway, I’ve gotta go. Jill’s giving me the death glare so I’m pretty sure I’ve gotta scrap the games and start helping… She wants tonight to be perfect. Oh, and Ethan?”*
 
 “Yeah?”
 
-“Drive safe.”
+*“Drive safe.”*
 
 I bite my bottom lip, remembering the newspaper article describing the crash. The photo of Tom and Jill’s tiny Honda Civic cleaved in two by the semi truck, their limp bodies crushed between the jungle of metal.  “... Will do,” I tell him.
 
-“Love you, Ethan.”
+*“Love you, Ethan.”*
 
 Tears well in my eyes, my face screwing up as I try to fight them back. Not at work. I can’t have a breakdown here. My sleeve finds my eyes and dabs them away. “L-Love you too, Tommy. Bye.”
 
-“Later.”
+*“Later.”*
 
 I put down the phone, and despite the tears leaking out of my eyes, there’s a smile glued to my face. My heart is pounding, but it isn’t for fear. It’s for joy. Tom told me that Jill wanted to make tonight perfect, but she didn’t seem to realize that it already was.
 

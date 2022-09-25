@@ -1,5 +1,3 @@
-The Glawackus 
-
 When my grandfather passed away during an early winter, my family scrambled to rid the house of his belongings before the first major storm. The asphalt-shingle roof of his one-story home was collapsing inward after years of neglect and most of the windows were boarded up with cheap plywood. Instead of paying for the repairs, my parents decided to leave the fate of the quaint brick abode up to mother nature.  It was the first time we had visited since they relocated my grandfather to a nursing home, but the place somehow looked the same as when he lived there. We found the house stocked with canned goods, furniture, machine parts and magazines that he had accumulated over the years along with manila folders filled with receipts and tax returns. After a week of boxing and disposing, only the floorboards remained. 
 
 “I don’t get why you’re filming this,” my girlfriend Sasha said as we entered what was the living room, carrying two cardboard boxes. “I mean there’s nothing left, not even that stray tabby that he used to feed.”
