@@ -98,7 +98,7 @@ The only weak light in the room was a dim recessed bulb in the ceiling directly 
 
 “You excel at wasting time, Jim, but it really is annoying, so cut that shit out,” a woman’s voice came from the shadows nearby.
 
-“*Sora*?” I snapped. The sound of my wife increased my horror tenfold. “What the fuck are you doing to me?” I gasped for air. “Are your people going to eat my while I’m still… like you did to Kara?” Without being able to wipe away tears, they pooled in my eyes and ran down my cheek. 
+“*Sora*?” I snapped. The sound of my wife increased my horror tenfold. “What the fuck are you doing to me?” I gasped for air. “Are your people going to eat me while I’m still… like you did to Kara?” Without being able to wipe away tears, they pooled in my eyes and ran down my cheek. 
 
 “Not *my* people, Jim,” she explained, stepping halfway into the light. Shadows danced about her features, making her look almost halfway human. “*Our* people.”
 
