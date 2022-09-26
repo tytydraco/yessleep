@@ -1,0 +1,89 @@
+Last summer, I turned twenty, and my parents had planned a 10-day trip to Morocco for me and my 17-year-old brother. In Finland, my brother and I were used to doing outdoor activities and camping with friends in the wilderness. But we've never been on a trip abroad. Summers in Finland are rainy and cool, and we've heard that the temperature in Ouarzazate, where we'll be staying, can reach 45 degrees Celsius. The trip was supposed to be a group trip, but it was an absolute thrill for a Finn girl who had just graduated.
+
+So, in mid-July, we arrived in Ouarzazate and checked into our 5-star hotel. It was me, my brother Matias, my parents, and a group of 20 other Finnish tourists, mostly couples and retired. Obviously, Matias and I were the two youngest members of the group, but we couldn’t care less. We spent the first day in a visit to the surrounding of the city. Landscapes were incredible. The day after we went to a place in the middle of the desert called Merzouga, which has beautiful dunes. We spent the night there and returned back to our hotel the day after. Then we went to an ancient castle that was apparently built in the 10th century for a powerful warlord and his harem. 
+
+We also visited a cinema museum that exhibits collection of old film sets, props and cinematic equipment of very famous movies like Gladiator and The mummy. We went on an afternoon quad bike ride through the Ouarzazate area, riding by the Ouarzazate river through the desert landscape toward a beautiful oasis hidden behind the mountainscalled Fint. It was all fun. At first, we were ecstatic to be in a foreign country and experiencing a new and colorful culture and people. We discovered new foods and cultures while shopping for local items and clothing. 
+
+But despite the fact that the places we visited were breathtakingly beautiful and charming, we haven't met any new people our age. My parents have met a couple they knew so they hang out with them all the time. By the third day of our trip, my brother and I were getting bored. There wasn't much to do in the evenings except hang out by the hotel pool because we weren't allowed to go out in the city by ourselves outside of our group. 
+
+Fortunately, by the fourth day of our trip, we had met a group of Moroccan students on a group trip in the area. They were from a Moroccan international university and were staying at the same hotel as us. Most importantly, they speak English, which was fantastic because most Moroccan people we met speak only French as a second language. So, after dinner, my brother and I befriend a student named Issam and his girlfriend. They were both studying sustainable energy management and were about to graduate.
+
+Late that night, around the hotel pool and during a casual discussion about archeological discoveries in the Moroccan desert, Issam mentioned some local myths about the country's wilderness. He claimed that there are some places, in the desert for example, where no one goes or crosses. Those locations are said to be haunted by " Jinn," mythical entities that are well-known and feared in Morocco. Matias and I laughed at it, saying that ghost stories are always made up by people to scare other people. 
+
+Issam and even his girlfriend were adamant that Jinn are not ghosts or spirits, and the locals are terrified of even bringing up the subject of these entities or the locations where they are said to live. Apparently, one of those "forbidden" locations, happened to be not far from Ouarzazate. It was some caves situated between hills near a small village above the Fint oasis. 
+
+"We've been in Fint oasis; no one told us about those caves," Matias remarked. 
+
+"Of course, they're not open to the public and are rarely visited by locals," Issam explained. He then added that his cousin, who lives in Ouarzazate, had seen them before, and reported that the place freaked him out. See, I am a skeptical. We also have mythical creatures and supernatural stories in Finland. Paranormal and spooky stories are just BS in my opinion, either because the lack of proof, or the person claiming that it happened to them just don’t have any corraborated evidence. But this "Jinn" was something new I’v never heared before.
+
+The more Issam and his girlfriend talked about the strange stories about these entities, the more I wondered if there was some truth in it. Now I was curious, and my skepticism had given way to excitement. Those "forbidden caves" had to be explored. 
+
+I looked at Matias, but he didn't share my enthusiasm, so I asked Issam if we could go visit the caves tomorrow afternoon and ask his cousin if he would give us a ride. We'll inform our parents that we'll be taking another quad ride to the oasis. Then we could turn around and go to the caves. Issam seemed surprised, as if he hadn't expected the two young Finns tourists to be interested in such an adventure. He said ok then he shifted in his chair, and added: 
+
+"Are you certain you want to go?" 
+
+"We are, definitly. We can go before sunset so that we can, maybe, see the famous "Jinn caves" by ourselves." Issam had been bragging about his knowledge of mystical creatures and forbidden places in his home country of Morocco just moments before, but now he appeared hesitant and quiet. When he turned to talk to his girlfriend, she hunched her shoulders and shook her head and said something in Moroccan. She was obviously reluctante on going anywhere near those caves. Issam took out his phone and called his cousin. After a few minutes, he hung up and turned to face me and Matias and said that his cousin will be available only after 6 p.m. He'll pick us up at the hotel tomorrow at 6:30 p.m. and drive us to the Oasis. We'll have enough time to explore the caves before heading back around 9 p.m.
+
+"Sounds fine!" I said with enthusiasm.
+
+As we made our way to our chambers, Matias stopped and said: 
+
+"Eline, as much as I want to go to the caves, I'm not sure. We don't know much about Issam and his group." 
+
+"I know what you're thinking. We shouldn't trust strangers or accompany them on trips to unknown places, and what if the Jinns' stories are true? Blah, blah, blah. I, for one, do not believe in such "things." We had our own Ajatar in Finland but no one had never proven that they exist. I'm just bored in this hotel, and we've seen everything to see in Ouarzazate. We're about to embark on a real adventure. Isn't that amazing?" 
+
+We’ve been in the wilderness before. In my family we are all accomplished outdoorsmen who have spent a lot of time hiking, climbing mountains, and camping. Matias understands that once I make a decision, nothing can convince me otherwise. So he agreed, albeit reluctantly, to accompany us to the caves. But once I entered my chamber and went to bed, a voice in the back of my head cautioned me that this was a bad idea and Matias is somehow right. *What could possibly go wrong on this trip? Someone being scared, and hopefully lots of photos and laughs?* I just ignored the voice and went to sleep, eager to this unexpected adventure. 
+
+The next day, at 6:30 p.m. as planned, we were waiting in the lobby. I had my camera and a bottle of water in my backpack because that day it was very hot. Issam's girlfriend did not show up. She texted her boyfriend, saying she'd rather go shopping with her friends. Issam then laught and said that she’s probably too scared to go to see the forbidden caves. It was almost 7 p.m. when Issam's cousin called to say he was there. We all went to meet with him. After a brief introduction, we get into the car and headed to our destination. The oasis was 12 kilometers south of Ouarzazate, but the rough dirt road would take us 45 minutes to get there, according to Issam's cousin. 
+
+We did, in fact, leave the hotel and very quickly enter an unpaved and quite rocky road. It eventually narrows to a small, rocky path. Unfortunately, we couldn't take pictures from the windows due to the unsteady movement and dirt we were making in the cousin's small car. I have to admit. I was getting little nervous and wary about all this trip, but I couldn’t admit it to Matias. We made small talk on the way about the scenery, wether and famous movies that have been filmed in this oasis.
+
+Then, Issam's cousin, who speaks a little English, told us how he discovered the caves by accident a few years ago while conducting research for his geology degree. He said that as he approached the caves, one of the villagers noticed him from afar and dissuaded him from entering. The villager told him about the Jinn who live in the caves and the frightening stories of people who got inside and went insane or simply disappeared. Issam’s cousin stopped talking for a moment then he said:
+
+"I didn’t go inside the caves last time. That’s why I am going with you guys. To explore more this time. I am a scientist who, on principle, believes in facts and data. But I remember having a very uneasy feeling while talking to the villager, as if I was being watched or something. My reason was overtaken by an unexplainable fear, and I ended up turning away from the caves."
+
+We all fell silent, and no one spoke for the remainder of the ride until the oasis appeared. We drove for five minutes on an unpaved road until we arrived at a small village. The houses, like the other sites we had visited around Ouarzazate, were made of clay and all gathered in one place. The villagers, on the other hand, were startling. Unlike the other locals we had met before, the few people lurking behind their doors gave us looks kind of hostile. I was surprised. Moroccans are known for their incredible hospitality and openness to foreigners, as I discovered since our arrival in Morocco. It was unnerving, as if no one wanted us here. I exchanged a quick glance with Matias, who also appeared concerned.
+
+The car stopped at the end of the road, beneath a pair of date palm trees. We got out of the car, and I immediately started taking pictures. It was sunset, and the scenery was absolutely stunning. "Marvellous," I remarked as I snapped photos. There was no trail to follow, implying that, as Issam previously stated, no one visits this location. Issam's cousin pointed us in the direction of the caves. He took the lead, Issam followed, then me, then Matias. The soil was mostly made up of small pebbles and a thin layer of sand. While Issam was conversing with his cousin, I was still taking photos of the surroundings. 
+
+But something drew my attention. We were near an oasis, and there were some palm trees and bushes scattered about. But there were no birds chirping, insects buzzing, or breezes, just silence. Our footsteps were the only thing we could hear. I am accustomed to wilderness and that silence was quite troubling. I began to get wary, but I said nothing to the others. After few minutes we saw the hill and Issam’s cousin eventually turned toward us and told us that the people from the village beneath the caves don't like strangers wandering around. So we should explore the outside quickly and not linger too long. He said also that at the end of the trail, we'll probably have to walk and climb some boulders to get to the caves. Me and Matias nodded then we headed towards the hill.
+
+We walked for about 5 more minutes on a rocky path before we saw them. The forbidden caves. In front of us was a medium-sized hill with an odd structure that resembled small caves. I initially thought it was just a natural geological structure. When we got closer, the caves looked like small doors, as if they had been carved into the rock as entrances to some sort of house. I took a few photos from a distance before we resumed our walk. We had to pass through a lot of boulders and use our hands to keep our balance. When a loud groan from behind me startled me. Matias had tripped on some pebbles and landed on his back.
+
+"I think I may have twisted my ankle," said Matias while checking his foot. 
+
+"Fuck!" I muttered. Issam and his cousin stopped and came closer to see what was going on. I looked down at Matias' feet, then up at the caves only a few meters above us. 
+
+"Eline, I can't go any further. We should go back before it gets dark."
+
+The others agreed to resume and return to the car, but I was irritated. It's impossible to be this close and not be able to see the caves from inside. If the caves are as beautiful as the oasis, it will all be worth it. I made my decision. I turned to look at Issam and his cousin and said, 
+
+"Go ahead. I will continue to the caves. I'll just take a quick look and snap a few photos for a souvenir. Don't worry; I'll be following you right away."Without waiting for a response I hurried toward the caves. Just a few more meters and I’ll be there.
+
+Human-sized, narrow openings were carved directly into the rock, only a few inches above ground. There was seven entries at the bottom and about thirteen smaller ones above. I took a few more photos. Despite the fact that it was hot outside, a cool breeze was blowing from the entryway where I was standing. There was still light outside and all I could see, now that I was close, was a sort of an empty chamber and another entrance at the far end. The tentation was intense. I turned around to see Matias being carried back to the car by Issam and his cousin. Then I looked back to the cave and entered. Something shifted the moment I put my foot on the inside.
+
+While adjusting my vision to the darkness, I felt a slight movement of air behind my ear, like a breath. Chills ran down my spine. When I turned around and flashed with my camera, there was nothing. The hair on my arms stood up. A sudden cold enveloped me, and I knew... that I wasn't alone.
+
+The chamber was neat and empty, but I sensed that there was something else I couldn't see. The silence was unsettling, and it created a void in my mind filled with all sorts of creatures and horrifying stories I'd heard. I was squinting my eyes to try to see what was inside. Against all my instincts, I decided to go and look inside the end entrance. It was too dark there, and I didn't have a flash light or a phone, so I thought I'd use the flash light on my camera.
+
+The more I advanced the more I had the uneasy feeling I was being watched. But I quickly dismissed it, telling Myself that it was all in my head. 
+
+As I continued my way inside, flashing with my camera, I could now hear a faint sound, as if it was a set of foot steps behind me. Despite how unsettling it was, I refused to look back and continued. It must be just an echo of my own foot steps. Or so I convinced myself because the alternative of someone or something stalking behind me was too terrifying to even consider. Now I had advanced a good distance inside, and I could see with my the flash light that I had entered a sort of patio surrounded by another set of openings carved into the rock itself.
+
+My hearing became more acute as I walked on tiptoe with my hand against the rocky wall. I was on high alert, and the slightest sound would startle me. It was as if the air around me had stopped moving. My steps' sounds have been muffled. Then I started to hear a humming noise. It appeared to come not from outside but from inside my ears. At first it was subtle and unsteady, almost like a pulsing. The noise then abruptly changed to a piercing sound, similar to what you hear when you put your TV on mute. I went completely still. Then a gut-wrenching, blood-curdling scream pierced the cave's walls. I felt myself leaving my skin. That scream haunts me to this day. 
+
+I covered my mouth with my hand to hold my squeal of terror. I then heard them. Voices. Hundreds of voices speaking all at once in a language I didn't understand. It was all around me, coming from all sides. When all the voices suddenly stopped, I felt a tightening around my chest grow stronger and stronger. I stopped my breath and I heard, nothing. Then the breeze againt my neck blew again. Something brushed against my cheek. 
+
+"We were waiting for you." Said a hushed voice. 
+
+I almost had a heart attack. My fight or flight response kicked in, and I took off running. I was out of breath as I raced, popped against the walls and stumbled trying to find my way. . I kept hearing footsteps following me but when and looked over my shoulder there was noting. My heartbeats were racing and I felt like I’m going to threw up. *Why I can’t find the entrance? It wasn’t that far. Am I lost?* Exhausted and felling dizzy I stopped running to catch my breath. I couldn’t keep my self from it, so I retch, again and again. All I could hear was the sound of my own retch. When I emptyed my stomach I begin whiping my head around. Then I heard my name coming ahead of me. I didn’t recognised the voice. I raced toward the sound and finally got to the entrance of the cave. Outside, it was already dark. I tried hard not to hurt myself while tumbling down the boulders. Then I dashed to the car. 
+
+"Eline! What were you doing? We've been awaiting you for nearly an hour!" Matias inquired, his face concerned. 
+
+"An hour?" I was taken aback. It seemed like only ten or fifteen minutes had passed in there. 
+
+"Is everything all right?" asked Issam's cousin, who was also concerned. 
+
+"We should leave. Right away!" I nearly yelled. 
+
+We went back to the hotel in total silence. We never talked about what happened that night. And every time Matias brought up the subject again, I became irritated and asked him to leave me alone. All I want is to erase any memory about that visit in the caves. What I experienced that night would haunt me for the rest of my life.
