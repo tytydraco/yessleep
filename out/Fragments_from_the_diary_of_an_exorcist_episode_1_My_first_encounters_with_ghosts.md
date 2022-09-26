@@ -121,3 +121,7 @@ The ladies remained silent, as Ruxandra took Helena„ hand. Helena took Ruxandr
 &#x200B;
 
 Ruxandra was about to cry, it seems. She did not but, instead, took a sip of water. She gave a sigh. After a few moments of silence, I smiled and continued: ”And, after a while, something else happened. Do you want to know?” ”Yes, father, we do” answered Helena, with her child curiosity. ”Ok then, I shall tell you that too.” And so I started the second story. I shall be back with it as well.
+
+&#x200B;
+
+My second story, in here [https://www.reddit.com/r/nosleep/comments/xn5x5j/fragments\_from\_the\_diary\_of\_an\_exorcist\_episode\_2/](https://www.reddit.com/r/nosleep/comments/xn5x5j/fragments_from_the_diary_of_an_exorcist_episode_2/)
