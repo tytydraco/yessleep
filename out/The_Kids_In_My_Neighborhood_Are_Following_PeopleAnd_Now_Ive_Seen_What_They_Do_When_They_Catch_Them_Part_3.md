@@ -6,6 +6,8 @@
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/xnh2yz/the_kids_in_my_neighborhood_are_following/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/xou6ek/the_kids_in_my_neighborhood_are_following/)
+
 “What’s your name?” I asked the teenager in my passenger seat. It took him a minute to respond, but then again, he’d just been almost jumped by a crowd of silent kids and been rescued by an old man with a revolver. His shock made perfect sense to me. My heart was pounding and my damned arthritic hands ached from gripping the gun.
 
 “Cayden.” He finally sighed. “Cayden Cooper. I appreciate your help back there, Mr….?”
