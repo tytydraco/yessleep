@@ -206,21 +206,23 @@ I jolt awake. There’s a click-clat of fingers tapping on keyboards, the gentle
 
 I look up, my vision blurry. My hands find my eyes, giving them a good rub. “Ling?”
 
-“Did the coffee give it away?” Ling beams me a smile. He’s dressed in his combat fatigues, a white mug in his grip reading #1 DAD\*\*.\*\* “Hate to say it though, but I’ve come for business. You wouldn’t happen to have finished the report on the new airframe, would you? I realize it’s a day earlier than I’d asked… but it’s Halloween tonight and I know you booked tomorrow off.”
+“Did the coffee give it away?” Ling beams me a smile. He’s dressed in his combat fatigues, a white mug in his grip reading #1 DAD\*\*.\*\* “Hate to say it though, but I’ve come for business. You wouldn’t happen to have finished the report on the new airframe, would you? I realize it’s a day earlier than I’d asked… but I just realized it's Eevee's birthday tonight, and you booked tomorrow off."
 
-“I um…” I look around the office and see my coworkers, smiling, chatting amongst themselves. Military and civilian alike. Sunlight fills the room. The windows are clear, uncovered by smoke and ash. Outside, I see mechanics working on jets, a platoon of soldiers running by in PT strip. But how…?
+“I um…” I look around the office and see my coworkers, military and civilian alike, smiling, chatting amongst themselves. Sunlight fills the room. The windows here are clear, uncovered by smoke and ash. Outside, I don't see any dead bodies, just mechanics working on a jet and a platoon of soldiers running by in PT strip.
+
+But how…?
 
 “Earth to Ethan?” Ling says, waving a hand in front of my face. He frowns. “You sure you’re feeling alright? You know you can take a sick day, right? We all need a breather now and again.”
 
 I shake my head, my mind waking up. “No, it’s fine. I um, I’ve got them here.” I open a drawer on my desk and fish inside of it, pulling out a folder. “Got 'em finished a few days ago. Forgot to drop' em off. Sorry.”
 
-Ling takes the reports with a grin, giving me a gentle punch on the arm. “Superstars don’t need to apologize. Thanks for this!” He turns, heading back to his desk, but before he does he looks back at me. “You sure you’re alright, Ethan? You look like you’ve seen a ghost…”
+Ling takes the reports with a grin, giving me a gentle punch on the arm. “Superstars don’t need to apologize. Thanks for this!” He heads back to his desk, but stops halfway to look back at me. “You sure you’re alright, Ethan? You look like you’ve seen a ghost…”
 
-“I’ll be fine. Just didn’t get much sleep last night, must have dozed off.”
+"I'll be fine. Just didn’t get much sleep last night, must have dozed off.”
 
 “Well, hopefully the coffee helps with that.” He shoots me a wink and heads back to his desk. I watch him go, and my stomach twists as I remember his head rolling on the tarmac. His lifeless eyes gazing up at me, the blood pouring from his served throat…
 
-“No,” I mutter, pushing the image from my mind. It was a bad dream. That’s all. No sense dwelling on it, and to prove it I fish in my pocket and pull out my phone. I know it’s an overreaction, but I need to be sure. I punch in a number and listen to it ring for half a second before a woman answers.
+“No way,” I mutter, pushing the image from my mind. It was a bad dream. That’s all. No sense dwelling on it now. To prove it to myself, I fish in my pocket and pull out my cellphone, punching in a number. I know it’s an overreaction, but I need to be sure.
 
 *“Hello. Lunedale Elementary, Sharon speaking. How can I help you today?”*
 
@@ -228,27 +230,27 @@ Ling takes the reports with a grin, giving me a gentle punch on the arm. “Supe
 
 *“Of course, Mr. Rayner. I’ll have somebody grab Miss Rayner, just a moment.”* There’s a shuffle of movement on the other end of the line, followed by what sounds like a call to Eevee’s classroom. A moment later, and Sharon is back on the line. *“Eevee’s just on her way now. Is everything okay?”*
 
-“Yes, it’s fine I uh… just wanted to talk about Halloween plans.” It was only a half-lie. The truth is, we still needed to decide on which neighborhood we’d be going trick-or-treating in. It was common knowledge that there were better routes than others, especially if you wanted to see some fantastic decorations. I’d narrowed it down to a couple, and it was up to her to choose.
+“Yes, it’s fine I uh… just wanted to talk about birthday plans.” It was only a half-lie. The truth is, we still needed to decide on whether or not she wanted an ice-cream cake or regular cake for tomorrow's party.
 
 *“Ah, that’s good to hear. It’s just you’re listed as her godfather in our system, so I got a little nervous that something had happened to her parents, bless their hearts.”*
 
-The statement catches me off guard. Sharon had worked at the school for years… she knew very well that Eevee’s parents were killed by a drunk driver two years ago. She’d help me set up several academic accommodations when it happened. I’m about to set the record straight when a new voice comes through in the background. A young girl’s. She’s asking why she’s been called to the office, and if it has anything to do with the ‘pumpkin incident.’
+The statement catches me off guard. Sharon's worked at the school for years… she knows very well that Eevee’s parents were killed by a drunk driver a couple years back. Hell, she’d help me set up Eevee's learning accommodations when it happened. I’m about to speak up and ask if *she's* feeling alright when a new voice comes through in the background. A young girl’s. She’s asking why she’s been called to the office, and if it has anything to do with the ‘pumpkin incident.’
 
 *“No, no,”* I faintly hear Sharon say *“Your uncle is on the line. He’d like to talk with you.”*
 
 *“My uncle?”* Eevee says, her voice small. *“How come?”*
 
-*“Something about Halloween plans I think.”*
+*“Something about birthday plans I think.”*
 
 There’s the clatter of a receiver changing hands. A muffle of static. Then a voice comes through on the other end, and suddenly the heaviness in my heart vanishes. *“Uncle Ethan?”*
 
 “Hey Eve,” I say with a sigh. “Just calling to make sure everything’s alright over there. Anything weird happen today?”
 
-*“Weird? Well, I just finished carving pumpkins and I won second place, but I should've won first. So that was sorta weird.”*
+*“Weird? Umm...  Well, we just finished carving pumpkins, and I only won second place. So that was sorta weird.”*
 
-I laugh, shaking my head. “That’s too bad. Sorry to hear.”
+I laugh, shaking my head. “That’s too bad. Sorry to hear you didn't take gold.”
 
-*“Miss Thatch said you were calling about Halloween plans.”*
+*“Miss Thatch said you were calling about birthday plans.”*
 
 “Yeah… I meant to ask about–”
 
@@ -256,55 +258,63 @@ I laugh, shaking my head. “That’s too bad. Sorry to hear.”
 
 “Dinner?” What a strange thing to ask. I’d cooked her dinner every night for the past two years, so it stood to reason that I’d be at dinner. “Of course I’ll be there, why wouldn’t I?”
 
-*“Well, dad was saying you’ve been busy at work and weren’t much for parties.”*
+*“Well, dad was saying you’ve been busy at work and weren't much for parties these days.”*
 
-“Party… dad… Eve hold on, what are you talking about? Are you feeling okay?”
+“Parties… dad… Eve hold on, what are you talking about? Are you feeling okay?”
 
-*“My Halloween party! Mom and dad let me throw one, don’t you remember? We talked about this last week. Mom’s gonna cook intestine spaghetti and dad’s gonna make eyeballs outta eggs. You’re gonna be helping us carve pumpkins. I’m really good at it now though, so I don’t need much help.”*
+*“My birthday party! Mom and dad let me throw one, don’t you remember? We talked about this last week. Halloween themed! Mom’s gonna cook intestine spaghetti and dad’s gonna make eyeballs outta eggs. You’re gonna be helping us carve pumpkins. I’m really good at it now though, so I don’t think I'll need much help.”*
 
 “Mom… and dad?” I run a hand through my hair, suddenly feeling anxious all over again. It’d taken Eevee a long time to come to terms with her parents’ deaths, and now… Was she falling into another episode of denial? “Eevee, are you sure you’re feeling okay?”
 
-“Yes!” she laughs. “Why do you keep asking me that? Anyway, I gotta go. It’s almost recess and I told Raj I’d beat him in a race. He’s been telling everybody that he’s the fastest kid in second grade but I HIGHLY doubt that because I can run super fast. He’s just bragging.”
+*“Yes!”* she laughs. *“Why do you keep asking me that? Anyway, I gotta go. It’s almost recess and I told Raj I’d beat him in a race. He’s been telling everybody that he’s the fastest kid in second grade but I HIGHLY doubt that because I can run super fast. He’s just bragging.”*
 
 “Yeah… sounds uh, sounds great, Eve. Run like the wind.”
 
-“Always do! See ya tonight Uncle Ethan!”
+*“Always do! See ya tonight Uncle Ethan!”*
 
 “See you.”
 
-The line goes dead. I look absently around the buzzing office. Everything is just as I remember it, each desk and each person just the way it was before… except Eevee is back to thinking her parents are still alive.
+The line goes dead. I look absently around the buzzing office, and everything is just as I remember it, each desk and each person just the way it was before… Except Eevee is back to thinking her parents are still alive.
 
 Why?
 
-I pick up my phone and my finger hovers over the contact list. I’m nervous enough that I’m sweating, that I’m gnawing my lip but I tell myself that I need to do this. For closure. My fingers scroll through my contacts until they stop at a name: Tom Rayner.
+I pick up my phone and my finger hovers a number in my contact list. I’m nervous enough that I’m sweating, that I’m gnawing my lip but I tell myself that I need to do this. One last time.
 
 I hit dial.
 
-It rings once. Twice. Then, the machine answers, just like it did every time I called in the weeks following his death. “Hey, this is Tom. Leave your name and number and I’ll get back to ya. Ciao!”
+It rings once. Twice. Then, the machine answers, just like it did every time I called in the weeks following his death. *“Hey, this is Tom. Leave your name and number and I’ll holler back to ya. Ciao!”*
 
-I sigh. My hands find my face and I run them over it, feeling exhausted and stressed and hollowed out. My brother was dead. I knew that. So why did I let myself believe anything else? Was I that desperate to be happy again?
+I sigh. My hands find my face and I run them over it, feeling exhausted and stressed and hollowed out. My brother was dead. I knew that. So why did I let myself believe anything else? Was I that desperate to be happy again? Maybe Eevee and I were both more broken than I cared to admit...
 
-*BZZZ. BZZZ.*
+***BZZZ. BZZZ.***
 
 My phone’s vibrating on my desk. The screen says a ghost is calling me, and I think that maybe I’m going insane, but I pick it up anyway.
 
 “... Tom?”
 
-*“Yeah, it’s me. You just called? Oh wait– don’t tell me you can’t make it to the party tonight! Eevee was so excited to see you, Ethan…”*
+*“Yeah, it’s me. You just called? Oh wait– don’t tell me you can’t make it to the party tonight! Eevee was so excited to see you…”*
 
-There’s a voice in the background. A woman’s. *“Hey, Ethan! Hope you can make it tonight! I know I said I’d grab the pumpkin’s ahead of time, but things are hectic over here. Mind snagging them on the way over?”*
+There’s a voice in the background. A woman’s. *“Hey, Ethan! Hope you can make it tonight! I know I said I’d grab the pumpkin’s ahead of time, but things are hectic over here.  Mind snagging them on the way over?”*
 
-I’m stunned. My voice is empty.
+I’m stunned. My voice is gone, empty.
 
-*“Ethan? You there?”* Tom says on the other end.
+*“Ethan? You there?”* Tom says.
 
-“Yeah…Hey. Uh, was that Jill?”
+“Yeah… " I mumble. I take a deep breath, pulling myself back to reality. "Hey. Sorry. Uh, was that Jill?”
 
-Tom laughs. *“Yeah, she and I called in sick to work– but don’t tell anybody. She’s got party fever for Eevee and I uh, kinda just wanted to finish my season in NHL. You know, before the kids take over my Playstation tonight.”*
+Tom laughs. *“Yeah, she and I called in sick to work– but don’t tell anybody. She’s got party fever for Eevee and I uh, kinda just wanted to finish my season in NHL. You know, before the kids take over my Playstation tonight. Don't tell her that though.”*
 
-I haven’t heard his voice in years. It’s like listening to a phantom, and yet somehow I know he’s anything but. *“That tracks,”* I say laughing. *“I’ll definitely be by tonight… and you um… You can tell Jill I won’t forget the pumpkins either.”*
+*"I can HEAR you THOMAS!"*
 
-*“Great!”* Tom says. *“Can’t wait to see you. Anyway, I’ve gotta go. Jill’s giving me the death glare so I’m pretty sure I’ve gotta scrap the games and start helping… She wants tonight to be perfect. Oh, and Ethan?”*
+*"Damn... Was hoping I got out of range."*
+
+I haven’t heard either of their voices in years. It’s like listening to phantoms, and yet somehow I know they're anything but. *“I’ll definitely be by tonight…"* I say, *"and you can tell Jill I won’t forget the pumpkins either.”*
+
+*“Great!”* Tom says. *“Can’t wait to see you, but I’ve gotta go. Jill’s giving me the death glare from the kitchen... so I’m pretty sure I’ve gotta scrap the games and start helping. You know her... she wants tonight to be perfect."*
+
+*"Well, suppose you better get to it then."*
+
+*"Ha, yep. Duty calls. Oh, and Ethan?”*
 
 “Yeah?”
 
@@ -312,12 +322,18 @@ I haven’t heard his voice in years. It’s like listening to a phantom, and ye
 
 I bite my bottom lip, remembering the newspaper article describing the crash. The photo of Tom and Jill’s tiny Honda Civic cleaved in two by the semi truck, their limp bodies crushed between the jungle of metal.  “... Will do,” I tell him.
 
-*“Love you, Ethan.”*
+*“Love you, bro.”*
 
-Tears well in my eyes, my face screwing up as I try to fight them back. Not at work. I can’t have a breakdown here. My sleeve finds my eyes and dabs them away. “L-Love you too, Tommy. Bye.”
+Tears well in my eyes, my face screwing up as I try to fight them back. Not at work. I can’t have a breakdown here. My sleeve finds my eyes and dabs them away. “Love you too, Tommy. Later.”
 
 *“Later.”*
 
-I put down the phone, and despite the tears leaking out of my eyes, there’s a smile glued to my face. My heart is pounding, but it isn’t for fear. It’s for joy. Tom told me that Jill wanted to make tonight perfect, but she didn’t seem to realize that it already was.
+I put down the phone and lean back in my chair. Despite the tears in my eyes, there’s a smile glued to my face. They're back. They're really, truly alive again. After all those years of heartache, all those restless nights spent listening to Eve cry herself to sleep... They were back.
 
-And tomorrow would be perfect [too](https://www.reddit.com/r/TalesFromTheCryptid/).
+I find it funny that Tom said Jill wanted to make tonight perfect, because she didn't seem to realize that it already is.
+
+&#x200B;
+
+&#x200B;
+
+And tomorrow will be perfect [too](https://www.reddit.com/r/TalesFromTheCryptid/).
