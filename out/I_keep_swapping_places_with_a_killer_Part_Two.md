@@ -1,5 +1,4 @@
 
-
 [Part One](https://redd.it/xa7yx6)
 
 ****
@@ -97,3 +96,7 @@ I kept looking everywhere at once and my heart felt like it was going to burst, 
 Then I noticed the red letters in the corner of the mirror.  Written in lipstick were two lines, punctuated at the end by a small smiley face not unlike what had been scratched into Taylor’s hand between his index finger and his thumb.
 
 [**Hey Taylor’s friend!  It’s time to play.**](https://redd.it/9ndww5)
+
+**** 
+
+[Part Three](https://redd.it/xovmc7)
