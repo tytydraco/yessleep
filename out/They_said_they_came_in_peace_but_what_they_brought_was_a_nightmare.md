@@ -330,7 +330,7 @@ Tears well in my eyes, my face screwing up as I try to fight them back. Not at w
 
 I put down the phone and lean back in my chair. Despite the tears in my eyes, there’s a smile glued to my face. They're back. They're really, truly alive again. After all those years of heartache, all those restless nights spent listening to Eve cry herself to sleep... They were back.
 
-I find it funny that Tom said Jill wanted to make tonight perfect, because she didn't seem to realize that it already is.
+I find it funny that Tom said Jill wanted to make tonight perfect, because she doesn't seem to realize that it already is.
 
 &#x200B;
 
