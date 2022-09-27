@@ -146,6 +146,6 @@ I knew then that it was going to be a long night.
 
 [Related](https://www.reddit.com/r/nosleep/comments/x68hac/my_grandmother_worked_for_an_orphanage_asylum_one/)
 
-Part3
+[Part3](https://www.reddit.com/r/nosleep/comments/xpfp5v/i_work_for_a_county_sheriffs_office_in_maine_but/)
 
 [.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
