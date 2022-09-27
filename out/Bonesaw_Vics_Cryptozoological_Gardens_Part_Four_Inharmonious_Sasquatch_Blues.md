@@ -1,8 +1,10 @@
+[Part 3](https://www.reddit.com/r/nosleep/comments/vzjhv7/bonesaw_vics_cryptozoological_gardens_part_three)
+
 For many of us Gen X leftovers, the Nineties were defined by a wave of interesting music that swept the charts and started a cultural revolution. I can still clearly recall the pivotal point in my life where I became a shaggy-haired Doc Marten enthusiast. It was the first time I heard the song, “Smells Like Teen Spirit” by Nirvana.
 
 It was a pleasant October afternoon in 1991. I was hanging out with a friend in his garage, sipping a beer and shooting the shit, when our attention was captured by a crude, spiky guitar riff drifting out of the speakers of the radio. It erupted into an explosion of sound and fury that was quite unlike anything I’d ever heard before. We both stopped talking and looked at the radio with a slightly stunned expression on our faces.
 
-We both sat there and listened to the entire song in silence. I found myself air drumming and headbanging along to the beat with my polite little mullet hairdo. My mullet was just barely long enough to cover the collar in the back, and the front was hairsprayed into a poofy side part. Such was the style of the time in Middle America... but that was all about to change.
+We sat there and listened to the entire song in silence. I found myself air drumming and headbanging along to the beat with my polite little mullet hairdo. My mullet was just barely long enough to cover the collar in the back, and the front was hairsprayed into a poofy side part. Such was the style of the time in Middle America... but that was all about to change.
 
 Within a few months, we were both growing out our poofy little mullets and completely changing our wardrobes. The deck shoes and button-fly 501s were tossed aside in favor of ripped jeans, the aforementioned Doc Martens, and plaid lumber jackets from a second-hand clothing store. The alternative rock movement had hit the mainstream, and millions of young people were instantly hooked.
 
