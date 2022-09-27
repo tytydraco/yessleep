@@ -60,3 +60,7 @@ She said as she drowned. No humane tone of voice could produce the undertone she
 
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/xcwglk/ive_been_blind_since_i_was_eight_but_ive_recently/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/xp46nv/ive_been_blind_since_i_was_eight_but_i_recently/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

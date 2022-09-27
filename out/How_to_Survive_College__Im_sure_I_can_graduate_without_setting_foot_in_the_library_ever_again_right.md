@@ -2,7 +2,7 @@
 
 Why yes I’m an introvert, thanks for asking.
 
-(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 Anyway, I’d managed to work up the nerve to go introduce myself to a total stranger, but was nearly foiled by being unable to find the popular culture department building.  According to the map it was on the north side of campus, across from the fraternity houses, and I wound up walking up and down the sidewalk for almost half an hour, searching for a sign or something that would indicate that this building houses the popular culture offices.
 
@@ -10,7 +10,7 @@ I did come across some boys having an impromptu party in the front yard of their
 
 …it’s totally going to end up in the traveling river, isn’t it?
 
-Crossing the street to see what the hell those idiots were doing turned out to be a boon, though.  The popular culture department isn’t actually on campus.  It’s directly across the street from campus, nestled in among the row of rental houses and shops lining the main road running parallel to the college.  I guess the university ran out of space and decided to make it work by buying one of those houses and turning the rooms into offices.  
+Crossing the street to see what the hell those idiots were doing turned out to be a boon, though.  The popular culture department isn’t actually on campus.  It’s directly across the street from campus, nestled in among the row of rental houses and shops lining the main road running parallel to the college.  I guess the university ran out of space and decided to make it work by buying one of those houses and turning the rooms into offices.
 
 It’s a cute building.  Serious cottage-core vibes going on.  There’s flowering bushes along the walkway leading up to, the building is brick with a little chimney and fireplace in the lobby/living room, and there’s white shutters around all the windows.  My hometown has plenty of buildings like this, but the pristine aesthetic is usually ruined by someone replacing a car’s engine in the driveway or cows grazing in the front yard.
 
@@ -30,7 +30,7 @@ Professor Beatrice (not her real name but I feel I shouldn’t use last names an
 
 “I’ve got a project for… an English class,” I fibbed.  “It’s about… modern uses of folklore in books… and stuff.  I’m having trouble figuring out some of the symbolism.”
 
-I’m not sure why I was worried.  Apparently you dangle any sort of interest in the subject they’re passionate about and any professor will jump on it like a starving wolf.  I told her that I was having trouble in particular with the symbolism of objects and I didn’t know how to research it.  The internet wasn’t exactly reliable, after all.  After about thirty minutes of discussion, I left her office with instructions on what floor of the library to go to and what books to look at.  
+I’m not sure why I was worried.  Apparently you dangle any sort of interest in the subject they’re passionate about and any professor will jump on it like a starving wolf.  I told her that I was having trouble in particular with the symbolism of objects and I didn’t know how to research it.  The internet wasn’t exactly reliable, after all.  After about thirty minutes of discussion, I left her office with instructions on what floor of the library to go to and what books to look at.
 
 Apparently there’s a whole… dictionary of folklore motifs??  The library doesn’t let students check it out since they only have one copy and it’s like multiple books anyways, but it was just sitting there on the shelf and I could go look it up my object and find any references in documented folklore in there.
 
@@ -60,7 +60,7 @@ I turned around.  Staring into the window was an eye.  The pupil almost entirely
 
 He wasn’t giving me time to recover from my shock.  I guess being a ghost tends to rob you of your human emotions somewhat.  I hurried to follow him towards the stairs, glancing back over my shoulder at the eyeball.  Its pupil had shifted, just enough that I could see a trace of white at one edge of the window.  Its gaze was tracking the ghost.
 
-It *is* following me.  Using me as bait.  
+It *is* following me.  Using me as bait.
 
 “Fuck you!” I shrieked.  “I like this one!  You don’t get to kill this one!  Go take care of the damn possums instead!”
 
@@ -92,7 +92,7 @@ And the eye went after him.  I curled up into a ball, suspended in the water, an
 
 That impact never came.  One of the students - Patricia, I think, judging by the color of her jacket - raised an arm.  The muscles, dangling there uselessly a moment ago, snapped into life again.  Her hand grabbed hold of my ankle, she pulled, and I was dragged sideways through the water and shoved to the side.  The water churned around me as the eyeball rushed past, I was again tumbled head over heels - and then I fell.
 
-I was through the curtain of water separating the stacks from the lobby.  I flailed in midair for a moment and then fell noisily to the ground, rolling a few feet before coming to a stop.  I jerked my head up, staring at where the monster had just been.  
+I was through the curtain of water separating the stacks from the lobby.  I flailed in midair for a moment and then fell noisily to the ground, rolling a few feet before coming to a stop.  I jerked my head up, staring at where the monster had just been.
 
 Nothing but rows of books, sitting dry and safe on their shelves.  I let out a shaking breath.
 
@@ -100,7 +100,7 @@ At least with it being the summer semester there was no one currently *in* the l
 
 Nothing.  The flood was gone.  I was out of that halfway space and it would not take me back.
 
-There was nothing I could do for the drowned student.  I can only hope he escaped.  
+There was nothing I could do for the drowned student.  I can only hope he escaped.
 
 I haven’t gone back to the library.  I don’t want to lead the eye there again.
 
@@ -145,6 +145,8 @@ Maybe it’s a weapon being wielded by the administration.  Maybe they want to g
 But any weapon that was created upon the literal bodies of the unwitting cannot be allowed to continue.  Patricia grabbed me and if there’s even the slightest spark of her left in that body then I need to put it to rest.
 
 Any reason I might come up with otherwise is simply a way to delay what needs to be done out of fear.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/xp575a/how_to_survive_college_there_are_rules/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
