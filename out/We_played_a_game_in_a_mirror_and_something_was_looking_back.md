@@ -374,4 +374,4 @@ What I do know is that thing that was there with me that night, who invited me t
 
 I guess if there’s anything to be taken from this it's to be wary of your reflection.
 
-I don't really spend much unnecessary time looking in the mirror anymore. You never know who, or *what* is really looking back.
+I don't really spend much unnecessary time looking in the mirror anymore. You never know who, or *what* is really looking [back. ](https://www.reddit.com/r/SetiStories?utm_medium=android_app&utm_source=share)
