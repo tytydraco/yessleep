@@ -1,3 +1,5 @@
+Part 2: [(1) For The Past Week, The World Has Been Empty... Almost (PART 2) : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/xq1h5r/for_the_past_week_the_world_has_been_empty_almost/) 
+
 I can still remember the day before it happened. I was in my room listening to music and catching up on the piles of homework that accompany being a Highschooler. My Mom and Dad were in the living room watching TV, probably Football as per my dad's request.
 
 My brother was in his room talking to His girlfriend on Snapchat, and it turned 8:00. My family has a rule about electronics going away at eight, so my dad would usually stop by our rooms to remind us. But he didn't tonight.
@@ -14,15 +16,15 @@ I figured they had just gone on a night walk and had just decided to leave me be
 
 ...
 
-The power was still off when I woke up, so I didn't know what time it was. Usually, one of my parents would come through the door and yell at me to wake up. I walked out into the kitchen expecting my dad to be scrambling eggs, but nothing. 
+The power was still off when I woke up, so I didn't know what time it was. Usually, one of my parents would come through the door and yell at me to wake up. I walked out into the kitchen expecting my dad to be scrambling eggs, but nothing.
 
 I checked all around the house, but no one was anywhere there. Not even my mom, who was usually always in her office on a video call. At this point, I walked out into the street to check for any signs of life.
 
 There were no cars in the street, no lights in any windows, no dogs in any yards. No life. Not even the birds were chirping. The only sounds were my shoes slapping the sidewalk as I strode down the street to my family friend's house.
 
-When I knocked, no one came to the door. Maybe they were sleeping? I rang the doorbell. Silence. I pressed the button about 18 times before just trying the knob, which was surprisingly unlocked. I stepped into the house and called out their name. 
+When I knocked, no one came to the door. Maybe they were sleeping? I rang the doorbell. Silence. I pressed the button about 18 times before just trying the knob, which was surprisingly unlocked. I stepped into the house and called out their name.
 
-Nothing except my voice echoed through the home. I took off my shoes and started up the stairs to the second floor. I checked all the rooms, even the bathroom (after knocking first). No one. 
+Nothing except my voice echoed through the home. I took off my shoes and started up the stairs to the second floor. I checked all the rooms, even the bathroom (after knocking first). No one.
 
 I could tell you about all the houses I looked through without finding anything, but that would waste time, so I'll just skip to the part that matters.
 
@@ -48,7 +50,7 @@ It came at me in a crawl, like a drunk dog trying to run at top speed, and I saw
 
 When I reached the gate, it was unlocked like everything else in the neighborhood, and I burst through it and slid the lock, which didn't do much since the thing was already digging its claws into the wood in an attempt to climb over the gate.
 
-I ran over to a large bush on the far side of the yard and practically slid under it, diving facefirst through a hole in the bottom of the fence on the other side. I'd discovered the hole when I was 7, and I and the kid in that house would use it as a shortcut to get to each other's yard. 
+I ran over to a large bush on the far side of the yard and practically slid under it, diving facefirst through a hole in the bottom of the fence on the other side. I'd discovered the hole when I was 7, and I and the kid in that house would use it as a shortcut to get to each other's yard.
 
 I wasn't sure I'd be able to fit, in because I hadn't used it in such a long time, but by some miracle, I squeezed through. And right in time, I felt the thing's claw tear into the end of my pants as I pulled my legs through.
 

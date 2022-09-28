@@ -142,7 +142,7 @@ I exited with a meaningful nod and started for the exit to the gardens, meaning 
 
 Kaz came slamming through the door and started running for the end of the corridor, dragging me along behind him at a brisk rate of speed. He yelled over his shoulder, “We must stop at the equipment room to grab a tranquilizer gun! Move quickly!”
 
-We both grabbed a tranq gun and booked it over to the Terrestrial wing. My stomach knotted as the door to the service tunnel swung open. I had a sinking feeling it wasn’t going to be a false alarm, not this time. This was the real deal.
+We both grabbed a tranq gun and hustled over to the Terrestrial wing. My stomach knotted as the door to the service tunnel swung open. I had a sinking feeling it wasn’t going to be a false alarm, not this time. This was the real deal.
 
 \#
 
