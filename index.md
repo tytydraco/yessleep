@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 7382
+file count: 7383
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
@@ -3679,6 +3679,7 @@ file count: 7382
 * [LASIK surgery fixed more than just my eyesight](out/LASIK_surgery_fixed_more_than_just_my_eyesight.md)
 * [Last Agony](out/Last_Agony.md)
 * [Last Legs](out/Last_Legs.md)
+* [Last month I took the stairs for the last time in my life heres why](out/Last_month_I_took_the_stairs_for_the_last_time_in_my_life_heres_why.md)
 * [Last night during sex my boyfriend went Specter Mode](out/Last_night_during_sex_my_boyfriend_went_Specter_Mode.md)
 * [Last Night I Dreamed of Cosmic Horrors Again](out/Last_Night_I_Dreamed_of_Cosmic_Horrors_Again.md)
 * [Last night I got a reCAPTCHA There was something horribly wrong with it](out/Last_night_I_got_a_reCAPTCHA_There_was_something_horribly_wrong_with_it.md)
