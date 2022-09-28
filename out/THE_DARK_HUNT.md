@@ -40,9 +40,7 @@ I swung fiercely with all my might hacking the air as it weaved around with an u
 
 Under the influence of rage, I had allowed myself to run too close to the creature as it now focused itself to me completely. There was a second of pause and time seemed to have suddenly stopped as we both made eye contact. For that split second, I felt a connection with the creature... a connection linked in pure rage and anger, and I knew, I think we both knew that this would only end with one or the other... one of us dies or both of us dies....
 
-As time made its way back, I turned and ran. I ran as fast as I could beaming towards a large and old tree stump that I had marked as reference of direction. I was sprinting as if burning my soul as fuel. Amidst all that I could hear the loud galloping
-
-sound that was charging behind me. I felt a chill run up my spine as I gave all my might, I dodn't dare to look back as I knew it would slow me down and that would make all the difference.
+As time made its way back, I turned and ran. I ran as fast as I could beaming towards a large and old tree stump that I had marked as reference of direction. I was sprinting as if burning my soul as fuel. Amidst all that I could hear the loud galloping sound that was charging behind me. I felt a chill run up my spine as I gave all my might, I didn't dare to look back as I knew it would slow me down and that would make all the difference.
 
 As I neared the tree stump of reference I had to think quickly. I leapt to the right as I dug into the pile of dead leaves on the side of the stump. I quickly turned around on my back as I came face to face with the creature charging at me, its mouth wide open with jaws dangling around and one glowing eye that was fixed on to me. Its arms waving in the air like a mad man as it hurled itself towards me.
 
