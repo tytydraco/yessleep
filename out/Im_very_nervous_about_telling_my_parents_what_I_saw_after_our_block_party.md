@@ -1,4 +1,4 @@
-At first, I was just nervous about how my parents would feel. There comes a time in a one’s life when being terrified of nightmares even after you know it’s all a dream is no longer acceptable, and senior year of high school is well past that point. I do have some excuse—narcolepsy is a bitch. Imagine if at any point during class you could look down and suddenly realize you showed up to school naked, you’re missing the ten page assignment due today, and you’re scheduled to go to a class in a room you can’t find. Even after a friend shakes you awake, you’d be rattled.
+At first, I was just nervous about how my parents would feel. There comes a time in a one’s life when being terrified of nightmares even after you know it’s all a dream is no longer acceptable, and senior year of high school is well past that point. I do have some excuse—narcolepsy is a bitch. Imagine if at any point during class you could look down and suddenly realize you showed up to school naked, you’re missing the ten page assignment due today, and you’re scheduled to go to a class in a room you can’t find. Eventually you learn a few tricks; the typical rules you’ve read online for dreams usually apply. When light switches work you’re not dreaming, when you’re dreaming text is hard to read. But when it can happen at any time, you’d be rattled even with the best system in the world.
 
 Then, I was afraid of how they might overreact. My family has a very minor history of mental illness, but with how neurotic my mom gets about my health, I know she’d stay up late worrying and demand a full psychological battery on me if I really kept insisting that I didn’t dream this. Frankly, I was slightly worried that they might find something.
 
@@ -20,6 +20,6 @@ I was in my bed. My mom was there. She said she came back to the house for a qui
 
 But for everything that I was afraid of saying at first, I’m absolutely terrified of making any noise that might indicate someone else is in the house now.
 
-Because when I walked out of my room to use the bathroom, I saw it again. I ran to the bathroom again. I’m locked in here again.
+Because when I walked out of my room to use the bathroom, I saw it again. I ran to the bathroom again. I’m locked in here again. The light switch is working. I’m dead awake. 
 
 And my parents’ door doesn’t lock.
