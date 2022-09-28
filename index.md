@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 7378
+file count: 7379
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
@@ -2394,8 +2394,8 @@ file count: 7378
 * [I saved a white snake](out/I_saved_a_white_snake.md)
 * [I saved a young womans life I should have let her die](out/I_saved_a_young_womans_life_I_should_have_let_her_die.md)
 * [i saw a skinwalker on riverdale road last night](out/i_saw_a_skinwalker_on_riverdale_road_last_night.md)
-* [I Saw Aka Manto](out/I_Saw_Aka_Manto.md)
 * [I saw Aka Manto](out/I_saw_Aka_Manto.md)
+* [I Saw Aka Manto](out/I_Saw_Aka_Manto.md)
 * [I saw heaven and now I want nothing more than to sin](out/I_saw_heaven_and_now_I_want_nothing_more_than_to_sin.md)
 * [I Saw How We Will All Die](out/I_Saw_How_We_Will_All_Die.md)
 * [I Saw It in the Depths](out/I_Saw_It_in_the_Depths.md)
@@ -3398,6 +3398,7 @@ file count: 7378
 * [Im Trapped in Sheolton A Town With Fake People in it Part 3](out/Im_Trapped_in_Sheolton_A_Town_With_Fake_People_in_it_Part_3.md)
 * [Im trapped inside a desolated hospital with creatures roaming the dark hallways](out/Im_trapped_inside_a_desolated_hospital_with_creatures_roaming_the_dark_hallways.md)
 * [Im trapped on the school bus and theres no escape](out/Im_trapped_on_the_school_bus_and_theres_no_escape.md)
+* [Im very nervous about telling my parents what I saw after our block party](out/Im_very_nervous_about_telling_my_parents_what_I_saw_after_our_block_party.md)
 * [Im working at a Christian summer camp Some weird things are going on](out/Im_working_at_a_Christian_summer_camp_Some_weird_things_are_going_on.md)
 * [Im worried about my neighbourhood any advice](out/Im_worried_about_my_neighbourhood_any_advice.md)
 * [Im worried for my wife](out/Im_worried_for_my_wife.md)
