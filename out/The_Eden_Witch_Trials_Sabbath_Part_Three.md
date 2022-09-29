@@ -62,7 +62,7 @@ I have selected the most pertinent passages from my great–(x16)–grandmother�
 
 *After the baptism, Mr. Bayley led the sisters back to the clearing, where he instructed Goody Reed,* “Fetch the offering for us.” *I could not see where she went, but she returned with one of Goody Sheldon’s missing lambs. The lamb was placed onto the unhallowed altar of rock. Goody Reed handed Mr. Bayley a blade. He held the blade to the throat of the bound lamb, and after a silent prayer, he slit its throat. Goody Reed collected its blood in a basin. As the lamb breathed its last, Mr. Bayley produced a large red book. Dipping a pen into the lamb’s blood, the sisters signed their names in the book.*
 
-*’Twas a Witches’ Sabbath. There* are *witches in Eden. Yet they were neither poor Goody Jacobs nor foul–mouthed Goody Oliver. They were godly Mr. Bayley and pious Goody Reed. I could only see the shadows of the rest of the congregation.*
+*’Twas a Witches’ Sabbath. There* were *witches in Eden. Yet they were neither poor Goody Jacobs nor foul–mouthed Goody Oliver. They were godly Mr. Bayley and pious Goody Reed. I could only see the shadows of the rest of the congregation.*
 
 “We are in desperate need,” *Mr. Bayley said.* “The Master has no more need for burnt offerings. He asks for a living sacrifice.”
 

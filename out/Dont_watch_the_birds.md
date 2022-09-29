@@ -1,0 +1,15 @@
+I am Dr. Manning of DCEP and we have unfortunately lost control of subjects 000001-100000
+
+Do not look at the birds. I repeat do not look at the birds. We were tasked with eradicating a murder of crows inflicted by a new strain of the avian flu. It’s effects have altered the minds of susceptible mammalian and avian creatures, including you and the dogs/cats you own. It makes the afflicted mammal / avian extremely aggressive and easily triggered. It also causes delirium, slurred speech, reduced cognitive function, and trouble seeing. It has spread throughout the crows all across America and only Christ knows where else. 
+
+My wife was the first afflicted mammal that we have record of. We didn’t know until two weeks after he was scratched. She became irate of my son’s crying and dispatched of him by the time I got home. Some of her teeth were cracked from the force applied to my son’s femur.
+
+The birds can be triggered by even something as mundane as eye contact. The disease is thankfully not airborne. Do not look at the Crows, do not attract the Crows. Do not even talk about the crows. If there is an opportunity too shoot a crow, do not miss. Use three layers of gloves taped to sleeves of a safety suit. Preferably use triple layer trash bags for the body and even then wear a proper hazard suit to begin phase two. 
+
+Pour bleach on any ground that the Crow touched or it’s blood. Sook the trash bags in anything flammable such as gasoline or lighter fluid and burn the bags. Remain at least 50 feet away from the body while smoke is still in the air. When all smoke thins out, go back and repeat the burning process. Do not skip the second time. 
+
+Do not take your suit off yet. Bleach every part of said suit that you are confident won’t leak onto skin. While you wait for the bleach to finish soaking bury the site or bin you used to burn the crow. If you can distinguish the crow from the rest of the ashes, you did not burn thoroughly enough, repeat the burning and cleansing process. After burying the site take off your suit and gloves. DO NOT make direct contact with the outside of the suit or gloves. There is no cure. The suit and gloves need to be locked away somewhere where you will never see then again.
+
+Congratulations, you survived one bird, you are a hero for safely disposing of such a yile animal. We are going to try to deduce the best means to eradicate Crows. Im the mean time do not exit your homes unless absolutely necessary. There is no reliable test for infection. Do not aged anyone you meet at they may kill you for it. Don’t talk to anyone friend or not.
+
+Anyone thought too be infected will unfortunately be disposed off. It if to late for me lm afriad. God speed too you all and may fate protect youre lifes because gob knows science couldn’t. Dr. Manmings sighihg of.
