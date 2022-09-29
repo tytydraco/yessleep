@@ -57,3 +57,19 @@ Please.
 He’s knocking. 
 
 “Darling, wife, come on out now. I promise I didn’t make a mess.”
+
+Edit: Hi, just an update! I’ve scrolled past your comments and realized you guys were right! 
+
+He didn’t cheat, and the opposite at that, so I went out of the room that night. He begged for forgiveness, which was something I really didn’t expect. One thing though, I did explain to hin that he may or may not have killed the wrong person and told him that I was the one behind the stupid account.
+
+He said it was fine (surprisingly, this conversation went on casually as if we were talking about what food to eat for dinner) and that he’d just drive far away to throw the woman’s remains. 
+
+Yes. Remains. While I was having the worst breakdown of my life in our bedroom, he had already put the woman in SEPARATE BAGS (this was a lot to take in especially because there was not one speck of blood on the floor or the wall. 
+
+And, uhm, well, during the 5 days that I didn’t put an update, we were out… hunting. I won’t go into further details, but I kind of get why he does it. How it feels. How my blood rushes whenever they try to run – crawl away. 
+
+Thank you for all your support, because now, I have one very loving husband, and…  the last time I counted there were 4 bodies here. I’m not sure, but, yeah! 
+
+Also, to that one person that told the authorities,
+
+Keep your doors locked.

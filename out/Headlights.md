@@ -1,0 +1,25 @@
+I manage an auto parts store, and have moved around to three different stores in Colorado. At the time this happened I was working at a store in Lakewood; not a sketchy area, not fancy, just a normal city area.
+
+Because we sell stereos and small car accessories we would routinely get shoplifters, but even as management all you can really do (and all you really should do) is call them out. "Hey, man. I literally just watched you pocket that. You gonna pay for it?" Either way, just let it walk. Nothing in any store is worth getting shanked or shot over, and accounting has already compensated for the loss.
+
+Anyway, we got really busy during the after-work rush of 4:30-6:30 and out of the corner of my eye I caught a guy shove some expensive headlights (Sylvania ZXE Golds, like $70+ each) in his hoodie pockets and speed walk for the door, trying to take advantage of us being swamped by customers. I did my usual, "You gonna pay for those?" and he looked right at me and said, "Do something about it." Already tired and stressed from a crazy shift I told him not to bother ever coming back to our store. He stopped in the airlock and just death glared at us through the glass door, moving his eyes from me to my other employees.
+
+I tried to ignore him but I made it through three entire transactions before he finally left. I joked with the customers who saw it, and moved on. If you've ever worked retail, you know that angry/aggressive customers aren't rare, and it just felt like another normal event. Once we slowed down a little, a customer came back inside saying that he saw someone taking pictures of all the cars in our parking lot, like taking several angles of each car. I didn't think much of it but kept it in the back of my mind.
+
+When it came time to close and I was finishing up my closing tasks, the cashier I was closing with said she noticed a car had been idling in the parking lot with its parking lights on for long enough to make her nervous. She was a young and good looking woman, so I kind of thought maybe she was just being paranoid. I still had that picture taker in the back of my head, though, and I was good friends with her, so I told her instead of taking the trash to the dumpster to leave it inside by the dock door and we'd get it tomorrow.
+
+After we locked up I waited until she had got in her car and pulled away, keeping an eye on the car she'd talked about. It was a beat up mid nineties Honda Accord. She drove away and it didn't move, so I assumed it was just some high school stoner killing time in the lot. As I pulled out of the lot, though, it turned its headlights on and pulled up right behind me. The lights were super bright and much whiter in color than stock ones should've been, and I couldn't help but remember that the bulbs that had been lifted by that guy were our top of the line ultra-brights.
+
+I hopped on the main road by our store and the car followed. Not too weird, it's the main road. I always took a side-street roundabout way home since it avoided all the traffic had fewer stoplights, and when I turned onto the first side street the car followed. Weird. The shoplifter's piercing glare came back to me, and I decided to take a few more random turns than normal. Each turn, the car followed. It wasn't long before I realized I was definitely being tailed.
+
+I tried to play cool but inside my heart was pounding. The car never revved up on me or followed too closely, but it stayed behind me as I criss-crossed and doubled back up and down random side streets, at one point even hopping back on the main road and driving by my store again. I continued to drive for a bit as I debated what to do, staying well away from where I actually lived. I finally pulled into a gas station and the car pulled up right into the space next to me.
+
+I made sure my doors were locked, didn't shut my car off, and pretended to play on my phone. The car had limo-dark tint and I couldn't see a thing inside. I debated calling the cops or calling one of my friends but for some reason decided to just take off again.
+
+This time, the car didn't follow.
+
+I raced home and made it into my apartment, locking the door. Everything seemed fine after a half hour had gone by, and I started to relax. While I was winding down on the couch, my living room's curtains suddenly lit up with super bright headlights, and whatever car was out there stayed idling there for several minutes. It very well could've been a neighbor getting dropped off or a late night food delivery, since my apartment complex was pretty big. But after being chased down random Lakewood side streets by bright white headlights, I thought anything was possible, and I got even more paranoid.
+
+The car finally left after a few minutes and nothing else happened that night, but I still played video games that night with my pistol on the sofa next to me, after triple checking my doors and windows.
+
+Can I verify it was the shoplifter? No. But all of the coincidences added up to one of the creepiest nights I've ever had as a retail manager. And that's saying something.
