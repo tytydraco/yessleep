@@ -36,7 +36,7 @@ But this time,I cut.
 
 I cut a small cube of flesh off my earlobe.Blood drips and falls,and I grab the bandages from the cabinet and desperately wrap my ear up like a package.It still burns.I try to figure out how I would explain the incident to mother,but I believe she would just be more upset about her blood-stained nightgown.
 
-I hurl in a ball the empty bathtub and cry,my nightgown getting stained with water from what remains of my bath from the previous night.Blood stains the bandaging,and my brain becomes foggy.
+I hurl in a ball in the empty bathtub and cry,my nightgown getting stained with water from what remains of my bath from the previous night.Blood stains the bandaging,and my brain becomes foggy.
 
 The door opens,and mother kneels beside the bathtub.
 
