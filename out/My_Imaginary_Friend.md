@@ -1,13 +1,87 @@
+Everyone goes through the phase of being afraid of the dark. Personally, I was never a fan of the void that surrounded me as I fell asleep, even now as I am twenty-three. But when I was about eleven, I had a bone-chilling fear of the dark. The kind of fear that could kick me into a panic attack even when going into the basement to turn on a breaker. I was never far from any light source for the longest time, even scared to simply go to sleep. Every night was like trying to live through a waking nightmare. 
 
+&#x200B;
 
+My parents were rarely home at night. My mom working as a nurse in an older hospital meant she was being called out late at night. Dad was always out of town on business meetings, coming home once or twice a month. His little time at home was wasted on the couch with a bottle within reach. I never blamed them or cried about it. I like to think the younger me understood that they had to get money. Even if that was the case, I was still left alone at night. I was left alone a lot, actually.
 
-This is kinda long, but I need someone to know so they don’t make the same mistakes as me. When I was little I had an imaginary friend. She was skinny, pale, had blue lipstick, and had this cool choker around her neck. When I would draw her my friends would call her scary and suggested meeting a mermaid or a unicorn. I thought she was adorable, with her hair cut short, her white eyes, and her smile. Her very caring smile. I always thought she was more of an angel. So much so I named her Angel. She came with me everywhere, with my friends, with my family, or when I was getting chocolate from my grandma down the road. Over time I learned that we had the same interests. Even though she never spoke. 
+&#x200B;
 
+One night when my parents were gone, I remember lying in bed, staring up at the ceiling and hugging my bear. It felt normal to a point. It wasn't even a type of therapy or something I did to pass the time. I just couldn't sleep. The lamp was always on, and my clock's tick was mind-numbing to the point that I usually counted every tick before falling asleep. But that night, it stopped. The room fell silent, and I remember feeling cold. It was like a draft had finally found its way into my bed, but there was no wind. I sat up and looked at the clock, but it was gone. It vanished from my nightstand in less than a moment, leaving me. I honestly didn't know what to do. The light was still on, and I still didn't feel tired, so I sat up and looked around the room. 
 
-My parents were worried when Angel was still around when I was 13. They tried to get me into other things like hiking or swimming. I loved to swim, but whenever I would start to walk towards the water Angel would let out a screech unlike any other. Scratchy, broken almost. I learned to avoid it. As I got older I would notice more things about Angel. She had bruises almost everywhere. When I would ask her about it, she would simply point outside, make a falling motion, and giggle without ever making a sound. People would make fun of me, but I didn’t care. Angel was always there for me. They weren’t.
+&#x200B;
 
+I remember searching for a moment before locking eyes with the clock and finding it lying flat on the other side of the room. It was close enough that I wanted to get it, so I got out of bed and went over to it, across my fuzzy carpet. When I got there, I heard the sounds of my box spring and mattress giving as something went on top of my bed. It felt quiet still.
 
-Eventually in highschool I got a boyfriend, Evan. He was kind, charming, and could make you laugh so easily. I was head over heels, Angel never liked him though. She would always flip him off or try to slap him. This continued for years until me and Evan got married. Angel was the worst on that day. She would let out her broken screech and for the first time she touched me. Actual contact. She pushed me back when trying to leave the house to get ready. I figured I was going through extreme wedding jitter’s since she wasn’t real. She was just a character I made up as a kid, one that not even Evan knew about. Ever since I ignored her screeches, her freakouts, hell I ignored her in general. I wish I didn’t.  When my 23rd birthday came around I saw Angel looking upset. A part of me still cared for her deeply, but I was too proud to admit it. I think she had given up by that night. When I went to my girls' party, my friends dared me to cut my long hair. The hair I had grown for years. I was drunk and foolish so I agreed. When it was done, I noticed the similarities of my hair to Angels. It looked almost exactly the same, just hers was a little longer. I didn’t think much of it.
+&#x200B;
 
+I remember turning around and seeing this shadow sitting on the edge of my bed, staring directly at me. It resembled a humanoid shape and lacked many features. It seemed to be faceless, but I still felt its stare. I stayed frozen for a moment before it stood slowly, walking towards me and stopping directly in front of me. I didn't dare move. It wasn't a case where I felt afraid; I just felt like it would be a dumb choice to move. It crouched and came down to my level, being in my face as it tilted its head. With a closer look, two noticeable white dots were on its face, replacing its eyes. There were also curves where the nose and mouth would be. I just remember the resting silence, and I stood still, frozen and confused.
 
-When I was on the way home I was excited to show Evan my new haircut. Angel was trying to stop me. She started crying too. I again ignored her. When I walked in the door I saw Evan waiting for me on the couch. He just looked at me for a minute. Eventually to end the awkwardness I asked him if he liked it. He started screaming at me, saying how I know he likes long hair. That I did this to hurt him. How he told me if I ever cut it he would kill me. I did remember that, but I thought he was just joking. Now I know he was serious. He grabbed me by the hair and starts to walk me towards the bathroom. I was screaming the whole time… He opened the door to a bath he prepared for us, candles lit and rose petals everywhere. He through me on the ground knocking me to my knees right by the tub. Right then I heard Angels screech, the first time I really heard it in a while. This one was different though. She was in so much pain. Evan ended up grabbing my hair and dunking me underwater, not letting me back up. I remember screaming but only bubbles arose. Eventually he let me breathe and left the room. That was the first time he hurt me… Angel was right beside me. I took a minute to breathe, get everything together and that's when Angel showed me a scar on her leg. The same one I have from a bicycle accident when I was around 9. That's when I finally realized… Angel was me in the future. Hell, not in the future, she’s me when I’m dead.
+&#x200B;
+
+It held out the clock slowly. Its movements weren't quick or sudden. It just bent down and brought it up close to me. I remember slowly reaching and taking it, feeling oddly relieved and a bit less panicked. I hadn't noticed the light was off or that the room was nearly pitch black. I remember seeing its face and smiling gently back at it, whispering, "Thank you."
+
+&#x200B;
+
+Directly after that, it disappeared, slowly sliding under my bed into the deepest shadows of my room. It was not violent... or mean. It just felt normal. Misunderstood even. 
+
+&#x200B;
+
+A bit of time passed, maybe a week. Everything moved as it usually did. My mom would wish me a good school day. At the end of the day, I would go home. I would go to bed. 
+
+&#x200B;
+
+After the time passed, I remember coming home one day, and it was relatively dark. No one was home again, so I made some mushroom soup and went to my room to read. 
+
+&#x200B;
+
+I didn't really have friends, but that was okay. A good book can take you somewhere completely new. But once I entered my room, the door closed, and there it was again. The shadow. My friend.
+
+&#x200B;
+
+I will start referring to the thing as my friend from now on. So, my friend didn't really talk. It liked to write on pieces of paper, dropping them on my floor for me to find. Through this, I found out that my friend was also lonely. It told me things good and bad, a lot of which I promised to never share and plan to stick to that. It told stories through writings on the walls. The words were different too. It seemed to speak a foreign language, one of which I had no problem with understanding. 
+
+&#x200B;
+
+When everything was good and done, I felt a little less lonely when it went under the bed again. The only thing was that Mom and Dad didn't like that I was writing on the walls, but I took the blame anyways. But after a while, they started getting worried. I didn't want to tell on my new friend, but Mom and Dad pushed me more until I finally told them about him. 
+
+&#x200B;
+
+He did not like that.
+
+&#x200B;
+
+I think he felt betrayed by that and disappeared for a while. He stopped coming and talking to me for a solid month, leaving me alone again. I said sorry to my bed every night, hoping for a reply. Nothing worked. Nothing happened; he just left me alone again. 
+
+&#x200B;
+
+Finally, after a month or so, my friend returned and dropped me a note. The writing was messy and dark, being almost intangible and abstract. I won't show the letter, but I can write out the contents here:
+
+*Death is fine*
+
+*Even when it looks bad.*
+
+*All is good*
+
+*Do not worry*
+
+I remember feeling afraid after reading it. It felt like I didn't know who my friend was anymore. I felt genuinely sad and broke down crying as I curled up on my floor. 
+
+&#x200B;
+
+All I remember was the police coming to the door, asking me to open the door, and telling me my parents were dead. 
+
+&#x200B;
+
+I didn't find out until later that they both died from heart attacks, but it doesn't really matter. My friend is still here, and I know he did this. He hasn't left me alone and I am asking for help. He won't let me talk to people and only allows me on social media. He promises to never look, but I think he is lying. He wants me all to himself. 
+
+&#x200B;
+
+I do not know what to do, and I am scared.
+
+&#x200B;
+
+He's here.
+
+&#x200B;
+
+Goodbye.
