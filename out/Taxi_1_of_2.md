@@ -1,0 +1,41 @@
+I was always quite pleased at how long I managed to stay in touch with my best mates from university, when a lot of people just drift apart after graduation as they all go off to get jobs in different parts of the country. Four of us remained a pretty close-knit group, and we would often organise camping and hiking trips - yes, we were pretty nerdy - our "lads' holidays" involved quaint country pubs and hill climbing in remote beauty spots, instead of boozy weekenders in Amsterdam or whatever.
+
+About ten years ago we'd been camping in the Lake District. Simon wasn't able to do the whole two weeks - he had to leave a few days before the rest of us since he was giving a talk about Viking history at a museum event in Nottingham.
+
+Four of us were shared between two vehicles on this trip, and since Simon was the driver of neither,  he had planned to make his own way home via train, leaving late afternoon on a Sunday. He called a taxi from the campsite, which would take him to the train station in the Lake District town of Kendal, and from there it was about a four hour train journey home.
+
+I had offered to drive Simon to the station myself, but he refused my offer, since it's a "proper shlep" from the campsite, and he didn't want to cause any "faff".
+
+So Simon caught his taxi - but then there was an odd thing where 15 minutes later, a second taxi arrived at the campsite, asking for Simon also. We told this second driver that Simon had already left, and I suggested it was one of those things that happens from time to time, where you accidentally catch someone else's taxi, or maybe the dispatcher accidentally sends a request twice…or whatever.
+
+The driver seemed a bit pissed off though, since he'd just wasted a journey that's 40 mins each way. The driver said that he actually personally took Simon's booking and no-one else would have got it. I actually called Simon's mobile at this point, to resolve the confusion - since I could have sworn the taxi he caught had the same company logo on it - "Crowley Taxis" - just like this second one. Simon answered, confirmed what I thought, and even gave me the name of his driver. 
+
+I told the second taxi driver that yes, Simon is indeed riding in a car from "Crowley Taxis", and the name of his driver is "Barry"....but on hearing that name, the taxi driver just stared at me with this really weird death stare…as if I'd just insulted his wife or something...it was weird as hell…and then he shook his head, and I swear he muttered "Fucking sick bastards" just as he drove off, over-revving his engine like some road-rage guy.
+
+Two days later - on Tuesday - I got a phone call from Simon's father. Apparently Simon hadn't turned up on Monday for the event that he was hosting in Nottingham and everyone was trying to locate him. I suddenly had this horrible sinking feeling. It turned out that we were the last people to see him, and I explained all that I knew about his movements - the details of the taxi that he caught at 5pm Sunday afternoon, and what train he was trying to catch…just everything we knew.
+
+The police visited us at the campsite on Tuesday afternoon. They interviewed us in detail and we gave them the same story as we had all the others. We asked the police how the investigation into the taxi was going, and whether they knew if Simon had caught his train at the Kendal station. We just got a sort of stock "We're looking into that" answer, but the police were not giving us any indication as to exactly where in his journey they thought he went missing. We were still all in the dark. 
+
+No-one could have called it a holiday at this point, but we felt obliged to keep camping in the area, since it was a reasonable assumption to us that Simon's vanishing might have happened during the taxi journey between here and the train station.
+
+Then on Wednesday morning, the police rocked up again and hauled us all down to the police headquarters in Kendal. The mood, and tone of questioning with the police had definitely changed. 
+
+Well, it's fair to say that day was a long, upsetting, confusing ordeal. Although they kept saying this was a missing person case, the police interviewers were NOT fucking about. It felt like there was some sort of developing situation, and they kept us at the station until quite late in the day. At least we got free takeaway.
+
+The interviewers were being really cagey with the details, and the sort of questions they were asking us didn't really make sense. They were really scrutinising all of our movements and activities during the holiday - all we could say was what we had done that day. We had hiked in some hills, had lunch and dinner in pubs, and went back to the campsite.
+
+We kept repeating to the police all the stuff about the confusion with the taxis - they were interested in the exact details, but couldn't tell us how it related to the disappearance - they just kept saying "We're looking into it". We all wanted to understand what had actually happened to Simon, but the police seemed to be treating us with suspicion and fishing for us to give them some kind of new information, without allowing us to be privy to what they knew.
+
+As we were leaving the police station, we saw two officers walking past us, escorting the same taxi driver I met after Simon left. This time though, the fucking guy had bloodshot eyes and looked like shit, like he hadn't slept in two days. He wasn't in handcuffs or anything like that; the body language of the cops towards him looked sympathetic, as if they were trying to comfort him. We actually made eye contact as we passed each other, but the guy looked like he was on another planet and I don't even think he recognised me. He still had his cab driver lanyard around his neck. As he got close, I managed to read the name: Jeremy Crowley.
+
+The following days and weeks were worse though, as we learned things. The police still had loads of questions for us, but as time went on, they seemed satisfied that our account of the events matched with whatever other information they had pieced together. 
+
+As I say, we eventually learned some things. On the Sunday evening, at about 6pm, an hour after Simon had caught that taxi, a local hiker had seen a strange light seemingly beaming up out of a lake that evening, as it was nearing sunset. This lake was about ten miles from our campsite. The hiker went to get a closer look - he walked all the way to the end of a long wooden pier on the lake - and he swore blind that just off that pier, down in the water below, he was seeing the headlights of a submerged car. 
+
+About a minute later though, as he was watching, the lights faded away to nothing. Still, the hiker alerted the police. Soon after calling them, a fairly big team arrived at the scene, including police divers, medics, the works. The divers took ages to find anything, and they were starting to think it was a wind-up, but they did find something in the end.
+
+What the police found right at the bottom of the lake, just off the pier, was an old rusted shell of a car, an old taxi in fact. This was soon identified to be a taxi that disappeared twenty-six years ago along with its driver. It had been there the whole time - it was pretty much entirely buried in the silt and mud of the lake bed - only the roof and part of the front windshield was poking out of all that shit.
+
+It took the authorities ages to actually excavate the thing out of all that sediment. When they did though, they discovered that around the driving seat of the taxi were old human skeletal remains, and as they expected, the dental records of the skull matched those of a man missing for the last twenty-six years called Barry Crowley.
+
+And then I swear to god this is the bit that continues to gnaw away at my brain all day and all night…the forensic team carried on scooping out all the shit and detritus inside this decades-old, crumbling, rusted car frame, and what they then found, encased inside twenty-six fucking years of compacted mud, was the fresh corpse of Simon strapped into the back seat.
