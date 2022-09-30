@@ -1,0 +1,23 @@
+ I stand at a curb where there is a calm in the air uninterrupted by animals while the sky has an exquisite post-apocalyptic look with orange and gold light interspersed with the dispersal of night. A loud crying steals my attention away momentarily, my weather app finally loaded. There is a family in sudden mourning and my black box finally found a signal. There is an air of poverty about this family gathered at the hospital across the street. Soon there is a gathering of more people, sullen looks, friends and extended family members would be my guess. My passivity is interrupted by the scene their making, I check my email even though I didn’t get a notification and walked back inside to my job. What could I say to them? What could I even offer but meek sympathy? You carry on with your day. You ignore. You suppress. You hate.
+
+That was yesterday. 
+
+How could I help them then? How could I help anyone? But it all changed.
+
+It just happened one morning. I woke up and the plastics around me could bend to my will. I noticed it when I went to eat some cereal but was annoyed when I discovered the milk had gone bad and cursed the milk jug. The instant I tossed the container aside, muttering a disappointed “Fuck” under my breath, the container spectacularly exploded. I wondered if I was chosen by ecclesiastical or perhaps supernatural beings and this was a test of faith? Maybe I simply evolved? I quickly put to rest that I had some undiagnosed form of schizophrenia by calmly emptying the plastic bowl of cereal and contorting it with my mind then recording it and playing it back. Bending and twisting it were remarkably easy but getting an exact shape took more concentration. I had to think about the Venus de Milo and hold on this mental image for minutes, focusing on every detail and imagining parts that I didn’t know such as the feet in order for the bowl to take that shape. All I have to do is think about it and it will happen. 
+
+I quit my job and set about how to exploit this ability.
+
+I’m going to fix this world. 
+
+I’m going to rebuild and help the impoverished masses.
+
+Upon demonstrating this ability to the masses I will be praised as their savior. 
+
+The outside had become terribly humid over the course of several hours. The sidewalks in the heart of Los Angeles have become ever more congested. Bums on the corner beg for money or food with a few singing out of tune. Around me I see the young and old in their pristine outfits clutching their equally pristine electronics. There are several people in a group with one holding a selfie-stick recording their activities where they are as loud and as boisterous as possible. It looks like an impromptu gathering of the rich & powerful. I see the octogenarian scream into their phone at some poor unfortunate who cannot scream back. I see laughing and amusement from the college kids in the overpriced restaurant being served margarita towers. All around me I see the same kind of people on repeat. All of these fake people.
+
+There are sudden screams from several women in the group hosting a livestream. They continue shrieking and clutch at their breasts and asses. The screams rise in pitch as more around me convulse in horror & panic. A Tesla careens onto the curb and slamming into a homeless encampment before the battery explodes bursting with fire. The ladies around me scream and scream and scream until I notice that their plastic breast and ass implants have gone rogue. The implants tear themselves away from their hosts in a gory display. One woman, the one who held the self-stick, clutches her face when the silicone tears away from her lips revealing the raw meat underneath the sun bleached skin. The implants form together into a massive puddle. The screaming octogenarian man clutches at his crotch as his penis implant becomes sentient; he gestures as though he wants to hold it in place and refuses to let it go. The signage above the college kids gives way and crushes the lot. They pull out their phones to make a call but the plastic casing and gorilla glass melts away scalding the hands and soon creates a point that impales their brains as a man’s pacemaker ruptures and he dies like a cartoon character zapped by electricity. 
+
+A homeless man approaches me, just as the pile of silicone forms a statue in my image; he recognizes this significance and bows before me praying for his safety.
+
+Here I am, a mutant who perpetuates brutal and terrible things being loved by a stranger. It feels like mistaken identity. Like I attended a funeral and everyone there thinks I'm the deceased who miraculously is not dead.
