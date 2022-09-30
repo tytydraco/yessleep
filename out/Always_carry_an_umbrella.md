@@ -48,8 +48,7 @@ In the seventh time crossing the same particular area, this time at the northern
 
 He tried peering down the mysterious puddle, but not even the bleak moon dared to shine upon the abyss that the puddle had become.
 
-But, no matter how impregnable the dark, there was something we could see clearly.  
-
+But, no matter how impregnable the dark, there was something we could see clearly.
 
 One bulbous, bloodshot eye.
 
@@ -87,9 +86,9 @@ With a wicked cackle, the water beast lunged at Ven, each eye in the clearing pi
 
 Shame, though. For how many eyes it had, it didn't notice his second rock.
 
-Ven juggled the camera to his left hand, outstretched his right arm backwards, bending it upwards and then down once more. Rock in hand, he flicked his wrist and halted in thundering succession, catapulting it straight to one of the numerous eyes that covered the water beast.
+Ven outstretched his right arm backwards, bending it upwards and then down once more. Rock in hand, he flicked his wrist and halted in thundering succession, catapulting it straight to one of the numerous eyes that covered the water beast.
 
-The way he turned around screamed he was confident with a bullseye, and ran as fast as he could. Though the pain assaulting his entire body in the form of dull aches slowed him down, he made sure to step on each and every eye littered on the ground and poke the ones on the trees.
+After several twists and turns, enough to make me want to puke, he started to run as fast as he could. Though the pain assaulting his entire body in the form of dull aches slowed him down, he made sure to step on each and every eye littered on the ground and poke the ones on the trees.
 
 'How shaky can this damned recording get!'
 
@@ -117,4 +116,4 @@ A continuation of the exact same meadow, the previous forest nowhere to be found
 
 I gave Ven a skeptical look, and handed him his video camera back.
 
-"..How do you juggle the camera so well?"
+"..I don't think umbrellas are enough to ward off eye demons."
