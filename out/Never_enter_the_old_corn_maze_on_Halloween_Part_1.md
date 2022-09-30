@@ -201,3 +201,5 @@
   If whoever or whatever these things were could so easily put an end to someone who had always been so much stronger and more confident than me, I had no doubt I would not survive this. In some ways, I didn't even care. I felt so weak and pathetic at the time, I couldn't do a single thing to help Derek.
 
   I just stood rooted to the spot, preparing myself to share the same fate as my closest friend and brother. 
+
+[Final](https://www.reddit.com/r/nosleep/comments/xs9do8/never_enter_the_old_corn_maze_on_halloween_final/?utm_medium=android_app&utm_source=share)
