@@ -1,14 +1,14 @@
-This is a story I’ve never told anyone. I’d honestly forgotten about it, but bits and pieces have been coming back to me recently, and I think it’s time for me to share it. Apologies if this is too long or rambly. 
+This is a story I’ve never told anyone. I’d honestly forgotten about it, but bits and pieces have been coming back to me recently, and I think it’s time for me to share it. Apologies if this is too long or rambly.
 
 When I was around ten years old, I spent a lot of time in the forest near my neighborhood. There was this trail that led down through a wooded ravine, with a mossy creek at the bottom. Someone had tied up a couple rope swings down there. They were pretty old—the ropes were frayed, and the wooden seats were all splintered and weather-beaten—but if you backed up enough, you could swing all the way across the creek to the other hillside. Past that, the trees seemed to go on forever. I’d explore them every chance I got, and I had a habit of stepping off the beaten path to clear my own little trails through the underbrush.
 
 One day, I was walking through the part of the woods that my friend Jackson and I liked to call “the Swamp.” The deeper you went into the forest, the more mucky it got. If you wanted to go down to the Swamp, you had to make sure you weren’t wearing your school shoes (which is a lesson I learned the hard way), because you’d definitely get stuck in the mud at least once. There were these big puddles that were so large, they felt more like ponds. Lots of tangly weeds and thorns stuck out all over the place. The bugs were *huge* down there, and we’d catch all sorts of toads and turtles—even a snake once in a while.
 
-But the thing is, we’d never gotten all the way through the Swamp. We didn’t even know if it ended at all. That was partly because our parents lectured us every time we came home covered in mud, and partly because the thorn bushes were so thick that we’d end up completely covered in scrapes and have to turn around. So we never made it very far. 
+But the thing is, we’d never gotten all the way through the Swamp. We didn’t even know if it ended at all. That was partly because our parents lectured us every time we came home covered in mud, and partly because the thorn bushes were so thick that we’d end up completely covered in scrapes and have to turn around. So we never made it very far.
 
 But that day, I’d decided to go further into the Swamp than we’d ever gone before. I wore my rainboots, plus pants and a jacket to protect me from the thorns, and set out into that vast and uncharted wilderness feeling more than a little proud of myself. I felt like a seasoned adventurer, and as I wound through the trees and prickler bushes, hopping on rocks and logs when the puddles were too deep to slosh through, I kept imagining how Jackson would react when I told him about my adventure.
 
-I was probably hiking for about thirty minutes before I found the clearing. A small space of marshland, pretty much indistinguishable from the rest of the Swamp; muckwater, reeds, and a slimy layer of algae coating everything. Nothing unusual or special about it. 
+I was probably hiking for about thirty minutes before I found the clearing. A small space of marshland, pretty much indistinguishable from the rest of the Swamp; muckwater, reeds, and a slimy layer of algae coating everything. Nothing unusual or special about it.
 
 Except for the oven.
 
@@ -20,7 +20,7 @@ But down there, in the Swamp…there was just nothing else around. No footpaths,
 
 Nothing except for that oven.
 
-It didn’t make any sense. 
+It didn’t make any sense.
 
 So of course, I *had* to take a closer look.
 
@@ -38,7 +38,7 @@ The hair on my arms stood on end. I glanced around, squinting into the foliage. 
 
 After a moment, the feeling hadn’t quite passed, but it was a little easier to ignore in favor of my childlike curiosity. So I shrugged and bent to peer into the oven.
 
-The inside was pretty much exactly the same as the outside—rusted, overgrown, and wet. I examined it for a bit, decided there was nothing more to see, and shut the oven with a *clang.* 
+The inside was pretty much exactly the same as the outside—rusted, overgrown, and wet. I examined it for a bit, decided there was nothing more to see, and shut the oven with a *clang.*
 
 All at once, the forest came alive again.
 
@@ -52,9 +52,9 @@ It probably would’ve stayed that way, if Jackson hadn’t gone and killed that
 
 Here’s how it happened: Jackson and I were messing around in the woods, as usual. We were pretty far past the creek and the rope swings, but not quite into the Swamp. It was an area we played in often. There was this enormous mossy log—we called it Home Base—and even though it wasn’t much of a fort, it was *ours*, and we loved it. We decorated its nooks and crannies with all sorts of “treasures” like pinecones, rocks, and flowers; we even smuggled some of our toys down there. Jackson brought some of his mini G.I. Joe figures, setting them up to keep lookout, and I brought a few of my tiny plastic dinosaurs for them to fight. I brought one of my Polly Pockets, too, which Jackson said was too “girly,” but even he had to admit that having a damsel in distress made our games of make-believe much more fun.
 
-Sorry, I didn’t mean to get sidetracked. It’s just been a long time since I’ve thought about any of this. 
+Sorry, I didn’t mean to get sidetracked. It’s just been a long time since I’ve thought about any of this.
 
-Anyway, we were playing at Home Base, and Jackson had filled his pockets with a bunch of pebbles along the way. We started playing this game where we’d say, “Bet you can’t hit that,” and point to some tree or rock or whatever. Then we’d throw a pebble. If you hit your target, you got a point. Not the most original game in the world, but it kept us occupied for a while. 
+Anyway, we were playing at Home Base, and Jackson had filled his pockets with a bunch of pebbles along the way. We started playing this game where we’d say, “Bet you can’t hit that,” and point to some tree or rock or whatever. Then we’d throw a pebble. If you hit your target, you got a point. Not the most original game in the world, but it kept us occupied for a while.
 
 Then a bird landed on a low branch nearby. I can’t remember what kind of bird it was, but it was small—probably a robin or a sparrow.
 
@@ -62,13 +62,13 @@ Jackson pointed to it. “Bet you can’t hit that,” he said.
 
 “I’m not gonna throw a rock at a bird!” I said. “That’s just mean.”
 
-“You’re just saying that ‘cause you know you won’t hit it.” 
+“You’re just saying that ‘cause you know you won’t hit it.”
 
 I shouldn’t have let it bother me. I should've just kept my mouth shut.
 
 Instead, I said, “Yeah? Well, I bet *you* couldn’t hit it, either.”
 
-I didn’t mean for him to throw the rock. I wasn’t expecting him to. But apparently, my (admittedly weak) comeback was all the challenge Jackson needed. Because before I knew what was happening, he turned, took aim, and fired. 
+I didn’t mean for him to throw the rock. I wasn’t expecting him to. But apparently, my (admittedly weak) comeback was all the challenge Jackson needed. Because before I knew what was happening, he turned, took aim, and fired.
 
 The stone hit the bird dead-on.
 
@@ -82,11 +82,11 @@ Then, all hell broke loose.
 
 “Well, you did!” I snapped.
 
-Before I could say anything else, the bird finally stopped twitching. It fell utterly still. Something about it—that frozen, silent stillness—filled me with a sense of dread. Like deja vu, but…worse, somehow. Wrong. 
+Before I could say anything else, the bird finally stopped twitching. It fell utterly still. Something about it—that frozen, silent stillness—filled me with a sense of dread. Like deja vu, but…worse, somehow. Wrong.
 
 All Jackson and I could do was stare down at the dead bird in shocked horror.
 
-Eventually, Jackson gingerly knelt down and poked it. I started to tell him to stop, but cut myself off when he looked up at me. His face was pale. He looked sick to his stomach. And his eyes were watery. I remember that clearly; I’d never seen him cry before. 
+Eventually, Jackson gingerly knelt down and poked it. I started to tell him to stop, but cut myself off when he looked up at me. His face was pale. He looked sick to his stomach. And his eyes were watery. I remember that clearly; I’d never seen him cry before.
 
 “I think it’s dead,” he whispered.
 
@@ -100,7 +100,7 @@ I was still upset with him, and my own stomach was still roiling with guilt. But
 
 &#x200B;
 
-After ten minutes of trying to dig a hole using small sticks as makeshift spades, we had nothing to show for it but a shallow divot and dirty hands. 
+After ten minutes of trying to dig a hole using small sticks as makeshift spades, we had nothing to show for it but a shallow divot and dirty hands.
 
 Jackson rocked back on his heels. He wiped the sweat off his forehead, leaving a dark streak in its place. “Now what?”
 
@@ -114,7 +114,7 @@ It took us a while to get down to the Swamp. We stumbled and tumbled through the
 
 Finally, we reached the clearing. Cicadas buzzed, grasshoppers hummed, and a nearby toad leapt from its log with a disgruntled belch. As we sploshed into the mucky water, Jackson’s eyes widened.
 
-“Whoah,” he breathed. 
+“Whoah,” he breathed.
 
 There, standing silently in the center of the clearing, was the oven.
 
@@ -142,7 +142,7 @@ He was suddenly interrupted by a *thud.*
 
 We both froze, locking eyes. My heartbeat stuttered.
 
-“Did you hear that?” I whispered. 
+“Did you hear that?” I whispered.
 
 *Thud.*
 
@@ -150,7 +150,7 @@ Slowly, we turned around. All of the hair on my arms and neck stood on end; it w
 
 *Thud.*
 
-Jackson sucked in a sharp breath. "Is that...?" 
+Jackson sucked in a sharp breath. "Is that...?"
 
 *THUD-THUD-THUD-THUD-THUD.*
 
@@ -162,7 +162,7 @@ I honestly don’t remember exactly what happened next. I don’t remember wheth
 
 All I remember is that one moment, I was frozen in fear, those strange *thuds* pounding through my bones.
 
-The next, I was flinging the oven door open. 
+The next, I was flinging the oven door open.
 
 Something shot out, and we screamed.
 
@@ -178,8 +178,12 @@ We ran home as fast as we could.
 
 &#x200B;
 
-There's a lot I still don't remember about my childhood. I can vaguely recall Jackson's family moving away. And...I'm not sure. I feel like there's something else, too. But my head hurts, and everything is starting to get all fuzzy again. It's been almost twenty years—it'll probably take some time for the rest to come back to me. 
+There's a lot I still don't remember about my childhood. I can vaguely recall Jackson's family moving away. And...I'm not sure. I feel like there's something else, too. But my head hurts, and everything is starting to get all fuzzy again. It's been almost twenty years—it'll probably take some time for the rest to come back to me.
 
 But I am absolutely certain that the bird was dead when we put it in the oven.
 
 And the thing that flew out...I think *it* was dead, too.
+
+&#x200B;
+
+[Update: I've remembered more.](https://www.reddit.com/r/nosleep/comments/xs2vva/when_i_was_a_kid_i_found_an_oven_in_the_woods/?utm_source=share&utm_medium=web2x&context=3)
