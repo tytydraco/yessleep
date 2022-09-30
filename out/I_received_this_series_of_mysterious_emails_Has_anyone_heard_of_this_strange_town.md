@@ -128,7 +128,7 @@ Here’s the second letter I received.
 
 *All we heard after that were gunshots.*
 
-***Followed by*** ***an ear-piercing scream****.*
+***Followed by*** ***an ear-piercing scream***\*.\*
 
 *That’s all I’ve got for time for today. Will tell you the rest as soon as I’m able.*
 
@@ -140,4 +140,4 @@ This time, the letter writer signed his middle name with just J instead of James
 
 I also looked into some research on government quarantines and procedures. I could find no record of any official or reported quarantine of Bennington, Vermont. And the procedures he described didn’t seem to fit any of those dictated by FEMA or any government agency. Had he truly experienced a mysterious mass disappearance case? Or was something more sinister going on?
 
-His emails only got more bizarre from here on out. Will send the next one in the following post.
+His emails only got more bizarre from here on out. Will send the next one in the [following post.](https://www.reddit.com/r/nosleep/comments/xs0puy/i_received_this_series_of_mysterious_emails_has/)
