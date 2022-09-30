@@ -117,3 +117,7 @@ I don’t know why, but when I walked in, I expected to be greeted like normal. 
 
 
 I did everything right. I made normal, human decisions. I am left with one lingering thought though. Who drove us into the forest and buried the photos?
+
+---------------------------------------
+
+There will be a part two.
