@@ -34,7 +34,7 @@ Kaz gave me a cryptic smile. He said, “I have much difficulty sleeping at any 
 
 I shook my head and snorted, “You’ve gotta be the *dourest*, most completely friggin’ *cheerless* person I’ve ever met in my whole life. You missed your calling, man. You’d be great as the Ghost of Christmas Future in a production of ‘A Christmas Carol’, no shit. You’d kill it.”
 
-Kaz stared at me, clearly confused. I waved away his questions and said, “I know you don’t have a clue what I’m talking about, you weird old Soviet son of a gun. That’s why it’s funny. Don’t worry about it. Listen, I wanna go talk to Salvatore tonight. Tonight will probably be my last chance to do that for a while. I need to ask him something.”
+Kaz stared at me, clearly confused. I waved away his questions and said, “I know you don’t have a clue what I’m talking about, you weird old Soviet son of a gun. That’s why it’s funny. Don’t worry about it. Listen, I wanna go talk to Salvatore tonight. It will probably be my last chance to do that for a while. I need to ask him something.”
 
 “Do you think that is wise?” Kaz asked quietly. “I think maybe not.”
 
@@ -84,7 +84,7 @@ Sal grinned at me, his eyes shining like silver dollars in his head, and he snee
 
 “Alright,” he sighed, “if you really wanna know, here’s what happened. I spent a couple years as a prisoner in that warehouse before I finally figured it out. See, I couldn’t bust my way outta the warehouse, so I finally realized I was gonna have to bust my way *into* the warehouse, instead.
 
-"So, we got this mind control thing we can do, but it takes a lot of practice. I started with cockroaches. When I got good at making bugs do my bidding, I moved up to capturing birds through the window. I controlled rats, bats, possums, stray cats and dogs, all kinds of shit. When I got the hang of stealing the more complex minds, I started trying to grab people as they drove past the window at night. After a few weeks, I finally managed to snag some guy in a delivery van. I made him crank the wheel and gun it into the side of the building. The crash made a crack in the wall, and I was out in a blink of the eye. That’s all I need, kid. Gimme the barest crack, a tiny little pinhole, and I’ll slide right through.”
+"So, we got this mind control thing we can do, but it takes a lot of practice. I started with cockroaches. When I got good at making bugs do my bidding, I moved up to capturing animals through the window. I controlled rats, bats, possums, stray cats and dogs, all kinds of shit. When I got the hang of stealing the more complex minds, I started trying to grab people as they drove past the window at night. After a few weeks, I finally managed to snag some guy in a delivery van. I made him crank the wheel and gun it into the side of the building. The crash made a crack in the wall, and I was out in a blink of the eye. That’s all I need, kid. Gimme the barest crack, a tiny little pinhole, and I’ll slide right through.”
 
 I asked, “Did the others escape, too?” and Sal gave me a look of disgust.
 
