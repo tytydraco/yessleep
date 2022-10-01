@@ -1,8 +1,8 @@
-([part one](https://www.reddit.com/r/nosleep/comments/xav0st/i_have_to_get_rid_of_this_guitar_i_found_part_one/))
+[part one](https://www.reddit.com/r/nosleep/comments/xav0st/i_have_to_get_rid_of_this_guitar_i_found_part_one/)
 
-([part two](https://www.reddit.com/r/nosleep/comments/xgp3yy/i_have_to_get_rid_of_this_guitar_i_found_part_two/))
+[part two](https://www.reddit.com/r/nosleep/comments/xgp3yy/i_have_to_get_rid_of_this_guitar_i_found_part_two/)
 
-PART THREE:
+PART THREE: NEBRASKA BLUES
 
 “I recently found a lead that might help in the search for my brother, William “Wills” Forte. A journal he had written, along with a cassette that was filled with what can only be described as very unusual field recordings. Seeing as the nature of these recordings seemed to push towards an evil energy, I sent the tape to a friend to help me understand the music, who in turn sent it to guitarist Kirk Hammett.
 
@@ -12,7 +12,6 @@ We still advise you take precautions before listening to the recordings (such as
 
 \*[Music for Part Three](https://www.tiktok.com/@kirkhammett/video/7146958755408776491?is_from_webapp=1&sender_device=pc&web_id=7118164960957990446)\*
 
-Nebraska Blues
 
 I’m in a bar. It’s familiar, but strange at the same time.
 
@@ -26,7 +25,7 @@ I hear a scraping sound, metal on metal. The shape that is Cristopher moves towa
 
 His white T-shirt is torn and stained with blood, showing skin paler than any skin I’d ever seen. Almost translucent. His dyed black hair is edged with a midnight blue and falls over his face as he turns to look right at me, eyes wide black pools.
 
-“*I know you loved this song*.” his voice appears inside my head. It’s a song we wrote together. The music turns into a distorted ring, Cristopher moves towards me, and I hear the metallic scraping again. It’s Cristopher’s fingers. They’ve become hypodermic needles, scratching along the steel bar. 
+“*I know you loved this song*.” his voice appears inside my head. It’s a song we wrote together. The music turns into a distorted ring, Cristopher moves towards me, and I hear the metallic scraping again. It’s Cristopher’s fingers. They’ve become hypodermic needles, scratching along the steel bar.
 
 The dark shape moves forwards and pushes Cristopher towards me. The fingers that are needles plunge through the glasses of red liquid and into my arms.
 
@@ -38,7 +37,7 @@ I wake up screaming. Screaming alone against the sound of the telephone.
 
 I close my eyes against the remnants of the bleak visions, one hand holding the phone and the other pushing fingers against my temples. “Yeah, this is William.”
 
-“My name is Harry Velvét, and I believe you have a guitar I am interested in.”  
+“My name is Harry Velvét, and I believe you have a guitar I am interested in.” 
 
 My eyes open, stare at the phone, are demons calling me now? “Harry Velvay?”
 
@@ -66,9 +65,9 @@ There’s another thick pause on his end of the line, “Understood. I’ll be i
 
 I grab the guitar from the soft black guitar case I bought to carry it in and sit on the couch, holding it by the neck and resting the body on my leg so I can study the engraved silhouettes below the bridge.
 
-“Souls in a song.” I whisper to myself, turning the guitar around. I stare at the lines and markings covering the hard wood. I notice that it’s not random. There are carvings of letters and some numbers. They seem random, but I can make out the letter B, maybe a Y or an F? Possibly an old phone number, and a name. 
+“Souls in a song.” I whisper to myself, turning the guitar around. I stare at the lines and markings covering the hard wood. I notice that it’s not random. There are carvings of letters and some numbers. They seem random, but I can make out the letter B, maybe a Y or an F? Possibly an old phone number, and a name.
 
-I need to make my mark as well, I think, and while I don’t know where that thought came from, it seems important. Maybe just my initials. 
+I need to make my mark as well, I think, and while I don’t know where that thought came from, it seems important. Maybe just my initials.
 
 I spin the guitar around again, hold it, and start playing, feeling the strings strain against my fingers. “Practice, practice, practice...”
 
@@ -158,15 +157,15 @@ It was ‘St. James Infirmary’, and I have no idea how I knew that one, but th
 
 *So let’s have another round of booze...*
 
-And before the old man came to the end of the chorus, I felt my right hand come down hard on the lower E string, snapping it in a sharp twang. 
+And before the old man came to the end of the chorus, I felt my right hand come down hard on the lower E string, snapping it in a sharp twang.
 
 Instead of dropping down, loose towards the floor, the string went taut and shot out at an impossible speed, growing to an even more impossible length, and wrapped around the throat of the old man on the stool. I swore it was going to take his head clean off, but it didn’t.
 
-The string held tight as the body fell with a dull thud, the old man’s guitar knocking against the stand and falling to the ground as the stool clattered to the stage. The two men I’d seen earlier appeared from behind the curtain, curious, but before they could rush to the fallen body two more guitar strings broke and shot out. The A & D strings wrapped around their necks in similar fashion, but faster. They didn’t pull, those two strings, they just wrapped and held. 
+The string held tight as the body fell with a dull thud, the old man’s guitar knocking against the stand and falling to the ground as the stool clattered to the stage. The two men I’d seen earlier appeared from behind the curtain, curious, but before they could rush to the fallen body two more guitar strings broke and shot out. The A & D strings wrapped around their necks in similar fashion, but faster. They didn’t pull, those two strings, they just wrapped and held.
 
 They held steady as the E string pulled the old man through his own blood, more streaming down his neck and dripping across the stage, over the floorboards. I was frozen, couldn’t move. I could only watch as the string, tightly wound around the man’s neck, pulled him struggling and bleeding, towards the guitar, still in my hand.
 
-When the body, now a limp dead weight being dragged across the room, got about five feet from where I stood, the string stopped pulling. I felt my arms, holding the guitar, start to shake. It felt like a heavy electricity was being pushed into my chest, through my chest. And then it seemed to reverse and move back outwards through me, through the sound hole of the guitar. 
+When the body, now a limp dead weight being dragged across the room, got about five feet from where I stood, the string stopped pulling. I felt my arms, holding the guitar, start to shake. It felt like a heavy electricity was being pushed into my chest, through my chest. And then it seemed to reverse and move back outwards through me, through the sound hole of the guitar.
 
 A dark shape, a thick shadow, moved out of the sound hole like a shifting tentacle of black smoke, and wrapped around the broken neck of the body on the ground.
 
@@ -188,7 +187,7 @@ I downed the water too fast, stood there shaking and choking. “But...”
 
 “But nothing. We need to go. I can’t fix this one.” Octavia started gathering my belongings.
 
-“The band...” I started... 
+“The band...” I started...
 
 Octavia interrupted with a quieting finger pointing at me. “Shush! Right now! No band. You can call them, or you can disappear. But you can’t stay. The bodies will be found.” She throws the soft case at me, “Put the guitar away and meet me in the parking lot.”
 
@@ -202,7 +201,7 @@ I stand in the middle of the motel room. Feeling lost, scared, freaked out, angr
 
 I want to run, hide, vanish. But I’m in this now. I think about leaving the guitar in the motel room, but as soon as the thought crosses my mind I hear that screeching metal on metal again, and it feels like a fist is clenching my heart. I fall to my knees clutching my chest. “Fuckin’ hell!”
 
-Then a cold thought enters my head ... *It’s got its strings wrapped around me as well*. 
+Then a cold thought enters my head ... *It’s got its strings wrapped around me as well*.
 
 I take a few deep breaths, try to center, and call Anne.
 
@@ -212,7 +211,7 @@ Much to my surprise, she took it better than expected. Which is to say there was
 
 I started with family issues, making it up on the fly; mom is in the hospital, not sure what happened, it was all so sudden. My sister really needs me there, and no it can’t wait.
 
-Then I finished it off with how I was feeling a little disillusioned with it all. This actually felt a little more truthful. I hadn’t realized it until I said it, but I had been getting tired of our music. I wanted to take it somewhere else. I still had to lie through my teeth just to say good-bye. It hurt Anne, and it killed me, but it was the only way. 
+Then I finished it off with how I was feeling a little disillusioned with it all. This actually felt a little more truthful. I hadn’t realized it until I said it, but I had been getting tired of our music. I wanted to take it somewhere else. I still had to lie through my teeth just to say good-bye. It hurt Anne, and it killed me, but it was the only way.
 
 I ended with, “Maybe in the future, I don’t know.”
 
@@ -222,13 +221,13 @@ I walked out of the room and to the parking lot feeling like crap. Like I’d lo
 
 Running out of friends, too.
 
-“Ready?” Octavia yelled out the window of a candy apple red sporty looking coupe. A 1988 Chrysler Conquest. 
+“Ready?” Octavia yelled out the window of a candy apple red sporty looking coupe. A 1988 Chrysler Conquest.
 
 “Not really inconspicuous, is it?” I slide into the passenger side seat.
 
 “Doesn’t need to be, not yet.” She winks, “So, where to?”
 
-I remember the phone call from this morning. Seems like a lifetime ago. “Denver.” 
+I remember the phone call from this morning. Seems like a lifetime ago. “Denver.”
 
 \*\*\*\*\*
 
@@ -238,13 +237,13 @@ Octavia insists she fills the car, so I head inside. I notice the clerk behind t
 
 The place smells awful, like dead rotting fish.
 
-“Find what you’re looking for?” He pulls the snacks towards the register.  
+“Find what you’re looking for?” He pulls the snacks towards the register. 
 
 “Yeah, thanks.”
 
 “I didn’t mean here...” he leans forwards with a grin, pushing back his cap to reveal a flash of blue hair.
 
-“Corso!” I shout, stepping backwards too quickly and crashing into a rack of plastic wrapped pastries. 
+“Corso!” I shout, stepping backwards too quickly and crashing into a rack of plastic wrapped pastries.
 
 “In the flesh.” Corso stood up straight, gesturing towards the door, “Didn’t want to bother your companion but thought it would be good to get a little one on one.”
 
@@ -290,7 +289,7 @@ I follow her into the room, and we sit for a bit. I’m pretending things are no
 
 *Right, normal.* I tell myself
 
-Octavia’s eyes open suddenly, “I’ve got an idea. Let’s go.” 
+Octavia’s eyes open suddenly, “I’ve got an idea. Let’s go.”
 
 “Go? Where ... now?” I ask.
 
@@ -346,9 +345,9 @@ I’m feeling the pain of the dead.
 
 It moves into me, into my bones. I’m feeling the cold, the emptiness, the void. I want to stop playing as the three figures move towards me, within touching distance, but I can’t stop.
 
-I keep strumming a steady chord, not changing the rhythm at all, my heart pounding in time. My teeth are clenched and every muscle in my body feels like it’s about to burst. 
+I keep strumming a steady chord, not changing the rhythm at all, my heart pounding in time. My teeth are clenched and every muscle in my body feels like it’s about to burst.
 
-Suddenly there’s a horrible blood curdling howl that cuts through the night, and the shapes freeze and flicker like static electricity caught in the darkness. 
+Suddenly there’s a horrible blood curdling howl that cuts through the night, and the shapes freeze and flicker like static electricity caught in the darkness.
 
 “What is that?” I hiss, stopping on the minor G chord and peering into the darkness.
 
@@ -358,13 +357,13 @@ The dark shape comes out of nowhere. Moving at a steady pace and heading straigh
 
 “A wolf!” I yell, standing while backing into the stone angel. *Not the best place to be for a wolf attack*, I think.
 
-Octavia holds up a finger, “Not a wolf.” She says as the creature moves closer, then runs past. 
+Octavia holds up a finger, “Not a wolf.” She says as the creature moves closer, then runs past.
 
-It’s ignoring us and running tight laps around the specters, barking ferociously. They brighten like lightbulbs about to blow, and then vanish. The snarling shape slows and moves towards us, and now I can tell it’s a black dog. Sleek, with a short, compact body. Penetrating eyes, almost obsidian, with pointed ears that stand straight up. 
+It’s ignoring us and running tight laps around the specters, barking ferociously. They brighten like lightbulbs about to blow, and then vanish. The snarling shape slows and moves towards us, and now I can tell it’s a black dog. Sleek, with a short, compact body. Penetrating eyes, almost obsidian, with pointed ears that stand straight up.
 
 “Hellhound.” I whisper, trying to push myself backwards through stone.
 
-Octavia laughs. “No, not quite.” Then she recognized the beast. She looked angry. “Though he is indeed a hound. Aren’t you ... Mael?” 
+Octavia laughs. “No, not quite.” Then she recognized the beast. She looked angry. “Though he is indeed a hound. Aren’t you ... Mael?”
 
 The dog stops, and starts to shift, transform, moving like a mess of flesh and fur, until the demon stands before us. Unashamedly naked. “You shouldn’t be doing this.” He scolded, looking straight at Octavia.
 
@@ -372,7 +371,7 @@ She stepped forward, “Stay out of this Mael,” She growled.
 
 He made a gesture with his hands, a fast-waving motion through the air, and suddenly he was clothed in a dark suit. “Ha, Succubus,” he says, “You have no idea what you’re dealing with here,” He brushed past her and stood directly in front of me before I could even blink. He smelled like freshly burned wood. “And you, human, you have no idea either. And you shouldn’t trust her.”
 
-I tried to keep my words steady as I answered but failed miserably... 
+I tried to keep my words steady as I answered but failed miserably...
 
 “I ... I should trust y-y-you instead? Y-y-you j-just sh-shsh-shapeshifted from a dog right in front of us.”
 
@@ -384,7 +383,7 @@ I’m still shaking but finding some semblance of strength in the fact that I’
 
 She stands, glaring at Mael. “He’s saying it’s going to take a lot to break the guitars hold on you. And it’s not going to be without suffering.”
 
-Mael laughs again, “Suffering? Yes, there will be suffering. It’s going to be the worst experience you’ve ever had. Tearing your filthy soul off that cursed guitar will make heroin withdrawal feel like a day at church.” 
+Mael laughs again, “Suffering? Yes, there will be suffering. It’s going to be the worst experience you’ve ever had. Tearing your filthy soul off that cursed guitar will make heroin withdrawal feel like a day at church.”
 
 “He still gets his time, Mael. You know this.” Octavia steps in front of me.
 
@@ -476,7 +475,7 @@ Then, “Is it drugs again?”
 
 “Yeah.” I stopped. I used to tell myself that I had left because I was strong and determined, and I could make it on my own. But now I was realizing that I left because I hadn’t been strong enough. I left because I was scared to stay.
 
-I had a flash of the old house. My parent’s room. How I used to stand on their bed when the sun was setting and stare out a second-floor window. In the winter I would watch the sun set, the line of vision leading directly from me to a church steeple a few blocks away, to the point on the horizon where the sun would vanish into a line of red on the horizon. 
+I had a flash of the old house. My parent’s room. How I used to stand on their bed when the sun was setting and stare out a second-floor window. In the winter I would watch the sun set, the line of vision leading directly from me to a church steeple a few blocks away, to the point on the horizon where the sun would vanish into a line of red on the horizon.
 
 A church on fire.
 
@@ -504,7 +503,7 @@ Another grunt.
 
 Holding the last box in my arms tight, like a security blanket, I turned around. “Mom...”
 
-She stopped me with a sudden unexpected move; her arm rising up, her hand clenched except for a yellowed index finger that pointed straight at me. 
+She stopped me with a sudden unexpected move; her arm rising up, her hand clenched except for a yellowed index finger that pointed straight at me.
 
 “You listen to me, boy, even though you ain’t never listened before. I know you’ve heard this before but hear it again. I got four things to tell you. Number one, don’t trust your father. I know he ain’t around, but still; don’t. Number two, never fall in love with a dead person. It won’t do either of you any good. On that, number three. Never kiss a ghost. It ain’t as bad as fallin’ in love, but it’s still bad. They ain’t gonna leave you alone if they get that.” She paused then and laughed as if she’d finished telling some great joke, then turned serious again. Her arms now crossed in front of her.
 
@@ -538,6 +537,8 @@ There’s a noise behind me, and I turn to see Octavia standing on the balcony, 
 
 “Oh my,” Octavia smiles. “Denver is going to be fun.”
 
-\*\*\*\*\*
+-----
 
 “I appreciate all of you who have sent in kind words. We have received some tips from people who say they have seen my brother, but nothing has been verified at this point. Still working through the journals. It’s emotionally draining, but worth the effort. More next week.” – Abigail Forte
+
+[PART FOUR](https://www.reddit.com/r/nosleep/comments/xsxtj2/i_have_to_get_rid_of_this_guitar_i_found_part_four/)

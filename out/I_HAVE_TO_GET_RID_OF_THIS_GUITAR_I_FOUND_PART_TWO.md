@@ -1,12 +1,11 @@
-[PART ONE](https://www.reddit.com/r/nosleep/comments/xav0st/i_have_to_get_rid_of_this_guitar_i_found_part_one/)
 
-*“I recently found a lead that might help in the search for my brother, William “Wills” Forte. A journal he had written, along with a cassette that was filled with what can only be described as very unusual field recordings. Seeing as the nature of these recordings seemed to push towards an evil energy, I sent the tape to a friend to help me understand the music, who in turn sent it to guitarist Kirk Hammett.* 
+“I recently found a lead that might help in the search for my brother, William “Wills” Forte. A journal he had written, along with a cassette that was filled with what can only be described as very unusual field recordings. Seeing as the nature of these recordings seemed to push towards an evil energy, I sent the tape to a friend to help me understand the music, who in turn sent it to guitarist Kirk Hammett.
 
-*We have decided that while we cannot allow the actual sounds from the cassette to be released, we can share renditions of the music. Kirk Hammett has agreed to quickly transpose the less complex portions of the cassette while keeping the integrity of the original field recordings intact. These you can play or loop alongside the reading of each part, to create the appropriate mood for these journal entries. We still advise you take precautions before listening to the recordings (such as burning sage, reciting prayers, drawing protective sigils). What you will hear are some phrases and motifs inspired by the cursed melodies recorded on to this mysterious cassette.” – Abigail Forte*
+We have decided that while we cannot allow the actual sounds from the cassette to be released, we can share renditions of the music. Kirk Hammett has agreed to quickly transpose the less complex portions of the cassette while keeping the integrity of the original field recordings intact. These you can play or loop alongside the reading of each part, to create the appropriate mood for these journal entries. We still advise you take precautions before listening to the recordings (such as burning sage, reciting prayers, drawing protective sigils). What you will hear are some phrases and motifs inspired by the cursed melodies recorded on to this mysterious cassette.” – Abigail Forte
 
 [Music for PART TWO](https://www.tiktok.com/t/ZTRaNGqan/)
 
-Chicago Bound
+PART TWO: CHICAGO BOUND
 
 One thing I’ve gotten good at is being able to hold my memories at a distance. I haven’t got them perfectly trained, but they’re getting better at not appearing until they’ve been called. My childhood, for the most part stays away. Recent memories with my band, they’re in focus front and center, ready to show off at a moment’s notice. What I find really strange, though, is that the memories of the last few days are somewhere in between. Blurred and stubborn. I can picture the Memphis diner where me and Octavia ate lunch, but I can’t remember what we did later that day.
 
@@ -14,9 +13,9 @@ I know I have to.
 
 Maybe I don’t want to.
 
-\*\*\*\*\*
+-----
 
-If it hadn’t been for the green neon *open* sign in the window, I would’ve assumed the bar was closed. There was a dust-stained banner above the bar reading *Bailey's Burgers*, painted in faded red and blue over the dirty white wall. The paint was peeling, the windows were slightly cracked, the door looked like it had a bullet hole right above the handle. 
+If it hadn’t been for the green neon *open* sign in the window, I would’ve assumed the bar was closed. There was a dust-stained banner above the bar reading *Bailey's Burgers*, painted in faded red and blue over the dirty white wall. The paint was peeling, the windows were slightly cracked, the door looked like it had a bullet hole right above the handle.
 
 “Are you sure this is where you wanted to go?” I asked.
 
@@ -24,9 +23,9 @@ If it hadn’t been for the green neon *open* sign in the window, I would’ve a
 
 The bar was dim-lit, and the air-conditioner was broken. There were five tables set up on the floor, and four booths along the back wall. Two of them empty. We decided to sit at the far end of the bar, backs to the wall, facing the front door. The bartender sauntered over and gave us a welcoming nod.
 
-“What’ll it be?” He asked. 
+“What’ll it be?” He asked.
 
-We had burgers. Amazing dive bar greasy pickle juice soaked burgers. And two of the coldest pints of beer followed by two shots of some unknown whiskey set up by the bartender. “On the house.” He attempted a wink. 
+We had burgers. Amazing dive bar greasy pickle juice soaked burgers. And two of the coldest pints of beer followed by two shots of some unknown whiskey set up by the bartender. “On the house.” He attempted a wink.
 
 The jukebox was broken and playing nothing but Elvis songs, but we didn’t mind.
 
@@ -39,15 +38,13 @@ She put her burger down, nodding, “Yeah. I was glad I saw it, but it felt, I d
 “Good point.” Octavia paused for a second, “So are you looking to sell yours?”
 
 I laughed, but the look Octavia gave me was a little disconcerting, so I stopped on a nervous chuckle.
-
 “Serious?” I asked.
 
 She nodded.
 
 “Ah, no. Not at the moment. Honestly, there was a point where I would’ve, but right now, I don’t know. I think I’ll make a go of it with my soul intact.”
 
-Octavia smiled at that. She pulled a folded bill from her pocket and placed it on the counter. As the bartender came to collect, she scribbled something on the back of a napkin. 
-
+Octavia smiled at that. She pulled a folded bill from her pocket and placed it on the counter. As the bartender came to collect, she scribbled something on the back of a napkin.
 “Let me know if you change your mind.” She said, handing it to me with a quick wink. It had her name and phone number on it.
 
 “You want my soul?” I laughed. “A ride to Memphis wasn’t good enough?”
@@ -57,12 +54,11 @@ Octavia smiled at that. She pulled a folded bill from her pocket and placed it o
 We laughed together, but something about her laugh seemed a little forced. She wasn’t serious ... was she?
 
 I thought about asking if she wanted to continue to Minneapolis but decided against it. I wasn’t looking for a relationship, and I didn’t really need the company.
-
 A brief unexpected meeting and a new story to tell was good enough for me. “Okay, so, since I’m keeping my soul, what are your plans now?”
 
 “Well, maybe we could talk about your guitar?”
 
-“My guitar? The parlor guitar in the back of the Chevy?” I asked, surprised she’d noticed. 
+“My guitar? The parlor guitar in the back of the Chevy?” I asked, surprised she’d noticed.
 
 “You haven’t played it yet, have you?”
 
@@ -110,7 +106,7 @@ Octavia sighed, it was obvious I wasn’t buying it, but she didn’t give up. I
 
 I froze.
 
-“How’d you know that?” I interrupted. 
+“How’d you know that?” I interrupted.
 
 She ignored me, “so think about it. Crossroads. Not two roads crossing, but at the end of a road, where there’s a cross. That’s why we couldn’t find it. It was taken and hidden under the shadow of the cross until you took it out of the church.”
 
@@ -120,7 +116,7 @@ The late afternoon light fell in behind a figure. Standing silhouetted against a
 
 The other interesting thing was his hair, which I didn’t notice until he moved inside. It was an almost electric blue. Thick and vibrant, cut in a casual pompadour. He gave the bartender a nod and seemed to ignore us as he moved across the room. He sat at the bar, back towards us, but I could tell he was watching our reflections caught in the large mirror set up behind all the bottles. Not staring, just looking casually in our direction.
 
-The bartender placed a bottle and a glass in front of him, and the man muttered something. The bartender gave a strange little half smile and walked over to our booth where he placed a couple of shots overflowing with whiskey and gestured towards the bar. 
+The bartender placed a bottle and a glass in front of him, and the man muttered something. The bartender gave a strange little half smile and walked over to our booth where he placed a couple of shots overflowing with whiskey and gestured towards the bar.
 
 “From your friend. He said to say, ‘with condolences’?”
 
@@ -186,7 +182,7 @@ She gave me a long look back and a soft whisper, “for now.”
 
 “That’s all you get.” She smiled, “for now.”
 
-\*\*\*\*\*
+-----
 
 I remember we got to The Crescent Inn, a cheap little motel located a mile or so outside Memphis city limits, where I was staying. It was a place to crash, and then in the morning I was going to continue to St. Louis. A four-hour drive, but I wasn’t in a rush as I wasn’t expected in Minneapolis until October 5th.
 
@@ -216,7 +212,7 @@ She had a sad look in her eyes.
 
 She watched me as she held the small guitar, carefully, gently. As if it were a living thing. My mouth tasted metallic.
 
-“I can’t believe you have this.” She whispered. 
+“I can’t believe you have this.” She whispered.
 
 “How long have you been looking for it?” I asked, trying to get more of the story, and distract myself from the knots that had started moving down my neck, along my spine. The last time I’d felt those kinds of aches was when I’d given up cigarettes. I’d felt them before that too, but worse. I didn’t want to get to that point again. My vision started to narrow, and I felt a kind of fog descend on my brain.
 
@@ -232,17 +228,17 @@ I held the guitar in both hands. It lay flat, the sound hole dark and silent, th
 
 Octavia answered, “Yes. We both want it. And there are others who want it as well for their own nefarious deeds. Some for the mysticism; they believe in the curse. Some don’t care if it’s good or evil, they just want to feel the power.” She moved closer to me, standing above me, looking down as I held the guitar. “Some just want to hear the magic.”
 
-I remember her hand reached down, her finger pulled at the lower E string and released. I remember the tone, the vibration moving through my body. I remember my breath catching, and then hearing an echo of the E in my mind. I felt a need to match it with a chord. Something harmonic that would capture the spirit. 
+I remember her hand reached down, her finger pulled at the lower E string and released. I remember the tone, the vibration moving through my body. I remember my breath catching, and then hearing an echo of the E in my mind. I felt a need to match it with a chord. Something harmonic that would capture the spirit.
 
 Something with tension.
 
-I barely registered Octavia moving backwards to sit on the bed, silently watching me as my fingers moved up and down the fret board, trying to find the connection to the sound in my mind. 
+I barely registered Octavia moving backwards to sit on the bed, silently watching me as my fingers moved up and down the fret board, trying to find the connection to the sound in my mind.
 
 It wasn’t there. it needed an edge to fill it out. I started playing an unresolved chord to move tension into the harmony of the minor chord, but then I hit that E string again, which led to a new progression. My fingers felt like they were moving without me. The sound was getting louder than it should have been. I felt my vision narrowing again.
 
 And then I don’t remember.
 
-\*\*\*\*\*
+-----
 
 Now, I’m awake, sweating, staring up at the stained ceiling. Not on the carpet, thankfully. It’s too hot, but I can’t tell if it’s me or the room.
 
@@ -252,13 +248,13 @@ I try to stand, but my legs won’t have it, so I crawl, head still throbbing, t
 
 “Damn it.” I mumble, and slide down to the floor, back against the wall, staring at the empty room.
 
-Not completely empty, because the guitar was staring back. 
+Not completely empty, because the guitar was staring back.
 
 I know I’m still in Memphis, but I’m not sure if I should be. Don’t know the time, don’t know the day, don’t know what happened.
 
 I want to crawl to the bed and sleep for days, and I would have, but then I notice the blood. A partial handprint on the inside of the motel room door. Another on the wall by the bathroom. I take a deep breath and look down at my palms. Dark brown, dried blood.
 
-My mind, hurting, tries to figure it out, but the room spins. I feel a sense of panic start to rise. The guitar, Octavia, the sound. There was a sound, and then there was nothing. 
+My mind, hurting, tries to figure it out, but the room spins. I feel a sense of panic start to rise. The guitar, Octavia, the sound. There was a sound, and then there was nothing.
 
 I manage to stand and make it unsteadily back to the bathroom. I stand, staring at my reflection, the scene not properly registering yet. In a state of shock, pushing the panicked feeling towards the back of my throat, I wash the blood off my hands.
 
@@ -276,9 +272,9 @@ I turn around, nothing. Look back at the mirror, a shape standing in the other r
 
 “Cristopher.” I manage to speak, and turning around again, the figure fades as the motel room door opens.
 
-“Who’s Cristopher?” 
+“Who’s Cristopher?”
 
-It’s Octavia. 
+It’s Octavia.
 
 “What happened? Where were you?” I’m still shaken by my vision, but I need answers.
 
@@ -307,7 +303,6 @@ She continues. “After six it’s full, then the cycle begins again. Lillian wa
 “Who was she?”
 
 “Lillian? She was ... everything. We’ve watched empires fall; generations die...” Octavia lowered her hand then. She let a finger touch one of the silhouettes etched into the guitar. It was a longing touch, but her eyes flashed up towards me and turned red for a second. “Cities burn.”
-
 Octavia explained how she followed the guitar to Nashville, but then lost the trail, until I ‘rescued’ it from the church. Now it’s back trying to fill itself with the souls it was promised, and now my name is on that list.
 
 I stare at the guitar, not wanting to touch it, realizing that’s not an option anymore. I’m brought back by the phone ringing.
@@ -328,7 +323,7 @@ I stare at the guitar, not wanting to touch it, realizing that’s not an option
 
 “That’s perfect. We’ll get you a room, so call when you get into town. See you soon!”
 
-“Yeah, bye.” I hang up, still watching Octavia. I tell her what happened. 
+“Yeah, bye.” I hang up, still watching Octavia. I tell her what happened.
 
 She smiles and stands up. “Sounds like it’s begun. Your fate has been cast. You are going to be needed immediately in Chicago.”
 
@@ -354,7 +349,7 @@ I feel suddenly angry, rebellious. “Wait. What happens if we’re supposed to 
 
 “It’s the only way to go unless you want to let yourself be completely at its mercy. You need to show strength. You need to accept it, but you can’t let it take over. This is your Fate. Think of it like an intelligent parasite, or maybe more like a controlled addiction.”
 
-That’s what I was afraid of. Not the addiction part. I’ve had a lot of experience with that. It was the control part. It took everything I had to finally quit smoking cigarettes. It took even more to quit the harder stuff. 
+That’s what I was afraid of. Not the addiction part. I’ve had a lot of experience with that. It was the control part. It took everything I had to finally quit smoking cigarettes. It took even more to quit the harder stuff.
 
 “Remember when you asked who Cristopher was?” I asked, picking up the guitar that lay in front of me. It felt like the perfect weight. Octavia nodded, watching my hands.
 
@@ -370,7 +365,7 @@ I nodded and held the guitar out in front of me, like a sacrifice. “It’s not
 
 “Then we’re going to have to work on that, aren’t we? Control is one thing you’re going to need.”
 
-\*\*\*\*\*
+-----
 
 Memphis to Davenport was uneventful. Other than trying to get Octavia to open up about Corso. “So, tell me about your blue-haired man.”
 
@@ -401,7 +396,6 @@ We drive the rest of the way to the motel in Davenport, and that’s where I see
 “I don’t *know* who it is, but yeah, I have an idea and I’ve heard stories.” She revealed. “Much worse than Corso. His name is Mael, and he doesn’t mess around. I’m guessing he wants the guitar too.”
 
 “And is he dangerous?” I ask.
-
 “If cobras are dangerous, then yes.”
 
 I get a room key. We walk across the lot, the Dodge Dart is empty, and there’s no sign of anyone else on the property. I open the iron gate that leads to a slightly cracked blue staircase angling up to the dirty white tiles of the second floor. It’s something generic that I can’t even remember. Motel 6 without the 6. Holiday Inn without the holiday. Days in without the daze.
@@ -418,11 +412,11 @@ He was probably in his early twenties. Dressed in possibly a waiter’s uniform.
 
 I felt like I was going to throw up. “Octavia.” I cried hoarsely.
 
-She appeared behind me. “It was him; he was here. Do not call anyone, I’ll be right back.” And she was gone, leaving me with a friggin’ dead body. Nice. His skin had turned a sort of dirty dishwater grey, and I realized there was no blood. Like he had just died, and someone had plucked his eyes out like carrion over roadkill. Then I noticed the flies. 
+She appeared behind me. “It was him; he was here. Do not call anyone, I’ll be right back.” And she was gone, leaving me with a friggin’ dead body. Nice. His skin had turned a sort of dirty dishwater grey, and I realized there was no blood. Like he had just died, and someone had plucked his eyes out like carrion over roadkill. Then I noticed the flies.
 
 They were scattered around the room, flying little black spots. A few had landed on the man’s head, crawling around the closed mouth, the dry-cracked lips. Crawling up towards the slick black hair plastered with gel and sweat on his forehead. Crawling into the empty holes where his eyes used to be...
 
-I ran towards the sink, managed to pull the trash can out from underneath it, but it was nothing but dry heaves. My body totally shaking, my head pounding, I slumped back against the counter. 
+I ran towards the sink, managed to pull the trash can out from underneath it, but it was nothing but dry heaves. My body totally shaking, my head pounding, I slumped back against the counter.
 
 “Hello William.” A voice from the living room.
 
@@ -450,7 +444,7 @@ His fingers started moving, plucking out a series of notes and chords. I couldn�
 
 From somewhere a slide appeared on his left hand. It wasn’t metal, looked more like bone. Mael’s fingers were all over the place, moving from picking the strings like a possessed banjo player to gliding the slide low and tight across the strings.
 
-I started to feel uncomfortable, something in my belly, moving up into my throat, but I couldn’t move. I was stuck, listening. 
+I started to feel uncomfortable, something in my belly, moving up into my throat, but I couldn’t move. I was stuck, listening.
 
 My vision clouded and then the thumping started. It felt like my heart at first, hitting inside me, but it was deeper, moving through me, like the pounding was in my very soul. Then slowly I realized it was the guitarist’s foot on the horrid carpet, softly stomping out the time. As his foot hit faster, my heart beat faster. The rhythm pushing the melody pushing the chords pushing me. Like a march, like a blind march into some cavernous abyss.
 
@@ -484,7 +478,7 @@ Ten, maybe fifteen, minutes later she came back. “It’s okay, if anyone’s l
 
 “It doesn’t matter. Let’s just say that dead flesh is not a problem for us.”
 
-\*\*\*\*\*
+-----
 
 I’m not sure about Octavia, but I did not sleep the rest of the night. Thankfully she took over the driving in the morning, and three hours later we were in Chicago. She left me and the car at the rental place I had contacted, and while she went to wherever she went, I waited for my band to show up.
 
@@ -498,22 +492,27 @@ She navigated us to a small corner café where we ordered our coffees and sat in
 
 Anne’s eyes narrowed as she sat across from me. I knew she was trying to read me. She knew something was up, that something had happened. I didn’t bite, just gave her a smile and gazed into my coffee as if I was trying to decipher the future. But I could not stop thinking about Octavia. I had no idea where she was, but I knew she’d be close. I also knew I wasn’t ready to mention her to the band.
 
-Although, I knew the band might be an issue I’d need to deal with sooner rather than later. If the things that had happened to me in the last twenty-four hours kept happening, I realized the rest of the band might be safer if I wasn’t around. We had four shows to play, and then I might have to leave. 
+Although, I knew the band might be an issue I’d need to deal with sooner rather than later. If the things that had happened to me in the last twenty-four hours kept happening, I realized the rest of the band might be safer if I wasn’t around. We had four shows to play, and then I might have to leave.
 
 I guess it depended on the guitar. And Octavia.
 
-I couldn’t tell Francis and Anne about that. Not now. Maybe not ever. I wasn’t in the habit of keeping secrets from them, but now I was keeping two, and it sort of worried me. 
+I couldn’t tell Francis and Anne about that. Not now. Maybe not ever. I wasn’t in the habit of keeping secrets from them, but now I was keeping two, and it sort of worried me.
 
 But the guitar...
 
 I wasn’t thinking about it directly, but more of a sideways thought. About how the strings sounded, about how the notes felt thicker in the air. About how I wanted to play it in the same way that I used to want a cigarette, or something else. Something worse.
 
-\*\*\*\*\*
+-----
 
 I sigh, don’t know what to do other than keep going.
-
 I hope things don’t get worse or weirder.
 
 Of course, I was wrong, and they get both.
 
 *“Still working through the journals.*  *Some of this is very hard to read. Obviously not all written in a calm or peaceful state of mind. More next week.” – Abigail Forte*
+
+[PART ONE](https://www.reddit.com/r/nosleep/comments/xav0st/i_have_to_get_rid_of_this_guitar_i_found_part_one/)
+
+[PART THREE](https://www.reddit.com/r/nosleep/comments/xmw54i/i_have_to_get_rid_of_this_guitar_i_found_part/)
+
+[PART FOUR](https://www.reddit.com/r/nosleep/comments/xsxtj2/i_have_to_get_rid_of_this_guitar_i_found_part_four/)
