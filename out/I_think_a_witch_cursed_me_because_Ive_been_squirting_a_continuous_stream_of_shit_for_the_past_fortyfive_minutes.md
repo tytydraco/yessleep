@@ -14,7 +14,7 @@ So the old crone just cries louder when I blame the cat for hitting my car, then
 
 It was like she was telling me that my *spirit* was ugly.
 
-I didn’t even realize that she’d been walking toward me until her eyes were a few inches from mine; it was like she’d put me in a trance that only broke when she ran a jagged fingernail across my abdomen, leaving fiery pain it is wake.
+I didn’t even realize that she’d been walking toward me until her eyes were a few inches from mine; it was like she’d put me in a trance that only broke when she ran a jagged fingernail across my abdomen, leaving fiery pain its wake.
 
 So I told her to fuck herself and raced back to the Maybach.
 
