@@ -137,8 +137,8 @@
   She wrapped her arms around her sister, who had begun to whimper slightly, while the big guy in the Frankenstein costume muttered curses under his breath. When the pumpkin came to a halt, staring straight up with a fierce and mocking smile carved into its jack o' lantern face, everyone grew silent and still. 
 
   I just glared down at the thing with my jaw unhinged, still battling to wrap my mind around everything that had occurred up until this point. When the long corn stalks began to rustle violently, making it appear as though the whole labyrinth was quaking around us, it was hard to differentiate my own involuntary shivering from my surroundings. A low humming sound was barely audible above the trembling leaves, but it gave me the impression that something was drawing closer, as it gradually escalated. 
-   
-  "Push through," Frankenstein said, weaving his hands between the stalks, "it's just corn. We can…SHIT!" 
+
+  "Push through," Frankenstein said, weaving his hands between the stalks, "it's just corn. We can…SHIT!" 
 
    We all spun to see him wrestling against the vines that were wrapping around his arms and legs. Derek ran to his side, quickly slicing through the attacking greenery with his pocket knife. 
 

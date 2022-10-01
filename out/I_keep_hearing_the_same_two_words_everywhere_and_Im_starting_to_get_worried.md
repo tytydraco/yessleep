@@ -32,7 +32,7 @@ My eyes widened as I stared at her in disbelief. “What is it?” she asked.
 
 “Nothing,” I responded. *What the hell?*
 
-I ate my food in silence - I could tell that everyone sensed something was off, but they left me alone. When we went back to work, I tried to dismiss it and go on with my day, but it didn’t stop. “*Wake up*” said the receptionist at the entrance to the building. “*Wake up*” said the doorman as I left for the day. On and on it went. The mother pushing her child in a stroller. The elderly couple waiting at the bus stop. The kid swirling a sign on the sidewalk. “*Wake up.  Wake up. Wake up.*” I couldn’t escape it. My head was pounding like a freight train, and my vision was going black. What was happening to me? It got worse and worse, until there was only darkness, and pain, and two words, endlessly. 
+I ate my food in silence - I could tell that everyone sensed something was off, but they left me alone. When we went back to work, I tried to dismiss it and go on with my day, but it didn’t stop. “*Wake up*” said the receptionist at the entrance to the building. “*Wake up*” said the doorman as I left for the day. On and on it went. The mother pushing her child in a stroller. The elderly couple waiting at the bus stop. The kid twirling a sign on the sidewalk. “*Wake up.  Wake up. Wake up.*” I couldn’t escape it. My head was pounding like a freight train, and my vision was going black. What was happening to me? It got worse and worse, until there was only darkness, and pain, and two words, endlessly. 
 
 And then there was nothing. 
 
