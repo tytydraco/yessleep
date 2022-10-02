@@ -1,0 +1,157 @@
+I already planned out my entire life when I was in the last three months of high school. I worked my ass off to get scholarships and the grades needed to get into any university of my choice. I even took any part time jobs I could in order to save money to move out for university. My family lived comfortably, but couldn’t really afford sending me to a different state to study, even with the loans and scholarships. So, I made it work. With savings tucked away in my bank account and my plans set, all I need to do was to graduate. 
+
+My three mortal enemies were doing their best to make that impossible. I always found it stupid that I had three people on my back at school. It started with a milk throwing incident the first few months of high school. The ringleader of the three, Trevor, thought it would be hilarious to slam down three cartons full of milk in the cafeteria, spraying people. Everyone else just made some sounds of disapproval, but I said exactly how I felt. That these three were good for nothing waste of air and would end up arrested in a few years. They did not take well to that comment. And for almost four years, they showed me just how much they hated me. I tried telling the principle about them, but the system was to punish both parties. I risked getting kicked out of school if the bulling came to light. I felt my suffering wasn’t all that bad. I just held my head high and took whatever came my way. 
+
+With three months left in school, I found myself at the end of my rope. Trevor didn’t just target myself. He had a long list of students he enjoyed to torment. One of them had enough and tossed some rotten fish in Trevor's prized car in the morning. By the end of the school day, the sun roasted the fish causing the smell to be unbearable even inside the school. He needed to get his car towed and professionally deep cleaned and it still held the hint of the fish smell. The person who did it knew they might get killed for the prank, so they used me as a scapegoat. Even without proof, Trevor took to the idea. While I waited for the bus home, I saw his red car screech down the street and thought nothing of it. Even after the three came storming out towards me, I didn’t think to run. I didn’t have time to do much besides curl into a ball as they gave me an undeserved ass kicking. 
+
+Despite being near a bus stop, no one called the cops, or even thought to help. At least my textbooks in my backpack took most of the kicks to my stomach. They were smart enough to avoid my face during the short beating. Broken noses and black eyes tended to get more of a reaction out of people. In the end, they left me with a few sore ribs and a lot of bruises on my back and sides because I had curled around my bag. I didn’t even get up after I heard them fleeing and car tires screeching away.  
+
+The pain refused to die down. I stayed on the hard ground trying to collect myself as I repeated I just needed to deal with this for a few more months. I needed to graduate, then get the hell out of this crappy town. I breathed slowly, trying to not hurt my ribs by taking in more air than needed. After a few minutes I sensed eyes on my back. Fearing one of them stayed behind, I risked a glance upwards to see a stranger looking down on me. Our eyes met and a lazy half smile spread across his face. 
+
+“Do you got a light?” 
+
+He got down low to the ground resting his arms on his knees. I thought he looked too old to be sitting on his heels like that. His hair completely grey but his face without too many wrinkles. Only some crows feet at the corners of his eyes and a set of wrinkles appearing at the corner of his mouth making me guess he was no older than forty. I did something that I would always regret. I dug around in a small pocket of my backpack aware of all the pains in my body as I moved. Earlier that day I found a cheap lighter with some life still left in it. I had a bad habit of picking up anything useful. I took furniture from the side of the road to fix up and sell, or would pick up pens in the hallway at school. I didn’t have a use for a lighter, and yet I still grabbed it. I held out the small orange plastic lighter for him to take. In the moment I didn’t even question why an adult like himself asked a clearly injured teenager for a lighter instead of trying to help. It took a few tries but he lit a cigarette and held out the lighter to give back. I refused it and muttered he could keep it. The same half smile came back and he honestly gave me a bad vibe. 
+
+“Did those three have a reason to rough you up, or were they being pricks?” The stranger asked without offering any assistance to a still injured teen.  
+
+He could have at least pretended to care and not loo so damn amused by the whole thing. I gritted my teeth and sat up. I wanted to get away from this weirdo. Everything about him freaked me out a little. He wore a dress shirt and suit jacket, but the shirt was unbuttoned showing his collar bone and his jacket seen better days. His voice sounded like he smoked at least a pack a day for most of his life and he didn’t put much energy into anything he said. 
+
+“They’re just pricks. It’s fine. I’ll get over it.” I said a bit more bitterly than I expected to sound. 
+
+“I could take care of them for you. After all, you sort have paid me already.”  
+
+He showed off the lighter in his hand and shook it once. I didn’t know what he was implying but didn’t like it.  He sounded ready to really do some harm to the three that just kicked my sides in but he didn’t want to help when they were attacking? Did he watch the entire thing or just come across me by chance after they left? No, he mentioned those three so he at least saw who been here. I didn’t trust him at all and suddenly regretted doing him any kind of favor.  
+
+“It’s fine I don’t-” 
+
+Before I could finish, he reached into his pocket and flicked over a small business card. It landed on the ground in front of me and I hesitated picking it up. The white card only with a hand written phone number on the front.  
+
+“I’m only in this town for another week. You should make up your mind soon. Later Kiddo.” 
+
+The odd man got to his feet and took a long inhale of his cigarette. He barely acknowledged me still sitting on the ground as he walked away, slightly hunched with his hands in his pockets. The card and the smell of tobacco smoke the any traces he’d really been there. I made a mistake of tucking the card away in my bag in a spot where it wouldn’t bend. I didn’t have any plans of calling him, but the paper was stiff and good for a very small study note. 
+
+I didn’t have any plans on rocking the boat. I ignored the three dumb asses when I went to school the next day. My parents didn’t notice how stiff I walked when I arrived home that night, but my mother did see a small bruise on the side of my face. I played off as an accidentally injury. I refused to give my attackers any kind of attention. I just need to make it through a few more months and I would be in the clear. Thankfully, they seemed to move onto another target for a while.  
+
+The only one who noticed my mood and did anything about it was my senior dog, Luna. We got her when I was about five or so, and she’d been with me most of my life. She was also the only thing I didn’t really have a plan for. I couldn’t let her stay home when I went to university and the dorms didn’t allow pets. I wrote an email asking if I could bring her along for part of the first year. I loved her more than anything else in my life and sadly she was sick. I doubted she would last more than a few months. Due to her age and illness, the school was considering on letting her stay until she passed of natural causes knowing it may happen soon. 
+
+I made it through a full month before the worst happened. Dealing with a beat down, or harassment at school was easy. But those three bastards did something I could never forgive them for. And gave me a reason to call the strange man I met at the bus stop a few weeks before. 
+
+With only two more months left of school, I’d stayed up late to study with Luna at my side. I often wondered if she felt any pain in those last few days but never showed any signs of it. I reached down to pet her golden fur and she made me aware that she wanted to go outside to do her business. Lately she wanted to go outside pretty often and needed to do so a few times a night. Knowing I would be awake for a few more hours I went with her and helped her go down the stairs. She didn’t have any issues running for a few minutes if she wanted, but the stairs slowed her down. I opened the back door to let her out and started making myself something to eat. I wanted to be awake so I could study for the night. 
+
+I didn’t see Luna in the dark backyard but that was normal. Just as I finished up making my sandwich, I heard a terrible sound coming from the front of the house. A sound I’ll never forget and will always haunt the back of my mind. Luna should have been in the backyard. I shouldn’t have assumed the yelp before the sounds of tires screeching away was her, but I spent most of my life with her. I knew what she sounded like. I dropped whatever was in my hand and ran as fast as I could out front and just in time to see a red car turning the corner at the end of the street. 
+
+My entire body turned to ice and my stomach flipped seeing her small shape in the middle of the road. I wasn’t even aware I screamed when I ran to her, waking some of the neighbours.  
+
+It’s not important going into details about that night. We made her as comfortable as possible and said goodbye at the emergency vet office. Pieces of a headlight the only thing left behind from the car that hit her. We figured the lock on the back gate rusted loose, letting Luna get out into the street that way. Luna liked the new kids across the street and I caught her on their lawn once before. I put a rock against the gate thinking it might keep it shut, but my father must have moved the rock the last time he opened the door and never replaced it. I didn’t blame him, or the rusted gate lock. I only blamed the owner of the red car. 
+
+I took two days off school. My parents wanted me to take more time off but I needed to finish those last few months. I stayed silent, walking around in a haze just trying to stay focused in class. The first day back, I walked through the student parking lot and froze. Those three pricks were leaning against Trevor's car smoking and carrying on. His red car. His red car with a broken headlight.  
+
+I blacked out for few minutes. My body moving on its own. I dropped my backpack and went over to them and just went feral on Trevor. I got him to the ground and gave him a bloody nose as his two friends, Ben and Thomson stood shocked. A teacher saw the one-sided fight and pulled me away. Trevor gave those two and earful about not helping. By some miracle, we all didn’t get dragged to the office or parents called. They just packed up and booked it out of there, leaving the teacher unsure of what to do. He didn’t have the victims, and he didn’t want to deal with all the drama calling my parents would bring. I’m fairly certain that if those three stayed, they would have needed to explain why I exploded on them. That would bring to light so much of their past harassment, and the accusation of them being involved in a hit and run. I doubted they wanted to graduate, but if Trevor’s father found out about the cause of the broken headlight he would be pissed. I heard he already paid to fix a lot on the car after those three got drunk and went to smash a bunch of mailboxes earlier in the year. 
+
+I got sent home with a warning and some very sore knuckles. Though it didn’t feel like enough. I wanted to kill them. They took away the one I loved the most in the world and so far, they haven’t received any punishment. I needed to do something and fast. We filed a police report and I called them to tell them about the broken headlight on Trevor's car with the police just saying they would ‘look into it.’ That wasn’t good enough. Even if they did find out Trevor was the one who killed Luna, then what? He might only do some community service. No, more needed to be done. 
+
+I sat in my room, ignoring my parents requesting me to come down for dinner trying to think of what to do. Luna’s bed sat empty and it tore at my heart. My study books still scattered ion my desk from that night. I couldn’t bring myself to touch them. Looking them over, the small card caught my attention. I did end up using it for a study card, but the phone number was still on the back. The idea felt crazy. I wasn’t really going to call that weirdo for help, was I? 
+
+The memory of Luna’s yelp came back and I made up my mind. I didn’t care about the risks or cost. I just wanted them to suffer. I pulled out my cellphone and dialed the number.  
+
+It rang a few times and I thought I was out of luck. Then it connected and I held my breath not knowing what to say. I didn’t even know this guy’s name. 
+
+“I uh... We met a month ago. I gave you a lighter.” I blurted out not even knowing if I reached the right person. 
+
+“Oh? That's right. Those three still giving you some trouble? Need me to deal with em for ya?” 
+
+I hesitated wondering how much to tell him. In the end, I didn’t say much. If he was willing to do this job, then he didn’t need to know the reason. 
+
+“Yes, please do something about them.  How do we go about this?” I asked. 
+
+He stayed silent on the other end of the phone and I could almost hear that creepy lazy smile. I heard a faint sound I realized to be a lighter and a few more seconds of silence before he told me when and where to meet him.  
+
+This whole thing simply crazy. And dangerous. I agreed to meet a strange man at night just because I wanted revenge. Grief makes people do some very careless things. The stranger arrived first. We still haven't given each other our names and I thought that might be for the best. I slowly walked up to him, and my body turned cold again seeing Trevor’s car. How the stranger knew where it would be parked ahead of time was a mystery. Then again, there was only one bar in town that didn’t care about serving teenagers so he might have guessed where three trouble makers would end up on a Friday night.  
+
+“So, uh... What’s the plan?” I asked him looking around. 
+
+Trevor parked his car across the street from the bar so it might appear he was inside the burger place and not drinking. A few people lingered outside smoking watching us. They must know Trevor and knew how much his car cost. I honestly didn’t know the first thing about cars. I think his was old and cost a fortune but that was about it. A car is a car to me. My hired help was dressed in the same thing I met him in. An open slightly wrinkled suit jacket, and dress shirt with two buttons undone. I glanced down and noticed he wasn’t wearing any shoes. Not even sandals. It was warm enough to go without, but the street dirty with glass around. I started to think I made a very big mistake calling him for help. With a lit cigarette hanging out of the corner of his mouth, he gave a half smile. His grey eyes almost appearing silver in the night. 
+
+“This is the car, right?” He asked nodding towards Trevor’s parked car. 
+
+He since replaced the headlight, but I knew it was his. When I nodded, I didn’t have enough time to stop the man before he lifted a bare foot up, and kicked off the car’s mirror. My legs turned to jelly as I watched him do more damage to the car. He dented the driver side door, smashed the headlight and tore off the license plate by the time Trevor and his two goons came out of the bar stumbling along and screaming.  
+
+“Make them follow us!” The man said and took my wrist forcing me to run with him down the street. 
+
+I couldn’t keep up. He dragged me along painfully and I heard Trevor get into his car to chase us down. We wouldn’t be able to get away from them, and that wasn’t his plan. After a few blocks, he found an empty street near a park entrance and let go of my wrist. I tripped, falling painfully to the ground. I sat up in time to see the strange man go into the middle of the empty road to stare down the oncoming red car. I don’t know if Trevor was drunk, pissed off, or a mixture of the two but he did something I didn’t expect. He put his foot down on the gas and hit the man in the middle of the road. His body flipping off the hood, cracking the windshield then landing twisted with a loud crack. I nearly got sick from the sound. Trevor wasn’t able to get control of his car causing him to swerve off the road, hitting a light post. The sound of the impact echoed through the street and slammed into my chest. I started to dry heave, panic and stress shaking my body. I didn’t want anyone to die, right? This was all far too much. And, the nightmare just kept going. I needed to help them, so I got up to head towards the car thinking it was far too late for the man in the road. I stopped a few feet from the car when I saw a shape twisted on the ground by the street post. I did puke then, realizing what happened. Either Ben or Thomson didn’t wear their seatbelt and got tossed from the car on impact. Trevor somehow was moving in the driver’s seat. My body refused to move after dumping my dinner in the road. All of this far too much to handle. 
+
+“Two left? I was hoping or more fun yah know?” 
+
+I didn’t think it was possible to be even more terrified than how I felt seeing the car wreck. The sound of the deep voice behind me almost enough to give me a heart attack. I sank to my knees, looking over to see the man I called standing up, looking perfectly fine. He cracked his neck and the smile on his face caused my breath to stop dead in my lungs. I wasn’t aware I called down hell on those three until I saw that smile.  
+
+The backseat door opened and Ben fell out onto the street, his face blood and bruised. My body refused to move and I only watched as the man started walking over to the helpless teenager. Ben knew to run, but didn’t know why. He stumbled along, his face dripping blood as the man let him whimper and get as far as the park stone steps. His hands in his jacket pocket as he hunched over to look over Ben with teeth showing. 
+
+“I’ll let you fight back. I want to have some fun, ya know? Do you have any weapons on you? A knife? A nail file? Anything??” The stranger asked in a tone that got more and more excited. 
+
+Ben, half crawling up the stone steps leaving spots of blood behind started sobbing. He looked to be in such pain and didn’t have a chance of getting away. He pleaded for his mother to come and save him. The sounds tearing painfully at my chest. 
+
+“Nothing? God, you're so boring!” 
+
+Reaching out a hand, the man grabbed Ben’s head by his short hair and slammed his face down into the stone step again and again. I jumped at each crack of bone smashing on the cement. My body shaking and mind going numb from the sight. This shouldn't be possible. None of this was right. A person shouldn’t be that strong and so easily turn a person’s face to mush. And he shouldn’t even be able to get up and walk around after getting hit by a car. A new sound made up all jump.  
+
+Trevor got out of the car, his eyes hazy and a gun in his hand. I didn’t know where he got a gun from but I almost was glad to see it. He fired again, the bullet tearing through the face of the one who killed his friend as he turned to face the weapon. Another bullet missed, but the first one nearly tore one side of the man’s jaw off, making his smile appear even more gruesome.  
+
+“That’s it! Show me something fun!” He shouted, through a mouth of gore causing his words to slur a little and with a crazed look in his eyes. 
+
+The sight made Trevor lose it. He fired wildly and emptied his gun in under a minute. One bullet nearly hit my face, but the odd man moved as fast as lighting to take the hit in the shoulder, shielding my body with his own. I didn't understand why he cared about my life. How could a monster like him kill a person with his bare hands, then defend another? He stood up, face slowly mending itself. I honestly thought I made a deal with the devil in that moment. I croaked out a half word trying to fight through the fear and beg the man to not kill Trevor. This gone far enough. My mind couldn’t take seeing another death. 
+
+My voice failed me. Even if it didn’t, I doubted anything I said or did would change the outcome at that point. Trevor’s gun failed him. He either ran out of bullets or it jammed. He turned on his heel, attempting to make a run for it. His legs shaking and uneven. The man in the wrinkled suit jacket following a few steps behind. I thought I heard humming coming from him for a second. Trevor tripped and screamed. His mind and body shut down the same way mine did. The man gave him a chance to fight back. He stood over the crying teenager waiting to see what he would do. When nothing happened, the humming stopped to be replaced by a cracking noise. I thought my mind was already over loaded but what I saw next nearly put me over the edge into insanity. That man’s face... changed. Countless shapes of animal faces came from his neck, twisted into each other and shifted like liquid from different forms. Sounds of different creatures come from that terrible sight mingled into each other. All the voices trying to be heard over each other and the cries becoming warped as if it came out through a nearly broken speaker. All at once, those shapes came down on Trevor with thousands of teeth appearing to tear into his body. Another noise came. A yelping scream from Trevor that was much like the last sound Luna made.  
+
+I blacked out for a while. I don’t think I closed my eyes, I just refused to remember what happened after I saw Trevor get ripped apart. I was vaguely aware of someone speaking and dragging me to my feet just to have my legs give out again. A sharp pain to my cheek forced my mind back into the present. A man dressed in a uniform stood and flashing lights filled the night. I saw the monster sitting on the curb with handcuffs around his wrists. His jacket looked spotless, but his dress shirt been stained with blood. He sneered at the cop standing in front of him. Rage clear on the officer’s face.  
+
+“Did he hurt you kid?” The other cop asked and it took me a few minutes to realized he was addressing me. 
+
+I shook my head unable to answer. I thought I heard the other cop talking with the killer saying how the man shouldn’t be in our small town for any reason. He noticed I moved my head and called his partner over to watch over the cuffed monster wearing a human mask. I found a new officer standing in front of me, looking down with an expression so cold it cut through my shock.  
+
+“What in the ever-living hell did those three do to deserve you calling that man over for all this?” He demanded in a harsh but low voice.  
+
+This man knew what I’d done. He was aware that I called that man over and was the cause of three deaths. I searched my brain trying to figure out just what been so important I put all of this into motion.  
+
+“They killed... Luna. My dog.” I answer meekly, still in a state of shock. 
+
+“All of this for a dog?” He asked disgusted and nodded towards the bloody street. 
+
+One teen twisted and broken from the car crash. Another with his face smashed in, the blood leaking down the stone steps. And the final one in pieces scattered around the street. I looked at each one of them, my stomach turning. If I didn’t puke earlier, I would have then. My eyes landed on the stranger's face. He looked over his shoulder towards us with such a grim smile on his face it caused my head to swim. I looked up when the officer cursed seeing a new cruiser pulling up. This was a crime scene and it should be swarming with cops. A new fear started to spread in my stomach. Would they arrest me as well? It appeared like only one cop so far knew about my deal with the monster but wasn’t I still responsible in some way? I didn’t have time to think about my future when a new scene played out. A pair of police came from the new cruiser and the one that spoke with me tried to keep one back. One looked familiar and my gut sank to the ground the moment my mind clicked to why I would know his features. 
+
+“I told you I would help you with any cases if that Mad Dog came back. Now let me through Chief. What are you trying to hide from me?” The new arrival spoke trying to look around the road. 
+
+His partner grabbed his arm to drag him away far too late. His eyes landed on the crumpled form in the steps and it took both men to hold him back. He started to yell the dead boy’s name. His dead son’s name. The yells turned to screams and all at once he became silent the moment we made eye contact. He knew who made the phone call that ended his son’s life. All three of them took a hold of him in some way trying to keep his gun from his hand. I simply watched almost welcoming death by his actions. It felt fair if he shot me that night. 
+
+While all the police fought to keep one in line, no one kept watched on the one who killed three teens that night. He stood up, stretched and walked over to the group in no hurry. He kept his arms cuffed behind his back even though we all knew breaking the metal would be easy for him. The father fought harder screaming how he wanted to kill all of us. 
+
+“Are you threatening the one who hired me? Hm? We met before, hadn’t we? You know the deal. I protect the ones who I do a job for against retaliation. If you harm one hair on that child’s head then-” His calm and yet arrogant tone got cut off. 
+
+“Or what?! You'll kill me?!” The man shouted, face red and veins popping from his forehead. 
+
+“You have a lovely young daughter, don’t you?” The words barely a whisper and almost impossible to hear them from where I sat. 
+
+The man went pale and limp in the hold of the others. He shook his head not believing the threat. Not wanting to believe any of this happened. 
+
+“You wouldn't dare hurt her. I’ll kill you if you ever even look at her...” He threatened in a weak voice. 
+
+“I’ll have no reason to even remember she exists as long as you forget about the one who called me. But if I find out you went ahead and did something stupid well... I have a skill of getting the young and pretty ones to come to me. They tend to enjoy our time together too.” That smile I hated came back over his face. 
+
+The idea of what his words implied caused the officer to react. He drew his gun so quickly the others didn’t stop him. The smile was literally blown off the man’s face. The second time that night his jaw hung limp and broken. He didn’t fall over, but rather let the blood pour to the ground with his head hanging down for a few second. He raised it to press his forehead against the gun, grey eyes shining in the dark. He wanted to be shot again. To see the reactions of the rest when they realized a bullet wouldn’t kill the monster that appeared that night. And to watch as all hope and sense of logic were taken from four adult men. The gun was taken away so that didn’t happen.  
+
+I watched the officer that spoke with me take charge of the situation. He packed the cuffed and healing monster in the backseat of one cruisers and told one of the shaken co-workers to take me home. I prayed the last I ever saw of that man was the back of his head in a cop car. I thought I was going to be arrested for my involvement. I did, in a way, hire a man to kill three people. That fact would hold up in court. In the moment, I felt so numb I would have accepted any sentence handed down. 
+
+But oddly enough, nothing happened. The officer dropped me off in front of my place unsure how what to say. He warned me not to leave town. I nodded and walked inside to curled up in bed trying to go over what happened that night. In the morning I heard they covered the entire thing up with a fiery car crash. No mention of the murders. Just that Trevor, Ben and Thomson died due to one of them driving drunk and crashing into a streetlight. The bodies were so burned and yet they already identified them.  
+
+I couldn’t bring myself to leave my room for months. I expected to be taken anyway at any moment or have that man come by again asking for more victims. I lost my scholarships, and missed out on my final exams. My parent didn’t have a clue why I suddenly turned into a hermit. They gently tried everything to get me back to normal without much luck. 
+
+Then they adopted a small sick and weak kitten. Neither of them thought it would pull through. It needed care and feeding every few hours and that made me focus on something besides myself. I  felt something besides fear and misery when treating for the small kitten. When our new pet got the all clear from the vet, I finally felt relieved. I’d helped someone. It was as if saving one life filled the void that been created when I ‘d taken three others. But not fully filled it. We kept the kitten and named it Tabby. That small bundle of fur gave my life purpose. 
+
+Over the next few years, I got my life back on track. I went to school to become a vet. I knew I couldn't save everyone that came to the clinic, but I did my best to do whatever I could for every animal I met. I almost forgotten how I felt at the end of high school for a while. I even managed to move out of my parent's place and into a small apartment. Things were going just fine after so long of trying to stay above water. 
+
+And then a cat came into the clinic. A small orange one with injuries from a BB gun. He’d been starved and shot. The neighbours were the one who brought him in. They wanted to take him home, or try and keep him away from the owners. Without any proof that the owner’s children were the ones harming the cat, we would need to release him back to the owners and not the caring neighbours who brought him in. That old hate came back. An anger that filled my mouth and tasted like acid. I needed to do something. I had to save this poor cat that did nothing to harm anyone. After some minor investigation, I found out the parents treated their children worse than their cat. CPS had been called but it would take too damn long for the kids to be removed. And if we returned their cat, he would die in their hands very soon afterwards. 
+
+I was quickly at the end of my rope. The police didn’t have time to do anything. Or simply didn’t care. Maybe the children could be saved but that poor little cat... They never even named him. 
+
+For some reason, I kept the old study card with a certain number written on the back of it. The memories of that bloody night flashed into my mind. I had no right deciding the fate of these strangers. I could just steal the cat from the clinic but if anyone reported it, I risked losing my job. I didn’t care about myself, just the animals I could save while working. 
+
+The card felt heavy in my hand. A heavy card for a heavier choice. What weighed down on my mind the most was how eager I felt calling the number. I no longer felt human if I was able bring down death on others so easily. My sense of remorse faded a long time ago. I set the card down deciding to only call the number if I couldn’t keep the harmed cat out of the hands of the ones who wanted to kill him. If there was no other option, I resolved to call in a Mad Dog to solve a problem.
