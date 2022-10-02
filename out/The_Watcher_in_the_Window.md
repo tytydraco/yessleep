@@ -82,19 +82,19 @@ But Larry wasn't home and so I went to Sandy's. I know what you're thinking, "Wh
 
 However, as I approached her door, it was already ajar. It was easy to write off though because of her mental degeneration; even people with all of their faculties working up there forget to close the door, cupboards and at the worst of times, to turn the light off.
 
-I called out, I didn't want to just enter unannounced, "Mrs. Steven's? It's Allen, your neighbor? Are you home?" I wrapped my hand around the doorknob and waited for a response, but none came.
+I called out, I didn't want to just enter unannounced, "Mrs. Stevens? It's Allen, your neighbor? Are you home?" I wrapped my hand around the doorknob and waited for a response, but none came.
 
 What would you have done? Left and pretended everything was fine?
 
 Yeah, I probably should have done that.
 
-Instead, I slowly pushed the door open and immediately the repugnant scent of copper hit me like a fierce gale. Naturally, I assumed the worst. And naturally, I called out again, "Mrs… Steven's? Are… you in here?" Nothing, of course, because why would there be?
+Instead, I slowly pushed the door open and immediately the repugnant scent of copper hit me like a fierce gale. Naturally, I assumed the worst. And naturally, I called out again, "Mrs… Stevens? Are… you in here?" Nothing, of course, because why would there be?
 
 I reluctantly followed the odor, praying that nothing grotesque awaited me at its end.  
 
 The smell led me to a back room down the hall. It had become a particularly warm day and Sandy must have forgotten to turn her air on; it felt like a hot box in her home and sweat dripped into my eyes, stinging them annoyingly.
 
-I pushed the door open, "Mrs… Steven's?" I asked again, but as the door swung open the contents of the room were revealed to me.
+I pushed the door open, "Mrs… Stevens?" I asked again, but as the door swung open the contents of the room were revealed to me.
 
 True horror. An eviscerated torso, intestines and other viscera splattered the walls. Flies had already come to feast and the smell… oh, the smell, absolutely heinous. I wretched, there wasn't anything in my stomach to heave up though, so I turned and ran out of the house.
 
@@ -128,7 +128,7 @@ It tapped the window.
 
 Not only that, but it left behind a bloody handprint that stained the glass terribly. And to further pour salt into that already festering wound, when I looked across the street, Larry's door was ajar.
 
-Odd, I thought. Or was it?
+*Odd*, I thought. Or was it?
 
 As petrified as I was, my innate curiosity got the better of me. I walked across the street, my eyes darting all over the outside world. The first thing I noticed were the matted down footprints on his front lawn, they trailed from the road up to his living room window. Had they always been there?
 
