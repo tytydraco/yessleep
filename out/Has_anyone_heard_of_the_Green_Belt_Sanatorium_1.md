@@ -78,8 +78,6 @@ I looked at Anthony. "Are you serious?"
 
 "Tony," — he hated when I called him Tony — "We've still got like seven hours to go, and I don't wanna drive all night."
 
-"Yeah," he said. "Yeah that's true."
-
 "Come on, when're we gonna be this way again? This is like a once in a lifetime opportunity."
 
 "It's only seven hours away," I said.

@@ -22,7 +22,7 @@ His dark hair plastered to his forehead, his bony fingers, his imposing frame, t
 
 He only started showing up in my peripheral vision. I'd notice him, then blink and look again, and he was gone. I took it as severe sleep deprivation and that I was hallucinating.
 
-God, I thought to myself, I should really fix my sleep schedule. 
+*God,* I thought to myself, *I should really fix my sleep schedule.*
 
 Right before I was going to sleep one night, I saw him again, in the corner of my room. I tried to ignore him again but this time, he spoke.
 
