@@ -41,19 +41,19 @@ Yet when they came to take him to her, he knew his fate was sealed. He cried.
  He didn't know for sure. Alfalfa jumped up onto a low hanging ledge & laying as still as he could, proceeded to listen intently for any clue about his princess.
 
 
- What Alfalfa heard couldn't be true. He had waited until they had all dispersed to make a movement or a sound. Now, he found himself running through the empty corridors. Looking behind every plank of wood and atop any stairway. He had to find her. Though he became tired, he didn't stop. 
+ What Alfalfa heard couldn't be true. He had waited until they had all dispersed to make a movement or a sound. Now, he found himself running through the empty corridors, looking behind every plank of wood and atop any stairway. He had to find her. Though he became tired, he didn't stop. 
 
 
   "A Witch? A Demon? His Princess?" Alfalfa knew he had to find her. They didn't know her like he did. She wouldn't do the things they were accusing her of.
 
 
- When he found her she was sitting on a pile of rags. The dark attic made it difficult to see if she was hurt, but he could smell blood, and piss, mingled with the rot of the wooden floor boards. 
+ When he found her she was sitting upon a pile of rags. The dark attic made it difficult to see if she was hurt, but he could smell blood, and piss, mingled with the rot of the wooden floor boards. 
 
 
  He practically leaped the full distance to her, careful to distribute his weight, just right so as not to send them both crashing down to the concrete below! "Princess! He cried out as he crouched beside her & touched her cheek with his own. We must run. We must escape. Your trial is at dawn!" 
 
 
- The princess turned her head and looked at him, without a smile. The tears streamed from her eyes, crimson drops. She turned back to what she had been looking at before, and Alfalfa peered at it as well, and what he saw frightened him.
+ The princess turned her head and looked at him, without a smile. The tears streamed from her eyes, crimson drops. She turned back to what she had been looking at before.  Alfalfa peered at it as well, and what he saw frightened him.
 
 
   Her tears of blood ran down her cheeks, splattering  upon the severed head of a leader. The head  belonged to the one she called "Mother". 
