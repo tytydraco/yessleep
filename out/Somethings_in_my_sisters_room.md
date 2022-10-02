@@ -1,0 +1,17 @@
+Okay, I didn’t think I would ever say anything about this because it could just be my imagination, but I wanted to post something so here it is. Some background, I live in a ranch house, with a pretty square frame except for one room kind of poking out to create a kind of b shape from birds eye view. The Aforementioned room is the one that is something’s not quite right with. There’s this long hallway that leads to it, with not a whole lot of light permeating that area. So when I started  seeing stuff out of the corner of my eye when I pass that hallway, I figured it was just the dark or my mind playing tricks on me. 
+
+Another reason is that my sister has one of those beds that have the four rings that come above the bed,  I don’t know what they’re called but based off where the door was it looked like it could have been one of those things. So I shrug it off but recently it’s been spreading through out the house. I’ve always kinda seen things out of the corner of my eye in this house but it’s been increasing Ten fold. 
+
+My sister doesn’t live here anymore to unrelated reasons but the room still gives off a creepy vibe, and I’ve been seeing things where there’s no way it could have been just an object, Honestly, I paid it no mind and thought it was just my mind, but something happened recently that completely shattered my ignorance. 
+
+My stepmom was sleeping in the room one night because my dad snores and she’s a light sleeper. She was wide awake, she has sleeping issues so once she wakes up she can’t fall asleep. One night, as she so told me, she was sleeping peacefully for once, when all of a sudden, she wakes up with a start, she goes to make coffee and starts sipping on it while scrolling on her phone. So out of the blue, when she turns off her phone and decides to go to bed, she heard a deep growl that scared the shit out of her. 
+
+Needless to say she was scared so much she didn’t move until the sun came up. She isn’t one to lie, especially about something so stupid. Regardless,   I still scoffed at her, but in my head I was a bit curious. Could it be I was not just imagining. About three days after I was Informed about this, I was coming out of the bathroom after taking the meanest dump of my entire life. 
+
+The bathroom is in that dark hallway and I glanced at the room and I could swear I saw something move away out of sight. However I had to keep moving because I had to do the dishes and there was a ton so I didn’t even think about it as I turned away and I have this weird feeling I still didn’t get to process because all I hear are fast footsteps running behind me and then the hair on the back of my neck stood because of cold breath straight up and I booked it so fast I probably could have dusted Barry Allen. We recently had the room blessed and saved and the experiences have slowed down to almost nothing. 
+
+Almost.
+
+I know whatever is in there has been there longer than me and probably longer than the previous owners. I know all the blessings and sage did is make it weaker and slow it down. I can always feel it whenever I look into that room. 
+
+Ive heard something before. Whenever a spirit touches you, it touched your soul. It makes a connection. I know its there. waiting for something I hope never comes.
