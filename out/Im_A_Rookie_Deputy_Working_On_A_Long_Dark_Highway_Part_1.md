@@ -18,7 +18,7 @@ Rusty fell silent. A look I couldn’t read immediately came over his face.
 
 “Alright. We’ll deal with it.” Rusty called over the radio ignoring my question.
 
-Rusty got the location and we were off in under a minute. He never was one to talk much, but he was eerily silent as we drove down the road. It made me feel tense. If something was going on, I trusted my partner to tell me if it was important. I just prayed I out my trust in the right person. The car passed dark trees without any other cars on the road. Rusty put on the flashing lights but not the siren. The silent view of the forest in the blue and red light made my skin crawl. I’ve never been this freaked out by an empty highway before.  
+Rusty got the location and we were off in under a minute. He never was one to talk much, but he was eerily silent as we drove down the road. It made me feel tense. If something was going on, I trusted my partner to tell me if it was important. I just prayed I put my trust in the right person. The car passed dark trees without any other cars on the road. Rusty put on the flashing lights but not the siren. The silent view of the forest in the blue and red light made my skin crawl. I’ve never been this freaked out by an empty highway before.  
 
 The spot was easy enough to find. Rusty parked a few feet away, leaving the high beams on the dead creature. I got out to get a better look at it. It looked long and pale, with some white hair in patches. Bloody spots on the road showed where got hit first and how far it was dragged along. Long pale limbs sat on the road, about six of them, showing they didn’t all come from just one animal. The issue was, I didn’t know what the hell kind of animal this thing was.  
 
@@ -46,7 +46,7 @@ I finally straightened up enough and ready to confront him.
 
 “Boy, look at that creature over there. Is that anything natural? Something you’ve seen before? This is some weird shit and it’s best if you just listen to me and don’t think.” His voice was stern but not as harsh as I would have expected. 
 
-The words caused me to stop and think. This wasn’t the first time Rusty dealt with something strange like this. He knew what he need to do. In order to avoid someone driving by seeing all this he wanted to get it cleaned up, then he hopefully would explain things. My eyes landed on the mystery creature still on the side of the road now knowing it was something I would ever fully understand. 
+The words caused me to stop and think. This wasn’t the first time Rusty dealt with something strange like this. He knew what he need to do. In order to avoid someone driving by seeing all this he wanted to get it cleaned up, then he hopefully would explain things. My eyes landed on the mystery creature still on the side of the road now knowing it was something I would ever never fully understand. 
 
 I wasn’t able to touch the arms scattered down the road. But I could bring myself to drag the creature’s body off the side. I expected our task to be done, but Rusty told me to keep carrying the heavy bloody body. 
 
@@ -72,7 +72,7 @@ Then a set of hands placed themselves on my face from behind. All the tension di
 
 For half a second, I thought I saw something impossible. A tall thing covered in layers of veil like fabrics with countless arms coming out from either side. Biting the inside of my mouth so I wouldn’t scream, I faced away. The spell completely broken. 
 
-“We returned to child the forest. Let us go back to our work and stop messing with my new partner.” Rusty spoke in a voice not like his normal one. All force behind it gone. 
+“We returned the child to the forest. Let us go back to our work and stop messing with my new partner.” Rusty spoke in a voice not like his normal one. All force behind it gone. 
 
 Fingers ran down my back causing a small scream to escape from my mouth. If this thing was messing with me, it did a damn good job. What felt like forever passed before a soft laugh came from the entity, similar to a whisper of wind. Then, I could no longer sense something behind us.  
 
@@ -134,7 +134,7 @@ With a huff of frustration, the child turned heel and left. Rusty tried calling 
 
 “Huh?” 
 
-I glanced at Rusty then turned to stare at the boy to find him gone. Looking over to Rusty, I silently expected answers. On the ride back to our spot on the highway, he explained a little. There were creatures in the dark. They killed and ate humans making them extremely dangerous. Hell, killing and eating you may be the bets outcome if you ever cross paths with a monster. Rusty's dealt with them since he started working along this stretch of highway. The boy we saw earlier was some sort of King. I really still didn't understand how important the child was. To lessen the King's work load, he gave the officers working this area information on how to deal with the local creatures. Rusty knew most of it, but things changed over the years and newer creatures came along. Having updated information would help us stay alive. 
+I glanced at Rusty then turned to stare at the boy to find him gone. Looking over to Rusty, I silently expected answers. On the ride back to our spot on the highway, he explained a little. There were creatures in the dark. They killed and ate humans making them extremely dangerous. Hell, killing and eating you may be the best outcome if you ever cross paths with a monster. Rusty's dealt with them since he started working along this stretch of highway. The boy we saw earlier was some sort of King. I really still didn't understand how important the child was. To lessen the King's work load, he gave the officers working this area information on how to deal with the local creatures. Rusty knew most of it, but things changed over the years and newer creatures came along. Having updated information would help us stay alive. 
 
 “No one is forcing you to stay in this job.” Rusty said to me. 
 
