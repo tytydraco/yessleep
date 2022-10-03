@@ -1,4 +1,4 @@
-My name is Caroline Hines. I am a murderer. A real life man-eater. And no, I don't feel bad. And by the time the moderators reading this post get around to realizing that this isn't a joke, and if it is, maybe a non-emergency police welfare check just to be safe, it won't help. Here's what the authorities will find once they track me down and search my apartment: the sexiest corpse they've ever seen, along with a large, transparent plastic bag full of the truth: it was me, it was all my fault, and you're all terrible at your job.
+My name is Caroline Hines. I am a murderer. A real life man-eater. I was the willing participant, and you'll see what I mean later. And by the time the moderators reading this post get around to realizing that this isn't a joke, and if it is, maybe a non-emergency police welfare check just to be safe, it won't help. Here's what the authorities will find once they track me down and search my apartment: the sexiest corpse they've ever seen, along with a large, transparent plastic bag full of the truth: it was me, it was all my fault, and you're all terrible at your job.
 
 At this point, dear readers, you may be thinking: *There's no way this is real*, or, *Why here? Why now?*
 
@@ -198,40 +198,46 @@ As soon as I said that, I stopped laughing. I remembered Clyde. I remembered the
 
 I stand up on shaky legs. I look around at the sleepy world, the vibrant green leaves, and the absence of Clyde Pitts. I searched for him, crying and not laughing, for 20 minutes before I gave up and got in the truck. The only trace I found of him was a dark red stain on the pavement, invisible unless you knew where to look, soon to be washed away, and the wreckage of my body and mind.
 
-I looked in the mirror for the first time. There was red smeared all over my pale, cold face, heaviest around my mouth.
+I looked in the mirror for the first time. There was red smeared all over my pale, cold face, heaviest around my mouth and under my nose.
 
 "My name is Caroline Hines. I am a murderer," I stroked my chin. I was rendered stupid, my mind far away, gazing into that miniature echo of Hell. "A real life man-eater."
 
 I stared long and hard until I came back to myself. I knew even then that I would never see my family or friends again; not that I would miss those bitter old white trash drunks. But still, for the first time, I would be completely alone. Alone. Because jail was not an option, not for me.
 
-So I turned on the heat. I used my wet strands of hair to wipe the blood off my face. I grit my teeth against the pain in my fingers, then I drove until the highways were dry and the gas run out. 
+So I turned on the heat. I used my wet strands of hair to wipe the blood off my face. I grit my teeth against the pain in my fingers, then I drove until the highways were dry and the gas run out.
 
 I ended up about three states over. The highway cut through a beautiful meadow, still holding on to the last bits of summer.
 
 I got out, left the keys, and tied my jacket around my waist; the air was warm and sweet with pollen, with a nice breeze rolling through. I walked on the safe side of the white line until the truck was out of sight, then and only then did I thrust my thumb up and out towards the road and waited for someone to pick me up.
 
-In God's terrible way, it was another trucker that picked me up. We crossed another state border until he dropped me off at a bus station, as I asked, and he left me with a pack of cigarettes and wished me luck. From there, I found my way to a homeless shelter. 
+In God's terrible way, it was another trucker that picked me up. When I got in the passenger, I smiled and tried my best not to scream when I stuffed my hands in my pockets. He was balding. He had a beer gut. There was a small picture of his family displayed in a sort of Christmas ornament that hung from the rear-view mirror. This time, I decided not to comment on it.
 
-They gave me medical attention and demanded to know what happened. I told them my parents hit me, and I broke my nails scratching the floor when they tried dragging me away. That night, I was called 'dear' more times than I could count. And I nearly kicked one nurse lady to next week when she pulled that nail out of my finger. She forgave me, fed me animal crackers, flossed the meat out of my teeth, and simply threw it away. 
+ We crossed another state border until he dropped me off at a bus station, as I asked, and he left me with a pack of cigarettes and wished me luck. From there, I found my way to a homeless shelter.
+
+They gave me medical attention and demanded to know what happened. I told them my parents hit me, and I broke my nails scratching the floor when they tried dragging me away. That night, I was called 'dear' more times than I could count. And I nearly kicked one nurse lady to next week when she pulled that nail out of my finger. She forgave me, fed me animal crackers, flossed the meat out of my teeth, and simply threw it away.
 
 Later, after lights-out, I fished those pieces of meat and kept them. I remember reading somewhere that the same chemical they used to keep dissection animals from rotting was also found in cigarette smoke, and that it was very scary and we should therefore stay away from it. So I unraveled all those cigs, lit the innards, and placed the chunks of Clyde over it. I kept it in a small brown bag that stayed on my person at all times, which is now in that clear plastic bag next to me.
 
-And that was the end of Clyde Pitts. All that came out of it was a missing person report for the both of us that turned cold only a month later, even after they found the truck. His family was featured on state news a few times: a distraught woman holding a baby, begging for information about the father of her child (which I did not provide), and another showing a week later, where she was spitting-angry telling everyone that her husband was not a murderer nor was he having an affair and running off with the missing 18-year-old. And then nothing else of Clyde Pitts.
+And that was the end of Clyde Pitts. All that came out of it was a missing person report for the both of us that turned cold only a month later, even after they found the truck. His family was featured on state news a few times: a distraught woman holding a baby, begging for information about the father of her child (which I did not provide), and another showing a week later, where she was spitting-angry telling everyone that her husband was not a murderer nor was he having an affair and running off with the missing 18-year-old girl. And then nothing else of Clyde Pitts.
 
 But every year after, at the end of summer, a tornado would hit that one same town, claim one life, then vanish. A new family was featured on the news every single year. It made me sick as a dog with guilt. One survivor, whose girlfriend was taken during the tornado, said there was a fat man that seemed to have been scratched and chewed apart, just standing in the middle of the road, a willing participant. She swerved to avoid him and made them crash similar to how other crashes had happened on that same stretch of road each year prior. I remember each crack in her voice as she explained how she sat there for an hour next to her dead girlfriend, waiting for the storm to pass. I remember how angry she got when the reporter harshly asked her why they would be driving during a storm anyway, to which she yelled and said she was escaping from her girlfriend's Christian parents who tried to harm her when she found out she was a homosexual.
 
 That night, and every night since, I had nightmares about it, where I was there, watching them crash over and over until I walked towards them and just stared at that scared little girl. The dream always ended when we made eye contact. Everything was vivid minus the red haze making everything unearthly. I felt like power, like autumn, that undeniable connection binding me to that deity forever.
 
-As gruesome as that was, I couldn't go back. I couldn't help. I knew I would just be a vessel again. 
+As gruesome as that was, I couldn't go back. I couldn't help. I knew I would just be a vessel again. And, quite selfishly, I didn't want to go to jail.
 
 I spent the last 30 or so years working at McDonald's, living in a shitty apartment, perpetually staring over the edge, waiting to fall over into that red smudge. I never married; I could never trust a man again. I never had children; I couldn't afford it. Most of my checks went towards liquor. I became so nasty and mean-spirited and religiously fanatic out of unattended trauma and fear of being punished and cleaned out like I thought Clyde had been, that I never made more than one friend (who has graciously put up with me for 3 decades).
 
-Thank you, Grace. I'll never forget that night 12 years ago when we were grabbing a drink together and you made an off-hand comment and said, "If the only thing keeping you Christians from doing bad things is punishment, then how in God's name do you think you're still good people?"
+Thank you, Grace. I'll never forget that night 12 years ago when we were grabbing a drink together and I made some stupid remark to which you replied, "If the only thing keeping you Christians from doing bad things is punishment, then how in God's name do you think you're still good people?"
 
 You gave me the strength to look away from Hell. In the months following, I realized I wasn't evil: I was just a vessel for it, at that moment. That if anyone had to seek forgiveness, it was God, for he watched it all happen. That I wasn't the one who set loose all those tornadoes. That week, I took off my cross necklace for the first time since I bought it. I took down all the wooden crosses hanging on the wall. I was set free.
 
 And then, of course, the second I became happy, I get the news.
 
-Grace: I'm sorry I told you it was just insomnia making me tired all the time. I'm sorry I told you being bald was my own choice. I'm sorry you had to find out this way, though you always had a way of knowing things; I remember how unreasonably nice you've been these past few weeks since the second I decided it was the end.
+Grace: I'm sorry I told you it was just insomnia making me tired all the time. I'm sorry I told you being bald was my own choice. I'm sorry you had to find out this way, though you always had a way of knowing things; I remember how particularly nice you've been these past few weeks since the second I decided it was the end.
 
 Even you knew there was no stopping it.
+
+So thank you, Grace. Thank you for setting me free. Thank you for being the only one to realize there was still some good left in me after all; thank you for bringing that good outwards.
+
+I hope I don't see you for a long, long time.
