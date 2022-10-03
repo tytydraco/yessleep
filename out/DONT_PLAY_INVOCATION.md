@@ -8,7 +8,7 @@ Later on in the game, he went into a room, and he wound up outside an appartment
 
 He tried to delete the game, but it wouldn't let him. He even tried opening task manager to close it and the game wouldn't close. He shut his laptop and he called me immediately. After telling me about the game, he went quiet. I heard something in his voice I've never heard before. He was fucking terrified. 
 
-He said that the thing on the floor wasn't his mom. It was something else. He said that the body stood up, and it bent backwards. It pulled the plastic bag off and showed its face. He said it's skin was like tar, and it's eyes were white. It had no nose, and it's face was upside down.
+He said that the thing on the floor wasn't his mom. It was something else. He said that the body stood up, and it bent backwards. It pulled the plastic bag off and showed its face. He said it's skin was like tar, it's eyes were white, and it's face was upside down.
 
 I eventually got him to calm down, or so I thought. I went to bed, and that night I had a nightmare. It was the worst nightmare I've ever had. I dont usually get bothered by bad dreams, but this one felt real, and it felt like it would never end. 
 
