@@ -1,8 +1,8 @@
- Has anyone heard of the Green Belt Sanatorium?
+Has anyone heard of the Green Belt Sanatorium?
 
 I encountered this place three years ago. At least, I think it's a place. Anthony seems to think it's a game, or an esoteric webseries — I'm not really sure which.
 
-A Google search returns nothing relevant. But I've been there — or I've experienced it. So it's very real. I'm convinced it's very real. 
+A Google search returns nothing relevant. But I've been there — or I've experienced it. So it's very real. I'm convinced it's very real.
 
 But that was three years ago. Since then, I've never been able to find it again. And now that Anthony is gone, I'm not sure who to ask.
 
@@ -38,21 +38,21 @@ I looked at the unmoving field of vehicles. "No. Playstation?"
 
 My eyes narrowed at him. "Dude, you were the only one who played those games."
 
-"I kept recommending it! It's not my fault everyone had bad taste." 
+"I kept recommending it! It's not my fault everyone had bad taste."
 
 Anthony's folks were religious, so they were religiously strict. No Xbox, no Playstation growing up. Also, the netbook he had then was weak as shit. Could barely play movies. All this guy could play were these shitty games he found for free on the net.
 
 "Anyway," he was saying, "that game's set in a place called Green Belt Sanatorium."
 
-"Could be a coincidence." 
+"Could be a coincidence."
 
-"I dunno. It's a pretty weird name." 
+"I dunno. It's a pretty weird name."
 
 "That it is."
 
 "The game's great though, I can't believe I almost forgot about it. It was like a procedurally -generated DOOM, with no shooting. So kinda like Ultima, but with more secrets. And it was backrooms before backrooms was cool…"
 
-"Okay." I was already searching for alternate routes. Anything was better than waiting two hours in this slog, with this conversational partner, on this conversational tangent. Anthony was a homie from the olden days, but if he went on another one of his four-hour rants about obscure media, I would probably crash the car. 
+"Okay." I was already searching for alternate routes. Anything was better than waiting two hours in this slog, with this conversational partner, on this conversational tangent. Anthony was a homie from the olden days, but if he went on another one of his four-hour rants about obscure media, I would probably crash the car.
 
 Anthony had gone back to staring over his shoulder. I looked over and followed his gaze, but I couldn't even see the place from here.
 
@@ -92,7 +92,7 @@ I sighed.
 
 It was about six o'clock when we pulled into the parking lot on the front grounds. As far as I could tell, there was no activity outside the Green Belt Sanatorium. No caretakers keeping the lawn. No car in the lot other than ours.
 
-We walked up the steps to the front of the building. A long teller window was recessed into the facade, along with the word RECEPTION. Doors on either side led into opposing wings. 
+We walked up the steps to the front of the building. A long teller window was recessed into the facade, along with the word RECEPTION. Doors on either side led into opposing wings.
 
 Anthony tested one.
 
@@ -116,19 +116,19 @@ Through some heroic means I suppressed the urge to roll my eyes. I could feel th
 
 She said, "You just missed visiting hours."
 
-"Ah, what a shame," I said. 
+"Ah, what a shame," I said.
 
 "Would you like to make an appointment?"
 
 "No, we should probably be on our way," I said, smiling.
 
-Anthony leaned into the teller window. "Do you have any brochures or any kind of literature I could read? It's just hard to find anything online…" 
+Anthony leaned into the teller window. "Do you have any brochures or any kind of literature I could read? It's just hard to find anything online…"
 
-"Literature?" she said. 
+"Literature?" she said.
 
 "Yeah. Like information?"
 
-"We have books inside." 
+"We have books inside."
 
 "Inside?"
 
@@ -138,7 +138,7 @@ Anthony looked at me.
 
 I shook my head. No way.
 
-—  
+—
 
 It was a bad deal. I tried to explain this to Anthony, but he kept talking about our "duty as sentient beings", and threw around stuff like, "Where's your sense of adventure?" I countered that I wasn't gonna pay three bucks to get inside — to which he countered that he'd pay for me. I proposed that we get in the car and make good time before it got too late. He proposed that we fly over the cuckoo's nest, just the two of us, for the shits and giggles.
 
@@ -146,11 +146,11 @@ We couldn't reach an accord, but I came out of negotiations with one of his ciga
 
 "Make it quick, okay?"
 
-"Don't worry. Fifteen minutes, max." 
+"Don't worry. Fifteen minutes, max."
 
 "Make it five," I said. But already I had that sinking feeling. Anthony was not a person known for making it quick.  I should have never let him go in there alone.
 
-He paid, checked his stuff in, and signed three forms. There was a large disclaimer above the feeder tray: the Sanitarium takes no liability in the case of any theft or loss. Something about the sign made me stare at it. Then Anthony was at the door on the left. 
+He paid, checked his stuff in, and signed three forms. There was a large disclaimer above the feeder tray: the Sanitarium takes no liability in the case of any theft or loss. Something about the sign made me stare at it. Then Anthony was at the door on the left.
 
 The woman buzzed him in. The thick, frosted glass swung shut behind him.
 
@@ -160,7 +160,7 @@ I took another drag on the cigarette. She stayed awfully still. I kept her in th
 
 It'd been ten minutes. Good enough.
 
-I marched my way back up the stairs. As I got closer, I realized the reception window was empty. A reflection of the setting sun, and the encroaching shadow, had played some trick on my eyes. I pressed the bell. 
+I marched my way back up the stairs. As I got closer, I realized the reception window was empty. A reflection of the setting sun, and the encroaching shadow, had played some trick on my eyes. I pressed the bell.
 
 When she finally reappeared, she almost startled me.
 
@@ -204,7 +204,7 @@ He didn't seem to hear me. I spoke louder.
 
 He looked at me.
 
-A slow smile crept across his face, and something like a glimmer came into his eyes. 
+A slow smile crept across his face, and something like a glimmer came into his eyes.
 
 He said something in Spanish.
 
@@ -218,7 +218,7 @@ I continued deeper into the building, taking turns at random. There seemed to be
 
 Deeper in the building, the rooms stopped conforming to rectangular shapes. Odd corners and enclaves jutted every which way, sometimes hiding an unused lamp or a chair. I'd lost all sense of orientation minutes ago. Then I smelled it.
 
-The acrid stench of smoke, plastered to the walls. I followed it to a long, narrow corridor with two vertical turnstiles — like the revolving doors in the old NYC subways. 
+The acrid stench of smoke, plastered to the walls. I followed it to a long, narrow corridor with two vertical turnstiles — like the revolving doors in the old NYC subways.
 
 Beyond was another waiting room. This one was lined with plastic chairs. On top of each was a glassy-eyed geriatric like the one I'd seen before. Many had their heads buried in a book, but some just sat there smoking. Staring at a spot on the whitewall across. Ash dripping from their unmoving fingers, collecting in piles on the floor.
 
@@ -230,7 +230,7 @@ As I walked, each waiting room of people gave way to another waiting room of peo
 
 *Where did they come from? How did they get here? And how will they return?*
 
-— 
+—
 
 "Tony!" I called.
 
@@ -244,11 +244,11 @@ Anthony was nowhere to be found. It was hard to tell how much time I'd spent loo
 
 "Anthony!" I shouted. I didn't care if I was in a library. It was time to get out of there.
 
-"Anthony!" 
+"Anthony!"
 
 My voice echoed. My footsteps quickened down the xerox halls.
 
-I blindly turned a corner and walked into a narrow corridor. It was different — no books here. It was dark, and it seemed to get narrower and narrower. I squeezed myself through the gap and found myself — 
+I blindly turned a corner and walked into a narrow corridor. It was different — no books here. It was dark, and it seemed to get narrower and narrower. I squeezed myself through the gap and found myself —
 
 At the beginning.
 
@@ -290,7 +290,7 @@ I pocketed my wallet and work phone. Fiddled with the clasp on the Casio. I look
 
 It was a little bit after one.
 
-I froze. Pulled out my work phone and activated the screen. It read 1:12. 
+I froze. Pulled out my work phone and activated the screen. It read 1:12.
 
 One hour and twelve minutes after midnight.
 
@@ -302,11 +302,11 @@ I got in the rental and slammed the door behind me. The interior light flicked o
 
 There was no way.
 
-There was no way I spent more than twenty minutes in there. Thirty minutes, max. 
+There was no way I spent more than twenty minutes in there. Thirty minutes, max.
 
 There was absolutely no way I spent more than six hours inside the Sanatorium.
 
-I had several missed calls. Most of them were from Anthony. I immediately hit redial. It went straight to voicemail. Didn't even ring. 
+I had several missed calls. Most of them were from Anthony. I immediately hit redial. It went straight to voicemail. Didn't even ring.
 
 Shit.
 
@@ -324,4 +324,4 @@ I scrolled through his last messages.
 
 I opened up Maps and zoomed out. There was a small town called Midway, thirteen miles away. I calculated the route. It was almost a five hour walk.
 
-With the car, I'd be there in thirty minutes.
+With the car, I'd be there in [thirty minutes](https://www.reddit.com/r/nosleep/comments/xulta1/the_green_belt_sanatorium_2/).
