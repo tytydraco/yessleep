@@ -36,7 +36,7 @@ It started to move. And we were all watching, carefully guiding it's movements a
 
 It was then that my colleague, *Erika*, caught sight of something.
 
-''It's over there.'' - She said. - ''I'm sure of it. It's not far, about 200 feet that direction, think we could reach it?''
+''It's over there.'' - She said. - ''I'm sure of it. It's not far, about 18 feet that direction, think we could reach it?''
 
 We could, and the ROV slowly made it's way. As we approached, the transmission seemely became more clear, and strange shapes and shadows transfigurated by the water were now getting closer. And then i saw something that i will never forget.
 
