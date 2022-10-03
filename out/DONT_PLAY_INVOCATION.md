@@ -12,13 +12,13 @@ He said that the thing on the floor wasn't his mom. It was something else. He sa
 
 I eventually got him to calm down, or so I thought. I went to bed, and that night I had a nightmare. It was the worst nightmare I've ever had. I dont usually get bothered by bad dreams, but this one felt real, and it felt like it would never end. 
 
-In my nightmare, I was in this old house, like a condemed 2 story house. It had this smell, like strong cinnamon mixed with metal. The walls were covered in writing that i couldnt make out. Danny was in the house, and I tried to talk to him but he wouldn't listen. He just stood there still, staring down the hallway. He started walking, and I followed him.  
+In my nightmare, I was in this old house, like a condemed 2 story house. It had this smell, like strong cinnamon mixed with metal. The walls were covered in writing that I couldn't make out. Danny was in the house, and I tried to talk to him but he wouldn't listen. He just stood there still, staring down the hallway. He started walking, and I followed him.  
 
-I followed Danny downstairs, into the basement. The smell was ubearable down there. He stopped in front of this massive furnace. As I got closer to him, I heard this deep awful voice. It was like broken record repeating something that sounded like "finis to some." It didn't make sense, but I got a terrible feeling from it. 
+I followed Danny downstairs, into the basement. The smell was ubearable down there. He stopped in front of this huge furnace. As I got closer to him, I heard this deep awful voice. It was like broken record repeating something that sounded like "finis to some." It didn't make sense, but I got a terrible feeling from it. 
 
 When I got about a couple feet away from Danny, he slowly turned around. His face was upside down, smiling at me as he spoke the words, "finis to some." If anyone has any idea what that means, please let me know.
 
-I woke feeling like there was a rock in my stomach. I tried to get ahold of Danny, but he wouldnt respond to my texts or calls. His dad called me crying yesterday, and he told me that Danny had jumped off the roof of their building.
+I woke up feeling like there was a rock in my stomach. I tried to get ahold of Danny, but he wouldnt respond to my texts or calls. His dad called me crying yesterday, and he told me that Danny had jumped off the roof of their building.
 
  I asked him if Danny left a note or anything that said why he did it. His dad said he checked his room, and his laptop, but he couldn't do anything on it cause it was frozen on a screen that said "ending 1 of 3". 
 
