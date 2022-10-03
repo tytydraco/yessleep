@@ -1,0 +1,25 @@
+ 
+
+I still remember the last uneventful half day of my life so far, that last fleeting sense of normalcy. I dont exactly remember the full normal day prior as that came before, but i do remember the day and moment it all changed. For breakfast Emerentienne fed us Henris favorite, Eggs Sardou. Henri is my big brother by two years and until recently my hero. Emme is our nursemaid and she will never cook a favorite food of mine. At least not with talent. She simply hasn't the skill of Mamere. I resent Henri's willingness to betray our mother over a simpleton egg and sauce dish but the menfolk in my family have always been quick to betray. But I digress...my story lies not in my kitchen but beyond where the woodbine twyneth and there I shall commence.
+
+Henri and I discussed our day at leisure during breakfast. Him sustained and brimming with nourishment, myself peckish and surly. I wanted Henri or Papa to notice I hated Emme's food. That I was growing more delicate and weak without our Mamere whom had seemed to be replaced so swiftly it was as if she was nothing but a waft of perfume left hanging the air. A fleeting idea, something of a dream. No one spoke of Mother anymore. Nor did anyone notice my protestation of the gloppy egg dish that affronted me so I decided to move on and pushed the plate away from my body in dismissal.
+
+"Why dont we visit the old home today?" I asked Henri when Papa had scooched his seat from the table and gone to the field.
+
+"Why the old home? You know there's nothing there" Henri's voice was instantly distrustful and demeanor hesitant. Henri was a coward in every sense of the word. A precocious, timid and fearful boy but full of pride and a sense of protection over me. In his role of big brother he was someone bigger than his everyday persona. Henri's willingness to conceal his very nature from his fearless baby sister is still admirable to me. He meant well and I'll have no one speak ill of Henri even today. But I admit I was susceptible to deviousness and a willingness to manipulate my brother for adventure. The idea of visiting beyond the woodbine has been brewing like a a witches tea in my mind as of late, ripe with a dark electric energy, full of what can be, what WOULD be, were we to just open that box. To unwrap the mystery, to taste the truth. Could I? Could I dare? I decided fate would strike today, and hard. If Henri would agree to go then we will unveil my families mysteries, miseries and history. If he cant be convinced I will let the past lie where it is dying and be gone forever.
+
+Henris platitudes were weak while my overly confident assurances overrode so by 10 am we were off. Convincing Emme of a fishing excursion we headed off towards the riverbank beyond the fields with shrimp rolls and ripe summer fruit for lunch. Henri seemed defeated but I was alive, maybe more alive than Id been since mother went away. Sometimes we have a way of convincing ourselves what we want is best, but Henri's slouched shoulders and worry etching preternatural lines on his young face gave me a bit of guilt for my glee. But still nothing could quite take the feeling of future knowing away from me. We were visiting the old home and nothing seemed to be stopping us so far.
+
+We passed the fields into the Creekside woodland. The temperature noticeably drops and the air smells greener, wetter. Maman and I love the swampland. Papa and Henri seem to avoid it. Only now do i realize just how imperceptive I've been to Henri's discomfort of my favorite childhood haunt. He has always accompanied me at my insistence but he would always be the one to end our pay well before dusk whereas ID be happiest in that dank promise of impending twilight, wanting to extend our games past dusk, pushing the limits of the evening.
+
+It was only just past noon when we'd reached the clearing past the oaks. Here were breaking the rules, here we know better than to breach this barrier. Henri looked at me, visibly shaken to make it this far, a look of fear striking his wholesome, familiar face. "Lucrece, why are we here? Lets go back. Now. I demand it" he said with a force that fell flat in the electric buzz of the circadas and the hot, afternoon storm fueled atmosphere. But I couldn't. I wondered if Henri couldnt either. Were we powerless? Did i choose this/? Now that we were standing here with the woodbine visible in the distance i wasn't so sure.we had made it this far. By now i felt a trepidation deep in my heart, in my stomach. But the elceectricity buzzing in my head overrode it. I wanted my mother. Badly. I heard loons in the distance, an omen. I felt a hot breeze brace my face and In spite of the humidity I shivered. 
+
+"Some stones are best left unturned, Lucie. Lets go home. NOW."
+
+"So go ahead home Henri, I dont care. I want my mama"
+
+"shes gone Lucie"
+
+"she's right here. Ive dreamt it. She wants me to come home. For us to come home. Come Henri. Mother is here"
+
+In spite of the preturnatural chill on the steamy bank of the bayou henri took his sisters small hand. He did miss mamere after all...
