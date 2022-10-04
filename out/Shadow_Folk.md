@@ -1,6 +1,6 @@
-The tale you are about to read is an experiences past and present. It is up to you, dear reader, whether you choose to believe these accounts. That said, it won't even matter to me as I know they happened and that is all I'll ever need.
+The tale you are about to read is an experience past and present. It is up to you, dear reader, whether you choose to believe these accounts. That said, it won't even matter to me as I know they happened and that is all I'll ever need.
 
-• • • ⚪ • • • 
+\-
 
 (**Philippines**) Some say the *Visayan* region have the most stories to tell when it comes to paranormal occurrences and while this is perhaps true, my account as a *Mindanaon* was much different.
 
@@ -55,7 +55,3 @@ Call me crazy but I didn't feel afraid then or would ever be, rather attached. I
 &#x200B;
 
 As I looked at my shadow from the outside. I felt the empty space where it would have been. I looked at the shadow again. I smiled and said, "Good night." Then I went inside, closed the door, hopped onto the bed and propped my feet up again. I fell asleep looking at it as it began to playfully wag it's tail...that was the last time I saw it.
-
-&#x200B;
-
-\#OC u/gloomanddin
