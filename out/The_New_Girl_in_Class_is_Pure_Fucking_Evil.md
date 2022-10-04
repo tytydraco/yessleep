@@ -82,7 +82,15 @@ Hilda seemed to consider this for a moment, then shook her head.
 
 With that, she produced a small pocket knife and began to cut long gashes going vertically down the doll’s face, running across the eyes and popping the tiny sewn buttons which were attached there.  She dug the blade and twisted it, sending pieces of the doll flying through the air.  
 
-“Not so handsome anymore,” she said, as blood began to pour from my cheeks and my eyeballs burst open, spilling intraocular fluids which ran warmly down my chin. “I don’t think Sarah is gonna be interested in you after [all.”](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
+“Not so handsome anymore,” she said, as blood began to pour from my cheeks and my eyeballs burst open, spilling intraocular fluids which ran warmly down my chin. “I don’t think Sarah is gonna be interested in you after all.”
+
+She left me blinded on the floor, terrified out of my mind and bleeding profusely.  
+
+It took a while to recover in hospital but I'm doing a little better now.
+
+Thank goodness for the speech to text software that allowed me to post this to share with you all.  And the help of friends and family.
+
+Witches, what can you [do?](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
 
 [MAD](https://www.reddit.com/r/MidnightAllDay?utm_medium=android_app&utm_source=share)
 
