@@ -20,9 +20,7 @@ I was terrified. The doctors were positively stumped. They had never seen anythi
 
 “Yeah, yeah, alright.” I said. Within the day, and after copious amounts of paperwork, I was set up in a luxurious hospital suite. TV, nurses on call 24/7, and even a PlayStation. It wasn’t bad. Until the eyes. 
 
-All four lumps now had blinking, working corneas.They eyes flickered around the room, and shockingly, cried when I cried. All four eyes eventually got a yellow sleep crust in the corner of their retinas. The nurses scraped it out with cotton swabs, but they gagged and complained about it. As they got bigger and more bloodshot, the eyes locked on to me, never averting their gaze. It freaked me out. 
-
-Horrendously so. 
+All four lumps now had blinking, working corneas. They eyes flickered around the room, and shockingly, cried when I cried. All four eyes eventually got a yellow sleep crust in the corner of their retinas. The nurses scraped it out with cotton swabs, but they gagged and complained about it. As they got bigger and more bloodshot, the eyes locked on to me, never averting their gaze. It freaked me out. 
 
 Then they started to form little sprouts, like a weed. Little bony masses jutted out of the corneas. The eyes stopped blinking then. The sprouts eventually became small little… limbs. 
 
