@@ -287,3 +287,5 @@ She stared in shock at the phone. I reached out and grabbed her arm to lead her 
 I looked at her, anxiety plastered all across my face, and replied, "Home."
 
 r/CorpseChildGospels
+
+[Next](https://www.reddit.com/r/nosleep/comments/xv1l4n/my_uncle_tried_to_warn_me_never_to_go_back_to_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
