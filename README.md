@@ -10,7 +10,7 @@ The [index.md](index.md) file is generated via the [inc](https://www.github.com/
 
 # Schedule
 
-New hot posts are checked every hour and are automatically pushed to the `out/` directory.
+New hot posts are checked every hour and are automatically pushed to the `out/` directory. Once a day, an archive release is uploaded.
 
 # Credits
 
