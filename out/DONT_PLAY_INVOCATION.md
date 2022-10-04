@@ -22,4 +22,4 @@ I woke up feeling like there was a rock in my stomach. I tried to get ahold of D
 
  I asked him if Danny left a note or anything that said why he did it. His dad said he checked his room, and his laptop, but he couldn't do anything on it cause it was frozen on a screen that said, "Ending 1 of 3". 
 
-I know this sounds insane, and no one will probably beleive me. But I think that game killed my friend. I'm not superstitious. I never believed in demons, but I think something evil was attatched to that game. So please, if you get invited to play it, DON'T.
+I know this sounds insane, and no one will probably believe me. But I think that game killed my friend. I'm not superstitious. I never believed in demons, but I think something evil was attatched to that game. So please, if you get invited to play it, DON'T.

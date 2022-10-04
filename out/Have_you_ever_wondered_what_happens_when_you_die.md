@@ -214,9 +214,9 @@ I made to leave, but two soldiers stopped me. The General told me he couldn’t 
 
 *Fuck you,* I told him. *Don’t you dare drag more innocent lives into this.*
 
-*Or maybe we could investigate using children? Their minds are far more malleable. Perhaps… uniquely equipped to deal with their mental stress of navigating the Beyond. What do you think, doctor?*
+*Or maybe we could investigate using children? Their minds are far more malleable. Perhaps… uniquely equipped to deal with the mental stress of navigating the Beyond. What do you think, doctor?*
 
-I think I tried to attack him at that point. The memory is hazy because one of the two guards bashed me over the head with the grip of their sidearm, but I do remember begging him not to. *I’ll do anything,* I said. *Use me instead. I know what we’re looking for. I know enough about the Beyond to navigate it… to tell you exactly what you need to know.*
+I think I tried to attack him at that point. The memory is hazy because one of the two guards bashed me over the head with the grip of their sidearm, but I do remember begging him not to. *I’ll do anything,* I said. *Use me instead. I know what we’re looking for. I know enough about the Beyond to navigate it… to tell you exactly what you want to know. There's no need for children.*
 
 The General agreed.
 
@@ -226,7 +226,7 @@ I did that for sixteen years. When I began, I was a young man, or at least young
 
 It’s making sense of the senseless.
 
-**Did for me just what I asked... Now I give what you want back...**
+**Did for me just what I asked... Now I give what he wants back...**
 
 Inside the sack, something squirms. A hand reaches out of the opening, followed by a mess of auburn hair. Then, freckled shoulders. A woman tumbles onto the courtyard grass, lying amidst slain researchers and soldiers. She's pale. Shivering.
 
@@ -236,41 +236,50 @@ I scramble across the courtyard, hardly believing my eyes as I take Vanessa into
 
 The goliath leans in, and now that it’s closer I see so many features I missed in the dark. The scar upon its cheek. The crooked nose and the thick patch of hair upon its head. It’s like looking in a funhouse mirror, one stretched and distorted.
 
-“Thank you,” I whisper. My cheek presses against Vanessa’s, and her flesh is cold enough that it feels like pins and needles on my skin but somehow, I’ve never felt warmer. Even now, as I sit amidst a circle of dead colleagues and soldiers, I find myself at peace. I did what I could.
+“Thank you,” I whisper. My cheek presses against Vanessa’s, and her flesh is cold enough that it feels like pins and needles on my skin but somehow, I’ve never felt warmer. Even now, as I sit amidst a circle of dead bodies, I find myself at peace. I did what I could.
 
 I did everything I could.
 
-In the wake of my imprisonment, the military ordered me to type up field reports each time I ventured in the Beyond. These reports were vetted by Blaise. The logic was that he had known me for years and would easily be able to determine if I were lying about any of my statements. If my information became unreliable, then the military would enact its contingency plan: using children as Subjects. This was something I did not want, and therefore I would comply with their requests.
+In the wake of my imprisonment, the military ordered me to type up field reports each time I ventured in the Beyond. These reports were vetted by Blaise. The logic was that he had known me for years and would easily be able to determine if I was lying about any of my statements. If my information became unreliable, then the military would enact its contingency plan: using children as Subjects. This was something I did not want, and therefore I would comply with their requests. That was what they believed. Indeed, it was what I believed too– at least initially. 
 
-That was what they believed. Indeed, it was what I believed too– at least initially. But somewhere along the line, the situation changed, and I realized that I could have my cake and eat it too. I could put an end to this project, destroy every last person associated with it, and I could do it all while getting my closure.
+But somewhere along the line, the situation changed, and I realized that I could have my cake and eat it too. I could put an end to this project, destroy every last person associated with it, and I could do it all while getting my closure.
 
 I learned early on that the previous Subjects had been telling the truth. That they were correct to be afraid of the Beyond. It wasn’t just that it was unnerving, it was that it was twisted. Demented. Inside of the Beyond, nothing seemed to make sense, with reality being replaced by a sort of Twilight Zone equivalent. There, birds didn’t fly. They crawled. They used their wings to shuffle across the ground, their broken legs dragging behind them.
 
-Cars were everywhere. They drove in haphazard loops, crashing into walls and street lights and even the screaming denizens of the Beyond. But nobody was behind the wheel. They were all phantoms, moving on their own volition. These things were all uncomfortable. Disconcerting. But they were nothing compared to the real nightmare of the afterlife, a being I came to know as the Shadow.
+Cars were everywhere. They drove in haphazard loops, crashing into walls and street lights and even plowing through the screaming denizens of the Beyond. But nobody was behind the wheel. The cars were phantoms, moving on their own volition. These things were all uncomfortable. Disconcerting. But they were nothing compared to the real nightmare of the afterlife.
 
-A creature of misery and loathing. It seemed to exist in a cloud of negativity, a miasma that stretched across the afterlife like an inescapable plague. The first time I encountered the Shadow, I’d been recording details on the Denizens. I pondered why they were all naked. Why they moved in such drone-like ways, marching forward incessantly, never stopping to eat or drink, or even rest. And why did they scream?
+A being I came to know as the Shadow.
 
-These were questions I never got around to answering, because the world began to shake and rumble. What little glass remained in the windows surrounding me began to shatter and crumble. The Denizens suddenly stopped marching– and began running. Full tilt sprinting. Some of them crashed into walls, leaving bloody marks from busted noses, while others impaled themselves scrambling through the jagged edges of broken windows.
+It was a creature of misery and loathing. It seemed to exist in a cloud of negativity, a miasma that stretched across the afterlife like an inescapable plague. The first time I encountered the Shadow, I’d been recording details on the Denizens. I pondered why they were all naked. Why they moved in such drone-like ways, marching forward incessantly, never stopping to eat or drink, or even rest. And why did they scream? Why were they always smiling and screaming?
+
+While pondering these questions, something strange occured. The Beyond began to shake. The buildings surrounding me, the tall skyscrapers absent of life began to tilt and groan, swaying on their foundations. What little glass remained in their windows shattered, raining around me like a blizzard. The Denizens stopped marching and began running--  sprinting from some unseen threat. Some of them crashed into walls, leaving bloody marks from their broken bodies, while others impaled themselves scrambling through the jagged edges of broken windows.
 
 I did not know what to do, so I merely stood and waited.
 
-And the Shadow found me. A tall, thin goliath that was almost unmistakable in its identity: it was me. A grotesque approximation, but fundamentally, this creature was me. It took me into its hands and my limbs screamed with pain as it began to crush my very bones into dust. Pain… that was something that one rarely felt in the afterlife. All aspects of it seemed so dulled, like distant memories… But the pain this creature imparted upon me was more real and more agonizing than anything I’d felt in life.
+And the Shadow found me. A tall, thin goliath that was almost unmistakable: it was me. A grotesque approximation, but fundamentally, this creature was me. It took me into its hands and my limbs screamed with pain as it began to crush my very bones to dust. Pain… that was something that one rarely felt in the afterlife. All aspects of it seemed so dulled, like distant memories… But the pain this creature imparted was more real and more agonizing than anything I’d felt in life.
 
-When I returned from that expedition, I begged Blaise not to send me back. I wept and pleaded, but both he and the General found my discovery to be positively enticing. They couldn’t wait to strap me down. Pump me full of the afterlife compound. And before I knew it, I was back there, back in that fractured wasteland where love goes to die.
+When I returned from that expedition, I begged Blaise not to send me back. I wept and pleaded, but both he and the General found my discovery to be too remarkable to abandon. They couldn’t wait to strap me down again, to pump me full of the afterlife compound and send me back into hell itself. I think they believed the Shadow to be some sort of angel. A sort of reaper that wrote the laws of the Beyond, and perhaps our Sanctums, but even then I knew better. 
 
-I spent my time in the afterlife running from the Shadow. I’d scramble with the Denizens whenever its thunderous footsteps approached, I’d hide under tables, in closets or even dash into still-driving cars. But it was never enough.
+Still, they wanted it for themselves. The idea of wielding such an entity, of manipulating it and turning it against their enemies likely proved too tempting a prospect to ignore. 
 
-Sooner or later, the Shadow would find me. And when it did, it would torture me. After my third encounter, I begged it not to, asking why it felt compelled to hurt me. And it told me why.
 
-Because I’d spent my whole life torturing it.
+Before I knew it, I was back in the Beyond, back in that fractured wasteland where hope goes to die. Again and again. For years. 
 
-It was then that I learned our Shadows are more than devils. They’re guardians. Gatekeepers of our own personal Valhalla. They exist to keep order, to act as shepherds to the actors that play the parts in our Sanctum-induced fantasies. I discovered that each Denizen was a person from our memory, that they wandered aimlessly until called upon by our own desires, and then they don the identity of whoever we require.
+I spent my time there running from the Shadow. I’d scramble with the Denizens whenever its thunderous footsteps approached, I’d hide under tables, in closets or even dash into still-driving cars. But it was never enough.
 
-Perhaps they become a cherished childhood teacher. Or an old friend.
+Sooner or later, the Shadow would always find me. And when it did, it would torture me. The torture would be unique during each encounter, never allowing me the comfort of predicting the pain, acclimating to it. Once, it snapped my bones one by one. Another time it filled my eyes with broken glass. 
 
-Even a lover.
+Each time it hurt me, I pleaded for mercy. I begged and I begged not to suffer its twisted delights, but it never cared to answer me. It merely conducted its business with a silent determination that bordered on robotic. For a long time, I wondered if it was capable of proper communication at all, or if it was merely serving some predetermined function.
 
-And the Shadow is the maestro that makes the play go on. It does this because it has no choice– when you suffer, it suffers. It seeks to fulfill the whims of your Sanctum because to do otherwise means personal pain. The Shadow and Sanctums are sort of batteries, you see. They each receive a charge throughout your life, with the Sanctum being charged by your positive experiences– your moments of hope, joy, and love, and the Shadow being charged by the negative. Those moments of self-loathing, of grief, of rage.
+Until the day it answered me. I asked why it had dedicated its existence to torturing me, and it told me why: because I had spent my life torturing *it*.
+
+It was then that I learned our Shadows are more than devils. They’re guardians. Gatekeepers of our own personal Valhalla. They exist to keep order, to act as shepherds to the actors that play the parts in our Sanctum-induced fantasies. I discovered that each Denizen was a person from our memory, that they wandered aimlessly until called upon, and then they'd don the identity of whoever we desired.
+
+Perhaps they'd become a cherished teacher from childhood. Maybe an old friend.
+
+Maybe even a lost lover.
+
+And the Shadow is the maestro that makes the play go on. It does this because it has no choice– when you suffer, it suffers. It seeks to fulfill the whims of your Sanctum because to do otherwise means personal pain. The Shadow and Sanctums are sort of batteries, you see. They each receive a charge throughout your life, with the Sanctum being charged by your positive experiences– your moments of hope, joy, and love, and the Shadow being charged by the negative, those moments of self-loathing and grief.
 
 It’s why our emotions are fleeting. Why once they come, they seem to vanish in minutes or hours. They’re being fed into our own personal reserve– a reserve that exists inside of billions of individual pocket dimensions. Where these dimensions come from and how they first came to exist isn’t something I know, but I do know one thing.
 
@@ -280,30 +289,26 @@ I know this because I’ve helped people travel to them. Every time I injected m
 
 A Shadow.
 
-**Bottled up your misery, now you take your leave from me...**
+**Bottled up your misery, and now you take your leave from me...**
 
-I gaze up at the goliath and I say my own name. “Yes, Andrew. The link should be broken… you are free from my pain.” Even as the words leave my mouth, I have no idea what the consequences will be. When I die, having no Sanctum and no Shadow, where will it leave me? The wasteland of the Beyond?
+I gaze up at the goliath and I say my own name. “Yes, Andrew. The link should be broken… you are free from my pain.” Even as the words leave my mouth, I have no idea what the consequences will be. When I die, having no Sanctum and no Shadow, where will it leave me? The wasteland of the Beyond? Or will even that be gone, without its caretaker? I do not know.
 
-Or will even that be gone, without its caretaker? I do not know.
-
-All I know is that the horror of my experiments have finally been laid to rest. The worlds of life and death are once again separate as they were always meant to be. I write this now not to encourage others to follow in my footsteps and take up my research, but rather to heed my warning: some mysteries are better left unsolved.
+All I know is that the horror of my experiments have been laid to rest. The worlds of life and death are once again separate as they were always meant to be. I write this now not to encourage others to follow in my footsteps and take up my research, but rather to heed my warning: some mysteries are better left unsolved.
 
 **Goodbye.**
 
 “Goodbye.”
 
-I watch the goliath rise up to its full height, and with a single spring of its legs, it leaps into the dark of the woods. Gone. I do not know what it intends to do here. It is my hope that without the torment of my own negativity, it will find its own sort of peace. In the meantime, I look down at the peace that I’ve found.
+I watch the goliath rise up to its full height, and with a single spring of its legs, it leaps into the dark of the woods. Gone. I do not know what it intends to do here in our world. It is my hope that without the torment of my own negativity, it will find its own sort of peace. In the meantime, I look down at the peace that I’ve found. Vanessa. My darling.
 
-Vanessa. My darling.
-
-She’s just the same as I remembered, the same as the day she died. I see her eyelids flutter. I watch as her limbs twitch, as she awakes from her slumber. It takes me back to lazy Sundays in bed. It reminds me of the days we’d sleep in, and I’d wipe the sleep from her eyes and bring her waffles and fruit to start her day.
+She’s just the same as I remember her, the same as the day she died. I run a finger along her jaw, and her eyelids flutter. I watch as her limbs twitch, as she awakes from her slumber. It takes me back to lazy Sundays in bed. It reminds me of the mornings we’d sleep in, those mornings where I’d wipe the sleep from her eyes and hold her close, wondering how life could possibly be so perfect. 
 
 “Hello again, darling,” I say.
 
-She looks up at me, and she smiles.
+Vanessa looks up at me for the first time in sixteen years. She smiles.
 
 &#x200B;
 
 &#x200B;
 
-She smiles. And she [screams](https://www.reddit.com/r/TalesFromTheCryptid/).
+She smiles, and then she [screams](https://www.reddit.com/r/TalesFromTheCryptid/).

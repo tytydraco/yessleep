@@ -14,7 +14,7 @@ And so I didn't go far, heeding her wish. Little did I know the unexpected would
 
 &#x200B;
 
-You see, there's this *Balete* Tree (a Strangler Fig from the *ficus* family) and it was or still is — the biggest one I have come across even as an adult. This particular tree was enormous, tall; on the ground it is surrounded by wild purple *trandescantia*. This tree definitely had a huge trunk and on it's corner near a slope that nearly reached the side of a cliff to a river it had a man-sized opening that stood like a doorway. I remember, standing at 176 cm now, I stuck my head only to be greeted by an eerie hollow entryway.
+You see, there's this *Balete* Tree (a Strangler Fig from the *ficus* family) and it was or still is — the biggest one I have come across even as an adult. This particular tree was enormous, tall; on the ground it is surrounded by wild purple *trandescantia* or Spiderwort. This tree definitely had a huge trunk and on it's corner near a slope that nearly reached the side of a cliff to a river it had a man-sized opening that stood like a doorway. I remember, standing at 176 cm now, I stuck my head only to be greeted by an eerie hollow entryway.
 
 &#x200B;
 
