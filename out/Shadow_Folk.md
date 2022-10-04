@@ -34,7 +34,7 @@ I opened my eyes almost instantly and that's when I saw it — them. *They looke
 
 &#x200B;
 
-Let me clear that when I woke my Mom up she uttered one word, "*Sigbin*." —as we laid there, I remember seeing more of them. In the ceiling, on the floor and walls; shadows lurked outside the *capiz* windows in the terrace as well.
+Let me be clear that when I woke my Mom up she uttered one word, "*Sigbin*." —as we laid there, I remember seeing more of them. In the ceiling, on the floor and walls; shadows lurked outside the *capiz* windows in the terrace as well.
 
 &#x200B;
 
