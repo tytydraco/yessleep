@@ -843,3 +843,7 @@ Speaking of, it's a damn shame about the knife. There's nothing I can do about i
 &#x200B;
 
 However, I need some candles. In the meantime, it's off to bed for me. After tonight, I'm in serious need of some [rest.](https://www.reddit.com/r/StoriesFromRose/) Later, [everyone.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/xvaqt9/were\_investigating\_the\_disappearance\_of\_everyone/](https://www.reddit.com/r/nosleep/comments/xvaqt9/were_investigating_the_disappearance_of_everyone/) (Guess who's back? Back again?)
