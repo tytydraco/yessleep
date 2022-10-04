@@ -14,13 +14,13 @@ I wondered what sorta stick worked its way up her ass as I got up and dressed. H
 
 I had to cast those thoughts aside. It was difficult, but I had a job to do. I took a breath and opened the door. A slight breeze kissed my cheeks as I was greeted with the brisk air of the outside world. It felt like it had been days since I had seen the outside of my small apartment. Maybe because it really had been.
 
-I walked to my car that was parked on the street and hopped in. With a few wrong turns and dead ends I was headed down Grabe road. There were rows of houses on either side, but they soon gave way to trees and thick brush as I headed further down the road. I could see the church in the distance and glanced at an oncoming traffic post on the side of the road. It read: Speed Limit 45. 
+I walked to my car that was parked on the street and hopped in. With a few wrong turns and dead ends I was headed down Grabe road. There were rows of houses on either side, but they soon gave way to trees and thick brush as I headed further down the road. I could see the church in the distance and glanced at an oncoming traffic post on the side of the road. It read: Speed Limit 45.
 
 I thought that was a little quick for what was technically still a residential road, but maybe they just do things a bit differently down here. I pressed my feet on the gas and was quickly clearing 50. It was weird though. It seemed like the faster I went the further the church got. I brushed it off as just my mind playing tricks on me.
 
 But after another 10 minutes of driving I couldn’t see the church at all. Just winding trees and thick forest covering all sides of my vehicle. I could see the dim lights of the town fading away in my rear view mirror as I drove on.
 
-My first thought was that I might have made a wrong turn somewhere. Then I thought how impossible that was. It was a straight shot to the church from the road I was on, no turns, no nothing. 
+My first thought was that I might have made a wrong turn somewhere. Then I thought how impossible that was. It was a straight shot to the church from the road I was on, no turns, no nothing.
 
 I slowed down to about 30 and started looking for somewhere I could turn off or maybe park when the familiar red and blue lights accompanied by a siren showered my vehicle. I pulled off to the side of the road and placed my car into park. To my surprise the officer didn’t get out.
 
@@ -68,7 +68,7 @@ I looked over at Graves. He was a tall man about six even with a rather muscular
 
 Graves looked down at his shoes and placed his hands on his service belt. He took a deep breath and looked back up at me.
 
-“Grabe duty Detective. I’m the newest on the force and they give that job to all the newbies. It’s our small town version of a speed trap, but not really. It’s more of a public safety thing than anything.” 
+“Grabe duty Detective. I’m the newest on the force and they give that job to all the newbies. It’s our small town version of a speed trap, but not really. It’s more of a public safety thing than anything.”
 
 “They say if you can’t handle Grabe duty, then you might as well just quit the force. Because shit gets more intense than that. You see, Grabe road isn’t like any other road in Dog Wood. A straight shot just off the main street headed South past this here church and into oblivion.”
 
@@ -78,11 +78,11 @@ Graves looked down at his shoes and placed his hands on his service belt. He too
 
 “Well, just look Detective.” Graves pointed a finger toward the town.
 
-“We can see the lights of the town from here and yet we were so deep in that forest we couldn’t even see the church. So where did the forest go? We were somewhere else entirely. That’s the reason I did what I did. I wasn’t exaggerating when I said this road goes into oblivion. Now about having to leave you, well, when the fog starts to roll in times just about up and you're just about lost.” 
+“We can see the lights of the town from here and yet we were so deep in that forest we couldn’t even see the church. So where did the forest go? We were somewhere else entirely. That’s the reason I did what I did. I wasn’t exaggerating when I said this road goes into oblivion. Now about having to leave you, well, when the fog starts to roll in times just about up and you're just about lost.”
 
 “But lost where?” I asked.
 
-“I haven’t the faintest clue, but wherever that forest road takes you it can’t be good and most folks aren’t seen again once the fog consumes them. That's why it’s so important to stop any and everyone that speeds on this road.” Graves said. 
+“I haven’t the faintest clue, but wherever that forest road takes you it can’t be good and most folks aren’t seen again once the fog consumes them. That's why it’s so important to stop any and everyone that speeds on this road.” Graves said.
 
 He motioned me to follow him to his cruiser. Where he opened the glove box and pulled out a manila folder labeled CASE #111
 
@@ -100,7 +100,7 @@ He motioned me to follow him to his cruiser. Where he opened the glove box and p
 
 “Wouldn’t you know, I guess you do have your uses.” I said.
 
-I radioed the chief and she said she’d meet us at the station once we had a working theory on where Eric had gone. We pulled into the driveway of a single story ranch home out on the East end of town. Bottles and debris littered the ground around the neighborhood and alley cats fought for what little scraps still remained in the overturned garbage cans strewn about the street. Suffice to say this wasn’t exactly the ritzy part of town. The house itself was in good enough shape though. The windows were all in place and the door wasn’t kicked in or boarded up. 
+I radioed the chief and she said she’d meet us at the station once we had a working theory on where Eric had gone. We pulled into the driveway of a single story ranch home out on the East end of town. Bottles and debris littered the ground around the neighborhood and alley cats fought for what little scraps still remained in the overturned garbage cans strewn about the street. Suffice to say this wasn’t exactly the ritzy part of town. The house itself was in good enough shape though. The windows were all in place and the door wasn’t kicked in or boarded up.
 
 After a few taps on the door a very frail looking woman answered. She looked to be about 45. Her hair was a mess and I could see the black bags under her eyes in the dim light of the street. She hadn’t yet turned on the lights inside her home.
 
@@ -136,7 +136,7 @@ I stood back up and shot Graves a small look of, what the fuck was that. He just
 
 “What about his social life? Any friends or girlfriends?” I asked.
 
-“Oh heavens no! Eric is a very quiet boy. He hasn’t had anything close to a girlfriend I’ve seen and the only other person I’ve ever seen him hang out with was that Pruit boy from over South.” 
+“Oh heavens no! Eric is a very quiet boy. He hasn’t had anything close to a girlfriend I’ve seen and the only other person I’ve ever seen him hang out with was that Pruit boy from over South.”
 
 She turned her nose up when she spoke about Pruit. Maybe there was a thread there I could pull.
 
@@ -160,7 +160,7 @@ Instead of crusty socks there were newspaper articles and clippings scattered ab
 
 I took a look at the police reports on Eric’s desk first. There were mostly various disappearances in and around the local area. I could see he was highlighting everything that all of these reports had in common. Most of which were that the missing person was last seen in a car and they were all heading either from or toward the south side of town. Some of these reports were dated back almost to the 1940s.
 
-Next I looked at the newspaper clippings scattered on the ground. Looked like they were about as old as the police reports. All of them were talking about disappearances in the town and it seemed like the townspeople were getting a bit more than worked up. Some of the headlines read: 
+Next I looked at the newspaper clippings scattered on the ground. Looked like they were about as old as the police reports. All of them were talking about disappearances in the town and it seemed like the townspeople were getting a bit more than worked up. Some of the headlines read:
 
 Mayor In Hot Water Over Disappearances
 
@@ -170,7 +170,7 @@ Mayor Finally Finds Solution, Town Soon To Be Saved
 
 I would have thought these were joke articles if I hadn’t seen the police reports that corresponded with them. Finally, I directed my gaze to the map on the wall.
 
-Thankfully he had made sticky notes on all the points of interest on the map and even had a legend on the top right. There were three colors and with those three colors they each had a case attached to them. Red was labeled Mimic Migration. Blue was Colossus Textula. Red was Grabe Road Disappearance.
+Thankfully he had made sticky notes on all the points of interest on the map and even had a legend on the top right. There were three colors and with those three colors they each had a case attached to them. Green was labeled Mimic Migration. Blue was Colossus Textula. Red was Grabe Road Disappearance.
 
 Instinctively I followed the red yarn. It seemed like they all correspond with the various disappearances from the articles and police reports. He mapped out the missing persons last known location and where they were headed. All of them intersected at Grabe Road.
 
@@ -196,7 +196,7 @@ The man didn't so much as look up at me. He just kept pacing around the room. I 
 
 “Yeah, the mom started crying and I could see she had make-up on when she wiped away her tears. Let’s just say the bottom of her eyes weren’t black from a lack of sleep. Honestly I wouldn't rule out the possibility of Eric just being a runaway.”
 
-“Mh, maybe. I wouldn’t put all our eggs in one basket just yet.” I tossed him the pics I snapped just moments before. 
+“Mh, maybe. I wouldn’t put all our eggs in one basket just yet.” I tossed him the pics I snapped just moments before.
 
 “Damn Sol, you're still using Polaroids!” Graves said in amusement.
 

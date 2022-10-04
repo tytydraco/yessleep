@@ -240,7 +240,7 @@ I began to walk upstairs, flashes of the shadow that lived inside me replaying t
 
 Next I stood out near the lake and looked down at the coins. These things that I felt were like offspring to me now. What powers did they hold? 
 
-I scattered them into the lake and walked away before the authorities ever arrived, including the phone I had just used to make the call. 
+I scattered them into the lake and walked away before the authorities ever arrived, deleting what I could on the phone I had just used to make the call. It was now to be a transcript of this nightmare. 
 
 When they arrive I was sure they would assume it was a teenage drunk party gone horribly wrong, and I would be seen as the victim of a sick prank. 
 
