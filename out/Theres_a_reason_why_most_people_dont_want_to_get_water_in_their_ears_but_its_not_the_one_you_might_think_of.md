@@ -156,3 +156,5 @@ One thing bothered me along the way.
 
 
 *Why did the voice sound so familiar?*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/xvfb94/theres_a_reason_why_most_people_dont_want_to_get/?utm_medium=android_app&utm_source=share)
