@@ -2,6 +2,7 @@
 [[PART 2]](https://www.reddit.com/r/nosleep/comments/x4ncte/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 [[PART 3]](https://www.reddit.com/r/nosleep/comments/x8kcd8/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 [[PART 4]](https://www.reddit.com/r/nosleep/comments/xg5a6g/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
+[[PART 6]](https://www.reddit.com/r/nosleep/comments/xvu1pf/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 
 Hey everyone. Naissance here.
 

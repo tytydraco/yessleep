@@ -1,4 +1,4 @@
-[[PART 1]](https://www.reddit.com/r/nosleep/comments/x2tn6o/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [[PART 2]](https://www.reddit.com/r/nosleep/comments/x4ncte/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [[PART 4]](https://www.reddit.com/r/nosleep/comments/xg5a6g/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [[PART 5]](https://www.reddit.com/r/nosleep/comments/xp6cq1/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
+[\[PART 1\]](https://www.reddit.com/r/nosleep/comments/x2tn6o/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [\[PART 2\]](https://www.reddit.com/r/nosleep/comments/x4ncte/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [\[PART 4\]](https://www.reddit.com/r/nosleep/comments/xg5a6g/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [\[PART 5\]](https://www.reddit.com/r/nosleep/comments/xp6cq1/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3) [\[PART 6\]](https://www.reddit.com/r/nosleep/comments/xvu1pf/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 
 Hey everyone, Naissance here. It’s a weird name, I know. It’s been a while.
 
@@ -10,8 +10,6 @@ When my head descended past the floor of that deep abyss, I saw light. I turned 
 
 This dream shook me. A seamless transition between waking and dreaming. A true feat of our brain's ability to alter our sense of reality. That being said, the abyss in my dream was alluring, in a way. I knew it was because of the tapes. My entire being was screaming at me to stop looking into this, that I was uncovering a primeval, ancient horror better left untouched. I knew I should stop. But I *needed* to find out more. I *knew* there was more to this. And I was going to find out.
 
-&nbsp;
-
 ___
 
 **TAPE 2A: ‘THE FOREST’**
@@ -19,9 +17,8 @@ ___
 SESSION SW001-7-31469
 
 DATED: MARCH 14TH, 1969
-___
 
-&nbsp;
+___
 
 **\[START\]**
 
@@ -123,11 +120,9 @@ NATALIE: He kept yellin’ for Clara. I don’ know a Clara.
 
 **\[END\]**
 
-&nbsp;
-
 ___
 
-I… don’t remember this happening in the tape. I don’t. I’ve listened to all of the recordings at least once. I transcribed them before the files were corrupted when I uploaded them into the university’s database the first time. This tape ended right after the man asked her about the forest. I know this for sure. The rest was static. I thought I was going crazy before, but this is just like some parts of the last recording. These tapes have changed. How could this person hear Stevens’ last words from a hole in *Maine*? Not too mention, this tape is dated in 1969, with her retelling a story from her childhood— this simply wasn’t possible. I couldn’t reason this away as anything other than a hoax, or false labeling. Maybe she wasn’t from Maine? They did say she was a patient after all. The more I sought a reasonable explanation, the more unjustifiable those explanations became.
+I… Don’t remember this happening in the tape. I don’t. I’ve listened to all of them at least once, and transcribed them, before the files were corrupted when I uploaded them into the university’s database. This tape ended right after the man asked her about the forest. I know this for sure. The rest was static. I thought I was going crazy before, but this is just like some parts of the last recording. These tapes have changed. How could this person hear Stevens’ last words from a hole in *Maine*? Not too mention, this tape is dated in 1969, with her retelling a story from her childhood— this simply wasn’t possible. I couldn’t reason this away as anything other than a hoax, or false labeling. Maybe she wasn’t from Maine? They did say she was a patient after all. The more I sought a reasonable explanation, the more unjustifiable those explanations became.
 
 I wanted to pursue a more active role in all of this. I wondered why the university even had these tapes in its possession in the first place. I wanted to discern their connection in any way that I could. I laid the seven cassettes out in front of me. 1A, ‘Arrowhead’. 1B, ‘Recovery’. 1C, Untitled. 2A, ‘The Forest’. 3A, ‘Decline’. 4A, ‘Concrete’. 4B, ‘Whiteout’. I wanted to know more, and I thought it was suspicious that the files only got corrupted when I used university equipment. This happened with my upload, and later with the copier. I decided to poke around a bit. 
 
@@ -139,11 +134,11 @@ It took some sleuthing, but I eventually found out that the administrative build
 
 “Hey Miss M.”
 
-“Y’know, I've been wanting to use the maintenance tunnels as a shortcut to the library. Can I use the spare keys?”
+“Y’know, It’s faster to get to the library from the archives using the maintenance tunnels. Can I use the spare keys?”
 
 “What? I’m not gonna give you the keys for tha— you know what, fuck it. Just don’t tell anyone.”
 
-“Thanks Jared.”
+“Thanks!”
 
 It pays to know the right people.
 
