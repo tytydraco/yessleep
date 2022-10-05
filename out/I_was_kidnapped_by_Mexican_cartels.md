@@ -22,6 +22,6 @@ However, after this happened, my grand parents and I never spoke of the event ag
 
 I don't believe my grandparents ever told my mom of my kidnapping.  Today I am an adult man in my 30s.  I have never talked to my mom about this, let alone she has never asked me.  We have a very distant mother - son relationship.  I have every reason to believe she has no clue at all that this happened. Maybe my grandparents deliberately kept this from her to avoid causing her stress.
 
-My grandmother past away in 2013, taking this memory with her to the grave.  
+My grandmother passed away in 2013, taking this unspoken memory with her.
 
-This is something traumatic that I only think about and never talk about with anyone because the event is so far back.  It still seems unreal.  And the more time that goes by, the more distant and unreal this memory becomes. I haven't talked about this with anyone, not even my most closest romantic partners who I shared everything with, except this.  If I wanted to tell them, I don't know how I would talk about it.  I am just afraid they won't believe me. 
+This is something traumatic that I only think about and never talk about with anyone because the event is so far back.  It still seems unreal.  And the more time that goes by, the more distant and unreal this memory becomes. I haven't talked about this with anyone, not even my most closest romantic partners who I shared everything with, except this.  If I wanted to tell my current partner, I don't know how I would talk about it.  I am just afraid he won't believe me.
