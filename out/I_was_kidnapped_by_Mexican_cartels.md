@@ -18,8 +18,10 @@ This was the most traumatic time in my life.  I was kept in this room for what f
 
 I am lucky to say that on the second day, these three people were raided by the local police and were all arrested.   I was safely returned to my grand parents.
 
-However, after this happened, my grand parents and I never spoke of the event again.  A week before I turned 7 years old my grand dad died of natural causes.  After my grandpa's death, My biological mother showed up in my life for the first time at my grandmother's house to attend my grandfather's funeral.  It was at this time that she decided it was time to take with her and introduce me to the country I was born in: the United States.
+However, after this happened, my grand parents and I never spoke of the event again.  A week before I turned 7 years old my grand dad died of natural causes.  After my grandpa's death, My biological mother showed up in my life for the first time at my grandmother's house to attend my grandfather's funeral.  It was at this time that she decided it was time to take me with her and introduce me to the country I was born in: the United States.
 
 I don't believe my grandparents ever told my mom of my kidnapping.  Today I am an adult man in my 30s.  I have never talked to my mom about this, let alone she has never asked me.  We have a very distant mother - son relationship.  I have every reason to believe she has no clue at all that this happened. Maybe my grandparents deliberately kept this from her to avoid causing her stress.
 
-This is something traumatic that I only think about and never talk about with anyone because the event is so far back it still seems unreal.  Not even my most closest romantic partners get debriefed on this.
+My grandmother past away in 2013, taking this memory with her to the grave.  
+
+This is something traumatic that I only think about and never talk about with anyone because the event is so far back.  It still seems unreal.  And the more time that goes by, the more distant and unreal this memory becomes. I haven't talked about this with anyone, not even my most closest romantic partners who I shared everything with, except this.  If I wanted to tell them, I don't know how I would talk about it.  I am just afraid they won't believe me. 
