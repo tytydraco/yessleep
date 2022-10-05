@@ -54,7 +54,7 @@ Tim isn’t some random nutcase either. He’s one of The Farm’s success stori
 
 The only silver lining from this case is the kids went to very nice foster parents and did well for themselves in later life.
 
-I have 4 more cases written up and a few more than have sprung to mind of anyone cares for a part 2. Thanks all!
+Thanks all!
 
 &#x200B;
 
