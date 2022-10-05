@@ -299,9 +299,9 @@ All I know is that the horror of my experiments have been laid to rest. The worl
 
 “Goodbye.”
 
-I watch the goliath rise up to its full height, and with a single spring of its legs, it leaps into the dark of the woods. Gone. I do not know what it intends to do here in our world. It is my hope that without the torment of my own negativity, it will find its own sort of peace. In the meantime, I look down at the peace that I’ve found. Vanessa. My darling.
+I watch the goliath rise up to its full height, and with a single spring of its legs, it leaps into the dark of the woods. Gone. I do not know what it intends to do here in our world, but it is my hope that without the torment of my own negativity, it will find its own sort of peace. In the meantime, I look down at the peace that I’ve found. Vanessa. 
 
-She’s just the same as I remember her, the same as the day she died. I run a finger along her jaw, and her eyelids flutter. I watch as her limbs twitch, as she awakes from her slumber. It takes me back to lazy Sundays in bed. It reminds me of the mornings we’d sleep in, those mornings where I’d wipe the sleep from her eyes and hold her close, wondering how life could possibly be so perfect. 
+She’s just the same as I remember her, the same as the day she died. I run a finger along her pale jaw, and her eyelids flutter. I watch her limbs twitch and her body shift as she awakes from her slumber. It takes me back to lazy Sundays in bed. It reminds me of those mornings we’d sleep in, where I’d wipe the sleep from her eyes and hold her close, wondering how my life could possibly be so perfect. 
 
 “Hello again, darling,” I say.
 
