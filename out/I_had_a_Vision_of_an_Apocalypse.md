@@ -188,6 +188,8 @@ The bearded man, the ghost, whilst gazing into the forming crowd, though it look
 
 "This is the story of how I died." He paused.
 
+I felt something tug on my arms, forcefully. Launching me backwards.
+
 "This is the story of how you died."
 
 &#x200B;
@@ -202,6 +204,10 @@ But something was off. The K on the "Koka-Kola" sign and the signs on the roads 
 
 And most importantly... The older and dead version of myself, what he told me was that I will be awoken in that place. That I will be thrown into chaos... Jesus, I couldn't ask him when, why, or how. 
 
-To be honest I feel as if I am going insane, almost a week has passed and I can't help myself but be constantly anxious. I can't sleep, I'm afraid I'll fall asleep and wake in that... place again.
+Just when I felt that I calmed down, I noticed something. I looked down at my arms, to see red handprints right at the place where I was grabbed by... Something.
+
+I feel as if I am going insane, almost a week has passed, everything seems normal, the internet is working fine. The news is nothing out of the ordinary. and I can't help myself but be constantly anxious. I can't sleep, I'm afraid I'll fall asleep and wake in that... place again. 
+
+
 
 ***And that I will feel that bullet one day hit my own chest, in that dirty dark green jacket.***
