@@ -1,0 +1,25 @@
+I am not the best story teller or public speaker.  But I will do my best to tell you my story.
+
+I was born in the US.  When I was 2, my mom sent me to live with her parents because she was still too young to raise a kid on her own and needed to save money for a better future.  My grand parents live in a Region of Central Mexico in a small village 2 hours away from a Very Large City called San Luis Potosi. 
+
+ I was 4 years old back in 1987.  I thought my grand parents were my actual parents by this time. By then I didn't remember my actual mom since I had not seen her since I was two.  One day in 1987, my grand parents decided to go to the city of San Luis to run some errands and do shopping. 
+
+This is something they would do frequently and they would always take me with them.  San Luis Potosi is a typical large city in Mexico with subtle crime rate, especially back in the 1980s. We would go to a location called El Centro: a very large paved plaza with shops and building older than 200 years.  This was a very busy area and rumored to be dangerous for the naïve tourist.
+
+This is what I remember.  We were walking to a shoe shop where shoes are hand made.  As we were in the store I was eying a Candy store just across from this shoe shop as my grand parents were distracted.  I decided to run to the enticing candy store to look at a colorful arraignment.  My grandparents did not notice me walking out of the store to the Candy shop across the shoe shop.
+
+As I walked to the candy store, I was in there for a minute & quickly lost my enthusiasm..  I started feeling lost so I started making my way back to the shoe shop to meet my grand parents.  As I exited the store, I felt someone grab me very fast, like a snatch.  My mouth was being covered by a dirty hand that felt like some construction worker.  I couldn't yell.  I started crying but this person was strong too strong and forced my mouth shut. When I looked behind me immediately,  I was being grabbed by two large men.  It all happened so fast.
+
+I was too small to fight them.  They carried me to a van parked close by and tossed me in the back while one drove and one sat with me in the back to restrain me.  They told me to shut the F up or they would kill me.  One pulled a knife and showed it to me.  I was too scared to scream.  I don't remember too much on this ride where ever they were taking me, other than it was a quite ride.  They didn't speak to me unless it was to give me orders or tell me to shut up.  I didn't hear them speak to each other.  The thing I mostly remember is how terrified I was because I have seen this in movies.
+
+I was driven to a house which appeared to have two bedrooms.  When I arrived to the destination, there was a women there who appeared to be their accomplice.  I was kept in a room with a bed and drawer.  During this time, I was told by the woman and two men that the reason why they brought me here is because they are going to sell me to some people who are willing to pay lots of money for me to kill me, then dissect me to sell my organs to a black market.   They were very mean and short tempered.  Sometimes they went as far as beating me.  That happened two times.
+
+This was the most traumatic time in my life.  I was kept in this room for what felt like two days with no food.  I was only given water.
+
+I am lucky to say that on the second day, these three people were raided by the local police and were all arrested.   I was safely returned to my grand parents. 
+
+However, after this happened, my grand parents and I never spoke of the matter again.  A week before I turned 7 years old my grand dad died of natural causes.  After my grandpa's death, My biological mother showed up in my life for the first time at my grandmother's house to attend my grandfather's funeral.  It was at this time that she decided it was time to take with her and introduce me to the country I was born in: the United States.  
+
+I don't believe my grandparents ever told my mom of my kidnapping.  Today I am an adult man in my 30s.  I have never talked to my mom about this, let alone she has never asked me.  We have a very distant mother - son relationship.  I have every reason to believe she has no clue at all that this happened. Maybe my grandparents deliberately kept this from her to avoid causing her stress. 
+
+This is something traumatic that I only think about and never talk about with anyone because the event is so far back it still seems unreal.  Not even my most closest romantic partners get debriefed on this.
