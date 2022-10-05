@@ -4,7 +4,7 @@ The only thing then was to get him something. He wasn't like any of the other ki
 
 I don't recall the exact name but I remember a sign in the window that said '*A gift for any occasion!*'
 
-Upon entry, all I could see were many various items lazily strewn about the room. It did look like that of a small antique shop but I saw plenty of modern toys and trinkets in the mix. After a moments, a middle aged woman with large purple glasses appeared behind the counter.
+Upon entry, all I could see were many various items lazily strewn about the room. It did look like that of a small antique shop but I saw plenty of modern toys and trinkets in the mix. After a moment, a middle aged woman with large purple glasses appeared behind the counter.
 
 "Hello, dear!" She said in a sweet southern accent. "What can I do for you today?"
 
