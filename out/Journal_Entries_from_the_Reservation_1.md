@@ -18,4 +18,4 @@ They were on him in seconds. Pretty soon he was drained and then the 30% or so l
 
 That’s pretty much it for tonight. It’s been a long day. I’ll write something else in here at some point, I’m sure of it. Not much else to do. One things for sure: no more fucking roads.
 
-(When I post Chapter 2, I'll link it here.)
+[Chapter 2](https://www.reddit.com/r/nosleep/comments/xxems5/journal_entries_from_the_reservation_2/)

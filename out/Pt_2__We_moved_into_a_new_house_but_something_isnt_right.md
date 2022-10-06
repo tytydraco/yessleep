@@ -105,9 +105,7 @@ Aside from the noisy refrigerator, the old house was pretty quiet.
 
 Sometimes, on colder nights, you could hear the house creaking as the temperature shifted, but nothing unusual. 
 
-Due to the shape of our house, we didn't really have much storage, or much of an attic due to the vaulted ceilings.
-
-What we did have were two long crawl spaces that ran the length of the house on both sides, with a door in the wall of each of the two upstairs bedrooms. 
+The house didn't really have many closets, but to avoid having to carry heavy boxes into the attic we used the long crawl spaces that ran the length of the house on both sides, with a door in the wall of each of the two upstairs bedrooms. 
 
 As we moved in, we packed boxes away into the crawlspace, things we didn't need right away, like holiday decorations, fine china, winter clothes. 
 
@@ -558,7 +556,7 @@ She talked just like you.
 
 How do I know…" I stammered through tears.
 
-Audrey took to her feat and carefully stepped across the dead Audrey and held out her hand.
+Audrey took to her feet and carefully stepped across the dead Audrey and held out her hand.
 
 I took it with my one good arm, and she pulled me to my feet. 
 
