@@ -1,3 +1,5 @@
+[The Curse of Hollyeve: Eric - Part 2](https://www.reddit.com/r/nosleep/comments/xxidln/all_my_exes_die_after_we_break_up_the_curse_of/)
+
 A while back I shared my story of how [all my exes die after we break up](https://www.reddit.com/r/nosleep/comments/vv7bu5/all_my_exes_die_after_we_break_up/). At the time I published it. I thought that was the end of the story. *It wasn’t.* 
 
 Katy and I went through the motions of our loveless marriage, knowing the alternative was death for her, though sometimes I could tell she was wondering if that might be better. *What was the point of living a life where you could never experience love?* 
@@ -118,8 +120,7 @@ Something began to sting my nose and eyes. It felt and smelled like when the plu
 
 I didn’t think anything of it until I started to feel like I was no longer alone and the smell kept getting more and more intense. 
 
-I walked into the kitchen, wondering if I had left something burning on the stove or something.   
-I was greeted by a blinding plume of smoke as soon as I opened the door and stepped in. I couldn’t see anything. I could only feel and hear. 
+I walked into the kitchen, wondering if I had left something burning on the stove or something.I was greeted by a blinding plume of smoke as soon as I opened the door and stepped in. I couldn’t see anything. I could only feel and hear. 
 
 I felt a cold hand strong on my neck and I heard someone crying uncontrollably and hyperventilating. Then I heard them asking over and over and over again - *why?*
 
@@ -135,4 +136,4 @@ I contacted Colin every way that I could - Reddit messages, texts, voicemails. I
 
 *Colin*
 
-Then his account was deleted. 
+Then his account was deleted.
