@@ -13,9 +13,7 @@ We pulled into the driveway and a heavy feeling fell upon us at the pain of retu
 
 I put the car in park and turned to look at Audrey. 
 
-"I guess we're doing this. Just going to seal it up and hope for the best." I told her. 
-
-"What other options do we really have?" She asked.
+"I guess we're doing this. Just going to seal it up and hope for the best." I told her. "What other options do we really have?"
 
 "I don't know. Maybe we could call some kind of paranormal investigators. I'm sure they'd love this." She answered. 
 
