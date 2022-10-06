@@ -34,7 +34,7 @@ I hear the toilet flush. The sink runs. Footsteps, a door opening, footstep, doo
 
 I wait until I hear her snoring softly to release some of the tension in my body. It took about 10 minutes of staring into the blackness and chewing on my lips, but I finally work up the courage to check her out. For her safety. I remember specifically the thing that got me out of bed was: "Remember this is still your C."
 
-So I get up and tiptoe over to her bedside. Cautiously, muscles burning and my heart about to implode, I fold her blanket in half and check her wrist. 
+So I get up and tiptoe over to her bedside. Cautiously, muscles burning and my heart about to implode, I fold her blanket in half and check her wrist.
 
 It was gone. Her skin was... well, I'll skip all the flowery language. Her skin was actually *there*. There was no trace of her teeth or of blood or anything. I checked her other arm. No bandages, no blood, nothing. I would've smelled her breath, but getting that close to her might have actually sent me into anxiety-induced cardiac arrest.
 
@@ -44,7 +44,7 @@ But now there is no doubt in my mind that everything I smelled, heard, and saw i
 
 So you can imagine my confusion when not only was her flesh intact, but there was no sign of it ever happening in the bathroom, even though I woke up before her. It's reasonable enough to deduce that she cleaned it up herself, but that fast? She left the bathroom moments before I did. I scoured the bathroom but couldn't find the pouch.
 
-Her mother was downstairs making breakfast. I don't think I need to clarify this, but I didn't have any sort of appetite. I went back into the bedroom to get dressed. She was sitting up, awake earlier than ever, no blood on her, no teeth marks. She was wearing the same pajames as last night, not a speck of blood on them, just the gravy stain she'd gotten last night during dinner. She could not have gotten up to clean it. I was awake the whole night. 
+Her mother was downstairs making breakfast. I don't think I need to clarify this, but I didn't have any sort of appetite. I went back into the bedroom to get dressed. She was sitting up, awake earlier than ever, no blood on her, no teeth marks. She was wearing the same pajames as last night, not a speck of blood on them, just the gravy stain she'd gotten last night during dinner. She could not have gotten up to clean it. I was awake the whole night.
 
 She was oddly happy to see me, even though she was the exact opposite of a morning person. She was usually grumpy when she woke up and insisted on the 5-more-minutes rule, but this morning, she practically dragged me downstairs for breakfast (which she never threw up, and I was there until noon when my parents started pitching a fit over my absence). I couldn't stop looking at her. She was glowing, healthy, smiling, joking with her mother, planning what to do for today. At one point I was staring so hard she had to ask me what was wrong and, jokingly, if there was something on her face. Her mother was worried about why I wasn't touching my food after they had all finished. I couldn't tell her. How could I? Who would believe me? I told her I didn't feel well or something lame like that, I don't know.
 
@@ -55,3 +55,5 @@ It's ruining everything. I cannot enjoy myself around her. I find myself constan
 I don't know what to do. Is this a psychological issue, even though she's happier than she's ever been? How do I help? Do I have a right to interfere? How do I get proof? Who will believe me? What is she even doing?
 
 Please let me know what to do. I can't lose her.
+
+EDIT: This will be a series. Thank you for your help.
