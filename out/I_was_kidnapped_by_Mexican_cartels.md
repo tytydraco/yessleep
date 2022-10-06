@@ -4,7 +4,7 @@ I was born in the US.  When I was 2, my mom sent me to live with her parents.  S
 
 I was 4 years old back in 1987.  by this time I thought my grand parents were my actual parents.  By then I didn't remember my actual mom since I had not seen her since I was two.  One day in 1987, my grand parents decided to go to the city of San Luis to run some errands and do shopping.
 
-This is something they would do frequently and they would always take me with them.  San Luis Potosi is a typical large city in Mexico with subtle crime rate, especially back in the 1980s. We would go to a location called El Centro: a very large historic paved plaza with shops, basilicas and conquistador buildings older than 300 years.  This was a very busy area and rumored to be dangerous for the naïve tourist.
+This is something they would do frequently and they would always take me with them.  San Luis Potosi is a typical large city in Mexico with subtle crime rate, especially back in the 1980s. We would go to a location called El Centro: a very large historic paved plaza with shops, cafes, basilicas and conquistador buildings older than 300 years.  This was a very busy area and rumored to be dangerous for the naïve tourist.
 
 This is what I remember.  We were walking to a shoe shop where shoes are hand made.  As we were in the store I was eying a Candy store just across from this shoe shop.  My grand parents were distracted.  I decided to run to the enticing candy store to look at a colorful arraignment of chocolates and gummies.  My grandparents did not notice me walking out of the store to the candy shop across the shoe shop.
 

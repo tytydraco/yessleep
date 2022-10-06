@@ -1,0 +1,43 @@
+I thought college was supposed to be the most fun and stressful time of your life, but there's no fun left here. I shouldn't have picked this place, if I would have known, I wouldn't have came. 
+
+I'll spare you all my college's name, you don't need to end up in the same situation as me. I don't have much time to write this, there's only 10 minutes before the feeding. When I took my tour here, I thought it was my dream school. The outside of the buildings looked old, but magical. The insides were filled with state of the art technology and comfort items. The dorms were small, but enough space so two people wouldn't be on top of each other. When I got my acceptance letter, I was the happiest girl in the world, first-gen college student, here I come. 
+
+9 minutes left:
+
+When I arrived, my RA had this haunted look in her eyes, but a fake smile that was almost convincing. She went over the fire safety rules, the drugs aren't allowed speech, but her survival guide story is what got me. She stared at the ground the entire time, her entire body tense. "Whatever you do, don't look or be outside from the hours of 1am to 2:37am. You will regret it with everything you got." Afterwards, she smiled back at us and then told us her see no evil, hear no evil rule. She was pretty chill for an RA, I wish I knew if she has survived the feeding waves. 
+
+8 minutes left:
+
+I am trying to type as fast as I can, but I'm still unsure if this is going to be my last message I write to anyone ever. A few days after the event, I remember the first weekend after move in rolled around. Party time! I was never much of a party girl, but my Roommate Alyssa convinced me to go. We went to Fiji, which was always a stupid decision on our part. Nothing happened with them luckily, but once 12:57am hit, the party went dead. I remember an alarm going off and all the upperclassmen shuffling to shut all the doors and cover all the windows. They never shut any of the windows, I guess it hunts more on site then smell.
+
+7 minutes left:
+
+Alyssa and I were confused, we thought this might have been a stupid joke being played on us freshman. I didn't make the connection to what my RA said until the 1am bell rang. Everything was silent, every person migrated closer to the walls. Alyssa and I just joined in, not wanting to be the butt of the joke if we start questioning it. We figured the more we make a deal out of it, the worse the results towards us would be. There was this one guy thought, Josh Gregor, who didn't like what was happening. He stood in the middle of the room, having his arms crossed as every other person in that building. I wish I knew what he was thinking in those moments, after all, they were his last.
+
+6 minutes left:
+
+He looked towards the leader of the Frat, I think his name was Cam or something. I don't know, but Cam held his red solo cup to his chest. I watched as all the upperclassmen looked at the freshmen nervously, as if they expected us to hurt them or something. Josh walked up to Cam. keeping his arms crossed the entire time. "Why the fuck did everyone stop partying? Did my RA put you up to this?" Josh lived in a different building then me, or at least I think he did. I don't remember seeing him at the floor meeting, but it doesn't matter now. Cam just shock his head, placing his pointer finger of his non-cup filled hand to his mouth. "No, we just follow this rule. Everyone know this rule, why do you think we told you that once 12:50am hits, parties don't get busted. Cops learned that lesson years ago when a Rookie busted a party at 12:45am. They were erased the next day."
+
+5 minutes left:
+
+When I heard the word Erased, I thought they meant expelled. Now at this point I'm panicking, I was on Scholarship and I couldn't afford to lose it. I didn't care at this point if it was a joke, my anxiety set in. I was not stepping out of the house until that time was up even if the building caught on fire. However, Josh wasn't having any of this. "My god, this is bullshit. I thought y'all were the partiers and only hazed once rushing started. I'm out of here, I'm gonna go join the real chill bros across campus." Josh started making his way towards the hallway with the main door. Fiji had these sliding glass doors to every room, as soon as Josh walked into the hallway with the door, two guys slammed those doors behind him. The doors had frosted glass, so all we could see was the shadows outside. 
+
+4 minutes left:
+
+We watched as Josh's shadow left the building, he did shut the door behind him. The room fell silent again, all of us could hear his footsteps leaving the building. We just listened as he started cursing out Fiji and their actions for this "prank". He was the only noise that was outside; no cars, no busses, no crickets. It was a deafening silence outside of Josh, but then a loud wet crack came from behind Fiji. Everyone's heads snapped towards the back closed current as a dark large shadow filled the back of the room. The wet cracking noise increased as the shadows moved around the outer edge of the house, Josh's swearing can be heard more faintly as he moved further from the house. The room was filled with a screeching bell sound. It was not at the tower, but right next to the window. The bell nose was fast and fanatic, high pitched but haunting. The only other thing I remember hearing before the silence returned was a deep male scream.
+
+3 minutes left:
+
+We didn't know what they were then, but the upperclassmen call them the bellringers. We are drunk college kids, so enjoy the stupid name. A sobered-up party girl ended up sitting down with me and Alyssa after the 2:37am bell rang. "Professor Johnathan said they built the school around the thing, it was the only place that the founder could get for super cheap. They raised cattle and sheep, still do, they let two loose every night. One for each of the bells, they like the cattle the most. However, one of the founder's kid, Mason decided to piss it off. He went to the Bell at 12:55am and hit it three times. He forgot how long of a walk back it was to the president's building, so the 1:00am bell rang. It was higher than normal, but Mason just watched the cattle of the night get released from the pins underneath the tower. The Bellringer remembered what he did, plus he was in clear site. His scream woke the entire small campus up, but no one was brave enough to go outside. The next day, everyone that did not reside on the campus forgot about Mason. He was erased from everyone but those who lived on the campus grounds. Whenever he was mentioned, the townfolk just looked at the speaker like they lost their minds. That's why no one ever discovered what's going on here, because once that are taken, they are forgotten."
+
+2 minutes left: 
+
+That was last month but things have gotten worse, someone pissed off the bell. I tried finding Josh online after that night, but he was gone off of everything. Alyssa got his instagram, when she pulled it up the next day, it said user did not exist. I wish I could say it was all an in-depth prank that the upperclassmen played on us meekly first years, but something shifted. Someone pissed off the Bellringers. They have shifted their hunting time now, you get a ten minute warning for when they strike now, it isn't enough sometimes. It happened last week as I was walking back to the dorm with Alyssa. She sprained her ankle the night before, she wasn't able to run to a building in time. Her family was supposed to visit the next day. After they got to campus, they approached me well, thinking I was a family friend that lived here. I had to walk away after 5 minutes, I couldn't stare at her brother's face. All I could see was her.
+
+1 minute left:
+
+Escaping is impossible, they don't like it when residents leave campus. The trees that surround the campus have started to overgrow onto the road, only food deliver and mail can get through now. The bells ring more whenever people attempt to leave. I don't know who pissed them off, but I live in constant fear of my life. My mom called me the other day, asking why I haven't called or visited home, I was only 20 minutes away. I told her that I was busy, but she told me an hour ago that she was coming to see me tomorrow. I can't let her or my brother get taken by that thing, if they enter campus, they can't leave. If I'm erased, they will be save.
+
+The alarm rings lowed behind me, as I'm writing this. I want it to take me, I can't let them remember who I am. The window shades are wide open, with the window cracked as well. I want it to take me. 
+
+Goodbye
