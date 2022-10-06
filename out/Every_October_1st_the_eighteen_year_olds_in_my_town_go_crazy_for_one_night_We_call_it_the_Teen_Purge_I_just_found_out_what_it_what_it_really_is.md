@@ -384,9 +384,7 @@ I kicked the door. “Out!” I yelled, pointing at the ceiling. I twisted aroun
 
 I opened my mouth to scream, but I was already breathing it in—that toxic stink I’d seen dripping down the side of the canister. The arms holding me tightened their grip and my senses were drowned out by the smell seeping inside me, poisoning my lungs. But it wasn’t just inside my lungs, it was in my blood, heavy in my bones and bleeding into my brain.
 
-I was aware of being yanked to my feet, but I couldn’t stand. My body felt fake, like it wasn’t even mine. “What?” She started to get up, started to call out to me—but rough arms were snaking around my waist, a clammy hand slamming a wet rag over my mouth. I opened my mouth to scream, but I was already breathing it in—that toxic stink I’d seen dripping down the side of the canister. The arms holding me tightened their grip and my senses were drowned out by the smell seeping inside me, poisoning my lungs. 
-
-But it wasn’t just inside my lungs, it was in my blood, heavy in my bones and bleeding into my brain. I was aware of being yanked to my feet, but I couldn’t stand. The auditorium doors were behind me, and I was being dragged back down the corridor. My body felt fake, like it wasn’t even mine. I could feel it like a parasite, a virus, leeching itself onto my skull. 
+I was aware of being yanked to my feet, but I couldn’t stand. The auditorium doors were behind me, and I was being dragged back down the corridor. My body felt fake, like it wasn’t even mine. I could feel it like a parasite, a virus, leeching itself onto my skull. 
 
 My brain was on fire. Everything was on fire. Through half-lidded eyes, I was aware of something dripping onto my face. It came slowly, splashing onto my cheeks before waves of red were hitting me, a scarlet waterfall of glittering gore. It was staining me, tainting me, bleeding into me before it began to rain down. It was warm and wet, drenching me. Turning me into its canvas. At first I tried to get away, but my feet were glued to the floor.
 
