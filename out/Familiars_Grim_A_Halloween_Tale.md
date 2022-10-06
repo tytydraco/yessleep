@@ -175,5 +175,4 @@ And they were oblivious. The kittens were almost asleep, and Meredith was drowsi
 I felt fine. Meredith was fine. Lucipurr and Poe were fine. But the breath never ceased. It never faded, but it didn’t grow louder, either. I had lived under the shadow of this intruder for two years, and living with a human who seemed to have more of a sense for the unseen than others made me complacent.
 
 So I went to sleep never having asked myself: If we could hear the sinewy thing breathing, what was it breathing on us?
-
-&#x200B;
+(PART 2 TOMORROW)
