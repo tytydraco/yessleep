@@ -59,3 +59,7 @@ Thanks all!
 &#x200B;
 
 Edit 1: clarity
+
+&#x200B;
+
+[Part 2 here](https://www.reddit.com/r/nosleep/comments/xx1bmd/the_farm_part_2/)
