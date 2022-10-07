@@ -1,12 +1,12 @@
 It started back in February. I came home from class one day and there was a [photograph](https://i.redd.it/ptq3ucknles91.jpg) on my bedroom floor.
 
-Some sort of icy formation, a cave or perhaps a weird glacier; a blue and white spiral that always draws my eye right into the photo’s centre. I can never quite make out what exactly is *in* the centre though. Sometimes it's hard to look away.
+Some sort of icy formation; a cave or perhaps a weird glacier, a blue and white spiral that always draws my eye right into the photo’s centre. I can never quite make out what exactly is *in* the centre though. Sometimes it's hard to look away.
 
 I had never seen the photo before, and none of my flatmates recognised it either. It was almost as though it had drifted in through the open window, dark tidings delivered to me by the winter chill.
 
 All I know is that ever since I found that photograph I've been dreaming the same dream every night. I'm almost too scared to sleep. There's only so long you can force yourself to stay awake, though.
 
-The dream always starts the same way. I’m already in motion, I'm running, sprinting hard across the frozen ground. Sucking in a lungful of icy air, I chance a glance to the east.
+The dream always starts the same way. I’m already in motion – I'm running – sprinting hard across the frozen ground. Sucking in a lungful of icy air, I chance a glance to the east.
 
 Somehow, I know where I am. The Prytagorian sun is fast disappearing below the planet’s jagged horizon. Somehow, I know I have to keep running.
 
@@ -54,7 +54,7 @@ I shake my head. ‘There’s nothing to talk about.’
 
 ‘I don’t know, being in orbit. Landing prep. My memory is fuzzy.’
 
-‘Liar,’ Henderson growls. Outside the winds surge and our fuselage-door starts to rattle against the cavemouth. ‘The only reason you can’t remember is because you refuse to let yourself.’
+‘*Liar*,’ Henderson growls. Outside the winds surge and our fuselage-door starts to rattle against the cavemouth. ‘The only reason you can’t remember is because you refuse to let yourself.’
 
 Hearing the truth aloud forces the memories to come rushing back. ‘I remember sitting at the controls,’ I say, unable to stop myself from speaking. ‘I remember entering the planet’s atmosphere. But the ice storm, the alarms. Thruster three, it failed. I couldn’t stabilise the ship …’
 
@@ -98,7 +98,7 @@ Then Henderson looks me dead in the eye. ‘What are you going to do, Clarissa?�
 
 *What are you going to do, Clarissa?*
 
-And then I wake up, frozen to the bone no matter how many blankets I took to bed, those words ringing in my ear.
+That's when I wake up, frozen to the bone no matter how many blankets I took to bed, those words ringing in my ears.
 
 *What are you going to do, Clarissa?*
 

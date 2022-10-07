@@ -45,13 +45,19 @@ I hadn’t been expecting Noah to break through the window along with three othe
 
 I didn’t understand why mom was so scared of them at first. The four of them looked exactly like the elder kid’s I knew, but something was wrong, and I was too young to see it. These kids were devil’s hiding in plain sight, monsters bleeding from the dark. Shadows with no faces. 
 
-Noah was the first to come through the door whistling a Disney song I automatically knew. You’ve Got A Friend In Me. Something ice cold slithered down my spine when I saw him swinging a carving knife around like he knew exactly how to use it. His footsteps were slow and calculated, playful, as he stepped back and forth, laughing, calling out if anyone was home while mom pushed me under the table and stepped in front of it, blocking me from his view. I remember the gleam in his eye when he walked in and found my sobbing mother begging him to get back. I started to tell her it was Noah, and he’d never hurt us, even after catching his fingers tightening around the wooden handle of the knife. The twist in his lips knotted my tummy.
+Noah was the first to come through the door whistling a Disney song I automatically knew. You’ve Got A Friend In Me. Something ice cold slithered down my spine when I saw him swinging a carving knife around like he knew exactly how to use it. 
+
+His footsteps were slow and calculated, playful, as he stepped back and forth, laughing, calling out if anyone was home while mom pushed me under the table and stepped in front of it, blocking me from his view. I remember the gleam in his eye when he walked in and found my sobbing mother begging him to get back. I started to tell her it was Noah, and he’d never hurt us, even after catching his fingers tightening around the wooden handle of the knife. The twist in his lips knotted my tummy.
 
 The friendly smile I’d known for most of my life was gone. Everything I knew of him was gone. Noah didn’t see me under the table the night he had grabbed my mother by the neck, wrenched her head back and sliced open her throat until she was spluttering and gurgling on her own blood. 
 
 The human mind is a strange thing. It will automatically try and block out potential trauma before you can fully register it, but there was no way I couldn’t. There was no way I couldn’t not see my mom being brutally slaughtered. Noah didn’t stop with her throat. He stabbed into her stomach until the teeth of the blade was slick red, and he was panting, laughing, giggling into my mother's hair. 
 
-I remember watching pooling red stain her prized carpet and wondering if she was going to get mad—and then realising my mom wasn’t moving. The four of them left after trashing my living room. The other three bound out of the front door, while Noah grabbed our TV and flung it at the window, shattering the glass. It was when the strangled cry escaped my lips and his head whipped around, dark eyes shining in the dim. He didn’t even look at me. 
+I remember watching pooling red stain her prized carpet and wondering if she was going to get mad—and then realising my mom wasn’t moving. The three  of them left after trashing my living room. The others bound out of the front door, while Noah grabbed our TV and flung it at the window, shattering the glass. 
+
+It was when the strangled cry escaped my lips, his head whipped around, dark eyes shining in the dim. 
+
+He didn’t even look at me. 
 
 Noah looked straight through me, his mouth breaking out into a monstrous grin. He was covered in her. Covered in my mother, startling red spattering his face and coating his hair. But he didn’t seem to care, instead revelling in it, in his own undoing. It was an insanity I didn’t know or understand or knew existed. But I knew it was him. It was all of him, everything that made the boy up, a lapse in lucidity and a madness twisting his expression into a monster I had imagined under my bed.
 
@@ -64,7 +70,6 @@ Every other year she’d treated it like a game. And I had been too blinded by e
 There was a bang from outside, followed by laughter.
 
 Mom ducked down lower, holding me tighter. So tight I thought I was going to suffocate against her woolly sweater. “We’re going to see how long we can stay under here,” she breathed. “And you have to stay extra, extra quiet, okay?”
-
 
 With my mom’s phantom words ringing in my head, I buried my face in my knees and stayed as still and quiet as possible. I could hear them outside. Without mom to clamp her hands over my ears and block them out, they were in vivid clarity I couldn’t ignore or deny. Their war cries and whooping, cheering and laughing from boy’s and girl’s alike. Followed by screaming, the sound of a baseball bat shattering a windscreen and thundering footsteps as they ran past my house like animals. They noise bled into the night and then early hours. There was a girl’s voice at the door. She asked if there was anyone inside, and I opened my mouth to tell her my mommy was hurt. 
 
