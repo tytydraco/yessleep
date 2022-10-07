@@ -32,4 +32,4 @@ So now it’s the next morning, and we are trying to figure out what to do. On t
 
 [Chapter 1](https://www.reddit.com/r/nosleep/comments/xwe3r5/journal_entries_from_the_reservation_1/)
 
-(Chapter 3 will be linked here.)
+[Chapter 3](https://www.reddit.com/r/nosleep/comments/xy9xpf/journal_entries_from_the_reservation_3/)
