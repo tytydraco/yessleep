@@ -1,20 +1,20 @@
-Check out part [One](https://www.reddit.com/r/nosleep/comments/xp8u2e/im_a_night_groundskeeper_at_a_golf_course_i_found/)
+Check out part [One](https://www.reddit.com/r/nosleep/comments/xp8u2e/im_a_night_groundskeeper_at_a_golf_course_i_found/) [Part 3](https://www.reddit.com/r/nosleep/comments/xxwanb/im_a_night_groundskeeper_at_a_golf_course_i_found/)
 
 Hey guys I’m back! Sad to say I’m not dead yet, though I have been taking some time off to be with the family. I would fill you guys in on that, but I know the boring mundanities of my everyday life aren’t what you guys are here for.
 
 I have to say, that last entry was a doozy. Suffice to say I didn’t get much sleep after that shift. I did, however, start to wonder about what he had said towards the end. The part about running away like back when he was a child getting chased by imaginary monsters up the basement steps.
 
-In the moments I was reading it and more than a few after, I was scared. I felt the same sensation of fear and anxiety in the same way he had described it. Though, when I got home I started thinking. We run up the stairs fast just to get away from the darkness that we ourselves created. 
+In the moments I was reading it and more than a few after, I was scared. I felt the same sensation of fear and anxiety in the same way he had described it. Though, when I got home I started thinking. We run up the stairs fast just to get away from the darkness that we ourselves created.
 
-We were the ones to switch off the light thus allowing darkness to seep in. Then, like children, we seek shelter from the very monsters we’ve let loose. Even though it was us that paved the way for them to invade our thoughts and minds. 
+We were the ones to switch off the light thus allowing darkness to seep in. Then, like children, we seek shelter from the very monsters we’ve let loose. Even though it was us that paved the way for them to invade our thoughts and minds.
 
 I thought back to when I was a kid and was faced with that same dilemma. I thought I was a clever child so I did what I think most of us would have had the idea to do some time or another. Just keep the light on. Just don’t touch the light switch and the monsters would be kept at bay. I wouldn’t have to release them and in turn be frightened up the stairs.
 
-This worked for sometime. That is until I found out that I wasn’t always in control of whether the monsters would be at my mind's gate or not. Sometimes, I wonder if I ever was. 
+This worked for sometime. That is until I found out that I wasn’t always in control of whether the monsters would be at my mind's gate or not. Sometimes, I wonder if I ever was.
 
 That day I learned that the light switch had about as much power as I did. That is to say, none in the least. That was the day that the light bulb burnt out.
 
-Now, I’m not sure exactly what I’m trying to say or even why I’m writing this to you guys. Maybe it’s a metaphor for life haha! More likely just an old man trying to make sense of something he hasn’t felt since he was a child. 
+Now, I’m not sure exactly what I’m trying to say or even why I’m writing this to you guys. Maybe it’s a metaphor for life haha! More likely just an old man trying to make sense of something he hasn’t felt since he was a child.
 
 Anyway, let's get into the meat and potatoes of the post. This next entry is written as follows:
 
@@ -64,7 +64,7 @@ Anyway, let's get into the meat and potatoes of the post. This next entry is wri
 
 *I crumpled the paper up and threw it away. Find the woodsman? More like find a new fucking job. I’m done. No more.*
 
-*I grabbed my cell and punched in my boss's number. Whoever wrote that letter was right about one thing, I damn sure wasn't going to delay. I brought the phone up to my ear and my blood ran cold when I realized what I was hearing on the other end. It was that same damn song and the same voice singing it.* 
+*I grabbed my cell and punched in my boss's number. Whoever wrote that letter was right about one thing, I damn sure wasn't going to delay. I brought the phone up to my ear and my blood ran cold when I realized what I was hearing on the other end. It was that same damn song and the same voice singing it.*
 
 *I slammed the phone down on the floor, but I could still hear that damn singing. I started stomping on the phone trying to get it to stop. It took me only a few more stomps to realize that the singing wasn’t coming from the phone. It was coming from me.*
 
@@ -104,13 +104,13 @@ Levin pulled out a watch from his pocket and shoved it in my face. I stared in d
 
 “Nice watch.” Was all I could muster.
 
-“Thanks, it was a gift.” 
+“Thanks, it was a gift.”
 
 “From who?” I asked.
 
 “Doesn’t matter anymore.”
 
-We finally made it to hole 18 and rounded the corner to get into the maintenance building. Levin told me he’d just be a minute and that I should wait outside. So I took a seat on the steps and thought about that watch. What are the odds that Fry would have described the same exact one in his journal. 
+We finally made it to hole 18 and rounded the corner to get into the maintenance building. Levin told me he’d just be a minute and that I should wait outside. So I took a seat on the steps and thought about that watch. What are the odds that Fry would have described the same exact one in his journal.
 
 A bunny hopped in front of me while I was deep in thought. I could only see his left side but it looked to be a cotton tail. There was something familiar about it. Seeing the rabbit brought back memories of going hunting with my dad. I remember how excited I was to get my first kill. How sad I was when I realized I had only winged it. Not enough to kill, but not enough for it to go on living either.
 

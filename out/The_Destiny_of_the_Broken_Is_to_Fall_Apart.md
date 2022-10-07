@@ -70,4 +70,4 @@ And then he was gone.
 I’m not sure if he climbed out or vanished or what. It was all a daze, my mind reeling, struggling to comprehend what I had just seen. I don’t even know if I stayed conscious. I only know I was found some time later, a gibbering mess. Todd, however, they never found anything more than his leg, neatly severed.  
 
 
-These days, I’m afraid of ever bump. Ever nick. Every scrape. Terrified. How broken is too broken? How broken do I have to be for him to come for me? So I keep my body in pristine shape. But my mind… That’s the break I worry about most of all.
+These days, I’m afraid of every bump. Every nick. Every scrape. Terrified. How broken is too broken? How broken do I have to be for him to come for me? So I keep my body in pristine shape. But my mind… That’s the break I worry about most of all.

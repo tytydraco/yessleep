@@ -1,4 +1,4 @@
-Part [Two](https://www.reddit.com/r/nosleep/comments/xrwbd3/im_a_night_groundskeeper_at_a_golf_course_i_found/)
+Part [Two](https://www.reddit.com/r/nosleep/comments/xrwbd3/im_a_night_groundskeeper_at_a_golf_course_i_found/) [Part 3](https://www.reddit.com/r/nosleep/comments/xxwanb/im_a_night_groundskeeper_at_a_golf_course_i_found/)
 
 The name’s Martin. I’m a somewhat middle- aged man doing the work of god. At least that’s what my manager made it seem like when he hired me for this boring ass position. Tho, I don’t think taking care of a fucking golf course after hours is much saintly work. Maybe to the low budget Tiger Woods wanna be’s that seem to fester this place. It’s no wonder I took the night shift.
 
