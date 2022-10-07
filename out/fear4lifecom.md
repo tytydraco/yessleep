@@ -45,3 +45,5 @@ Before returning to my room, I ensured all the doors and windows were locked. Th
 I didn't provide any information to that website, so I don't know how they got my address. Also, whoever did the makeup on the person at my door did a great job. It looked way too real, and I'm afraid I won't be able to get their face out of my mind anytime soon.
 
 I'm lying in bed now, trying to find the motivation to get up and check on my computer. I'll add an update if anything else happens. But I would stay away from that website if I were you.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/xy2vrm/fear4lifecom_part_2/)
