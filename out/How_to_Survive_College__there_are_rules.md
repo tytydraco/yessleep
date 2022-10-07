@@ -8,7 +8,7 @@ In the meantime, I’ve been hanging out with Grayson.  He’s been walking me t
 
 Since he’s not taking classes and doesn’t have a summer job, he’s got plenty of time on his hands and has started showing up to walk back with me.  After we had our argument-that-kinda-wasn’t-an-argument I figured he’d stop, but no, he was there after my next class.  I’ve made it clear to him a number of times now that I’m not interested in dating and every time he’s seemed fine with that.  I still can’t help but be suspicious though, or maybe that’s just a sign that I should really do something about my social anxiety.
 
-Not something *constructive*, of course.  Oh no.  That’s not how I am.  
+Not something *constructive*, of course.  Oh no.  That’s not how I am.
 
 “Grayson, I can’t take this anymore,” I finally said to him.
 
@@ -34,7 +34,7 @@ Which made Grayson’s behavior both make sense and also seem wildly unusual at 
 
 “Is it really a predicament?”
 
-I wasn’t sure about that.  I was popular back home.  Sort of.  It was more like everything *around* me was what made me popular.  My sister was only a few years older than me and everyone liked her.  Then she married her highschool sweetheart almost as soon as they graduated and that was romantic and interesting and there I was with a boyfriend of my own and we naturally assumed the title of the ‘popular couple’ at school.  
+I wasn’t sure about that.  I was popular back home.  Sort of.  It was more like everything *around* me was what made me popular.  My sister was only a few years older than me and everyone liked her.  Then she married her highschool sweetheart almost as soon as they graduated and that was romantic and interesting and there I was with a boyfriend of my own and we naturally assumed the title of the ‘popular couple’ at school.
 
 But me?  On my own?  I didn’t have anything going for me.
 
@@ -56,7 +56,7 @@ I was taken off-guard by the urgency of his request.  His gaze was locked on my 
 
 “I do like being your friend,” he continued, “but I need to be honest - it’s not the only reason I’m walking you back from class.  There’s something the locals say about the campus.”
 
-Back home, it was the winter season that brought all the monsters sniffing around.  Perhaps it was a reprieve for Kate, who didn’t have to deal with campers anymore, but the rest of the town knew to hunker down and wait out the long nights.  That wasn’t the case here.  
+Back home, it was the winter season that brought all the monsters sniffing around.  Perhaps it was a reprieve for Kate, who didn’t have to deal with campers anymore, but the rest of the town knew to hunker down and wait out the long nights.  That wasn’t the case here.
 
 Summer is the starvation season.
 
@@ -76,7 +76,7 @@ Two hours later my phone notified me that I had class in thirty minutes.  Yeah, 
 
 It wasn’t raining when I left the dorm.  I kept my promise to Grayson for that long.  Once I was in the classroom, though, I half-listened to the professor and stared moodily at the window as the rain came and went.  The clouds broke and reformed again and again, spitting raindrops on the glass before petering out once more.  It wouldn’t make up its mind while I was in class, but I feared it’d finally settle on a downpour as soon as I stepped foot outside of the building.  I contemplated messaging Grayson and seeing if he’d pick me up, seeing as he had a car and campus wasn’t busy.
 
-I’d just decided to message him when I heard a door bang open somewhere down the hallway.  We *all* heard it.  A couple students looked up and then turned their attention back to their notes, dismissing it as nothing more than another student.  I, however, was frozen in place.  
+I’d just decided to message him when I heard a door bang open somewhere down the hallway.  We *all* heard it.  A couple students looked up and then turned their attention back to their notes, dismissing it as nothing more than another student.  I, however, was frozen in place.
 
 I’d heard this before.  This exact sound.
 
@@ -84,7 +84,7 @@ But it was in a different building.  And I hadn’t fallen asleep this time.  No
 
 Rule #2 - If you fall asleep in class and no one is around when you wake up, stay at your desk. Pretend you’re taking notes. Don’t look up and don’t look around, no matter what you hear. You’ll be returned to your classroom when it leaves.
 
-I began to write in my notebook with feverish intensity, straining to hear what was happening in the hallway as the teacher droned on.  
+I began to write in my notebook with feverish intensity, straining to hear what was happening in the hallway as the teacher droned on.
 
 The lights in the hallway began to flicker.  Some more students turned to look and then we heard the sliding - the scraping - and everyone was looking.
 
@@ -106,7 +106,7 @@ Where was the eyeball?  Why wasn’t it showing up, if it was following me aroun
 
 Because that creature didn’t seem ready to move on.
 
-Finally, someone’s nerve broke.  The person next to me.  I saw out of the corner of my eye their head jerk up.  They looked at the hallway.  The rest of their body followed, flowing smoothly out of the chair and pivoting to stare through the window separating the classroom from the rest of the building.  
+Finally, someone’s nerve broke.  The person next to me.  I saw out of the corner of my eye their head jerk up.  They looked at the hallway.  The rest of their body followed, flowing smoothly out of the chair and pivoting to stare through the window separating the classroom from the rest of the building.
 
 “Oh,” she said, her voice high in awe.  “Of course.  Of course!  I’m coming!”
 
@@ -118,7 +118,7 @@ And then we heard the cracking.  Anyone that has ever eaten a plate of chicken w
 
 Bones breaking.  Tendons popping.  There were no screams, but there was a sharp pop and then a soft gurgle that subsided into a brief splash of liquid onto the linoleum floor.
 
-Someone was crying behind me.  I couldn’t focus on the notes in front of me.  My paper was damp with sweat dripping off my brow and I wrote the letter ‘c’ over and over again, one after another.  I silently mouthed the words ‘don’t look’, though I was too frightened to say them out-loud.  I could only hope that no one else broke.  
+Someone was crying behind me.  I couldn’t focus on the notes in front of me.  My paper was damp with sweat dripping off my brow and I wrote the letter ‘c’ over and over again, one after another.  I silently mouthed the words ‘don’t look’, though I was too frightened to say them out-loud.  I could only hope that no one else broke.
 
 I had to hope that *I* wouldn’t break.
 
@@ -148,7 +148,7 @@ Why did its voice sound so familiar?
 
 “They’re really not in a mood to be defied,” he continued in response to the creature’s rumblings.  “You know what happened to the laundry lady, right?”
 
-Silence for a moment.  
+Silence for a moment.
 
 “Yeah, I thought so,” he sighed.  “Go on then.  Get back to where you belong and hope they overlook you snatching a little snack.”
 
@@ -180,9 +180,9 @@ There was a pensive silence as the implications of that sunk in.  I used that ti
 
 “These are *my* rules,” I said.  “How to survive this college.”
 
-I didn’t get quite the reaction I wanted.  I wanted… I guess I wanted them to thank me, at least.  Perhaps that was asking for too much.  They were still in shock, reeling from the fact that our class was now permanently one less and we were helpless to do anything but sit there and listen to her being eaten on the other side of the windows.  At least they took the list of rules.  Then they stumbled off, dazed, and walked away without another word to each other.  
+I didn’t get quite the reaction I wanted.  I wanted… I guess I wanted them to thank me, at least.  Perhaps that was asking for too much.  They were still in shock, reeling from the fact that our class was now permanently one less and we were helpless to do anything but sit there and listen to her being eaten on the other side of the windows.  At least they took the list of rules.  Then they stumbled off, dazed, and walked away without another word to each other.
 
-At least the rain was ending when we all left the building.  
+At least the rain was ending when we all left the building.
 
 I think… one of them did go to the administration or campus security about this.  Because when our class met next, we were short two students instead of the expected one.  I grabbed a couple of them in the hallway after class ended and asked what they knew of the missing person.
 
@@ -192,7 +192,7 @@ The flickering man seems to have more sentience than some of the creatures on ca
 
 There are rules.  There is something here with us that even the inhuman things must obey.
 
-I think I understand now what the eyeball’s purpose is.  It isn’t here to protect the students from these creatures.  It went after the kelpie because the kelpie was outside of the university’s control.  An old creature with its own rules and no master it answered to.  
+I think I understand now what the eyeball’s purpose is.  It isn’t here to protect the students from these creatures.  It went after the kelpie because the kelpie was outside of the university’s control.  An old creature with its own rules and no master it answered to.
 
 The library ghost was trying to help me.  It tries to help anyone that happens to be caught up in the flood.  It sought to warn us away from Patricia and I have to think it knew something of what she was doing.  The ghost is on the side of the students and I think the eye targeted him not because he’s unnatural, but because the eye doesn’t *want* him to save anyone.
 
@@ -202,11 +202,13 @@ If it’s a weapon for the administration, then it means not only does the admin
 
 The eye is here to maintain the status quo.
 
-Even if that means students die as a result. 
+Even if that means students die as a result.
 
 I’m too afraid to even think about the other possibility.  The one that I’m sure all of you have been considering as well.
 
 That perhaps this college is ancient land and somewhere is a being that *everyone*, administration and inhuman alike, must bend the knee to.  And *that* is the eye’s master.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/xxoubl/how_to_survive_college_the_creatures_lair/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
