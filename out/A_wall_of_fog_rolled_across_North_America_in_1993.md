@@ -80,7 +80,7 @@ Day 4
 
 I was still feeling a little sick yesterday so I mostly stayed on the bed and read some books. Mom and Dad thought the wine might have upset my stomach. I think the toilet smell is getting to me. It smells so gross that I try to eat and drink less so I don’t have to use it. Dad had hung air fresheners after digging the toilet hole but they don’t do much unless you hold them against your nose. I’m breathing through my mouth mostly now and luckily I have a ventilation pipe near my side of the bed. I think I can smell fresh air through it, cool and a little damp.
 
-I felt better today so Mom sat me down with my math textbook and we worked on some problems. She’s really good at trig but I can’t stand it. I can get it when it’s being explained to me—everything she says \*makes sense\* when she goes through all the steps—but once she hands me a new equation and asks me to solve it all flies away. She wants me to go to University but I don’t even know what I want to study. I like English, but she says that if I want to get an English major I might as well get into trades and be a plumber or something instead.
+I felt better today so Mom sat me down with my math textbook and we worked on some problems. She’s really good at trig but I can’t stand it. I can get it when it’s being explained to me—everything she says makes sense when she goes through all the steps—but once she hands me a new equation and asks me to solve it all flies away. She wants me to go to University but I don’t even know what I want to study. I like English, but she says that if I want to get an English major I might as well get into trades and be a plumber or something instead.
 
 If I was a plumber maybe I could figure out a better toilet.
 
@@ -106,7 +106,7 @@ There was the sound of a chair shifting. Then Big Steve's voice came from furthe
 
 “God, if that isn’t the spookiest thing I’ve ever seen.” A very long pause, the sound of him sitting down again. “Sorry folks, the cameras are on the outside of my booth and I gotta really stretch my mic cord to be able to see ‘em, and that’s still from ten feet away. Kinda wish I hadn’t gotten up to take a closer look because they are capital C creepy.” Sound of him sipping water, clearing his throat. Another pause and he comes back even quieter.
 
- “They just drift, really. Their... their feet? Barely touch the ground. They must be so light. National tv says they do something to the security tapes and sure enough after seeing that first one the other night I checked the tape and it was all messed up, static, blue screen, flickers, the whole shebang like I had run it through the wash with my biggest electromagnets. But the live feed still comes in pretty good. For now at least.”
+ “They just drift, really. Their... their feet? Barely touch the ground. They must be so light. National tv says they do something to the security tapes and sure enough after seeing that first one the other night I checked the tape and it was all messed up, static, blue screen, flickers, the whole shebang. Like I had run it through the wash with my biggest electromagnets. But the live feed still comes in pretty good. For now at least.”
 
 I think I sat on the toilet for another half an hour, barely noticing the stink and just listening to Big Steve describe the things moving around above us. They shifted and groaned as he thought out loud about where the fog wall came from and what the strange creatures moving within it were. I had seen plenty of TV show hosts and experts talk about this. Some people said aliens. More said they were people who got changed when they looked into the fog. The programs usually had a drawing from a survivor who had seen one through a security camera like Big Steve. It always looked like a tangled mat of yarn, usually with a big question mark pasted over it by the tv station. They said the things didn’t ever try to break in or anything but I knew Dad had brought down his shotgun and kept it tucked under the pile of quilts we used as a mattress on his side.
 
@@ -114,7 +114,7 @@ When I finally got up and finished my business my legs were all pins and needles
 
 I stopped breathing when a brushing footstep and a groan echoed from what sounded like within the pipe.
 
-The sound came in so clearly it was like I was standing outside with them. I felt my hands grip the radio tightly. The groan got louder. It got louder and *closer*, like whatever was making it was pushing its head down the pipe. I finally managed to move a few steps back but I was staring at the end of pipe and couldn’t look away. Deep in it’s mouth I thought I saw the faintest pulse of light. It seemed to beat steadily for a few moments before fading to nothing along with the groan. A pause, then the sound of sweeping footsteps moving away. I stood with my back against the rough stone wall that separated the toilet from the main room. I stared into the now pitch-black pipe and started to shiver all over. I went back to bed and lay with my flashlight and radio on and wrote in my diary. The light is just about out now. I don’t want to make noise by winding it. The radio is already dead. I’ll try to sleep.
+The sound came in so clearly it was like I was standing outside with them. I felt my hands grip the radio tightly. The groan got louder. It got louder and closer, like whatever was making it was pushing its head down the pipe. I finally managed to move a few steps back but I was staring at the end of pipe and couldn’t look away. Deep in it’s mouth I thought I saw the faintest pulse of light. It seemed to beat steadily for a few moments before fading to nothing along with the groan. A pause, then the sound of sweeping footsteps moving away. I stood with my back against the rough stone wall that separated the toilet from the main room. I stared into the now pitch-black pipe and started to shiver all over. I went back to bed and lay with my flashlight and radio on and wrote in my diary. The light is just about out now. I don’t want to make noise by winding it. The radio is already dead. I’ll try to sleep.
 
 &#x200B;
 
@@ -208,9 +208,9 @@ The light in the pipe is still so weak I have to keep it uncovered so I can make
 
 Pause. I leaned in closer to the light. I breathed in the air from above.
 
-“I’m glad they’re out there together. Disappearing is one thing. Disappearing while holding the hand of your wife or kid is another. We should all be so lucky.”
+“I’m glad they’re out there together. Disappearing all alone is one thing. Disappearing while holding the hand of your wife or kid is another. We should all be so lucky.”
 
-No more radio for that night. No music either. The light pulsed in the pipe. After a long time standing and staring at it I noticed that the concrete the tube was set in looked like it was flaking off in places. I poked at it and a large piece fell away, showing the hasty gravel and rock wall Dad had balanced the pipe in before slapping it with a concrete slurry. I remembered it had rained the day he had installed the ventilation. I started picking at it, throwing the spare pieces in the toilet as I went. I had dug a fair bit into the wall when I heard one of my parents shift around in bed in the other room. I stood still and waited for it to come again. It did so I decided to get out of there. The hole I’d made was on the far side of the pipe and more or less invisible to anyone coming in and using the toilet. I threw the last piece into the toilet and threw in some of the dirt from the bucket after it. I went to bed. 
+No more radio for that night. No music either. The light pulsed in the pipe. After a long time standing and staring at it I noticed that the concrete the tube was set in looked like it was flaking off in places. I poked at it and a large piece fell away, showing the hasty gravel and rock wall Dad had balanced the pipe in before slapping it with a concrete slurry. I remembered it had rained the day he had installed the ventilation. I started picking at it, throwing the spare pieces in the toilet as I went. I had dug a fair bit into the wall when I heard one of my parents shift around in bed in the other room. I stood still and waited for it to come again. It did so I decided to get out of there. The hole I’d made was on the far side of the pipe and more or less invisible to anyone coming in and using the toilet. I threw the last piece into the toilet and tossed in some of the dirt from the bucket after it. I went to bed. 
 
 &#x200B;
 
@@ -234,7 +234,7 @@ When it came close, I realized what it looked like—I had been paging through m
 
 I felt pressure rise in my chest as it drew closer along the house. It dropped out of sight momentarily as it approached the 90-degree angle where the house met the cellar door, its low wall, and my little hole. It re-appeared only a foot away from my face, floating serenely on the tips of its feet.
 
-I didn’t realize I had been holding my breath until I let it out in one gust. I saw it move the dark orange capillaries and the creature stopped slowly and turned to face the gap. I instinctively drew back a little. Something I *could* call a hand meandered down from somewhere above unseen, tiny thread-like tips questing along the sides of the hole.
+I didn’t realize I had been holding my breath until I let it out in one gust. I saw it move the dark orange capillaries of its nearest leg and the creature stopped slowly and turned to face the gap. I instinctively drew back a little. Something I could call a hand meandered down from somewhere above unseen, tiny thread-like tips questing along the sides of the hole. I watched it. I felt like I was floating.
 
 I heard Big Steve murmur “they’re us. Just more connected to the world. Maybe they’re connected to another one too. Another world in the fog.”
 
@@ -270,7 +270,7 @@ Saw Big Steve join the sea outside. He’s almost fully changed now, but he stil
 
 Seems forever ago.
 
-Now he looks like his shirt has frayed at the sleeves, neck, and waist. It looks kind of looks like his shirt is walking along on its own. Maybe I can see a hint of his skull still. I wonder where all that goes. Is it being dissolved by the light and fog? My own writing hand is little more than bone wrapped in red and grey thread.
+Now he looks like his shirt has frayed at the sleeves, neck, and waist. It kind of looks like his shirt is walking along on its own. Maybe I can see a hint of his skull still. I wonder where all that goes. Is it being dissolved by the light and fog? My own writing hand is little more than bone wrapped in red and grey thread.
 
 I think I’ll stop writing very soon. I can hear Mom and Dad now too, and everybody else outside. It’s so peaceful to be a part of the fog with them. I thought it might be a little like how it was after Baby Jay was born. All the attention on him. But it’s not like that at all. There’s so much love in all of us.
 
