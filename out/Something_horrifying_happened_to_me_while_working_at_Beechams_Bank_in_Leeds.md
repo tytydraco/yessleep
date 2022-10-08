@@ -1,6 +1,6 @@
 There is something wrong with the banks of the world because I used to work in one.
 
-This started when I was working in Beecham's Bank located in the United Kingdom, and its existence is almost legendary. 
+This started when I was working at Beecham's Bank located in the United Kingdom, and its existence is almost legendary. 
 
 The bank itself was founded by John Beecham in the early 19th century who was a successful financier and entrepreneur.
 
@@ -74,4 +74,4 @@ I told the police what happened and they took my statement but didn't hear anyth
 
 Mrs. Crenshaw had an affair with a young man who supposedly murdered her husband for life insurance, and when she refused to pay him the man killed her as well.
 
-But I know the truth end it will haunt me for the rest of my life because the bank was shut down for a while but then reopened under new management keeping the old name Beecham's Bank.
+But I know the truth and it will haunt me for the rest of my life because the bank was shut down for a while but then reopened under new management keeping the old name Beecham's Bank.
