@@ -14,7 +14,7 @@ My dad, seemingly unfazed, gave a few simple answers and hung up with an unexpec
 
 As he walked upstairs, I stared blankly at the ceiling, processing what I could only describe as a slowly encroaching feeling of unease. I tried to distract myself with snacks and TV, unwilling to let that sensation control me. Regardless, I found my mind wandering back again and again.
 
-Surely my uncle just wanted to send the books to his penpal who just happened to be a fresh parent. But even then, what bothered me wasn’t that he asked for my old childrens’ books. Heck, I even begrudgingly accepted that he was able to entertain his penpal for what had already been a month. But what I found absolutely impossible to accept was that this man, whom I had known my whole life as a miserable and depressing real-life adaptation of ebenezer scrooge, was suddenly putting in any amount of effort for someone else. I know some people will think that very harsh, and my response is simply that would you have been unlucky enough to meet the man, I guarantee you would be just as harsh if not more so.
+Surely my uncle just wanted to send the books to his penpal who just happened to be a fresh parent. But even then, what bothered me wasn’t that he asked for my old childrens’ books. Heck, I even begrudgingly accepted that he was able to entertain his penpal for what had already been a month. But what I found absolutely impossible to accept was that this man, whom I had known my whole life as a miserable and depressing real-life adaptation of Ebenezer Scrooge, was suddenly putting in any amount of effort for someone other than himself. I know some people will think that very harsh, and my response is simply that would you have been unlucky enough to meet the man, I guarantee you would be just as harsh if not more so.
 
 Later that day, there was a knock on the door. I knew it had to be my uncle. Having taken the whole afternoon to collect my thoughts, I didn’t feel uneasy anymore. Instead, I felt a cold, bitter resentment for the man that couldn’t have made a positive impact if he catapulted a plus sign. I stumbled to the door, grabbing the pile of childrens’ books my dad left on the stairs before heading off. When I reached for the doorknob however, I caught a glimpse of my uncle through the tiny glass window on my door, and I froze. What I felt then was neither resentment, nor any slight unease. When I saw that awful man standing there, as depressing a figure as the last time I saw him, I knew that the imitation of a smile he was wearing couldn’t be real. Somehow that made it all the more terrifying.
 
@@ -28,7 +28,7 @@ For a while, the length of which I can’t even begin to describe, we just stood
 
 “HE IS GRATEFUL FOR THE BOOKS”
 
-The jarring speech definitely came from him, but his excruciating smile never moved even an inch. He grabbed the books and walked backwards to his house, all the while maintaining eye contact. Only then did I notice the emotion in his eyes. It’s something I’ve never been able to do, but in this case even I could tell. My uncle, somewhere in there, was scared to death. Those eyes, not unlike those of a tortured animal, were somehow even more terrified than I was. Nonetheless, he kept walking. I’m pretty sure he even locked his door while those eyes were still locked on me, silently pleading for it to end.
+The jarring speech definitely came from him, but his excruciating smile never moved even an inch. He grabbed the books and walked backwards to his house, all the while maintaining eye contact. Only then did I notice the emotion in his eyes. It’s something I’ve never been able to do, but in this case even I could tell. My uncle, somewhere in there, was scared to death. Those eyes, not unlike those of a tortured animal, were somehow even more terrified than I was. Nonetheless, he kept walking. I’m pretty sure he even locked his door while those eyes were still locked on to me, silently pleading for it to end.
 
 That was the last time anyone ever saw my uncle. When they got home, my parents found a traumatized husk instead of the son they’d known. It took months of constant therapy for me to finally open up again. According to my parents I just repeated the words “uncle” and “not happy” for a while. That made them go check on him and, well, he wasn’t home anymore. 
 
@@ -42,7 +42,7 @@ I wish this story ended there. I guess looking back at it now, maybe I should ha
 
 I feel like my whining has gone on long enough. Though I suppose I’ve stretched it out a bit because I dread what I’m going to do after I post this…
 
-My father has been getting quite a bit older, and recently he got diagnosed with dementia. I don’t mind taking care of him at all, but yesterday he told me something that made me relive this awful chain of events all over again.
+My father has been getting quite a bit older, and recently he got diagnosed with late stage dementia. I don’t mind taking care of him at all, but yesterday he told me something that made me relive this awful chain of events all over again.
 
 He told me that he has made a penpal. Someone is sending him letters, and he wants me help him write a response.
 
