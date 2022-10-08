@@ -246,7 +246,7 @@
 
   It lifted itself from its throne, standing twice the height of Derek as it stared down from its hollow, triangular eye holes. 
 
-  "Three lost…three may yet be free…which one of you will stay with me?" 
+  "Three lost…three may yet be free…which one of you four shall remain here with me?" 
 
   Before I had the slightest chance to intervene, Derek stepped forward. As the creature slipped off the robe, revealing more of its hauntingly thin frame, my brother looked back at me with a smile; tears dripping down his face. 
 
