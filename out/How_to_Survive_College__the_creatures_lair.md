@@ -36,8 +36,7 @@ Also I still find it creepy that she insists on folding literally everything, in
 
 She ignored me and kept folding.  She was finished with the rather impressive pile of bras and moved on to jeans.
 
-“Oh come on,” I said.  “There’s a giant eyeball running around killing your kind!”  
-Her lips thinned but she remained silent.  Fine.  If that was how it was going to be…
+“Oh come on,” I said.  “There’s a giant eyeball running around killing your kind!”Her lips thinned but she remained silent.  Fine.  If that was how it was going to be…
 
 I shook my shirt out, crumpled it into a ball, and threw it on the floor.
 
@@ -143,7 +142,7 @@ I wasn’t quite listening.  I was still staring at the door behind us, as if an
 
 “So you just threw us into one without knowing anything about it?”
 
-There was hysteria in my voice.  She sighed and in a tone that conveyed exactly how tedious it was to speak to me, she explained that she hid us in because she’d rather not encounter the steam ghost.  She was tired of dealing with it and that was worth the risk of the unknown on the other side of a door.  
+There was hysteria in my voice.  She sighed and in a tone that conveyed exactly how tedious it was to speak to me, she explained that she hid us in because she’d rather not encounter the steam ghost.  She was tired of dealing with it and that was worth the risk of the unknown on the other side of a door.
 
 “Is it also a self-important sycophant?” I asked.
 
@@ -223,7 +222,7 @@ But I had a weapon from an ancient thing.
 
 “Well, you got part of that right.  You’re throwing *something* in.”
 
-And she shoved me off the edge.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+[And she shoved me off the edge](https://www.reddit.com/r/nosleep/comments/xyjhib/how_to_survive_college_the_old_and_the_new/).[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 

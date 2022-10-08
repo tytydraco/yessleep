@@ -18,7 +18,7 @@ Everything we needed was already down in the old cold cellar. I had helped Mom m
 
 The cellar actually looked pretty nice after we had finished with it. We had time to make it more homey and to fill any gaps in the weeks before the fog wall would hit so we hung a nice tablecloth on one side and made a dinner table with an old door from the lumber pile. I got some stuffed animals down from my closet upstairs and lined our sleeping spot with them too. Baby Jay got a wash basin as a bed and I painted flowers on the sides with the rest of Dad’s black paint. They didn’t look very good but Mom says it’s the thought that counts.
 
-So the hurricane siren went off and Dad swore and Mom got Baby Jay up out of his highchair to get him downstairs. I asked Mom if I could get my diary, had to ask her twice actually with how fussy Baby Jay had gotten-- anyway she said yeah but hurry up for god’s sake. Dad had snapped on the radio and tuned it to 95.5 fm to see what was going on. I paused a little when he did, but Mom shooed me up the stairs to grab you, diary, before I could hear more than a few excited-sounding words.
+So the hurricane siren went off and Dad swore and Mom got Baby Jay up out of his highchair to get him downstairs. I asked Mom if I could get my diary, had to ask her twice actually with how fussy Baby Jay had gotten-- anyway, she said yeah but "hurry up, for god’s sake." Dad had snapped on the radio and tuned it to 95.5 fm to see what was going on. I paused a little when he did, but Mom shooed me up the stairs to grab you, diary, before I could hear more than a few excited-sounding words.
 
 I checked my window after grabbing you and I could see the fog wall from where I was on the second floor. It didn’t really look special, except that it stretched from one side of the horizon to the other in one grey smudgy line, like looking at a far-off rainstorm. I saw Dad from the window too, he was jogging to the barn to fill the animals' troughs with as much food as water as we had and to turn on their nightlight—he spent a lot of time last week cleaning some old car batteries and hooking them up to a lightbulb so the animals wouldn’t go crazy in the dark. I’m really glad he did. Twelve days in darkness sounds like a nightmare. I gave the fog wall one long last look. It was such a nothing. Before all the stores closed, I heard some customers and salesfolks talking big about how it was some big overblown hoax and that they’d stay upside when or IF it came. Looking at the wall I shivered a bit. I hope those people changed their minds. Heck I heard that you could survive the wall just by hanging your thickest blankets against the windows and hiding in a closet. No light allowed. I really hope that’s true. I really hope they changed their minds.
 
@@ -32,7 +32,7 @@ We had gone out a few weeks ago to paper the whole station up--Big Steve had hos
 
 Anyway, Big Steve said the security camera on the east side just passed into the wall. He said it got really staticky and that we might get some interruptions while the rest of the tower went in. It did get staticky for a few minutes, then it went straight into white noise for a few more—but that’s when we heard the fog wall rolling at and over us. Me and Baby Jay sat on the bedding while Mom and Dad waited tensely with our stash of cardboard and tape. We turned out all the lights and I assumed they were looking around everywhere while the wall rolled over us to see if any last-minute light was coming in. Soon we heard this low sucking sound from upside, getting closer and closer  until it was right over us. It was pretty scary at first, almost like a few years ago when we had a tornado nearly pass over us and we had to spend the night down here. It got really quiet after that.
 
-Then the DJ came back on the radio, a little more staticy but not too bad. He was broadcasting to the whole town he said, the town in the fog vortex, and we were all a big family now and here’s a tune to keep us cheerful while we braved this funny little weather phenomenon. He sounded really happy. He sounded like how you do just before you go on stage? Nervous but you don’t want people to know youre kinda freaking out. Mom and Dad eventually turned the lights back on when they were sure no light from outside was coming in and we ate dinner to Big Steve playing music on the radio. He ate dinner live on air too. He said he;d keep broadcasting as long as he could through the 12 days we’d be in the wall. After we all took turns winding the radio and our flashlights. Now Mom and Dad are sitting and holding hands and listening to the radio while I write in you. Gonna go to bed soon but I think I’ll be awake for a long time listening to the fog.
+Then the DJ came back on the radio, a little more staticky but not too bad. He was broadcasting to the whole town he said, the town in the fog vortex, and we were all a big family now and here’s a tune to keep us cheerful while we braved this funny little weather phenomenon. He sounded really happy. He sounded like how you do just before you go on stage? Nervous, but you don’t want people to know you're kinda freaking out. Mom and Dad eventually turned the lights back on when they were sure no light from outside was coming in and we ate dinner to Big Steve playing music on the radio. He ate dinner live on air too. He said he'd keep broadcasting as long as he could through the 12 days we’d be in the wall. After we all took turns winding the radio and our flashlights. Now Mom and Dad are sitting and holding hands and listening to the radio while I write in you. Gonna go to bed soon but I think I’ll be awake for a long time listening to the fog.
 
 &#x200B;
 
@@ -42,7 +42,7 @@ Day 2
 
 Mom  brought an alarm clock down so we wouldn’t lose track of time. She set it to ring at 8am every day and we’re keeping count by making lines on a support beam with a piece of chalk. Me and her thought it was a little funny when we set it up, like we were all doing time in jail. 
 
-The toilet smells like how I bet a jail toilet smells. It’s already making it pretty gross down here but Dad made some extra ventilation ahead of time so he says it shouldnt get too bad, or at least it wont get dangerous. Did you know a smelly toilet could kill you? Like how too many candles or a gas leak can kill you I guess. I kept my head leaning towards one of the ventilation tubes while I used the can and I think I got a breath of air from above but I’m not sure, I didn’t want to breathe too deeply. The government said the air wasn’t what was so dangerous about the fog wall. It was just normal air.
+The toilet smells like how I bet a jail toilet smells. It’s already making it pretty gross down here but Dad made some extra ventilation ahead of time so he says it shouldn't get too bad, or at least it wont get dangerous. Did you know a smelly toilet could kill you? Like how too many candles or a gas leak can kill you I guess. I kept my head leaning towards one of the ventilation tubes while I used the can and I think I got a breath of air from above but I’m not sure, I didn’t want to breathe too deeply. The government said the air wasn’t what was so dangerous about the fog wall. It was just normal air.
 
 Other than that today was pretty boring. We sat around the light and read or play boardgames. We nap when we feel like it and listen to the radio. The music is nice. Big Steve is as cheerful as ever. Baby Jay isn’t allowed on the dirt floor but we let him play around on the bed. I’m glad he likes all my stuffed animals. Mom and Dad opened a bottle of wine and let me have a little. I think it made my head feel  light but I don’t like the taste—too bitter! They cheered up a little though so the evening was more fun and they actually got to laughing while we played Trivial Pursuit. I thought about the cows and chickens in the barn. I hoped their light was still on. 
 
@@ -56,15 +56,15 @@ I’m creeped out. It’s night I guess, at least it’s a few hours after we al
 
 I had the radio on super low and pressed to one ear while I sat. Some music was on for a while but soon Big Steve comes back on air but he’s sounding a little different. Quieter, not like I have the volume down quieter but like he’s almost whispering into the microphone quieter.
 
- He says “welcome back, ladies and gents, welcome back to the town in the fog wall. We got a new one here for you tonight. I got up to take a trip down to the little boys room—thank god for septic tanks, can I get an amen—and I took a peek at our security cameras while I did, as I’m want to do. Now there isn’t much to look at out there in the fog wall most of the time, y’all aint missing much—*its fog!--* but I'll be damned if I didn’t catch a little bit of movement out there in the west parking lot. We got a little LED light hooked up out there, not much of a power draw and it’s good to have a light on in the night in case any raccoons feel like ransacking the place but tonight I did not see a raccoon. I saw...”
+ He says “welcome back, ladies and gents, welcome back to the town in the fog wall. We got a new one here for you tonight. I got up to take a trip down to the little boys room—thank god for septic tanks, can I get an amen—and I took a peek at our security cameras while I did, as I’m want to do. Now there isn’t much to look at out there in the fog wall most of the time, y’all aint missing much—*its fog!--* but I'll be damned if I didn’t catch a little bit of movement out there in the west parking lot. We got a little LED light hooked up out there, not much of a power draw and it’s good to have a light on in the night in case any raccoons feel like ransacking the place. But tonight I did not see a raccoon. I saw...”
 
 Big Steve trailed off there for a sec.
 
-“... well family, I don’t quite know what I saw. It was big, but not like an elephant big. Like it wasn’t *solid* or *thick*. It looked kinda like a hairball blew across the camera lens truth be told, and that might have very well been what it was, all fuzzy n outta focus and lookin to be carried on a breeze from out yonder.”
+“... well, family, I don’t quite know what I saw. It was big, but not like an elephant big. Like it wasn’t *solid* or *thick*. It looked kinda like a hairball blew across the camera lens truth be told, and that might have very well been what it was, all fuzzy 'n outta focus and lookin to be carried on a breeze from out yonder.”
 
  He paused again.
 
-“Wish Sunday Sue decided to stay up here so I could get a second opinion but she drove out on Monday to keep an eye on her family. Sunday Sue, if youre out there I hope you’re doing fine and well. I’m good up here but an old man does miss his cohost.”
+“Wish Sunday Sue decided to stay up here so I could get a second opinion, but she drove out on Monday to keep an eye on her family. Sunday Sue, if you're out there I hope you’re doing fine and well. I’m good up here. But an old man does miss his cohost.”
 
 He chuckled.
 
@@ -102,11 +102,11 @@ They came back, though. Or more moved through. Mom and Dad and Baby Jay are asle
 
 “There goes another one,” he breathed just above the faint static. “Folks, I think we’re in a herd of these things. Now hold on one second.”
 
-There was the sound of a chair shifting. Then Big Steves voice came from further away, in a stage-whisper.
+There was the sound of a chair shifting. Then Big Steve's voice came from further away, in a stage-whisper.
 
 “God, if that isn’t the spookiest thing I’ve ever seen.” A very long pause, the sound of him sitting down again. “Sorry folks, the cameras are on the outside of my booth and I gotta really stretch my mic cord to be able to see ‘em, and that’s still from ten feet away. Kinda wish I hadn’t gotten up to take a closer look because they are capital C creepy.” Sound of him sipping water, clearing his throat. Another pause and he comes back even quieter.
 
- “They just drift, really, their... their feet? Barely touch the ground. They must be so light. National tv says they do something the security tapes and sure enough after seeing that first one the other night I checked the tape and it was all messed up, static, blue screen, flickers, the whole shebang like I had run it through the wash with my biggest electromagnets. But the live feed still comes in pretty good. For now at least.”
+ “They just drift, really. Their... their feet? Barely touch the ground. They must be so light. National tv says they do something to the security tapes and sure enough after seeing that first one the other night I checked the tape and it was all messed up, static, blue screen, flickers, the whole shebang like I had run it through the wash with my biggest electromagnets. But the live feed still comes in pretty good. For now at least.”
 
 I think I sat on the toilet for another half an hour, barely noticing the stink and just listening to Big Steve describe the things moving around above us. They shifted and groaned as he thought out loud about where the fog wall came from and what the strange creatures moving within it were. I had seen plenty of TV show hosts and experts talk about this. Some people said aliens. More said they were people who got changed when they looked into the fog. The programs usually had a drawing from a survivor who had seen one through a security camera like Big Steve. It always looked like a tangled mat of yarn, usually with a big question mark pasted over it by the tv station. They said the things didn’t ever try to break in or anything but I knew Dad had brought down his shotgun and kept it tucked under the pile of quilts we used as a mattress on his side.
 
@@ -127,6 +127,10 @@ Mom and Dad heard Big Steve talking about the things in the fog today. He repeat
 I’ve decided not to tell Mom and Dad about what I thought I saw last night. I think I was just really creeped out by the sounds and the radio. There’s no light inside the pipe today, I checked, and we haven’t heard anything move above since last night. The cows are even back to mooing every so often. I hope they’re still doing well. They sound pretty fine to me. 
 
 More boardgames, more napping, more studying. We’re doing biology today and learning about photosynthesis. I thought I had a pretty good idea of how it worked but it turns out there’s a whole dark reaction part of it that even Mom has to take time to read to herself to understand. She was a geologist before having me and marrying Dad though so at least she can understand a lot of the chemistry stuff. It’s weird, I didn’t know much about what Mom was doing before she had me. She never really talked about it before but during a homework break she told me a few stories about her field work in the Yukon before she married Dad. It’s kinda nice. Maybe after all this we’ll be a little closer.
+
+&#x200B;
+
+&#x200B;
 
 Day 6
 
@@ -158,13 +162,11 @@ They’re moving above us again. It’s very late. I don’t know how Mom and Da
 
 There’s light inside the pipe again. I was doing my usual thing and went to get my breath of fresh air when I saw it. I covered it up with my sweater straight away. Big Steve was on the radio. I listened while I watched the pipe.
 
-“To those just tuning in I made uh, some minor miscalculations with the gas when we were settin’ up the place. I’m keepin’ everything but the radio equipment off. I’ve redone the arithmetic and we should have enough to get us through to the last day if I take nights off, but for this evening I’m feelin’ mighty lonely so we’ll stay on. Can’t see anything outside of course with the security cameras off but I think I’ve heard some of them pass when I was down takin a leak. Er, using the facilities. Nothing comes through the soundproofing up here in the booth of course.”
+“To those just tuning in, I made, uh, some minor miscalculations with the gas when we were settin’ up the place. I’m keepin’ everything but the radio equipment off. I’ve redone the arithmetic and we should have enough to get us through to the last day if I take nights off, but for this evening I’m feelin’ mighty lonely so we’ll stay on. Can’t see anything outside of course with the security cameras off but I think I’ve heard some of them pass when I was down takin a leak. Er, using the facilities. Nothing comes through the soundproofing up here in the booth of course.”
 
-He stopped to clear his throat.
+He stopped to clear his throat. The sound of shuffling papers, and then gruffly, “how bout some music.” 
 
-The sound of shuffling papers, and then gruffly, “how bout some music.” 
-
-He put on one of my faves, *Stargazing* by Pondworks. It’s a low and slow one. There’s some violin. It always makes me kinda sad. Afterwards it wound down into silence and only after a while did Big Steve come back on, speaking quietly.
+He put on one of my favorites, *Stargazing* by Pondworks. It’s a low and slow one. There’s some violin. It always makes me kinda sad. Afterwards it wound down into silence and only after a while did Big Steve come back on, speaking quietly.
 
 “Sometimes they’ll touch each other. Just barely. Brushin’ fingertips, like. And when they do they’re movement will kinda sync up and they’ll sway together. It’s hypnotizing, like watching wind pass over a sea of wheat.”
 
