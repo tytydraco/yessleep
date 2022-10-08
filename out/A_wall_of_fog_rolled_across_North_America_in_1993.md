@@ -168,7 +168,7 @@ He stopped to clear his throat. The sound of shuffling papers, and then gruffly,
 
 He put on one of my favorites, *Stargazing* by Pondworks. It’s a low and slow one. There’s some violin. It always makes me kinda sad. Afterwards it wound down into silence and only after a while did Big Steve come back on, speaking quietly.
 
-“Sometimes they’ll touch each other. Just barely. Brushin’ fingertips, like. And when they do they’re movement will kinda sync up and they’ll sway together. It’s hypnotizing, like watching wind pass over a sea of wheat.”
+“Sometimes they’ll touch each other. Just barely. Brushin’ fingertips, like. And when they do their movement will kinda sync up and they’ll sway together. It’s hypnotizing, like watching wind pass over a sea of wheat.”
 
 Another long pause. Another song played. I watched the pipe. Another song. Then Steve came back on again.
 

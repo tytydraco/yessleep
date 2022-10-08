@@ -1,4 +1,3 @@
-
 “I recently found a lead that might help in the search for my brother, William “Wills” Forte. A journal he had written, along with a cassette that was filled with what can only be described as very unusual field recordings. Seeing as the nature of these recordings seemed to push towards an evil energy, I sent the tape to a friend to help me understand the music, who in turn sent it to guitarist Kirk Hammett.
 
 We have decided that while we cannot allow the actual sounds from the cassette to be released, we can share renditions of the music. Kirk Hammett has agreed to quickly transpose the less complex portions of the cassette while keeping the integrity of the original field recordings intact. These you can play or loop alongside the reading of each part, to create the appropriate mood for these journal entries. We still advise you take precautions before listening to the recordings (such as burning sage, reciting prayers, drawing protective sigils). What you will hear are some phrases and motifs inspired by the cursed melodies recorded on to this mysterious cassette.” – Abigail Forte
@@ -12,8 +11,6 @@ One thing I’ve gotten good at is being able to hold my memories at a distance.
 I know I have to.
 
 Maybe I don’t want to.
-
------
 
 If it hadn’t been for the green neon *open* sign in the window, I would’ve assumed the bar was closed. There was a dust-stained banner above the bar reading *Bailey's Burgers*, painted in faded red and blue over the dirty white wall. The paint was peeling, the windows were slightly cracked, the door looked like it had a bullet hole right above the handle.
 
@@ -37,15 +34,13 @@ She put her burger down, nodding, “Yeah. I was glad I saw it, but it felt, I d
 
 “Good point.” Octavia paused for a second, “So are you looking to sell yours?”
 
-I laughed, but the look Octavia gave me was a little disconcerting, so I stopped on a nervous chuckle.
-“Serious?” I asked.
+I laughed, but the look Octavia gave me was a little disconcerting, so I stopped on a nervous chuckle. “Serious?” I asked.
 
 She nodded.
 
 “Ah, no. Not at the moment. Honestly, there was a point where I would’ve, but right now, I don’t know. I think I’ll make a go of it with my soul intact.”
 
-Octavia smiled at that. She pulled a folded bill from her pocket and placed it on the counter. As the bartender came to collect, she scribbled something on the back of a napkin.
-“Let me know if you change your mind.” She said, handing it to me with a quick wink. It had her name and phone number on it.
+Octavia smiled at that. She pulled a folded bill from her pocket and placed it on the counter. As the bartender came to collect, she scribbled something on the back of a napkin. “Let me know if you change your mind.” She said, handing it to me with a quick wink. It had her name and phone number on it.
 
 “You want my soul?” I laughed. “A ride to Memphis wasn’t good enough?”
 
@@ -53,8 +48,7 @@ Octavia smiled at that. She pulled a folded bill from her pocket and placed it o
 
 We laughed together, but something about her laugh seemed a little forced. She wasn’t serious ... was she?
 
-I thought about asking if she wanted to continue to Minneapolis but decided against it. I wasn’t looking for a relationship, and I didn’t really need the company.
-A brief unexpected meeting and a new story to tell was good enough for me. “Okay, so, since I’m keeping my soul, what are your plans now?”
+I thought about asking if she wanted to continue to Minneapolis but decided against it. I wasn’t looking for a relationship, and I didn’t really need the company. A brief unexpected meeting and a new story to tell was good enough for me. “Okay, so, since I’m keeping my soul, what are your plans now?”
 
 “Well, maybe we could talk about your guitar?”
 
@@ -182,8 +176,6 @@ She gave me a long look back and a soft whisper, “for now.”
 
 “That’s all you get.” She smiled, “for now.”
 
------
-
 I remember we got to The Crescent Inn, a cheap little motel located a mile or so outside Memphis city limits, where I was staying. It was a place to crash, and then in the morning I was going to continue to St. Louis. A four-hour drive, but I wasn’t in a rush as I wasn’t expected in Minneapolis until October 5th.
 
 I sat on the couch, she stood by the window, peering out as if watching for something, or someone.
@@ -237,8 +229,6 @@ I barely registered Octavia moving backwards to sit on the bed, silently watchin
 It wasn’t there. it needed an edge to fill it out. I started playing an unresolved chord to move tension into the harmony of the minor chord, but then I hit that E string again, which led to a new progression. My fingers felt like they were moving without me. The sound was getting louder than it should have been. I felt my vision narrowing again.
 
 And then I don’t remember.
-
------
 
 Now, I’m awake, sweating, staring up at the stained ceiling. Not on the carpet, thankfully. It’s too hot, but I can’t tell if it’s me or the room.
 
@@ -302,8 +292,7 @@ She continues. “After six it’s full, then the cycle begins again. Lillian wa
 
 “Who was she?”
 
-“Lillian? She was ... everything. We’ve watched empires fall; generations die...” Octavia lowered her hand then. She let a finger touch one of the silhouettes etched into the guitar. It was a longing touch, but her eyes flashed up towards me and turned red for a second. “Cities burn.”
-Octavia explained how she followed the guitar to Nashville, but then lost the trail, until I ‘rescued’ it from the church. Now it’s back trying to fill itself with the souls it was promised, and now my name is on that list.
+“Lillian? She was ... everything. We’ve watched empires fall; generations die...” Octavia lowered her hand then. She let a finger touch one of the silhouettes etched into the guitar. It was a longing touch, but her eyes flashed up towards me and turned red for a second. “Cities burn.” Octavia explained how she followed the guitar to Nashville, but then lost the trail, until I ‘rescued’ it from the church. Now it’s back trying to fill itself with the souls it was promised, and now my name is on that list.
 
 I stare at the guitar, not wanting to touch it, realizing that’s not an option anymore. I’m brought back by the phone ringing.
 
@@ -365,8 +354,6 @@ I nodded and held the guitar out in front of me, like a sacrifice. “It’s not
 
 “Then we’re going to have to work on that, aren’t we? Control is one thing you’re going to need.”
 
------
-
 Memphis to Davenport was uneventful. Other than trying to get Octavia to open up about Corso. “So, tell me about your blue-haired man.”
 
 “Demon.” Octavia finally said.
@@ -395,8 +382,7 @@ We drive the rest of the way to the motel in Davenport, and that’s where I see
 
 “I don’t *know* who it is, but yeah, I have an idea and I’ve heard stories.” She revealed. “Much worse than Corso. His name is Mael, and he doesn’t mess around. I’m guessing he wants the guitar too.”
 
-“And is he dangerous?” I ask.
-“If cobras are dangerous, then yes.”
+“And is he dangerous?” I ask. “If cobras are dangerous, then yes.”
 
 I get a room key. We walk across the lot, the Dodge Dart is empty, and there’s no sign of anyone else on the property. I open the iron gate that leads to a slightly cracked blue staircase angling up to the dirty white tiles of the second floor. It’s something generic that I can’t even remember. Motel 6 without the 6. Holiday Inn without the holiday. Days in without the daze.
 
@@ -478,8 +464,6 @@ Ten, maybe fifteen, minutes later she came back. “It’s okay, if anyone’s l
 
 “It doesn’t matter. Let’s just say that dead flesh is not a problem for us.”
 
------
-
 I’m not sure about Octavia, but I did not sleep the rest of the night. Thankfully she took over the driving in the morning, and three hours later we were in Chicago. She left me and the car at the rental place I had contacted, and while she went to wherever she went, I waited for my band to show up.
 
 I didn’t have to wait too long.
@@ -502,10 +486,7 @@ But the guitar...
 
 I wasn’t thinking about it directly, but more of a sideways thought. About how the strings sounded, about how the notes felt thicker in the air. About how I wanted to play it in the same way that I used to want a cigarette, or something else. Something worse.
 
------
-
-I sigh, don’t know what to do other than keep going.
-I hope things don’t get worse or weirder.
+I sigh, don’t know what to do other than keep going. I hope things don’t get worse or weirder.
 
 Of course, I was wrong, and they get both.
 
@@ -516,3 +497,5 @@ Of course, I was wrong, and they get both.
 [PART THREE](https://www.reddit.com/r/nosleep/comments/xmw54i/i_have_to_get_rid_of_this_guitar_i_found_part/)
 
 [PART FOUR](https://www.reddit.com/r/nosleep/comments/xsxtj2/i_have_to_get_rid_of_this_guitar_i_found_part_four/)
+
+[PART FIVE](https://www.reddit.com/r/nosleep/comments/xyv5y7/i_have_to_get_rid_of_this_guitar_i_found_part_five/)
