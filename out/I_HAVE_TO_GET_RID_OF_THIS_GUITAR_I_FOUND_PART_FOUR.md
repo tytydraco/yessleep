@@ -20,7 +20,7 @@ That’s when I saw the shape move.
 
 At first, I thought it was a shadow floating down from the trees outside my window, but then realized it was in the reflection; behind me. A black shape almost melting into the darkness behind my bedroom door. A human shape.
 
-It moved, limb-like tendrils swimming down to its sides, the darkness where the head should be tilting slightly, and then a blink, and an unnerving stare from two ovals of starlight where the eyes should have been. 
+It moved, limb-like tendrils swimming down to its sides, the darkness where the head should be tilting slightly, and then a blink, and an unnerving stare from two ovals of starlight where the eyes should have been.
 
 My breath tightened in my throat and the shiver of cold turned to dread. I didn’t want to turn around. I didn’t want to see it there instead of it being just my imagination in the translucent reflection. I didn’t want to close my eyes in case it moved closer.
 
@@ -40,7 +40,7 @@ I wasn’t sure if it was ever there, but it was still months before I could lea
 
 “Mom?” I ask, drifting out of a haze.
 
-I’m answered by laughter, “Not even close, mister. You must’ve been having some dream.” 
+I’m answered by laughter, “Not even close, mister. You must’ve been having some dream.”
 
 It’s about a seven-hour drive from Omaha to Denver. Evidently, I was asleep for five.
 
@@ -48,7 +48,7 @@ It’s about a seven-hour drive from Omaha to Denver. Evidently, I was asleep fo
 
 “Memories.” She says as we pull into a space behind the motel.
 
-I don’t know why these memories have been buried so deep, so long, but they’re coming back now, and I’m not sure if I like it. I don’t have many fond childhood memories, so I’m not looking forward to this. 
+I don’t know why these memories have been buried so deep, so long, but they’re coming back now, and I’m not sure if I like it. I don’t have many fond childhood memories, so I’m not looking forward to this.
 
 “It’s the guitar. It’s bringing thoughts and feelings back to you.” Octavia said.
 
@@ -58,7 +58,7 @@ We get our room and find a nearby restaurant. I’m starving, and Octavia nurses
 
 “When’s the family reunion?” She asks over a casual twirl of her straw.
 
-“Tomorrow.” I pause between mouthfuls, “But then there’s that Harry Velvét guy...” 
+“Tomorrow.” I pause between mouthfuls, “But then there’s that Harry Velvét guy...”
 
 Octavia’s eyes narrow, “Who?”
 
@@ -102,7 +102,7 @@ I look at her, trying to process. “Okay, I’m trying hard to roll with the pu
 
 “When?” She asks.
 
-“Tomorrow.” 
+“Tomorrow.”
 
 “Okay, that’ll work, but tonight I need you to play. It might be a bit of a double-edged sword, but the only way you can learn more about the guitar is to become more connected to it. Learn what it wants, what it needs, and where it wants to go. And I want to see how it works.” She says.
 
@@ -164,7 +164,7 @@ I head towards the office door. Octavia follows.
 
 I turn and look at her, “Yes I do.”
 
-I move into the dark room. I search for the light switch, and finding it, I wish I hadn’t. 
+I move into the dark room. I search for the light switch, and finding it, I wish I hadn’t.
 
 Four bodies. The closest ones were the worst. A young man, maybe early twenties. His outfit was a uniform of some sort, though it was hard to tell through the blood covering the black jacket. His arms were pointing in directions they shouldn’t be pointing, almost wrapped backwards around his neck, while his legs were twisted underneath him, as if they’d been snapped back at the hip.
 
@@ -178,7 +178,7 @@ I knew Octavia was behind me; her breathing was getting faster. She was hungry, 
 
 “Hurry.” Her voice is strained. I guess I should be glad that she’s been exercising her will power on this journey.
 
-I move towards the two pale figures sprawled on the ground, trying to not breathe in the stench. I concentrated on the fact that they no longer looked like real people, like living people. There was nothing about them that said they had ever been alive, so I imagined them as some strange lifelike mannequins. 
+I move towards the two pale figures sprawled on the ground, trying to not breathe in the stench. I concentrated on the fact that they no longer looked like real people, like living people. There was nothing about them that said they had ever been alive, so I imagined them as some strange lifelike mannequins.
 
 The color of their flesh was unnerving, but if I pretended it was a bad paint job it helped a bit. No pink, so they went with a horrible sick-stained ivory touched with patches of purple and blue. Like bruised silicone. The eyes were open but glazed over. A thin film of milky white settling over the pupils.
 
@@ -194,7 +194,7 @@ I give it a couple of seconds and try again, noticing how there’s no blood. No
 
 “What is it?” Octavia whispers, startling me with her unexpected nearness.
 
-It takes me a second to focus, fighting back the urge to just run through the back door and lose myself in the night. It’s a guitar pick, and I recognize it. 
+It takes me a second to focus, fighting back the urge to just run through the back door and lose myself in the night. It’s a guitar pick, and I recognize it.
 
 My heart’s pounding. I feel dizzy. I move back against the wall, slide down to the floor. I’m holding the pick so tightly my fingers are turning white. “It’s a vintage D’Andrea tortoise shell guitar pick from the 60’s. I only know one person who had a pick like this.”
 
@@ -216,7 +216,7 @@ Octavia looked at me, “The pain ... I can’t even tell you. The sound was sea
 
 I felt sick. “It must have been Mael or Corso. Did they kill these people, and why did they plant the pick?”
 
-Octavia moves past me, towards the bodies. “I don’t think it was them. This is someone, something, worse. This is darker, more violent. Corso is a trickster, and Mael, well, I hate to say it, but he has more class. This is a message, a warning.” 
+Octavia moves past me, towards the bodies. “I don’t think it was them. This is someone, something, worse. This is darker, more violent. Corso is a trickster, and Mael, well, I hate to say it, but he has more class. This is a message, a warning.”
 
 “But from who?” I ask, but Octavia shoots me a look, and I know the time for questions is over.
 
@@ -228,7 +228,7 @@ A couple of minutes later Octavia comes springing out, “Should we go out for d
 
 “What? How can you act so cavalier?” I ask
 
-“Wills. I am demon. I’m not like you, and I don’t want to be like you. Deal with it however you want, but things are most likely going to get worse...” Octavia stops mid-sentence, her head swivels towards the back door.  
+“Wills. I am demon. I’m not like you, and I don’t want to be like you. Deal with it however you want, but things are most likely going to get worse...” Octavia stops mid-sentence, her head swivels towards the back door. 
 
 “What is it?” I ask.
 
@@ -236,7 +236,7 @@ A couple of minutes later Octavia comes springing out, “Should we go out for d
 
 I smell it before I see it.
 
-It smells like rotting meat on warm metal. Thick and acidic and chokingly stagnant. I crouch down, clutching my belly with one hand while covering my mouth and holding my nose with the other. Peering over the edge of the bar I can see Octavia standing ready. 
+It smells like rotting meat on warm metal. Thick and acidic and chokingly stagnant. I crouch down, clutching my belly with one hand while covering my mouth and holding my nose with the other. Peering over the edge of the bar I can see Octavia standing ready.
 
 Then I see the darkness.
 
@@ -244,11 +244,11 @@ It pours through the closed door like molasses through a sieve, and the stench g
 
 A thick viscous fluid starts to pool on the ground, bubbling like boiling tar, and then it starts to take shape. It grows, a thin stalagmite of oozing murk. It wavers a little, but then stops, motionless and about seven feet high.
 
-“Ekimmu, I see you.” I hear Octavia whisper. 
+“Ekimmu, I see you.” I hear Octavia whisper.
 
-The shape shudders, and a wave of silence pushes out and moves through the bar like an inside out thunderclap. I’m almost knocked over by the blast of pure silence. It’s like all of the sounds in the world have been blotted out, and then slowly I hear a note in my head. A high E, pure and strong, grounding me, and then the silence is gone, and I can hear my breathing, my heartbeat, a truck driving past the bar outside. 
+The shape shudders, and a wave of silence pushes out and moves through the bar like an inside out thunderclap. I’m almost knocked over by the blast of pure silence. It’s like all of the sounds in the world have been blotted out, and then slowly I hear a note in my head. A high E, pure and strong, grounding me, and then the silence is gone, and I can hear my breathing, my heartbeat, a truck driving past the bar outside.
 
-The dark fluid takes on a slightly humanoid shape, and slowly a face takes shape. A mouth thin and almost as wide as its head. No teeth, just an empty hole dripping its own thick ooze. And eyes that open white, blank, unblinking. 
+The dark fluid takes on a slightly humanoid shape, and slowly a face takes shape. A mouth thin and almost as wide as its head. No teeth, just an empty hole dripping its own thick ooze. And eyes that open white, blank, unblinking.
 
 I gasp, I can’t help it, and that gasp almost ends me.
 
@@ -312,7 +312,7 @@ We both woke early, but still aching after the previous night. Octavia went to s
 
 “Abbie!” It had been too long, and I didn’t realize how much I’d missed her.
 
-Coffee, small talk, and silent stares of quiet reconnection. 
+Coffee, small talk, and silent stares of quiet reconnection.
 
 “How’s the family?” I ask.
 
@@ -344,7 +344,7 @@ I almost interrupt her, but instead let her finish her story. I hadn’t thought
 
 “Me?”
 
-“Yeah, how you were doing, where you were. I knew you were in New York, I think, other than that I couldn’t tell him, anything. And mom didn’t tell him anything. She kept track of you, though. I know you don’t know this, but she was proud of you. She still is...” She trailed off as someone came by collecting empty cups. I thought I saw a bit of blue hair peeking out underneath a black beret as he walked by, but he was gone in the crowd before I could be sure. Was that Corso again? 
+“Yeah, how you were doing, where you were. I knew you were in New York, I think, other than that I couldn’t tell him, anything. And mom didn’t tell him anything. She kept track of you, though. I know you don’t know this, but she was proud of you. She still is...” She trailed off as someone came by collecting empty cups. I thought I saw a bit of blue hair peeking out underneath a black beret as he walked by, but he was gone in the crowd before I could be sure. Was that Corso again?
 
 Probably not I thought.
 
@@ -366,7 +366,7 @@ I pause, knowing I can’t really stop her, but she needs to know the whole trut
 
 \*\*\*\*\*
 
-After promising I’d keep the gris-gris bag with me and dropping Abigail off at her hotel, I continued in the taxi to the address Harry had given me. 
+After promising I’d keep the gris-gris bag with me and dropping Abigail off at her hotel, I continued in the taxi to the address Harry had given me.
 
 “Your sister seems nice.” The driver said, peering in the rearview mirror. And there it was again. This time for sure. Blue hair.
 
@@ -388,7 +388,7 @@ After promising I’d keep the gris-gris bag with me and dropping Abigail off at
 
 I jump on a hunch, “Did you know my dad?”
 
-Corso doesn’t answer. He hits the gas, swerves around another corner, then slams the brakes hard, sliding perfectly into a space between two parked cars. He turns to face me, leaning back slightly, “Yeah. I mean, I knew of him. You want to hear the real guitar story? Pretty sure Octavia doesn’t know any of this.” 
+Corso doesn’t answer. He hits the gas, swerves around another corner, then slams the brakes hard, sliding perfectly into a space between two parked cars. He turns to face me, leaning back slightly, “Yeah. I mean, I knew of him. You want to hear the real guitar story? Pretty sure Octavia doesn’t know any of this.”
 
 “Definitely.”
 
@@ -412,7 +412,7 @@ As I stand watching the taxi move up the street a car honks behind me. I turn an
 
 “So, what’s the story?” She asks, parking and walking towards me.
 
-“What are you doing here? How did you know where I was?” 
+“What are you doing here? How did you know where I was?”
 
 “You asked me to meet you here.” She said, studying the building with a quizzical look.
 
@@ -430,7 +430,7 @@ Thankfully, neither of us had to.
 
 “Ah, of course. I am Detective Donovan Hawkes, and I believe Mr. Forte here might have some knowledge of a recent incident in Chicago, as well as something fairly strange that occurred last night here in Denver.” He stepped into the darkness of the hallway, motioning for us to follow. “I realize this is a little unusual, but these circumstances call for a different approach.”
 
-Octavia and I follow him down the long hallway and turn into an empty office with a desk, a filing cabinet, and a few chairs. 
+Octavia and I follow him down the long hallway and turn into an empty office with a desk, a filing cabinet, and a few chairs.
 
 One of the chairs was occupied by a woman, who stood as soon as we entered. She was tall and thin, very pale with long dark hair and a dark shade of lipstick, almost black. A silver chain covered in small charms hangs around her neck. She stretches an arm out awkwardly to shake my hand. “I am Sara Barrow, and I have been looking forward to meeting you.”
 
@@ -438,13 +438,13 @@ Not quite knowing what to say, I introduce myself, “Ah, hello, I’m William, 
 
 Sara grasps Octavia’s hand in greeting but drops it almost immediately and takes a few steps backwards.
 
-“You’re one of them.” She whispers, her face turning a little paler than before. 
+“You’re one of them.” She whispers, her face turning a little paler than before.
 
 Octavia lets a little wisp of a smile slip, and sits down, “I’d be offended if it wasn’t true.”
 
 The detective motions for me to sit next to Octavia, and he sits across from us. "Sara has been helping me track you down. She is a spiritual cleanser, and is very attuned to the, ah, paranormal?”
 
-Sara mumbles an affirmation as she nervously steps a little closer. 
+Sara mumbles an affirmation as she nervously steps a little closer.
 
 Detective Hawkes continues, “This is something needing a different approach, a little more discretion, so that’s why you’re here and not at a police station. You have a certain artifact, and I was hired to reclaim it. I’m not sure if I believe the stories I’ve heard, but regardless, Sara here has been charged with the task of, well, exorcising it. I also need your help in finding the whereabouts of the other man involved.”
 
@@ -452,7 +452,7 @@ Detective Hawkes continues, “This is something needing a different approach, a
 
 “Ah, Corso, no.” The detective slides his satchel around to the front of his body, rummages around. “Although I would like to talk to Corso a little more as well. He’s the one who set up this little meeting. No, the man I’m looking for is someone you’re a little more familiar with.”
 
-“Okay, well, I hope it’s not the antichrist,” I quip. 
+“Okay, well, I hope it’s not the antichrist,” I quip.
 
 Detective Hawkes doesn’t laugh. Sara Barrow stands behind him, arms folded in front of her chest, and doesn’t once take her eyes off Octavia. The detective and I might as well have been in a different room. Different city, even.
 
@@ -465,3 +465,7 @@ It’s my father.
 \*\*\*\*\*\*
 
 “I appreciate all of the word of comfort and encouragement during these dark times. I am still working through the journals. It’s extremely draining, but we are making progress, I think. More next week.” – Abigail Forte
+
+&#x200B;
+
+[PART FIVE](https://www.reddit.com/r/nosleep/comments/xyv5y7/i_have_to_get_rid_of_this_guitar_i_found_part_five/)

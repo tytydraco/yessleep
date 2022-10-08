@@ -12,7 +12,6 @@ We still advise you take precautions before listening to the recordings (such as
 
 \*[Music for Part Three](https://www.tiktok.com/@kirkhammett/video/7146958755408776491?is_from_webapp=1&sender_device=pc&web_id=7118164960957990446)\*
 
-
 I’m in a bar. It’s familiar, but strange at the same time.
 
 There’s a row of shots filled with a red liquid lined up on the stainless-steel counter. I hope it’s not blood.
@@ -537,8 +536,8 @@ There’s a noise behind me, and I turn to see Octavia standing on the balcony, 
 
 “Oh my,” Octavia smiles. “Denver is going to be fun.”
 
------
-
 “I appreciate all of you who have sent in kind words. We have received some tips from people who say they have seen my brother, but nothing has been verified at this point. Still working through the journals. It’s emotionally draining, but worth the effort. More next week.” – Abigail Forte
 
 [PART FOUR](https://www.reddit.com/r/nosleep/comments/xsxtj2/i_have_to_get_rid_of_this_guitar_i_found_part_four/)
+
+[PART FIVE](https://www.reddit.com/r/nosleep/comments/xyv5y7/i_have_to_get_rid_of_this_guitar_i_found_part_five/)
