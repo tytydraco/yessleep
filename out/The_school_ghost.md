@@ -1,4 +1,6 @@
-  It was a sunny winter afternoon in Calcutta in the 1980's. We had stayed back after school for sports practice. After finishing up we casually made our way out, chatting and laughing as normal 14 year old girls do. The sun was about to set and the sky was bathed in a golden glow. After about ten minutes of walking, one of my friends, Tabby, who was strolling beside me, suddenly realised that she had left her cardigan back at school.
+  This is just a simple recounting of events that happened long ago when I was a school girl. Nothing spicy or overly scary. Just a true story that some may find interesting. If you are looking for gory details, there are none. Only  those who find liminal spaces creepy will understand. For the sake of privacy, I have changed some names.
+
+   It was a sunny winter afternoon in Calcutta in the 1980's. We had stayed back after school for sports practice. After finishing up we casually made our way out, chatting and laughing as normal 14 year old girls do. The sun was about to set and the sky was bathed in a golden glow. After about ten minutes of walking, one of my friends, Tabby, who was strolling beside me, suddenly realised that she had left her cardigan back at school.
 
    She asked us to go back with her to collect it. Obviously none of us wanted to. "Can't you collect it tomorrow?", Anita groaned. 
 
@@ -21,10 +23,11 @@ I stopped. The deserted grounds and empty classrooms had really spooked me. The 
 
 Tabby looked at my face and hugged my arm. "Please, Suzy, please come with, I'll treat you to samosas" she wheedled. "Five more minutes. I'll be in and out." She was very adept at getting her own way.
 
-"Ok, ok, " I huffed following her reluctantly.
+"Ok, ok, " I huffed, following her reluctantly.
 
  The library was housed in another building that was much older than the other parts of the school. The steps were wooden and creaked ominously as we climbed them. Luckily the library doors were still open. The janitors hadn't come around yet. 
-" I remember I had sat there on the left at the back. Be back in a sec." Tabby said and hurried in.
+
+" I remember I had sat there on the left at the back. Wait here. I'll be back in a sec." Tabby said and hurried in.
 
  I waited by the door. I heard her moving around and wished she would hurry up already.
 After a few minutes she shouted happily. "Found it! It was on the desk just as I had left-" Her voice changed suddenly. " Heyyy did you hear that?"
@@ -127,7 +130,7 @@ Tabby looked at me hurt, " Suzy, how could you! I know what I saw..."
 
 "No, Di, I still think some of the rumours are exaggerated". Gulab said."  But I do believe that Tabby Didi saw a real ghost." 
 
-He raised his hand "Wait, let me clarify.  This school was not always an all girls' school". Many don't know, but initially boys also studied in this school  before the  q .   top floor of the old building used to be the boys' hostel."
+He raised his hand "Wait, let me clarify.  This school was not always an all girls' school". Many don't know, but initially boys also studied in this school  before the management changed hands. The  top floor of the old building used to be the boys' hostel."
 
 I stared at him."So how do you know all of this?". 
 
@@ -136,9 +139,9 @@ I nodded in understanding.
 
 "Go home," Gulab said. "Try to forget about it ok?" He bent his head over folded hands and walked away . The sky had turned dark. It was almost 6pm. We quickly noped it out of there. We stopped at Tabby's bus stop. 
 
-"Will you be ok?" I asked. 
+"Will you be ok?" I asked. "I'm sorry, i shouldn't have laughed like that ..."
 
-Tabby nodded. "Yeah, yeah, I'm fine." She held my arm " Please Suzy. Don't tell anybody about this. Promise you won't" she pleaded. 
+Tabby nodded. "Yeah, yeah, I'm fine. It's ok." She held my arm " Please Suzy. Don't tell anybody about this. Promise you won't" she pleaded. 
 
 " I promise." I said. " But don't forget you owe me a plate of samosas." 
 

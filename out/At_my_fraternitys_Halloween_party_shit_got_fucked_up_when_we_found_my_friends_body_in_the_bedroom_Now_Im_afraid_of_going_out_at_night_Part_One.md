@@ -217,5 +217,3 @@ My heart went into a frenzy.
 **-- "Yeah. So check Ellis General, if they moved them anywhere, it'd likely be there, right, since it's only about two or three blocks out from St. Leonard's."**
 
 \-- "Okay, I'll try there then after my 2:30 class."
-
-r/CorpseChildGospels
