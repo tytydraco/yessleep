@@ -2,7 +2,7 @@ He sat still at the end of the table. His eyes, droopy and rimmed with dark circ
 
 Another failed gig, no doubt. 
 
-My friends had warned me about marrying him. Jason was a struggling artist, you see. He had big dreams but no one seemed to recognise his abilities. I was told not to settle for him, that even a poor country girl like myself could charm  the richest man in town with my pretty face. "You'll be broke your whole life if you stay with him," they said. 
+My friends had warned me about marrying him. Jason was a struggling artist, you see. He had big dreams but no one seemed to recognise his abilities. I was told not to settle for him, that even a poor country girl like myself could charm the richest man in town with my pretty face. "You'll be broke your whole life if you stay with him," they said. 
 
 Yet, when he got down on one knee and proposed to me with sincere and loving eyes, I decided to follow my heart. I vowed then, that I would stick by his side through thick and thin. And when Jason finally reached his dreams, I would be there to celebrate with him. 
 
@@ -23,7 +23,7 @@ Minutes passed like that, and I felt a tear roll down my cheek. I was devesated.
 
 I couldn't face him like this, not when I was supposed to cheer him up during this difficult time, so I got up and went to our bedroom. 
 
-I couldn't help but wonder if I had failed as a wife. It was part of my duties to keep a clean environment, after all. Yet, no matter how hard I sweeped, wiped and scrubbed, dirt seemed to stick every surface and every corner of the room. 
+I couldn't help but wonder if I had failed as a wife. It was part of my duties to keep a clean environment, after all. Yet, no matter how hard I sweeped, wiped and scrubbed, dirt seemed to stick to every surface and every corner of the room. 
 
 Love, faith and hope had kept us together, but maybe Jason had gotten tired of it all. Would he give up on his dreams? Would he stop smiling forever? 
 
@@ -41,7 +41,7 @@ Maybe it was when I told him that I was pregnant......
 
 I sobbed for what seemed like hours, until the pain subsided again into a dull throb. I got up shakily and walked to the bathroom. 
 
-Staring back at me in the mirror wasn't a pretty girl, but a monster. Disgusting black goo dripped down from a grotesque hole at the side of its face. It was pungent, smelling of *death*. Brain matter, dark and rotten, slipped through and fell down, making a sickening squelching sound. 
+Staring back at me in the mirror wasn't a pretty girl, but a monster. Disgusting black ooze trickled down from a grotesque hole at the side of its face. It was pungent, smelling of *death*. Brain matter, dark and rotten, slipped through and fell down, making a sickening squelching sound. 
 
 My mind whirred as I made my way back to the dining room. Jason still had not taken a single bite of the beef casserole, which was now rotten as if it has been left out for several days. 
 
