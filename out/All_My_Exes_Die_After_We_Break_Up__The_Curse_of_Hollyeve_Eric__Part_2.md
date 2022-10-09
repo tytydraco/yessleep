@@ -1,5 +1,7 @@
 [The Curse of Hollyeve Part 1: Colin](https://www.reddit.com/r/nosleep/comments/xvwn3d/all_my_exes_die_after_we_break_up_the_curse_of/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/xzx4ni/all_my_exes_die_after_we_break_up_the_curse_of/)
+
 Eric lived down in LA. He was a failed actor pushing 40 and somehow an eternal optimist. 
 
 Hollyeve showed up in Eric’s class in sixth grade. A mysterious new kid that caught the eye of the self described “shy loner.”

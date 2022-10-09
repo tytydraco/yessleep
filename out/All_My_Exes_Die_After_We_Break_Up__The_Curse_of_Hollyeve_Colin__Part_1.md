@@ -1,5 +1,7 @@
 [The Curse of Hollyeve: Eric - Part 2](https://www.reddit.com/r/nosleep/comments/xxidln/all_my_exes_die_after_we_break_up_the_curse_of/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/xzx4ni/all_my_exes_die_after_we_break_up_the_curse_of/)
+
 A while back I shared my story of how [all my exes die after we break up](https://www.reddit.com/r/nosleep/comments/vv7bu5/all_my_exes_die_after_we_break_up/). At the time I published it. I thought that was the end of the story. *It wasn’t.* 
 
 Katy and I went through the motions of our loveless marriage, knowing the alternative was death for her, though sometimes I could tell she was wondering if that might be better. *What was the point of living a life where you could never experience love?* 
