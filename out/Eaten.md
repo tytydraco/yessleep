@@ -1,5 +1,3 @@
- 
-
 Document notes:  
 
 Account comes to me in the form of a witness statement, and if the header is to be believed, from the Killaloe Ontario Provincial Police department. Fairly local. I don't recall this incident when it happened but a cursory web search uncovers several news articles about a bear attack in the Madawaska Valley that claimed the lives of a small group of young backpackers. According to this document, it wasn’t a bear that killed those kids. I’ve changed names and redacted sensitive information, including  phone numbers and addresses.  
