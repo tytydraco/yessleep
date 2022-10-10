@@ -208,6 +208,8 @@ What's worse, now I'm one of them. They've taken me in as one of them now just l
 
 One night, a fucking Halloween party... Now I'm afraid of the night... God... I don't want it to turn night again... 
 
+They’ve let me have my phone. Figured I can’t really do much damage with THAT. Not with my hands strapped down while trying to hold it. I need help.
+
 I don't know what to do, other than, whenever they finally release me from the hospital, I'm just gonna get in my car, and I'm just gonna drive as far away as absolutely possible. I wanna be as far away as absolutely possible if I have to live this way. I'm just scared though that I won't make it that long. It'll be getting dark again soon and I think the moon might still be full tonight.
 
 I hate to say it, but if that's the case, then I hope to *GOD* these straps are tight enough...
