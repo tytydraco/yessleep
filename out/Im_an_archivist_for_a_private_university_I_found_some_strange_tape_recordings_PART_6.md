@@ -3,6 +3,7 @@
 [[PART 3]](https://www.reddit.com/r/nosleep/comments/x8kcd8/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 [[PART 4]](https://www.reddit.com/r/nosleep/comments/xg5a6g/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 [[PART 5]](https://www.reddit.com/r/nosleep/comments/xp6cq1/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
+[[FINALE]](https://www.reddit.com/r/nosleep/comments/y02yt3/im_an_archivist_for_a_private_university_i_found/?utm_source=share&utm_medium=web2x&context=3)
 
 Naissance here. 
 
@@ -13,13 +14,11 @@ I knew that Clara was hiding something when we first talked. The fact that she h
 I had to join her in her search. Of that I knew. 
 
 I had a productive spurt as soon as I got to the motel. Therefore, two transcripts today. It finally feels as though everything is coming together.
-
 ___
 
 **TAPE 4A: ‘CONCRETE’**
 
 DATED: NOVEMBER 22ND, 2000
-
 ___
 
 **\[START\]**
@@ -130,7 +129,7 @@ DOBERMAN: Yeah, there should. Do you think they were killed elsewhere, and broug
 
 NGUYEN: Maybe? No— they couldn’t have been. There’s no drag marks in the blood. It’s like they died here, and their blood was drained and flowed into that hatch.
 
-DOBERMAN: What? That’s absurd. Where are the missing limbs, too?
+DOBERMAN: What? That’s absurd. Where are these missing limbs, too?
 
 NGUYEN: I don’t know. This isn’t an ordinary homicide. 
 
@@ -171,7 +170,6 @@ DOBERMAN: Are you sure? Don’t you usually like taking point on these things?
 NGUYEN: Not this time, Doberman. Let’s let these guys earn their paychecks.
 
 **\[END\]**
-
 ___
 
 After transcribing 4A, I took a little break. I ordered delivery, which was maybe a mistake. It only fueled my paranoia. I imagined that men in black masquerading as my delivery driver would knock on the door of my motel room, taking advantage of my hunger to apprehend me, and to confiscate the tapes. I was so in my head that when there *was* a knock on my door, probably my food, I didn’t answer. I sneakily looked through the blinds to see a young teenager, probably no older than 18, impatiently waiting with a box of pizza in his hands. They would have to try harder than that. 
@@ -181,13 +179,11 @@ Through the window, I noticed the swirling sky had a red hue to it. Red and oran
 I took a long shower to decompress and collect my thoughts. What was my plan? I was sure that I wanted to confront Clara again. I knew what she was looking for, and I wanted to look for it too. I had to see it for myself. I wanted to know what awaited me in *The Place*.
 
 After my shower, I stared at myself in the mirror, remembering what had happened the last time I stared back at my reflection. I expected something to happen. My flesh being torn apart, or a twisted, malformed Jeffrey Stevens smiling back at me. Bloody hands coming out, and pulling me inside. But no such thing occurred. The thing is— part of me wanted it to. Everything that place had shown me, all I knew. I wanted more. I wanted it to show me more. In a fit of anger, I slammed my fists into the mirror, shattering it into bits of sharp broken glass. I pulled my hands back quickly, a large, red gash now present on my left hand. It hurt like hell, but I just sat there, and stared at it. Into the flowing, crimson gorge I had just created. Walls of flesh on either side, flooded with dark red blood. It was like I was in a trance. I gazed into myself, seeing the inner workings of *The Place*. It was here all along, borne of wound. Our bodies were made of that scarlet abyss. 
-
 ___
 
 **TAPE 4B: ‘WHITEOUT’**
 
 DATED: MAY 25TH, 2012 
-
 ___
 
 **\[START\]**
@@ -367,7 +363,7 @@ I had hoped to transcribe the final tape before I met with Clara. However— the
 
 The tape would have to wait. Wait until after Clara. Though, I wasn’t even entirely sure there would *be* an after Clara. The possibility that my next post could be my last weighed on me greatly…
 
-But I needed to set aside my paranoia for now. I attempted to steel myself by taking a breather outside my motel room. I stared at a now blood red sky, shifting and toiling, like pulsing intestines. The metallic taste of blood hit my mouth, wafting in from a light breeze. Clouds tinted crimson were like eyes. Watching. Observing. Judging. 
+But I needed to set aside my paranoia for now. I attempted to steel myself by taking a breather outside my motel room. I stared at a now blood red sky, shifting and toiling, like pulsing intestines. The metallic taste of blood hit my tastebuds, wafting in from a light breeze. Clouds tinted crimson were like eyes. Watching. Observing. Judging. 
 
 I thought about what Ida Ross had said her employers called *The Place.* The bloody altar. 
 
