@@ -280,4 +280,4 @@ Until one day, I too become a scarecrow in his [fields.](https://www.reddit.com/
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
 
-[YT](https://youtu.be/9RybtYtDzAk)
+[YT](https://youtu.be/7Fz62mJsg7c)

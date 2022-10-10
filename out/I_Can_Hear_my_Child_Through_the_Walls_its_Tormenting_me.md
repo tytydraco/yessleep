@@ -1,0 +1,17 @@
+My child died in March of 2022, otherwise this year. I have been grieving for so many months until I finally pulled myself together. My husband has taken it harder than me. He always wanted a child and ever since my baby died, he’s been completely shut off. I need suggestions on how to help him. This week I walked into the old nursery and found him holding our baby’s teddy bear. He was cradling it in his arms as if it were the real one. “John, you can’t do this. C’mon let’s take you back.”
+
+He looked at me and shook his head “He’s still here, he’s still here!” I had to drag him out of the room and back into the living room where I told him he was gone. He silently  cried into my shoulder and I hugged him. 
+
+Last night when I was downstairs making a drink, I heard a baby crying coming from the nursery. When I heard it I instinctively ran up the stairs, and into our bedroom where I hid under the sheets hoping the crying would stop. This isn’t the first time either, it started a month after our kids death. 
+
+When our kid died we were given a stuffed animal which we put in the nursery. After a month of being in there it would move. It would move into the crib, the top shelf, the toy blocks, anywhere it could get, it would be. We would place it back but it would move again. My husband thought it was our child telling us it was here with us. I think something darker is going on though. He thinks it’s a miracle, I can’t relate to him. He’s extremely religious, and thinks god is at work. 
+
+This morning, I found the doll and it wasn’t in the nursery, it was in our medicine cabinet. I had opened the medicine cabinet to take my daily pills and found it sitting there, it’s Teddy bear hand was inside my pills. I quickly took the teddy bear out of the medicine cabinet and saw medicine powder was around the bear’s mouth. I threw it in the wash hoping that would clean it. When I got it out it looked to be brand new, as I was holding it I started to see our child in the bear. I cradled it until my husband came and rushed over saying it was our child. 
+
+When I realized what is as doing I put the bear down and started to cry. “My child is gone! How can I live like this?” I collapsed onto the laundry room floor and my husband hugged me telling me our child was home. I don’t believe this is our child. It’s demonic. It’s not real, it can’t be real. Can it? I’m loosing my mind, I have an appointment with a psychiatrist next week and I’m loosing sleep. 
+
+My husband brought a baby monitor home last night, he said it’s so we can watch our kid. He named our kid Noah, after a person in the Bible, I have no idea who that is but I hate him for naming our child that. I cant stand this house anymore, it’s tormenting me. I will walke up in the middle of the night to crying and my husband will nudge me out of bed to go check on our “child” it’s not our child. It’s a demon. I know it. 
+
+He’s continuously pushing me to take care of it. It’s not even human, why the hell does it need milk?! Why the hell do I have to take care of it?! Why the hell is it here?! 
+
+I went to my appointment and the doctor said I’m having hallucinations, I still think it’s the devil. I’m loosing sleep every night, and I feel like I’m loosing my mind.
