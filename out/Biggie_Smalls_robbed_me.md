@@ -1,0 +1,13 @@
+Before you read this I want to make things clear that I am not crazy. The reason I am using a throwaway account is that I don't want people to see this and call me crazy. I have never been any sort of conspiracy theorist but I have many good reasons to believe Biggie Small's is alive and I have a good feeling he is after me. The time I am writing this is October 10th 2022, this all started October 7th 2022. It was around 4:00am and I heard my doorbell ring I was confused so I opened my window and saw a large dark skinned man outside my house. I was scared so I got a baseball bat and went downstairs and opened the door but when I opened it nobody was there. I looked around outside for a bit but I figured I was just ding dong ditched by a fat black man and went back to sleep. 
+
+&#x200B;
+
+So when I woke up I was surprised to see a note that was slid under my door saying "Im gonna fuck the shit out of your mom-BS". when I saw that I was pretty scared because I don't want somebody to fuck the shit out of my mother. I reported the incident to the police but they didn't seem to care. They said they would look into it but I didn't believe it. I just went along with my day as usual I did call my mom to ask her if she was okay and she said she was fine. I didn't tell her what happened though. 
+
+&#x200B;
+
+I went to bed and I was woken up seeing a large black man standing in front of me. I connected all the dots and I realized it was Biggie Smalls. I said "You are Biggie Smalls" and then he said "No I ain't" then we fought for a bit of if he was Biggie Smalls or not. Then he held a knife to my neck and tied me up and stole a bunch of my stuff.
+
+&#x200B;
+
+ The cops came to my house the next day after my boss reported me missing and they untied me and I told them everything that happened. They believed me on everything but it seemed like they didn't believe me it was actually Biggie Smalls. The next day they called me saying they found a bunch of guys who looked like I described but when I saw them not of them was who it looked like. I kept on telling them they needed to look for Biggie Smalls but they didn't want to hear it. So right now I am at my brothers house waiting for them to find Biggie Smalls and get my stuff back. The one thing i'm confused about is why Biggie Smalls is after me. I strongly enjoy rap music so he has no reason to do this stuff to me. In conclusion Biggie Smalls is still alive and he robbed me.
