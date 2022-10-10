@@ -1,0 +1,13 @@
+The date was October 31st. I was walking home from college like I did every day. That night I’d stayed late to work on an assignment that counted towards my final grade, and I was the last person to leave. As I stepped outside and started walking, it began to rain. *Of course* it had to rain on the *one* day I left my umbrella at home. I picked up the pace and held my bag above my head, but it didn't stop the rain at all. By the time I reached my bus stop the shower had turned into a drizzle, but I was already soaked to the bone. Wet and tired, I got on my bus without checking the number.
+
+The instant I sat down I noticed something was *off*. I couldn’t quite place my finger on what, but my brain was screaming at me that I wasn’t supposed to be in that bus. I tried to shake the feeling and watched the rain fall. I assumed this feeling came from the gory decorations hung around for Halloween. After a few minutes I felt someone sit next to me. I turned to see a woman wearing a green cardigan and doing some sort of crochet work. I greeted her, but she didn’t respond. I said it a bit louder thinking she hadn’t heard me, but it appeared like she was ignoring me on purpose. Confused and annoyed, I continued looking out the window. After a few minutes the lady left.
+
+2 stops before mine, the bus came to a sudden halt in the middle of the road, throwing me face first into the seat in front of me. Annoyed, I stood up and walked over to the driver to ask what happened. I knocked on the booth and they turned to look at me. I screamed.
+
+The driver had no face. I tried to run, but the bus doors were locked. I heard a coarse voice speak from behind me. “The doors only open at stops.” I turned and flew up the stairs to the second floor of the bus, but every seat was filled with another faceless person. I tried to jump off but a group of them grabbed me and pushed me back downstairs as I let out a scream. I squirmed free and ran to the back of the bus, hoping to find an emergency exit, but all I saw were more faceless people. They had me cornered. I jumped over the seats to get back to the front, thinking I could break the door down. The faceless people grabbed at me as I rushed to the door. I threw myself at the door, hoping it would break, but as I was about to hit it the bus came to a stop and its doors opened. I fell onto the sidewalk, scraping my knee.
+
+I looked back into the bus. The driver looked like a normal man with a face again. None of the passengers had gotten out of their seats. It seemed like nothing had happened and nobody noticed my wild screaming. I was confused and scared, so I ran home.
+
+&#x200B;
+
+I still don’t know what happened that day, but if you're ever getting on a bus in London, make sure to check its number.
