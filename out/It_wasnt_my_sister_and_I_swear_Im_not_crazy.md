@@ -10,11 +10,11 @@ Anyway, late July, weeks before summer came to an end, and we were heading to th
 
 &#x200B;
 
-She told me that she'd already left a list of stuff in there, and since her bathroom was en suite, I turned on the bedroom lights, pen in hand. My sister was downstairs, had gone down a bit earlier, and I'd watched her go down the stairs from where I sat in the office. The office was right next to said set of stairs, so you could see anything going on in the area, and I knew I was alone on the second story. 
+She told me that she'd already left a list of stuff in there, and since her bathroom was en suite, I turned on the bedroom lights, pen in hand. My sister was downstairs, had gone down a bit earlier, and I'd watched her go down the stairs from where I sat in the office. The office was right next to said set of stairs, so you could see anything going on in the area, and I knew I was alone on the second story.
 
 &#x200B;
 
-There was a stirring on her bed, and though I startled a bit, I reassured myself that it was just Daniel, my stepdad, to bed early after working a ridiculous morning shift. But, no. His car hadn't been home, I'd seen the driveway vacant from the window above, and I should've heard the car pulling up and the front door opening. There was no way he was home. That's when I saw it. 
+There was a stirring on her bed, and though I startled a bit, I reassured myself that it was just Daniel, my stepdad, to bed early after working a ridiculous morning shift. But, no. His car hadn't been home, I'd seen the driveway vacant from the window above, and I should've heard the car pulling up and the front door opening. There was no way he was home. That's when I saw it.
 
 &#x200B;
 
@@ -22,7 +22,7 @@ Bending like a contortionist - no, more like a spider, delicate and sharp and gr
 
 &#x200B;
 
-For a split second, a heartbeat, it was laughable how I'd been, well, horrified. It was just my sister. She'd just fallen asleep in Mom's bed. It was just - oh god, that was not my sister. 
+For a split second, a heartbeat, it was laughable how I'd been, well, horrified. It was just my sister. She'd just fallen asleep in Mom's bed. It was just - oh god, that was not my sister.
 
 &#x200B;
 
@@ -34,19 +34,19 @@ Its face was wrong, so horribly wrong, the features flipped but the bones struct
 
 &#x200B;
 
-Something was in its hand, but the hand too was wrong, fingers all the same lengths and spaced evenly around a chunk of palm, grasping the something like a starfish folded around its prey. The something glinted in the flashing light of the ceiling fan, probably no longer than my longest finger, and filled with an oil-dark rubescent fluid. 
+Something was in its hand, but the hand too was wrong, fingers all the same lengths and spaced evenly around a chunk of palm, grasping the something like a starfish folded around its prey. The something glinted in the flashing light of the ceiling fan, probably no longer than my longest finger, and filled with an oil-dark rubescent fluid.
 
 &#x200B;
 
-All the grace and poise was gone, the hand moving to the mouth drunkenly, like the thing was unused to its own body, and tilting what I now saw as a vial over the stained lips. Smoke came pouring out. 
+All the grace and poise was gone, the hand moving to the mouth drunkenly, like the thing was unused to its own body, and tilting what I now saw as a vial over the stained lips. Smoke came pouring out.
 
 &#x200B;
 
-Not smoke, not exactly, but vapor, red, opaque ribbons spiraling from the opening into its gaping forehead, the same way smoke from dry ice would. Thick and heavy and falling into its mouth, which, due to the placement, made its neck kink awfully outwards as the whole head bent backward to accommodate. I was gagging, but nothing came up, stomach heaving and empty. 
+Not smoke, not exactly, but vapor, red, opaque ribbons spiraling from the opening into its gaping forehead, the same way smoke from dry ice would. Thick and heavy and falling into its mouth, which, due to the placement, made its neck kink awfully outwards as the whole head bent backward to accommodate. I was gagging, but nothing came up, stomach heaving and empty.
 
 &#x200B;
 
-It turned its attention fully towards me, bug eyes nearly falling from their shallow sockets as they opened wider than I'd have thought possible, revealing a sclera marred with squiggles of blood. I snapped from my horrified reverie and felt the pen in my hand and threw and sprinted, all in the same moment and movement. 
+It turned its attention fully towards me, bug eyes nearly falling from their shallow sockets as they opened wider than I'd have thought possible, revealing a sclera marred with squiggles of blood. I snapped from my horrified reverie and felt the pen in my hand and threw and sprinted, all in the same moment and movement.
 
 &#x200B;
 
@@ -54,15 +54,15 @@ The following shriek gave me headaches for the next week, so agonized and rage-f
 
 &#x200B;
 
-My sister and stepbrother and I shared a bathroom right next to my bedroom, so I flung the door open and slammed it shut behind me and, since the lock didn't work, cast open the vanity drawer to makeshift-barricade it. Lights still off, tiled floor bitingly cold on bare skin, I slumped against the wall and cried quietly as something threw its weight against the door, human nails screeching across paint. 
+My sister and stepbrother and I shared a bathroom right next to my bedroom, so I flung the door open and slammed it shut behind me and, since the lock didn't work, cast open the vanity drawer to makeshift-barricade it. Lights still off, tiled floor bitingly cold on bare skin, I slumped against the wall and cried quietly as something threw its weight against the door, human nails screeching across paint.
 
 &#x200B;
 
-After a few minutes, I wondered vaguely why nobody had come to help me. They'd surely heard the scream, right? They had to have heard it. They couldn't just leave me there alone. 
+After a few minutes, I wondered vaguely why nobody had come to help me. They'd surely heard the scream, right? They had to have heard it. They couldn't just leave me there alone.
 
 &#x200B;
 
-A worse thought struck me: What if it had gotten them? What if I was the only one left alive in the house? My imagination raced and I asked myself, what if I was the only one left alive in the world? 
+A worse thought struck me: What if it had gotten them? What if I was the only one left alive in the house? My imagination raced and I asked myself, what if I was the only one left alive in the world?
 
 &#x200B;
 
@@ -70,7 +70,7 @@ I quickly made myself ignore both of those questions as I stood shakily. The scr
 
 &#x200B;
 
-Behind me, clearer than either crystals or day, tall and stooped, was it. Its starfish hands settled on my shoulders and fastened on my neck and I remember nothing more than that. 
+Behind me, clearer than either crystals or day, tall and stooped, was it. Its starfish hands settled on my shoulders and fastened on my neck and I remember nothing more than that.
 
 &#x200B;
 
@@ -83,3 +83,7 @@ I was on antipsychotics until I turned 18 and flushed them down the toilet. By t
 &#x200B;
 
 I've only recently rediscovered the reason, though, in a dream where it waited for me. I am certain, deathly so, that it was not a hallucination, and that it is real and hates me so, so much. Please, give me any and all ideas you can think of for what it is and what I can do about it, because I have the feeling it is getting closer.
+
+&#x200B;
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/y00ldn/late_night_geometry_part_two/)
