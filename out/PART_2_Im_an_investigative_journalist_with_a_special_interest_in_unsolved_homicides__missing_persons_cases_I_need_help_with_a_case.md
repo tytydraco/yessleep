@@ -10,7 +10,7 @@ Much to my surprise, Jerry O'Rourke was waiting for me in the lobby of the inn.
 
 He skipped the pleasantries. "I have something for you." He handed me an enormous envelope. "You'll find that most everyone at the station is rather less than eager to discuss this case, but one of my trainees was just promoted, and I called in a favor." He tapped the envelope. "This is everything they have, as far as I know. If you need anything else from the police, ask for Jason." He tipped his hat at me, and left.
 
-I stood in the lobby for five minutes, staring at this envelope in my hands. Five minutes ago, I had been dead-set on getting the hell out of dodge. But I was still a journalist, and an entire police file on the murder I was investigating was too delicious not to at least look at. I brought it up to my room and pored over it.
+I stood in the lobby, staring at this envelope in my hands. Five minutes ago, I had been dead-set on getting the hell out of dodge. But I was still a journalist, and an entire police file on the murder I was investigating was too delicious not to at least look at. I brought it up to my room and pored over it.
 
 Before I tell you about the police report, I want to tell you a few other things I dug up about this case that I forgot to mention. My first day here, I paid a visit to the local newspaper archives at the library. There were three articles that I found particularly intriguing:
 

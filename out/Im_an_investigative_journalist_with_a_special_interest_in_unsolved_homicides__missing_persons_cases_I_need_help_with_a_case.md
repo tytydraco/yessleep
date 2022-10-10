@@ -58,7 +58,7 @@ I found out from the newspaper archives that the woman who found the bodies was 
 
 "The Knight kid?"
 
-She laughed bitterly. “Well, some people maintain that his alibi was faked. But, no, I meant…well, my neighbor Karen…” she trailed off, and I silently willed her to finish the sentence. “Never mind. I don’t like to talk about it. Come, Henry.” She pulled a treat from the pocket of her apron and Henry lost interest in me immediately. I watched him go, and wondered who Karen suspected over Victor Knight. 
+She laughed bitterly. “Well, some people maintain that his alibi was faked. But, no, I meant…well, my neighbor Karen…” she trailed off, and I silently willed her to finish the sentence. “Never mind. I don’t like to talk about it. Come, Henry.” She pulled a treat from the pocket of her apron and Henry lost interest in me immediately. I watched him go, and wondered who Karen suspected over Victor Knight.
 
 Walking back to my car, I stopped and really looked at the woods, and I realized -- they really weren't woods. Standing a hundred yards away from the tree line, I could see the highway on the other side. It was really just a thin strip of trees, largely cleared of brush, that I suspected had been left in place or cultivated for the simple purpose of blocking sound from the highway to the neighborhood. Even at night, with the powerful-looking streetlamps in the neighborhood and the lights of the highway on the other side, I didn’t think it would provide much cover. In other words, it wasn’t a great place to commit a murder. Or three.
 
@@ -79,3 +79,5 @@ My heart was pounding in my throat. What had I gotten myself into? What was goin
 And then, a quiet voice whispered in my ear.
 
 *"NEVER FORGET."*
+
+[\[READ PART 2 HERE\]](https://www.reddit.com/r/nosleep/comments/y0njom/part_2_im_an_investigative_journalist_with_a/?utm_source=share&utm_medium=web2x&context=3)
