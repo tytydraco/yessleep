@@ -288,7 +288,7 @@ I closed the journal with a trembling hand, momentarily lost in what I had just 
 
 The sudden burst of static from Billy’s call that simultaneously erupted from my radio base station and the portable handset clipped at my shoulder made me jump and drop the journal on the floor. Heart pounding, I cursed under my breath and keyed the microphone.
 
-“Go for tower 9,” I answered, my voice tight. As I spoke, my eyes drifted out across the sky to the east, where darkened thunderheads had been unknowingly gathering and marching slowing in my direction. I shook my head – icing on the cake, I thought.
+“Go for tower 9,” I answered, my voice tight. As I spoke, my eyes drifted out across the sky to the east, where darkened thunderheads had been unknowingly gathering and marching slowly in my direction. I shook my head – icing on the cake, I thought.
 
 “John, what’s your position?” asked Billy. The self-assured authority that had filled his tone before was strangely absent now, replaced with something else.
 

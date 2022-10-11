@@ -38,4 +38,4 @@ I decided to leave after that. But this house had one more thing for me. When I 
 
 *It's different every time you visit, I look forward to seeing you again*.
 
-If the owner's goal was to make me feel like it was all real, they succeeded with flying colors. That was the worst scare I've experienced in a haunted house in years, maybe ever. What do y'all think? Should I visit again, or would I be better off reviewing more established haunted houses?
+If the owner's goal was to make me feel like it was all real, they succeeded with flying colors. That was the worst scare I've experienced in a haunted house in years, maybe ever. What do y'all think? [Should I visit again](https://www.reddit.com/r/nosleep/comments/y1k3vc/i_dont_think_that_person_was_a_person_at_all/?utm_source=share&utm_medium=web2x&context=3), or would I be better off reviewing more established haunted houses?
