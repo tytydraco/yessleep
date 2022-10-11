@@ -2,6 +2,8 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/xxidln/all_my_exes_die_after_we_break_up_the_curse_of/)
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/y1c12x/all_my_exes_die_after_we_break_up_the_curse_of/)
+
 The intensity of Hollyeve’s newfound presence in my life scared me. I decided it was best to back off, at least for a while. 
 
 I successfully kept Hollyeve out of my life for almost a year when I received a message from Casey on Reddit.
@@ -114,7 +116,7 @@ He didn’t think that would work though. He had always had that necklace. Holly
 
 He would try though. We gave him no choice. We drove him up the coast in the middle of the night. Kelly had told Casey that a chunk of Hollyeve’s childhood home still existed, deep in overgrown woods. Again, Casey didn’t reveal this information to me until we were on the way there. 
 
-I used the drive to take some time and question Colin. *Why had Colin even reached out to me on Reddit in the first place?* 
+I used the drive to take some time and question Colin. *Why had Colin even reached out to me on Reddit in the first place?*
 
 He dismissed it away quickly. He would go through periods where he wanted to solve the curse and he thought I might be onto something. He changed his mind after he shared his story with me and nothing changed. 
 
