@@ -1,0 +1,27 @@
+I just recently went on a home decor shopping spree, I wanted to replace my old furinture that I had for years and started just blending in. I wanted something new so I put my keys in my car and went to the basic places where you would find such things, home depot.. I spend hours just finding out what to buy from my savings and before I knew it closing time was aproaching, I went to the stand to make my orders and with a large smile I was headed back home to my two dogs, cat and my girlfriend.
+
+It was already pretty late and unusually in this area there was a huge traffic jam, I spotted this offroad alley big enough for a cat to fit and GPS told me that the road could be a shortcut to my home. As I drove by the little village I stopped because I saw an old lady at a garage sale selling some house itemns. Once again it was pretty late anyways and I took my chances on getting something unique for my house that wouldn’t cost a fortune. I greeted the old lady and looked around the old items, I pretty much looked the whole time like I was at a museum observing things. The old lady kept to herself and once in a while she murmured something loud enough me for to hear but quiet enough for me not to understand.
+
+In the end I observed this mirror from the victorian era with beautiful wooden engravings, and as I set eyes on it I asked for the price and left. As I expected it was only 100$ and that’s abnormal for a historic itemn that would usually cost a fortune in an antique shop. I arrived home and placed the mirror on the wall, as I got a kiss on the cheek from my girlfriend the night ended like any other night.
+
+..or so I taught
+
+I woke up with the sound of breaking, angry, I stormed down to the kitchen thinking my cat was the culprit since he loved knocking down plates or bowls when me or my girlfriend weren’t looking. I went downstairs and there was nothing to be founf except my cat sleeping soundly on the couch and a random plate on the floor. When I just wake up I’m just those droozy wobbly things that can’t even do a simple task in a decendly short ammount of time, but I swear in the corner of my eye for a split second I saw a shadow or something and for that whole night I couldn’t brush off the feeling that something was very wrong. 
+
+Lucky for me it was a saturday and when I woke up I took a broom to clean up the mess from yesterday but to my shock there was nothing there and I just had to stand there like an idiot with a broom in my hand staring down a spot in which I could have sword I saw a broken plate the night before. My girlfriend kept poking fun at me with remarks like “glad you decided to do the chores so early“ and just statements like that but I could’ve sworn on my life it was all real. As freaked out as I was I just went in my office and started on the project I had due in a month just to get my mind off of this.
+
+I took a nap as I couldn’t get one minute of sleep last night but something was drawing me towards that mirror I can’t explain it in words but I just dreamnt the mirror was everywhere I went. I knew very well that my girlfriend wouldn’t accept my bullshit excuse of “I’m scared of a mirror because I saw it in my dream“ I just went downstairs and did it the old way by covering up the mirror with a black cloth past 6 pm. 
+
+My girlfriend taught I was exagerating but didn’t put up a fight because she was always spooked by my old traditions I still follow aswell with the old things I put around my house. I have a very strong belief that old things were created to last and new itemns just break more to make you consume more. Well I took it upon myself to cover the mirror every day from then onwards.
+
+Things went back to normal shortly after but one day I had to leave because of a business trip and I advised my gf to either keep the mirror covered 24/7 or follow my ritual of putting the cover on during the time intervals of 6pm-sun rise. I could see her internally rolling her eyes while saying a sarcastic “understood“ but I was dead serious and assured her of it.
+
+I was gone for only a week but when I came back everything seemed too normal, she was almost copying her own behaviour and it creeped me out even more that she didn’t cover the mirror and it was already midnight, while coming closer to cover it I saw a faint shadow just like the one I saw the night with the broken plate.
+
+I tried to spit on my finger and just wipe it off as if I wanted so badly to hope it was just a spot on the old dusty mirror, and just like that it was gone. I must have been so tired I fell asleep because I woke up in my work clothes. I felt like I was always watched troughout the day by something, my girlfriend locked herself in her room whispering something similar to the old woman. This time when I looked in the mirror in the morning the shadow was right behind me watching, I know that whatever I do I won’t get rid of it. 
+
+I cracked the mirror. Now I hear their voices
+
+I threw holy water. And my girlfriend won’t stop screaming
+
+I burnt it. The crying stopped, the voices stopped. They are after me and I don’t know how much time I have left, I already hear my “girlfriend“ calling me from downstairs. I know it isn’t her because she never talks this deeply.
