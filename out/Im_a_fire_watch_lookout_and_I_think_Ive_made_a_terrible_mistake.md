@@ -1,24 +1,24 @@
-  I’ve been a fire watch lookout for about a year now. I spend most of my life alone in a small window-lined one-room shack atop a steel and wood framed tower in the middle of the Great Smoky Mountains national park. My only companions are my collection of cheap novels, a laptop computer with infrequent and unreliable internet service, and the two-way radio I use to communicate with the few other nearby towers and ranger stations.
+I’ve been a fire watch lookout for about a year now. I spend most of my life alone in a small window-lined one-room shack atop a steel and wood framed tower in the middle of the Great Smoky Mountains national park. My only companions are my collection of cheap novels, a laptop computer with infrequent and unreliable internet service, and the two-way radio I use to communicate with the few other nearby towers and ranger stations.
 
 “Nearby” is a bit of a misnomer, though; using my high-power binoculars, I can just barely make out Tower 12 on a clear day, situated several miles to my west. Tower 15, the next nearest to my location, only appears as a glint of sunlight to my east, when the sun catches it just right.
 
-I’ve been told the parks department intends to put up some additional towers in this area as soon as it gets the necessary funding, which is probably no time soon. 
+I’ve been told the parks department intends to put up some additional towers in this area as soon as it gets the necessary funding, which is probably no time soon.
 
-That’s fine with me, though. I like the solitude. It helps quiet my mind. Keeps the memories at bay. 
+That’s fine with me, though. I like the solitude. It helps quiet my mind. Keeps the memories at bay.
 
 Mostly.
 
-I occupy most of my days either with simple maintenance in and around the tower, or else scanning the dense sea of trees all around me for any signs of trouble. It’s been a dry year, so the threat of fire is a constant one. 
+I occupy most of my days either with simple maintenance in and around the tower, or else scanning the dense sea of trees all around me for any signs of trouble. It’s been a dry year, so the threat of fire is a constant one.
 
-This particular afternoon, I was clearing some brush from around the base of the tower that had begun to encroach on the fire road that led from my tower back to the main ranger station, twenty miles away. Even with the heavy suspension of the government-issued Jeep parked nearby, that was a harsh ride in the best of times. 
+This particular afternoon, I was clearing some brush from around the base of the tower that had begun to encroach on the fire road that led from my tower back to the main ranger station, twenty miles away. Even with the heavy suspension of the government-issued Jeep parked nearby, that was a harsh ride in the best of times.
 
-I had just finished dragging some brush cuttings off into the tree line when the radio clipped on my belt squawked.  
+I had just finished dragging some brush cuttings off into the tree line when the radio clipped on my belt squawked.
 
 “Tower Nine, this is Tower Twelve, how copy?” It was Billy Johnson, my supervisor.
 
-Nice enough guy, I suppose. Tended to leave me alone most of the time. 
+Nice enough guy, I suppose. Tended to leave me alone most of the time.
 
-I straightened up and stretched my back, wiping the sweat out of my eyes with my forearm, and keyed the microphone attached at my shoulder. “Go for Tower Nine,” I replied as I replaced the shears and bow saw to the small storage shed near the base of the stairs. 
+I straightened up and stretched my back, wiping the sweat out of my eyes with my forearm, and keyed the microphone attached at my shoulder. “Go for Tower Nine,” I replied as I replaced the shears and bow saw to the small storage shed near the base of the stairs.
 
 “John, do you have eyes on a bit of smoke North of your position?”
 
@@ -26,19 +26,19 @@ I straightened up and stretched my back, wiping the sweat out of my eyes with my
 
 As I passed by, I reached into the open door of the shack and grabbed the binoculars hanging on a nearby hook, rounding the railed corner of the walkway and turning my attention to the dark green blanket of trees stretching out before me.
 
-I saw the smoke almost immediately. A thin trickle of wispy white haze rose lazily above the canopy some distance off. Probably just some campers, I figured. Though there weren’t any approved camp sites in that area, we always had more than a few folks every season who decided that camping off-trail in the deep bush sounded like a hoot. 
+I saw the smoke almost immediately. A thin trickle of wispy white haze rose lazily above the canopy some distance off. Probably just some campers, I figured. Though there weren’t any approved camp sites in that area, we always had more than a few folks every season who decided that camping off-trail in the deep bush sounded like a hoot.
 
 Most of them come back just fine, oblivious to the danger that this wilderness presents to anyone not adequately prepared for its risks. Some of them have to brought out by Search and Rescue.
 
-Some of them just don’t come back. 
+Some of them just don’t come back.
 
-A member of the rangers or maybe even a random hiker will occasionally trip across the deserted remains of a campsite and report it in. 
+A member of the rangers or maybe even a random hiker will occasionally trip across the deserted remains of a campsite and report it in.
 
 Those are the spooky ones. The ones where the people have just vanished and left behind a perfectly set-up campsite. No explanation, no clues, just a deserted clearing, often with perfectly intact tents and personal effects.
 
 But there are bears and mountain lions, along with a handful of lesser predators that roam these forests, and sometimes they get hungry enough to stalk and even kill humans.
 
-And that doesn’t even take into consideration the much more likely probability that folks step out of their tents at night to take a piss in the woods and very quickly get lost and can’t find their way back to their camp. 
+And that doesn’t even take into consideration the much more likely probability that folks step out of their tents at night to take a piss in the woods and very quickly get lost and can’t find their way back to their camp.
 
 Most humans aren’t suited to survival in the wilderness, unfortunately.
 
@@ -54,7 +54,7 @@ After a brief moment’s pause, I sighed with resignation, “It’s probably ju
 
 “Will do. Tower Nine out,” I said, replacing the binoculars to their hook and shouldering the red canvas backpack waiting dutifully in the corner chair. I grabbed the rifle from its rack over the doorframe, checked to make sure it was loaded, and headed out.
 
-As I locked the gate behind me, I threw my pack into the back of the Jeep and set the rifle beside it. The Jeep wouldn’t get me too far before the brush made the trail impassible, but if it saved me even a half-mile of hiking, it was well worth it. 
+As I locked the gate behind me, I threw my pack into the back of the Jeep and set the rifle beside it. The Jeep wouldn’t get me too far before the brush made the trail impassible, but if it saved me even a half-mile of hiking, it was well worth it.
 
 The sun was still high in the sky; I had plenty of time to get there and back before dusk as long as I didn’t dawdle. I started the engine and put the Jeep into gear, turning the wheels towards the unmaintained trail to my right. After only a few moments, the trees and canopy obscured any trace of the watch tower behind me.
 
@@ -64,19 +64,19 @@ I was actually able to push the Jeep farther than I had expected – a pleasant 
 
 With a quiet curse, I stepped out of Jeep and grabbed my gear from the back seat. I smiled to myself as a quote from a certain fictional adventure-seeking archeologist suddenly came to mind: *We walk from here.*
 
-Making sure to mark the location of the Jeep on my handheld GPS so I could find it again, I stepped over the thigh-high tree trunk and continued along the path. According to the estimate I had made before leaving, the trail I was walking seemed to head in the direction of the smoke, which was a blessing in my book. The less time I had to spend bushwacking, the better. 
+Making sure to mark the location of the Jeep on my handheld GPS so I could find it again, I stepped over the thigh-high tree trunk and continued along the path. According to the estimate I had made before leaving, the trail I was walking seemed to head in the direction of the smoke, which was a blessing in my book. The less time I had to spend bushwacking, the better.
 
-The trail continued to narrow as I expected, and before too long I was brushing branches and leaves with my shoulders as I walked. The trees which had been alive with the chitterings and chirpings of animal life back at the tower now seemed muted. The forest around me was growing denser, feeling oddly claustrophobic at times. 
+The trail continued to narrow as I expected, and before too long I was brushing branches and leaves with my shoulders as I walked. The trees which had been alive with the chitterings and chirpings of animal life back at the tower now seemed muted. The forest around me was growing denser, feeling oddly claustrophobic at times.
 
-I checked in with Billy a couple of times, advising him of my progress and promising to maintain periodic checks. He advised me that a weather relay had come in from the ranger station indicating an approaching storm that would likely reach us before nightfall. A quick check of my watch made me wince; I had already spent more time than I had predicted it would take to reach the suspected campsite. 
+I checked in with Billy a couple of times, advising him of my progress and promising to maintain periodic checks. He advised me that a weather relay had come in from the ranger station indicating an approaching storm that would likely reach us before nightfall. A quick check of my watch made me wince; I had already spent more time than I had predicted it would take to reach the suspected campsite.
 
 Maybe it was best to turn around and head back – the last thing I wanted was to get caught out here overnight with minimal supplies and in a rainstorm. I wasn’t worried, but it sure wouldn’t make for a comfortable overnight.
 
 If I had been farther from my destination, I probably would have turned back right then.
 
-I wish I had. 
+I wish I had.
 
-Within another twenty minutes, however, I smelled the faint scent of a wood fire. Not strong, but it was there. I was even more certain of what I would find when I reached them. 
+Within another twenty minutes, however, I smelled the faint scent of a wood fire. Not strong, but it was there. I was even more certain of what I would find when I reached them.
 
 When I stepped out of the now almost nonexistent trail and found myself in a sparsely treed area amidst a dozen or so wooden shacks, I halted in surprise.
 
@@ -104,11 +104,11 @@ Something in his voice sounded off, but I couldn’t quite place it. Nervous, ma
 
 Coincidentally, it didn’t sit well with me either, I thought with a smile.
 
-“You may be right, Billy,” I replied, turning around and letting my eyes take in the entirety of the area. “I think I’ll just head-,” I stopped as my eyes caught sight of the bright yellow nylon tent just beyond the last of the structures. 
+“You may be right, Billy,” I replied, turning around and letting my eyes take in the entirety of the area. “I think I’ll just head-,” I stopped as my eyes caught sight of the bright yellow nylon tent just beyond the last of the structures.
 
 “Repeat your last,” said Billy. “I didn’t get that.”
 
-“Stand by, Tower Twelve,” I said absently, making my way to what I now realized was a small cluster of three modern tents situated around a central fire ring. The fire had been extinguished, but the embers still smoldered lowly – the source of the smoke. I looked around for the campers but didn’t see or hear anyone. Sleeping bags and electric lanterns were still in the tents, though I couldn’t find any backpacks or supplies. 
+“Stand by, Tower Twelve,” I said absently, making my way to what I now realized was a small cluster of three modern tents situated around a central fire ring. The fire had been extinguished, but the embers still smoldered lowly – the source of the smoke. I looked around for the campers but didn’t see or hear anyone. Sleeping bags and electric lanterns were still in the tents, though I couldn’t find any backpacks or supplies.
 
 “Hello?” I called out, turning in a circle and trying to pick out any signs or sounds of human life. “I’m with the forest service, is anyone there?”
 
@@ -124,33 +124,33 @@ I paused a moment, curiosity pulling me towards the footpath. “I’ll be headi
 
 “I wouldn’t screw around out there, John,” Billy replied, an edge to his voice. “Better head back now so you can beat the storm.” His last sentence didn’t exactly sound like a suggestion. Something had him rattled.
 
-I hesitated before I answered. “Acknowledged,” I said, knowing full well that I was going to check out the path a bit before heading back. Still, I didn’t feel like arguing with my supervisor about something so silly. 
+I hesitated before I answered. “Acknowledged,” I said, knowing full well that I was going to check out the path a bit before heading back. Still, I didn’t feel like arguing with my supervisor about something so silly.
 
 Just a quick walk up that path and then I’d be on my way…
 
-This path was even less established than the one I’d been on when I discovered the camp, but I could clearly see the prints of the campers in the soft dirt as I went. Before long, I emerged into a small clearing, eyes widening with yet another unexpected discovery. 
+This path was even less established than the one I’d been on when I discovered the camp, but I could clearly see the prints of the campers in the soft dirt as I went. Before long, I emerged into a small clearing, eyes widening with yet another unexpected discovery.
 
-The rough-hewn timber that framed the entryway was set into the near vertical slope of the hill face before me. It created a dark tunnel entrance that had been sealed off with a heavy iron gate many years before, likely by the parks service to keep inquisitive hikers from falling to their deaths in an old, abandoned mineshaft. 
+The rough-hewn timber that framed the entryway was set into the near vertical slope of the hill face before me. It created a dark tunnel entrance that had been sealed off with a heavy iron gate many years before, likely by the parks service to keep inquisitive hikers from falling to their deaths in an old, abandoned mineshaft.
 
 So, it had been a mining camp, not a logging camp. Huh. I didn’t know there were any mines anywhere near here. Hell, I’m not sure what they would have been mining for.
 
-Coal, maybe? 
+Coal, maybe?
 
-Gold? Did they even have gold mines in Tennessee? 
+Gold? Did they even have gold mines in Tennessee?
 
 Who knows? Certainly not me, clearly.
 
 Regardless, now that gate stood wide open on its hinges, the remains of a rusted chain and antique padlock laying in the dirt nearby.
 
-Hell. Now I couldn’t just turn around and leave. 
+Hell. Now I couldn’t just turn around and leave.
 
 Not if these dumbass campers had decided it would be fun to explore a closed and restricted mine entrance.
 
 “Tower Twelve, this is John. Do you read?” Billy probably wouldn’t be happy that I had continued my exploration after he told me to head back, but there was nothing to do about it now. I wasn’t equipped or trained for any sort of cave exploration or rescue – the rangers had very specialized teams for that sort of thing – but I could at least poke my head inside and see if I could hear the campers or at least confirm that they actually went inside.
 
-No answer from the radio. 
+No answer from the radio.
 
-I tried again with the same results. 
+I tried again with the same results.
 
 Nothing.
 
@@ -158,7 +158,7 @@ I tried a different approach. “Tower Fifteen, this is John from Tower Twelve. 
 
 There was a burst of static that sounded like it might have contained the hint of a human voice, but it was too distorted and distant to make anything out.
 
-There was only a moment of indecision before I made up my mind. I knew it was reckless to go into the mine, especially when my supervisor was under the belief that I was currently on my way back to my tower, but I just had this nagging intuition that something might be wrong with this whole situation. Maybe someone was hurt and in need of help. 
+There was only a moment of indecision before I made up my mind. I knew it was reckless to go into the mine, especially when my supervisor was under the belief that I was currently on my way back to my tower, but I just had this nagging intuition that something might be wrong with this whole situation. Maybe someone was hurt and in need of help.
 
 I couldn’t just leave them there, knowing that I might be their only chance of rescue.
 
@@ -172,7 +172,7 @@ It was a very strange feeling, oppressive, almost. At one point, I turned off my
 
 The darkness was absolute. It was almost as if you could *feel* it pressing in on you. My footsteps seemed much louder than they should have on the dirt floor and the air was beginning to grow cold and damp the farther I went.
 
-After another hundred feet or so, the smoothly carved tunnel ended abruptly in a wall of rubble. I couldn’t tell if it was a cave-in at some point or if this was simply where the miners stopped digging and hadn’t bothered to remove the debris, but either way, it certainly appeared to be the end of the line. 
+After another hundred feet or so, the smoothly carved tunnel ended abruptly in a wall of rubble. I couldn’t tell if it was a cave-in at some point or if this was simply where the miners stopped digging and hadn’t bothered to remove the debris, but either way, it certainly appeared to be the end of the line.
 
 And then I saw it. I almost missed it because of the way the light and shadows played over the head-sized rocks strewn before me, but when I looked closer, I realized I was looking at a ragged hole in the wall. It was only five feet across or so, and definitely didn’t look like the deliberate formation of the tunnel I was standing in now.
 
@@ -186,13 +186,13 @@ Just as I was turning back to make my way out of the mine, I heard the distant s
 
 Nothing.
 
-The air from beyond the breach was cold and smelled stale, old. 
+The air from beyond the breach was cold and smelled stale, old.
 
 Wrong.
 
 I felt as if I didn’t belong here. None of us did.
 
-There was a long moment of unbroken silence, and then I heard a voice again, closer this time. 
+There was a long moment of unbroken silence, and then I heard a voice again, closer this time.
 
 “Did you hear that?” it said, presumably to a companion. It sounded like a young woman. Nervous. Uncertain. “Hello? Is someone in there?”
 
@@ -204,7 +204,7 @@ Beside the askew lantern was a small, leather-bound book, partially buried in th
 
 “Hello?” I called again. I couldn’t hear the voices anymore, but the narrow beam of my flashlight illuminated another tunnel in the far corner of this room, mired in darkness. “Can you hear me?”
 
-Once again, I got that feeling that something wasn’t right. 
+Once again, I got that feeling that something wasn’t right.
 
 Then the voice came again. Closer this time.
 
@@ -220,15 +220,15 @@ I stepped forward to the secondary tunnel and raised my voice again. “I’m wi
 
 It was then, when I reached out to steady myself against the wall of the tunnel entrance, that my hand met something wet and I recoiled in disgust, thinking I had just grabbed a handful of some subterranean slime. When I shone my light on it, however, it became very clear the reality was far worse.
 
-Blood. 
+Blood.
 
 I stepped back, trying to keep the panic that was fighting to take control of my rationality at bay. I needed to keep a level head now. Panning my light around, I saw an astonishing amount of blood painting the wall and floor in front of me. Somebody had definitely been hurt, and badly. With blood loss like this, I wasn’t sure I’d be able to stabilize them long enough to get rescue in here.
 
-What the hell happened here? 
+What the hell happened here?
 
 And why did the hikers continue into the cave after one of them was injured this badly? Unless they’d lost their light and gotten turned around, there was no way for them to get lost; there hadn’t been any branches to this tunnel since I first entered. All they had to do was turn around and walk until they saw daylight.
 
-The man’s voice called again, colored with the unmistakable tinge of fear. “What the fuck *is* that? Hurry up, Becky! Take my hand!” 
+The man’s voice called again, colored with the unmistakable tinge of fear. “What the fuck *is* that? Hurry up, Becky! Take my hand!”
 
 He seemed to be getting closer, at least. If I could guide them to my voice, maybe I could get them out of here, get to higher ground, and radio for a rescue evac. They had a helicopter permanently stationed at the main ranger station – it could be here in twenty minutes if I was able to reach them.
 
@@ -240,7 +240,7 @@ I realized at that moment what I had missed previously. The woman had repeated h
 
 It was like I was listening to a recording.
 
-“What the fuck *is* that?” repeated the male voice, now even closer. “Hurry up, Becky! Take my hand!” 
+“What the fuck *is* that?” repeated the male voice, now even closer. “Hurry up, Becky! Take my hand!”
 
 Below the words, I thought I could hear the stealthy sliding of something soft over rocks. It seemed like it wasn’t too far beyond the tunnel entrance now, but I wasn’t going to wait for it. I didn’t think that what’d I’d see emerge from the darkness would be a couple of college kids who’d had a rough time of it during a weekend camping trip.
 
@@ -250,8 +250,12 @@ I quickly swung the iron gate closed on screeching hinges and looped the chain b
 
 I stood there a long moment, bent over and hands on knees as I tried to catch my breath outside of the mine entrance. When I felt the first drops of the coming storm on the back of my neck, I straightened and looked through the bars of the gate into the ominous darkness beyond, realizing how ridiculous my barricade really was. It wouldn’t do much good if something tried to get out, but at least it made me feel a little better.
 
-Until I heard the voice echoing from the mineshaft, getting closer. 
+Until I heard the voice echoing from the mineshaft, getting closer.
 
-It was unmistakable, uncanny. 
+It was unmistakable, uncanny.
 
 “Hello? Can you hear me? I’m with the parks service! I’m here to help you!”
+
+&#x200B;
+
+Part Two: [https://www.reddit.com/r/nosleep/comments/y1j653/im\_a\_fire\_watch\_lookout\_and\_i\_think\_ive\_made\_a/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/y1j653/im_a_fire_watch_lookout_and_i_think_ive_made_a/?utm_source=share&utm_medium=web2x&context=3)
