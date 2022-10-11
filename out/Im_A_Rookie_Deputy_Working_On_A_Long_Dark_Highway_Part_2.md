@@ -1,3 +1,5 @@
+(First: https://redd.it/xt53az)
+
 “I don’t know why you do those crossword puzzles. It's not as if you can spell worth a damn.” Rusty, my partner grumbled. 
 
 “They get me improve spelling weird words. Besides, what else do you have to do all night besides help me with this?” I asked tapping his shoulder with the thick puzzle book. 

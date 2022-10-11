@@ -6,7 +6,7 @@ Alois and I met while playing a MOBA game, we were both nerds and we ended up in
 
 From the beginning of our friendship, Alois would tell stories about his previous life. Everybody loved listening to him, because he was a brilliant storyteller. The story that had always resonated with me the most was a story about a haunted fortification in the suburbs next to our city.
 
-"People never liked it and every company that had bought this building quickly abandoned it" he said. "There is a story that the bad atmosphere of this place lured a group of satanists inside about twenty years ago. They were sacrificing animals and whatever they were trying to conjure, it's dwelling there now. I had been there once and I'm telling you, this place is something else. If you ever end up there somehow, do not enter the bunker".
+"People never liked it and every company that had bought this building have quickly abandoned it" he said. "There is a story that the bad atmosphere of this place lured a group of satanists inside about twenty years ago. They were sacrificing animals and whatever they were trying to conjure, it's dwelling there now. I had been there once and I'm telling you, this place is something else. If you ever end up there somehow, do not enter the bunker".
 
 "Why?" I asked. "Is there something gross inside?"
 

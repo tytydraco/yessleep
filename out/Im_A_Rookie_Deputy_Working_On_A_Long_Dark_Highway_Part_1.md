@@ -1,3 +1,5 @@
+(Next: https://redd.it/y0tc7w)
+
 I’d only been on the police force for three weeks, not even a month, when we got a call I would never forget. I hoped that call would be the weirdest moment of my life. I never want to be involved with an event stranger than the one myself and my partner went through that night. 
 
 We were working the night shift. My partner a rough and gruff guy that went by Rusty. He was the type of person you didn’t want to mess with, and hoped would be on your side if anything went down; the perfect partner for a rookie like me just learning the ropes and bound to be making a few mistakes. His teaching method was covering my ass once or twice then expect me to smarten up. So far, I hadn’t done anything wrong because our job was so boring that we simply couldn’t. Nothing happened on patrol in our small town in the middle of the night.  
