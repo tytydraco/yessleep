@@ -92,7 +92,7 @@ It was the wedding day but I reached there when it was night as the party was ti
 
 ‘Hey, there was no need for such things. Let’s see what you have brought for me.’, he unwrapped the gift and put out the ring. ‘Wow! That is truly amazing. Thank you my friend.’
 
-He put on the ring on his middle fingers and it surprising made a perfect fit for him. Also, it looked rather gorgeous on him! Everyone including his newly married wife C admired me for such outstanding gift.
+He put on the ring on his middle finger of his left-hand and it surprisingly made a perfect fit for him. Also, it looked rather gorgeous on him! Everyone including his newly married wife C admired me for such outstanding gift.
 
 Everything was fine but after putting on the ring, B started to behave a little bit unusual which was easier to me to notice than others. For example, he loved having sweet deserts after meal but that day he didn’t took his favourite deserts. Also, the style of talking and body language was changed. But that’s not in a bad way though I mean it was different than usual. He started cracking jokes on serious emotional stuffs which were definitely not suitable for a gentleman like him. People who were invited in the party were looking at him strangely as they were also able to see the change in him.
 
