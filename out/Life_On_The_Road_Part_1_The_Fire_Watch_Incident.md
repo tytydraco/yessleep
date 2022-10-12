@@ -1,3 +1,5 @@
+(Next: https://redd.it/y1nqg2)
+
 Due to some circumstances out of my control, I need to live in constant motion. If I remain in one spot for too long, well, unpleasant things tend to happen. To avoid this, I took up a nomad lift style of living out my car or in motels. Being a truck driver is out of the question because I would be requested to have certain routes. I can’t even stick to a certain routine for very long. I think this life may be hard on others, but I found myself perfectly content with always travelling. The only real downside is my bank account suffered. 
 
 In order to stay warm and fed, I took jobs most people aren’t even aware of through a Corporation regular folks should never find out about. Some of these jobs were simple. Go to one place and see if anything weird is afoot and report back. The Corporation always needed eyes on the ground and I didn’t need to solve the problem. Just confirm if there is one. I received a request to go speak with a forest ranger in a fire watch station a few days drive from my location. The job’s payment was to cover at least a month of gas so I accepted it right away.  
