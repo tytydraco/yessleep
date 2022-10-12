@@ -412,7 +412,7 @@ The name “ROSANNE” was written in bold Sharpie on it.
 
 *I’d seen that ghastly creature descending upon the small innocent town like a punishment from God, a merciless tsunami that leveled and washed everything away.*
 
-*There people that raved about it, people who had survived, but they had all either gone mad or were dismissed.*
+*There were people that raved about it, people who had survived, but they had all either gone mad or were dismissed.*
 
 *People who deserved no harm, or any such thing had died.*
 
