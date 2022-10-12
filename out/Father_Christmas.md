@@ -2,11 +2,11 @@ This all started about a year ago. None of my cousins, aunts or uncles live in t
 
 &#x200B;
 
- Everyone remembered my uncle, David for giving gifts to everyone. He would always take us shopping and spend ridiculous amounts of money on expensive toys and gadgets for the kids. My dad was driving our 8 seater hyundai van while my two sisters and my mother were fast asleep in the middle row of the vehicle. My older brother, Keeran and I were seated right behind them. We were sharing earphones and listening to creepypasta stories he had downloaded on his phone. It was getting really boring.
+Everyone remembered my uncle, David for giving gifts to everyone. He would always take us shopping and spend ridiculous amounts of money on expensive toys and gadgets for the kids. My dad was driving our 8 seater hyundai van while my two sisters and my mother were fast asleep in the middle row of the vehicle. My older brother, Keeran and I were seated right behind them. We were sharing earphones and listening to creepypasta stories he had downloaded on his phone. It was getting really boring.
 
 &#x200B;
 
-It read 12:10 am on the dashboard. It was saturday morning, Christmas Eve. It was dark outside as there were no street lights on these gravel roads. All we could see ahead of us was as far as the cars headlights went, so my dad drove slowly. As we drove on, both sides of the road were covered by forest. This is when I saw something very odd. A man was walking along the left side of the road. Keeran saw him too. 
+It read 12:10 am on the dashboard. It was saturday morning, Christmas Eve. It was dark outside as there were no street lights on these gravel roads. All we could see ahead of us was as far as the cars headlights went, so my dad drove slowly. As we drove on, both sides of the road were covered by forest. This is when I saw something very odd. A man was walking along the left side of the road. Keeran saw him too.
 
 &#x200B;
 
@@ -18,7 +18,7 @@ Maybe he was just a homeless guy who doesn't know where he's going, I thought to
 
 &#x200B;
 
-We finally arrived at my cousin, sarah's house after 11 hours on the road. It was 2 in the morning and we were unpacking our bags from the car. My brother and I were forced to sleep in the lounge as the rest of the open rooms were occupied by reptiles that my cousin had an obsession with. 
+We finally arrived at my cousin, sarah's house after 11 hours on the road. It was 2 in the morning and we were unpacking our bags from the car. My brother and I were forced to sleep in the lounge as the rest of the open rooms were occupied by reptiles that my cousin had an obsession with.
 
 &#x200B;
 
@@ -30,7 +30,7 @@ I woke up at about 11 am. My sisters were doing my cousins skin care routine and
 
 &#x200B;
 
-Keeran and I went to the car as soon as they parked and helped with all the food and groceries. Packets were filled with gammon, corned beef, and other good food and deserts. When we were done we fetched some firewood from the backroom of the house and got the fireplace going. 
+Keeran and I went to the car as soon as they parked and helped with all the food and groceries. Packets were filled with gammon, corned beef, and other good food and deserts. When we were done we fetched some firewood from the backroom of the house and got the fireplace going.
 
 &#x200B;
 
@@ -50,7 +50,7 @@ I quickly forgot about what I had experienced the night before and looked for a 
 
 &#x200B;
 
-I went to the kitchen and got a glass of water. Everyone woke up and wished everyone a merry christmas and the adults were confused about the gifts. They asked us who bought all of the gifts and we all said we didn't know. I took another look at the gifts. Underneath all of the gifts each of our names were written. They were written in blood. 
+I went to the kitchen and got a glass of water. Everyone woke up and wished everyone a merry christmas and the adults were confused about the gifts. They asked us who bought all of the gifts and we all said we didn't know. I took another look at the gifts. Underneath all of the gifts each of our names were written. They were written in blood.
 
 &#x200B;
 
@@ -58,7 +58,7 @@ At first we thought keeran was playing some sick prank on us but he said he wasn
 
 &#x200B;
 
-Later that night I told Keeran about the dream I had and he told me he saw the exact same thing. We tried figuring out what was happening so e did our research. We searched the name " Anne meyers". We were horrified when we saw what came up. The girl had died on christmas morning due to injuries she supposedly sustained from her dog. The dog was put down. An Iphone 8 exactly the same as mine  which had been bought for her christmas gift was nowhere to be found.
+Later that night I told Keeran about the dream I had and he told me he saw the exact same thing. We tried figuring out what was happening so we did our research. We searched the name " Anne meyers". We were horrified when we saw what came up. The girl had died on christmas morning due to injuries she supposedly sustained from her dog. The dog was put down. An Iphone 8 exactly the same as mine  which had been bought for her christmas gift was nowhere to be found.
 
 &#x200B;
 
