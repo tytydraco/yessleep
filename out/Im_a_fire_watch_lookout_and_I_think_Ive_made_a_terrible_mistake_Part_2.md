@@ -1,4 +1,4 @@
-Link to Part One: [https://www.reddit.com/r/nosleep/comments/y1j653/im\_a\_fire\_watch\_lookout\_and\_i\_think\_ive\_made\_a/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/y1j653/im_a_fire_watch_lookout_and_i_think_ive_made_a/?utm_source=share&utm_medium=web2x&context=3)
+Link to Part One: [https://www.reddit.com/r/nosleep/comments/xoyqld/im\_a\_fire\_watch\_lookout\_and\_i\_think\_ive\_made\_a/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/xoyqld/im_a_fire_watch_lookout_and_i_think_ive_made_a/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
