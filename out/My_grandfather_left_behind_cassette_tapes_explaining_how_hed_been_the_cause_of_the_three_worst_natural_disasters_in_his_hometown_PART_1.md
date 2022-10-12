@@ -358,7 +358,7 @@ The name “ROSANNE” was written in bold Sharpie on it.
 
 *You see…David…We’d made a mistake.*
 
-*The dam we’d trapped the shark in wasn’t a hydrodam. It was just a regular damn that only kept water at bay.*
+*The dam we’d trapped the shark in wasn’t a hydrodam. It was just a regular dam that only kept water at bay.*
 
 *The shark was only trapped.*
 
