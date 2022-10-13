@@ -1,4 +1,4 @@
-Read how my first day in Dog Wood went [here](https://www.reddit.com/r/nosleep/comments/rucdz1/my_first_day_in_dog_wood/)
+Read how my first day in Dog Wood went [here](https://www.reddit.com/r/nosleep/comments/rucdz1/my_first_day_in_dog_wood/)  [Part Two](https://www.reddit.com/r/nosleep/comments/y2uori/dog_wood_mysteries_speed_law_part_two/) 
 
 I had only been a detective for about a week before the town of Dog Wood pulled my calling card. I was still recovering from my first day, still in a daze, and just tryna get back on my feet from all the weirdness. That is until I heard my phone ring.
 
