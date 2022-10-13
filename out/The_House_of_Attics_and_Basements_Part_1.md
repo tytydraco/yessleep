@@ -1,8 +1,8 @@
 It was a few weeks ago when I realized I was being watched.
 
-It started as creaks in the attic a few weeks ago, something I blamed on mice, maybe a barn owl. Even one night when I heard two loud thumps from just above my bed, I wrote it off as the house settling, or maybe the mice knocking over some dusty family heirloom. 
+It started as creaks in the attic, something I blamed on mice, maybe a barn owl. Even one night when I heard two loud thumps from just above my bed, I wrote it off as the house settling, or maybe the mice knocking over some dusty family heirloom. 
 
-I might have ignored the sounds, but over the next few days, I began to notice additional evidence of an intruder. First, I’m careful about how much I drink, always sure to consume no more than half a bottle of wine on a given night. I always draw a careful line in Sharpie on the label, making sure I don’t go over my limit. But a week ago I found a bottle on the kitchen counter, its contents short of the mark. 
+I might have ignored the sounds, but over the next few days, I began to notice additional evidence of an intruder. First, I’m careful about how much I drink, always sure to consume no more than half a bottle of wine in a given night. I always draw a careful line in Sharpie on the label, making sure I don’t go over my limit. But a week ago I found a bottle on the kitchen counter, its contents short of the mark. 
 
 I called both the police (who took a quick report over the phone but neglected to send a squad car) and the local locksmith, who happily changed the locks on all of my doors. I also installed some wireless cameras equipped with motion detectors in several corners of the house.
 
@@ -16,7 +16,7 @@ The bottle empty, the smear walked up the stairs and over to my bedroom door, tu
 
 Now, I usually consider myself to be a level-headed type. 
 
-Once, after a car accident that completely destroyed my vehicle and left the other driver and his entire family dead, the police mistook me for a bystander due to my calm demeanor. Perhaps it was due to some kind of shock, but it’s really just my temperament. Things don’t phase me. 
+Once, after a car accident that completely destroyed my vehicle and left the other driver and his entire family dead, the police mistook me for a bystander due to my calm demeanor. Perhaps it was due to some kind of shock, but it’s really just  my temperament. Things don’t phase me. 
 
 This intruder, though, was different. Like a storm swelling some old knee injury, the Smear’s visit from the attic stirred an emotion I hadn’t felt since my early youth: fear.
 
@@ -28,7 +28,7 @@ Then, as I rooted through dusty crates, moth-eaten carpets, and portraits of lon
 
 The clock towered over me, reaching nearly all the way to the attic roof. Its body was built of carefully crafted wood inlay, dark cherry running in tight geometric patterns that curved into themselves, forming tiny fractals, the wood growing so thin in places that it seemed impossible any human carpenter could have built it. 
 
-Strangest of all, near the base, a metal plate bore strange, runic letters that I couldn’t decipher. Below these, followed a list of names, numbers, and dates:
+Strangest of all, near the base, a metal plate bore strange, runic letters that I couldn’t decipher. Below these, followed a list of names, numbers and dates:
 
 Robert Brown, 7: Dec. 1, 1692 - Jan. 15, 1705
 
@@ -54,6 +54,8 @@ I might have spent more time looking at the clock if my father hadn’t found me
 
 “There are things up there,” said my father after a few seconds. “Things a boy shouldn’t see. Probably things a man shouldn’t see either, not that any of us have a choice. Your day will come, of course. But you may as well not rush it. No need for you to go finding trouble. The Traveler will find you soon enough.”
 
+He took out his pocket knife and a fresh bottle of scotch, neatly cutting the metal top in one practiced motion. My father was a wizard with that knife, a generations old family heirloom that he’d inherited from his own father. He loved that knife more than me, sharpening it weekly and polishing its mahogany handle, which featured a small picture of the god Janus inlaid in mother of pearl. My father could peel oranges one-handed and pop the corks out of bottles without looking.
+
 He poured a scotch glass almost full and gulped it. 
 
 “How old are you?” he asked.
@@ -66,7 +68,7 @@ He handed me the glass, an inch of scotch still sloshing around the bottom.
 
 He took back the glass from my hand and waved me away. I promised not to return to the attic and kept my word as long as my father lived.
 
-The morning after I reviewed the video footage of the Smear, I dressed in my oldest jeans and t-shirt, and opened a fresh bottle of scotch for added courage. As usual, I drew a small black line in sharpie a few fingers beneath the top of the bottle.
+The morning after I reviewed the video footage of the Smear, I dressed in my oldest jeans and t-shirt, and opened a fresh bottle of scotch for added courage. I took my father’s knife from my pocket, trying to remove the top packaging as he once had, but ended up cutting my thumb. He had never bothered to teach me most of his tricks. As usual, I drew a small black line in sharpie a few fingers beneath the top of the bottle. 
 
 It had been nearly thirty years since my last trip up to the attic. I realized that I’d been avoiding it as if my father were still around to terrorize me. All the more reason to do this. I took a long drink as I reached the pull cord to the attic.
 

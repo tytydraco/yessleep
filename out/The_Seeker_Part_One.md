@@ -82,4 +82,4 @@ It was another fifteen minutes before the police, my dad, and his girlfriend sho
 I had been inches from this broken person’s grasp. I breathed a sigh of relief, but the thought of their attempt being successful stuck with me. 
 
 
-I wish I could say that the worst of it had come and gone, but as I told you before. This only gets worse over time. This was simply their first appearance.
+I wish I could say that the worst of it had come and gone but, this only gets worse over time. This was simply their first appearance.
