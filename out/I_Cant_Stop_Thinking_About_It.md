@@ -88,7 +88,7 @@ I turned and stepped out of the living room, running back to the kitchen to grab
 
 &#x200B;
 
-I could see his shiny eyes reflected in the light from my house. His break formed condensation against the glass. I held the knife up, just so he could see that I had it, but he didn’t even seem to notice… He just stared at me, and I can almost swear that he was salivating like I was a piece of meat…
+I could see his shiny eyes reflected in the light from my house. His breath formed condensation against the glass. I held the knife up, just so he could see that I had it, but he didn’t even seem to notice… He just stared at me, and I can almost swear that he was salivating like I was a piece of meat…
 
 &#x200B;
 
