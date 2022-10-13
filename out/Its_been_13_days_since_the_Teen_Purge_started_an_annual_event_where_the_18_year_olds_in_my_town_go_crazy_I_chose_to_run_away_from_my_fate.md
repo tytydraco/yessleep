@@ -1,10 +1,8 @@
 13 days since the 2022 Teen Purge. October 1st, I had hopes and dreams and the naive thought that I would actually escape this town with a smile on my face. That I would start fresh in college, and I'd never have to think about Littlewood again. 
 
-[Yeah…  no.]
-(https://www.reddit.com/r/nosleep/comments/xwjvbe/every_october_1st_the_eighteen_year_olds_in_my/?utm_medium=android_app&utm_source=share)
+[Yeah…  no.](https://www.reddit.com/r/nosleep/comments/xwjvbe/every_october_1st_the_eighteen_year_olds_in_my/?utm_medium=android_app&utm_source=share)
 
-[I'll be escaping this town with severe PTSD and a constant feeling of dread in my gut that the world is coming to an end. And I'm the reason why.]
-(https://www.reddit.com/r/nosleep/comments/xwjvbe/every_october_1st_the_eighteen_year_olds_in_my/?utm_medium=android_app&utm_source=share) 
+[I'll be escaping this town with severe PTSD and a constant feeling of dread in my gut that the world is coming to an end. And I'm the reason why.](https://www.reddit.com/r/nosleep/comments/xwjvbe/every_october_1st_the_eighteen_year_olds_in_my/?utm_medium=android_app&utm_source=share) 
 
 I'm writing this from the ruins of our old diner. This will be my last post. 
 

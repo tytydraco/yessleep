@@ -18,4 +18,6 @@ That night I begged my mom not to send me to bed but  she did it anyway. I begge
 
 When my mom {who is not religious, but spiritual} heard this she immediately called a mediator. The mediator was skeptical at first because she knew that children are good liars, but she did test in our house.
 
-The mediator looked shocked, she said that there was people in our walls, dead. She said that they were tortured by the wife of the man at a dinner party, and that the house was burned down with all the people in it.
+The mediator looked shocked, she said that there was people in our walls, dead. She said that they were tortured by the wife of the man at a dinner party, and that the house was burned down with all the people in it. 
+
+The last time I saw the girl she was with a woman, that woman had burns on her body and she said in a sweet voice,"Goodnight, Sweetie."
