@@ -200,7 +200,7 @@ The name “ROSANNE” was written in bold Sharpie on it.
 
 *I…sneezed…*
 
-*Just when I thought my heart would implode of my eyes would cry blood or I’d vomit, I, instead, had the urge to sneeze and sneeze I did.*
+*Just when I thought my heart would implode or my eyes would cry blood or I’d vomit, I, instead, had the urge to sneeze and sneeze I did.*
 
 *I sneezed the most powerful sneeze of my life – a large glob of snot landing right on the surface of the lake.*
 
