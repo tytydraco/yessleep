@@ -106,7 +106,7 @@ The cop shut the door as another police car arrived, blue lights flashing. He wa
 
 “Goddammit,” I sighed.
 
-They spoke for another minute then the two of them walked back toward me and I thought, okay, I’m just going to tell them I took shrooms and had a bad trip. But, when they opened the door, the first cop asked, “Hey, are those rose petals stuck to you?”
+They spoke for another minute then the two of them walked back toward me and I thought, okay, I’m just going to lie and tell them I took shrooms and had a bad trip. But, when they opened the door, the first cop asked, “Hey, are those rose petals stuck to you?”
 
 I hadn’t realized it, but some rose petals must’ve gotten stuck to me as I was getting out of the bath. I looked away from the officer and quietly answered, “Yeah.”
 

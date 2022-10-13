@@ -1,4 +1,4 @@
-This all started about a year ago. None of my cousins, aunts or uncles live in the same city as me so every year we go on a road trip to see each of them and their families. Last year we took a trip to pietermaritzburg. My uncle had passed away a few months prior to this paticular visit due to cancer so my aunt and her 16 year old daughter were staying alone in their huge double story home.
+This all started about 4 years ago. None of my cousins, aunts or uncles live in the same city as me so every year we go on a road trip to see each of them and their families. Last year we took a trip to pietermaritzburg. My uncle had passed away a few months prior to this paticular visit due to cancer so my aunt and her 16 year old daughter were staying alone in their huge double story home.
 
 &#x200B;
 
