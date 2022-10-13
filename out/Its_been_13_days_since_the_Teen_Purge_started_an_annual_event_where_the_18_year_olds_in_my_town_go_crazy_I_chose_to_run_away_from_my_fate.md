@@ -30,7 +30,7 @@ They passed us. I could hear their breaths, their muttering to each other. The g
 
 Once the bus started to move, keeping a firm grip on Kenji’s sleeve, I pulled us from our hiding place and lifted my head, scanning for somewhere better. The back was our best bet. When I started towards it, dragging Kenji with me, however, I spotted two familiar faces already in hiding. Jonas and Mira. Kenji let out a low grumble, and part of me couldn't belive he was still salty about Jonas in this situation. 
 
-Without speaking, we joined them, with Jonas shuffling back so I could join him, pulling a reluctant Kenji with me. It was an uncomfortable squeeze but we were safe. I allowed myself to breathe when the bus fell into a steady drive. But I didn’t have time to relax. I was considering asking Jonas in low whispers why he had chosen to hide, when once again the bus came to a jolting stop. “Forty seven?” The bus driver all but squeaked from the front. 
+Without speaking, we joined them, with Jonas shuffling back so I could join him, pulling a reluctant Kenji with me. It was an uncomfortable squeeze but we were safe. I allowed myself to breathe when the bus fell into a steady drive. But I didn’t have time to relax. I was considering asking Jonas in low whispers why he had chosen to hide, when once again the bus came to a jolting stop. “Forty six?” The bus driver all but squeaked from the front. 
 
 “What are you talking about?”
 
