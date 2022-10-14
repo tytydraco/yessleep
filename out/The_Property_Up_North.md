@@ -1,183 +1,173 @@
 [The Beginning](https://www.reddit.com/r/nosleep/comments/x1o0pp/the_property_up_north/?utm_source=share&utm_medium=web2x&context=3)
 
-We sat down on the bunk beds and began discussing what we should do next.
+I sat up quickly and looked around. Phoebe and Gretchen were crouched down next to me. 
 
-"I'm exhausted," said Gretchen. "Maybe we should get some rest and go back out in the morning."
+"It sounds like a car or something," said Phoebe.
 
-Phoebe nodded her head in agreement. "It was dangerous enough during the day…it will be so much worse in the dark," she said.
+Bright lights appeared from the trail, and then a four-wheel utility vehicle drove past us. 
 
-"I'm good with that," I said. "Why don't you try to get some sleep, and I'll stay up and watch."
+"It looked like there were at least five people on that thing," said Gretchen.
 
-"Wake me up in a few hours, and I'll take your place," said Phoebe.
+"They're headed the same way we were going," I said. "Let's see where they are going."
 
-"I'm going to need to step outside for a moment before going to sleep," said Gretchen.
+We waited until it was a safe distance away before following it. Staying far behind, we continued on the path until we couldn't hear the vehicle any longer. We slowed down before a big curve in the path and carefully peered around it. The vehicle was parked off to the side of the trail. It was empty.
 
-"Me too," said Phoebe. "Too bad there was no bathroom in here,"
+We cautiously walked over to it and noticed another fire far back into the woods.
 
-"Do you two want to go together so you can watch out for each other?" I asked.
+"The keys are in it," said Phoebe. "Do you think it would be safe to take it?"
 
-"Yes," said Gretchen. "We'll go behind the cabin."
+"I think so," I said. "It will get us to the front of the park much faster, and it doesn't look like anyone is close by."
 
-"Okay," I said. "Shout if you see anything."
+We climbed on the four-wheeler, and I started it up. It was noisy, and I was afraid the people that were on it would start running back to it. I stepped on the gas and took us rapidly down the trail.
 
-They went without incident, and then I took my turn. Once we were all back inside, I locked the cabin door and made sure the windows were closed.
+After driving for a while, it looked like we were getting near the front of the park. The trail widened ahead, and it looked like there was a big open area. I slowed down and brought us to a stop, shutting off the engine so we could hear if anyone was around.
 
-Phoebe and Gretchen went on the bunk beds while I sat at the table and began flipping through the journal.
+"I think someone's coming," said Gretchen. 
 
-The first few entries dated over a year ago and detailed a trip to Isle Royale on Lake Superior.
+We exited the vehicle and ran into the woods. Then we watched as a group of people came down the path and looked over the vehicle. While they were busy, we made our way out of the woods to the clearing. There were a couple buildings and signs for the trailheads. The sky was getting brighter with the sun beginning to rise.
 
-He wrote about seeing moose wandering around near his campsite and hearing the wolves at night.
+"There's the park office. Let's go check it out," I said.
 
-I flipped through more of the pages. There were more entries about backpacking and camping around northern Michigan and the U.P. It appeared that he traveled solo on his adventures.
+We went inside and looked around. There were brochures for sightseeing in the U.P., along with maps of the park laid out on the counter. 
 
-Finally, I made it to the section about his current trip. He wrote that he was surprised to see so many dead or dying trees in the state park. On his hikes, he often came across areas where leaves and pine needles covered the ground.
+"It smells awful in here," said Gretchen. "Maybe it is coming from back there." She pointed to an open doorway behind the front desk. 
 
-His last couple of entries were fascinating.
+We leaned in through the doorway and quickly found the source of the smell. There was a dead body lying on the floor. The chest was caved in, and a fuzzy growth covered it. 
 
-*I must have accidentally stepped on some mushrooms during my morning hike. A small cloud of spores was released into the air, and I inadvertently inhaled them. I could not stop coughing when it happened. When I stepped on them, they crumbled into dust, so I didn't see what they looked like. My arms were itchy in the areas that came into contact with the spores.*
+There was no power in the building, and there was no dial tone when I picked up the phone. We didn't see anything useful in the building, so we went back outside.
 
-*I went back to the cabin and used the outdoor shower to wash off, and there were these weird growths that stuck to my skin. After pulling them off, I laid down and took a nap.*
+"Hey! Over here," a woman's voice shouted. She was standing at the entrance to another building. 
 
-*I was starving when I woke up. None of the food I brought with me sounded good. Then I heard a noise outside and saw a squirrel running up a nearby tree. I don't know why I did what I did next, but I went out and waited by the tree. When it came back down, I was somehow able to quickly reach out my hand and catch it. I broke its neck and then built a fire and cooked it.*
+We ran over and followed her inside. She closed the door behind us.
 
-*I don't know if I zoned out or fell asleep again, but when I came too, there was a small pile of animal bones on the ground near me. I wasn't hungry anymore and felt a little more clear-headed.*
+"I'm so glad to see some normal people again," she said. "My name is Amanda." She was wearing a gray shirt with a patch on the side that stated, 'Michigan Conservation Officer.' 
 
-This was the next entry:
+"I'm Phoebe, and this is Gretchen and Brian," said Phoebe. "Do you know what is happening to everyone?"
 
-*I was starving again in the morning and went right outside. I don't know how my reflexes got so much better. There were so many chipmunks, squirrels, and mice that I was able to catch. I didn't cook them this time; I just ate them right after I grabbed them. At first, this seemed weird, but they tasted good, so I didn't mind.*
+"All I know is that it started with this weird fungus we found in the woods," said Amanda. It was about a week ago when one of my coworkers found it while going for a hike. He brought it back to look under the microscope when it burst in his face. The next day he brought some people with him to work but didn't say who they were. They were all acting strange, so I stayed away. Before I knew it, the whole staff was acting strange. I hid away from them and watched as they planted these weird things in the ground and went out for long hikes in the woods."
 
-*I don't know what is happening to me. Most of the day has been a blur; I must have blacked out. All these thoughts and feelings running through my head are not mine.*
+"Didn't you call the police or someone for help?" I asked.
 
-*There are more out there like me. I can sense it. I have to go find them and spread the spores everywhere.*
+"I did, but they never showed up. I'm afraid this may be happening in more areas than just here," said Amanda.
 
-*This isn't me. I can't fight it. It is taking over. I'm not me.*
+"Why didn't you leave?" asked Gretchen.
 
-That is the end of the journal other than the last page I saw when we first came in here.
+"I tried to, but the cars were covered with the fungus," said Amanda. 
 
-It sounds like it took longer for this guy to be taken over than it did for Todd and Sam. I'm guessing he must not have inhaled as much, which is why it took longer.
+"Same thing happened with our car," said Phoebe.
 
-I wonder how many more people are out there that have been taken over. That massive pile of bones we saw on our hike must mean there are quite a few people.
+We told Amanda what happened to us, including how they made duplicates of our friends and the fires they were making to spread the spores into the air. 
 
-As I was thinking about how dire our situation was, some noises outside captured my attention.
+"This is crazy," Amanda said. "I wonder where this stuff even came from."
 
-I quickly turned off the lantern and tried to hear where the sounds were coming from. It sounded like more branches were being broken not too far from here. Then I heard some other noises coming from the other side of the cabin. It was footsteps. And it sounded like more than one person.
+"Do you think we could take that utility vehicle out of here?" I asked.
 
-I quietly crept over to the bunk beds and gently woke up Gretchen and Phoebe.
+"I don't know," said Amanda. "It is pretty loud and only goes up to twenty-five miles per hour. It might be worth a try since I don't know what else we could do."
 
-"There are some people outside," I said.
+"I wonder how much gas is left in it," I said.
 
-Right as I finished talking, the door handle began to rattle. They were trying to get in.
+"We've got full gas cans in the maintenance shed," said Amanda. "We can pick up more fertilizer, and we should be able to find something to defend ourselves with."
 
-Then the door shook as someone slammed into it. The handle turned again, but the lock continued to hold.
+"What is the fertilizer for?" Phoebe asked.
 
-We huddled in the dark together while the people began pounding on the door. We could hear them walking around the cabin to the windows when they stopped pounding on The door.
+"I found fungicide in there yesterday and was able to kill one of them with it," said Amanda. "It took a few minutes for it to react, but then it stopped him pretty quick."
 
-I saw two silhouettes standing in front of the window by the table. There was no light inside the cabin, so I don't think they could see us. We remained motionless and waited while the figures stood there looking in the window.
+"We found that antibacterial cream worked on the things that grew out of the spores," I said.
 
-After a few tense moments, they finally walked away.
+"Good to know," said Amanda. "There may be a first aid kit we can grab too."
 
-"Should we try to go, or do you think we may be safe now since they couldn't get in?" asked Gretchen.
+"Do you want a mask?" I asked. "We're thinking it might help protect us from breathing in the spores."
 
-"I hope it means that they will leave us alone now," I said.
+"Yes, I'll take one. That's a smart idea," said Amanda.
 
-"Let's.be ready in case they come back," said Phoebe. "Did you look through the backpack?"
+After putting on the mask I handed her, she went to the door and peered outside. "It looks safe to run over to the maintenance building," she said.
 
-"Not yet, but I read the journal," I said. I shared the highlights of the entries with Phoebe and Gretchen.
+We all went outside, with Amanda leading the way to the maintenance building. There were shelves full of various supplies and cleaning agents, along with shovels, rakes, and other outdoor tools.
 
-"I wonder how many people have been taken over," said Phoebe. "This isn't a very populated area...but it looks like the spores will spread fast."
+Amanda picked up some fungicide and brought it by the door. "Let's put everything we think we'll need here, and then we can swing by with the vehicle to load up whatever we can't carry," she said.
 
-Gretchen started going through the backpack. "Hey, I found a flashlight," she said. She turned it on and continued looking. Mixed with the clothes were another flashlight and a multi-tool. A smaller pocket contained some trail mix, Clif bars, and dried fruit.
+We grabbed a couple shovels and a small tool bag to put by the door. There was also a gas-powered backpack leaf blower that I found and set by the other supplies. 
 
-"There are some face masks here, too," said Gretchen.
+"Maybe it can help keep the dust off us," I said.
 
-"What kind of masks are those?" asked Phoebe.
+The vehicle was still where we had left it near the beginning of the trail. We couldn't see it from here, but I hoped we could make it without being seen.
 
-"KN-95 ones," said Gretchen. "Maybe they'll be good enough to protect us from the spores,"
+Amanda looked out the door and said, "Hold on. Some people are coming."
 
-"Worth a try," I said.
+"How many are there?" asked Gretchen.
 
-We each took a couple masks to keep in our pockets for when we went back outside.
+"There's seven of them," said Amanda. "They are walking over by the main office. We'll have to wait until they go somewhere else."
 
-We emptied out the backpack and only put the food, multi-tool, and flashlight in so it would be light to carry.
+Phoebe reached over and grabbed my hand. "Do you think we're going to be able to get out of here?" she asked. 
 
-"Hey. Look out the window. It is bright out there," said Gretchen.
+"I hope so," I said. "I'd like to spend more time with you…it was a lot of fun at the cabin until this all happened."
 
-Bright flickering light through the trees behind the cabin sent shadows dancing around the forest.
+She smiled and squeezed my hand.
 
-"Great, they're burning all the infected wood they were collecting," said Phoebe.
+"They went inside. Let's go," said Amanda.
 
-We were staring out at the massive bonfire when a figure walked in front of the window and stared back at us. I jumped back and nearly fell over.
+We quickly grabbed all we could carry, leaving behind the leaf blower, fungicide, and a few other things, and ran toward the trail.
 
-He was holding something in his arms, and we watched as he dropped it in front of him. Soon after, another person came over who was also holding something. He also dropped it around the cabin before going back. Sam stayed and watched us.
+"Their fires must be getting bigger," said Gretchen. "The smell of the burning trees is strong."
 
-"They're putting the wood around the cabin," Gretchen said.
+We made it to the trail entrance and then ran to the utility vehicle. We loaded everything in the back and climbed in. Gretchen was right about the smell. But it didn't just smell like burning wood. It had a weird scent mixed in with it. The smell must have been powerful without the masks.
 
-I noticed the flickering light was moving closer to us. As it got closer, I realized it was two more people holding burning sticks.
+Amanda got in the driver's seat and started it up while the rest of us climbed in. She immediately stepped on the gas and drove us to the maintenance building. The door to the main office opened, and a group of people ran outside.
 
-"Let's put our masks on and make a run for it," said Phoebe.
+I jumped out of the vehicle when she slowed down near our supplies. They were only about fifty feet from me when I quickly tossed the rest of our things in the back. 
 
-I grabbed the backpack and the lantern and headed to the door. Todd was standing outside in front of the door.
+"Go, go, go!" I shouted as I jumped onto the back of the vehicle. 
 
-I turned to look out the window, watching as the two people lit the wood piles on fire. Then they continued around the side of the cabin towards the front.
+I nearly lost my grip when we started moving but was able to hold on as Gretchen helped me in. 
 
-"We're going to have to push past Todd to get out," I said, ensuring my mask was tight.
+"They're going to catch up to us!" shouted Phoebe.
 
-"I've got an idea," Gretchen said as she ran to the bunk beds. She grabbed the sleeping bag and unzipped it all the way. "Let's cover up with this."
+Gretchen grabbed a bag of the fungicide and shook it out behind us, sending the granules and a puff of dust into the crowd behind us.
 
-She ran back to the door, and we all held onto the sleeping bag holding it over us.
+We started pulling away from the group when Amanda got us up to full speed. They kept running toward us for a while and then eventually began slowing down. I watched a few of them fall over before they were out of sight.
 
-The cabin in the back had caught on fire, and I could see smoke out the window by the door.
+"The fertilizer worked!" shouted Phoebe.
 
-"Let's go!" I shouted and opened the door. We ran together and knocked Todd over while keeping the sleeping bag over us.
+We went down a winding road for a while and then came to a stop.
 
-Discarding the sleeping bag, we sprinted down the path away from the cabin. I was hoping it would lead us to the park entrance.
+"Why'd you stop?" asked Gretchen.
 
-The dirt trail was well-worn and kept us a safe distance from the trees. Gretchen The moonlight provided just enough light for us to stay on the path without resorting to using the flashlights.
+"Do you smell that?" asked Amanda. 
 
-We ran along the trail until I said I needed to catch my breath. It didn't sound like anyone was chasing us. I don't know if they gave up or were more focused on spreading the spores with the bonfires.
+I could still smell the burning wood we had been noticing for a while.
 
-"I wish we knew how far this trail went. Some of the trails up here could go on for miles and miles," said Phoebe.
+"I don't smell anything different," said Phoebe. "Just the same fire smell that has been in the air for a while."
 
-"I just hope we can find somewhere to sleep," I said. "I'm running out of steam here."
+"No. It is different," said Amanda. "It smells really good!"
 
-"Shhh!" said Gretchen. "I think someone is coming."
+She shut off the vehicle. Then she removed her mask and dropped it on the ground before climbing out. "Come on! I think it is over here!" she yelled as she began walking down the trail toward the entrance.
 
-We got quiet and listened. The sound of shoes smacking against the dirt pathway was unmistakable and getting closer.
+I looked at Phoebe and Gretchen and saw the confused expression that was likely plastered on my face as well. "What is she talking about?"
 
-"It sounds like more than one person," Gretchen said.
+"You should put your mask back on!" shouted Phoebe.
 
-I looked back down the trail after we began running away again but didn't see anyone yet. We could hear them following closely behind us every time we stopped to catch our breath. This went on for a long time, and I knew I wouldn't be able to keep going for much longer. As long as we stayed on the trail, I was certain they would keep chasing us until they got us.
+Amanda kept walking until she was out of sight.
 
-"I think we need to try and lose them in the woods," I said. "I'm not sure how much longer I can keep running."
+"Should we go after her?" I asked.
 
-"Same here," said Gretchen. "Next time the trail curves, let's head into the trees."
+"Maybe we should get out of here," said Gretchen.
 
-"Good idea," I said. My chest was burning, and I could feel my right leg beginning to cramp.
+Before we could decide, Amanda came running back toward us.
 
-After another hundred or so feet, the trail curved to the left. We followed it around the corner and stepped off the path into the trees. Phoebe led the way and stopped once we could barely see the trail. We all crouched down and waited for our pursuers to pass us by. Less than a minute had passed before two figures went running past us. Once we could no longer hear their footsteps, I was able to breathe a little easier.
+"What am I doing?" she asked. "I need my mask…no, I need to go into the woods."
 
-"Now what?" I asked.
+"I think we need to go," said Phoebe. She climbed into the driver's seat and started the vehicle back up.
 
-"I was hoping you would have a plan," said Phoebe.
+Amanda was just standing there on the trail in front of us, not moving. Then she put her head in her hands and yelled, "Fine! I'll do it!" She looked up at us and smiled before breaking into a run toward us.
 
-"I don't think we can go on the trail anymore," said Gretchen. "What if they stop and turn around?"
+Phoebe went in reverse as fast as it would go. I grabbed the leaf blower and found the primer, pumping it a few times before pulling on the starter cord. After a few pulls, it roared to life. The vehicle spun around, nearly toppling me over the side of it. Amanda was right behind us, and a gurgling noise came out of her mouth before she threw up a cloud of dust. I had the leaf blower on full power and aimed it at her face while we took off away from her. She fell backward from the strong point-blank blast of air.
 
-"If we go through the woods, we might run into more of the infected trees," said Phoebe. "Maybe we should just sit down here and wait it out until morning."
+"Turn back around!" yelled Gretchen. "We have to go past her to the front of the park!"
 
-"That might be our best option," I said. Then at least we'll be able to see what we're getting into. If we use the flashlights now, they'll surely see us."
+Phoebe turned it around as quickly as she could, and I got the leaf blower ready again. Amanda had gotten up and was in the center of the road. I blasted her with air again as we drove around her, sending more dust or spores or whatever she was spewing away from us. We continued on through the tree-lined road and eventually came to a small building on our left that must have been the check-in area. I looked in it as we went by and saw that it was empty.
 
-"I don't have any better ideas," said Gretchen as she sat on the forest floor.
+"Hey, are those flashing lights up ahead?" Gretchen asked.
 
-We all tried our best to get comfortable on the ground without making too much noise.
+Phoebe slowed down a little, and I noticed it too. It was coming from around the next corner. We went around the turn slowly and came to an abrupt stop when we saw multiple police cars and fire trucks blocking the way out. 
 
-"How many spiders and millipedes do you think are crawling around us now?" asked Gretchen.
-
-"Why did you have to say that," said Phoebe. "Now it feels like things are crawling all over me."
-
-It was a long night sitting on the ground. Any little noise had us on edge. Not much was said between us; I'm sure we were all exhausted and still struggling to come to grips with everything that had happened.
-
-My eyes kept closing, and I was drifting off to sleep when a louder noise brought me back awake.
-
-"What is that?" asked Phoebe.
-
-"I don't know," I said. "But it sounds really close.
+"They're empty," said Phoebe.
