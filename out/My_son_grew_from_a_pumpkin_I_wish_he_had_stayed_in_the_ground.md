@@ -408,4 +408,4 @@ As I got closer, it sounded like it was coming from the kitchen. There was a sou
 
 Then, as I turned the corner to the kitchen, my face gaped open as screams of terror caught in my throat.
 
-Link to Part Two: Tomorrow.
+Link to Part Two: [https://www.reddit.com/r/nosleep/comments/y45xnv/my\_son\_grew\_from\_a\_pumpkin\_i\_wish\_he\_had\_stayed/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/y45xnv/my_son_grew_from_a_pumpkin_i_wish_he_had_stayed/?utm_source=share&utm_medium=web2x&context=3)
