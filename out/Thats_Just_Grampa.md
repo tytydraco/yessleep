@@ -156,3 +156,5 @@ We're ok now, she's asleep, I gave her a sleeping pill and my bed. I'm left, try
 
 
 Any suggestions or tips from anyone who has ever dealt with something similar would be greatly appreciated. 
+
+[Next->](https://www.reddit.com/r/nosleep/comments/y44tqe/thats_just_grampapt2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

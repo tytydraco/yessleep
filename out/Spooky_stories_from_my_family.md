@@ -1,0 +1,15 @@
+ This story is when my mom still pregnant with me and let’s go back in year 1997. My mom and dad were having a hard time buying food and other necessities at that time. My dad’s driving a jeepney (it’s a type of transportation vehicle here in the Philippines) and mom’s accompanying him throughout their travel from places to places to get passengers. 
+
+Then this one time, they decided to visit this famous church near in Manila which it would take 2-3 hrs travel time. They arrived there at midnight so my dad decided to buy some food while my mom decided to go inside the church and pray. She noticed that they were only 2 people inside so she sat near the front while the other person was at the very back near the doors. 
+
+So, my mom was so focus on praying that she didn’t notice that there was another person sitting beside her. When she did, she was shocked because it’s the other woman who was sitting at the back. 
+
+She immediately slides on the opposite side and caressing her tummy. She noticed that the woman is holding something like a piece of cloth. *Maybe it’s her baby*. 
+
+The air was so cold all of a sudden and she just shrugged it off, thinking it was just a breeze since it’s already midnight. So, my mom decided to go back to their jeepney and wait for my dad there but the woman tugged her clothes. My mom let out a shrieked and got a closer look of the baby that the woman’s holding. *It was a really looking old baby with a sharp tooth, a little bit grayish skim. It was looking and smiling weirdly at her*. My mom started to sweat really cold and doesn’t feel good so she rushed into the door and waited for my dad to come back. 
+
+When he did, my dad said that my mom’s not look good and he asked her what happened. She told her everything. My dad was so totally confused because when he was about to go to the church and ask her what food does she want to eat, but *she cannot find my mom.* He thought that my mom went to the bathroom so he decided to go and buy some food. 
+
+After they eat their food, they decided to sleep inside the jeepney. At 3:00AM, my mom suddenly woke up and saw someone on the window creeping. She took a closer look and the shadow started to head towards the door, my mom freaked out and she started to wake my dad by tapping him on his shoulders. She took a glance again on the shadow and she will never forget what she saw. It was a guy or half goat with a huge horn on his head smiling at her. My mom was having trouble breathing. Somehow, my dad suddenly woke up from his deep sleep and noticed my mom freaking out. She asked her what’s wrong and gave her a cup of water to help her calm down. 
+
+She told everything to my dad and he noticed that there was no one outside and thought my mom just tired from the travel so he decided to let my mom sleep while he was watching over her.

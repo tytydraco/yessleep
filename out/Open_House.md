@@ -1,221 +1,173 @@
-My name is Amy Keener. I’m 32 years old and a real estate agent. Was real estate my great passion in life? Not especially. But it’s a job I can…excuse me, *could* do in any city and the pay was decent. 
+Not every house of death looks like one.
 
-Anyway I’m writing this all down because, well, I have an unlimited amount of time with nothing better to do. I doubt anyone will actually read this, but what the hell. I’m not sure technically when this all started, but in my mind everything began to go downhill on the day of my first open house.
+Sure, some are your classic monstrosities that seem to constantly be in the shadows and scream "if you come in here YOU will be murdered". Some, however, look like a two-story split colonial with a completed basement, an attached garage, a manicured lawn, is freshly painted, and a white picket fence out front.
 
-\*\*\*
+"So sorry we're late!" I shouted from the driveway to the realtor who was waiting at the door. We were fifteen minutes late and I was the only one in my family who noticed or cared.
 
-I had arrived somewhat early to my first real open house viewing. I was busily arranging and rearranging the flyers for the property on the kitchen island, and very much overthinking their placement. I grabbed the box of gourmet cookies (I wanted to make a good impression with something other than the typical Safeway fare) and placed them on a shiny large serving plate, but not before sampling one of the cookies myself. I almost forgot to sprinkle some business cards throughout the various rooms, but finished just in time for the first guests to arrive.
+"Nonsense! Hello, hello, please come in. Welcome to your new house" The realtor said cheerfully. "So there's four of you?"
 
-Overall it went slightly better than I had anticipated; I had psyched myself into memorizing all the minute details of the property, and preparing answers for all the potential questions that could arise. But I didn’t get to field any oddball queries or even any challenging ones really, save for one middle-aged man who simply didn’t say more than three words. I wondered momentarily if he had ever had a family, or what in his past had led him to this point. But I digress; he isn’t important in this story. I’ve just re-lived this seemingly nondescript moment in time in my head for what feels like millennia. Anyway, everyone was vaguely interested with the flat politeness of window-shopping. 
+"Yes, I know on the phone I said that it would just be three of us, but my husband decided to come along." I did my best to smile as I shoved my family along. My husband, who definitely did not want to come along, immediately perked up at the sight of the gorgeous realtor and her very low cut outfit.
 
-Once I was satisfied that there would be no more guests for the day, I gathered up my stuff, snagged another cookie, and locked up. At this point all my adrenaline had worn off, leaving me drained and wanting to kick my feet up with a slice of pizza, a cold beer, and a long hug from my boyfriend Cooper.
+"Oh, that's... great, the more, the merrier," the realtor looked off and then snapped back into uber-cheer-mode, "besides, this house is great and you all will love it!"
 
-Cooper greeted me with a big smile and that much-desired hug as soon as I entered our apartment. 
+"Well, if you come with it!" My husbad said. To him, this was both charming and hillarious. My two kids groaned. That was the most responsive they have been all day. Despite my family's need to move, none of the other members of my family seem interested in participating. As always, it's up to me, the mom. The realtor laughed at my husband's sexism because she felt she had to.
 
-“How’d it go babe? Did all that preparation pay off with a huuuuuge sale?” 
+"Ha ha," I was mortified. "But I can't believe this house is still on the market. It's perfect."
 
-“Not quite,” I replied. “But it was easier than I thought it would be. It was definitely a bigger deal in my head,” I said with a laugh. 
+"Well, you made my job easier. But since we've come all this way, let me show you around before we make it official." The realtor stood in the door way, beckoning us towards her.
 
-“Well, better to be over prepared than under, right?” Cooper offered with another winning smile. I just nodded and melodramatically fell into him with a giggle. 
+I stuck my hand out. "Hi, I'm Justine Flood. This is my husband, Dave. And my two beautiful and charismatic children, Kyle and Babs." The realtor gave me a hearty shake.
 
-We had a relaxing evening together, complete with pj’s, pizza, and cold beers, just as I had needed. 
+"Hello," she cooed, "my name is Lillian, and I am going to sell you this house today." My husband's sweaty hand shot out eagerly for the first chance he could touch this woman. She offered her hand as if she was a dainty princess and my husband gushed.
 
-A few hours into our Netflix-and-chill, I realized with dismay that I had left the heat cranked up at the property earlier. It was a chilly morning, and I had wanted the guests (and myself) to be comfortable. In my haste to get home after a draining day, I must have totally forgotten to turn it back down. Damn it. 
+"Gosh, this area sure is beautiful." He said, looking directly at the realtor's breasts, "Beautiful and huge."
 
-I begrudgingly peeled myself off the couch and started to trudge upstairs to put on some pants. 
+The realtor shifted her body as quickly as possible. She glanced at my teens who were glued to their phones and decided to not try to shake their hands. Lillian could have been naked and on fire and they would not have noticed. "Ahem, yes. Lots of space to run and play here." She said and directed us inside. As we shuffled in, the realtor slammed the door closed behind us. "Now, as you can see, this door is plenty heavy and secure." She turned a bolt and we heard a loud \*ka-chunk\*. "Honestly, someone could take a sledgehammer to this door and it is not budging." She said with her plastered on smile.
 
-“Where ya going?” Cooper called from the sofa. 
+The house opened up to a living room with a hall on the right that lead to the bed rooms and a hall to the left that lead to the garage, dinning room, kitchen and garage (I came prepared). "Now, as you can see, this living room is huge. It has excellent accoustics and this carpet is the best. You can spill anything on it... and I mean anything and no one would know. There could have been a pool of blood where you are standing a week ago and this carpet just absorbes it up." I side-eyed my family to see if they found this selling point to be odd. But my husband was looking at Lillian's ass and my kids were not paying attention.
 
-“I left the heat running at the open house. I have to go back and reset it,” I said. 
+"Yeah, sure is fine," Dave said, "Isn't it great kids?" They mumbled something.
 
-“Dang…well, please drive safely. You’re good to drive, right?” he inquired. 
+"Now let's go down the hall to the bed rooms." Lillian gestured. My husband chuckled at the idea of going to the bed room with her. My kids followed, I am unsure they knew we were in a new house. "Now, as you can see, down this hall there are four bedrooms. Each of them can lock from either side and they are totally soundproof!" Lillian said with a smile. "Why don't each of you pick a room and see... or should I say... hear for yourselves." My husband laughed at her 'joke'. The kids finally snapped to attention when they figured they could be picking their new room and jockeyed for the largest. Everyone quickly went into a room and slammed the door. Lillian and I were in the hall way, "Please, try a room. I promise you won't hear a thing!" She said, the tip of her smile twitched.
 
-“Yeah. Pizza is a pretty good booze sponge.” 
+I picked an unoccupied room and closed the door. "Ah." I said blandly as if to test the soundproof-ness. While that is nice, I was curious as to why that was a feature? I looked around the room. It was very cold. There was no furniture or anything making the whole room incredibly bleak. I opened the closet. It seemed normal until I turned on the light. Inside the closet there looking to be scratch marks in the wall. It was almost as if something was dragged away and really didn't want to go. "Huh," I muttered, "the last owner must have had a dog? I guess I can plaster over this later." And shrugged.
 
-He chuckled. “Ok, if you’re sure. I’ll be right here waiting for you” Cooper replied, while making goofy “sexy” poses with mock seriousness. 
+I went back into the hall way. Dave, Babs, and Lillian were there. Babs was back to her phone and Dave was telling Lillian about a fish he caught last week. "OK, good, we're all here, let's explore upstairs." Lillian cheered.
 
-I smiled. “You’re ridiculous.”
+"Um, where's Kyle?" I asked, looking around for my son. I looked into the room he scampered into, but it was empty. "KYLE!?" I called out in a panic.
 
-\*\*\*
+"Oh, Kyle told me that he wanted to explore the house on his own. He said we were slowing him down. HIC!" Lillian hiccuped loudly. "Excuse me." I didn't notice before, but Lillian was a little chubbier than I thought. I mean, all the power to her, but she just seemed heavier now. The buttons on her shirt seemed to be straining to stay closed. And her belly was forcing pushing her pants to the limit. Ugh, it's rude of me to say, I know. Just, as a chubby woman, I usually notice other successful plus sized women and I don't remember Lillian looking as round as she did now.
 
-The automatic lights popped on as I made my way up the driveway and punched the code into the hefty lock box on the door. I made my way inside the property, headed straight for the antiquated thermostat. Man, a new high-tech one would have saved me a trip, as most of these things now have their own app and control functions accessed from anywhere. Sigh. I’ll just have to be careful not to make more silly rookie mistakes. Hey, at least I didn’t leave the stove on, right?
+"That sounds like him. Punk kid thinks he knows better than everyone. Not like we need him for this anyays," my husband barrelled ahead. "Please, darling, continue the tour."
 
-I made my way through the rest of the house, making sure everything was good to go and I didn’t forget to do anything else. As I came through the kitchen on my way out, I happened to glance up at the tacky yet charmingly vintage 70’s sunburst clock on the wall. It read 9:02 pm. I was glad it wasn’t too late and I’d still have a fair amount of relaxation time left before bed. 
+"Right this way." Lillian turned and led us back to the dining room as I watched her thick ass jiggle with each step and the stairs creaked under her feet.
 
-Suddenly, the kitchen light went out. Confused, I flipped the switch a few times. The bulb must have burnt out. Shoot. Guess I needed to make a pit stop at the hardware store for a new bulb before the next open house the following weekend. I could just barely see a glow around the staged kitchen furniture from the driveway lights as I cautiously walked toward the front door. 
+We climbed up the steps, everything was very standard. Lillian pointed out the great closet space with locks on the outside, the number of crawl spaces that one could hide in, and the ample area to keep and hold several extra guests. There was even an extra kitchen upstairs to "store excess meats" in. And while her phasing was specific and not necessarily something I would be interested in, I could not deny the space was great. We then went back downstairs. Kyle was no where to be found.
 
-With no sound or warning, a small figure popped into existence in front of me. My heart leapt into my throat as I jumped back with a small shriek. With this motion I hit the wall and sat down hard, my blood pulsing in my ears. It was so dark that I questioned even seeing anything at all, and timidly peered into the gloom. 
+"Now," she patted her chest and belched under her breath, "urp. pardon. Now this dining room is incredible. As you can see, there's room here for a long banquet table if you're ever hosting a feast." Lillian licked her lips as she looked at Babs. "Plus, with the access to the kitch \*hep\* right through these doors, you can be enjoying your meals in just a matter of... minutes." We looked around. I noticed the steel bars around the windows. They were sturdy. As I checked out the lighting, Lillian chimed in, "let's move on to the garage, shall we?" Her smile seemed wider.
 
-There was definitely something there. The subtle light filtering in through the kitchen window barely illuminated a small form, about 3 feet tall. What little light there was reflected off extremely wide eyes, tiny pinprick pupils, with seemingly no eyelids. A smile with far too many teeth stretched from ear to ear (if there were ears, I couldn’t tell) as this….*thing* just stood there staring at me. I immediately thought of the “Jeff the Killer” face that made its way around the creepy-pasta obsessed forums online. The utterly disturbing face in front of me was almost identical. Was I seeing things? What the hell was happening? This couldn’t be real, right?
+As we went from the kitchen to the garage, I noted that Lillian sniffed Babs as she passed. But with all of the perfume teens wear these days, I'm probably nose deaf to it. "Oh Babs, dear." Lillian called out. "this garage gets terrible service. Something to do with the solid concrete walls. If your texting is important, you might want to stay in the dining room." Babs perked up.
 
-As I sat with my heart thumping out of my chest, I breathed heavily with my head down, arms crossed over my head. “Relax Amy,” I told myself. “It’s just the darkness playing tricks on your tired brain.” As my breathing slowly wound down to an almost normal pace and I was about to lift my head, two small dark feet appeared next to me. This time I let out not a small shriek, but a genuine scream as I curled up into a defensive ball against the kitchen wall. 
+"Oh? Huh. Yeah. Thanks." She said and she stopped walking with us.
 
-At this exact moment, the lights came back on coupled with the feeling of a heavy blanket being lifted from the room. Trembling, with my heartbeat still pounding in my ears, I painstakingly uncurled from the fetal position and looked around. The kitchen seemed untouched and was exactly as it was before the lights cut out. My eyes landed on the sunburst clock, whose minute hand promptly clicked to 9:03 pm. In a string of unnerving events, that struck me as additionally unnerving. I must have had my head down trying to calm myself for at least several minutes, so how was it that the clock was just now landing on 9:03 pm? What the hell just happened?
+"Um, honey," I called out, "this is important. This could be our new house, you should stay with us. I'm sure whomever you're texting can wait."
 
-With shaky legs, I used the wall to steady myself as I stood up. I gingerly stepped over to the light switch, took a deep breath, turned the lights off, and bolted to the front door as fast as my legs would allow. I hastily checked that the door was locked with the key secured in the lock box, and nearly sprinted to my car. My blood was still pumping loudly as I got in my car and sped away.
+"Nonsense!" Dave undermined me immediately. "If Kyle gets to explore, so should Babs! We'll probably end up buying this place, so they'll have plenty of time to pretend to care about the garage." I was furious, but that's all Babs needed to leave the garage and she was gone. Lillian showed us how the reinforced garage door were also, you guessed it, sound proof and could "keep a buffalo out" (whatever that meant). Lillian then showed us the attic above the garage. She pulled down a string and a ladder unfolded.
 
-\*\*\* 
+"Now up here, well, why don't you two check it out. I forgot something in the other room. I'll be right back." Lillian turned back.
 
-By the time I got back home, my heartbeat had returned to normal and I was convinced that I had hallucinated the entire thing. “Stress isn’t kind to the mind” I repeated to myself on the drive home. I’m not sure I ever really believed that, but I definitely needed to do something to self-soothe at that particular moment.
+"What'd you leave?" I called out.
 
-Cooper sensed my distress as I came through the door. 
+"Don't ask that, she's a professional." Dave answered. "This one, am I right? Always with the questions." He laughed to Lillian while pointing at me. Lillian smiled automatically and then sauntered out.
 
-“Geez, are you ok? You look spooked!” he said. 
+"WHAT is wrong with you?" I smacked Dave in the face as soon as the garage door closed.
 
-“I’m fine,” I exhaled. “Just thought I saw something. But I’m exhausted, so…” 
+"What the fuck?!" He shouted.
 
-Cooper walked over to me and scooped me up. 
+"Don't you think this is weird?"
 
-“Let’s get your butt back on this couch and relaxed.” 
+"What? How clean this garage is?" He shrugged.
 
-He turned on the TV and tucked a blanket around me with a kiss on the forehead. We watched some silly sitcom for about 15 minutes before I promptly fell asleep, safely wrapped in the cozy cocoon of Cooper’s arm around me.
+"Where's our son? Why is this place sealed up tight and why is every room sound proof? Doesn't it seem weird that Lillian gained weight in the twenty minutes that we've been here? Why are all of her selling points related to how many bodies can be stored in here?" I pulled out my phone, there was full service, "and there's service here, we need to get our daughter before..." Dave grabbed me and snarled.
 
-\*\*\*
+"Before what, Justine? What are you sayin? You're upset that this house is safe and protected? That there's privacy? And maybe she knows what a psycho you are? And I'm sorry and you insinuating that the realtor broad what? Ate our son and is about to eat our girl?" He rolled his eyes and instantly made me feel small. "And your proof that there's cell service in the garage? Way to go Van Halenside, you cracked the case." He shoved me. "How dare you hit me. Why are we here? Why are we looking for a new home, eh? Before you start accusing other people of being monsters again..."
 
-The next morning was uneventful. After a round of eggs and toast, I grabbed my thermos of tea, business cards, folder of pamphlets, cookies, and headed out to the next property showing. 
+"Sorry, am I, \*BURP\*, interrupting something?" Lillian appeared in the door, she was dabbing the sides of her mouth with a hankercheif which she then tucked into the pocket of her mumu that clinged to her even larger figure. She noticed our faces of shock. "Oh, I apologize for the costume change, but my suit just burst... ripped... on a nail. So I had to change. Don't want to be \*HIC\* unprofessional." Her massive size blocked the door. "Excuse me," she tapped her chest, "must have been something I ate." She smirked.
 
-Upon arrival, I once again set out preparing a nice display of treats and flyers on the entryway table. Thankfully my anxiety was much less than it had been the previous day, and I felt like I had a handle on how this would go. I made my way around the house, making sure everything was in order, eventually ending up in the kitchen...except something was extraordinarily wrong.
+"Um, honey." I turned to reach for Dave but my loving husband was no longer by my side.
 
-A vintage sunburst clock hung on the wall. The furniture was woefully familiar, and my heartbeat immediately began to rise. This couldn’t be! There was no way this house had the exact same kitchen as yesterday. I had been to this property before, and its kitchen had a sleek, modern design. In a panic, I raced outside to double and triple check the house numbers. This was indeed a completely different house, yet as I ran back inside the tacky 70’s color scheme glared back at me. What the hell was going on?! 
+"You know, I'm going to check out this attic." Dave said as he got to the top of the ladder and Lillian moved closer, her giant belly leading the way. "Um, better yet, I'll check it out by myself." He quickly pulled the ladder up and left me alone.
 
-Suddenly, all light was sucked from the room like a candle being snuffed out. The kitchen went stunningly dark as my eyes happened to catch “9:02 pm” on that damn sunburst clock. A feeling of immense dread came over me in a wave of confusion. Just as suddenly, a small figure appeared from nothing in front of me, staring, smiling, unmoving. I shrieked as I was engulfed by the sensation of my own pounding heartbeat. Those eyes, that unnatural grin, and the cacophonous pulse of my blood was all there was in that moment. 
+"What an asshole." I muttered to myself as Dave pulled the attic door shut.
 
-And then as abruptly as it came, it was gone. The kitchen returned to its chrome-accented state, the sunlight poured in through the windows, and the stove clock read “10:05 am.” I wiped a patina of sweat off my forehead with my sleeve, as I tried to slow my ragged breathing.
+"Looks like it's just us," Lillian said as she walked up next to me and wrapped her meaty arm around my shoulder.
 
-What the fuck was happening to me?
+"Oh, I'm sure Dave will be right back, how long can you look around an attic?" I chuckled anxiously.
 
-\*\*\*
+"Oh no, that door only opens from down here," I could hear her belly churning what I'm assuming is my kids, resulting in another belch. "\*BURP\* Oh, excuse me. Something is just not agreeing with me."
 
-After the guests had trickled to a halt for the day, I locked up and sat in my car for a moment before reaching for my phone. I scrolled through my contacts until I found the number I was looking for. 
+"Teenagers are like that," I said under my breath.
 
-“Hey, Kate? It’s Amy. How are you? It’s been far too long.” 
+"Mmm, what was that?" Lillian continued to lead me out of the garage.
 
-Kate and I were old buddies from college, and she remained one of my closest friends. She also happened to be a big fan of the supernatural, so I figured it was probably time to discuss my alarming experiences. I had of course contemplated telling Cooper what was happening, but I didn’t want to burden him with worry. He had just landed a new client and was already putting in extra hours, so I wanted to spare him the additional stress over my mental well-being.
+"No, nothing. Um, where are we going? I feel like we've seen everything."
 
-Kate and I planned to meet up for drinks that evening. It would be a small relief to get this unnerving experience off my chest, and I was honestly curious to see what she thought about it. 
+"We still need to look into the kitchen." Lillian said through her smile.
 
-The drive home was a blur of processing and inner-monologuing. I was just stressed...right?
+Because of her new size, Lillian practically pushed me through the door and followed behind. She had gotten so wide that it was a tight squeeze for her, amplified by a slight grunt.
 
-\*\*\*
+"So this is an incredibly modern kitchen. All new appliances, including my favorite, this oven. Why it's so big, you could put a person in it." She said through her plastered grin.
 
-I tackled a few chores at home for a few hours, made myself some mac and cheese with a salad for dinner, and went upstairs to shower. It had been quite a while since I had anywhere to remotely dress up for, so I was feeling chipper, despite my experience from earlier. The prospect of putting on a nice dress and grabbing drinks with Kate had definitely lightened my mood. 
+I looked at the island in the kitchen, "and enough storage under here. Wow... this is... nice..." I chuckled. Lillian did not chuckle, she just got closer to me.
 
-I stepped out of the steaming bathroom and rummaged through my closet. My favorite little black dress (cliché, I know) would do nicely for tonight. I wriggled into the soft stretchy fabric and thought about how delicious that dirty gin martini would taste as I dried my hair and put on some tasteful makeup.
+"Why don't you try getting in there?" Lillian gestured to the oven. "It's fun."
 
-Heading down the stairs, I texted Kate that I was leaving and grabbed my purse off the coffee table. I also shot Cooper a quick text that I was going out to meet Kate, in case he got home before me and wondered where I had gone.
+"I-I'm actually not into cooking, I usually order in" I said while patting my belly, "that's why I've been been putting on some weight recently."
 
-I stepped into the kitchen, noticing that the time on the tail-swinging, eye-shifting cat clock was 9:02 pm. Weird coincidence, I supposed. I was unfortunately wrong. The lights flickered once and went out, plunging the kitchen into darkness. I could just barely see the outline of the sunburst clock where the playful cat timepiece had been literally a second before. 
+"No kidding? Me too," Lillain taunted. "Get in the oven." She barked.
 
-As my heartbeat began thudding in my chest and I thought, “for fuck’s sake, not again!” there it was. That impish figure, defying all logic or reason, grinning at me from a few feet away. I blinked, and it blipped closer, causing me to flinch backward and trip over the small step stool behind me. I fell clumsily against the stove, panicking as tears welled up in my eyes. This could not be happening. It didn’t make any sense!
+"So, Lillian, how long as this house been on the market." I said, starting to tear up.
 
-I closed my eyes, reasoning that if it was indeed just stress, it would go away if I willed it. I desperately tried to ease my heavy breathing and shakily wiped the tears that rolled down my cheeks. “This isn’t real...this isn’t real…” I asserted to myself, over and over.
+"Oh, it seems like forever." She continued to smile, "Lots of people come by. But even though it's a great house, no one ever seems interested in \*HIC\* staying around too long."
 
-Eventually I mustered up the nerve to open my eyes. Two tiny constricted pupils ensconced in dinner plate-sized white globes stared at me from so close that I could have reached out my tongue and touched them. The enormous crescent moon smile full of too many disturbingly human-like teeth leered at me from inches away. I screamed louder than I ever thought possible.
+"That's surprising. It's a great neighborhood and the price on this house is really affordable."
 
-\*\*\*
+"I know right?" Lillian kept trying to get close to me, but I kept walking around under the pretense of looking at the house.
 
-Kate’s face lit up with a genuine smile as she spotted me walking across the bar towards her. Her smile faltered for a second as she sensed my subdued distress. 
+"Huh, I wonder where those kids are?" I said, trying to get her to admit to what she's done.
 
-“Amy, are you alright? It’s so good to see you,” Kate said as she stood up and gave me a bear hug. 
+"Oh, you know kids, I bet they're closer than you think." Lillians now chubby cheeks made her wide grin seem more terrifying. She's literally just playing with her food at this point. Part of me wanted to just join my kids, but that's not who I was. I was a fighter, a killer, I've been through too much to get eaten by this monster in this house. This house, which I have been told is sound-proof and escape-proof. This house, which I have now put together, is a trap for this monster to feed. What luck.
 
-“I’m ok...just...frazzled. It’s actually partially the reason I wanted to hang out tonight. I wanted your opinion on something. And yes, it’s really good to see you too,” I replied with a small smile of my own. Kate just had a way of easing my troubles.
+"You know," I started walking towards Lillian, who was slightly taken aback by my confidence. I was faking it, but I had no other options, "you know, I bet this house gets a lot of visitors. I'm sure open houses are just a wild buffet... of potential buyers?"
 
-After some catching up and a martini (which was indeed delicious), I told Kate in detail about what I had been experiencing. She chewed absentmindedly on her straw, pondering what I had just told her. 
+"You have \*HIC\* no idea." Lillian purred.
 
-“You know I’m a sucker for demonology and ghosts,” she offered. “But honestly Amy? This sounds like anxiety-induced hallucinations. I know how hard you were crunching for your first property showings, and how you wanted to nail those open houses. Normally I’d jump to “oh you’ve got a demon problem,” but stress seems more likely. A panic attack of sorts, especially since it’s been manifesting as that first house’s kitchen. You were super worried about that day.” 
+"But I bet this house gets a little... too crowded... too full, for four people. I bet this house would have been way more comfortable if just my kids and I showed up as planned." I was in front of Lillian, trying to establish dominance. My heart was racing and I could feel myself sweating. "So how about this? I leave. My shitty husband stays. And you never see me again?" I could see the wheels turning in Lillian's head. "Not to mention, I'll leave a positive review online. I bet you don't end up with too many of those." I poked her belly which forced out another belch.
 
-“Wow Kate, I come to you with a supernatural goldmine and you give me ‘stress hallucinations?’” Who are you and what have you done with my superstitious, horror-movie obsessed friend?,” I offered with a chuckle. “That’s basically what I’ve been telling myself too. It’s the rational explanation. But I feel like I’ve got a handle on the ‘biz, so why is my brain still manifesting apparitions?”
+"No, I generally don't leave too many people alive for that," She mused, dropping the facade for a moment as she drummed her fingers on her stomach. "I am already pretty full. And who would believe you anyways?" She then grinned and held out her hand.
 
-“I don’t know Amy,” Kate replied, her straw now mangled to a shredded lump. “Perhaps it’s cumulative; I know you were kinda on edge for months around your training, finding a job, worried about impressing the real estate company, all of it. Burnout is a real thing. I bet you need a vacation.”
+We walked back into the garage. I went up to the attic door and pulled the drawstring. Sure enough, my cowardly husband came tumbling down.
 
-I sighed. “You’re probably right. I can be a bit high-strung when I start something new and I can’t remember the last time I had proper time off. I’ll keep deep breathing and lay off caffeine.” 
+"What's a matter Dave? Couldn't come down to save me?" I said coldly.
 
-“But gin is totally fine,” Kate interjected with a smirk. 
+"Oh, Justine, I knew you'd be alright. You're so smart." Dave groveled on his knees. He couldn't even look me in the eyes. "You're so smart and strong. I knew you could beat that monster." I started walking towards the kitchen and he got up and followed behind me. "You're so strong and beautiful. I figured I would just slow you down." I entered the kitchen with him still following me like a pitiful animal. I refused to make eye contact. "Say, how did you defeat her? I know you say you killed monsters before, but what happened with her?"
 
-I giggled, finishing my last pimento olive.
+"Simple, I fed her." I opened up the large oven door and looked back and saw the monsterous Lillian quietly crawl out from underneath the kitchen island. Despite her massive frame, she stealthfully rolled out and positioned herself behind my soon-to-be-ex-husband. His dumb confused face would be the last expression he would ever make as Lillian unhinged her jaw and closed it around Dave's head. She slurped and chomped and gulped. Her strong arms were shoveling him back despite his best to wriggle free. In a matter of moments, Dave was gone.
 
-\*\*\*
+"What a meal!" Lillian shouted as she belched triumphantly. The now once thin realtor was an spherical monster. Her belly, consisting of my family, blorped and churned as she licked her fingers, savoring the last of my husband. "You were right, this house," she patted her belly, "gets too crowded. I am \*Urp\* stuffed." She used her long nail to pick her teeth as I stood there blinking.
 
-Feeling a bit more relaxed than I had in several days thanks to Kate (I’m sure the martini had absolutely nothing to do with it), I strolled up the driveway eager for Cooper to see me all dolled up. Plopping my purse down in the entryway, I called out “hey babe, I’m back!” 
+It took some doing, but she was finally able to hoist herself up after a moment. "Can I go?" I asked meekly. She nodded, rubbing her belly.
 
-Cooper responded with a loud “Hey Amy, I’m upstairs. How was it? Did you have fun with Kate?” 
+"WAIT!" She called out, making me jump, "you're \*hic\* husband said you killed monsters before... what the fuck did he mean by that."
 
-“Always,” I shouted back as I rounded the corner to the living room. 
+"Oh, it's nothing, I really should go." I said quickly.
 
-Suddenly something didn’t seem quite right. Cooper was clearly standing smack dab in the middle of the living room, but his voice had undeniably come from our bedroom on the second floor. He stood completely motionless, and I mean *completely*. More stationary than any human could ever hope to be. I couldn’t even see him breathing. “Cooper? How did you get down the stairs instantly?” I said, feeling more unsettled with every step I took. No response. “...Cooper? Are…are you ok?” 
+"Take one more step out that door and I'll eat you. I don't care if I \*urp\* explode." Lillian threatened. I stopped and smiled since my plan was starting to come together.
 
-“Where are you sexy? I said I’m upstairs!” came Cooper’s voice from the second floor. 
+"Well," my eyes widened, "I have always believed that there are monsters out there walking among us. And most of them are fine and good and just want to live a life. But some, as you know, are the stuff that nightmares are born from." I walked back closer to the kitchen, Lillian smiled at the idea of being the cause of nightmares. "So a few months ago, I was living a simple life when all of a sudden, I was out for a jog and I was attacked by a 'man' with two sets of teeth, impossibly long arms, and yellow glowing eyes. Is that a relative of yours?"
 
-What the hell? Did he take up ventriloquism as a hobby and become a pro when I wasn’t looking? Something was definitely off and I felt my skin start to prickle. I cautiously shuffled towards him. The way Cooper was standing, his back was to me and I had a strong panicky feeling that I might discover his face all contorted or something equally disturbing. All those horror films I had watched late at night came rushing back through my mind’s eye, making my heart thud against my chest. 
+"Don't be racist" Lillian responded, out of breath and clearly still uncomfortably full.
 
-I ever so slowly leaned sideways to look at Cooper’s face, bracing myself for a horrific sight. All I could hear was my own uneven and quick breathing. Cooper looked normal; he was still as a marble statue, but other than looking frozen in time nothing appeared to be wrong on the surface.
+"Sorry, anyways, while he was attacking me, I lucked out and kicked onto neighboring train tracks. His foot got stuck and he was obliterated by an oncoming train. The cops didn't even think I was attacked, let alone by a monster. They just wanted to know why I was jogging so late. Thankfull there were enough bruises for most people to believe me. But they all thought it was just a mugging gone wrong. But a few weeks later, I discovered my neighbors were also monsters. I went to return a piece of mail when I accidentally saw them speaking to each other with mouths in the back of their heads." I paused, but Lillian was nonplused. "So that night, I set their house on fire after strapping them to their beds." Lillian seemed impressed by that. "But the problem was that their bodies burnt up so it looks like I just killed my human neighbors. My poor family didn't believe me. But we had no choice to move and move quickly." I extended my arms, "and here we are."
 
-“Cooper?” I reached out my hand timidly and felt his skin. He felt exactly the right temperature and I could still feel a faint pulse on his neck. 
+"Ah, so while you're out there killing monsters, your family believes you're killing regular people." Lilliam summarized.
 
-“What the heck are you doing down there Amy? Come upstairs! I know you missed me,” came Cooper’s resonant voice. 
+"I think they would rather stick with a murderer than go through the trouble of leaving me. Besides, they wouldn't last three days without me." I shrugged. "But I like your method. No bodies left behind. No evidence. Clean."
 
-I nearly leapt out of my skin at the sound cutting through the eerie silence, made even louder in my current state of alarm. With the steady ‘thump thump thump’ of my heart in my ears, I realized something so unnaturally creepy that my breath became even more ragged and urgent: Cooper’s lips hadn’t moved *at all*. Pro ventriloquist or not, all performers gave away some small movement when throwing their voice. Cooper remained completely and inhumanely frozen. In fact, he reminded me strongly of a store mannequin with a vacant hollow cast to his eyes. Like he was a representation of a person, but was merely a shell. I became seized with fear and began to tremble slightly.
+"Yeah, except for some outgrown clothes and the worries of getting too fat, it's pretty good." She smacked her belly and let out another belch, "and the indigestion is killer sometimes."
 
-Suddenly with an abrupt flicker, Cooper ceased to be. He was just gone. Seemingly removed from existence like someone took Photoshop’s eraser tool to reality. I audibly gasped, my voice wavering uncontrollably, “Cooper? Cooper! Oh my god, what the flying fuck?!”
+"Yeah, I'll try to remember that after I eat you." I said as I started to run. The monster looked as confused as Dave did as I lunged across the island and shoved the monster back. Her new heft had her uneasy on her feet and the momentum of her belly caused her to topple back. Topple back into the giant oven that I left open which, as advertised, could fit a person... or amonster. I used my forward momentum to force the rest of this bitch into the oven. She struggled and kicked, but my family made her too overstuffed and she ended up wedging herself more and more in there. I fired up the oven and eventually slammed the door shut.
 
-“Everything alright down there?” came Cooper’s voice once again. 
+All of that would have been really loud... thankfully everything in this house is sound-proof.
 
-Ok, was he also a freaking magician playing an elaborate trick on me? Part of me wanted to run up the stairs and hug him tightly, telling him about every whacked out thing that had been happening. But somehow I listened to the rational tingles of fear running through my body, and slowly and quietly made my way up to the bedroom.
+I let her bake for several hours. Checking in every few moments to make sure she was dead. After her body got a nice golden brown crisp to her I carefully took her out and carved up a hunk. I don't know what she was, but she was delicious. It took me about a week, but I eventually ate her down to the bones. Of course, the bitch gave me horrible heartburn and about thirty pounds to remind me of her. But no big deal.
 
-I’m not sure exactly what I expected to find when I entered the room, but I think I expected to see something. There was nothing. No Cooper, no demons, no hidden prank camera crew, nothing. Our ordinary bedroom stared back at me, the clean laundry folded neatly on the bed. I didn’t know how much more freakiness I could handle and fell to my knees in a heap, sobbing softly.
+The end...
 
-\*\*\*
+&#x200B;
 
-After a couple minutes of shaking and weeping on the carpet, I wiped my mascara-smudged eyes and looked around. I was no longer in my bedroom, but appeared to be in the middle of a wide concrete aisle, infinitely tall metal storage racks towering over me, reaching up higher than I could see. “I’m hallucinating, that martini was laced” ran through my head as I tried to rationalize what had just happened. Where the hell was I? It looked like some liminal space, nightmare rendition of Costco except the items lining the shelves were all identical metal filing boxes, each with a letter and number combo printed on the front in red ink. In what kind of warehouse could you not see the ceiling, and how the fuck did I even get here? Have I been here for hours and just imagined coming home from the bar? Was I kidnapped? So many scenarios and possible explanations spun in my brain as I tried to make sense of my nonsensical surroundings. 
+Except not quite. See, the weirdest thing happened after I ate her. I started to get these pangs of hunger. And even if I'd binge until my stomach was about to pop, there was no food that could satiate these cravings. Yes, it occurred to me that eating random monsters who definitely still had my human families in their belly may have caused some... side effects. So, like always, I adapted. I am now a realtor and since my competition disappeared, I'm the best and only one around.
 
-Standing up on rubbery legs, I started walking in a random direction. Trying to look for an exit or possible clue was better than just sitting there, right? I passed row upon row of identical metal boxes as I made my way up and down countless aisles that stretched on into the hazy distance. Nothing about this place felt terrestrial. The aisles were too impossibly high, and were insanely long. Akin to the ceiling, I couldn’t actually see the end of any one row, and squeezed my way in between the metal shelving when I tired of walking down the same aisle for too long.
+And I have an AMAZING house for you!
 
-By the end of what must have been the first hour, I noticed that the metal boxes lining the shelves repeated the same letter combinations in great big sections - “MM, MN, MO,” and so on. It would stand to reason (though honestly nothing had made sense for weeks) that this was an elaborately huge alphabetical filing system. For whom or what I had no idea. Surely secret government warehouses actually had ceilings? And employees for that matter. 
-
-No sooner than this thought had crossed my mind, did I finally reach a hallway with a neon green sign saying “Scenario Development Dept.” with an arrow pointing to the right. I guess going that way was as good as any other. Perhaps I’d run into someone who could explain to me what was going on. At least I wouldn’t have to wander the secret government impossible-Costco or whatever it was any longer. 
-
-I was starting to feel my endurance and adrenaline seriously waning, and was getting tired and frustrated. This was truly a nightmare. Was I literally freaking dreaming? Why didn’t I already think of that? Duh, wake up Amy! I pinched myself as hard as I could, my nails puncturing the thin skin on the back of my hand with a soft popping noise. Blood started to slowly drip down my fingers. Fuck that really hurt, but I was unfortunately still here. In this creepy-ass warehouse…er, office building?
-
-The hallway had started to widen, with textured fiberboard partitions and empty offices lining either side. This looked straight out of a zombie movie - minimal fluorescent lighting, a hushed quiet, and that horrible abandoned feeling where the protagonist thinks they’re alone until creatures spill out from behind an overlooked door. Were the sensationalized “backrooms” real and the countless stories, games, and found footage short films providing a glimpse of the truth? 
-
-Jostled from my frantic thoughts, I registered there were two voices approaching from down the hall. I quickly ducked into an empty office, crouching underneath the cheap faux-wood topped desk. My breathing approached an unhealthy tempo and I tried to calm myself, hoping nobody could hear me. Despite wanting to find some semblance of civilization earlier, something about these voices put my frayed nerves on edge.
-
-The conversation floated towards me, stopping just shy of the office doorway. I could hear two distinct voices that sounded incredibly strange, like they had several discernable pitches in each word. 
-
-“Jeez, maintenance on this new system has been a total bitch lately. I was not looking forward to this late shift because I’m always the only one around to fix problems when there’s nobody else here!”
-
-“Dude, I feel you. Didn’t you say it even screwed up that Keener file you’ve been working so hard on?”
-
-“Ugh, YES. My boyfriend “Cooper” model even totally glitched out so that the audio cues weren’t syncing properly with the body. Total mess. I’m not even sure what happened to the entire scenario, since the system is rebooting. Who knows if the project file is corrupted now or what.”
-
-“So lame. I’m not a fan of the new system either. There are always soooo many kinks during the first few weeks.” 
-
-“By the way Joe, you’re gonna LOVE this. For the Keener file I was using some temporal distortions coupled with your ugly mug for even more shock value! It was working nicely…which is why I’m stressing over this malfunction and reboot. But yeah, I snuck you in this one!”
-
-“Haha, that’s great Ralph. I appreciate it. Always thought my face should be used more often; humans don’t like my smile much! Hope it was scaring the pants off her. Her, right?”
-
-“Yep. Amy.”
-
-Keener file, Cooper, Amy. This couldn’t possibly be a coincidence. The creepy voices were talking about ME. What…the…fuck.
-
-I cautiously peeked around the desk corner, my curiosity getting the best of me. If anyone was nonchalantly talking about the recent trauma in my life (what assholes), I at least needed to see what they looked like.
-
-Hoping that the dark office hid the sliver of my face poking out from behind the desk, I could just make out two forms outside the doorway. One was extremely tall and rail-thin, with no face to speak of and spindly arms that reached almost to the floor. I shuddered. The other was…holy shit! That face. The face that had been tormenting me for the past few days was now amiably chatting with (presumably) his co-worker not five yards away. 
-
-Shock, fear, and exhaustion hit me all at once as I tried to hold back tears. I silently slid back under the desk, my back leaning against the wooden paneling. Across from my hiding spot on the wall was a calendar. Illuminated by the faint glow of a computer monitor’s screensaver, my welled-up eyes landed on a nondescript company logo: “LDM - Limbo Development & Management.” It took me a few seconds, but with all the grace of a drunk linebacker the pieces slammed together in my brain.
-
-Limbo. Oh my god, I was in Limbo. While this explained several things, it also ignited an entirely new set of questions. Was I really dead? When did I die? Why would I end up in Limbo? Why is Limbo a generic office complex? Well actually, that last one did make a sort of twisted sense. It wouldn’t be the flashy fabled pearly gates or the fiery pit full of shrieking damned souls. 
-
-I tried to focus on one thing at a time, and wrap my head around the when and how. The fuckery started after my first open house when I went back to change the thermostat. Things were starting to become fuzzy, but I recalled the damn sunburst clock right before that horrible entity…Joe, was it?...appeared in the kitchen. No, that didn’t seem right. I tried to think back further. The clock. Something about the clock. 
-
-I did show off the basement to potential buyers that morning. I had a hazy memory of opening the door off the kitchen to go down the basement steps, darkness, and a rising feeling in my stomach, coupled with that kitchy sunburst clock on the wall. Shit, I must have fallen down the basement stairs, twisting ass-over-teakettle looking up at the kitchen! Wow. What a stupid thing to do. I could hear it now, “Ding ding! Amy Keener vs. hardwood stairs. Ohhh, hardwood stairs throws a mean uppercut and Amy is doooooooown!” I guess dumb accidents happen everyday, but I was holding out for the ideal option: dying of old age in my sleep. 
-
-I felt an enveloping numbness about everything that had happened. I was most likely dead, and I couldn’t do a damn thing about it. My cheeks were crusty with dried salt as I zoned out, sitting slumped against a desk that probably shouldn’t even exist.
-
-I guess I was probably doomed to repeat the same few days or at least be accosted by that supernatural creature thing over and over for eternity. I tried to be a good person but had still somehow ended up here. Maybe their new system came with a completely skewed ‘grading’ system of people’s morals? The malfunction and reboot certainly began to explain Cooper freezing in place, his displaced voice, and me glitching into this weird building. I can’t believe what I thought was my life turned out to be buggy software in an alternate plane of existence.
-
-\*\*\*
-
-Well, that basically brings us up to the present moment. I waited until the two entities left and started to poke around on the computer in this office. I think it belongs to someone (something?) named Betty. What the heck is with these basic names? Figured demons or whatever they were had dramatic names like ‘Azazel’ and ‘Baphomet.’ It’s probably different in Limbo; the names definitely match the drab cubicle-lined office space I’m in. Betty probably should have password protected her computer, since here I am typing this manifesto of sorts and about to send it to anyone who could receive it. That said, I’m really not sure how this will work. Perhaps I can get a message out before the complete system reboot finishes. I glitched here, so it’s worth a shot.
-
-Please tell Cooper that I love him, if he’s even a real person. I’m not sure of anything anymore. His name is Cooper Anders, and he lives in San Francisco. Also please, I beg of you, contact Kate McKinney. She’s the only one I know who could possibly have any ideas on how to get me out of here. Ouija board, anyone?
+Please DM if interested, only two people at a time please.
