@@ -216,7 +216,7 @@ This time, the man wore the slightest of smiles. “Do you really think parents 
 
 “You’re kidding.” Jonas looked frantic, his eyes darting around, searching for an escape, “Do you seriously think I’ll die for a town which has ostracized us since were five years old? Who made us think we were fucking monsters?”
 
-“Mr Lockhart, the sole reason why this town is crumbling around us is because you are still breathing.” The Mayor told him. “Right now, forty seven seniors have been… gifted as part of our yearly ritual. That is not enough to stop them from destroying us. We need exactly fifty sacrifices.”
+“Mr Lockhart, the sole reason why this town is crumbling around us is because you are still breathing.” The Mayor told him. “Right now, forty six seniors have been… gifted as part of our yearly ritual. That is not enough to stop them from destroying us. We need exactly fifty sacrifices.”
 
 “Well, good luck finding them.” Jonas said in a choked laugh. “I’m sorry, but no. If you think I’m going to willingly sacrifice myself, you’re deluded!”
 
