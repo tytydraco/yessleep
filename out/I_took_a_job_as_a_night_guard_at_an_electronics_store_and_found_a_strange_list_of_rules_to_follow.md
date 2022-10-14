@@ -1,4 +1,4 @@
- My name is Nathan, I am 36 and lost my job during the covid crisis. Who knew being lacklustre with your job and putting in the bare minimum gets you fired, and with new people graduating each year, there wasn’t a scarcity of people ready to take up that job. When I started working as a data analyst, I enjoyed it throughly, I would even go out of my way to make sure that everyone was happy with my work and work ethic. The bosses were happy and I got raises quite often. 
+My name is Nathan, I am 36 and lost my job during the covid crisis. Who knew being lacklustre with your job and putting in the bare minimum gets you fired, and with new people graduating each year, there wasn’t a scarcity of people ready to take up that job. When I started working as a data analyst, I enjoyed it throughly, I would even go out of my way to make sure that everyone was happy with my work and work ethic. The bosses were happy and I got raises quite often.
 
 But slowly, the fire within me to do “more” or to excel and be the top got extinguished. Everything just became boring and repetitive, my work ethic suffered and I basically had no more motivation left. I just worked and paid and that was it, no more “life” and enjoyment” did I attain from working my “dream job”. 
 
@@ -9,11 +9,8 @@ So I thought of a plan, to study all the new aspects of data analysis, re-motiva
 I reached out to my local fast food chains but they did not require any new employees, so I started job hunting on the Internet. I came across an ad, an ad for a job as a night guard, the only requirements were :
 
 1. To have a healthy heart 
-
 2. To know your way around some basic technology related stuff 
-
 3. To be friendly to the customers 
-
 4. To follow a given set of protocols without question.
 
 I clicked the link without even thinking twice, and a page opened up, basically providing instructions on how to apply and also mentioned the pay I’d be receiving. I had to work 4 days a week, 11:00 p.m. to 6:00 a.m. and I’d get paid $600 every week. I made some quick calculations, $2400 a month for basically doing nothing and chilling at an “electronics” store, I mean who even shops at a store like this after 12 a.m. ? I applied and within 3 hours got an email, telling me that I had got the job, and giving me a number to contact for further queries. I was pretty happy, and things were started to shape up, I got back to exercising, got a part time job to sustain my expenses till I’d be ready to get back on the market.
