@@ -1,0 +1,79 @@
+ 
+
+They are going to send me away for a long time for a crime I did not commit, I am too soft for prison, I am 5ft ‘6, come from an upper middle-class family and work as a graphic designer, they will eat me alive in there. They said I tried to murder my wife and son, but I was setup by them, things. I would never hurt anyone; I was trying to protect them, and have been for a long time. For now, I am out on bail, but the trial is coming up soon; I was offered a deal, 5 to 10 if I plead guilty, my lawyer advised me to take it, or I am facing minimum of 20 years.  Apparently I haven't a leg to stand on since my wife (Sarah) and son (Jake) are testifying against me. I tried to tell him it wasn’t me; it was those things, but he didn’t believe me.  
+
+Not the best of options, I don’t want to admit to something I didn’t do just to get less time, I shouldn’t have to, I’m innocent. But if I don’t, I am going to jail for sure and everyone will think I'm guilty anyways. I could run, go to some corner of the world where no one knows me in hopes of a better life, but I can’t live my life like that, besides if the cops didn’t find me the Sneaks would.  
+
+I call them Sneaks because of the way they move; slowly creeping around, just out of view as if they are waiting for their chance to pounce. They don’t like to be seen, and they definitely don’t like to be talked about. That’s what got me in this mess in the first place, but what have I got to lose now, they already took everything from me, so fuck um.  
+
+Did you ever get a really strong feeling you are being watched as you walk past a mirror, and then see something move out of the corner of your eye, well that was probably a Sneak. They’re everywhere, it’s just most people are oblivious to them; I know I was, until one day I came across this post on a paranormal forum with username 147catman. He explained how he believed that creatures lived in reflections and how he trained himself to use his peripheral vision to see them. There was a photo to go with it, but it was blurred and really didn’t look like anything apart from a smudge on the lens. At the time I was sure he was just another nutjob and didn’t give it a second thought, until later that night. 
+
+I was relaxing on the couch watching an old horror movie, the door to my left that led to the hallway was opened, where there was a 6ft antique mirror, the only light was coming from the tv. Halfway through the movie I got a chill down my spine and a weird feeling that I was being watched, so I kept looking between the tv and the mirror. I tried to convince myself it was just the movie making me paranoid and tried to ignore it, but it didn’t work I kept seeing something poking out of the corner of the mirror. I was frozen in fear, too afraid to even look in that direction in case there was actually something there. I tried my best not to look, but I couldn’t help myself, my curiosity got the better of me, and I slowly turned my head. Thankfully there was nothing there. 
+
+Then I remembered what 147catman said about using your peripheral vision, so I waited to see if it happened again, and it did. I don’t know why I didn’t call it a night and go to bed I was terrified, I guess that’s why they say curiosity killed the cat. 
+
+This time I was ready and tried to concentrate as hard as I could to look in that direction, without actually moving my eyes, which is not easy, your eyes really want to look in that direction. For a few seconds I watched it slowly moving across the mirror, before my eyes almost went twisted and I had to look, but it was gone. 
+
+Most people would have said it was a trick of the light or paranoia, since I was watching a horror movie at the time. But I thought there was more to it than that and started to train myself to use my peripheral vision from watching YouTube videos, after a while I became really good at it. 
+
+The problem was, I didn’t see any of the sneaks, I thought it was because we hadn't enough reflected surfaces in the house. So, I started buying old mirrors and hanging them up around the house, but my wife was not happy about it, she said it didn’t go with the decor and ordered me to get rid of them. Instead, I put them in one of the spare rooms, along with a couch and a tv, my wife wasn’t happy about that either, she used the word insane a lot in that conversation. 
+
+I must have spent almost every night for the next 3-weeks in that room adjusting mirrors, hoping to get a glimpse of them. I tried everything but nothing seemed to be working, then it came to me the only thing that was different was the movie, so I put it on and hoped for the best. 
+
+I am usually not that bad with horror movies, but this one really creeped me out. I think it was the fact that it was about a haunted house, and I was sitting alone in a dark room by myself, with the light off. The more I got into the movie, the more creeped out I got, and soon I started to get that feeling of being watched again. 
+
+Then I saw something moving in a small mirror that was standing on the table at the far side of the couch. I casually started moving my head to the opposite side of the room in a way that looked natural, so they didn’t know I was looking at them and they followed me jumping from mirror to mirror, staying at the edge of my vision. For about 10-minutes I watched them move over and back, before they disappeared completely. I learned two things that night, firstly, I knew without a doubt that the Sneaks did in fact exist, and secondly, fear attracts them.  
+
+I was so excited and wanted to share my news with someone, but the only person that would know what I was talking about was 147catman. So, I went online and posted my findings on his board and waited for a reply. 
+
+After that my experiments saw real results, I started seeing the Sneaks every night. Eventually I got so used of them I stopped being scared, but they didn’t stop coming, I think they were just as curious about me at that stage. I was happy that they trusted me enough to visit me every night and thought we had some sort of mutual bond. Then they started showing their true colours after I got a message from 147catman he said, “if you care about your family, stop what you're doing now and forget you ever saw them.” 
+
+I thought he was threatening me and told him to fuck off, but then the Sneaks started getting more intense. They began to follow me everywhere, even by day, I often saw them at work creeping up behind me on my computer monitor. Then one night before bed I was brushing my teeth and they showed themselves to me, not that it made much of a difference. My eyes couldn’t focus on their features, only the background, like I was looking straight through them in a daze. It was horrible, for hours after I had this disturbing feeling, like they had taken something from me, I really don’t think they were meant to be seen by mortal eyes. 
+
+Everything changed after that, they didn’t care if I saw them or not anymore in fact, they wanted me to see them. I tried to stop them by throwing out all the mirrors, but it wasn’t enough they wanted something from me, and it didn’t take long to figure out what that was. It wasn’t me they were after anymore; it was my family. I began to see them sneaking up behind Sarah and Jake through reflections like they were going to grab them. At first, I didn’t think they could harm anyone, since I was the only one that could see them, and they only seemed to try and scare me. 
+
+That all changed when me and Jake went swimming one afternoon. I was sitting at the edge of the swimming pool watching Jake swimming over and back in the shallow end, when I saw the reflection of a dark figure leaning down towards Jake at the other end of the pool. Suddenly I saw Jake splashing around as if he was drowning, which didn’t make sense, as he is such a good swimmer, and the water was only 2 feet high. lucky I got over there and pulled him out before it was too late, for the rest of the day Jake was a bit off, he wouldn’t tell me at first but then I finally got it out of him, he said he felt someone was holding him under. I'm convinced he thought it was me because there was no one else around him at the time, but after a visit to the toy store he soon forgot about it. 
+
+I felt so helpless, my family was in danger, and there was nothing I could do about it. I started to think that 147catman wasn’t threatening me, maybe he was warning me so that night when I got home, I sent him another message in hopes he knew how to stop them. This is what he said, “It’s too late now, they won’t stop. If you want to protect your family don’t look at them. Your family is only a weapon to them, they won’t lay a finger on their head unless they know you are watching. Cover all reflective surfaces and don’t go out unless completely necessary, or better still move far away and hope they don’t follow you. 
+
+Straight away I got rid of every mirror in the house but that wasn’t enough, there was still too many reflective surfaces, so I started keeping the blinds down and the lights off as much as possible, but that only seemed to make them angry. One morning as I was walking downstairs behind my wife, I could see Sarah locking her phone from over her shoulder. On her screen I could see a shadow grabbing her from behind and she started to wobble, thank God I caught her arm before she fell. 
+
+I’m sure she thought I pushed her, she didn’t say anything about it, but I could see it in her eyes. After that my wife became weary of me and was always watching me. To make it worse I had become extremely paranoid and only went out when absolutely necessary, even when I did, I put on a pair of work goggles that I spray painted black with the bottom section left clear, so I could see where I was walking. She thought I lost the plot, but I convinced her I had been to the doctor and he said I had Photophobia, and the light was giving me migraine. 
+
+I had stopped going to work by then, I gave my boss the same excuse that I had told my wife and took a month off work. I don’t think Sarah or Jake was so happy about me being around all the time, since I wouldn’t let them use their phones or watch tv when I was there.  Everything went downhill for me and Sarah after that she said I had become too controlling. I wanted to tell her the truth so she would understand that I was only trying to help, but I was afraid she would think I was a psycho and run away with Jake, and I wouldn’t be able to protect them anymore. 
+
+I knew we needed to get out of the house before we ended up killing each other, so one day I made my wife drive us to the one place I was sure would have no mirrors; the forest. Sarah was extremely suspicious and kept asking me to go to the park instead, I suppose I wouldn’t blame her; she knew I hated places like that. I was never an outdoor kind of guy even as a child while my friends were out playing football, I was at home reading books or messing around on my computer. With that and the way I was acting lately she had a good reason not to trust me taking them out to the middle of a forest out of the blue like that, to make it worse I made them leave their phones at home. 
+
+As we were walking, I found a new appreciation for the great outdoors, it was so peaceful, no noise apart from the birds singing and the rustling leaves. Best of all there were no reflective surfaces for monsters to creep out of, I was finally at peace. We spend hours wondering around in there Jake and I loved it, but Sarah was still nervous she barely said a word all that day apart from, when are we going home. When it was time to go we followed what I thought was the trail back to the car, it was dusk by the time I realized that we were lost. 
+
+Sarah and Jake wanted to turn around and go back the way we came, but I wouldn’t let them. Even though we were on the wrong trail, I had a strange feeling that we were supposed to go that way. Besides we would never have found the right trail in the dark. About 20 minutes later we came to an old dirt road and followed it until we reached a crossroad, to our left we could see a log cabin with the porch light on. I was so relieved I thought we were never going to get out of there. 
+
+Here is the weird part; at the end of the driveway there was a mailbox, when I read the address, I nearly died, it said, 147catman view. I just stood there in shock, while my wife and son ran up to the cabin. By the time I snapped out of it and go to the cabin the door was open and Jake was standing outside, he said, “come on dad there’s no one home, mom is looking for a phone inside.” 
+
+I hesitated for a moment, “ok just wait right there, I am going to check out back.” when I got to the back of the house things got even stranger the garden was full of sculptures made from old broken mirrors.  
+
+Then suddenly the door opened, and my wife walked out, “I can’t find a phone we are going to have to stay here for the night.” 
+
+“No way” I replied angerly, “there is something not right about this place. We have to go NOW!” 
+
+She smirked at me, “I thought you would be happy here since you clearly have the same taste in decor” and she walked back into the house. 
+
+I didn’t know what she meant at first until I followed her inside, and there was mirrors everywhere, so I ran back out the door. I tried to tell them to get out of there, but they wouldn’t listen, so I had no choice but to go back inside. I put my head down and tried not to look at the mirrors, but it didn’t work I could see the Sneaks moving around from the corner of my eye.  
+
+Then I heard my wife scream in the other room, so I rushed in, but my wife was lying on the floor, and I ended up hitting her on the head with the door. At the same time Jake happened to be walking in the other door, I will never forget that look on his face, it still haunts me. 
+
+I tried to tell him it wasn’t me that hurt her, but he just ran away crying. As I lifted Sarah over to the couch, I saw one of those things standing right in front of me in the mirror. I than heard Jake call out, “please stop” then a bang, I ran to the kitchen to find Jake lying face down on the floor struggling to breathe. 
+
+I picked him up and turned him around, but when he saw my face, he screamed and started kicking me, so I let him go. I than heard my wife calling my name, when I turned around, she was standing there with a baseball bat. 
+
+The next thing I remember it was morning and there were two cops standing over me. I tried to tell them it wasn’t me, I even told them about 147catman, which they did look into. It turns out that the account was registered in my name and that’s not all, the cabin was rented out using my credit card. 
+
+The more I thought about it, the more I started to doubt myself, maybe I did do all those horrible things, it would explain how I was seeing all those weird creatures. I was about to confess until a few days ago I got an email from someone claiming to be 147catman, it had a link, when I clicked on it, I couldn’t believe what I was seeing. It was a live feed to my wife's computer that she kept in our bedroom, she was in bed with Jake they were both sleeping. In the doorway I could see someone standing up waving at the camera. 
+
+I was about to ring the cops when I got another email, it said, “yours or theirs? ” Underneath it had a photo of a family, “Choose now” 
+
+I didn’t know what else to do so I replied, “theirs.” 
+
+Seconds later I got a reply with only an address on it, straight away I went to there and the sneaks showed me exactly what to do.  
+
+I don’t regret anything; I would do anything to protect my family. But I don’t feel so bad about taking the deal, I am not so innocent anymore.
