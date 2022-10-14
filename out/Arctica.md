@@ -74,7 +74,7 @@ I hauled over the disconnected drill bits to him, "Let's make it quick. The nort
 
 "Remember! No faster than 2 meters per minute. Anything more and we could accidently rupture the braided lines without knowing it. And cause a pincer below our feet," she yells.
 
-A pincer is a type of crevasse. A moving one. And it is one of my worst nightmares. Imagine standing on solid ice and then the ground suddenly disappears. Falling ten, twenty, hundreds of feet, hoping to be lucky enough to die on impact; instead of being trapped between two vertical ice sheets that are shifting to fill the void. The walls drift on sheer weight alone. It reminds me of early scuba divers who traveled too deep and were crushed alive. The water pushing in from all sides and the air is squeezed out of their lungs before it all comes rushing back in through their mouths, gorging their bellies full of salt water until their bodies are equalized with the pressure.
+A pincer is a type of crevasse. A moving one. And it is one of my worst nightmares. Imagine standing on solid ice and then the ground suddenly disappears. Falling ten, twenty, hundreds of feet, hoping to be lucky enough to die on impact; instead of being trapped between two vertical ice sheets that are shifting to fill the void. The walls drift on sheer weight alone. It reminds me of early scuba divers who traveled too deep and were crushed alive. The water pushing in from every side and the air is squeezed out of their lungs before it all comes rushing back in through their mouths, gorging their bellies full of salt water until their bodies are equalized with the pressure.
 
 "Wouldn't want that," London pulled his goggles over his eyes.
 
@@ -118,13 +118,13 @@ She hadn't finished her words when a sudden snap cracks through the air. I didn'
 
 I looked up in time to see one of the legs on the Dowler collapse from the force of the drill falling, a gust of snow rose like smoke and traps London beneath the legs. I can see the horror on his face as he looks back at me. Almost see the fear in his eyes behind the reflective amber on his lenses before he disappears from view.
 
-Chloe rushes to the cruiser and starts to pull out a tent. It's standard company policy, and a courtesy everyone in the south knows about. The few seconds of warmth could save a life, even some limbs. As there was nothing else she or I could do except to wait for the debris to clear.
+Chloe rushes to the cruiser and starts to pull out a tent. It's standard company policy, and a courtesy everyone in the south knows about. The few seconds of warmth here could save a life, even some limbs. As there was nothing else she or I could do except to wait for the debris to clear.
 
 "London," I shouted again as I am finally able to reel the bits to a halt. I rush forward but Chloe grabs my arm. Parts of the tent still in her hands, "The glacier might not be steady," she yells at me. "Here." She tosses me a Kevlar infused rope as we huddle around the remnants of the Dowler. "In case it opens up. So we don't get separated."
 
 I hear a groan as the steel moves. My feet back up instantly and I almost plow Chloe to the ground. She's grabbing onto my arm, her feet skittering beneath her as we try to get away. I can hear something splintering below me, it is a worse sound than any bone that I've ever broken. Almost like someone is chewing on teeth until they crack, right in my ear.
 
-I try to mouth the words "Fuck," as the two of us scramble away. The Dowler collapses another leg. I think I hear someone screaming. I don't know if it is me. But when I look up, I can see a split in the ice, it ran from where the Dowler had stood to between my legs. I looked behind me and saw it stretched for over 30 meters before disappearing beneath the snow.
+I try to mouth the words "Fuck," as the two of us scramble away. The Dowler collapses another leg. I think I hear someone screaming. I don't know if it is me. But when I look up, I can see a split in the ice, it ran from where the Dowler had stood to between my legs. I looked behind me and saw it stretched for over 10 meters before disappearing beneath the snow.
 
 I was too terrified to move a muscle. Chloe's hand on my elbow felt the same way. I don't know how long we sat there, petrified. But when the clouds of snow had settled, we could see parts of the Dowler still above the surface. The cracks leading away from it weren't that deep, considering how thick the ice was.
 
@@ -134,7 +134,7 @@ I was too terrified to move a muscle. Chloe's hand on my elbow felt the same way
 
 "Is he okay?"
 
-I get on my hands and knees, until I am flat on my stomach and inch toward him. My hand grabbing a sleeve as I start to pull him toward me. He didn't look to be breathing. I tugged on his jacket and his body slowly slid forward. The ice was thick, and we needed to move quickly. But we also thought it was thick before we started drilling. So I moved slowly.
+I get on my hands and knees, until I am flat on my stomach and inch toward him. My hand grabbing a sleeve as I start to pull him toward me. He didn't look to be breathing. I tugged on his jacket and his body slowly slid forward. The ice was thick, and we needed to move quickly. But we also thought it was thick before we started drilling. So I moved with purpose.
 
 When it looked as if I were able to pull him out, he suddenly felt stuck. I tugged on his jacket again and he wouldn't budge. It was then that I realized that he was twisted around, his knee must have broken in the accident. Creating an abnormal wedge in the snow. I turned him over with great effort, and was then finally able to pull him free. His body still limp by the time I got him over to Chloe. She immediately started tending to him, sticking hot pads into his jacket, under his arm pits and between his groin. I brushed off as much snow on him as I could, and with Chloe's help, I got him into the tent. Once inside we stripped him completely naked, drying any parts that we could find. He was wet down his back and all over his trousers. I could smell the urine on him as we worked quickly to stabilize his condition. Putting on a set of new clothes to warm him.
 
@@ -150,7 +150,7 @@ I nodded, "I've got to get the equipment first."
 
 For a second she looked at me as if I were joking, but she knew as well as I did that this was the only Dowler on our side of the camp. The other two had went with an earlier expedition that wouldn't return for 2 more months. Which means that without it, there was nothing we could do out here. A waste of everyone's time.
 
-I left the tent and observed the area around the Pixie Tube. The Dowler laid on its side like a fallen monument. Its yellow frame frosting over as the wind began to pick up speed. I inched closer to the Dowler until I was able to grab the handle. I looked down the hole and saw the bits mainly intact. The ice beneath us seemed to have stabilized. Experience told me that it must have somehow shifted below. Causing the bit to go into a freefall as it was drilling. The force of the bits being fed overhead at speed was too great for the legs, and it collapsed under the weight. It was a miracle that the ground didn't open up from under us. Even more of a miracle if it weren't stuck right now. Pinched between two adjoining sheets of ice.
+I left the tent and observed the area around the Pixie Tube. The Dowler laid on its side like a fallen monument. Its yellow frame frosting over as the wind began to pick up speed. I inched closer to the Dowler until I was able to grab the handle. I looked down the hole and saw the bits mainly intact. The ice beneath us seemed to have stabilized. Experience told me that it must have somehow shifted below. Causing the bit to go into a freefall as it was drilling. The force of the bits being fed overhead at speed was too great for the legs, and it collapsed under the weight. It was a miracle that the ground didn't open up from under us. Even more of a miracle if the drill weren't stuck right now. Pinched between two adjoining sheets of ice.
 
 I wondered if it was stuck, and I moved it, would it cause a ripple effect over the shelf? No time to think. The temperatures were already dropping and I could hear the wind speed flapping against the tent behind me. We had to move and get out of here fast. Off the ice shelf and back to the interim.
 
@@ -172,7 +172,7 @@ London nodded, "It's procedure. And plus. I'm feeling better."
 
 "What do you reckon it is," I asked.
 
-The three of us looked on, not a word exchanged between us as the bits kept coming out. Watching the steam grow thicker with each tug, until the end was exposed, clearing the hole and clipping itself into the Dowler like a guillotine. We stood there in silence as our eyes were glued to the end.
+The three of us looked on, not a word exchanged between us as the bits kept coming out. Watching the steam grow thicker with each tug, until the end was exposed, clearing the hole and clipping itself into the Dowler like a guillotine. We stood there in silence as our brains tried to make sense of what we were seeing.
 
 "It's not mine," London said.
 
@@ -220,9 +220,9 @@ London looked at the tube. It shook. "Fuck!"
 
 He pointed at me to drag the thing closer, "I'll help you lift it when you're near," he shouted as he limped toward the opening.
 
-I ran over to the cap, turned it so that the explosives on the back weren't being scrapped on the ground as I dragged it toward the Pixie Tube. I could feel the sweat beading from my armpits, but there wasn't any time to worry about that now. I looked up when London started shouting at me to hurry. His mouth was open as a hand rested on the lip of the tube as he looked into the hole, it was now shaking so badly that it vibrated his entire body. The Dowler shifted and suddenly the drill bit came loose. It plunged downward, into the hole. Taking London with it.
+I ran over to the cap, turned it so that the explosives on the back weren't being scraped on the ground as I dragged it toward the Pixie Tube. I could feel the sweat beading from my armpits, but there wasn't any time to worry about that now. I looked up when London started shouting at me to hurry. His mouth was open as a hand rested on the lip of the tube as he looked into the hole, it was now shaking so badly that it vibrated his entire body. The Dowler shifted and suddenly the drill bit came loose. It plunged downward, into the hole. Taking London with it.
 
-I stared in horror as he disappeared. Nearly slipping on the drops of blood that had been on the ground from earlier. I abandoned the sealing cap knowing that I couldn't do it alone, and ran as fast as I could back to the crawler. Chloe was standing stiffly next to the vehicle when I pushed her inside. Her body was in shock as I started it up. The crawler groaned as it came alive, the heat pump blasting us with frigid air that wasn't quite as cold as the outside. I turned us around, the tires biting into the snow, driving as fast as I could back toward camp.
+I stared in horror as he disappeared. Nearly slipping on the drops of blood that had been on the ground from earlier. I abandoned the sealing cap knowing that I couldn't do it alone, and ran as fast as I could back to the crawler. Chloe was standing stiffly next to the vehicle when I pushed her inside. Her body was in shock as I started it up. The heat pump blasting us with frigid air as the crawler groaned as it came alive. I turned us around, the tires biting into the snow, driving as fast as I could back toward camp.
 
 The entire ride back I couldn't even face Chloe. Neither of us had spoken a word. Not even when we saw our few tents come into view, they stood in a makeshift order around one another. Their sides empty, indicating that the rest of our team weren't back yet. A part of me wanted to drive right past it and head back to McMurdo, the station. Where there were others, but I could feel the exhaustion creeping onto my shoulders. And knew that we needed rest and supplies, if we had any chance of making it back alone.
 
