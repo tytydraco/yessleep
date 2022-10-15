@@ -1,4 +1,4 @@
-Clourophilia.
+Coulrophilia.
 
 It means I get off on clowns. 
 
