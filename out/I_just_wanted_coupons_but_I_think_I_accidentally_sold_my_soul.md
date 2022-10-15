@@ -6,7 +6,7 @@ But not me. I accidentally sold my soul for 25% off hand soap.
 
 I’m not sure if my use of ‘Hell’ and ‘soul’ are truly appropriate here – I’m just not really sure how else to describe what I’ve experienced.
 
-I suppose it’s my own fault for not reading the fine print. I was always so good about that, too – from software updates to my rental agreement, I tend to read all things super carefully. Except of course, the one time my life depended on it …
+I suppose it’s my own fault for not reading the fine print. I was always so good about that, too – from software updates to my rental agreement, I tended to read all things super carefully. Except of course, the one time my life depended on it …
 
 I guess I just never expected a simple store loyalty program to have such a life (and after-life) altering impact.
 
