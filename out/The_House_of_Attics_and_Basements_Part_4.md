@@ -69,3 +69,5 @@ Inscrutable\*, he looked down at me, holding my bleeding fingers.\*
 *What you may not know, is that shortly upon completion of the house, I made an unsettling discovery in the attic. There, resting in the corner as if it had been here all along, was the Clock, ticking and tocking its regular rhythm. And there it has stayed ever since.*
 
 *Until last night, your wedding night. When I awoke to hear familiar thumps in the attic.*
+
+[Part Five](https://www.reddit.com/r/nosleep/comments/y513yc/the_house_of_attics_and_basements_part_5/)
