@@ -155,9 +155,13 @@ Among the fires and carnage, I saw people do all they could. Not only for themse
 "You killed Azazel, yet you continue to blabber about hope? How **DARE** you!" He screamed, backhanding me so hard my teeth chipped and my jaw shattered.
 
 Blood gushed from my mouth, leaving me unable to speak. I curled into the fetal position, readying myself for another death.
+
 —
-I will spare you the details of hundreds of decomposing arms pulling you apart, and skip ahead to when I woke up.
+
+I will spare you the details of hundreds of decomposing arms pulling me apart, and skip ahead to when I woke up.
+
 —
+
 "Whoo, what happened to you?" Sean nudged me from my spot on the ground. I was alive, laying outside of our office.
 
 Through swollen lids I opened my eyes, looking up to Sean. It might have been my imagination or the numerous concussions, but he almost looked concerned. "Heyyy" I wheezed, jaw still throbbing.

@@ -83,3 +83,5 @@ And I can't help but agree and be thankful for her efforts.
 There is more to tell, and I will tell more, but it is Pete's anniversary, and I cannot, in all conscience, talk about the Shuck whilst my father mourns. 
 
 Be well people. Hold your loved ones close, because if you don't, something else out there will.
+
+[The story continues ](https://www.reddit.com/r/nosleep/comments/y49k8s/i_live_on_a_farm_that_is_still_very_much_in_touch/)
