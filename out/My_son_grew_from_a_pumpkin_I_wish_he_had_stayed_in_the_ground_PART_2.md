@@ -510,9 +510,11 @@ And there was… nothing.
 
 It was like a normal pumpkin, filled with stringy orange bits and seeds. No eyes, no throat— *nothing.* 
 
-Then, I began to laugh. At first, giggling slipped past my lips before I dissolved into psychotic laughter. I dropped my back to the floor and rolled around, my gut cramping as I couldn’t stop. I just couldn’t believe it, I felt insane. 
+Then, I began to laugh. At first, giggling slipped past my lips before I dissolved into psychotic laughter. I dropped my back to the floor and rolled around, my gut cramping as I couldn’t stop. I knew it was real, it was all real-- yet I still felt like I had lost my mind. It was too much to process.
 
-At that moment, it felt like I hadn’t left the doctor's office. 
+At that moment, it felt like I did on the drive home.
+
+As if I hadn’t ever left the doctor's office. 
 
 That I was still in that waiting room. 
 
