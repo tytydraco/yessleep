@@ -14,7 +14,7 @@ I. am. an. ant. on an ice cube.
 
 Perhaps even smaller.
 
-On this day, the Ross research foundation had sent me and two other employees 20 kilometers across the shelf to get some cores. They were in a hurry because they couldn't wait for the expedition crew to return. For what reason? I have no idea. It made sense for Chloe to be here, she was the glaciologist. London? Maybe. Out of everyone on this continent, he had the most Artic experience. A whole lot of good that will do him as Antarctica is a different beast. And I was a structural engineer, mainly responsible for raising and lowering equipment. A glorified camper to be honest. I wouldn't be much help in an actual crisis. Which made me wonder why the company was breaking its own policies by sending us out today.
+On this day, the Ross research foundation had sent me and two other employees 20 kilometers across the shelf to get some cores. They were in a hurry because they couldn't wait for the expedition crew to return. For what reason? I have no idea. It made sense for Chloe to be here, she was the glaciologist. London? Maybe. Out of everyone on this continent, he had the most Arctic experience. A whole lot of good that will do him as Antarctica is a different beast. And I was a structural engineer, mainly responsible for raising and lowering equipment. A glorified camper to be honest. I wouldn't be much help in an actual crisis. Which made me wonder why the company was breaking its own policies by sending us out today.
 
 NO DEAD WEIGHT. was rule #3.
 
