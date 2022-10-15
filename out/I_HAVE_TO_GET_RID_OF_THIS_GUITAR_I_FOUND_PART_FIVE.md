@@ -244,3 +244,5 @@ The sound, it grows inside of me.
    * &#x200B;
 
 “Thank you for helping me get through this. We are nearing the end. It looks as if we have only one part left to offer. I hope this will lead me back to my brother, or at least help me learn what truly happened.” – Abigail Forte
+
+[PART SIX](https://www.reddit.com/r/nosleep/comments/y4voci/i_have_to_get_rid_of_this_guitar_i_found_part_six/) (THE FINAL CHAPTER)

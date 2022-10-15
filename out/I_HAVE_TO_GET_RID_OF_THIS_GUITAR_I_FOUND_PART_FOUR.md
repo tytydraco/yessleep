@@ -469,3 +469,5 @@ It’s my father.
 &#x200B;
 
 [PART FIVE](https://www.reddit.com/r/nosleep/comments/xyv5y7/i_have_to_get_rid_of_this_guitar_i_found_part_five/)
+
+[PART SIX](https://www.reddit.com/r/nosleep/comments/y4voci/i_have_to_get_rid_of_this_guitar_i_found_part_six/)
