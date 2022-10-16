@@ -118,4 +118,4 @@ Hell is real, and it's waiting for us in the [clouds.](https://www.reddit.com/r/
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
 
-[YT](https://youtu.be/9RybtYtDzAk)
+[YT](https://youtu.be/rHcK2TpBeG4)
