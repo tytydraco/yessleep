@@ -122,7 +122,7 @@ I hesitated. I did not think I could get with this repulsive man, no matter how 
 
 “I appreciate that. I’m sorry, but I’m not sure I can—”
 
-“I have something that will help you perform back in my bathroom. I know I disgust you. I don’t blame you. I disgust myself. Have since I was a child. I didn’t grow up in the city. Was born in Erie, Pennsylvania. Working class, blue collar town, very Catholic. Not a nice place for someone like me. Got beat up at school and beat up at home. Ran away at 16 and ended up here. It was a gritty back then, like cities should be, not sanitized like today. Time Square, you can’t even imagine what it was like.
+“I have something that will help you perform back in my bathroom. I know I disgust you. I don’t blame you. I disgust myself. Have since I was a child. I didn’t grow up in the city. Was born in Erie, Pennsylvania. Working class, blue collar town, very Catholic. Not a nice place for someone like me. Got beat up at school and beat up at home. Ran away at 16 and ended up here. It was a gritty back then, like cities should be, not sanitized like today. Times Square, you can’t even imagine what it was like.
 
 “I was 110 pounds back then, can you believe it? The scrawniest kid you’d ever seen. No matter how much I ate, I could never put on weight. Thought I’d make it big. But nope. I was short, had no muscle and an ugly face. Guys like you had modeling contracts, got roles even though they couldn’t act. When they were partying on Fire Island, I was begging on the streets. After a few months, I met an older gentleman, a historian of the theater at NYU, who recognized what I lacked in looks I made up for in intellect. He took me in, and I helped him with his research. Sadly, after a few years, he died.”
 
