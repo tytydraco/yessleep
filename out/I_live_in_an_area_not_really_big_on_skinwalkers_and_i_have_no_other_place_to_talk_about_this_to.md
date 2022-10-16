@@ -1,0 +1,22 @@
+I live in the river valley of Arkansas, a place not known for skinwalkers, wendigos, or much paranormal in general. But i have no other way to describe this, whatever these things are.
+
+Being in such a small over looked area and in the country side of my area not many people believe what I say or think that its just the woods getting to me, I hunt regularly so I know a good bit of what standard animal behaviors are when spooked or when calm, or even just eating around and their regular paths. But recently I have heard animal calls that aren't regularly from here, an awfully eerie tone from behind them, or in general weird behavioral patterns on the animals I'm watching before seasons, along with having seen some weird things people here may want to hear about.
+
+I'll start with my earliest occurrence with these things and move to my earlies, although some may have to wait for future parts.  
+
+
+My earlies experience:
+
+I was out while I was hunting, It was a few weeks before deer season and I was just stalking deer finding this seasons main eating habits and sleeping habits with a coyote rifle incase a predatory animal came up on me I could fend it off.  I was sitting between a few pine trees with a limb over hand in front of me and a fallen tree for me to lean back on to rest my shoulders and the rifle on so that I could comfortably sit and watch. I arrived at this spot about 30 minutes before deer normally come through, so I thought id be able to sit and read on my dimmed phone to pass time.  
+
+
+a good chunk of time had passed, about 10 - 15 minutes and I decided to get ready for when deer came through so I could test some tactics to put them on nerve like clicks, whistles, etc. so I knew how skittish they would be during the season. But when they arrived they already seemed on nerve which was unusual since I always have a friend make bar soap using the scent of some pines on my property so I can hide my scent when I'm in the forest and usually fully camouflaged with my airsoft ghillie suit with twigs, leaves, cut grass and stuff from the area woven into it so I cant be seen. 
+
+Confused I stayed there not moving to reach for my binoculars to spot bucks, and avoided even making any sounds to alert them so I wouldnt spook them from the area. Once I noticed that they were looking around and sniffing a lot I felt like they were looking for predators, this terrified me because wolves, bear, panthers and other big cats along with people are the biggest predators for deer, and only three are in Arkansas in general and only two in my area, the two in my area are people and big cats, and the three In Arkansas are Bear (starting to be hibernating during our deer season), big cats, and people. So my worries were me about to get shot by a poacher or jumped by a cougar or panther from above, to check for my safety I slowly scanned the far side of the field in the opposing tree line slowly for any movement or irregular shadows but I saw nothing, so I got up at a very slow pace to look up and behind me but saw nothing. The deer had saw me moving and ran which caused something in the far forest to shift. almost like when you see a bag in your room move that automatically pulls your eyes to it but you don't notice anything else, that kind of shift. The one that puts you on edge and pushes chills down your back shift.
+
+Already terrified because I don't see any more movement I decide to take a route back passing my deer cams about 10-15 meters in front of them so I make sure if something is stalking me I can see it later. (Returning to them I found no evidence of any big cats in the area for the past 3 weeks). But the whole way home through my fields I felt like I was being watched and followed, not by something human like, but like I was followed by an animal, one of the stalking types, kinda like coyotes and wolves, which coyotes are scared of people, and the only wolf species ever found in arkansas were red wolves, which were hunted out of all 50 states except North Carolina, which has a total red wolf population of 30.
+
+Returning home I had waited at the table in the kitchen which has somewhere between 90-145 degree view of the surrounding fields and forestry of the property, but saw nothing come out of the fields but still felt like I was watched (no other windows in the house point to the kitchen).  
+
+
+Depending on how people react to the story of this experience I may do a part 2 with another occurrence
