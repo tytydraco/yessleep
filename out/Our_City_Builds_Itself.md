@@ -1,0 +1,34 @@
+   
+
+
+This city has grown rapidly since the National Park of the Alabaster Tower opened in the eighties. Before the park, there were around five hundred residents and the town proper had no building over two stories tall, which gave the odd impression that the town was hunched-over; as though there were something 
+
+on the horizon from which it was trying to remain hidden. By the time I moved here, the city was home to around nine million residents. You could make the argument that the town grew too quickly, as there were certain consequences of its rapid growth from rural town to sprawling metropolis. To accommodate all the people, many apartment buildings were built hastily, stacked on top of the bought-out shops and crammed in any empty space. 
+
+As the city grew towards the sky, the streets darkened and the buildings crowded and leaned against each other, hunched over alleys and killed the stars with its own buzzing light and neon glow. It now coughs black smoke from crooked aluminum smokestacks. Its name is ill-befitting such a large city, as it was named for a place that nobody thought–or wanted for–would grow much: Gray Moss. 
+
+I apologize for the history lesson. But I think it’s important that you understand the context of what will follow. It’s probably also in effort to not appear insane right off the bat. First impressions are important, I think. And I’ve probably already fucked that up: Hey, Guys! I’m totally not crazy! Super normal. I promise.
+
+You can call me, uh, I don’t know, Ish? Yeah, that’ll work. I moved here about a year ago for work. Things were relatively normal for the first couple months. Then one evening, after work, I was walking home in the rain and something strange happened. See, I always walk to and from work. It’s only a few blocks away. It got to where I didn’t even store the memory of the walk after the first couple weeks, my body switched to autopilot as I daydreamed my way home. But I remember that evening. I was thinking about what one of my coworkers would be like in bed as I turned the corner onto not my street. Wait. Suddenly I was looking at an unfamiliar street. I turned around and realized I had turned too early, I could see my street one more block down. It shouldn’t have been a big deal but it gave me an odd feeling. I shrugged it off and continued home, but I stopped thinking of my attractive coworker. 
+
+As I turned onto my street I looked over to the house on the corner. When I first moved here, their dog had barked at me every day for about a week, until he got used to my passing and decided I was no threat to him, I guess. It was a smallish terrier-looking dog. I smirked at the ‘BEWARE OF DOG’ sign the first time I passed it. But this evening I looked over and realized for the first time that I had been mistaken. The sign did not say ‘BEWARE OF DOG’. I stopped and studied the sign carefully. It read: ‘WATCH OUT FOR DOGS’. An uncanny sort of feeling draped itself over me like a damp sheet. Had I ever seen a sign like that? It was in the same font as all those sorts of signs, big, bold, capital letters in red over a black background. I reasoned that I must have just never paid it enough attention. I had seen the font and my mind had filled in the blanks. My house was down and across the street. I went home and got drunk. 
+
+That night I had an odd dream. I don’t remember it well, but I remember feeling lost, tripping over my feet through dark hallways, falling into strange holes. 
+
+I had the next day off and I woke up to a text from that hot coworker I might have mentioned. I remembered calling her after I got good and drunk, but the details of our conversation were vague in my mind. The text that woke me read: Here’s ur reminder. Tower Park at 5 lol.
+
+I grinned and thanked my drunk self. We had a date. Had I told her to remind me? Or had she just realized she might need to? Well, whatever. I got out of bed, took an aspirin and smoked half a joint for the hangover. I was excited. I had been crushing on, let’s call her Jen, for a while. I assumed I had been the one that suggested the National Park of the Alabaster Tower for our date. I hadn’t been there before and I had been meaning to ever since I moved here. It would be nice to get out of all the narrow streets and from under the light-polluted sky. 
+
+I got myself together around three PM and smiled at myself in the mirror: I had a small chip in my top and bottom front teeth from being punched in the mouth as a teenager. I tended to smile with my bottom lip covering the bottom of my front teeth even though I didn’t think the chip was very noticeable. I got in my car around four and put the Park address into my GPS. The place was only half an hour away but I had never been there before and didn’t know how bad traffic might be. 
+
+Traffic turned out to be not-so-bad but about fifteen minutes into my drive the GPS started fucking up. It had told me to turn onto Bellview street and head north for five miles, but three miles in, it told me in its AI-Australian accent to turn east onto a side street called Adelbert Lane. I did so and immediately felt like something was off. It’s hard to explain but something about the angles of the street and the dimensions of the buildings on either side unsettled me. The streetlights washed blue-ish light onto the rain-slicked sidewalk and glared against the darkglass windows of empty shops. There didn’t seem to be a soul around. 
+
+But I felt seen. 
+
+I turned off the post-punk voice sing-yelling at me through my speakers. I heard an odd sort of groaning. A metal whine of bending steel. The GPS instructed me to turn about a half-mile later, into a tunnel. I looked at the screen and realized that my estimated time of arrival had grown from fifteen minutes to a half-hour. I shrugged it off. There had probably been an accident or something and my GPS had rerouted itself, that’s all. And it’s a big city, there’s all kind of strange places. 
+
+The tunnel wasn’t much better though. Half of the light lining it were either broken or flickering. I had to turn my brights on to cut through the darkness. Thick, gunmetal pipes lined and weaved along the sides of the tunnel. And the general downward slope of the road gave me the impression that I was traveling deep underground. There were odd steel doors–or windows–built into the sides of the tunnel in irrational places, like three feet from the ground with no stairs with which to reach it. Some were bolted shut. Some were big enough to allow access to giants, others were as small as my hand, just enough to peek through were you to open it.  
+
+I glanced at my GPS. It told me with cold indifference that my destination was two-thousand and forty-five miles away. 
+
+I had a feeling I would be late for my date.
