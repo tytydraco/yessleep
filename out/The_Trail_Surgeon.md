@@ -112,7 +112,7 @@ I screamed. As loud as before. Birds flew upwards. I kicked and fought back, but
 
 Suddenly, a sound. From up the trail. I screamed louder now. The old man looked up, his mouth covered in flesh. He picked up his bag, instruments spilling out, and hoofed it into the woods. 
 
-A couple, a man and a woman, approached me. When they saw my gruesome condition, they both vomited into the ground simultaneously. I started sobbing. Once they composed themselves, they approached me, horrified. 
+A couple, a man and a woman, approached me. When they saw my gruesome condition, they both vomited onto the ground simultaneously. I started sobbing. Once they composed themselves, they approached me, horrified. 
 
 “Oh my god!” The woman shrieked. 
 
