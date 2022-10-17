@@ -123,7 +123,7 @@ However, what bothered me most was that I wasn’t able to thank Eric for saving
 They discharged me with clearance to work again in two weeks time. I packed up the hotel room and loaded my gear into the truck. That was when I remembered Eric’s cane, I had left it in the truck after he handed it to me, but it was gone now. I don’t know when, or how, he could have gotten it and I decided I didn’t want to think about it too much either. I had a feeling that I would see him again next time something strange happened.
 
 &#x200B;
-[NEXT]()
+[NEXT](https://www.reddit.com/r/nosleep/comments/y6cqpr/i_lobotomised_my_psych_patient_because_i_believed/?utm_source=share&utm_medium=web2x&context=3)
 
 [Chapters List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/?sort=new) 
 
