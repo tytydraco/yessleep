@@ -10,7 +10,7 @@ It was a huge house, it had cobwebs around it and looked pretty old. It looked l
 
 One of them jokingly said "I bet someone's been murdered there". A chill went down my spine. I can't stand horror of any type and get easily scared. 
 
-Another one of them said to me " I'll give you $10 if you go check out that house" . They knew I was scared of this stuff. I didn't wanna embarrass myself for bring a scaredy cat and I earn out of this deal. "Deal" I said and went in. 
+Another one of them said to me " I'll give you $10 if you go check out that house" . They knew I was scared of this stuff. I didn't wanna embarrass myself for being a scaredy cat and I earn out of this deal. "Deal" I said and went in. 
 
 As soon as I entered , the floor started making weird noises. It was really dark so I turned on my flashlight. I checked out the house and nothing seemed wrong with it. The only place left to check was the basement so I went in. 
 

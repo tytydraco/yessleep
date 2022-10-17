@@ -68,7 +68,7 @@ Frantic I pushed past Samantha to gain entry into the room where I saw for the f
 Slowly the realisation dawned on me that she had been dead for days and I swallowed hard as I looked over my own body, the scratches on my arms.. the bruises, the bite marks.. She had tried to fight..
 
 
-[.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/bh6tgz/story_links/?utm_source=share&utm_medium=ios_app)
+[.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
 ***
 
 Edit: Since people are asking for some added context this was a statement given by Eugene Howard after his wife was discovered dead in the family bathtub. She had been dead in the house decaying for days and it is suggested that Mr. Howard suffered a mental break after the murder and imagined the entire 3 days. His wife was never alive for the duration of that time.
