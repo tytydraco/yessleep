@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/xhhtc7/i_work_for_a_county_sheriffs_office_in_maine_but/) and [Part 2](https://www.reddit.com/r/nosleep/comments/xmu78b/i_work_for_a_county_sheriffs_office_in_maine_but/)
+[PREVIOUS](https://www.reddit.com/r/nosleep/comments/xmu78b/i_work_for_a_county_sheriffs_office_in_maine_but/)
 
 Preparing to fight lake monsters was an experience in it’s own right. Eric gave me an entire set of instructions, I couldn’t remember all of them. Don’t let them touch you and don’t fall into the water - those were the main ones. He put the salt I bought into little bags and told me to carry them with me. If I saw anything I was supposed to pour the salt over them.
 
@@ -123,5 +123,8 @@ However, what bothered me most was that I wasn’t able to thank Eric for saving
 They discharged me with clearance to work again in two weeks time. I packed up the hotel room and loaded my gear into the truck. That was when I remembered Eric’s cane, I had left it in the truck after he handed it to me, but it was gone now. I don’t know when, or how, he could have gotten it and I decided I didn’t want to think about it too much either. I had a feeling that I would see him again next time something strange happened.
 
 &#x200B;
+[NEXT]()
 
-[More.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
+[Chapters List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/?sort=new) 
+
+[.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)

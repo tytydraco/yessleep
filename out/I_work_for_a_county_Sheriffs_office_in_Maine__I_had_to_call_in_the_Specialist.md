@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/y21ltl/i_work_for_a_county_sheriffs_office_in_maine_im/)
+[PREVIOUS](https://www.reddit.com/r/nosleep/comments/y21ltl/i_work_for_a_county_sheriffs_office_in_maine_im/)
 
 I don’t remember it. I don’t remember getting up, or navigating to the kitchen, and I most definitely do not recall taking a knife from the knife block. What I can recollect however, is my pinky toe bending at a right angle as I slammed it into the edge of the couch hard enough to wake myself up.
 
@@ -242,8 +242,8 @@ He took in a deep breath and let it out slowly before turning back to me, “You
 
 Understanding dawned on me. He had allowed the burned woman to get away in order to spare my life. That meant it was still out there, and it was still dangerous. The Sheriff would *probably* kill me if he knew I was the reason there was still a witch in our woods.
 
-  
-[More](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)   
+[NEXT]()
 
+[Chapters List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/?sort=new) 
 
 [.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)

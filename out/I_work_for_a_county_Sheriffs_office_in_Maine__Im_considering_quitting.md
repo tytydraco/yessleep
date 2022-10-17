@@ -125,8 +125,8 @@ By the end of it all I was more or less just waiting for something *else* to hap
 [Worse things have happened](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) to me than this and there’s no reason to jump to any unnatural conclusions. I think the charm was laced with hallucinogens, someones idea of a joke I’m sure. Just make sure you’re careful if you go out into the woods. I don’t know if there are more, but I hope there aren’t.
 
 
-[PART 2](https://www.reddit.com/r/nosleep/comments/y4rooj/i_work_for_a_county_sheriffs_office_in_maine_i/)
+[NEXT](https://www.reddit.com/r/nosleep/comments/y4rooj/i_work_for_a_county_sheriffs_office_in_maine_i/)
 
-[Other Related.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
+[Chapters List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/?sort=new) 
 
 [.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)

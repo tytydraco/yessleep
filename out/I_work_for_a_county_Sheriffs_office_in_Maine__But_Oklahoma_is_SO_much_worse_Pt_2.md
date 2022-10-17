@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/xhhtc7/i_work_for_a_county_sheriffs_office_in_maine_but/)
+[PREVIOUS](https://www.reddit.com/r/nosleep/comments/xhhtc7/i_work_for_a_county_sheriffs_office_in_maine_but/)
 
 When I called the number it rang out. I’m not sure what I expected, the number looked old, really old. I doubted it was still in service and it was an instruction left by Gregory, whom I had come to realise was just one in a long line of incompetence.
 
@@ -142,10 +142,9 @@ I knew then that it was going to be a long night.
 
 \*\*\*
 
-[Prequel](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
-[Related](https://www.reddit.com/r/nosleep/comments/x68hac/my_grandmother_worked_for_an_orphanage_asylum_one/)
+[NEXT](https://www.reddit.com/r/nosleep/comments/xpfp5v/i_work_for_a_county_sheriffs_office_in_maine_but/)
 
-[Part3](https://www.reddit.com/r/nosleep/comments/xpfp5v/i_work_for_a_county_sheriffs_office_in_maine_but/)
+[Chapters List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/?sort=new) 
 
 [.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
