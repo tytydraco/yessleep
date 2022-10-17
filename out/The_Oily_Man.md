@@ -54,7 +54,7 @@ I dashed into the lift, dragging Snowy in as she started barking and growling at
 
 Rather safe than sorry, I told myself as the doors began to close. To my relief, no one jammed a hand in at the last minute to stop the doors, like in so many movies. 
 
-I leant back against the lift wall, breathing out a sigh of relief. Then realised that Snowy was crouched and poised to spring, baring its teeth at something on the ground. 
+I leant back against the lift wall, breathing out a sigh of relief. Then realised that Snowy was crouched and poised to spring, baring her teeth at something on the ground. 
 
 That’s when I saw it again. A shadow. A humanoid patch of darkness that draped itself in a corner of the lift. I felt a scream building in my lungs. By habit, I held it back. Repression, for me, is a habit that doesn’t go away even in the face of danger, it seems. I inched further back into the opposite corner of the lift. I darted my eyes about, trying to find anything that could potentially be a source of the shadow, anything that could explain why there was a shadow without a man. 
 
