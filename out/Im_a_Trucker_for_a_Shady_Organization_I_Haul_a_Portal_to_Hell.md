@@ -145,3 +145,5 @@ As if on cue, a fire ignited out of the destroyed vehicle. The grapple loosened,
 "Yknow what. Fuck it, sure. You're driving first."
 
 The driver shrugged, snapping their limbs back into place with a sickening crunch. "Kay."
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/y6i9ab/im_a_trucker_for_a_shady_organization_i_haul_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
