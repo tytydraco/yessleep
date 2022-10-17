@@ -148,3 +148,4 @@ All I could do was stare in horror at what I had thought was my apartment buildi
 “One more rule for that little list,” Zach said. A wry smile crossed his lips. “There has never been an apartment on 131st street.”  
    
 [x](https://www.deviantart.com/redherochild)
+[y](https://www.reddit.com/user/DarthVitrial/comments/y5v2q6/black_phoenix_story_glossary/)
