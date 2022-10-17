@@ -88,7 +88,7 @@ I checked the line feeding through the top of the Dowler, "We're still good," wa
 
 Chloe looked up from her laptop and confirmed, "The ice is steady."
 
-London nodded briefly before grabbing the bars beneath the Dowler. "Lowering stands by 5 feet." The legs collapsed around the hole, reminding me of a king crab if it could squat. "Pushing through the end cap." I could almost here it pop as the drill hit the ice on the other side.
+London nodded briefly before grabbing the bars beneath the Dowler. "Lowering stands by 5 feet." The legs collapsed around the hole, reminding me of a king crab if it could squat. "Pushing through the end cap." I could almost hear it pop as the drill hit the ice on the other side.
 
 The three of us looked at each other. I didn't know I had been holding my breath until Chloe broke the silence, "Here's to going where no one's been in over a million years," she shouted. I couldn't help but smile. She held up two fingers at me, "2 meters."
 
@@ -134,7 +134,7 @@ I was too terrified to move a muscle. Chloe's hand on my elbow felt the same way
 
 "Is he okay?"
 
-I get on my hands and knees, until I am flat on my stomach and inch toward him. My hand grabbing a sleeve as I start to pull him toward me. He didn't look to be breathing. I tugged on his jacket and his body slowly slid forward. The ice was thick, and we needed to move quickly. But we also thought it was thick before we started drilling. So I moved with purpose.
+I get on my hands and knees, until I am flat on my stomach and crawl toward him. My hand grabbing a sleeve as I start to pull him toward me. He didn't look to be breathing. I tugged on his jacket and his body slowly slid forward. The ice was thick, and we needed to move quickly. But we also thought it was thick before we started drilling. So I moved with purpose.
 
 When it looked as if I were able to pull him out, he suddenly felt stuck. I tugged on his jacket again and he wouldn't budge. It was then that I realized that he was twisted around, his knee must have broken in the accident. Creating an abnormal wedge in the snow. I turned him over with great effort, and was then finally able to pull him free. His body still limp by the time I got him over to Chloe. She immediately started tending to him, sticking hot pads into his jacket, under his arm pits and between his groin. I brushed off as much snow on him as I could, and with Chloe's help, I got him into the tent. Once inside we stripped him completely naked, drying any parts that we could find. He was wet down his back and all over his trousers. I could smell the urine on him as we worked quickly to stabilize his condition. Putting on a set of new clothes to warm him.
 
@@ -176,7 +176,7 @@ The three of us looked on, not a word exchanged between us as the bits kept comi
 
 "It's not mine," London said.
 
-Chloe inched toward it, the steam still rising upwards. The drill head that had been covered in metal teeth like a worm being pulled inside out was now covered in blood. I watched it drip off the steel and onto the ice. It was red but thicker than any human blood I have ever seen, and it was still wet.
+Chloe crept toward it, the steam still rising upwards. The drill head that had been covered in metal teeth like a worm being pulled inside out was now covered in blood. I watched it drip off the steel and onto the ice. It was red but thicker than any human blood I have ever seen, and it was still wet.
 
 I don't know how long I had been holding my breath, but when my lungs couldn't bear the pain anymore, I inhaled and nearly choked on a lung.
 
@@ -200,7 +200,7 @@ He hadn't finished his little speech before we all heard it. It was soft at firs
 
 I could feel my lower lip trembling as I looked behind us. "Hello. Hello. Hello hello hello hello helllohellohellohello," it came. Mimicking the speed of the drill as it repeated the last thing it had heard.
 
-I didn't even have enough time to move before we started hearing scrapping and rattling come from below the pipe. Something was climbing up. London fell as he tried running toward the crawler. Chloe had already yanked on the door handle and was rummaging through the cabin for the keys when I caught up with her.
+I didn't even have enough time to move before we started hearing scraping and rattling come from below the pipe. Something was climbing up. London fell as he tried running toward the crawler. Chloe had already yanked on the door handle and was rummaging through the cabin for the keys when I caught up with her.
 
 "Chloe," I shouted at her. Grabbing her with both hands. "Chloe!"
 
@@ -210,7 +210,7 @@ I shook her, "We have to seal the tube."
 
 She looked at me for a second. I could see the fear in her eyes. Before she nodded, "Seal the tube. Seal the tube," she repeated.
 
-I reached into the overhead compartment and pulled out the disc that had been attached above the seats. It was solid and nearly a hundred kilos. It was all I could do but push it out of the cruiser and watch it fall onto the ice with a thick thud.
+I reached into the overhead compartment and pulled out the disc that had been attached above the seats. It was solid and nearly a hundred kilos. It was all I could do to push it out of the cruiser and watch it fall onto the ice with a thick thud.
 
 "What are you doing," London shouted at me. He had managed to climb up the bumper, righting himself. "We have to go!"
 
@@ -220,13 +220,13 @@ London looked at the tube. It shook. "Fuck!"
 
 He pointed at me to drag the thing closer, "I'll help you lift it when you're near," he shouted as he limped toward the opening.
 
-I ran over to the cap, turned it so that the explosives on the back weren't being scraped on the ground as I dragged it toward the Pixie Tube. I could feel the sweat beading from my armpits, but there wasn't any time to worry about that now. I looked up when London started shouting at me to hurry. His mouth was open as a hand rested on the lip of the tube as he looked into the hole, it was now shaking so badly that it vibrated his entire body. The Dowler shifted and suddenly the drill bit came loose. It plunged downward, into the hole. Taking London with it.
+I ran over to the cap, turned it so that the explosive welders on the back weren't being scraped on the ground as I dragged it toward the Pixie Tube. I could feel the sweat beading from my armpits, but there wasn't any time to worry about that now. I looked up when London started shouting at me to hurry. His mouth was open as a hand rested on the lip of the tube as he looked into the hole, it was now shaking so badly that it vibrated his entire body. The Dowler shifted and suddenly the drill bit came loose. It plunged downward, into the hole. Taking London with it.
 
-I stared in horror as he disappeared. Nearly slipping on the drops of blood that had been on the ground from earlier. I abandoned the sealing cap knowing that I couldn't do it alone, and ran as fast as I could back to the crawler. Chloe was standing stiffly next to the vehicle when I pushed her inside. Her body was in shock as I started it up. The heat pump blasting us with frigid air as the crawler groaned as it came alive. I turned us around, the tires biting into the snow, driving as fast as I could back toward camp.
+I stared in horror as he disappeared. Nearly slipping on the drops of blood that had been on the ground from earlier. I abandoned the sealing cap knowing that I couldn't do it alone, and ran as fast as I could back to the crawler. Chloe was standing stiffly next to the vehicle when I pushed her inside. Her body was in shock as I started it up. The heat pump blasting us with frigid air as the crawler groaned as it came alive. I turned us around, the tires biting into the snow, driving as fast as I could toward camp.
 
 The entire ride back I couldn't even face Chloe. Neither of us had spoken a word. Not even when we saw our few tents come into view, they stood in a makeshift order around one another. Their sides empty, indicating that the rest of our team weren't back yet. A part of me wanted to drive right past it and head back to McMurdo, the station. Where there were others, but I could feel the exhaustion creeping onto my shoulders. And knew that we needed rest and supplies, if we had any chance of making it back alone.
 
-When I pulled to a stop and got Chloe into her tent. She finally said something. I wished she hadn't.
+When I pulled to a stop and got Chloe into her tent. She finally broke the silence. I wished she hadn't.
 
 "I saw something climb out." She grabbed my arm, "What if it was London? And we left him?"
 
