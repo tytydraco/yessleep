@@ -54,7 +54,7 @@ I laughed and he glared at me sternly. “That was not a joke. It is a genuine d
 
 “Nope,” I said, shaking my head.
 
-“So close. The ending is something of my own invention. Usually, the original is far superior to the translation. But not for this play. The playwright’s genius did not lay in his trochees and iambs. He was not a poet, but a philosopher. His genius laid in his ideas, and I truly believe it was my destiny to find the manuscript, for only I could improve it. This will represent not just the pinnacle of my career, but the apotheosis of theatre itself. No work that was ever produced, or ever will be produced, can hold a candle to it. Back to the ending.  In the original French, the defendant is tried by a panel of three judges. But I changed that to a jury of 12 men. You are juror number 7. The our poor charman is found guilty, and the judge is polling the jurors. Asking if the verdict they rendered is correct. The first 6 jurors say yes, but you, you my dear friend, say no. And then the lights go out. ”
+“So close. The ending is something of my own invention. Usually, the original is far superior to the translation. But not for this play. The playwright’s genius did not lay in his trochees and iambs. He was not a poet, but a philosopher. His genius laid in his ideas, and I truly believe it was my destiny to find the manuscript, for only I could improve it. This will represent not just the pinnacle of my career, but the apotheosis of theatre itself. No work that was ever produced, or ever will be produced, can hold a candle to it. Back to the ending.  In the original French, the defendant is tried by a panel of three judges. But I changed that to a jury of 12 men. You are juror number 7. The poor charman is found guilty, and the judge is polling the jurors. Asking if the verdict they rendered is correct. The first 6 jurors say yes, but you, you my dear friend, say no. And then the lights go out. ”
 
 “Wow!” I said, trying to muster up enthusiasm. “Can’t wait to read it.”
 
@@ -182,4 +182,4 @@ He stumbled backwards, gallons and gallons of black blood spurting from his thic
 
 I looked at Horace, who had revived and was staring at me wide eyed.
 
-“After that performance, I think I deserve a few more lines in your masterpeice, don’t you?”
+“After that performance, I think I deserve a few more lines in your masterpiece, don’t you?”
