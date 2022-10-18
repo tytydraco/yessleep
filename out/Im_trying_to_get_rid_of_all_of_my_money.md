@@ -78,7 +78,7 @@ My immediate thought was to donate it all to charity. Anonymously, of course, I 
 
 I turned off the TV. I felt sick. I don't think I need to explain what happened, I don't know if I even have the stomach to type it. But I knew at this moment that this money didn't exclusively harm me, but anyone. I could not in good conscience give this to a charity.
 
-My next thought was to gamble it all away. I have no proof, but I believe that the money only continues it's a curse if given away to someone, because then it still has a curse to carry out. If I buy something with it, and someone else ends up getting that money in the future, it has already carried out the curse on me through the object I purchased with it. It just made sense to me.
+My next thought was to gamble it all away. I have no proof, but I believe that the money only continues its curse if given away to someone, because then it still has a curse to carry out. If I buy something with it, and someone else ends up getting that money in the future, it has already carried out the curse on me through the object I purchased with it. It just made sense to me.
 
 I took £1000 with me to a casino. I used my taxi to drive there. The first thing I did was the roulette wheel, I bet all of my money on Black 13. Bad luck number, best possible chance to lose. They spin the wheel, and the ball goes round and round, making a *clack* sound as it hits each bump in the wheel. Eventually, the ball came to a stop, on a black tile. I couldn't see what number exactly, but as you might have guessed, as the wheel itself slowed down, it was clearly on 13.
 
