@@ -1,0 +1,12 @@
+
+
+Somebody.. send help.. I'm not sure how much more I can take. It keeps playing over and over again and it won't stop no matter what. Let me give you a bit of backstory.. 
+
+I live in a large 1800s Georgian house. It's not a giant creepy mansion sitting on a hill like you might have imagined, but instead it's a seemingly normal house which sits beside a quiet street. I moved in here about a year ago and everything was normal until just recently. I own a music box. I have had this music box since I was a baby, in fact I'm pretty sure it was a birth present. My parents would wind it every night for me to help me sleep,and it worked. Now this box had somehow moved in with me, 22 years later. I don't know how it didn't make it into my parent's loft along with all of my other old stuff, but it was the only thing from my childhood that moved in with me. 
+
+Yesterday I decided to wind the box a tiny bit to see if it still worked. I opened the lid carefully and miraculously, it squeaked out that same old tune from when I was little. I will never forget it. I held it in my hands before setting it back down on the table I had put it on. I left it alone, but just a few hours later I heard the song ringing out. What the fuck? I hadn't gone near it since I wound it before, plus you had to open the lid for the song to play, so why was it playing again? The lid was locked shut so how could it play? On the music box, there was no way to stop it from playing until you eventually had to rewind it, so I just had to wait for it to reset and then leave it. The house was quiet for the rest of the day until this evening when I was getting ready for bed.
+
+ I slid under my duvet and got comfortable, and that's when I heard it again. That song. It was singing again. I didn't know what to do. It hasn't stopped playing since. The bathroom door has creaked open a few times and I've heard footsteps disturbing the shitty floorboards beneath the carpet, but I haven't seen anything. I've only heard that song. I'm going crazy. I can't take it. It won't fucking stop and I don't know what to do. Send someone. A priest, maybe. I should have returned it to my parents as soon as I found it in a box I had used to move in. I just heard footsteps right outside my bedroom door. The music got louder as if it was outside the door too. I'm scared. I might be dead, or worse, by the time someone gets here, but just tell my parents to smash that fucking box to pieces as soon as I'm gone. My door creaked open. I'm not looking. Tell everyone I love them.
+
+
+The music stopped.
