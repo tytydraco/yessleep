@@ -121,3 +121,5 @@ Raising their hands in surrender, they said "would you rather wake up surrounded
 *They just had to say it!* My nausea peaked and another projectile sprayed the driver. They flipped me off the whole while.
 
 Without another word, they marched down the hall and hopped into the shower. They're currently showering. Do I call the cops or something?
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/y7f60c/im_a_trucker_for_a_shady_organization_i_haul_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
