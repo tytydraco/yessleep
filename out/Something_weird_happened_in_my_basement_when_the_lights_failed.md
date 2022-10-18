@@ -22,17 +22,25 @@ I laughed bc obviously I thought it was a joke but he remained serious.
 
 We looked at each other for at least 5 minutes without saying a thing when the lights started to fail again, and this is when this turns weird bc Aaron just busted out laughing and said
 
-“You should have seem your face, you were TERRIFIED” and then just went into the bathroom.
+“You should have seem your face, you were TERRIFIED” 
+
+And then just went into the bathroom.
+
 Anyone would think that it was just some kind of joke but the thing is that when Aaron started laughing he had something in his eyes.
 
 I know I know
+
 I sound like a crazy person just seeing things but I'm serious
 
 Later that day, I was cooking dinner when my husband appeared and asked what have I done for dinner. I looked at him right in the eye and told him that he knows I never cook because the last time I tried I almost burned the house so he literally told me that from that moment I had prohibited to cook. Aaron looked at me and then said
 
 “Right, I forgot, let me cook”
 
-At that moment I knew that something was really wrong because he never forgets that detail, he literally tells me every morning “don't you dare burn my kitchen today” EVERY-FUCKING-DAY he says the same damn thing, even when he is mad at me or if he has a lot of things to do. this routine of him reminding me that I can’t cook is something that has been happening for 3 years, so no, I don't buy it.
+At that moment I knew that something was really wrong because he never forgets that detail, he literally tells me every morning
+
+“don't you dare burn my kitchen today”
+
+EVERY-FUCKING-DAY he says the same damn thing, even when he is mad at me or if he has a lot of things to do. this routine of him reminding me that I can’t cook is something that has been happening for 3 years, so no, I don't buy it.
 
 I went upstairs, did all my things and went to bed, and fell asleep.
 
@@ -45,16 +53,25 @@ I got up and went out of my room but stayed there because I was a little more th
 I called him and he turned his head sharply and said
 
 “What are you doing here?”
+
 “I heard something crash and then someone crying so I came to see what happened”
+
 “Nothing happened, go back to sleep”
+
 “No”
 
 He stared
+
 Like really stared 
+
 I stood there still because something was happening
+
 He blinked 
+
 Blinked
+
 Again and again
+
 Just looking at me for 3 straight minutes
 
 And then his face changed completely 
@@ -65,12 +82,14 @@ He passed from being completely blank to having an expression of pure horror and
 
 I didn't know if he was joking but I thought it was a really awful thing to joke about so I turned around and run out of the house.
 
-When I was out of the house I heard something crashing inside the house and then a shot
+When I was out of the house I heard something crashing inside the house and then a shot.
+
 I was in shock
 
 Didn't know what just happened so I called the police and said that I thought that someone had broken into our house and that I needed them to come as soon as possible because my husband was still inside with the intruder.
 
 I don't know why I said that if I knew there was no one inside, I just needed someone to come.
+
 When the police arrived they told me to stay outside while they went in to take a look so I did exactly as they told me.
 
 Minutes later an officer came out and told me that it all seemed normal and that I must have hallucinated it
@@ -80,16 +99,18 @@ Then my “husband” came out and looked at me with a blank expression and said
 
 “come in honey, it was just a nightmare”
 
-He never, not even once, had called me honey, we both hated that nickname 
+He never, not even once, had called me honey, we both hated that nickname.
 
 He took my hand and practically dragged me into that house, and the police didn’t do a thing because they thought I was having a psychotic attack or some shit like that.
 
 I'm not sure what happened next
+
 To be honest I don’t remember a lot after I entered the house
 
-The only thing I know is that there are days when I don’t remember going out of bed but then someone tells me something I did that day. Or I found dirty clothes around the floor that I don’t remember using.
+The only thing I know is that there are days when I don’t remember going out of bed but then someone tells me something I did that day. Or I find dirty clothes around the floor that I don’t remember using.
 
 The same thing happens with Aaron.
+
 Days that we just seem to forget completely.
 
 One day I was recollecting dirty clothes around the house when I found a weird red mark on my favorite shirt.
