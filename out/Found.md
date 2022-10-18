@@ -1,0 +1,30 @@
+(The following is a found journal of prisoner Jake Ralph of the Easterling Correctional Facility for men located in Clio, Elmore County, Alabama)
+
+Day 267
+
+It must have happened over night. For as the morning sun poured through the skylights, it was quickly realised that our schedule had been changed. There was no roll call. Instead the guards went by each cell and left generous plates of food, along with three bottled waters, within reach outside the bars. It was the full shift. Passing by each other in an excited and highly nervous pace, making sure no prisoner went without.Fortunatly for me, Richard was on his way to my cell, which was in the upper floor of the block. In front of him were the three of the plate holders, while he lugged the cooler that contained the beverages. I asked him what was going on. The guards exasperated face was identical with the rest and at first it seemed he would pass by my cell without even making eye contact with me. But, I recon, his conscious over my past good deed of saving him a brutal shank to the ribs caused him to return the good will by delivering me the most disheartening news since my sentence.
+
+“We are leaving all of you...” 
+
+As he turned away from me I slowly felt myself slump down to the cement floor with my hands sliding down the bars. I watched as a singular fly landed on the bread which sat on top of a mountain of Insta-Mash, beans, and something that resembled meat-loaf. The three bottles of Deer Park water stood together dripping presperation into the grime. Eventually, the fly left. The water rumbled slightly. I pushed my plate to my left to Charles in the cell next to me. I wasn’t hungry, neither did I feel like being so. I just wanted to sleep.
+The night before I prayed to God and asked him if my life was worth living through, would he please send me just a tiny shred of good news. I laid their on the floor clenching an iron rod in my right hand fully understanding the answer that had been given to me. I thought of my wife and baby girl leaving Alabama before all of this chaos began. They were safe, hopefully. But, I wondered what Sue was seing on news reports if the world noticed us missing. Did she worry for my safety. Did she feel any sorrow whatsoever for our separation. More than likely not. I remembered the day she said goodbye to me behind the glass. She had tears in her eyes. Tears for her new life without me. Without my anger. 
+I fell asleep there on the floor, ignoring the cries and moans of my fellow prisoners.
+
+Abandoned Day 1
+ I awoke, in what looked to be afternoon, from a dream of open and empty cells in darkness. But there was a light in one of the cells below, like a fire lit up for camping through the dark, solitary night. I looked down in the world of reality and could see the same cell closed as well as unoccupied. What did the dream mean? I walked over to my cot and lay down in an attempt to catch another glimpse of that world of shadow. Are dreams affected here too?
+
+Abandoned Day 2
+Chuck Able broke his neck across the casim. He shoved his head between the bars and whirled his body counter clock wise. Those on my side of the walkway began to scream, cry, vomit. I just looked on in admiration. I dont know if I would have the stones to do that. He had been silent up till now. He was about to make parole before the so called “Snap” happened. About to see his son for the first time. Visit his fathers grave. I slept. I made it out of my cell and to the starcase before waking up in the middle of the night from the sound of Charles calling to me from his cell next to mine. He asked me if I was hearing “that sound I wasn’t. At least not while awake.
+
+Abandoned Day 3
+Joel Sykes broke free. He was able to pry the hinges of his cell door with a butter knife he smuggled. The entire Block cheered for him as he jogged out of the corridor with his arms up like RocKy. He said that he would activate the door locks and free everybody. I didnt want to go. I wanted to sleep so I could see the fire in the cell. I would get my chance, because Joel ran back into the corridor screaming. He reentered his cell and replaced the spikes for the doors hinges. I lay down again and close my eyes. I hear the sounds now. A legion of shrills in the distance. They are coming. In my dream I made it to the cell. There was a man inside. Black. Wearing a stripped uniform like prisoners from the chain gang days. Said his name was Cecil. I woke up.
+
+Abandoned Day 4
+I want to talk to Cecil. But I cant sleep. The sound has surrounded the prison. They are deafaning. I cant hear anybody anymore, just those things from deep under the earth. They will break in soon. The gaurds were nice enough to chain the doors, but they will break through. Nothing we can do. I sleep. Cecil has golden eyes. He comforts me and tells me that I am only human and that we are made to be flawed and make mistakes. Our efforts to live a moral life are only imitations of Gods. We are a joke. Together we can laugh. 
+
+Abandoned Day 5
+I awoke to the things at the bars. They are the lost souls of Tarturus. Mangled. Demonized. Human. They shake and pull at the bars to get to me. They cant break through,but they will. Charles head was just passed by. It was still screaming. They will get in and rip me apart like they all were by Cerberus, whose many breathes I hear outside the walls. I sleep. Cecil is standing in my cell. “We dont want to be here.” He says. “But we must. Your prison is linked with ours, and we all must share our cell together.” His golden eyes shine beautifully. I embrace him like I did my father when I seen him last.
+
+Found Day 1
+I awoke to my door being opened and hands lifting me from my bed. They took me out into the corridor where a new river is flowing through the prison. A new Styx. They take me out to the cliff edge where the earth had broken through and I seen him. My new father with six golden eyes. I am allowed to finish my journal before I am taken. I was chosen to take a task. With shedded skin and skeletal hands I take my row.
+(The rest is illedgible.)
