@@ -256,6 +256,6 @@ It was unmistakable, uncanny.
 
 “Hello? Can you hear me? I’m with the parks service! I’m here to help you!”
 
-&#x200B;
+[x](https://youtu.be/lZ9UbGO6Dvk)
 
 Part Two: [https://www.reddit.com/r/nosleep/comments/y1j653/im\_a\_fire\_watch\_lookout\_and\_i\_think\_ive\_made\_a/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/y1j653/im_a_fire_watch_lookout_and_i_think_ive_made_a/?utm_source=share&utm_medium=web2x&context=3)

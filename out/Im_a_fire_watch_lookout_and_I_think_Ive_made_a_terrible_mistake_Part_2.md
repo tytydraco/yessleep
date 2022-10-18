@@ -306,6 +306,6 @@ The radio was silent as my eyes slowly drifted to the west, where I could just m
 
 Was that a gunshot?
 
-&#x200B;
+[x](https://youtu.be/ZXfHdbhbOjc)
 
 Link to part 3: [https://www.reddit.com/r/nosleep/comments/y4dfgc/im\_a\_fire\_watch\_lookout\_and\_i\_think\_ive\_made\_a/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/y4dfgc/im_a_fire_watch_lookout_and_i_think_ive_made_a/?utm_source=share&utm_medium=web2x&context=3)
