@@ -2,7 +2,7 @@ So, yeah, I was bored and since there was nothing better to do - I started to br
 
 &#x200B;
 
-It was titled “Where I Sleep” and labeled with tags I expected to see: horror, survival horror, psychological horror, etc. Besides - it was free to play, double win. The screenshots were not explanatory, so I clicked the Install button to check it out for myself. 
+It was titled “Where I Sleep” and labeled with tags I expected to see: horror, survival horror, psychological horror, etc. Besides - it was free to play, double win. The screenshots were not explanatory, so I clicked the Install button to check it out for myself.
 
 &#x200B;
 
@@ -10,15 +10,15 @@ While it was downloading I read some reviews, most of them “Positive”, actua
 
 &#x200B;
 
-With a mug of coffee and some interest, I finally launched it. And at first, it came out exactly as expected - raw and unpolished. The UI was horrible. Well, not horrible, but it was bad. Same with the studio logo - as if a 5-year-old drew them without putting any effort at all. 
+With a mug of coffee and some interest, I finally launched it. And at first, it came out exactly as expected - raw and unpolished. The UI was horrible. Well, not horrible, but it was bad. Same with the studio logo - as if a 5-year-old drew them without putting any effort at all.
 
 &#x200B;
 
-But somehow it even added to the ambiance. I’m a huge fan of pseudo-PS1 horror games, so that didn’t make me want Alt+F4 the thing instantly. 
+But somehow it even added to the ambiance. I’m a huge fan of pseudo-PS1 horror games, so that didn’t make me want Alt+F4 the thing instantly.
 
 &#x200B;
 
-I clicked “New game” and was ready for some action. 
+I clicked “New game” and was ready for some action.
 
 &#x200B;
 
@@ -26,7 +26,7 @@ My character was standing in a dark room and there was a single door in the dist
 
 &#x200B;
 
-I walked to the door and opened it to reveal a dimly lit inside of an apartment. 
+I walked to the door and opened it to reveal a dimly lit inside of an apartment.
 
 &#x200B;
 
@@ -34,7 +34,7 @@ I walked to the door and opened it to reveal a dimly lit inside of an apartment.
 
 &#x200B;
 
-I reached for the light switch inside and hit “E” to turn it on. The hall illuminated and I instantly got surprised, while not realizing why. Seconds later I got it: the room looked quite similar to the one I live in. The bed, the tv, and most of the other furniture were arranged in the same manner, so it gave an uncanny resemblance. 
+I reached for the light switch inside and hit “E” to turn it on. The hall illuminated and I instantly got surprised, while not realizing why. Seconds later I got it: the room looked quite similar to the one I live in. The bed, the tv, and most of the other furniture were arranged in the same manner, so it gave an uncanny resemblance.
 
 &#x200B;
 
@@ -42,23 +42,23 @@ I reached for the light switch inside and hit “E” to turn it on. The hall il
 
 &#x200B;
 
-So I spent a couple of more minutes checking out the room to discover some more surprising coincidences and went to explore the kitchen. Not really amused by the amount of “horror”, but quite interested in the design decisions made in-game. 
+So I spent a couple of more minutes checking out the room to discover some more surprising coincidences and went to explore the kitchen. Not really amused by the amount of “horror”, but quite interested in the design decisions made in-game.
 
 &#x200B;
 
-As I expected the kitchen was also quite like mine, though positioning was swapped with a bathroom in the game, compared to the real one I live in. The table had two chairs by it - just like mine, the sink was by the window and the fridge was quite similar too. Except mine was a bit bigger and black, and the game one was green. 
+As I expected the kitchen was also quite like mine, though positioning was swapped with a bathroom in the game, compared to the real one I live in. The table had two chairs by it - just like mine, the sink was by the window and the fridge was quite similar too. Except mine was a bit bigger and black, and the game one was green.
 
-Then something caught my attention and the thought formed at the root of my brain: “Wait… What?”. 
+Then something caught my attention and the thought formed at the root of my brain: “Wait… What?”.
 
-There was a cereal box on the table, a plate with a piece of bread, and a half-finished glass of milk. That was too much of a coincidence. I blinked a couple of times and even bothered to stand up from the screen and double-check my own kitchen. You guessed it, the very same items were aligned on my real-world breakfast spot. 
-
-&#x200B;
-
-This was getting a bit weird and a bit unnerving, to be honest. You see, I prefer eating cereal straight from the box and leaving one slice of PBJ sandwich with half a glass of milk for a couple of hours later. That’s my breakfast routine, and even though I’m obviously not the only one who does that - the coincidence became suspicious.  
+There was a cereal box on the table, a plate with a piece of bread, and a half-finished glass of milk. That was too much of a coincidence. I blinked a couple of times and even bothered to stand up from the screen and double-check my own kitchen. You guessed it, the very same items were aligned on my real-world breakfast spot.
 
 &#x200B;
 
-It became even more suspicious when I navigated the character to the bathroom as other similarities popped up. There was a single T-shirt in the washing machine, and the bathrobe was lying on the floor (same as mine, I have had to fix that damn hanger for a week already) and there was no toilet paper (I used the last one this morning with plans to buy more today). 
+This was getting a bit weird and a bit unnerving, to be honest. You see, I prefer eating cereal straight from the box and leaving one slice of PBJ sandwich with half a glass of milk for a couple of hours later. That’s my breakfast routine, and even though I’m obviously not the only one who does that - the coincidence became suspicious.
+
+&#x200B;
+
+It became even more suspicious when I navigated the character to the bathroom as other similarities popped up. There was a single T-shirt in the washing machine, and the bathrobe was lying on the floor (same as mine, I have had to fix that damn hanger for a week already) and there was no toilet paper (I used the last one this morning with plans to buy more today).
 
 &#x200B;
 
@@ -66,7 +66,7 @@ What the hell is this game? Is it, like, watching me or something? Or do all the
 
 &#x200B;
 
-Since there was not much else to see in the game I shut it down and checked my apartment for any traces of the intrusion. I’m not James Bond, but I did my best to look around for hidden devices with none found. 
+Since there was not much else to see in the game I shut it down and checked my apartment for any traces of the intrusion. I’m not James Bond, but I did my best to look around for hidden devices with none found.
 
 &#x200B;
 
@@ -78,15 +78,15 @@ As I came back from the supermarket - my computer showed that a new update to �
 
 &#x200B;
 
-I launched it out of curiosity - same dark room, same door with the light bulb, same… HOLY FUCK! The patch added more details to the surroundings. Now it looked exactly like my place - even the bowl I used for keeping keys at the door looked identical and had the same dent. I could read the book titles on the shelves - the same as mine. And the fridge in the kitchen was now bigger and colored black. 
+I launched it out of curiosity - same dark room, same door with the light bulb, same… HOLY FUCK! The patch added more details to the surroundings. Now it looked exactly like my place - even the bowl I used for keeping keys at the door looked identical and had the same dent. I could read the book titles on the shelves - the same as mine. And the fridge in the kitchen was now bigger and colored black.
 
 &#x200B;
 
-There was no explanation. What kind of trick is this? I went to the game discussion forums. There were a couple of messages from players stating the devs are lazy with updates and how the whole thing sucked. I dropped my own: “Devs, what the \*\*\*\* is going on?” and described my experience with the game. 
+There was no explanation. What kind of trick is this? I went to the game discussion forums. There were a couple of messages from players stating the devs are lazy with updates and how the whole thing sucked. I dropped my own: “Devs, what the \*\*\*\* is going on?” and described my experience with the game.
 
 &#x200B;
 
-Several hours later I checked the responses - other users were posting that my topic is “a stupid PR move”  and asking me to get a life. 
+Several hours later I checked the responses - other users were posting that my topic is “a stupid PR move”  and asking me to get a life.
 
 &#x200B;
 
@@ -97,11 +97,8 @@ But in the evening I discovered that my query was deleted from the message board
 “Hi, guys! We are getting there and would like our community to take part in deciding on in-game protagonist/s. Vote now - enjoy later.
 
 1. Eldritch horror - 21%
-
 2. Demonic horror - 18%
-
 3. Monstrous horror - 4%
-
 4. Let the devs decide - 57%
 
 &#x200B;
@@ -110,7 +107,7 @@ Patch. 0.4.0.0 - graphics improvement, action triggers added, environmental even
 
 &#x200B;
 
-I had to see, so I launched the game and with trembling excitement navigated the character through the door. Not much has changed since the last time - the same things on their common spots. I walked around the room a bit and went to see the kitchen. As my character was inspecting the insides of a cupboard - the real me almost shit my pants. 
+I had to see, so I launched the game and with trembling excitement navigated the character through the door. Not much has changed since the last time - the same things on their common spots. I walked around the room a bit and went to see the kitchen. As my character was inspecting the insides of a cupboard - the real me almost shit my pants.
 
 &#x200B;
 
@@ -118,19 +115,19 @@ I’ve been so focused on the game, that when somebody knocked on my door - it a
 
 &#x200B;
 
-I was unprepared for this. The next second the knock on the door sounded again. I swallowed, knees starting to shake as I realized the sound was coming from my apartment. Something knocked on my bathroom door. From the inside. 
+I was unprepared for this. The next second the knock on the door sounded again. I swallowed, knees starting to shake as I realized the sound was coming from my apartment. Something knocked on my bathroom door. From the inside.
 
 &#x200B;
 
-I’m not proud of what happened next. Yes, I could play the Alpha male, get the cops, get a gun, and get things done. But I chose to run. Luckily this was a rented apartment and I don’t own that many things, so even after losing the deposit - by the evening I was sitting with boxes unpacked in a different district of the city. Safe and sound. Call me a wuss, I don’t care. 
+I’m not proud of what happened next. Yes, I could play the Alpha male, get the cops, get a gun, and get things done. But I chose to run. Luckily this was a rented apartment and I don’t own that many things, so even after losing the deposit - by the evening I was sitting with boxes unpacked in a different district of the city. Safe and sound. Call me a wuss, I don’t care.
 
 &#x200B;
 
-The flat didn’t resemble the old one in any way. Different planning, a bit larger, far more expensive, but that’s ok. 
+The flat didn’t resemble the old one in any way. Different planning, a bit larger, far more expensive, but that’s ok.
 
 &#x200B;
 
-I unpacked my PC first thing, as I still have to work on the weekdays, you know. Everything else could wait. Intending to put some music on Spotify while I unbox my clothes and washing stuff - I turned it on. Steam launched, being one of the apps I put to Autostart. It instantly started to download something, as the icon on the panel indicated. 
+I unpacked my PC first thing, as I still have to work on the weekdays, you know. Everything else could wait. Intending to put some music on Spotify while I unbox my clothes and washing stuff - I turned it on. Steam launched, being one of the apps I put to Autostart. It instantly started to download something, as the icon on the panel indicated.
 
 &#x200B;
 
@@ -146,21 +143,21 @@ Patch 0.5.1.0 - added AI, added The Follower, added new assets, fixed several bu
 
 &#x200B;
 
-There was also a sketch of some character, but it was so poorly drawn - I couldn’t tell for sure if that was the shape of his head or a hat, and how many fingers did he have. A silhouette standing in clouds of smoke, darkness… Or fire? I don’t know what they tried to represent there. 
+There was also a sketch of some character, but it was so poorly drawn - I couldn’t tell for sure if that was the shape of his head or a hat, and how many fingers did he have. A silhouette standing in clouds of smoke, darkness… Or fire? I don’t know what they tried to represent there.
 
-If you would ask me why I launched the game - I wouldn’t answer you. Stupidity? Curiosity? Obsession? I don’t know. Maybe I just wanted to see how that Follower looks in-game. Or if the game would freak me out now, as I’m not in that apartment. 
-
-&#x200B;
-
-But the next moment, as the game window popped on my screen and I pressed “New Game” - my body went numb. My breathing quickened and I guess a couple of blood vessels popped in my eyes as the overwhelming wave of fear covered me whole. 
+If you would ask me why I launched the game - I wouldn’t answer you. Stupidity? Curiosity? Obsession? I don’t know. Maybe I just wanted to see how that Follower looks in-game. Or if the game would freak me out now, as I’m not in that apartment.
 
 &#x200B;
 
-I was standing in the same dark room, the same door with the light bulb atop it, except… there was a second door next to it. Same pastel blue color as in my new apartment. 
+But the next moment, as the game window showed on my screen and I pressed “New Game” - my body went numb. My breathing quickened and I guess a couple of blood vessels popped in my eyes as the overwhelming wave of fear covered me whole.
 
 &#x200B;
 
-I don’t know what to do. I don’t know what to think. I’ve been sitting here all night afraid to move or make any actions. And the constant knocking on the bathroom door keeps me awake. 
+I was standing in the same dark room, the same door with the light bulb atop it, except… there was a second door next to it. Same pastel blue color as in my new apartment.
+
+&#x200B;
+
+I don’t know what to do. I don’t know what to think. I’ve been sitting here all night afraid to move or make any actions. And the constant knocking on the bathroom door keeps me awake.
 
 &#x200B;
 
