@@ -12,4 +12,4 @@ I stuck my head under my blanket and yelled for my parents and when my dad came 
 
 My mom asked me if i knew what a ouija board is.. I replied no i do not. She went on and told me all about it and how you can try and communicate with ghosts and what not and that they are bad due to the fact that they can open up portals and there is no telling what you can invite into your home. She said she caught my sister and her friend using one a couple days ago and my sister was telling my mom on and on about how she was antagonizing the spirits by calling them p***ys and saying “i bet you wont show yourself.
 
-My mom believes she may have invited in a un welcomed guest. To this day that house was never the same alot of other weird and freaking stuff continued in that house until we decided to move. If you liked this story let me know and i will keep posting.
+My mom believes she may have invited in a un welcomed guest. To this day that house was never the same alot of other weird and freaking stuff continued in that house until we decided to move.
