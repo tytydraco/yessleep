@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 8166
+file count: 8167
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
@@ -1848,8 +1848,8 @@ file count: 8166
 * [I dont know what happened](out/I_dont_know_what_happened.md)
 * [I dont know what I saw on my grandfathers property but I have a good idea of what it was](out/I_dont_know_what_I_saw_on_my_grandfathers_property_but_I_have_a_good_idea_of_what_it_was.md)
 * [I dont know what to do please help me](out/I_dont_know_what_to_do_please_help_me.md)
-* [I Dont Know What To Do](out/I_Dont_Know_What_To_Do.md)
 * [I Dont Know What to do](out/I_Dont_Know_What_to_do.md)
+* [I Dont Know What To Do](out/I_Dont_Know_What_To_Do.md)
 * [I Dont Know What Was In My Car](out/I_Dont_Know_What_Was_In_My_Car.md)
 * [I dont know whats happening anymore](out/I_dont_know_whats_happening_anymore.md)
 * [I dont know where I am and everything is falling apart around me](out/I_dont_know_where_I_am_and_everything_is_falling_apart_around_me.md)
@@ -2648,8 +2648,8 @@ file count: 8166
 * [I saved a white snake](out/I_saved_a_white_snake.md)
 * [I saved a young womans life I should have let her die](out/I_saved_a_young_womans_life_I_should_have_let_her_die.md)
 * [i saw a skinwalker on riverdale road last night](out/i_saw_a_skinwalker_on_riverdale_road_last_night.md)
-* [I Saw Aka Manto](out/I_Saw_Aka_Manto.md)
 * [I saw Aka Manto](out/I_saw_Aka_Manto.md)
+* [I Saw Aka Manto](out/I_Saw_Aka_Manto.md)
 * [I saw heaven and now I want nothing more than to sin](out/I_saw_heaven_and_now_I_want_nothing_more_than_to_sin.md)
 * [I Saw How We Will All Die](out/I_Saw_How_We_Will_All_Die.md)
 * [I Saw It in the Depths](out/I_Saw_It_in_the_Depths.md)
@@ -2856,6 +2856,7 @@ file count: 8166
 * [I think my OCD tendencies are bad omens If I dont obey them death follows](out/I_think_my_OCD_tendencies_are_bad_omens_If_I_dont_obey_them_death_follows.md)
 * [I think my reflection is trying to tell me something](out/I_think_my_reflection_is_trying_to_tell_me_something.md)
 * [I think my Roomba is trying to kill my girlfriend](out/I_think_my_Roomba_is_trying_to_kill_my_girlfriend.md)
+* [I Think My Roommate is a Vampire](out/I_Think_My_Roommate_is_a_Vampire.md)
 * [I think my roommate is trying to kill me](out/I_think_my_roommate_is_trying_to_kill_me.md)
 * [I think my school is alive](out/I_think_my_school_is_alive.md)
 * [I think my son is turning into an incel but I didnt know that meant chanting](out/I_think_my_son_is_turning_into_an_incel_but_I_didnt_know_that_meant_chanting.md)
@@ -3645,8 +3646,8 @@ file count: 8166
 * [Im an investigative journalist with a special interest in unsolved homicides  missing persons cases I need help with a case](out/Im_an_investigative_journalist_with_a_special_interest_in_unsolved_homicides__missing_persons_cases_I_need_help_with_a_case.md)
 * [Im an investigative journalist with a special interest in unsolved homicides and missing persons cases I got an email from a missing person](out/Im_an_investigative_journalist_with_a_special_interest_in_unsolved_homicides_and_missing_persons_cases_I_got_an_email_from_a_missing_person.md)
 * [Im an Uber driver and one of my passengers invited me into their home](out/Im_an_Uber_driver_and_one_of_my_passengers_invited_me_into_their_home.md)
-* [Im at War with my Best Friend Part 1](out/Im_at_War_with_my_Best_Friend_Part_1.md)
 * [Im at war with my Best Friend Part 1](out/Im_at_war_with_my_Best_Friend_Part_1.md)
+* [Im at War with my Best Friend Part 1](out/Im_at_War_with_my_Best_Friend_Part_1.md)
 * [Im at war with my Best Friend Part 2](out/Im_at_war_with_my_Best_Friend_Part_2.md)
 * [Im at war with my Best Friend Part 3](out/Im_at_war_with_my_Best_Friend_Part_3.md)
 * [Im Back From The Cursed Playlistand Maybe Truth Is Stranger Than Fiction](out/Im_Back_From_The_Cursed_Playlistand_Maybe_Truth_Is_Stranger_Than_Fiction.md)
