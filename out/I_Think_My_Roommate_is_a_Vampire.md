@@ -4,7 +4,7 @@ That sounds idiotic, right? Everyone knows vampires aren't real, but hear me out
 It started about a year ago when my old roommate decided to move in with his girlfriend without any warning. His name was on the lease too, and I could have just forfeited my half of the deposit and found a cheaper place, but that's really hard to do on short notice, especially in the middle of a semester. So, I put out ads everywhere I could think of online and around campus for a new roommate, not really expecting much.
 
 
-To my initial delight I got a nibble within a week. She was a quiet grad student who'd had some sort of falling out with her own roommate and needed a place to land. Perfect! Or so I thought. She moved in and covered her half of the expenses when bills came due at the start of the next month. It looked like I managed to dodge a bullet, and maybe in my relief I ignored a few signs I should have picked up on.
+To my initial delight I got a nibble within a week. She was a quiet grad student who'd had some sort of falling out with her own roommate and needed a place to land. Perfect! Or so I thought. She moved in and covered her half of the expenses when bills came due at the start of the next month. It looked like I managed to dodge a bullet, and maybe in my relief at not being evicted I ignored a few signs I should have picked up on.
 
 
 You see, I almost never saw my roommate. She stayed locked up in her room most days when I was home. Though I occasionally bumped into her watching something on our shared TV late at night. Her explanations were reasonable. Night shift work as a medical intern, sleep schedules, all that seemed legit.
