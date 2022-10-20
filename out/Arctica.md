@@ -88,7 +88,7 @@ I checked the line feeding through the top of the Dowler, "We're still good," wa
 
 Chloe looked up from her laptop and confirmed, "The ice is steady."
 
-London nodded briefly before grabbing the bars beneath the Dowler. "Lowering stands by 5 feet." The legs collapsed around the hole, reminding me of a king crab if it could squat. "Pushing through the end cap." I could almost hear it pop as the drill hit the ice on the other side.
+London nodded briefly before grabbing the bars beneath the Dowler. "Lowering stands by 5 feet." The legs collapsed around the hole, reminding me of a king crab if it could squat. "Pushing through the end cap." I could almost hear it pop as the drill pierced into the ice on the other side.
 
 The three of us looked at each other. I didn't know I had been holding my breath until Chloe broke the silence, "Here's to going where no one's been in over a million years," she shouted. I couldn't help but smile. She held up two fingers at me, "2 meters."
 
@@ -96,7 +96,7 @@ I nodded.
 
 "Ice, ice, baby," London recanted.
 
-I could almost hear the drill screaming below as the bits continued to disappear down the hole.
+I watched as the bits continued to disappear down the hole.
 
 "How far did they want us to go," I asked.
 
@@ -134,11 +134,11 @@ I was too terrified to move a muscle. Chloe's hand on my elbow felt the same way
 
 "Is he okay?"
 
-I get on my hands and knees, until I am flat on my stomach and crawl toward him. My hand grabbing a sleeve as I start to pull him toward me. He didn't look to be breathing. I tugged on his jacket and his body slowly slid forward. The ice was thick, and we needed to move quickly. But we also thought it was thick before we started drilling. So I moved with purpose.
+I get on my hands and knees, until I am flat on my stomach and crawl toward him. My hand grabbing a sleeve as I start to pull. He didn't look to be breathing. I knew that the ice was thick, and we needed to move quickly. But we also thought it was thick before we started drilling. So I moved with purpose and slowly slid him forward.
 
-When it looked as if I were able to pull him out, he suddenly felt stuck. I tugged on his jacket again and he wouldn't budge. It was then that I realized that he was twisted around, his knee must have broken in the accident. Creating an abnormal wedge in the snow. I turned him over with great effort, and was then finally able to pull him free. His body still limp by the time I got him over to Chloe. She immediately started tending to him, sticking hot pads into his jacket, under his arm pits and between his groin. I brushed off as much snow on him as I could, and with Chloe's help, I got him into the tent. Once inside we stripped him completely naked, drying any parts that we could find. He was wet down his back and all over his trousers. I could smell the urine on him as we worked quickly to stabilize his condition. Putting on a set of new clothes to warm him.
+When it looked as if I he were finally coming loose, I felt something snatch. I tugged on his jacket again and he wouldn't budge. It was then that I realized that he was twisted around, his knee must have broken in the accident. Creating an abnormal wedge in the snow. I turned him over with great effort, and was then finally able to pull him free. His body still limp by the time I got him over to Chloe. She immediately started tending to him, sticking hot pads into his jacket, under his arm pits and between his groin. I brushed off as much snow on him as I could, and with Chloe's help, I got him into the tent. Once inside we stripped him completely naked, drying any parts that we could find. He was wet down his back and all over his trousers. I could smell the urine on him as we worked quickly to stabilize his condition. Putting on a set of new clothes to warm him.
 
-I don't know how long we worked for, but eventually color began to return to his face. The manual resuscitator was removed from his mouth as he started breathing again on his own. The two of us fell backwards on our asses as we watched him breath for awhile.
+I don't know how long we worked for, but eventually color began returning to his face. The manual resuscitator was removed from his mouth as he started breathing again on his own. The two of us fell backwards on our asses as we watched him breath for awhile.
 
 "Shit."
 
