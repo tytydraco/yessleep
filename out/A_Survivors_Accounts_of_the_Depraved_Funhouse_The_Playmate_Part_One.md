@@ -1,4 +1,4 @@
-[[2]](https://www.reddit.com/r/nosleep/comments/y7p2ep/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
+[[2]](https://www.reddit.com/r/nosleep/comments/y7p2ep/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) | [[3]](https://www.reddit.com/r/nosleep/comments/y8khor/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
 
 If there's anything I've learned, anything at all, in the [past year since I began telling my story](https://www.reddit.com/r/nosleep/comments/n7g6ra/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=web2x&context=3), it's this; memory is a cruel thing. Memory is what robbed me of sleep -- what *still* robs me of sleep. I still see everything. Memory continues to fuel my never ending night terrors. The memories of ma and dad, of Liza, Derek...
 

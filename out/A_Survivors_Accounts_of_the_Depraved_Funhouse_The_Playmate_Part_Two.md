@@ -1,4 +1,4 @@
-[[1]](https://www.reddit.com/r/nosleep/comments/y6sy0t/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[[1]](https://www.reddit.com/r/nosleep/comments/y6sy0t/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) | [[3]](https://www.reddit.com/r/nosleep/comments/y8khor/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
 
 I closed my eyes and took a deep breath, trying to dispel his echoing screams from my mind. "Fine, you win..." I said, sighing. "We'll wait for the cops." It was another five or so minutes before the police showed up. When they arrived, I let Ray do most of the talking. Finally, the officer turned to me and asked for the photo.
 
