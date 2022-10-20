@@ -8,7 +8,7 @@ She was carrying 2 large black duffle bags, each with 3 large ASCII smiley faces
 
 Finally, she said something else.
 
-As I pulled over, before the taxi had even come to a complete stop, she had opened the door and was climbing out. I yelled at her about the price, but it was no use - She was off and I didn't want to cause a scene by chasing her. Besides, she was clearly already scared of someone or something when she get into my taxi; I didn't want to frighten her more.
+As I pulled over, before the taxi had even come to a complete stop, she had opened the door and was climbing out. I yelled at her about the price, but it was no use - She was off and I didn't want to cause a scene by chasing her. Besides, she was clearly already scared of someone or something when she got into my taxi; I didn't want to frighten her more.
 
 I had gotten back to the town centre when I realised she had left one of the 2 duffle bags in the footwell in the back. It wasn't the bag or even the large white smiles that caught my attention, but the money that I spotted through the slightly unzipped opening. Looking back, I like to believe it was my intention at this point to turn around and hope the woman was nearby the drop-off spot. But truthfully, I think I had made up my mind about what I was going to do before I even unzipped the bag.
 
