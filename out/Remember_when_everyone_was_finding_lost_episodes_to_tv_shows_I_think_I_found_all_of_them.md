@@ -1,4 +1,3 @@
-
 Remember when everyone was “finding” lost episodes to tv shows?
 
 It was usually kids' shows, and they always go the same way. Everyone acts cruel, somebody dies in a gory fashion, the end. It was fun for a while, but the formula got repetitive.
@@ -57,7 +56,7 @@ Then I scanned it for obscure titles. Obscure fandoms I fell into that few peopl
 
 This settled the matter to me that the list could not possibly be the actual contents of the disc. Honestly, the list itself was a little unsettling to look through for long. Nothing was explicitly wrong, but it felt off how I was able to navigate through the items. 
 
-It’s hard to explain exactly why. The best I can say is it was too easy to find each item. I was able to navigate the list because it was alphabetized. If I wanted to find Mo, I flipped to where the Ms should be, and skimmed down the list to Mo. It felt strange though. Like I only needed to go past maybe a dozen titles until I was looking at Mobile Suit Gundam. But if I actually looked for titles with Ma or Me, the list was exhaustively long. 
+It’s hard to explain exactly why. The best I can say is it was too easy to find each item. I was able to navigate the list because it was alphabetized. If I wanted to find Mo, I flipped to where Ma should be, and skimmed down the list to Mo. It felt strange though. Like I only needed to go past maybe a dozen titles until I was looking at Mobile Suit Gundam. But if I actually looked for titles with Ma or Me, the list was exhaustively long. 
 
 Still, I couldn’t confirm anything was actually up with carefully photographing and cataloging the list, something I had no interest in doing right then. The only other interesting thing about the list was the last item. It wasn’t alphabetized, instead, it read “Director’s Commentary”. 
 
