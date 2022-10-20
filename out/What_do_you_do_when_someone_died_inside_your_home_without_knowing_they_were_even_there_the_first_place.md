@@ -1,0 +1,21 @@
+I'm 23, and I live on my own at my late grandparents house. My ex gf just moved out and she took the dog bc she was better at taking care of him. I'm completely alone but have really friendly neighbors who always look out for me. I work at a local grocery store from 9-5 on weekdays, and just stay in my room for the rest of my free time. Sometimes my neighbors who used to be friends with my grandparents would visit me, give me free food, or bake with me in the kitchen. I was pretty satisfied with how I live. 
+
+Our town is also elevated and away from water bodies so whenever it rains, it doesn't flood easily. But my house got this big pipe in the basement that prevents rainwater from reaching or flooding the basement. The pipe is really big and could fit 2 people inside. Tho it rarely rains here, when it does, it fills the pipe with rainwater which takes some time to drain.
+
+One day while I was still at work, my neighbor Eleina texted me that she left a tray of eggs to my "wife" for us to have during the storm. Our region is in LPA and it just started raining really hard that day. 
+
+It took me aback as to I have no idea what she was talking about bc me and my gf separated 2 months before this incident. I called her and asked what she meant by the last message and said that my back door was open and she saw a young lady eating a bowl of cereal and wearing my shirt. Eleina has Alzheimer's and lives a few blocks away so I always had to remind her about how I live alone, and keep the backdoor locked because she comes by often and tidies my place up. 
+
+I called the police and reported a burglary then I came home as soon as I could. They weren't able to find anything but they did mention that the window in the guess room slightly bent forward and doesn't close the way it used to, as if someone forcibly opened it some time ago window, which I didn't pay attention to because I thought that since it's and old issue, it must've my aunt who broke it when she used to live here with my grandparents. 
+
+After the cops left, I decided to sleep over my neighbors' who was concerned and invited me in, just until after the storm. It wasn't a big storm, it just rained really heavily and flooded a little bit downtown. When I got home after the storm after 2 days or so, there was a lingering stench of something rotting. Like a dish that I have left out for a year, it was unexplainable and I asked for someone to check it out. 
+
+They were able to point out where it was coming from, but had to leave to get some mask or something bc the smell was just unbearable. It was coming from the basement btw, and from one of the pipes, specifically. First thing that came to mind was "This is probably a dead animal, could be a rat". But basing from the smell, it could be something bigger, like a cat or maybe a dog. 
+
+But no. 
+
+The guy I askked help for started asking me questions like: have you been in a fight with someone? Do I live with someone, or used to? Was there someone in my house that I was aware of? My skin crawled as I started to get the picture. There was a fucking dead human inside the pipe. A person was living in there and I haven't even noticed nor made suspicions. All those nights of hearing sounds coming from the guest room, kitchen, ir basement, thinking it was the animals. All those convincing myself my house is haunted for all the missing jars and empty boxes of junk foods and cereal. my clothes that would disappear and reappear after a week or so. I was ignorant and it all just makes sense. So once again, there were police. I was questioned, then as I got home, I just stared at my ceiling, I couldn't even sleep.
+
+The police made an investigation out if this, and questioned people who live near the area. Apparently they have been seeing a pale woman who was in her late 20's with brunette short hair who was always in the kitchen when I'm not home. People assumed it was my new gf since she was always around. Kids saw her too and apparently, she must've been living here for more or less 4 months. 4 months and I haven't even suspect anything was wrong. 
+
+Moved out of that house, but never sold it. I live with my brother now, currently unemployed. This was a traumatic experience for me, please always stay safe.
