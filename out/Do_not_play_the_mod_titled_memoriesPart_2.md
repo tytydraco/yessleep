@@ -1,10 +1,14 @@
-Do not play the mod titled "memories"-Part 2
-
 Hey again guys, It's been a while since i've been here....I'm currently in my closet...Hiding from Her.....I'm trying to tell you all this before it's too late...
+
+If you're confused: A while back I downloaded a Mod for Elden ring, It ended up leading to a lot of crazy things going down. Now I'm being hunted down by some supernatural entity who wants to claim my soul...It sounds crazy I know but I promise you, that's what happened. If you want to read the story for yourself...here's the link:
+
+[https://www.reddit.com/r/nosleep/comments/y53r1v/do\_not\_download\_the\_mod\_memories/](https://www.reddit.com/r/nosleep/comments/y53r1v/do_not_download_the_mod_memories/)
 
 Whilst I was gone I received a message on my phone from someone named keith....I was going to ignore it, but then another message popped up, then another, and another. I couldn't ignore it so I decided to read what this stranger was saying.
 
-This is the conversation that followed: K-Keith A-Me\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+The following text is what was said word for word over text messages.
+
+K-Keith A-Me\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 K: Hello, my name is keith. I need to talk to you...please answer.
 
@@ -70,16 +74,18 @@ K: NO! Drop the phone, she can go through that to-------***~~WHY ARE YOU RUNNING
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-That was 2 hours ago...I'm still here inside my closet. I hope keith is alright.
+That conversation was 2 hours ago...I'm still here inside my closet. I hope keith is alright.
 
 All I can hear is Margit's (or should I say cassandra's) loud footsteps and slight cooing every once in a while...I know she's out there, trying to pull me inside...
 
 I don't have much time left...she's right outside the closet...She hears me breathing....I Know I'm not going to make it....Please, whoever read this...this is my final message to the world...please do not download the mod in Elden Ring titled "memories"...
 
-This is the end of the road for me...Goodbye.
+This is the end of the road for me...but you dear reader can help me warn the world. Warn others not to install this mod. Even if that means making a youtube video that no one will watch...
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 Hello young one...Would you like to join my family? You WOULD? Just install a mod, it takes no time at all...it's called 'memories'. Just install it and we can be one big happy family, me and my friends would LOVE to meet you! I just added two new friends, a third one wouldn't hurt. So come on ***~~...install the mod. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW. DO IT NOW.~~***
 
-Link to First story:
+&#x200B;
 
-[https://www.reddit.com/r/nosleep/comments/y53r1v/do\_not\_download\_the\_mod\_memories/](https://www.reddit.com/r/nosleep/comments/y53r1v/do_not_download_the_mod_memories/)
+&#x200B;
