@@ -1,16 +1,16 @@
-I’m back bitches, and do I have a story to tell you, I survived the fucking Shadow realm. 
+I’m back bitches, I survived the fucking Shadow realm.
 
-Last time I posted, we learned a little about [Louis](https://www.reddit.com/r/nosleep/comments/xlx8wh/night_shift_at_the_data_center_the_security_guard/). 
+Last time I posted, we learned a little about [Louis](https://www.reddit.com/r/nosleep/comments/xlx8wh/night_shift_at_the_data_center_the_security_guard/).
 
-About a month ago, I went into my next shift like normal, and unfortunately, nothing happened. Tom didn’t return, no entities in sight, and no issues with the devices. I avoided the elevator, since I really didn’t want to deal with that alone. 
+About a month ago, I went into my next shift like normal, and unfortunately, nothing happened. Tom didn’t return, no entities in sight, and no issues with the devices. I avoided the elevator, since I really didn’t want to deal with that alone.
 
-Then Thursday came along, that’s where everything went to hell. Jonah and Louis were sitting in the office, waiting for me, and Jonah told me that he was going to stay overnight with me and Louis, since he was worried about Tom. 
+Then Thursday came along, that’s where everything went to hell. Jonah and Louis were sitting in the office, waiting for me, and Jonah told me that he was going to stay overnight with me and Louis, since he was worried about Tom.
 
-According to Louis, no one that he knows has been in the Shadows as long as Tom has. He even brought some journals from various family members that served before him. 
+According to Louis, no one that he knows has been in the Shadows as long as Tom has. He even brought some journals from various family members that served before him.
 
-We waited a couple of hours, hoping something would come around or one of the sigils would be used. 
+We waited a couple of hours, hoping something would come around or one of the sigils would be used.
 
-Around 8pm, we heard laughing. 
+Around 8pm, we heard laughing.
 
 We all turned to the window and saw the big mouthed entity standing there, laughing. When he got our attention, he stopped and pointed at me.
 
@@ -26,9 +26,11 @@ As I left the office, the entity started walking to the elevator, and without pr
 
 I looked back to Jonah and Louis, hoping for some sort of comfort, but neither of them could give me a reassuring look. I marched on, hoping that I am making the right choice.
 
-As soon as I stepped inside the elevator, I felt my temperature drop. Almost like going from a hot kitchen into the walk-in freezer. Next thing I know, the elevator lights start flickering and the doors close. 
+As soon as I stepped inside the elevator, I felt my temperature drop. Almost like going from a hot kitchen into the walk-in freezer. Next thing I know, the elevator lights start flickering and the doors close.
 
-The lights shut off, then quickly came back on. The doors were opened, but there was a forest on the other side. This forest looked like someone took a photo of a forest but put it in the grayscale, except the grass. The grass was brown and lifeless. 
+The lights shut off, then quickly came back on. I was face to face with the thing that grabbed Tom. I was angry and scared, I wanted to punch this thing, but I was frozen. It was a pale woman with long, pitch black, hair. She wore black robes and had tattoos on her hands. She smiled, and grabbed me by my shoulders. 
+
+I woke up gasping for air, trying to readjust my body from an almost arctic to normal state. I was in a forest. This forest looked like someone took a photo of a forest but put it in the grayscale, except the grass. The grass was brown and lifeless. 
 
 I noticed on a nearby tree was a carving of one of the protection sigils that Louis put up. I decided to start walking in that direction.
 
@@ -46,52 +48,76 @@ He started off in a direction, occasionally looking down at a compass.
 
 “No, I just figured that heading North usually leads me to the exit.” He responded quickly. 
 
-Before I was about to respond, we heard the sound of trees snapping. Not just branches being broken, but full trees. 
+Before I was about to respond, the ground started shaking. I thought it was an earthquake, but when I turned behind me, there was a being in the distance. 
 
-I made the mistake of looking behind us. 
+Behind us was the behemoth of a monster. There weren't any markings or any sort of distinguishable features on its skin, just darkness. It had an almost humanoid silhouette, except it was bent over on all fours with a crooked back and multiple tentacles spawning from its back. The size of it could only be compared to that of a mountain. 
 
-I only got a decent look at it, it was a giant being. Not like an elephant giant, but more of a cosmic horror. Except, it was like a shadow of one. There weren't any markings or any sort of distinguishable features on its skin, just darkness. It had an almost humanoid silhouette, except it was bent over on all fours with a crooked back and multiple tentacles spawning from its back. 
+I thought it was just one of those visual illusions, but when it started moving toward us, I realized that this wasn’t just a normal being.
 
-Eventually, I realized I was running away from it while still maintaining eye (face?) contact. 
+It opened its mouth and shrieked, sending both me and Tom to the ground. 
 
-Then I ran into something. 
+I couldn’t move, I just laid there, clutching my ears in hope of drowning out the painful screams. 
 
-I woke up in a cave, or more of a carved out hill. It wasn’t human or entity made, it looked almost natural. Tom was nearby, keeping an eye outside.
+The screaming felt like it lasted for hours, when it finally stopped, I was still frozen. 
 
-“Welcome back to the land of the living, or I guess, it’s more like the land of the shadows. I managed to carry you to this cave, and hid out in this cave until that thing left. By the way, usually you want to face the direction you run in, so you don’t run face-first into a tree.” He said, matter-of-factly. 
+It was right above us. The giant eyes, as dark as the world around us, peering down on us. It picked up Tom and crushed his body. His corpse was thrown not too far away, and hit a nearby tree with a squish. 
 
-“Great, I will remember that next time I am chased by Cthulhu’s cousin. How long have I been out?” 
+I was only snapped out of my paralysis when I saw a nearby sigil, glowing red. 
 
-“It’s been around an hour, I think? Time moves differently here. Last time I was here, for you guys it was a week, for me, about a few hours.”
+I forced my body to get up and run as fast as humanly possible. I reached the sigil, and a bright flash surrounded me. 
 
-“Oh shit, well, at least I hope I get overtime for this.”
+I was teleported to a cave with the sigil marked on a wall. It was now crossed out. 
 
-“Yeah, Jonah will actually approve it, considering he will just claim we were short-staffed or some bullshit excuse to corporate. They can’t really argue, since without us, the data center wouldn’t function.” 
+I fell down. My body was practically filled to the brim with adrenaline, and now that I was relatively safe, I needed to rest. 
 
-He almost sounded proud of saying that.  
+I woke up eventually, and I wasn’t thirsty or hungry. I’m not sure if it was the sigil that made me feel this way, or if it was just a normal feeling when in this place. 
 
-“Well,” I started saying as I stood up, “I’m still alive and mostly functional, let’s get out of here.”
+This cave was deep, I woke up in a dead end, and the only direction to go was up. I used my phone as a flashlight, hoping that the 80% that is left won’t die anytime soon. 
 
-Tom took one last peek, nodded to me, and we left the cave. 
+After roughly twenty minutes of climbing and walking, I was in this open space. It was a mass grave. There was a giant hole in the middle of the space, with skeletons and rotting bodies laying there. In the middle was some sort of totem. 
 
-A couple of hours passed, and we found a door. Not elevator doors, but a regular office door. 
+The smell from that room almost knocked me out. The thought of whoever did this terrified me, the giant from the other realm couldn’t possibly fit in this cave, it could be the cultists that Louis’ family is fighting, or maybe it is another entity. 
 
-We opened it, and we found ourselves back at the data center, but we were in the hallway near the restrooms. As we walk out of the hallway towards the office, I see that Matt was at his desk, nose deep in some book. 
+I was not able to think for long, when I started hearing movement. I heard what sounded like footsteps, comin down from what I assumed was the exit. It was another one of those shadow entities, except it was like that giant. A humanoid figure that was hunched back and on all fours. 
 
-Like the asshole I am, I snuck up to the door and started banging on it. 
+It stopped in its tracks and looked straight at me. It didn’t make a sound or anything, it just started sprinting towards me. I did not react fast enough, and it bit down on my arm. 
 
-Matt proceeded to throw his book into the tiled ceiling and fell out of his chair. 
+I started hitting it in the head sporadically, hoping it would let go. I even tried going for what I assumed were eyes, but nothing. 
 
-Honestly, after the night I had, I think it was somewhat justified to have a good laugh. Tom even started chuckling before Matt realized it was us. 
+I started to become light headed, but I felt around the floor and found a rock. I wrapped my fingers around it, and bashed the entity’s head in. That made it let go of my arm, it made a low pitched scream and ran down to the direction I came from. 
 
-“Oh my God, it’s great to see you guys! How was your vacation?” Matt said, excitedly. 
+I was not going to stay there for any longer, and ran for the exit, clutching my bleeding arm.
 
-I started to say something, but Tom cut me off. “Yeah, it was great, we got to see the mountains and valleys.”
+It took a while with a damaged arm, but I was able to leave the cave. 
 
-“That’s awesome, maybe next time you guys can invite me, I love camping.” He smiled, as he searched for his book.   
+I was no longer in the same forest. This one felt normal. I started walking down when I saw a hiking path. I started walking down the path when I saw the pale woman again. 
 
-We ended up staying a little longer just to rest, before we called Jonah, and let him know that we’re back. Tom explained to me later that the cover story will always be some sort of camping trip, he actually cares about Matt’s sanity, so he is trying to just avoid the whole issue. 
+“Congratulations on surviving, young one,” she said with a smile.
 
-Honestly, I am not sure how someone could go camping for a month, but I guess it’s good enough for Matt. 
+“Where the hell am I?”
 
-It’s good to be back, even if it was only for a day. I’m not sure on the terminology just yet, but it’s been a long time, so stay safe my friends. I’m going to take a nap.
+“You are back in the normal realm, your workplace isn’t too far away.”
+
+“Great, tell me which direction and I will gladly let you get back to your activities.”
+
+“Not yet, you show some competence, and the ability to handle the shadows. I want you to join us. Take some time to think about it, you will know how to reach me.” 
+
+She vanished in a puff of black smoke.
+
+“Well at least tell me where the fuck to go.” I said as the smoke drifted off into the sky. 
+
+I ended up having to walk for another twenty minutes and found myself a sign. It had the direction for other trails, and the park entrance. 
+
+Unfortunately, when I reached the park entrance, I realized that I was on the opposite side of the forest. In other words, there’s a good 60 mile gap between me and my work. 
+
+The nice park ranger was able to get a taxi to come out and drive me back to my work. I am glad my wallet survived the shifting of realms. 
+
+When I walked into the office, I saw Jonah and Louis standing in the lobby.
+
+Jonah noticed me and asked “Holy shit, it’s been like a month, are you okay?” 
+
+I broke down. Jonah drove me home, and said we can talk about what happened when I am ready. 
+
+It took me a couple of days to write this out, but I don’t know what to do. That thing looked at us like we were just fucking bugs. How in the hell are we supposed to fight something like that? 
+
+I am going to take a break. I’ll eventually come back and update you guys when I am ready. 
