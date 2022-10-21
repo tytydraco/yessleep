@@ -36,7 +36,7 @@ I saw a hand, which looked like it was manifested from the darkness, resting on 
 
 He came to a stop at the foot of my bed. It looked as if this figure had been built from wire, elongated beyond proportion. I could see his ribs poking through his skin, begging to be freed from his rib cage. He was almost as tall as my room, easily being over 10ft tall. He raised his impossibly thin arm and pointed at me. I heard one thing.
 
-Leave
+*Leave*
 
 I didn’t have to be told twice. I bolted out of bed and ran past him towards my front door. It felt as though I ran for 100 meters, it felt like an eternity. That it was impossible to escape and I wasn’t moving. But i reached the front door. I swiftly grabbed my keys and sprinted out. Before I left I took one look back. And the figure seemed to be smiling, staring at me run away. 
 
@@ -46,4 +46,4 @@ A few months after whilst I was working on an English essay, the news station th
 “Recently, a landlord at the [redacted] apartment buildings has been arrested for the murder of 6 tenants over the course of 3 years. His most recent victim, Sadie Redfield, was reported missing 2 months ago, and when Sadie’s neighbours reported a foul stench coming from her apartment, room 163, two police officers showed up on the scene, and found the landlord cuddling with Sadie’s decapitated body.” 
 The news showed an image of the landlord and his name, and my blood ran cold as I recognized the man as my own landlord.
 
-Just then there was a knock on my door, I walked up to it and on the doormat was a box, I looked left and right down the corridor and saw no one. That’s weird, first of all I didn’t order anything, second there wasn’t a delivery guy outside, and third of all, how did someone get away so fast without causing any noise? I picked up the box and attached to it was a small post-it-note. ‘See you soon’ I opened the box and screamed. Inside the box were a bunch of photos of me sleeping and laying on my bed. All taken from that creaking door.
+Just then there was a knock on my door, I walked up to it and on the doormat was a box, I looked left and right down the corridor and saw no one. That’s weird, first of all I didn’t order anything, second there wasn’t a delivery guy outside, and third of all, how did someone get away so fast without causing any noise? I picked up the box and attached to it was a small post-it-note. *‘See you soon’* I opened the box and screamed. Inside the box were a bunch of photos of me sleeping and laying on my bed. All taken from that creaking door.
