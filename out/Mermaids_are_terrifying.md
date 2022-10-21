@@ -1,0 +1,17 @@
+I’ve always loved the sea. When other girls were dressing up as princesses, I would dress up as Anne Bonny. In high school I was captain of our sailing team. There’s truly no feeling like cutting through the chop, wind at your back, ocean spray slamming into you every time your bow dips after a wave.
+
+Naturally, I familiarized myself with the culture of sailors: real sailors, not mere enthusiasts like myself. Sailors are a superstitious bunch, and anyone who’ve ever sailed out of sight of the coastline can understand why: once the last piece of land goes over the horizon, there isn’t a single thing to tell you where you are. Sure, technology has come a long way, but knowing your location on a map is a small comfort when the entire world around you looks the exact same as everywhere else. Out there, you could have been teleported halfway across the world and you’d never know it until the stars came out and looked the tiniest bit wrong.
+
+It’s easy to see why sailors would invent the mermaid. Lot of men who haven’t seen a woman in months, they’ll start to see women everywhere. But mermaids always struck me as making sense in a way other mythical creatures, like, say, centaurs, didn’t. A centaur would fall over. A centaur would have two rib cages, two hearts. A centaur doesn’t make any sense, biologically.
+
+But a mermaid? That’s just an aquatic human. And humans are already pretty good swimmers. Why couldn’t some ape have followed the same evolutionary pathway as dolphins and whales? Stranger things have happened.
+
+So when I heard a rumor about a mermaid in Greenland, I decided to follow my gut and go check it out. Worst case scenario, I got to sail in the Arctic ocean, which would definitely be a treat. On my way to the cove described to me by the locals, I saw a pod of humpback whales pass nearby. Majestic.
+
+Whales are 60 foot long apex predators with teeth longer than a person. Whales can swim upwards of 30 miles an hour. Whales are smart. Whales can communicate with each other. Whales can travel between continents. Whales can destroy small boats with a flick of a tail. But nobody’s afraid of whales. Whales are majestic and beautiful and maybe even adorable, but never terrifying. After all, nobody’s ever been attacked by a whale in the wild.
+
+As I sailed into the cove, and tied off onto a convenient rock, I noticed an overpowering smell of rotting flesh. A seal carcass, it’s belly torn open, was lying on the other side of the cave from me, a foot from the waterline. Probably a whale, but maybe a mermaid? I held out hope to see a magical sight. As per the instructions of the locals, I had a large vessal of some unknown, very potent alcoholic drink, as a gift. To pass the time, I rechecked the knots on the boat. An hour passed. Then two. I began to consider heading back, when all hell broke loose.
+
+Aquatic mammals are, as a rule, large. This is for multiple reasons: to preserve heat, to discourage predators, to increase lung capacity. Beavers are larger than other rodents, polar bears are bigger than other kinds of bears, etc. I guess, logically speaking, it should apply to mermaids, right? Which is why the 50 foot tall woman chewing on a colossal squid shouldn’t have been a surprise.
+
+I really, really don’t want to find out what this thing is going to do to me when it finds me.

@@ -104,7 +104,7 @@ It was Mrs. Rose. She was so angry that I couldn't imagine a sweet lady like her
 
 "You mean the closet with locks on it?"
 
-"I believe that's the one. Remember to hide inside the-" A long beep followed.Our line has been cut off. "*Fuck*." I silently cursed under my breath, Esther came and put her hand on my back.
+"I believe that's the one. Remember to hide inside the-" A long beep followed. Our line has been cut off. "*Fuck*." I silently cursed under my breath, Esther came and put her hand on my back.
 
 The knob on the main door starts turning rapidly. I don't think we can handle this much longer.
 
