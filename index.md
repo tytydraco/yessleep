@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 8232
+file count: 8233
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
@@ -1428,8 +1428,8 @@ file count: 8232
 * [Help the Crow](out/Help_the_Crow.md)
 * [Help The Piggy Killers are hungry](out/Help_The_Piggy_Killers_are_hungry.md)
 * [HENTAI](out/HENTAI.md)
-* [Her Part One](out/Her_Part_One.md)
 * [Her Part one](out/Her_Part_one.md)
+* [Her Part One](out/Her_Part_One.md)
 * [Her](out/Her.md)
 * [Here comes the child bride](out/Here_comes_the_child_bride.md)
 * [Here comes Toby Buttons](out/Here_comes_Toby_Buttons.md)
@@ -1510,6 +1510,7 @@ file count: 8232
 * [How To Go To Another World Russian Methods](out/How_To_Go_To_Another_World_Russian_Methods.md)
 * [How to play the nightwalker game](out/How_to_play_the_nightwalker_game.md)
 * [How to Rob a Casino  and Start the Zombie Apocalypse](out/How_to_Rob_a_Casino__and_Start_the_Zombie_Apocalypse.md)
+* [How To Sell Your Haunted Mattress](out/How_To_Sell_Your_Haunted_Mattress.md)
 * [How to successfully ransom a child](out/How_to_successfully_ransom_a_child.md)
 * [How to Summon Satan for Beginners](out/How_to_Summon_Satan_for_Beginners.md)
 * [How to Survive Camping  a bridle of flesh](out/How_to_Survive_Camping__a_bridle_of_flesh.md)
@@ -1868,8 +1869,8 @@ file count: 8232
 * [I dont know what happened](out/I_dont_know_what_happened.md)
 * [I dont know what I saw on my grandfathers property but I have a good idea of what it was](out/I_dont_know_what_I_saw_on_my_grandfathers_property_but_I_have_a_good_idea_of_what_it_was.md)
 * [I dont know what to do please help me](out/I_dont_know_what_to_do_please_help_me.md)
-* [I Dont Know What to do](out/I_Dont_Know_What_to_do.md)
 * [I Dont Know What To Do](out/I_Dont_Know_What_To_Do.md)
+* [I Dont Know What to do](out/I_Dont_Know_What_to_do.md)
 * [I Dont Know What Was In My Car](out/I_Dont_Know_What_Was_In_My_Car.md)
 * [I dont know whats happening anymore](out/I_dont_know_whats_happening_anymore.md)
 * [I dont know where I am and everything is falling apart around me](out/I_dont_know_where_I_am_and_everything_is_falling_apart_around_me.md)
