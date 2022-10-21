@@ -95,3 +95,5 @@ As soon as Layla was gone, Emily walked right over and whispered through the sla
 “I’m sorry,” I said.
 
 “It’s okay,” she said, smiling a little now. “It was probably going to happen anyway. It’s–it’s kind of sweet. You–well, other you, has never really taken any interest in me before, so it’s kind of a nice change.” She reached for the doorknob, and the darkness around me was split with a beam of light as the door opened. “You’d better come out of there. We should talk.”
+
+[Part Six](https://www.reddit.com/r/nosleep/comments/ya2n6n/the_house_of_attics_and_basements_part_6/)
