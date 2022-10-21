@@ -2,7 +2,7 @@
    At first I thought the knock at my door was normal. Every day, sometime around 4-5 pm my mom gets home from work. She lets me know she’s home every single day by that knock.
 One day, I got a knock at my door at 4:30, “Hi honey!” 
 
-    I answered, “Hey! I’ll be out in a moment.”
+  I answered, “Hey! I’ll be out in a moment.”
 A few minutes later, I stepped out of my room into the hallway connecting the bedrooms and the living room. 
 Then I saw my mom, sitting on the couch reading her phone. 
  
