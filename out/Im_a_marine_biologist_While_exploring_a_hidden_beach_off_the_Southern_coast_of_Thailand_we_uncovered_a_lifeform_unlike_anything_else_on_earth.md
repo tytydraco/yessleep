@@ -1,4 +1,4 @@
-I'd heard about the secret beach from a Thai fishermen and had my heart set on studying the unique ecosystem, but the rest of my group said the idea had ‘dumb foreigners get themselves killed by acting like dumb foreigners’ written all over it.
+I'd heard about the secret beach from some Thai fishermen and had my heart set on studying the unique ecosystem, but the rest of my group said the idea had ‘dumb foreigners get themselves killed by acting like dumb foreigners’ written all over it.
 
 Then later on that night, at some dive bar, Johnny waited until our girlfriends nipped to the bathroom and told me he was in. He even promised he’d talk the ladies round, so long as I helped him with a special surprise.
 
