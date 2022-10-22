@@ -1,0 +1,34 @@
+There are no normal people who, going along the path of life, would not drag with them a heap of bitter regrets about what they have done (or not done). It is considered that this is normal, and I'm not going to argue. If you meet a person who does not regret a single act, my advice to you is: run away from him with all your strength.
+
+My burden of regrets, as you will see, is extremely heavy. I'm going to tell you about one thing I did in my childhood. It weighs on me to this day. I probably won't achieve anything by presenting it to your court. But I hope someone will feel a little easier when he realizes how much more terrible mistakes others are capable of. You see, I don't have a brother. However, in August 1991, I still had a brother.
+
+***
+
+Every summer, my parents floated us, the boys, to the terrible wilderness, to the village to my grandmother on my mother's side, for at least a month. They motivated this by the need for us to consume the gifts of nature and clean air. In fact, everything, of course, was more prosaic: parents wanted to get rid of us and relax themselves.
+
+These trips left a twofold impression in my memory. Of course, there were a lot of good and interesting things. The kids have something to entertain themselves in the village, you yourself know it perfectly well. But the feeling of a serene summer was greatly spoiled by our Grandmother. I'm capitalizing this word for a reason. Our Grandmother was as far as possible from the image of a kind fairy-tale grandmother who would bake crumpets and tell a fairy tale for the night. Frankly speaking - and years later I understand this even more clearly - my grandmother was a disgusting, half-crazy, evil vixen who brought her quiet and compliant husband to the grave. I hardly remember our grandfather. My brother was three years older than me and remembered him much better, always spoke warmly about him. Perhaps this was the reason that if my Grandmother was still relatively tolerant of me, then she openly hated my brother. The more difficult it is for me to understand the selfish position of our parents, who, year after year, put us in the care of this old and sick woman. Oh, they were aware of her character, especially her father. But the answer to all the protests was the same: "Well, well, don't make it up," "Listen to your grandmother, she's old, don't upset her." I was scared to death of my grandmother.
+
+
+That summer, my brother and I were 9 and 12 years old, respectively. Andrey, as the eldest, was charged with the duty to keep an eye on me, because we spent almost all the time together. There were few other children of our age in the village, and we were content with those games that we invented for ourselves: a tree house in the forest behind the house, pirates on a homemade raft, stealing raspberries from a neighbor's garden - a traditional boys' set. Grandma has introduced an extremely strict daily routine and God forbid you to break it. For understanding: she did not hesitate to take up a twig if we were late for the table even for a minute, did not do her errands in the garden quickly enough or went "where it was not necessary", which she became aware of from chatty neighbors. "Where not to go" was practically nowhere, a forest, a highway, a large ravine, a neighboring village, abandoned cowsheds, a village at the intersection and, of course, a river were banned. Every evening we told her stories about how innocently we spent the day: holding hands, walking in the meadow and picking strawberries. "Well, look at me, you brats," she squeaked, squinting her eye. - "I'll find out everything anyway if you're lying." Things were going on as usual when one day we were "lucky" to find a cave.
+
+I begged, but for some reason without hope. He apologized for saying I wasn't his brother anymore. We had never talked in our lives as we did that day, by the light of a dim bulb among the narrow walls. At dinner, Grandma said that since Andrei had not returned, it was necessary to call the police.
+
+The sin of cowardice is the most terrible of sins.
+
+And, as you already understood, I didn't tell anyone anything.
+
+Half of the village's population agreed to take part in the search for my brother. I lied that the last time I saw him was behind the vegetable gardens near the forest. We combed the forest, found our tree house. Andrey was not found. When I came to my brother's cave, he had already spent the last candles that I managed to find for him, and did not react to my appearance in any way. It seemed to me that something very humanly important was missing in his haggard, dirty face with bulging, half-mad eyes. I think he was licking moisture off the walls and chewing clay-I saw nail and tooth marks everywhere. I said I didn't bring him food because that way he would lose weight faster and be able to get out. Andrey agreed without any interest that it was reasonable. When I left, he didn't make a sound, just lay there and looked straight into my eyes. I crawled back by touch, holding the lantern, and continued to look at his retreating face until it disappeared around the turn of the tunnel.
+
+The next day, a gloomy father and a tearful mother arrived. I was sitting in my room -I was strictly forbidden to go outside. The policeman and my father asked me again what had happened. I was disgusted by lying, and I was disgusted by the fact that deep down I was glad that I managed to escape punishment. But I was happy anyway. The search lasted four days, some people came and went, accompanied by a heavy grandmother's gaze. Finally, in the evening, Mom came up, hugged me and said we were going home. Dad will take us to the station in the morning. I begged her to give me one last walk alone, at least for a few minutes.
+
+I crept up to the entrance to the grotto and sat there for a long time, not daring to climb inside, so as not to stain the new clothes that my mother brought. From the black hole came a barely audible singing- more precisely, a moo without words. There, deep underground, my brother was humming a song in the dark and alone.
+
+We left in the morning.
+
+***
+
+Now I am thirty-five years old, I have a wife and a son. Mom is very old, I bring her to us for the holidays. I don't have a brother. Like my father: a second heart attack in 2010; I think he suspected something until the very last day. Grandma died in 2003, no one bought her village house. I was there a year ago: a log rotted in a ravine and fell. I went down to the place where my brother's cave began, stood there: nothing, just a grassy ground. Memory brought back to me that very strange melody, hummed without words.
+
+And, by the way, the disgusting old woman knew everything. Our dirty clothes and dirt in our hair-she was watching us. I saw her that day over the cliff. She put one plate on the table when I got home. She knew what was going on.
+
+But she never liked Andrey.
