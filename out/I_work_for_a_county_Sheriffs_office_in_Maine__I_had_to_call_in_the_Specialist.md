@@ -242,7 +242,7 @@ He took in a deep breath and let it out slowly before turning back to me, “You
 
 Understanding dawned on me. He had allowed the burned woman to get away in order to spare my life. That meant it was still out there, and it was still dangerous. The Sheriff would *probably* kill me if he knew I was the reason there was still a witch in our woods.
 
-[NEXT]()
+[NEXT](https://www.reddit.com/r/nosleep/comments/yavkqf/i_work_for_a_county_sheriffs_office_in_maine_ive/)
 
 [Chapters List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/?sort=new) 
 
