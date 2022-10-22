@@ -1,4 +1,4 @@
-***“WHY*** *are you here? … What do you want from us? … Where are you from? … Are you of human origin? … In God’s name, I demand that you identify yourself and your nature! …”*
+# “WHY are you here? … What do you want from us? … Where are you from? … Are you of human origin? … In God’s name, I demand that you identify yourself and your nature! …”
 
 But Cindy had already sensed what was creating the havoc at Brockesville High School, and her strong-willed personality compelled her to make an attempt at extracting from the entity its true diabolical nature and specific intent there.
 
@@ -32,7 +32,7 @@ Openly and persistently, the two misfits were taunted, being openly called “lo
 
 So, with the final straws having broken their backs, Tim and Allan thoroughly expressed their burdensome frustration one foggy Fall morning via AK-47 assault rifles. They fully opened up on their entire classroom of thirty-one students, including their three aforementioned school-punk peers.
 
-*“You pricks are about to go to Hell. Say hello to Hitler for me!”* crowed one of the two gunners, Grevenson told police investigators in the hospital eight days after his awakening from a coma. He nervously noted how the two wore gratified grins as they fired over a hundred rounds of armour-piercing bullets. Ironically, though, the two gunners failed to kill off Grevenson, coincidentally the worst of their high-school tormentors, who was the sole survivor of the massacre (albeit having been hit twice in the torso). The pair feeling satisfied that they’d sufficiently expressed their unforgettable displeasure with the school, each put a fatal bullet through his own heart with the same .45-caliber handgun.
+*“You pricks are about to go to Hell. Say hello to Hitler for me!”* crowed one of the two gunners, Grevenson told police investigators in the hospital eight days after his awakening from a coma. He nervously noted how the two wore gratified grins as they fired over a hundred rounds of armor-piercing bullets. Ironically, though, the two gunners failed to kill off Grevenson, coincidentally the worst of their high-school tormentors, who was the sole survivor of the massacre (albeit having been hit twice in the torso). The pair feeling satisfied that they’d sufficiently expressed their unforgettable displeasure with the school, each put a fatal bullet through his own heart with the same .45-caliber handgun.
 
 But Cindy felt assured that the pair would imminently in death accomplish in entirety what they’d failed to do during their last moments of life—‘finish off’ Patrick, the last of the lot who’d barely escaped his comeuppance.
 
@@ -96,6 +96,6 @@ Even with all of the Earthly and other-worldly suffering that took place 24/7 an
 
 It would soon enough happen, however, that Cindy personally experienced the other side upon her untimely death due to a congenitally malformed aortic valve, a condition much exacerbated by the additional stress of dealing with extremely active paranormal activity.
 
-But on the positive side of matters there the terribly tragic, traumatic Tim and Allan massacre directly expeditiously brought about into being school-based programs on a national scale to dramatically reduce or preferably outright eliminate schoolyard bullying and similar domino-effect destructive behaviour.
+But on the positive side of matters there the terribly tragic, traumatic Tim and Allan massacre directly expeditiously brought about into being school-based programs on a national scale to dramatically reduce or preferably outright eliminate schoolyard bullying and similar domino-effect destructive behavior.
 
-To the present day, Cindy’s ghost is said by some to be occasionally observed on the high school’s grounds. According to her mother, *“I believe that Dee is more than welcome to enter Paradise, when she desires and decides to go; but apparently she feels like staying another while, for whatever reason.”*^(■)
+To the present day, Cindy’s ghost is said by some to be occasionally observed on the high school’s grounds. According to her mother, *“I believe that Dee is more than welcome to enter Paradise, when she desires and decides to go; but apparently she feels like staying another while, for whatever reason.”* ^(■)
