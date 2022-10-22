@@ -6,7 +6,7 @@ I’ve had her for a few weeks, and she’s normally a well behaved pup, but rec
 
 Since I was a big fan of dogs growing up, I guess I expected I’d know what to do in any situation, but this one stumped me. I’ve started taking her out to the back carpark for a few minutes whenever she starts whimpering, where she’ll run around and eventually usually tire herself out. That was until four nights ago. 
 
-Tonight, when she started whimpering and scratching, I went to let her out, but as soon as we reached the building’s back door she froze. She just sat in front of it, staring out into the dimly lit lot. 
+On this particular night, when she started whimpering and scratching, I went to let her out, but as soon as we reached the building’s back door she froze. She just sat in front of it, staring out into the dimly lit lot. 
 
 “C’mon, Annie!” I repeated, but she didn’t move a muscle. I went to close the door, but right before I shut it completely, she started growling. It wasn’t like any other growl I’d heard from her before. It was a low, guttural, almost predatory one that sent a chill down my spine. She kept growling at the door, even after I’d pulled it completely shut. I didn’t know what to do, she’s never behaved this way before, and it was creeping me out. She wouldn’t follow me when I tried to take her back inside, and I couldn’t just drag her back into my flat, so I tried the door again. I opened it, and that’s when she started howling. Her howls sounded almost painful, and I knew it wouldn’t be too long before the ruckus would start to wake up my neighbours. I tried to calm her down but to no avail, and sure enough, I soon saw the floor manager come into sight.
 
