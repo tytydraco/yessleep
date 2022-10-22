@@ -1,3 +1,5 @@
+[[2]](https://www.reddit.com/r/nosleep/comments/yaak36/a_survivors_accounts_of_the_depraved_funhouse_the/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
+
 \*\*\*
 
 *Go away! Leave me alone! What do you want with me?! Why are you doing this to me?!*
