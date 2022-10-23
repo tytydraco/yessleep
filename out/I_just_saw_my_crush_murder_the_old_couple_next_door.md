@@ -58,7 +58,9 @@ My mind was still raising with questions and teenage frustrations when the power
 
 It sent shivers down my spine. We had to call for help.
 
-"I remembered my phone was just at my study table right beside the window. With muscle memory, I walked towards it relying on my muscle memory, and was thankful for the feeling of my phone in my hand. I immediately unlocked the screen illuminating the area around me and the window---
+I remembered my phone was just at my study table right beside the window. I walked towards it relying on my muscle memory, and was thankful for the feeling of my phone in my hand. I immediately unlocked the screen illuminating the area around me and the window. 
+
+Fuck---
 
 ---my bedroom window's curtain was not drawn.
 
@@ -68,14 +70,14 @@ I saw Mr. Jenkins...or what used to be Mr. Jenkins, with his Halloween themed kn
 
 I heard heavy grunts and screams from Rain, and unearthly and soul chilling shrieks from the creature known to me as Mr. Jenkins. I forgot I still had my phone in my hand, and with my hands shaking, I opened my flashlight app and tried my very best to see what's happening in my room.
 
-I flashed the light at Caleb who moved closer to me and gave me a hug...then I flashed my phone to the other corner of the room.
+I flashed the light at Caleb who moved closer to me and gave me a hug...then I flashed my phone to the other corner of the room where all the noise was coming from.
 
-Rain has blood all over his face and his beautiful golden hair is now almost crimson. I saw his right hand as it repeatedly stabbed Mr. Jenkins with the ancient looking dagger he had on earlier, not stopping until the creature was no more than a deformed mass of blood, bones and flesh on my pink carpet. 
+Rain has blood all over his face and clothes, and his beautiful golden hair is now almost crimson. I saw his right hand as it repeatedly stabbed Mr. Jenkins with the ancient looking dagger he had on earlier, not stopping until the creature was no more than a deformed mass of blood, bones and flesh on my pink carpet. 
 
-When Mr. Jenkins became still as a statue, we heard a ghastly shriek that made our ears ring and bleed...it sounded like Mrs. Jenkins with a hellish twist, and she came bursting through my barricaded bedroom door looking a lot like Mr. Jenkins in her deformed state, but with her balding head showing maggots on her scalp and barely clinging silver hair. Just as Mr. Jenkins' fate, Mrs. Jenkins scratched and grabbed Rain on his torso, his legs and his arm, making him wince, but all the more fueling his rage and meeting with his ancient dagger for what seemed like an infinite stabbing. 
+When Mr. Jenkins looked no more than a lifeless, mangled corpse, we heard a ghastly shriek that made our ears ring and bleed...it sounded like Mrs. Jenkins with a hellish twist, and she came bursting through my barricaded bedroom door looking a lot like Mr. Jenkins in her deformed state, but with her balding head showing maggots on her scalp and barely clinging silver hair. Just as Mr. Jenkins' fate, Mrs. Jenkins scratched and grabbed Rain on his torso, his legs and his arm, making him wince in pain, but all the more fueling his rage and meeting Mrs. Jenkins with his ancient dagger for what seemed like an infinite stabbing. 
 
 Almost the same time as both Mr. and Mrs. Jenkins were nothing but bloody, still masses on my bedroom floor, the ringing in our ears stopped and almost immediately, the lights went back on.
 
-I am writing this now in my journal because Rain said this won't be our last encounter with "The Unknown", especially because Caleb gave them an open invitation when he opened our front door to them. Also, because I don't want to think that I am crazy. Right when the lights turned back on, NO SIGN OF MURDERED MR. JENKINS, or any struggle and damage on Rain, or any monster break-in can be seen in my room, AT ALL.
+I am writing this now in my journal because Rain said this won't be our last encounter with "The Unknown", especially because Caleb gave them an open invitation when he opened our front door to them. Also, because I don't want to think that I am crazy. Right when the lights turned back on, NO SIGN OF THE MURDERED JENKINS, or any struggle and damage on Rain, or any monster break-in can be seen in my room, AT ALL.
 
 I am still shaking, mostly because of an out-of-body fright experience, and partly because my crush just told me that I'LL BE SEEING MORE OF HIM FROM NOW ON.

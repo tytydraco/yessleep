@@ -35,3 +35,5 @@ Last night, however, things began to change. I got a notification from my front 
 Later that night, I received a notification from the camera in front of my computer monitor. The screen was blank for a while before it went to the fear4life website. I'm glad I wasn't at my house during these events. But I am a little worried that by staying at my parents' house, they will become involved in this. I think I will at least stay another night here and then try to figure out what to do next.
 
 I've included the [videos here](https://youtu.be/sdUDGcGElhc) in case you'd like to see what happened. It is looking pretty nice outside today, so I am going to try to enjoy it before it starts getting colder again. Hopefully, since I'm not at my house or near my computer, I won't have any problems when I go for a walk.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/yb4l5k/fear4lifecom/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
