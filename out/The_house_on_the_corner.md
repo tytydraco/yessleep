@@ -1,4 +1,4 @@
-This house on the corner, as far as anybody knew, was never inhabited. As far back as Esme could remember this house gave her the most eerie and unpleasant feeling something was inside waiting in the depths for its prey. 
+This house on the corner, as far as anybody knew, was never inhabited. As far back as Esme could remember this house gave everyone she knew the most eerie and unpleasant feeling something was inside waiting in the depths for its prey. 
 
 There was rumors and legends about the house and its previous owners but even Esme's grandparents could never recall anyone ever living there. 
 There was different contradicting accounts on the houses' occupants from criminals to witches, cults and escaped mental patients; all insane dramatic tales of murder, evil, terror and mystery. 
@@ -35,7 +35,7 @@ Esme slowly backed out of the room barely daring to make a sound. The figure rem
 *It was laughing.*
 Esme screamed and ran as fast as she could down the stairs feeling, rather than seeing, the figure pursuing her.
 Esme tripped as she got to the second to last step and fell with a loud thump on the bottom. She could see the figure on all fours right behind her making that terrible sound of excitement as it came upon its victim. 
-Esme could feel the pain from the fall to from her very soul but she made herself stumble up and make the final dash back through the window to safety. 
+Esme could feel the pain from the fall from her very soul but she made herself stumble up and make the final dash back through the window to safety. 
 She felt the creature grab her leg as she climbed out but she kicked as hard as she could and got herself free.
 
 Esme managed to escape with her life. 
