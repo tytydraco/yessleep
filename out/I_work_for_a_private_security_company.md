@@ -1,5 +1,5 @@
 (1)
-   Hello people of Reddit, I am Nomad (my codename), and I work for a private security company, called BlackHawk Security. Try looking it up, you won't find anything. There is no info about this company and no proof it even ever existed… 
+   Hello people of Reddit, I am Nomad (my codename), and I work for a private security company, called BlackHawk Security. Try looking it up, you won't find anything. There is no info about this company and no proof it even ever existed… at least, not the one I’m talking about.
     
    I’m currently the squad leader of a task force unit called Omega 6, One of the new members of the unit, a kid codenamed “Sparky”, suggested I tell Reddit my stories of my jobs back when I was just a security agent. Now here I am, about to tell my stories to a bunch of strangers on Reddit.
 
