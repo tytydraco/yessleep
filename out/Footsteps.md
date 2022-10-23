@@ -1,43 +1,33 @@
-As far back as I can remember, I’ve been afraid of what’s behind me. The overwhelming urge to glance behind but trying to keep myself from doing so. Anything could be there. I still don’t know what it is, really. But I can feel it. Perhaps it started as a child, when my parents first started making me sleep alone. Perhaps it’s always been there. I don’t think it really matters, and I don’t think I’ll ever really know.
-
 &#x200B;
 
-It only happens when I’m alone. It doesn’t matter where. Five steps off of the bus, despite the throngs of people inside only mere feet away. Waking up to an empty house before everyone gets home from work and having to walk past the dark basement staircase to get a glass of water. Turning slightly to the right to shield my vision from the shadowy entryway that I can barely see as I sit on the couch. 
+I waved goodbye to my parents as they started their car, the old truck sputtering before its muddy wheels began to move. The sound of the old tires scratching against the pebble road faded as the car began driving further away. I wearily wiped my sweaty hand across my forehead, looking up at the crimson painted trees that stood out underneath the grayish-blue sky.
 
-&#x200B;
+My parents had just left for a two-week long trip to Chicago and had left me in charge of the house. It was a small, humble house that's once white walls were now almost fully covered with dark green vines, a place worn down with age yet still comforting in the best way possible. I lived here with my parents and my younger sister, who was inside. When she was three or four, she had had an awful stroke leading her to become permanently paralyzed and left under the care of my parents and I to help her on a daily basis with regular activities.
 
-I can feel it there, watching. Waiting. And if I look, I’m afraid that it will be one step closer. 
+It had been a while since her stroke, as she was around seven now, and I had almost entirely gotten used to taking care of her. Though, at times it was quite difficult because of my parents lack of involvement. I shook my head away from the clouds and glanced back at the front door. I leisurely made my way up the creaky wood steps and grabbed onto the screen door handle. As I stepped inside, the strong smell of my mothers flower-scented perfume mixed with faint cigarette smoke filled my nose, making my head ache.
 
-&#x200B;
+I slipped off my beat up sandals and placed them by the door before heading into the aged kitchen, a small space that had a large window overlooking our backyard and the lake below it. The walls were decorated with antique floral patterns and stepping into the space seemed like you were traveling back into the 1700s for a split second. I glanced disapprovingly at a swarm of fruit flies huddled by the dishwasher, which were hovering over several pieces of spoiled bananas, which were almost unrecognizably discolored. I switched on the sink, and let the cool water soothe my tired hands. I had spent an hour carrying luggage back and forth and my hands throbbed. Still washing my hands, I glimpsed at the sky which was darkening as the day creeped further towards night. It was about time to feed my sister dinner.
 
-I once read that running from a wild animal will only make them chase you harder, so I do my best to ignore it. As I walk up the stairs from the basement to the kitchen, turning the light off behind me as I go, I walk slowly and normally. I hum, I sigh, I sing quietly. I am not afraid.
+I cupped my hands under the water and splashed my face in a poorly planned attempt to wash it. Turning off the sink, I rubbed my hands against the side of my white t-shirt to dry them and made my way to the refrigerator, grabbing a leftover microwaveable meal from the previous night.
 
-&#x200B;
+Before exiting the kitchen with the food, I snatched a wooden spoon from the cabinets below the sink. Heading down the narrow hallway, it didn't take long for me to reach my sister's door. I knocked twice, as I always did to let her know it was me, and then turned the door knob. She was sprawled on her bed, laying on her back, with her head turned towards the door. I didn't have much recollection of the times before she was paralyzed where she had spoken to me, and eerily I didn't even know what my own sister's voice sounded like, unless you are counting the soft groans she would occasionally make.
 
-We both know differently, but as long as I don’t acknowledge it or my fear in so many words where it can hear, I’m hoping the façade will hold. 
+She could only move her eyes. That was the only thing that bothered me about looking after her. Whenever I went to give her food, or water, or whatever it was that she needed at that moment, she would follow me with her eyes. They were strikingly blue and seemed to follow me around wherever I went, and a permanent haze always flooded them with some sort of unrecognizable emotion. Her light blonde hair was tied up into a low ponytail, with a few loose strands hanging off the front.
 
-&#x200B;
+Sometimes it seemed like she was simply just a corpse, who sat in the same spot almost all day unless we moved her. I sat down on the rug bordering her bed. I reached for the microwaveable food and got a spoonful before sitting up on my knees to face her directly. As I was about to start giving her the food, her eyes caught mine and an odd shiver ran up my spine. A strong sense of uneasiness crowded me. Something was wrong.
 
-As I walk, my heart pounds, threatens to leap out of my chest, or up my throat and into my mouth, choking off my airway. It feels like I haven’t taken my medicine this morning. My mind pictures all of the ways in which I can be murdered from behind, and my legs shake ever so slightly as my heart thumps and thumps and thumps with my footsteps. 
+I considered calling my parents, though they probably wouldn't pick up as they were irresponsible when it came to taking care of her. I sighed slowly, and then reached up the spoon to her mouth. Though, when it entered her mouth, she didn't swallow it, which was unusual. I had fed her three times today already so she might've already been full. I sighed once again, and stood up slowly as my muscles ached from the exercise I had gotten previously. I frowned at the food, and lazily decided to just leave it there.
 
-&#x200B;
+I looked at her one last time before I left, and sure enough, she was still staring that same life-draining stare. I closed her door softly and then headed to the door diagonally across from her's, which was my room. 
 
-My cat meows from the living room and I jump. It’s always quiet when I walk. I’m never expecting what occurs when I leave the hell that feels like it goes on for hours but really only takes seconds, a few minutes. Everything continues. 
+A few hours passed by before the light stopped shining behind the blinds. It was deathly quiet on this night. Perhaps because my parents weren't home to chat me up about going to college, though I'd never get to do that because nobody would be there to look after my sister. I placed the book I had been reading on my nightstand, and carefully switched off my lamp. I slipped into sleep just a few minutes later.
 
-&#x200B;
+I was shaken awake abruptly by a soft creaking sound. I had always been a soft sleeper, so sounds like these typically woke me up every night. I yawned and shut my eyes again, trying to fall back to sleep. But then another soft creaking noise followed the last one. And then another. And another. Stepping towards my bedroom door. It was horrifyingly close to the sound of footsteps on the creaky floorboards. But who could it be? Maybe someone had broken in? That would've made sense due to the fact that our neighbors were all lower-class, so burglaries weren't uncommon.
 
-And I must sit alone, waiting for someone to come home so I don’t have to pretend that I can’t see it anymore. It shifts slightly, right at the edge of my vision, and I tell myself it was a shadow or a trick of the light and that I didn’t see anything. I think that it might chuckle, but of course, I can’t be sure. (I really want to know.)
+I never heard glass break, though. And I left the door locked, so... who could it be?
 
-&#x200B;
+My doorknob slowly turned and I clutched my blanket, my heart hammering.
 
-It’s a terrifying game that we’re playing. It sets my nerves on fire and puts me on edge, and the worst part is the reason why I am writing this.
+My door creaked open and light flooded the doorway. There, standing in the doorway was my sister.
 
-&#x200B;
-
-I love to learn and ask questions. I’m always curious. My mom had told me so many times when I was little, in exasperation, that curiosity killed the cat, and so of course I’d lie awake at night trying not to wonder about all the ways the thing in the shadows might be wanting to hurt me.
-
-Last night, it left behind its footprints in the dust on the cracked concrete of the back porch. They’re oddly shaped and shuffling, faint scratches that mark where nails have been dragged along the floor. I couldn’t help but notice them as I kept my eyes trained on the ground, turning to flick the ceiling light off. I couldn’t help but wonder exactly what sort of thing leaves marks like that, could barely keep my eyes from lifting up, up, up, fighting an urge that would be as easy to soothe as breathing. I want to know. I need to know. 
-
-&#x200B;
-
-I cannot avoid looking forever.
+My paralyzed sister. Smiling.
