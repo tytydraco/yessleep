@@ -228,11 +228,11 @@ The eels slowed, coming together and holding perfectly still. I sensed it in the
 
 It had come from below and taken me in a single gulp. I was disoriented, engulfed and pressed. I was inside the Grail, as it retracted to the depths that were its home. Something slick was wriggling along the lining inside of it. I took a handful of it and felt a strange push from below. Inspired by the reaction I pushed my hand into the soft interior. Every time I did, I was drawn deeper into it and crushed more. I was able to get my dive knife in my other hand. I cut into the Grail, and I saw light as it launched towards Neveah for a second attack.
 
-In a cloud of blood, I was ejected from it, still alive. "You're alive!" Neveah called me, shining her light into the murky crimson. All around me were newborn eels. I still grasped what I had taken from inside. We made our ascent, our horrible fears manifesting as manic laughter. Perhaps something was wrong with our mixture.
+In a cloud of blood: I was ejected from it, still alive. "You're alive!" Neveah called me, shining her light into the murky crimson. All around me were newborn eels. I still grasped what I had taken from inside. We made our ascent, our horrible fears manifesting as manic laughter. Perhaps something was wrong with our mixture.
 
 "Get it?" Neveah kept saying.
 
-The weather had begun to menace Miyamoto. In the diver's prep room I finally ungrasped my prize. They lay there wriggling on the table while Neveah, Mr. Hisomeru and I stared and smiled like lunatics. Living eels, freshly born.
+The weather had begun to menace *Miyamoto*. In the diver's prep room I finally ungrasped my prize. They lay there wriggling on the table while Neveah, Mr. Hisomeru and I stared and smiled like lunatics. Living eels, freshly born.
 
 Mr. Hisomeru hugged me and said into my ear quietly, so the monsters could not hear:
 
