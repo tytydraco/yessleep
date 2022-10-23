@@ -216,4 +216,4 @@ I carefully pulled the mask off, revealing another surprise. The kid in the box 
 
 *Oh, Jesus Christ, no...*
 
-"Lookie who it is..." I heard the all too familiar hyperactive voice boom loudly. The two of us froze where we stood, unable to move out of sheer panic. The sound got closer and closer. I swung my head around, trying to see where he was coming from, as well as spot a way out. Nothing.
+"Lookie who it is..." I heard the all too familiar hyperactive voice boom loudly, a voice that terrifies me to this day, thirty years later. The two of us froze where we stood, unable to move out of sheer panic. The sound got closer and closer. I swung my head around, trying to see where he was coming from, as well as spot a way out. Nothing.
