@@ -1,0 +1,19 @@
+“I am not afraid of death.” I used to say, when the topic would come up during late-night conversations. “After all, before we came into this world, we were nothing. And once we leave it, we’ll be nothing once more. Plus, once you’re dead, it’s kind of hard to care, isn’t it?”. Man, do I wish I still had that beautiful ignorance. 
+
+Monday two weeks ago was a day like any other. I begrudgingly got out of bed after my morning alarm blared into my ears for a good few minutes. I brushed my teeth, thinking to myself that I really should be more gentle with the toothbrush. The bristles were already starting to separate and flatten. I hopped in the shower, and spun the dial the wrong way, causing really cold water to wake me up not so gently. Not an uncommon occurrence, as I had only moved in here a few weeks back. “Whoever installed this thing really is an idiot.” I thought to myself, as I did on most mornings when I was treated to a trial version of frostbite.
+
+Anyway, I got dressed, ate breakfast and headed off to work. As I pulled into the parking lot, I realized that I felt an odd pain in my chest. Nothing to worry about I’m sure. The thought of a heart attack briefly crossed my mind, but I’m a young guy, only in my twenties, it was nothing to worry about. I walked into the building where I worked, I won’t say much about it for privacy reasons, but let’s just say it was an office building. 
+
+I greeted some of my co-workers, and sat down at my desk. I noticed that the pain in my chest was almost on a rhythm. It would disappear for a bit, then slowly come back, before fading away again. As I opened my laptop, I started feeling lightheaded. I figured I was just a little dehydrated. I had a habit of forgetting to drink when engrossed in my work. So, I got up to grab a drink. While walking, I came across another one of my co-workers. She asked me whether I was doing alright. I assured her I was fine, just a little thirsty. That’s when it all happened very quickly.
+
+I felt faint and lost my balance, hitting my head on the carpet floor. Good thing it wasn’t concrete I guess. That was the last thought I had before the world faded to black.
+
+I didn’t hear anything. I didn’t see anything. But I did feel something. That rhythmic pain in my chest, the left side of my head hurting badly from falling, and my arm, which I guess landed awkwardly, possibly being broken in the process. Damn it hurt bad, and it just kept going. I couldn’t see. I couldn’t hear. I couldn’t move. But I could feel. I couldn’t really think. It was like… being half asleep. But the pain, it didn’t care. An organism without consciousness can still feel pain after all.
+
+Time slowly passed, and the pain didn’t fade. I didn’t grow used to it either, in fact it may have been becoming slowly worse. Then, suddenly, I didn’t feel anything anymore, and the world faded back into view. I was in the back of an ambulance. The paramedics told me that I had been dead for 6 minutes. I asked them about the constant pain, the darkness around me, the dream-like state I was in. But they just told me not to worry, that I was fine now. I insisted, surely that couldn’t be normal. Maybe I hadn’t been dead?
+
+They told me not to worry. I was fine now, after all.
+
+I stopped talking about it after that. I realized that they wouldn’t answer me. I didn’t understand at the time. But I think I get it now: they were hiding, hiding from the reality of death. I didn’t tell anyone about it after that. I didn’t want to burden them with the fear of death. 
+
+I’ve thought about ending it all to avoid dying in an undesirable way. To avoid an eternity spent in agony. To avoid the fate of my grandpa, who died of cancer. Or that of my uncle, a car crash. A bullet to the head would kill me instantly. I wouldn’t have time to feel pain. The gun in my hand wouldn’t betray me, after all: I am not afraid of death.
