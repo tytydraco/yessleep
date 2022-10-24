@@ -1,4 +1,4 @@
-My wife and I were on our way home from dinner a couple of nights ago when we first saw it. Dead center (sorry) in the yard of the first house we saw, among all of the skeletons scary giant spiders and lights was a perfect replication of a dark brown coffin. My wife looked at me and said, “Damn! I wonder where they got that. It must have been expensive!” She looked a little jealous.
+My wife and I were on our way home from dinner tonight when we first saw it. Dead center (sorry) in the yard of the first house we saw, among all of the skeletons scary giant spiders and lights was a perfect replication of a dark brown coffin. My wife looked at me and said, “Damn! I wonder where they got that. It must have been expensive!” She looked a little jealous.
 
 Typically, we are the house on the street that goes all out with the Halloween decorations, but after a couple of bad years for work, then the pandemic, we just haven’t bee able to refresh our hurting collection. I guess some of it is also the post-pandemic malaise that we haven’t quite gotten over.
 
