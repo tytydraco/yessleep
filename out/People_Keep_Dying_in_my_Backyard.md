@@ -46,4 +46,4 @@ I wanted to share this with everyone before I go out and look for it. My interne
 
 I will find it.
 
-[x](https://ryanbushwriting.com/)
+[x](https://ryanbushwriting.com/horror-stories/)
