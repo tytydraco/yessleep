@@ -232,7 +232,7 @@ When I came back to I was in a hospital bed, again. Though this time Eric was in
 
 Great.
 
-[NEXT]()
+[NEXT](https://www.reddit.com/r/nosleep/comments/ycasl3/my_name_is_stacy_white_im_an_investigative/)
 
 [Chapter List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/)
 
