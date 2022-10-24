@@ -1,4 +1,5 @@
-(First: https://redd.it/xt53az)
+(First: https://redd.it/xt53az
+Next: https://redd.it/y6at51)
 
 “I don’t know why you do those crossword puzzles. It's not as if you can spell worth a damn.” Rusty, my partner grumbled. 
 
