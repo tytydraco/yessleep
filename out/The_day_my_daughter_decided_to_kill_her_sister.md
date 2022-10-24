@@ -1,4 +1,4 @@
-My name is sara and ive been married with josh for 5 years. We have twins, mara and lily, they have only 4 years
+My name is sara and ive been married with josh for 5 years. We have twins, mara and lily, they are only 4 years
 
 Since they were born the doctors said that one of them may experiment some mental problems, but nothing so bad that we would need to look for professional help until they were old enought to see it
 
@@ -31,7 +31,7 @@ Hmmmm what?
 
 I woke josh and we both went to lilys room and saw that mara was sitting on lily and had a knife in hand
 
-“Mara! Ehat are you doing”
+“Mara! What are you doing”
 “Mom, im just playing”
 
 I took the knife from her and asked her to go wait on her room. When she left with josh i asked lily
@@ -43,25 +43,25 @@ I told her that she was being ridiculous, they were sisters, why would she try t
 I told lily to go back to sleep and went to talk to mara
 
 “Why did you have a knife?”
-“I found it under lilys pillow, i was asking her why did she have it and she told me she forgot to take it to the kitchen so i said i was going to kill her for being stupid, but i was joking”
+“I forgot to take it back to the kitchen and lily found it and told me she was going to tell you so you would punish me so i said I couldn’t let her and maybe said something about killing her but i was joking,mom, I swear”
 
 Oh god, this girls were going to kill me. I said good bye and also told her to go back to sleep. When josh and i were on our room he said
 
-“I dont know mara, there is something wrong with mara”
+“I dont know honey, there is something wrong with mara”
 “I know we’ll take her to the doctor tomorrow morning”
 “Good, now lets sleep, its 2 am”
 
-When i woke up i was going to wake up mara to take her to the doctor but when i got to her room i saw the most terrible thing i have seen
+When i woke up i was going to wake up mara to take her to the doctor but when i got to her room i saw the most terrible thing i have ever seen
 
-She had a knife in her chest, i screamed and called josh and when he appeared on the door way he was pale, he hugged me and called the police. Lily was in shok, she didnt say a word while the police looked for some clues of what had happenes
+She had a knife in her chest, i screamed and called josh and when he appeared on the door way he was pale, he hugged me and called the police. Lily was in shock, she didnt say a word while the police looked for some clues of what had happenes
 
 I spent 3 weeks in bed, i didnt eat, didn’t shower or eat enough. One day i decided i needed to be strong for my other daugher so i went to her room to talk to her
 
 I found a knife under her bed, i also found her diary and decided i wanted to take a look, just to see how was she after her sisters death 
 
-The was a page with her sisters death date, it said
+There was a page with her sisters death date, it said
 
-“I cant let mara say the truth and i dont trust in her anymore, i think is time to make something permanent”
+“I cant let mara say the truth and i dont trust her anymore, i think is time to make something permanent”
 
 I was stunned, it seemed like my daughter killed her sister. I went looking for josh and when i got to him i showed him the diary and he told me we needed to talk to lily before making conclusions 
 
