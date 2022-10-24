@@ -45,3 +45,5 @@ I had stopped going to peoples’ funerals, but I made an exception for her fune
 I wanted to share this with everyone before I go out and look for it. My internet has started getting really spotty these last few minutes, so I don’t know if this update will go through, but I don’t really care. I will find it. It has to be there. I will find it. They just didn’t know where to look. I will find it.
 
 I will find it.
+
+[x](https://ryanbushwriting.com/)
