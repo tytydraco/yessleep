@@ -140,4 +140,4 @@ The floorboards creaked behind me, but I didn’t dare take my eyes off of the b
 
 “Bear found you.” Maddie whispered.
 
-And the lights went out.
+He might have found me then, but with time I was able to escape him. Maddie on the other hand, didn't get so lucky.
