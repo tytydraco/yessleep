@@ -66,6 +66,6 @@ A Vision grabbed my hand, and pulled me out of bed. I followed it. It led me out
 
 I ran away from that pit and back into my house. I made it to my room and locked the door. I heard groaning and cries on the other side of my door. The Visions. They followed me home. I looked at the clock. 6:27 AM. The door to my room broke off of the hinges and Visions flooded in. I cried as they brought me back to that pit.
 
-I made a mistake swallowing that pill. As the Visions threw me into the pit, flames started to burn my body. The last thing I saw was my mother’s face, tears rolling down her cheeks. 
+I made a mistake swallowing that pill. I’ve been falling. Falling for what seems to be an eternity, that sickening video playing over and over again in my head. This is Hell.
 
-I didn’t want to die anymore.
+I don’t want to die anymore.
