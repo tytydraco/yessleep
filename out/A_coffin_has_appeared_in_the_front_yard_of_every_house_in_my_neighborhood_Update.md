@@ -1,11 +1,12 @@
- Hey, all...
+Hey, all...
 
-A lot happened, so this one is a bit long. Sorry. I've divided it into two parts, This Morning and This Evening.
+A lot happened, so this one is a bit long. Sorry. I've divided it into three parts, Yesterday Morning Yesterday Evening, and This Morning.
 
-Also, if you haven't read the [first part](https://www.reddit.com/r/nosleep/comments/ybx6tl/a_coffin_has_appeared_in_the_front_yard_of_every/), you probably should.  
+Also, if you haven't read the [first part](https://www.reddit.com/r/nosleep/comments/ybx6tl/a_coffin_has_appeared_in_the_front_yard_of_every/), you probably should.
 
+ 
 
-This morning:
+Yesterday morning:
 
 I’m typing this up during my lunch break. Quickly, here’s what happened last night. I couldn’t sleep, so I went to look out the front window again. Saw my neighbor across the street come out of the house in a daze and get into the coffin. I passed out. I woke up in my bed and when I checked again, the coffin across the street was gone.
 
@@ -67,7 +68,7 @@ It’s now evening and I didn’t get a chance to post the above update. That wo
 
 &#x200B;
 
-This evening:
+Yesterday evening:
 
 The husband across the street usually gets home at 7pm on the dot. Today was no different. When I saw his truck pull up, I went out and met him in his driveway.I probably should have asked Carrie his name before I went.
 
@@ -126,3 +127,53 @@ We decided at dinner that we were going to stay up and watch the houses on our s
 She leaned her head against my chest and I put my arm around her. My next thought came unbidden and it curdled the blood in my veins.
 
 *I’m going to miss her.*
+
+&#x200B;
+
+This morning:
+
+This has gone beyond weird and frightening to downright terrifying. We are getting the fuck out of here. Susan is gone along with more of our neighbors, and we’ve seen the... things that are taking the full coffins. Carrie is packing for us while I write this update.
+
+We waited up last night as planned. We got out a couple of chairs and even brought our little iron fire pit from the backyard to keep us warm. This is the same setup we use for Halloween night to give out candy. 
+
+We decided to walk around the block as it drew towards midnight, and we noticed that there were other watchers. Some sat inside by their windows with their lights off, some on their front porches, some in the driveway like us. We even saw one old fake wood-paneled station wagon driving a slow circuit around the block. It looked like about 1 out of every 5 houses no longer had a coffin.
+
+That only took about 15 minutes, so we sat by the fire, drank our caffeine and waited. 
+
+Have any of you done any camping? Have you noticed how you can get to staring into the campfire and just lose time? My dad used to call that “dreaming the fire”. I was so deep into the dreaming, that I almost didn’t even notice the sound of Susan and Greg’s door unlatching.
+
+Carrie gave my shoulder a hard shake, bringing me back. She pointed and I saw Susan walking slowly and stiffly towards their coffin. For a moment, all I could do was stare, too frightened to get up.
+
+“SUSAN!” Carrie’s scream jolted me out of my chair. She was already halfway into their yard before I was able to catch up. We got about 5 feet away from the coffin and all energy was sapped out of my body. I felt too weak to anything more than stand. I heard a small whimper come from Carries throat. Or, it may have been mine.
+
+I’ve passed out before, and this felt like the first few moments after regaining consciousness. A light sweat covered by body in a cold sheen, and my muscles all refused to do anything more than twitch. Somehow, I remained standing. I couldn’t look away from Susan’s slow march to the coffin.
+
+I heard Carrie try to yell for Greg, but it came out as a weak moan, like when someone is calling out in their sleep during a nightmare. I willed my eyes to roll towards the house and in the bay window, I saw the pale form of Greg, standing and watching his wife. I could see the orange light from our campfire flickering in the trails left by tears streaming down his blank face.
+
+Susan was at the coffin. She bent down and lifted the lid with ease. *It unlocked for her when she was ready* I thought, remembering a comment one of you left. Inside was a simple, white silk lining with a matching pillow. 
+
+Susan got in, lied down, closed the lid, and that was it. I felt some strength radiating back into my muscles. As did Carrie, because once again, she started moving first. She grabbed the lid of the coffin, sobbing as she tried to lift it. A split second later, I was with her, pulling with all remaining strength against the lid. It held fast.
+
+We stopped at the same time. I looked again at Greg and saw him turn and walk away from the window, into the darkness of his living room.
+
+“No. Fuck this!”, I said as I turned to futilely pull at the lid again. I felt a small pop in my lower back and heard a crazed voice in my head say, *I’m gonna feel that tomorrow! Ha!*
+
+Through my frantic pulling, I felt Carrie place a shaking hand on my arm.
+
+“Joe.” I stopped and looked at her. She was staring at the road with wild, panicked eyes. Parked on the road was a shiny hearse, so black that the light from the campfire and the stars just fell into it, trapped for eternity. The modern angles on it were sharp and mean, created to perfectly communicate that you have forever lost someone you loved.
+
+Standing in a line behind the uberhearse and facing us were four identical figures. They were tall, towering over the top of the black machine. Their gaunt faces were turned toward us and each showed a sneer of superiority slashed across their thin, pale lips. Held under their left arms, each held a black silk top hat, and in their right, an ebony cane topped with a simple, silver globe, the only hint of color on their persons.
+
+Each moved toward the coffin and placed their cane vertically on the ground, where it balanced perfectly still. On them, they hung their hats and the canes still did not waver. They formed a lined path from the coffin to the rear of the uberhearse. They lined up on either side of the coffin and lifted it to their shoulders, showing no sign of strain. They walked in perfect sync to the uberhearse, and the rear door opened to accept its prize. 
+
+Neither Carrie nor I dared to move or make a sound. The ritual that we were watching was something old and unholy.
+
+The coffin was in, and the door closed with a satisfied *chunk*. Then, the Pallbearers were circling us. Their manner was one of observation, like we were something tiny and meaningless. Maybe even amusing. I’d never felt fear like this before. I knew no amount of running or fighting would ever overcome this absolute finality. That death was all that awaited and it would be an eternity of horror.
+
+Two of the Pallbearers swiveled aside, and gracefully bade us to our house with outstretched arms. We walked together, and hen we passed them, all faded to black.
+
+We woke up this morning together in our bed. Carrie and I looked at each other and there was nothing to say. Later, we talked about leaving. We somehow know that we can’t, but we’re going to try.
+
+We’ve tried to call the police, and I tried my ex-wife. Carried tried her parents. All went right to voicemail, and we realized that we’ve gotten no calls, no voicemails or texts. No communication since this thing started.
+
+We are out today. I’ll update as soon as I can.
