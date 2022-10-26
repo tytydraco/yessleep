@@ -522,4 +522,4 @@ My heart hammers, the mists drift lazily through the air, and below me, the wate
 
 &#x200B;
 
-\[1/2\]
+[\[Part 2/2\]](https://www.reddit.com/r/nosleep/comments/yeaew5/i_am_trapped_in_a_twisted_recreation_of_a/)
