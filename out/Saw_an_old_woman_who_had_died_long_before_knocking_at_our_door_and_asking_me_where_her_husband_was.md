@@ -14,4 +14,4 @@ As scared and bewildering horror I had seen at that time, I just couldn’t cont
 
 My parents arrive maybe after an hour and my younger brother tells this whole story to my parents. My mothers tells me *“Well the previous owner was an old women whose name was Angellie Williams who had died after being stabbed by her husband who commited suicide”*. *“Don’t worry, that was all ten years ago and that is not the same old women who approached you”.* I calmed myself down and eventually forgot about it.
 
-A week later, I suddenly remember about this incident and thought of searching it up on Google only to discover that **Ten Years ago, A madhusband Charles Williams had murdered his wife Angelie Williams just because of some heated argument fight**
+A week later, I suddenly remember about this incident and thought of searching it up on Google only to discover that **Ten Years ago, A madhusband Charles Williams had murdered his wife Angelie Williams just because of some heated argument fight**. The picture of Angelie Williams in the internet was the same as that of the old women I had encountered the situation with.
