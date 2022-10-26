@@ -82,7 +82,7 @@ I mean, the dress was ugly but I couldn’t understand how it could elicit a rea
 
 On the one hand, I wanted to throw my bouquet on the floor and run out of the room screaming. On the other hand, I just wanted to be married to the love of my life and never see all these people again.
 
-And so I gritted my teeth and kept walking towards the end of the aisle where Matt was waiting for me. It was the longest walk of my life and my legs were shaking the entire time. I was crying by the time I got there. It was the moment I had been waiting for, the moment I was willing to die for. I loved him so much, maybe too much, but it was too late to turn back now.
+And so I gritted my teeth and kept walking towards the end of the aisle where Matt was waiting for me. It was the longest walk of my life and my legs were shaking the entire time. I was crying by the time I got there. It was the moment I had been waiting for, the moment I was willing to die for. I loved him so much, maybe too much, and it was too late to turn back now.
 
 I practically fell into his arms and the rest was a haze. I just remember saying “I do” and our first kiss as husband and wife.
 
