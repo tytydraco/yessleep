@@ -270,7 +270,7 @@ It’s facial area more revealed and my mouth said automatically, ‘Bishop!’
 
 Tears in my eyes and the body was shaking by fear and sorrowness. Bishop had become a horrific mammal monstrosity. His fur was not as clean and bright as when he was alive in his cute and natural form.  The milky white mane and patches of orange on it had turned into dusty grey and pale brown in colour.
 
-Then, I saw bool dripping out of his mouth area as he tried to lick that with his peeping small tongue under the nose. His whiskers were also consisted of tiny drops of blood just like the surgical syringe needles drip drug out of it to test the barrelled liquid by pushing of plunger. 
+Then, I saw blood dripping out of his mouth area as he tried to lick that with his peeping small tongue under the nose. His whiskers were also consisted of tiny drops of blood just like the surgical syringe needles drip drug out of it to test the barrelled liquid by pushing of plunger. 
 
 Once he looked upwards at the ceiling revealing its old wound across his throat area. There was no blood on that wound though, but it made a nasty imperfection to his body. 
 
