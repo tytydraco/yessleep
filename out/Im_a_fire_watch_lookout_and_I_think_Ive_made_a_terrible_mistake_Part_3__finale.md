@@ -1,4 +1,4 @@
-Link to part two: [https://www.reddit.com/r/nosleep/comments/y1j653/im\_a\_fire\_watch\_lookout\_and\_i\_think\_ive\_made\_a/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/y1j653/im_a_fire_watch_lookout_and_i_think_ive_made_a/?utm_source=share&utm_medium=web2x&context=3)  
+Link to part two: [https://www.reddit.com/r/nosleep/comments/y1j653/im\_a\_fire\_watch\_lookout\_and\_i\_think\_ive\_made\_a/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/y1j653/im_a_fire_watch_lookout_and_i_think_ive_made_a/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -6,7 +6,7 @@ Another night.
 
 Another goddamn night, stuck in this window-lined prison.
 
-At least I have a good view, so I guess that’s something. 
+At least I have a good view, so I guess that’s something.
 
 The storm raged all night again last night and only let up just before dawn. At one point, the winds were gusting hard enough to rock the tower, which was a bit disconcerting, the say the least. As I stand out on the wet catwalk around my shack, I see that the clouds haven’t let us go just yet, though, and look every bit as pissed-off as they did yesterday afternoon. It seems like the dry season has come to an end, which is good, since I’ve been slacking a bit on my fire-watching duties over the last couple days.
 
@@ -26,9 +26,9 @@ My Jeep. It can’t be more than a mile down the northern track, still sitting t
 
 I definitely don’t relish the idea, mind you. Every instinct is screaming at me to sit my butt right where I am in this tower. I know that the ranger station will start getting a little antsy when Billy doesn’t check in after a few days, but I’m also thinking they may extend it out a day or two in light of the foul weather. Maybe five days at the outside, and then I’ll have a ranger truck parked outside my tower.
 
-The question is what they’ll find when they get here. 
+The question is what they’ll find when they get here.
 
-See, I’ve been thinking about it – Billy definitely knew more about this thing than I do. Certainly, enough to not open the door for it when he heard it outside pretending to be a girl scout selling cookies. That makes me think that maybe the fence and the trapdoor might not be enough to stop it if it really wants in. 
+See, I’ve been thinking about it – Billy definitely knew more about this thing than I do. Certainly, enough to not open the door for it when he heard it outside pretending to be a girl scout selling cookies. That makes me think that maybe the fence and the trapdoor might not be enough to stop it if it really wants in.
 
 As pants-shittingly terrifying as the prospect of leaving the tower and making for the Jeep is, sitting here cornered in my window-lined shack, just waiting for it to show up in the middle of the night, is even worse.
 
@@ -46,7 +46,7 @@ Wish me luck.
 
 \*
 
-I left my tower shortly after ten AM and let me tell you, those were some of the most difficult first steps I’ve ever taken in my life. Stepping out through the chain link gate into the open space beyond my small compound felt like I was stepping off the roof of a skyscraper. 
+I left my tower shortly after ten AM and let me tell you, those were some of the most difficult first steps I’ve ever taken in my life. Stepping out through the chain link gate into the open space beyond my small compound felt like I was stepping off the roof of a skyscraper.
 
 When I closed the gate behind me, I just stood there motionless for what must have been five minutes, frozen in place with my hand clenching the grip of the revolver still holstered at my belt. Even with all the stress and anxiety swirling around in my head, I was amazed at exactly how keen my senses seemed in that moment. It felt like I could hear every rustle of leaves and smell every damp patch of moss in the thousands of acres of wilderness surrounding me. In that moment, I felt very small.
 
@@ -62,27 +62,27 @@ Casting one last look over my shoulder at the refuge of my tower, I started off 
 
 Not so fast that I couldn’t hear the forest around me over my own breathing.
 
-I stopped a couple times during my trek to catch my breath and take a drink of water and thankfully still seemed alone and unpursued for now. I wondered if it was out there somewhere among the dense trees, hiding in the muted gray shadows of the forest. 
+I stopped a couple times during my trek to catch my breath and take a drink of water and thankfully still seemed alone and unpursued for now. I wondered if it was out there somewhere among the dense trees, hiding in the muted gray shadows of the forest.
 
-Maybe it was looking for me at that moment. Perhaps it had returned to my tower in my absence, found it empty, and was even now tracking my flight along this trail. 
+Maybe it was looking for me at that moment. Perhaps it had returned to my tower in my absence, found it empty, and was even now tracking my flight along this trail.
 
 If I paused long enough, would I see it suddenly rounding the gentle curve behind me as it caught up?
 
 Or did it prefer to move more stealthily, among the trees and underbrush, laying in wait alongside the path ahead, ready for my approach?
 
-I had to forcibly shake myself of that line of thought. It wasn’t doing me any good now – I was committed to my plan. The thought of retracing my steps and returning to my lonely watch tower held just as much terror, because now it sat there unmanned, unwatched, abandoned. For all I know, the *mimic* could be there at this very moment, ransacking my shack. 
+I had to forcibly shake myself of that line of thought. It wasn’t doing me any good now – I was committed to my plan. The thought of retracing my steps and returning to my lonely watch tower held just as much terror, because now it sat there unmanned, unwatched, abandoned. For all I know, the *mimic* could be there at this very moment, ransacking my shack.
 
 I definitely didn’t want to walk back in on *that* little scene, I can promise you that much.
 
-I ended up making surprisingly good time on that northern path; it was only about thirty minutes before I saw the dim shape of my Jeep, waiting dutifully in the middle of the path ahead. The matte tan paint job and black cloth roof stood out remarkably well against the muted greens and browns of the surrounding forest. 
+I ended up making surprisingly good time on that northern path; it was only about thirty minutes before I saw the dim shape of my Jeep, waiting dutifully in the middle of the path ahead. The matte tan paint job and black cloth roof stood out remarkably well against the muted greens and browns of the surrounding forest.
 
-Urging my pace to quicken, I covered the last hundred yards before I even realized it and found myself standing at the door, hand on handle. 
+Urging my pace to quicken, I covered the last hundred yards before I even realized it and found myself standing at the door, hand on handle.
 
 I paused. A chill ran down my spine, inciting an unbidden shiver. I realized then how quiet the forest around me was and wasn’t sure how long it had been this way. I felt that something was out of place and so did the native fauna.
 
-On any given day, the trees were alive with the sounds of wildlife. Squirrels and chipmunks chittered, insects buzzed, and a thousand varieties of birds called and sang from the treetops. 
+On any given day, the trees were alive with the sounds of wildlife. Squirrels and chipmunks chittered, insects buzzed, and a thousand varieties of birds called and sang from the treetops.
 
-Not now, though. 
+Not now, though.
 
 It was as if they had all left, and I felt very alone in that moment.
 
@@ -92,11 +92,11 @@ The door of the Jeep was thankfully quiet as I depressed the latch and swung it 
 
 In times like this, though, it was likely the only thing that would save my sorry ass.
 
-I jumped in and pulled the door shut behind me with a dull thunk, subconsciously locking it. I almost laughed aloud when I did that; the entire top of the Jeep was nothing more than canvas and plastic windows. 
+I jumped in and pulled the door shut behind me with a dull thunk, subconsciously locking it. I almost laughed aloud when I did that; the entire top of the Jeep was nothing more than canvas and plastic windows.
 
 A feisty hamster could probably have penetrated my little haven. I doubt the *mimic* would even think twice about it.
 
-The Jeep fired up immediately when I turned the key in the ignition, and I threw it in reverse for the most ungraceful fourteen-point turn you’ve ever seen on the narrow and muddy service road. Once I got turned around, I didn’t waste any time directing it back the way I’d come. 
+The Jeep fired up immediately when I turned the key in the ignition, and I threw it in reverse for the most ungraceful fourteen-point turn you’ve ever seen on the narrow and muddy service road. Once I got turned around, I didn’t waste any time directing it back the way I’d come.
 
 The service road was really little more than an uneven and ill-maintained dirt trail and was only ever used infrequently by the rangers and lookouts. As I’d previously mentioned, it was a rough ride, even for the heavy suspension of my trusty steed, so I had to keep it at a reasonable speed. The very last thing I needed was to snap an axle or bounce myself right off the road and into the trees.
 
@@ -104,9 +104,9 @@ Compound the condition of the trail with the fact that it constantly wound and c
 
 That’s okay – once I got past my tower, the service road was generally better maintained and followed a more-or-less straight path. I’d be able to build some decent speed there, and I’d be out of the wilderness and standing at the ranger station in an hour or so.
 
-The abrupt appearance of my tower caused me to feather off the gas as I rounded the last curve from the northern track. I slowed to a crawl and squinted through the now-dirty windshield. From here, everything looked exactly like I had left it. The gate still stood closed and, looking up, I could see the trapdoor also appeared shut. 
+The abrupt appearance of my tower caused me to feather off the gas as I rounded the last curve from the northern track. I slowed to a crawl and squinted through the now-dirty windshield. From here, everything looked exactly like I had left it. The gate still stood closed and, looking up, I could see the trapdoor also appeared shut.
 
-Maybe this thing hadn’t returned. 
+Maybe this thing hadn’t returned.
 
 Hell, maybe this thing wasn’t ever going to return. For all I knew, it was headed in the opposite direction. It’s not like it had a GPS or anything.
 
@@ -158,7 +158,7 @@ I’d likely live, but could I live with myself, knowing that I left Billy to di
 
 I couldn’t imagine being in his position – lying there, hurt and bleeding out. Knowing that his safe haven was wide open, and that *thing* was out there somewhere.
 
-Look, I know what you’re going to say. I know what you’re probably already saying. “Don’t be a dumbass. This is exactly why everyone dies in a horror movie!” 
+Look, I know what you’re going to say. I know what you’re probably already saying. “Don’t be a dumbass. This is exactly why everyone dies in a horror movie!”
 
 I get it. Believe me, I get it.
 
@@ -172,11 +172,11 @@ Despite the situation, I managed a sardonic grin as my rig bucked and bounced ov
 
 \*
 
-Fifteen minutes turned out to be a pretty good guess and before long I skidded to a halt outside Tower 12, next to Billy’s ride. 
+Fifteen minutes turned out to be a pretty good guess and before long I skidded to a halt outside Tower 12, next to Billy’s ride.
 
 I opened the door and stepped out into the quiet air, my handgun coming out of its holster and held before me like some sort of shield. I took a quick moment to let my eyes roam over the surrounding woodlands for any sign of movement before quickly jogging around my Jeep and towards the compound’s entrance. I passed through the open doorway, taking note of the heavy chain link gate that was laying twisted fifteen feet inside of the fence.
 
-Another dozen paces and I was at the base of the stairs, craning my neck to make sure nothing was awaiting me above. 
+Another dozen paces and I was at the base of the stairs, craning my neck to make sure nothing was awaiting me above.
 
 I keyed the mic at my shoulder and said in a low voice, “Billy, I’m outside of your tower right now, heading up. For Christ’s sake, don’t shoot me!”
 
@@ -186,7 +186,7 @@ I started up the stairs, revolver still held at the ready as my other hand ran l
 
 Blood, but not Billy’s. *Good. I hope that fucker is laying in the woods, breathing its last breath.*
 
-He definitely hit it, but I had no way of telling how seriously it was hurt. In a human, bright red blood indicated an arterial bleed, which was typically a fairly significant injury. 
+He definitely hit it, but I had no way of telling how seriously it was hurt. In a human, bright red blood indicated an arterial bleed, which was typically a fairly significant injury.
 
 With this thing, who knew what black-red meant?
 
@@ -208,7 +208,7 @@ His face had gone gray with a sickly paleness, and his breaths came in ragged hi
 
 But it was his leg that worried me most. A tourniquet had been tied around his thigh near his groin, but the pants leg was a cherry red below that, and was glistening in the late morning light.
 
-“Jesus, Billy,” I exclaimed, holstering my gun and rushing to his side. 
+“Jesus, Billy,” I exclaimed, holstering my gun and rushing to his side.
 
 He waved me off as I knelt beside him. “I know. It looks bad. Save it for later. Let’s get out of here before that thing decides to come back for another round.”
 
@@ -218,7 +218,7 @@ Lifting his arm over my head, I helped him to his feet. He grimaced in pain, but
 
 “Did you at least get to make your phone call?” I asked him as we took the steps carefully and agonizingly slow.
 
-He shook his head. “It got here just as I was getting ready to. It was using your voice, telling me that you were from the parks service and that you were here to help.” He looked at me with a shaken astonishment. “It sounded just like you, John, but when I looked over the catwalk railing down at it…” He winced again as we half-stumbled on a step. 
+He shook his head. “It got here just as I was getting ready to. It was using your voice, telling me that you were from the parks service and that you were here to help.” He looked at me with a shaken astonishment. “It sounded just like you, John, but when I looked over the catwalk railing down at it…” He winced again as we half-stumbled on a step.
 
 Almost there.
 
@@ -238,7 +238,7 @@ Everything went silent in that moment as we froze. My breath hitched in my lungs
 
 My first impression was that it was much larger than I had thought, but the nightmare visage before me eclipsed such a pedestrian observation.
 
-The thing stood in the middle of the trail still, shaking its head as if trying to recover its senses after the collision with the two-ton vehicle. 
+The thing stood in the middle of the trail still, shaking its head as if trying to recover its senses after the collision with the two-ton vehicle.
 
 It looked vaguely humanoid in a sense, but it walked on four limbs clearly proportioned to such a task. It was hairless and with mottled pink-gray skin stretched tight over muscles, bones, and odd, unidentifiable bulges. The limbs seemed to have joints that bent in all the wrong directions and ended in what should have been claws. But instead of the distinctive keratin-composed sharp nails that seem so familiar in the natural world, these seemed to be extensions of the creature’s skeletal structure, protruding painfully through its veiny translucent hide.
 
@@ -268,9 +268,9 @@ Billy closed his eyes a moment and turned to me. There was something in his eyes
 
 “Get ready with that cannon,” he whispered. “You’re only going to get one chance at this fucker.”
 
-“What are you talking about?” I asked. A moment later, I had my answer. 
+“What are you talking about?” I asked. A moment later, I had my answer.
 
-Billy took a deep breath and mustered every bit of his strength, flinging the door open and staggering out of the Jeep. 
+Billy took a deep breath and mustered every bit of his strength, flinging the door open and staggering out of the Jeep.
 
 “I’m right here, asshole!” he shouted at the thing, limping weakly across the road away from the Jeep. The mimic whipped its head in his direction instantly, but tilted its head to the side, seemingly momentarily puzzled at this unexpected turn of events.
 
@@ -280,9 +280,9 @@ The mimic flinched at the deafening sound of the gunshot, the flaps of membrane 
 
 But now was my chance, and I took it. I swung the door and stepped out of the Jeep, my gun coming free of its holster in the same movement. The creature was preoccupied with what was left of Billy, but as soon as I brought the gun up and thumbed back the hammer, its head whipped around at me. It crouched like a compressed spring as it prepared to launch, but I was quicker.
 
-The report of the gunshot was incredible, and the recoil of the powerful round rocked my wrist back painfully. The beast staggered and I saw a burst of blood and tissue explode from the wound near where its shoulder met its neck. 
+The report of the gunshot was incredible, and the recoil of the powerful round rocked my wrist back painfully. The beast staggered and I saw a burst of blood and tissue explode from the wound near where its shoulder met its neck.
 
-It howled out an otherworldly cry, sounding like a bedlam mixture of man and beast, but though the wound seemed terrible, it tried once again to throw itself at me. 
+It howled out an otherworldly cry, sounding like a bedlam mixture of man and beast, but though the wound seemed terrible, it tried once again to throw itself at me.
 
 I was set in my course, though, and took step after step towards the creature, pulling the trigger again and again until the gun ran dry and all I was left with was the clicking of the hammer and the high-pitched ringing in my ears. The acrid smell of gunpowder stung my nose and by the time I finally stopped, I found myself within only a few feet of the horrid thing.
 
@@ -292,7 +292,7 @@ Black-red blood spread out from beneath the thing’s bulk like an oil spill acr
 
 I holstered my empty handgun and scanned around the sodden ground for what I knew was there. A moment later I spotted it – Billy’s own magnum, laying half buried in the muck where it had been torn from his grip under the weight of the monster. I snatched it up and shook it clear of most of the mud and grass. Opening the cylinder, I saw that only one unfired round remained.
 
-That was enough, though. 
+That was enough, though.
 
 I approached the horror before me without apprehension or pause, my eyes focused on this thing that had caused such pain and terror.
 
@@ -300,14 +300,16 @@ I thumbed the hammer back and placed the muzzle against the mimic’s head, whic
 
 I felt the tremors from the creature vibrate through the gun as the barrel rested against its skull, right between where its eyes should have been.
 
-I tensed my finger on the cool steel of the trigger and the crack of the gunshot echoed through the forest. 
+I tensed my finger on the cool steel of the trigger and the crack of the gunshot echoed through the forest.
 
 It was done.
 
 But even as I walked back numbly to the Jeep and restarted the engine, I wondered if that was true. I thought back to the journal I had read, written more than a hundred and thirty years before, and how it had alluded to tales of this creature going back long before then.
 
-As I drove the Jeep along the rough and winding service road, I wondered at the possibility that what we encountered was the only one of its kind. That this same beast had somehow terrorized cultures separated from each other by great time and distance, spawning the legends that the author of the journal and his companions had pursued. 
+As I drove the Jeep along the rough and winding service road, I wondered at the possibility that what we encountered was the only one of its kind. That this same beast had somehow terrorized cultures separated from each other by great time and distance, spawning the legends that the author of the journal and his companions had pursued.
 
-It didn’t seem likely. 
+It didn’t seem likely.
 
 And now the door was open.
+
+[x](https://youtu.be/80EpjGkUqMU)
