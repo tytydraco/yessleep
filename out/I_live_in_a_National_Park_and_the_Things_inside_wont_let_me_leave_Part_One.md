@@ -1,7 +1,7 @@
 Tuesday, October 18th 14:24
 
 
-I wasn't sure if writing any of this down was going to do anything, more so for toehe than for me. I'm already too far gone, there's no saving me from whatever fate has in store. You all, however, are different, and I can only hope what you'll hear from me will serve as warning. 
+I wasn't sure if writing any of this down was going to do anything, more so for others than for me. I'm already too far gone, there's no saving me from whatever fate has in store. You all, however, are different, and I can only hope what you'll hear from me will serve as warning. 
 
 Do not trust the woods, do not trust the water, and never, I repeat, never, give them any miniscule sign you've noticed their presence. Don't look them in the eye, don't flinch when they move or speak or even touch you, never speak to them. Unless you want to end up like me of course, stuck in a once wonderland now turned nightmare. 
 

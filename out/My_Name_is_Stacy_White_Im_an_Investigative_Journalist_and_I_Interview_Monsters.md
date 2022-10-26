@@ -184,7 +184,7 @@ I stood up then, “I’m sorry, I need a break.” I stated. Truthfully, I didn
 
 Either way, I hoped to never see her again.
 
-[NEXT]()
+[NEXT](https://www.reddit.com/r/nosleep/comments/ye0nc4/my_name_is_stacy_white_im_an_investigative/)
 
 [Chapter List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/)
 

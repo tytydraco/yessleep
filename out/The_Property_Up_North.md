@@ -1,10 +1,10 @@
 [The Beginning](https://www.reddit.com/r/nosleep/comments/x1o0pp/the_property_up_north/?utm_source=share&utm_medium=web2x&context=3)
 
-I sat up quickly and looked around. Phoebe and Gretchen were crouched down next to me. 
+I sat up quickly and looked around. Phoebe and Gretchen were crouched down next to me.
 
 "It sounds like a car or something," said Phoebe.
 
-Bright lights appeared from the trail, and then a four-wheel utility vehicle drove past us. 
+Bright lights appeared from the trail, and then a four-wheel utility vehicle drove past us.
 
 "It looked like there were at least five people on that thing," said Gretchen.
 
@@ -22,25 +22,25 @@ We climbed on the four-wheeler, and I started it up. It was noisy, and I was afr
 
 After driving for a while, it looked like we were getting near the front of the park. The trail widened ahead, and it looked like there was a big open area. I slowed down and brought us to a stop, shutting off the engine so we could hear if anyone was around.
 
-"I think someone's coming," said Gretchen. 
+"I think someone's coming," said Gretchen.
 
 We exited the vehicle and ran into the woods. Then we watched as a group of people came down the path and looked over the vehicle. While they were busy, we made our way out of the woods to the clearing. There were a couple buildings and signs for the trailheads. The sky was getting brighter with the sun beginning to rise.
 
 "There's the park office. Let's go check it out," I said.
 
-We went inside and looked around. There were brochures for sightseeing in the U.P., along with maps of the park laid out on the counter. 
+We went inside and looked around. There were brochures for sightseeing in the U.P., along with maps of the park laid out on the counter.
 
-"It smells awful in here," said Gretchen. "Maybe it is coming from back there." She pointed to an open doorway behind the front desk. 
+"It smells awful in here," said Gretchen. "Maybe it is coming from back there." She pointed to an open doorway behind the front desk.
 
-We leaned in through the doorway and quickly found the source of the smell. There was a dead body lying on the floor. The chest was caved in, and a fuzzy growth covered it. 
+We leaned in through the doorway and quickly found the source of the smell. There was a dead body lying on the floor. The chest was caved in, and a fuzzy growth covered it.
 
 There was no power in the building, and there was no dial tone when I picked up the phone. We didn't see anything useful in the building, so we went back outside.
 
-"Hey! Over here," a woman's voice shouted. She was standing at the entrance to another building. 
+"Hey! Over here," a woman's voice shouted. She was standing at the entrance to another building.
 
 We ran over and followed her inside. She closed the door behind us.
 
-"I'm so glad to see some normal people again," she said. "My name is Amanda." She was wearing a gray shirt with a patch on the side that stated, 'Michigan Conservation Officer.' 
+"I'm so glad to see some normal people again," she said. "My name is Amanda." She was wearing a gray shirt with a patch on the side that stated, 'Michigan Conservation Officer.'
 
 "I'm Phoebe, and this is Gretchen and Brian," said Phoebe. "Do you know what is happening to everyone?"
 
@@ -52,11 +52,11 @@ We ran over and followed her inside. She closed the door behind us.
 
 "Why didn't you leave?" asked Gretchen.
 
-"I tried to, but the cars were covered with the fungus," said Amanda. 
+"I tried to, but the cars were covered with the fungus," said Amanda.
 
 "Same thing happened with our car," said Phoebe.
 
-We told Amanda what happened to us, including how they made duplicates of our friends and the fires they were making to spread the spores into the air. 
+We told Amanda what happened to us, including how they made duplicates of our friends and the fires they were making to spread the spores into the air.
 
 "This is crazy," Amanda said. "I wonder where this stuff even came from."
 
@@ -86,7 +86,7 @@ We all went outside, with Amanda leading the way to the maintenance building. Th
 
 Amanda picked up some fungicide and brought it by the door. "Let's put everything we think we'll need here, and then we can swing by with the vehicle to load up whatever we can't carry," she said.
 
-We grabbed a couple shovels and a small tool bag to put by the door. There was also a gas-powered backpack leaf blower that I found and set by the other supplies. 
+We grabbed a couple shovels and a small tool bag to put by the door. There was also a gas-powered backpack leaf blower that I found and set by the other supplies.
 
 "Maybe it can help keep the dust off us," I said.
 
@@ -98,7 +98,7 @@ Amanda looked out the door and said, "Hold on. Some people are coming."
 
 "There's seven of them," said Amanda. "They are walking over by the main office. We'll have to wait until they go somewhere else."
 
-Phoebe reached over and grabbed my hand. "Do you think we're going to be able to get out of here?" she asked. 
+Phoebe reached over and grabbed my hand. "Do you think we're going to be able to get out of here?" she asked.
 
 "I hope so," I said. "I'd like to spend more time with you…it was a lot of fun at the cabin until this all happened."
 
@@ -114,11 +114,11 @@ We made it to the trail entrance and then ran to the utility vehicle. We loaded 
 
 Amanda got in the driver's seat and started it up while the rest of us climbed in. She immediately stepped on the gas and drove us to the maintenance building. The door to the main office opened, and a group of people ran outside.
 
-I jumped out of the vehicle when she slowed down near our supplies. They were only about fifty feet from me when I quickly tossed the rest of our things in the back. 
+I jumped out of the vehicle when she slowed down near our supplies. They were only about fifty feet from me when I quickly tossed the rest of our things in the back.
 
-"Go, go, go!" I shouted as I jumped onto the back of the vehicle. 
+"Go, go, go!" I shouted as I jumped onto the back of the vehicle.
 
-I nearly lost my grip when we started moving but was able to hold on as Gretchen helped me in. 
+I nearly lost my grip when we started moving but was able to hold on as Gretchen helped me in.
 
 "They're going to catch up to us!" shouted Phoebe.
 
@@ -132,7 +132,7 @@ We went down a winding road for a while and then came to a stop.
 
 "Why'd you stop?" asked Gretchen.
 
-"Do you smell that?" asked Amanda. 
+"Do you smell that?" asked Amanda.
 
 I could still smell the burning wood we had been noticing for a while.
 
@@ -168,6 +168,8 @@ Phoebe turned it around as quickly as she could, and I got the leaf blower ready
 
 "Hey, are those flashing lights up ahead?" Gretchen asked.
 
-Phoebe slowed down a little, and I noticed it too. It was coming from around the next corner. We went around the turn slowly and came to an abrupt stop when we saw multiple police cars and fire trucks blocking the way out. 
+Phoebe slowed down a little, and I noticed it too. It was coming from around the next corner. We went around the turn slowly and came to an abrupt stop when we saw multiple police cars and fire trucks blocking the way out.
 
 "They're empty," said Phoebe.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/ye0ozo/the_property_up_north/)

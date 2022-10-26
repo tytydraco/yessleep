@@ -441,3 +441,7 @@ The name “ROSANNE” was written in bold Sharpie on it.
 *An entire town wiped out...and all I can think about is a silly old childhood crush...”*
 
 *\*RECORDER TURNS OFF\**
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/ye1c46/my_grandfather_left_behind_cassette_tapes/)
