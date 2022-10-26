@@ -168,11 +168,11 @@ Except... whatever. I probably *would* be fine. Even if something real and dange
 
 Devin threw eighty bucks at a very tired looking guy who I swear I could almost tell at a *glance* had ended up here because he had a degree he couldn't make money with, and we passed through the creaky, rusty metal turnstile leading into FunFun Land.
 
-Do you think it's interesting that crossing that threshold changed nothing? Entering the park hadn't triggered that anxious, haunted feeling*,* and it hadn't banished the feeling either. I don't know. I'm sidetracking myself, I guess, but *I* definitely think it's interesting. I have no doubt that Devon thought it was interesting, too.
+Do you think it's interesting that crossing that threshold changed nothing? Entering the park hadn't triggered that anxious, haunted feeling, and it hadn't banished the feeling either. I don't know. I'm sidetracking myself, I guess, but *I* definitely think it's interesting. I have no doubt that Devon thought it was interesting, too.
 
 We wandered around the park. Devin bought us both corn dogs. They were even shittier and greasier than you'd expect, although that's probably what people *want* from amusement park "food". We ate them wandering around, just mapping the place out, looking over our shoulders, ignoring that the urgency was getting worse, not better. Ignoring the occasional glimpse of something vanishing just around a corner, flitting away at the edge of our peripheral vision.
 
-There was nowhere near enough of a crowd to get lost in, which actually might not have *been* safer for all I know, but it sure as hell would've *felt* safer. Really, there were just enough people that it was oddly easy to observe how they'd cluster together. It was the groups of three or more that kept putting me on edge, especially the... I don't know, the *basic* ones? Like, a mom and dad, or maybe adult siblings or whatever, and then a kid or two. Or sometimes just a random small group of teens or young adults. Over half of those groups, passing us by, made that sense of being prey *spike* upward*.*
+There was nowhere near enough of a crowd to get lost in, which actually might not have *been* safer for all I know, but it sure as hell would've *felt* safer. Really, there were just enough people that it was oddly easy to observe how they'd cluster together. It was the groups of three or more that kept putting me on edge, especially the... I don't know, the *basic* ones? Like, a mom and dad, or maybe adult siblings or whatever, and then a kid or two. Or sometimes just a random small group of teens or young adults. Over half of those groups, passing us by, made that sense of being prey *spike* upward.
 
 And I thought I noticed something about those people, something I doubted at first, but the more groups I observed, the more I realized that no matter how little sense it made, either I was *very* suddenly developing schizophrenia somehow, or something was deeply, deeply fucking wrong, because I just kept seeing...
 
@@ -280,7 +280,7 @@ Devin versus danger. The dream of happiness versus withering, loneliness, hollow
 
 I nodded, thinking I could handle it. And unfortunately I was right.
 
-The log flume we had to skip, since it was undergoing repairs. The basic bitch coasters weren't, though, and none of them were great*,* but they were fun. Even the park's crappy tea cup ride was worth a whole three minutes of "waiting in line".
+The log flume we had to skip, since it was undergoing repairs. The basic bitch coasters weren't, though, and none of them were great, but they were fun. Even the park's crappy tea cup ride was worth a whole three minutes of "waiting in line".
 
 The Ferris wheel was battered, so much that the ride operator, her uniform the same blue as all the others, didn't seem to *want* us onboard. Every time the old metal groaned, my nerves yanked me out of the moment, but Devin only seemed more excited. My anxiety did not get in her way.
 
