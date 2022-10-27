@@ -2,7 +2,7 @@ I sat on the edge of my bed, hefting the handle of the gun in my hand. I practic
 
 “If yer looking for a tool to do the job, that right there’s yer one.”
 
-I whipped around in shock to see a middle aged man in a worn brown trench coat and a flat hat sitting on my couch. He had the sort of thin wispy mustache you’d expect to see on a cartoon villain, with a curled wry smile to match. 
+I whipped around in shock to see a middle aged man in a worn brown trench coat and a flat cap sitting on my couch. He had the sort of thin wispy mustache you’d expect to see on a cartoon villain, with a curled wry smile to match. 
 
 “Seen it happen all the time before, that .44 will paint a brain matter masterpiece all over that wall. I mean Jesus, yer brain might be worth more there than it is sitting in yer head right now.”
 
