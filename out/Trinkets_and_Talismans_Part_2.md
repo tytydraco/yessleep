@@ -26,8 +26,7 @@ I managed to time it pretty well as only a few days after Marianne had come back
 
 I went around the neighbourhood to a select few people and handed out invitations, I posted 3 of them through Andrew and Marianne's letterbox.. I was going to try and narrow down the amount of attendees as much as possible and I knew there was only one way to do that which wasn't going to be obvious I was pinpointing my evening towards Andrew.
 
-***Kat's Pre-Publication Celebration!*** *Lunch and Drinks at 28 Lowe Blvd - 13th May 2022*  
-C*elebrating Kat finishing her latest novel.13:00pm to 18:00pm - No Children*
+***Kat's Pre-Publication Celebration!*** *Lunch and Drinks at 28 Lowe Blvd - 13th May 2022*C*elebrating Kat finishing her latest novel.13:00pm to 18:00pm - No Children*
 
 No kids. No kids, no parents. Most parents get pretty upset when they find out their children aren't included and don't attend.. I know you get the odd few who will take advantage of it and drop them off at their grandparents or get a babysitter so they can have a good night but I wasn't betting on that happening and it turns out, I was right.
 
@@ -65,7 +64,7 @@ We all sat outside eating and chatting to the lovely elderly couple for some tim
 
 I thought to myself for a second. Should I really try my luck now? I should wait until the other two leave before bringing anything sensitive up, after all, I didn't know how Andrew would react to my questions, especially since he was already aware that I suspected him for Sean's abduction.
 
-We continued some general chit-chat across the table for a while before the elderly couple announced their departure, they were absolutely lovely, they thanked me for having them over and made their way home. 
+We continued some general chit-chat across the table for a while before the elderly couple announced their departure, they were absolutely lovely, they thanked me for having them over and made their way home.
 
 "So, Andrew. I heard you cleaned out your room of "knick-knacks" How long did that take you?" I said with a little giggle.
 
@@ -77,7 +76,7 @@ We continued some general chit-chat across the table for a while before the elde
 
 "Ah, I see... hey, now that it is just us, would you like to see if your brother wants to join us?" I responded.
 
-Marianne turned and looked extremely confused. "Brother? What are you on about?" 
+Marianne turned and looked extremely confused. "Brother? What are you on about?"
 
 Seemed like Andrew was not prepared for this at all.. his face turned white, eyes fixed forward, locked onto mine. He said nothing.
 
@@ -87,7 +86,7 @@ Marianne chased after him and we followed closely behind.
 
 "Andrew!" Marianne shouted. "What is Kat talking about? You have brother?!"
 
-He turned around and with as much force as he could, he slapped Marianne and shoved her against my car that was parked in our driveway. 
+He turned around and with as much force as he could, he slapped Marianne and shoved her against my car that was parked in our driveway.
 
 *"SHUT UP YOU STUPID BITCH, FUCK! YOU HAVE SUCH A LOUD MOUTH! JUST SHUT UP FOR ONCE!"* Andrew screamed.
 
@@ -97,14 +96,12 @@ I was right.. Harry knew I was right. The look he gave me told me so.
 
 Marianne, still pinned up against the car, sobbing and crying to be let go. Andrew stood and quickly realised the mistake he had just made as he watched Harry dial 911.
 
-Andrew let Marianne go and took off across the street towards his house, leaving his wife on the floor of our driveway sobbing, gasping for air. 
+Andrew let Marianne go and took off across the street towards his house, leaving his wife on the floor of our driveway sobbing, gasping for air.
 
-*"We got you, you son of a bitch!"* I shouted towards the house as he ran inside.  
-*"YOU ARE DONE YOU FUCKING MONSTER! YOU HEAR ME? DONE!"* I continued.
+*"We got you, you son of a bitch!"* I shouted towards the house as he ran inside.*"YOU ARE DONE YOU FUCKING MONSTER! YOU HEAR ME? DONE!"* I continued.
 
 I don't know why I did that, the fear my body felt immediately after those words came out of my mouth.. I could not stop shaking.
 
 Harry and I helped Marianne up from the ground and ushered her inside as we waited for the police to arrive. What an awful turn of events, I knew the topic would have caused some tenseness between us but I did not expect this at all..
 
-The sirens and red and blue lights approached and pulled up across the road. \~  
-I stood up and made my way towards the door, as I reached for the handle, I hear Harry's bloody curdling scream from the other room.
+The sirens, red and blue lights approached and pulled up across the road. \~I stood up and made my way towards the door, as I reached for the handle, I hear Harry's blood curdling scream from the other room.

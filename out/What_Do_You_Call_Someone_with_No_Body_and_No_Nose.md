@@ -116,7 +116,7 @@ The couple wore grim facial expressions which turned to confusion as they saw us
 
 “We need to leave **now.** Like right now. Like immediately.”
 
-Before he could answer, the sound of a wooden door shattering turned our attention to the stairs. An inhuman screech reverberated off the walls as Nobody Nonose floated down the stairs.
+Before he could answer, the sound of a wooden door shattering turned our attention to the stairs. An inhuman screech reverberated off the walls as Nobody Nonose floated down the steps toward us
 
 Mrs. McCutcheon screamed in horror , her husband’s eyes grew wide. “What in the fuck -“ he began. The creature glided toward Mr. McCutcheon, much faster than the speed at which it had approached me ,  and in an instant it had unhinged its jaw and clamped down on his head. 
 
