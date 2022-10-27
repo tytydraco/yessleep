@@ -1,0 +1,17 @@
+This is gonna be a long one because I just need to vent. Right now I have a pit in my stomach and I need some input. 
+
+I’ve (21F) always had a small group of friends. Sometimes they would change or people would fall off and come back, but I always had at least 2 friends. My friends in the past have not always been the best of people. One of my first best friends from the time I was 11 or 12 years old introduced me to cutting, sneaking out, graffiti (lol), and I definitely had my part in it all. I wanted to rebel. I have a mom and dad who divorced when I was 5 that I went back and forth to and from, which was hard on me. No matter what my friend and I get into some sort of drama and the whole thing blows up and I end up the hated out of the group. 
+
+A lot of my friends would get with the guys I was talking to, sometimes steal them right out from under me, literally. I never really spoke up about it and the friendships fizzled out.
+
+More recently, I had a friend (F17) I met when I was 17. I was fresh out of the hospital for drug detox and self harm. We became best friends but she was struggling with drugs and mental health as well. Id later find out she has bpd and I later was diagnosed with the same. 
+
+It was New Year’s Eve. And I saw my ex. When I was 15 I had my first real boyfriend (puppy love). But at the time he still meant something to me. We ended up reconnecting and we were all hanging out. We get very intoxicated and she corners me in the bathroom and starts begging me to have a threesome with her. I finally give in and do what she wanted. From then on he was hers. We ended up going away together with one of his friends (M17) on a road trip (from hell). 
+
+On this trip I end up taking acid and really connecting to his friend in an intellectual way. But my ex was being weird with my friend because she was not tripping. Later into the trip I end up alone on the porch smoking a cigarette with my ex. He proceeds to tell me how much he misses me and wants me back. I start to cry a bit and we kiss. Eventually she finds out because we were obviously acting weird after that. She goes off on me, cuts me off and turns everyone against me. 
+
+3 years later, I’d been in a 2 year relationship with my exes friend (he cut off my toxic ex). I get a DM from her. We reconnect and rekindle things. Everything is going well we hang out a lot and then a lot of drama in her relationships. At this point I’m going through my own stuff too. I got engaged (but I feel like he just did it to make me happy or I kinda pressured him which I regret.) and then I got pregnant, had a miscarriage and then got addicted to coke for 8+ months. 
+
+My exfiance didn’t really understand how to be there for me because he is/was so young. After I ended things with him I started seeing other people really quickly and got hurt by them. My friend who is really more a best friend or sister coerced me into ending my relationship. Then as soon as I was with someone she wanted she had to have him too.
+
+Honestly I lost it. There was the other friend hyping me up in my ear. And I was so angry and betrayed. I put visine in her drink and wanted to beat her up. She saw the messages on my iPad. Nothing happened to her. But she did turn everyone against me. Now I have no friends. I honestly hate my life and don’t want to be alive but I just keep living this façade. It’s been months and people think I’ve moved on but I haven’t. A part of me misses her still.
