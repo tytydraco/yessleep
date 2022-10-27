@@ -6,29 +6,29 @@ Something had a hold of my leg.
 
 That is why I woke up flailing.
 
-I shrieked and kicked, splashing at the water in a blind panic.  Whatever had hold of me immediately let go, which went a long way to calming my panic, I’ll admit.  I sat up, heart pounding, and stared at my… captor?  Rescuer?  
+I shrieked and kicked, splashing at the water in a blind panic.  Whatever had hold of me immediately let go, which went a long way to calming my panic, I’ll admit.  I sat up, heart pounding, and stared at my… captor?  Rescuer?
 
 Patricia.
 
-She stood with her shoulders and back slumped, like she was still kneeling in front of the slab, her arms dangling limply in front of her.  Her head was missing save for a few pieces of flesh dangling from the edge of her tattered neck stub.  
+She stood with her shoulders and back slumped, like she was still kneeling in front of the slab, her arms dangling limply in front of her.  Her head was missing save for a few pieces of flesh dangling from the edge of her tattered neck stub.
 
 I pushed myself up, watching her carefully as I stood.  She remained in place, swaying slightly from side to side, and made no move towards me.  I reached back and checked my back pocket.  The pencil case, thankfully, was still there and was undamaged.
 
 “So what now?” I asked her.  “Can you lead me to the eyeball?”
 
-If this was its lair, then perhaps it was taking a nap.  One of its pairs of legs was missing, after all, roaming the wasteland unattended.  Patricia didn’t move, though.  I tore my gaze away from her and surveyed the terrain.  
+If this was its lair, then perhaps it was taking a nap.  One of its pairs of legs was missing, after all, roaming the wasteland unattended.  Patricia didn’t move, though.  I tore my gaze away from her and surveyed the terrain.
 
 Perfectly flat as far as the eye could see, save for strange structures dotted here and there.  They reminded me of rock formations, worn away by water into arches and pillars, but they were colored in blues and greens and browns and had sharp edges jutting haphazardly from their bulk.  I’d go investigate one of those first, I reasoned.  There was nothing else to look at.
 
-There’s an area in the dorms that divides the dormitories from the dining hall.  It’s too long to be a room, but too wide to be a hallway.  The university put furniture in it a long time ago in an attempt to make it useful, but no one uses it.  When I say a long time ago, I mean it looks like furniture from an early 90’s Taco Bell.  The sofas and chairs have hard wooden arms and the cushions are thin, the fabric faded teal with the remnants of once vivid purple and blue squares.  
+There’s an area in the dorms that divides the dormitories from the dining hall.  It’s too long to be a room, but too wide to be a hallway.  The university put furniture in it a long time ago in an attempt to make it useful, but no one uses it.  When I say a long time ago, I mean it looks like furniture from an early 90’s Taco Bell.  The sofas and chairs have hard wooden arms and the cushions are thin, the fabric faded teal with the remnants of once vivid purple and blue squares.
 
-So naturally the students like to use them like building blocks.  It’s not uncommon to walk past a pile of furniture that towers precariously to the ceiling, a sofa turned on its end and chairs balanced on top of each other.  
+So naturally the students like to use them like building blocks.  It’s not uncommon to walk past a pile of furniture that towers precariously to the ceiling, a sofa turned on its end and chairs balanced on top of each other.
 
 Those bizarre sculptures now rose out of the water in this other world.  I stared stupidly at the one I’d picked to investigate.  Why was it here, of all things?  Did the act of constructing it give it enough meaning to exist elsewhere?
 
 I started walking to the next. Patricia followed me the entire time, shuffling a few feet behind me.  I tried to ignore her.  There was nothing I could say to her that could possibly make me feel better about what happened to her and the others.  She wasn’t leading me to the creature, but nor was she trying to hinder me.  I wasn’t sure why she’d been dragging me when I woke up, but I didn’t feel threatened by her at the moment.  She was just kind of… there.
 
-I checked two more structures before something happened.  I was considering toppling one, just to see if that did anything, when Patricia sidled up next to me.  Then she bumped into me.  Backed up, and bumped into me again.  
+I checked two more structures before something happened.  I was considering toppling one, just to see if that did anything, when Patricia sidled up next to me.  Then she bumped into me.  Backed up, and bumped into me again.
 
 She was pushing me closer to the tower of tacky furniture.
 
@@ -42,7 +42,7 @@ Holes.  The barnacles were gone and all that was left were holes, chunks of fles
 
 It continued swimming through the air, proceeding serenely with no attention given to myself and Patrcia huddling in the shelter of the stacked furniture.  Only once it was well away from us did Patricia step away from me.
 
-She didn’t want it to see us.  We weren’t alone in this world, I realized.  
+She didn’t want it to see us.  We weren’t alone in this world, I realized.
 
 I looked down at my feet.  Stooped to get a better look at the water I was walking in.  I stared until I began to see shadows, rippling shapes that I could only discern the outline of.  I followed the edge of one for a while until it stopped, and I finally understood what I was seeing.
 
@@ -60,7 +60,7 @@ It was a disconcerting thought.  Was she trying to help or was she trying to add
 
 I tried shoving her, just to make sure I could overpower her if I needed to.  She stumbled in the direction I pushed her in, her arms swinging like wet noodles.  Satisfied, I kept going until I saw a long shadow stretching towards me underneath the water like a pointing finger.
 
-We were here.  
+We were here.
 
 And up ahead, in a space clear of the stacked furniture mounds, was a dome.  It protruded from the water like a contact lens floating in its case, glistening with moisture.  I approached slowly.  There were smaller mounds around it and it was quickly apparent what they were.
 
@@ -92,13 +92,13 @@ This was how it had killed the kelpie.  It’d simply flattened it, crushing its
 
 I scrambled to my feet and ran.  Behind me I heard the creaking of its stolen legs as it rose, readying itself for another attempt.  I fumbled at the pencil case.  How was I going to get close enough to stab it without being crushed in the attempt?
 
-My fingers brushed something else inside the case.  The pencil shavings.  
+My fingers brushed something else inside the case.  The pencil shavings.
 
-An ancient thing had given me this pencil and the devil *did* play by the rules.  The devil had probably written some of those rules himself as one of the prominent recurring tricksters in the stories.  These creatures might not be following the rules, they might be new creations with their own patterns, but the devil’s authority couldn’t be easily dismissed.  
+An ancient thing had given me this pencil and the devil *did* play by the rules.  The devil had probably written some of those rules himself as one of the prominent recurring tricksters in the stories.  These creatures might not be following the rules, they might be new creations with their own patterns, but the devil’s authority couldn’t be easily dismissed.
 
 The old against the new.
 
-I upended the pencil case and shook the shavings out into the water.  
+I upended the pencil case and shook the shavings out into the water.
 
 A very simple trick.  If given an object by an inhuman, no matter how innocuous it is, it should be thrown behind oneself when pursued.  Then it will become something else and block the way.
 
@@ -154,7 +154,7 @@ I lay on my back in the middle of the room, a chair leg not far from my head.  T
 
 “Grayson!?”
 
-He stood over me, his jeans sopping wet from being caught in the deluge.  We stared at each other, dumbfounded.  I stammered a few times, trying to figure out what to tell him.  I finally settled on pointing back at the door I’d just fallen through (which I think was a closet) and saying ‘steam tunnels.’  
+He stood over me, his jeans sopping wet from being caught in the deluge.  We stared at each other, dumbfounded.  I stammered a few times, trying to figure out what to tell him.  I finally settled on pointing back at the door I’d just fallen through (which I think was a closet) and saying ‘steam tunnels.’
 
 The room I was in was an office.  A very nice office.  There were formidable paintings on every wall with heavy frames and vivid oil brushstrokes depicting various buildings around campus.  I had no doubt they were originals.  The desk was massive, but nearly empty, made out of a dark cherrywood.  The carpet… well, it would need to be replaced, now that I’d released a massive flood of dirty river water.
 
@@ -184,7 +184,7 @@ Grayson and I have been carefully avoiding each other since that encounter.  I d
 
 Besides, it’s not like I’ve been exactly forthcoming on my own.  There’s not a lot of trust going around right now.
 
-I focused on my approaching finals instead.  And while I didn’t need help on them, the devil still deigned to make an appearance as I was walking to my final exam.  
+I focused on my approaching finals instead.  And while I didn’t need help on them, the devil still deigned to make an appearance as I was walking to my final exam.
 
 “I have *so many questions*,” I hissed as he fell into step beside me.
 
@@ -226,7 +226,7 @@ I finally gave him the satisfaction of turning around so that I could see his sm
 
 A new semester is starting.  I’m officially a sophomore.  Cassie and Maria are coming back to campus.  I don’t think what I did is anything more than restoring the status quo, but I’ll take it.  Because as much as I hate it, the devil was right.  I’ve got three more years here.  And they might be incomplete and they might be a flawed strategy… but the rules are all I’ve got to help myself and everyone else survive this place.
 
-I’m already printing them out for when the semester starts.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+I’m already printing them out for [when the semester starts](https://www.reddit.com/r/nosleep/comments/yegewf/how_to_survive_college_but_seriously_how_do_you/).[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
