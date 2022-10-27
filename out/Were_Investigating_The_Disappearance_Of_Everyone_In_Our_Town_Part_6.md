@@ -609,3 +609,9 @@ More good news is that when I told him about I thought saving everyone would be 
 &#x200B;
 
 Later, [everybody.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/yen353/were\_investigating\_the\_disappearance\_of\_everyone/](https://www.reddit.com/r/nosleep/comments/yen353/were_investigating_the_disappearance_of_everyone/) (I love Halloween)
