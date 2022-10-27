@@ -1,4 +1,4 @@
-Evidence found on victim Gavi Hammond's phone at the crime scene; depicts events leading up to death from victims perspective. Found at 12:34PM.
+Evidence found on victim Gavi Hammond's phone at the crime scene; depicts events leading up to death from victims perspective. Found at 12:34PM, October 27th.
 
 3:24AM
 
