@@ -1,8 +1,8 @@
-I sat on the edge of my bed, hefting the handle of the gun in my hand. I practiced bringing it to my head a few times, coming closer to pulling the trigger each time. I was at my limit. Everything I did felt like it wasn’t enough, and I felt like I was dragging those I loved down. My self hate had finally gotten to me, and I couldn’t go on living any longer. As I stared at the weapon, a voice with a slight Gaelic brough spoke up from the opposite corner of the room.
+I sat on the edge of my bed, hefting the handle of the gun in my hand. I practiced bringing it to my head a few times, coming closer to pulling the trigger each time. I was at my limit. Everything I did felt like it wasn’t enough, and I felt like I was dragging those I loved down. My self hate had finally gotten to me, and I couldn’t go on living any longer. As I stared at the weapon, a voice with a slight Gaelic brogue spoke up from the opposite corner of the room.
 
 “If yer looking for a tool to do the job, that right there’s yer one.”
 
-I whipped around in shock to see a middle aged man in a worn brown trench coat and a flat hat sitting on my couch. He had the sort of thin wispy mustache you’d expect to see on a cartoon villain, with a thin wry smile to match. 
+I whipped around in shock to see a middle aged man in a worn brown trench coat and a flat hat sitting on my couch. He had the sort of thin wispy mustache you’d expect to see on a cartoon villain, with a curled wry smile to match. 
 
 “Seen it happen all the time before, that .44 will paint a brain matter masterpiece all over that wall. I mean Jesus, yer brain might be worth more there than it is sitting in yer head right now.”
 

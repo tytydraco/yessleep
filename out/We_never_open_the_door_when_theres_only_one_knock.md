@@ -126,7 +126,7 @@ He shrugged.
 
 Max and I used to make fun of the superstition. When we were younger, before Ruby disappeared, we once played ding dong ditch. After a few houses, Max decided to knock once at the door of our neighbor Mrs. Tellski. Someone saw us though and Max got the biggest lecture of his life from his grandpa. Like it was a really big deal. My parents weren't happy either, but Max was grounded for two months, during which his grandpa told him all sorts of horror stories from this town. 
 
-"I don't think it was her either. But I do think it was mimicking her, or trying to."
+"I don't think it was her either. But I do think it was mimicking her, or trying to," I said.
 
 "For what it's worth, I think it was smart that you didn't open the door. Maybe we're all just a little crazy but better safe than sorry, right?" 
 
@@ -168,7 +168,7 @@ My hands touched the cold door handle, moving almost as if I was in a trance.
 
 "I have Jack. They fixed him, Lala. We don't need to fight anymore."
 
-Those words pierced through my body and woke something up inside of me. I stepped away from the door and walked back upstairs passing my room where Max was still living still. But I didn't stop, I walked to the next room. Ruby's old bedroom. Everything there looked just the way it did when she was still here. My parents could never change it.
+Those words pierced through my body and woke something up inside of me. I stepped away from the door and walked back upstairs passing my room where Max was still lying still. But I didn't stop, I walked to the next room. Ruby's old bedroom. Everything there looked just the way it did when she was still here. My parents could never change it.
 
 Everything was still the same. And Jack was still placed on her bed where I put it five years ago after I'd sewn him back together.
 
