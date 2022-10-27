@@ -20,7 +20,7 @@ I regretted my decision almost immediately - Charlie had been especially aggrava
 
 It wasn’t long before I reached my limit - after dumping the entire bag of lollipops on the floor in Charlie’s playroom, I devised a new game that he was all too eager to play - “take all your LEGOs apart and put them back together one by one while I watch tv in the living room.” 
 
-The game was going really well until Charlie exploded into the room, hopping onto the couch next to me with several lollipops sticking out of his gullet, interrupting the *Teen Mom* rerun that had me enraptured. He ripped them out excitedly, sticky spit flying in all directions and dripping onto his hand. 
+The game was going really well until Charlie exploded into the room, hopping onto the couch next to me with several lollipops sticking out of his gullet, interrupting the trash TV rerun that had me enraptured. He ripped them out excitedly, sticky spit flying in all directions and dripping onto his hand. 
 
 I scowled, unable to hide my annoyance. “I thought we were playing a game.” I said sternly. 
 
