@@ -312,7 +312,7 @@ I heard it splatter on the ground as it left my mouth. Thick like stew, it began
 
 I wiped my mouth, "Why did they. What happened."
 
-By now Chloe had helped Dave pull Patrice out of the tent. There was a gash in her stomach but it wasn't serious, at least not as the wound forming on the side of her head. It bubbled, likely filled with blood. A hematoma, some part of me remembered.
+By now Chloe had helped Dave pull Patrice out of the tent. There was a gash in her stomach but it wasn't serious, at least not as the bubble forming on the side of her head. It bubbled, likely filled with blood. A hematoma, some part of me remembered.
 
 "Let's get her into the crawler," Chloe said. She looked at me, "We have to call McMurdo."
 
@@ -324,7 +324,7 @@ After a second's hesitation, "This is McMurdo. Please state your emergency. Over
 
 "We have three dead." I let it die. "Two dead. And one injured. Another, another missing. Over."
 
-"We can send an immediate air drop to your location. Please confirm. Negative 84. Negative 140. Over."
+"We can send an immediate air drop to your location. Please confirm. Negative 78. Negative 170. Over."
 
 "Yes! We have joined with Simon's team. Over."
 
