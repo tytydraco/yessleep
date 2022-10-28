@@ -46,7 +46,7 @@ Half hour later I was pulling up outside 128 Dovecote Close and... oh. God damn 
 
 '**Do you see what I'm dealing with?**' He pointed directly at it, and arched his leg for a good kick.
 
-'Mr.Pollock, NO!' I shouted, but it was too late. The toe of his boot landed plump into the mass, and out poured a psychedelic display of colour and light, shapes and prisms. I watched as tendrils of black rope shot up through the black mass where the light erupted and into Mr.Pollock he laughed hysterically at the show, his arms still waving desperately as he was pulled through the hole in the floor. Oh boy did I scream as he immediately climbed back out, his flailing arms replaced by black ropey tendrils, lashing and whipping in the same manner he'd waved his human arms moments before. I dropped my phone and scarpered up the stairs as I heard his angry protests.
+'Mr.Pollock, NO!' I shouted, but it was too late. The toe of his boot landed plump into the mass, and out poured a psychedelic display of colour and light, shapes and prisms. I watched as tendrils of black rope shot up through the black mass where the light erupted and into Mr.Pollock. He laughed hysterically at the show, his arms still waving desperately as he was pulled through the hole in the floor. Oh boy did I scream as he immediately climbed back out, his flailing arms replaced by black ropey tendrils, lashing and whipping in the same manner he'd waved his human arms moments before. I dropped my phone and scarpered up the stairs as I heard his angry protests.
 
 '**Break into my home will you? It's just plain vandalism, is what it is!'**
 
