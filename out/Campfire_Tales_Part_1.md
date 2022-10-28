@@ -171,3 +171,5 @@
 •
 
   Every eye around the campfire was glued to Liam as he finished his tale, as he cut his gaze from one of us to the next. With the madness and fury behind his reddening stare, I finally understood that this was not simply some story he made up for the sake of scaring his fellow scouts, but that Lilian King herself sat before us, hidden away behind the boy I called a friend.
+
+[Final](https://www.reddit.com/r/nosleep/comments/yfb58u/campfire_tales_final/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
