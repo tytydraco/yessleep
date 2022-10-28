@@ -15,3 +15,5 @@ I’m back.. I’m home.. But I was just there.. I know it was real. The proof i
 The thing is, he went missing for 2 days once and came back a little mentally unstable, then a week after that event he went missing again, but the second time it was for good. I'm not sure what to do now...Do I tell my wife? Do I call the police? Or do I just burn the page and forget I saw it...?
 
 Edit: I'm going to search the closet, I'm taking my phone, my charger, an emergency kit, my gun, as much ammo as I can find, and other things to survive. Whatever he saw it seems dangerous and I need to be prepared, I'll update as soon as I can.
+
+Update: I told my wife about what I was doing, she said I sound crazy but I don't care. I need to find my son. I'm gonna try to clean my sons closet, maybe that's how I get in.

@@ -94,7 +94,7 @@ It still hurts, so I run my finger on my soles, but I can't feel anything out of
 
 I must be seeing things. I run back to him, to the remnants of the bonfire.
 
-Something happened.What happened?
+Something happened. What happened?
 
 ————————
 
@@ -108,8 +108,44 @@ Suddenly, men in full protective yellow suits come in. Like the man in white bef
 
 They started pricking and prodding me, injecting me with things. Vines lashed out at them from inside of me, but they were quickly taken care of with some sort of spray. For the first time in a long while, I felt pain. I tried to scream, but I realised my mouth was gone.I couldn't feel the opening. I could barely feel my tongue, and my teeth were gone.
 
-They cut my leg off. Then my arm. All the while the vines came out of me, but were quickly subdued. I'm in pain. Pain like never before.
+They cut three of my fingers off.  All the while the vines came out of me, but were quickly subdued. I'm in pain. Pain like never before.
 
-Before I pass out, one thought stands out in my mind:
+I feel the vines moving through me, reaching through my muscles, breaking and fixing my bones. The vines slither up my once-broken neck, into my skull.I feel them jump around. It hurts.
+
+My eyes start to close, but just then, my body starts moving, almost as if the vines themselves are pulling me with unseen strings.
+
+It hurts.
+
+————————
+
+"It doesn't hurt me," I said to him.
+
+He was looking over my foot, not sure what to make of make of the predicament. "I don't know what to say. Nothing seems wrong. If you're positive you're not seeing things and going insane," he flashed me a smile.
+
+Again, I smiled back. "No, it was something... It was crawling under my skin."
+
+He raised a skeptical eyebrow, but didn't say anything.
+
+I swatted his arm playfully, "Maybe I'm just tired."
+
+He stood up and stretched, "We did have a late night." He flashed me a knowing smile.
+
+I smiled back, and stood up to face him.
+
+The way he looked at me...I shyly moved my gaze downwards, hiding the happiness dancing on my face.
+
+————————
+
+I quickly moved my gaze downwards to focus on what was in my bloodstained hands. A device of some sort.
+
+It took a moment, but I was able to recall what it was: a laptop.
+
+I looked at my surroundings, and I was dressed in rags, in a closet, full of brooms and cleaning agents. I cracked the door of the closet open, only to be greeted by the white hallways I've come to hate.
+
+I decided to open the computer. A post-it note near the touchpad had a password scratched on it, which I quickly typed into the laptop.
+
+I opened up some sort of... application? Is that what it's called? No matter- and I wrote down everything I could in a chronological order. I don't know what's happening, but I don't want to forget anything.
+
+All the while, one thing flashes through my mind:
 
 I should be dead.
