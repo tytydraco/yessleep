@@ -16,7 +16,7 @@ But never, absolutely never, should you open the door when there's only one knoc
 
 There are a bunch of rumors, of people disappearing or suddenly dying after opening their doors though they all supposedly happened before we even lived here.
 
-I never believed in it, even when I was little. This town was simply insane, most people here were a little eccentric and unusual. Well, that's what I believed until I heard my lost sister call for me, after the one loud knock on our front door. 
+I never believed in it, not even when I was little. This town was simply insane, most people here were a little eccentric and unusual. Well, that's what I believed until I heard my lost sister call for me, after the one loud knock on our front door. 
 
 "Please, go away," I whispered. 
 

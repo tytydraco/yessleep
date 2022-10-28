@@ -4,7 +4,7 @@ Now, I just want all this trick-or-treat nonsense to be over. And it isn't even 
 
 And it's all because of that stupid little girl...
 
-Okay, some backstory: I'm 16, my name is Carlos and I go to school outside my town of Blackthorne, Ohio. Meaning I have to take the bus there every day. And when I got home from school, a little girl was waiting for me.
+Okay, some backstory: I'm 16, my name is Carlos and I go to school outside my town of Blackthorne, Ohio. Meaning I have to take the bus there every day. And when I got home from school, a little girl was waiting for me at the bus stop.
 
 She had bright orangey-red hair in two pigtails, glasses with red frames, and was completely covered in freckles all over. I can still picture her clearly.
 
@@ -26,21 +26,21 @@ I sighed. "What's your name?" I asked.
 
 "Well, Thelma, just go back to your parents and they can take you on the 31st. I gotta go."
 
-And I walked away, back to my house, where thankfully I was alone. Inez was out with friends, Alejandro was at daycare, and Romina was at her school's Halloween party. The elementary school's out of town too, so she should be out for a while. 
+And I walked away, back to my house, where thankfully I was alone. Inez was out with friends, Alejandro was at daycare, and Romina was at her school's Halloween party. The elementary school's out of town too, so she should be out for a while.
 
-I was chilling on the couch finally getting around to watching Hocus Pocus 2, when I heard her voice at the door. 
+I was chilling on the couch finally getting around to watching Hocus Pocus 2, when I heard her voice at the door.
 
 "Trick or treat?"
 
 I was pretty annoyed at this point. I went to open the door and found nothing.
 
-Then I heard a series of smashing noises coming from the kitchen. 
+Then I heard a series of smashing noises coming from the kitchen.
 
 I ran inside and found every lightbulb smashed.
 
 I screamed, and as I did I heard a giggle. And it sounded like Thelma.
 
-I ran do every window and door checking for her, but nothing. 
+I ran do every window and door checking for her, but nothing.
 
 But I came to my room last. And found it completely ransacked. Messed up and ruined.
 
