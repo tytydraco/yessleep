@@ -12,7 +12,7 @@ I got off my bus after it pulled into the bus station. The patio my friends like
 
 My phone buzzed. I squinted as the light of the screen lit up my face.
 
-Hey G. Burgundy’s is full. We’re at Dizzy Wine Bar instead. Meet us there. 
+*Hey G. Burgundy’s is full. We’re at Dizzy Wine Bar instead. Meet us there.* 
 
 “Meet us there.” Well, pals, I already frickin’ went to Burgundy’s! But they were right. Every seat at every table on Burgundy’s patio was filled. 
 
@@ -28,7 +28,7 @@ The next block over, a flickering, slightly more apparent than the last, caught 
 
 I was wrong. I came across at least five or six more instances. Each fire was slightly bigger than the last. I was getting nervous at this point. I saw flames on bushes, in the road, and even on someone's head. He was smoking a cigarette and the top of his beanie was lit as well. He didn’t even seem to notice. Just walking along like nothing was wrong. Walking along like the top of his head was not on literal fire.
 
-The guy, still smoking, started to whistle a bit. I recognized the tune and heard the lyrics in my head. I fell into a burning ring of fire. I went down, down, down and the flames went higher. And it burns, burns, burns, the ring of fire...
+The guy, still smoking, started to whistle a bit. I recognized the tune and heard the lyrics in my head. *I fell into a burning ring of fire. I went down, down, down and the flames went higher. And it burns, burns, burns, the ring of fire...*
 
 Okay, I seriously gotta tell this guy his beanie is on fire. Just walking and whistling and completely oblivious. Dude was on the other side of the road across from me and had taken a left. I lost him briefly when he went behind a dollar store. I had to do a quick jog after him, completely abandoning my route to the wine bar.
 
@@ -36,7 +36,7 @@ I attempted to chase him down. Somehow, in the brief moment that it took him to 
 
 Okay, not my problem anymore. Time to go meet my friends.
 
-Then, I heard the whistling again. It took me a moment to figure out which direction it was coming from but I recognized the whistling to be that of the same man. He even began softly singing. Love is a burning thing and it makes a fiery ring…
+Then, I heard the whistling again. It took me a moment to figure out which direction it was coming from but I recognized the whistling to be that of the same man. He even began softly singing. *Love is a burning thing and it makes a fiery ring…*
 
 Guess he must’ve had that song stuck in his head. I was trying to decide which direction he had gone in by listening to his song. It sounded like it was to the left of me, then to the right, then right in my ear, then from the rooftops. His voice was everywhere and it was getting around at inhuman speed. I was starting to feel disoriented. 
 
@@ -74,7 +74,7 @@ As the fire grew taller, it started to loom over me. Two fiery arms sprouted out
 
 I fell backwards and smashed my head on the window which was apparently enough to bust the glass. I jumped out of the window, then jumped off the fire escape from the top step, landed harshly on the concrete, sprained my ankle, and ran. 
 
-You ever tried to run with a sprained ankle? You ever even tried to walk with a sprained ankle?
+You ever tried to run with a sprained ankle? You ever even tried to *walk* with a sprained ankle?
 
 It didn’t last long. I ran just far enough to completely wind myself and make my chest hurt. I wheezed in pain, exhaustion, and fear. I fell to the sidewalk in a heap. Above me, the street lamp turned on. Then, the one across from it also turned on. Gathering myself, I sat on the curb. I now realized that my ankle was in pain. 
 
