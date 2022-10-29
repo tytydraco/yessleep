@@ -143,3 +143,5 @@ I nearly swerved into the guardrail. Falling into insanity, I asked **"WHY?"**
 "D has a point." My reflection added, speaking the truth I had already accepted.
 
 "Shut up!" I begged both the mirror and D. I didn't want this. Fuck!
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/ygw5d1/im_a_trucker_for_a_shady_organization_i_haul_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
