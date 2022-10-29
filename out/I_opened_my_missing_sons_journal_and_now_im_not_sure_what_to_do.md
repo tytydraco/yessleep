@@ -19,3 +19,5 @@ Update 1: I'm going to search the closet, I'm taking my phone, my charger, an em
 Update 2: I told my wife about what I was doing, she said I sound crazy but I don't care. I need to find my son. I'm gonna try to clean my sons closet, maybe that's how I get in.
 
 Update 3: I've fallen into this area, just as described in the journal. It's endless hallways with old wallpaper and moldy carpet. The smell is horrific, it smells like blood and mold. I'm also hearing whispers just like the journal said. I can't believe I thought he was lying, I should have believed him. Maybe if I did he wouldn't have gone missing...
+
+Update 4: Sorry for not updating in a few hours, I've been trying to find somewhere safer. I'm in a place that wasn't described in the journal, it's an area full of pools and water. The stench of chlorine is nauseating. I feel completely alone here, I don't think anything living is here. I'll update again soon. 
