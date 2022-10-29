@@ -340,11 +340,11 @@ Chloe ripped the transmitter out of my hand, "McMurdo. We are not waiting for th
 
 Chloe looked at me then back at, "Dave. Listen. There's something. I don't know. There's something, fuck. There's something in the ice."
 
-I could see Dave shaking his head, his eyes closing, his demeanor in disbelief, his mouth still half open when it hit him. Took him right off his feet. It moved so fast and blended into the snow perfectly that it was difficult to see, even more difficult to see when it started stomping the ground, the snow came up like smoke as I see parts of her stamped out in the ice.
+I could see Dave shaking his head, his eyes closing, his demeanor in disbelief, his mouth still half open when it hit him. Took him right off his feet. It moved so fast and blended into the snow perfectly that it was difficult to see, even more difficult to see when it started stomping the ground where Patrice laid, the snow came up like smoke as I see parts of her stamped out in the ice.
 
 That's when I ran. I ran as fast as I could, the ground slipping before me as the world turned upside down and I hit my head hard against the ground. If it weren't for Chloe, I would have never made it into the Crawler.
 
-My head was still spinning when we took off. I could hear Chloe's panicked breathing as she kept looking behind us. I came in and out a few time, my vision distorted, it was like looking at snapshots, a strobe light in a dark room. When I was finally able to gather enough sense to fill a sentence, I looked over at Chloe who had a death grip on the wheel. Her exposed fingers beginning to blacken at the tip as she drove.
+My head was still spinning when we took off. I could hear Chloe's panicked breathing as she kept looking behind us. I came in and out a few time, my vision distorted, it was like looking at snapshots, a strobe light in a dark room. When I was finally able to gather enough sense to fill a sentence, I looked over at Chloe who had a death grip on the wheel. Her exposed fingers beginning to blacken at the tip as she drove. They were covered in snow, and so were the keys.
 
 "Chloe."
 

@@ -1,3 +1,7 @@
+[Arctica 2](https://www.reddit.com/r/nosleep/comments/ya9n8c/arctica_2/)
+
+&#x200B;
+
 Ice.
 
 Most people don't know much about it, except that they like it in their drinks on a hot summer day. It can be described as water at zero C. Or for any Americans that are reading this, anything below Thirty-two F.
