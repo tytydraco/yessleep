@@ -54,7 +54,7 @@ The following is what the second tape had recorded on it:
 
 *My mother would always be applying iodine to any new wounds she might gave gotten, and there would always be three more beer bottles to be weary of when walking through the house.*
 
-*During that summer, I’d take long walks in a forest that bordered my town.* 
+*During that summer, I’d take long walks in a forest that bordered my town.*
 
 *It was much, much larger than the one between my town and Kanterville, and I would walk in it for hours every day.*
 
@@ -62,7 +62,7 @@ The following is what the second tape had recorded on it:
 
 *I always enjoyed observing them more than anything else.*
 
-*The way how the mother nuzzled her young and how she helped him standup up when he himself couldn’t always warmed my frozen heart.*  
+*The way how the mother nuzzled her young and how she helped him standup up when he himself couldn’t always warmed my frozen heart.*
 
 *I always wondered how my father could be below a wild animal…but he was.*
 
@@ -70,7 +70,7 @@ The following is what the second tape had recorded on it:
 
 *I could only get a sense of time by seeing how the small fawn would grow.*
 
-*The fawn and his mother could reliably be found in the same spot most of the time; a small clearing out in the woods.* 
+*The fawn and his mother could reliably be found in the same spot most of the time; a small clearing out in the woods.*
 
 *I would always hide behind this large jagged boulder and observe them, envious of their peace.*
 
@@ -102,7 +102,7 @@ The following is what the second tape had recorded on it:
 
 *But instead, I shouted with all of might at it.*
 
-*David…I can only say that I made it as far as I did because of the uneven terrain and because my quadrupedal physiology gave me an advantage in dexterity.*
+*David…I can only say that I made it as far as I did because of the uneven terrain and because my bipedal physiology gave me an advantage in dexterity.*
 
 *Otherwise, I’m not sure there would have been anything left of me.*
 
@@ -264,7 +264,7 @@ I wanted to die.
 
 *I started to crawl back.*
 
-*My father saw this and his eyes became like those of an angered bull.* 
+*My father saw this and his eyes became like those of an angered bull.*
 
 *He rushed at me, but as he stepped over the burning scarf to do so, a massive flame whipped up and wrapped itself around him like a tentacle.*
 
@@ -414,7 +414,7 @@ I wanted to die.
 
 *The rain weighed me down, as though the countless hands of those having turned into ash were forcing me to watch what I had unleashed.*
 
-*I felt hopeless.* 
+*I felt hopeless.*
 
 *I wanted hope.*
 
@@ -424,7 +424,7 @@ I wanted to die.
 
 *I didn’t feel angry.*
 
-*I jabbed my index fingers in my nostrils as far as they would go.* 
+*I jabbed my index fingers in my nostrils as far as they would go.*
 
 *I had no intention of creating another monster.*
 
@@ -442,7 +442,7 @@ I wanted to die.
 
 *It moved towards the edge of the hill I was on and started to run down it like a sled.*
 
-*With every gallop through the forest, collecting the dew in every leaf, as well as the rain falling from the heavens, it grew larger and larger in size.* 
+*With every gallop through the forest, collecting the dew in every leaf, as well as the rain falling from the heavens, it grew larger and larger in size.*
 
 *The once tiny deer became gargantuan wave that pushed forwards, its antlers reared down.*
 
