@@ -102,7 +102,7 @@ The following is what the second tape had recorded on it:
 
 *But instead, I shouted with all of might at it.*
 
-*David…I can only say that I made it as far as I did because of the uneven terrain and because my bipedal physiology gave me an advantage in dexterity.*
+*David…I can only say that I made it as far as I did because of the uneven terrain and because my quadrupedal physiology gave me an advantage in dexterity.*
 
 *Otherwise, I’m not sure there would have been anything left of me.*
 
