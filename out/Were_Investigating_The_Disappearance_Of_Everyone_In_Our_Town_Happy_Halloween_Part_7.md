@@ -1,4 +1,4 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/ws6uv0/were_investigating_the_disappearance_of_everyone/) [Part 2](https://www.reddit.com/r/nosleep/comments/wy4cu8/were_investigating_the_disappearance_of_everyone/) [Part 3](https://www.reddit.com/r/nosleep/comments/x4keoy/were_investigating_the_disappearance_of_everyone/) [Part 4](https://www.reddit.com/r/nosleep/comments/xb579u/were_investigating_the_disappearance_of_everyone/) [Part 5](https://www.reddit.com/r/nosleep/comments/xi3da9/were_investigating_the_disappearance_of_everyone/) [Part 6](https://www.reddit.com/r/nosleep/comments/xvaqt9/were_investigating_the_disappearance_of_everyone/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/ws6uv0/were_investigating_the_disappearance_of_everyone/) [Part 2](https://www.reddit.com/r/nosleep/comments/wy4cu8/were_investigating_the_disappearance_of_everyone/) [Part 3](https://www.reddit.com/r/nosleep/comments/x4keoy/were_investigating_the_disappearance_of_everyone/) [Part 4](https://www.reddit.com/r/nosleep/comments/xb579u/were_investigating_the_disappearance_of_everyone/) [Part 5](https://www.reddit.com/r/nosleep/comments/xi3da9/were_investigating_the_disappearance_of_everyone/) [Part 6](https://www.reddit.com/r/nosleep/comments/xvaqt9/were_investigating_the_disappearance_of_everyone/)
 
 &#x200B;
 
@@ -2439,3 +2439,7 @@ He turned out to be right. We tried another door and found a restroom with stall
 &#x200B;
 
 We were super tired so we chose to rest up with Zohl on guard whose species needs very little rest. I’ll have to leave it off here for now, due to Reddit’s character limit. Expect the second post [tomorrow.](https://www.reddit.com/r/StoriesFromRose/) Goodnight, [everyone.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/yg8jgx/were\_investigating\_the\_disappearance\_of\_everyone/](https://www.reddit.com/r/nosleep/comments/yg8jgx/were_investigating_the_disappearance_of_everyone/) (Mmmm, caramel apples.)

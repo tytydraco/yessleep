@@ -30,7 +30,7 @@ Our parents entered the room with snacks. Mother was all worked up about somethi
  
 Grandpa succumbed to sleep. It would be his last. He died peacefully that evening. A glorious rainbow appeared, guiding his way to heaven.
  
-Reports of a gruesome animal attack started pouring in. Apparently, some hikers set out along the Muskoka Trails – the day Grandpa died – and never returned. Their cell phones were discovered next to pile of gristly bones.
+Reports of a gruesome animal attack started pouring in. Apparently, some hikers set out along the Muskoka Trails – the day Grandpa died – and never returned. Their cell phones were discovered next to a pile of gristly bones.
  
 As usual, it was deemed a bear attack.
  
@@ -56,7 +56,7 @@ Tara and Carl’s belongings were discovered on a small slice of beach. Blood an
  
 This devastated my mother beyond repair. The following night, she drowned herself in the lake, leaving me and my father alone to fend for ourselves.
  
-It was the worse summer ever. I’m still haunted by it. Sometimes Tara would visit me in my dreams, dead and decomposed, whispering warnings of toothsome monsters. Other nights it was Grandpa, his voice as sharp as razors. “You MUST kill the Grolf,” he’d say, before dissolving into darkness. I’d awake in a pool of sweaty sheets, longing for the days of my youth. The days before the sorrow.
+It was the worst summer ever. I’m still haunted by it. Sometimes Tara would visit me in my dreams, dead and decomposed, whispering warnings of toothsome monsters. Other nights it was Grandpa, his voice as sharp as razors. “You MUST kill the Grolf,” he’d say, before dissolving into darkness. I’d awake in a pool of sweaty sheets, longing for the days of my youth. The days before the sorrow.
  
 After high school, I got a job as a welder, and soon formed my own family. My wife Sarah and our lovely daughter Lyla were my pride and joy. They kept my days bright and my nights worry-free.
  
