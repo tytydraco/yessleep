@@ -42,4 +42,4 @@ It took all my courage to go back inside, where I found the barren study where i
 
 I prayed my theory was correct; that the room won’t appear if it’s being observed, and I’ve set both cameras on a continual feed, streaming live and recording. Still, my curiosity has been growing, and every day when I come home and observe that empty study of mine, that desire to know more keeps growing. I’ve purchased a handgun, mace and a gopro camera. I’m just working up my courage now to go back in. I’ll tell you what I find in there if I make it back in one piece.
 
-If you don’t hear back from me, I strongly advise against purchasing a two-bedroom house on Milford Lane. Even if it’s far more spacious than advertised.
+[If you don’t hear back from me](https://www.reddit.com/user/mrmichaelsquid/), I strongly advise against purchasing a two-bedroom house on Milford Lane. Even if it’s far more spacious than advertised.
