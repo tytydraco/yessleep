@@ -22,4 +22,6 @@ Update 3: I've fallen into this area, just as described in the journal. It's end
 
 Update 4: Sorry for not updating in a few hours, I've been trying to find somewhere safer. I'm in a place that wasn't described in the journal, it's an area full of pools and water. The stench of chlorine is nauseating. I feel completely alone here, I don't think anything living is here. I'll update again soon.
 
-Update 5: I've been going in and out of different areas in this place, it seems completely endless. I came down here to find my missing son but now what if I'm the one that's missing now? 
+Update 5: I've been going in and out of different areas in this place, it seems completely endless. I came down here to find my missing son but now what if I'm the one that's missing now?
+
+Update 6: What if he isn't here, what if I die trying to find him and he isn't even here? I know I shouldn't give up now but I really want to... I'm tired...
