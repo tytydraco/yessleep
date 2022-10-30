@@ -1,0 +1,1 @@
+[https://www.reddit.com/r/NoSleepOOC/comments/y5kq7q/halloween\_2022\_contest\_details/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/NoSleepOOC/comments/y5kq7q/halloween_2022_contest_details/?utm_source=share&utm_medium=web2x&context=3)
