@@ -4,7 +4,7 @@ Their mom and I work two full time jobs, and have non conflicting schedules so w
 
 Our home life is very relaxed, with the normal happiness that goes on, they have their toys, and we as parents break up the fights if those happen!
 
-One night in early June, moths came to to me and said that he had made a new friend, and I was happy for him.
+One night in early June, Morgan came to to me and said that he had made a new friend, and I was happy for him.
 
 "Whose this new friend of yours!?" I asked, with a cocked eyebrow
 
