@@ -1,0 +1,14 @@
+
+As you can read by the title, you should already know my name. I’ve managed to locate this phone on an earlier mission yesterday, and with some repairs from a friend, decided to go ahead and test it out and connect with you humans. It took a while cleaning it of the blood, but oh well!
+I assume you guys are smart enough to assume I’m not exactly human myself. I am slightly humanoid, (I believe the term is) though! My species are what we call Animians, hybrids of ancient creatures dating back to heck knows when.
+I’m what’s classified among my peers as a thing called a ‘ferret’. Based on the internet searchbar ‘Google’ , humans have a very different interpretation of those animals. Oh well, At least I don’t stink as much.
+
+I guess I’ll start with introducing myself and others! I work in a business with two, previously three coworkers! We have Cupid, Webster, and there used to be a Giggles! We all work under Elpys, this ominous, cranky guy. He’s kind of a jackass, but eh, as long as we get paid. I’m just writing this during the little breaks we have currently. Web is one of those ‘black widow’ things, I believe, while Cupid calls himself something resembling a ‘deer’. My coworkers are weird. I can’t really remember what Giggles was, but I couldn’t care any less than what that lunatic did. 
+He’s a possum, fitting for him of course. He always was a damn little rat. He even thought it would be funny to base his entire attire on clowns, the one thing he knows I don’t like. If he’s reading this somehow, fuck you Giggles. Moving on.
+Due to easier access to communication, our boss had us all move into our own home in our forest! And no, I won’t be saying which forest we live in, just a forest. 
+Me and my friends usually get called out for these “missions”, where we stalk and gather info on a target for a while, then eventually off them. Our boss says it benefits him somehow, but no one’s really sure how. Our latest one was this weasel, Wendell or something. I’m not really in the data section for targets. Web gathers info, Cupid meets the target face-to-face and sets up a time for them to be alone, and I land the finishing hits. It’s a pretty productive strategy, right?
+
+Hm…where should I begin next? I’m not one for social skills. Oh, I know! The internet said to name something about yourself, correct? Ahem. I am…22 (?) years old, male. My favorite food is…oh! Rats. I don’t know much about myself personality-wise, but Cupid says that I’m an interesting person, so I’ll take his word for it! Cupid’s such a nice guy! Web, on the other hand, I would rip off his dumb spider face if I could. Creepy hands, creepy spiders, creepy dumb robots! Why is it that the other carnivores in this business are literally so rude and fucking creepy?!
+
+Oh shoot, they're calling me for a target! I’ll update soon, see you later humans!
+-I.C

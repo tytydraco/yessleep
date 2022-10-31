@@ -1,0 +1,24 @@
+Audio log transcription:
+To any reading this, don't come out here, they're everywhere. 
+
+User Bio: Captain Jacob Helmann, Male, 24, 6'1", 170lbs, usmc, blood type: A-, Race: caucasian/white/mixed, religous preference: no preference, 1589698543, mos:7598, fixed wing pilot, B Mos: 8000 miscellaneous. Duty assingment, Pilot aboard ISC "star kisser".
+
+User Diary: The on board auto pilot essentially makes me obsolete, so my job is to essentially collect ulcers on my ass making sure this perfect and infallaible ai doesnt fuck up. 
+
+1st Lt. Jones is keeping up with his hoodoo voodoo pagan bullshit again, annoying the piss outta 2nd Lt. Donaghue. Great a catholic and a pagan bickering like children. Wish they'd both realize that all that nonsense is a waste of time. 
+
+Got woken up in my sleep again, exactly the same way. One time, sure whatever, two times coincidence right? Three, four, five nights in a row now? Always the same, unintelligble whispers that stoo as soon as I wake, we all been hearing it, 'cept Jones. Donaghue's been getting it the worst though. Just finished talking with my marines about this issue. Donaghue says demons, Jones says we dont wanna get involved. My best guess is folly adieu, and some as of yet undiscovered side effects of interstellar travel as nobody's done this before. Its clearly taking a toll on all of us.
+
+Donaghue woke up a few nights ago with scratches on his arm. He's been praying every night now. Jones keeps poking the bear by implying Donaghue's praying is what is bothering his "demons" and the only way to get them to leave him be is to let them be. We all have our collective suspicions that Jones is pulling a fast one, but assaulting another marine in his sleep for a prank? Whats gotten into Lt. Jones?
+
+Donaghue attacked jones in the small mess hall we share, accusing him of bringing his "demons aboard" and a bunch of other bible thumper nonsense. We had to place him in our secure cell, so we can hopefully calm him down and resolve this befor he has a complete mental break down.
+
+Donaghue has been murdered in his containment cell, not sure how. We know it wasnt jones because we have footage of him in his sleeping pod at the time, as was everybody else. Whats more is there were those weird tarot cardy esoteric symbols carved into Donaghues flesh, looks like whoever did it used a fucking butterknife from the silverware drawer. Jones says they're "runes" or some bullshit, which is exactly why he was the first suspect, but we now know it wasnt him. 
+
+One week after funerary disposal and rites of Donaghue, no previous unusual events since then until now. I was in the viewing bay, watching Donaghue's metal box get shot out into space. Our onboard systems began to start flickering a bit, occasionally going completely dark for what seemed hours but was really seconds. Out there I saw many figures...sillhouettes kinda. Only way to describe them is "shadow people". Captain Stevens saw them too, and was white as a ghost like myself. We both stood there frozen and in silence, only seeing these shadow people when the lights would flicker off. Jones says to pay them no mind, and do not pay attention to them as they feed on it. I'm scared to look out my porthole and gaze into the void...what if they're still out there somehow?
+
+I keep seeing them everywhere, just me, but stevens has seen them before too. Dammit, starting to sound like Donaghue right before he died. Jones sat down with me, he called them "yote-nar" spelled jotnar or some shit. Beings of chaos and destruction, cosmic devourers, he said. Idk about all that, but  strange shit has been happening since we first set off and set course inside of this nebula. 
+
+Everyone else is dead or injured, except jones. Jones killed one of these "yote-un"  when it snuck onto the ship and was standing above my sleeping pod, apparently he drank too much coffee that night. He was too late, it had already killed or attempted to kill everyone, just me and jones left in good health. Jones said he's gonna make a hail mary attempt to make contact with thor, I thought he was crazy but that anything was a better than nothing. 
+
+We watched his life pod go into the nebula, as a nebular storm began all around us, with plasmic bolts or "space lightning" as we often call it, cracking all around us, silent but bright. Through every flash we could see...him, clashing with these shadow people. Pretty sure I seen him holding a hammer. I think I've lost my mind. I mean, thor and this yuppie pagan nonsense? Regardless, those things are still out there, no matter how many that other thing out there killed, they just scurried off like cockroaches. They'll be back and when they do, we'll all die. At least jones bought me enough time to send an emergency alert after this last entry, warning the folks back on earth to stay away, because those...things are everywhere.
