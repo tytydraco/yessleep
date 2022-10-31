@@ -68,11 +68,11 @@ In that moment,  he woke up SCREAMING, pointing to his chest, gasping for air!
 
 "HE'S SITTING ON ME!" he yelled, trying to get air
 
-Knowing I had some holy water in the kitten somewhere, I dashed for the kitchen, but something blocked me and I couldn't pass the threshold!
+Knowing I had some holy water in the kitchen somewhere, I dashed for the kitchen, but something blocked me and I couldn't pass the threshold!
 
 "Either you get off him, or I'll do it the way you don't want it to go!" I snapped, knowing it could hear me! 
 
-He finally go air, gasping and looking at me like he seen a ghost 
+He finally got air, gasping and looking at me like he seen a ghost 
 
 "That wasn't him dad, he changed! I'm scared now!" He cried, only knowing that I'm the one who's going to have to get rid of it
 

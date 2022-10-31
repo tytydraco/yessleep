@@ -4,7 +4,7 @@ The voice that came through the transceiver was noisy, a brief hiccup of lost wo
 
 I glanced over at Freddy, who was adjusting the direction of the antenna. I was met with a brief hiss of static, and that was all. I nodded to Freddy and he switched frequencies on the radio.
 
-In the distance, thunder sounded. There was something metallic in the air, I could taste it on my tongue. The sky above was as blue as the plumage of a jay, but ahead were the portentous black clouds of a severe storm front, black as a raven.
+In the distance, thunder sounded. There was something metallic in the air, I could taste it on my tongue. The sky above was as blue as the plumage of a jay, but ahead were the portentous black clouds of a severe stormfront, black as a raven.
 
 “Alpha Papa One Charlie Alpha Victor, Warren County, Mississippi.” The voice was tinny but clear. We held on.
 
