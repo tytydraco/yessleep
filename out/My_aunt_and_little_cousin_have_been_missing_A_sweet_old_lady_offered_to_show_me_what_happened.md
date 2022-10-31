@@ -1,0 +1,23 @@
+  
+
+I thought I was crazy. This old lady said she knows what happened to my aunt and cousin and will show me. I had my doubts but I’m desperate at this point, moms been so depressed since she disappeared. The old women lifted her hand up, and touched my arm. A black ink envelops me, the floors and the walls are undefined between the two and the sounds of the street go silent.. My breath forms a white vapor as I breath out. The rustling of trees makes me spin to investigate, the hairs on the back of my neck are at a strict tension. Snow, a blanket of white, covering the familiar forest floor. Birchwood trees create a seemingly endless course of obstacles. Leaves are obsolete from the branches, despite this, the sound of leaves rustling in the howling wind lingers. The blue jeans and a black sweater I laid down in are no longer adorned upon my body, but a white lace dress flows down to my ankles, my feet barren. 
+
+Screams, piercing and bone-chilling, radiate from behind me, I turn to find a little girl’s lifeless corpse, blood seeping into the snow. Crimson splattered on my hands and feet. The edge of the porcelain white dress no longer it’s beautiful white, but forever stained with the red sticky substance. A serrated dagger lies coated in the same red substance in my hand, the shine of the metal dimmed by the thick oozing liquid. It’s the handle, a bright white ebony, contoured to fit perfectly in a hand.  Dropping the blade, I turn to run, but a clammy hand wraps around my right ankle. 
+
+“Why momma? Why did you kill me?”, my baby cousin’s corpse mutters out to me in a weak voice. What is happening? She disappeared when my aunt disappeared. I raise my head to see a mirror reflecting what it sees. I’m my aunt in this distorted image, bloody and wearing the same dress as me, a crazed look inside her eyes.
+
+“I did it for us…”, my aunt, no, the reflection responds. That isn’t her. A shadow creature coils near her, it takes a form of a human hand and guides her hand down to her dead daughter’s corpse and rips her heart out of her chest. The shadow whispers something into her ear, and almost automatically, she ravages it. She sips the blood from a heart valve then takes a bite. She chews…
+
+And chews…
+
+And chews then suddenly stops.
+
+But, she doesn’t swallow. She cuts a slit into her jugular guided by the shadow hands, with an open palm, she spits out the chewed heart puree and spreads the vain open wider and shoved it inside. The shadow creature paws over the wound, as black color spiders out across her face and neck. The inky black-figure has white fangs smiling as Aunt plucks out her daughter’s eyes one by one.  A howl of pain emerged from Aunty as she ripped out one of her eyes, handing it over to the beast. Her daughter’s eyes replace her own, as both of her eyes are consumed by the abomination.
+
+Placing a sharp jagged rock into my aunt’s hands, the monstrosity laugh chills my entire body as it reveals its new eyes. Tears sting my eyes, my throat dry as I try to fight the ever-growing urge to vomit from this sight. Blood soars through the air and splatters on not only aunt’s face but mine as well as the rock cracks down onto the corpse. The red organ falls upon the snow, aunty, unfazed, gashes out chunks of the brain, stuffing it into her ears. Burgundy flows from her ears, the eyes placed within her skull turn pitch black and vertical bloody slits grow within them.
+
+The horror of darkness screeches and envelops Aunty and the crisp sounds of bones snapping apart fill the air. No longer is it, Aunt, before me, but that abomination of nature… the demon, that followed her. She always said there was a demon that looked exactly like it that followed her as a child. It bellows out a deep growl then looks directly within my eyes, almost as if it were staring into my soul. Claws outstretched to strike, it leaps towards me. Scrabbling to run I snatch the dagger planted within my cousin's chest and run towards the woods. I jump over the fallen trees and branches, ducking under the low hanging branches, ripping the dress on thorny bushes leaving behind a trail of the linen. Demon closes behind me, breaking everything within its path. Like a stack of dominos, the trees being ripped from the ground and thrown knock down the trees in front of my path. I clutch the dagger and brace for the beast’s jaws to close down upon me. 
+
+Then I come back, back to the street I was standing on. The old lady is no where to be found, but a crumpled piece of paper is in my hand.
+
+“She’s long gone, Don’t follow any longer”
