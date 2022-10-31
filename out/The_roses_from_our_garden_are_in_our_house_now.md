@@ -109,3 +109,5 @@ Mom let go of me, regarding me with bloodshot eyes that weren't hers but held *h
 "Don't you need to rest?"
 
 Mom shook her head, cupping my face with one hand. "Right now, I just want to make my daughter something to eat."
+
+[X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)

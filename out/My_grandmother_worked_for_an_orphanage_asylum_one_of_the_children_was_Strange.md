@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/x68hac/my_grandmother_worked_for_an_orphanage_asylum_one/) 
+[PREVIOUS](https://www.reddit.com/r/nosleep/comments/x68hac/my_grandmother_worked_for_an_orphanage_asylum_one/) 
 
 It was some time after, before Dr. Small returned to St. Katherine’s Orphanage. The children waited outside every morning for that black vehicle to come rolling down the driveway with it’s strange tall driver and unconventional Doctor. And each morning they returned to their lessons with a lack lustre brought on by disappointment. The first Tuesday in January came and passed, however no silent adoption took place that month. I joked bitterly with myself that even shadow demons took the holiday season off.
 
@@ -155,8 +155,9 @@ I relinquished my faith that day for I saw many things brought on by the work of
 
 *My grandmother passed away shortly after telling me this story. I wish I had had the chance to ask her more about it. She named her first son, my father, Eric so I often think about this story. For now, I think I’ll try to find some more information about ‘Eric Linnaeus’, just for fun.* 
 
-[Continued](https://www.reddit.com/r/nosleep/comments/xlw5yz/my_psychiatry_patient_believes_in_vampires_pt_1/)
 
-[Related](https://www.reddit.com/r/nosleep/comments/p8xetl/i_work_for_a_county_sheriffs_office_in_maine_pt1/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[NEXT](https://www.reddit.com/r/nosleep/comments/xhhtc7/i_work_for_a_county_sheriffs_office_in_maine_but/)
+
+[Chapters List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/?sort=new) 
 
 [.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
