@@ -1,0 +1,15 @@
+So I’m a normal teenage girl, and I go to a single sex school. Basically, I haven’t had too much interaction with boys throughout my teenage years. However, I have definitely had crushes on boys. For the most part, I have had a crush on a boy that most certainly doesn’t like me back. 
+
+However, 2 other boys have recently entered my life. They are both very nice, respectful, and actually have a crush on me. One of them often goes out of his way to make me laugh or compliment me. And the other isn’t very popular, but is super sweet and is always asking about me. 
+
+Problem is with the first one, I just have never had a crush on him. That’s the simple explanation. I don’t know why, but I just haven’t. I’m not physically attracted to his looks, and sometimes he can be quite childish. That’s to be expected of a 16 year old boy though. Actually, it’s to be expected of most 16 year olds. Despite that, he’s just a super friendly guys who’s always complimenting me and has always been genuine. He was the first person to make me feel comfortable around guys my age after a long time, and I actually owe him a lot. 
+
+And the other I haven’t seen since I was 9 years old, but has managed to stay in contact with me everyday for the past few months. He’s always interested in my life, is nice to me, and shares interests with me. We banter a bit as well. However, he’s just always talking to me and is the most clingy person I have ever met. He is always asking about my day and what I am doing, and when I tell him that I am having dinner, he will ask “what’s for dinner?” I mean I appreciate the interest, but sharing every detail of my existence can get a bit exhausting sometimes. And on top of that, I’m not very physically attracted to him either. 
+
+But these boys, despite their faults, are some of the sweetest guys I know. They are always looking out for me and talking to me and offering a helping hand if I’m upset, but I just don’t feel the same way. 
+
+To make matters worse, one of them has been rejected countless times because of his looks (he’s actually not too bad, and does like to work out a lot so his body is pretty good. His facial features are just a little distorted, that’s all), and the other is just seen as odd by his cohort. Too bad they don’t know that his medical condition (which he keeps mostly a secret) makes him one of the strongest people I know. I know that I certainly could not get the grades he is getting after what he has gone through. He is truly an inspiration. 
+
+These two people are so decent, but I feel absolutely terrible about the fact that I don’t have a crush on either of them. Should I just give either of them a chance or is that just leading them on and giving them hope for something that I know will never happen? Do I convince myself I’m being unreasonable? Or do I stop contact with them so that they lose interest? Telling them definitively that I’m not interested in a relationship hasn’t really worked so far, so I don’t know what to do from here. 
+
+Idk, teenage romance is complicated. Please let me know what I should do. I’m not experienced with this and I don’t want to mess anything up.
