@@ -1,6 +1,6 @@
 Our bounce house, somehow, became a haunted place.
 
-Has anyone else experienced this?
+Has anyone else experienced this? 
 
 I can’t explain it, but I know I *felt* it.
 
