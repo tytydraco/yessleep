@@ -1,5 +1,7 @@
 There is now an [update](https://www.reddit.com/r/nosleep/comments/ycrev5/a_coffin_has_appeared_in_the_front_yard_of_every/)
 
+[Final update](https://www.reddit.com/r/nosleep/comments/yim80y/a_coffin_has_appeared_in_the_front_yard_of_every/)
+
 &#x200B;
 
 My wife and I were on our way home from dinner tonight when we first saw it. Dead center (sorry) in the yard of the first house we saw, among all of the skeletons scary giant spiders and lights was a perfect replication of a dark brown coffin. My wife looked at me and said, “Damn! I wonder where they got that. It must have been expensive!” She looked a little jealous.

@@ -22,4 +22,4 @@ My mom and I stood outside the front door. The highs and lows of this day were i
 
 I reached to grab the door, and as I pushed it open the voices erupted from inside. My friends must have been looking on, waiting for my triumphant return. I turned away from my mom to see that the house had been filled with dust. The music cut out and was replaced by screams.  The floor had fallen away. As I looked down at where the floor had once been I saw blood and carnage. The basement was scattered with my friend’s broken bodies.
 
-The house was razed, and I dropped out of school. Sometime later I would learn that after all the dust had settled 17 people had died.
+The house was razed, and I dropped out of school. Sometime later I would learn that after all the dust had settled 18 people had died.
