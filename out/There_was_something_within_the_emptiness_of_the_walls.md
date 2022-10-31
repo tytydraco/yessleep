@@ -1,0 +1,77 @@
+Ok so I live in India, Chennai and I moved into a new place few months back and I no longer stay there. You see, I am a horror enthusiast and I normally get the feeling that someone else is there with me but that only happens when I had just finished watching a great horror film. But after moving into the house, which is a 1BHK, I felt the feeling of someone else being here, watching me more than ever before. 
+
+I love huge houses and the reason I got that house was because it was huge for a 1bhk. Too huge, too much “Space” for a single person. But I like to give my room some breathing space as I hated cramped spaces. And I also liked being alone. I wanted to have and enjoy my privacy and the four walls offered comfort and it was a lonely road. A perfect place for a person like myself. The house itself was one of those modern houses and it was not too aesthetically pleasing but it was not too dead either. It was just... another house, if that makes sense.
+
+One night, a week after moving in, when things had settled down and I was feeling at home, I felt something. It was first time I felt it as intensely as I did.
+
+I was working on my computer, the desk was inside the bedroom as I work, watch or play games till I sleep. So I was there working, typing something out and then I felt it, a tingle at the back of my neck. 
+
+The feeling like I was being watched or that there was someone behind me. I turned back to look just to kill the feeling. Nothing as expected but the emptiness, the huge space stared back at me. I continued working but the feeling persisted. Soon I would not take it anymore and I decided to go to bed though I did think that it was weird that the feeling was this intense. 
+
+But even in the bed I could not get rid of the feeling. Feeling of how empty the whole thing was, too much “space” if you will. Why was this bothering me when this is what I liked? I remember I pushed my back against the wall and pulled the bed sheet over my head which I never do as it felt like I was suffocating but for the first time I felt safe. 
+
+Anyway I went to work the next day. Day times, the mornings were much better. I had thoughts, a whole day ahead and the feeling faded at the back of my mind but soon it came back, again and again and again, every GOD DAMN NIGHT. 
+
+It soon started eating away at my sleep. I was *paranoid* as the emptiness was starting to create unease and fear in me. 
+
+Thinking back it was more about what the emptiness holds in it that caused the fear, that maybe it is not so empty and whatever is there is so well hidden, invisible yet powerful enough to cause fear and pain. 
+
+I turned and twisted in bed and it never worked. The bed sheet was useless and I felt the vastness of the room right above the sheets, hanging there waiting to crush me. It was suffocating. 
+
+One night I could not take it anymore. I cracked (if that is a word) but yeah I lost it. I wanted a good night’s sleep. I moved the computer desk, the bed and the other small table I had in the room a little away from the walls just so that they took more space. I left the draws open (I remember finding it both funny, stupid and yet the only logical thing to do) moved the gaming chair almost in the middle of the room and I put an extra pillow next to me in the bed and used blankets to cover myself up. It felt better but I still did not have a great sleep. Compared to the other days in this house yes it was better, but not a good sleep by normal standards as I thought to myself “What the fuck is all this?” It was like I was trying to blocking something out by not giving it space to occupy. 
+
+But soon this also stopped working and got worse, so much worse that the feeling crept into the morning as well. I started playing music to keep myself from feeling the weight of the room and the silence. But I did not play music in the night as I was unable to fall asleep like that and during this time I felt like something was there in the empty space, eating at my very soul. 
+
+I still kept coming back to the house instead of trying to sleep with a colleague BUT here’s the catch. 
+
+Why did I have to do that?! I could not find an answer, it was stupid and I needed to get myself together. Isn’t this what I liked? These “Breathing spaces”? But no. The reasoning never helped. The sleep, in fact was getting worse. I don’t even remember getting any actually and that’s when I noticed it. Things were *moving around in the house*. 
+
+I leave my key here but no, it is not here but instead it is somewhere else, somewhere I would never leave it. The same thing with everything. Wallet, mobile, my headset, the god damn coffee cup!
+
+And with all these happening, that’s when it occurred to me. I thought to myself back then that it may be a ghost. I was sure at that point that I was truly losing it. I was, IN FACT, becoming insane. But yet it kept bothering me. Could it be real? I needed answers. 
+
+So I got CCTV cameras. I put them inside the house to see how the objects could move about and then, the very next day, it all stopped. What I left was where I last left it. I went through the footages again and again and noted down where I left an object and cross checked with the video and it was all normal. But I was still going on and on with the footages and that’s when I realized that maybe I was having *lapses* in my memory.
+
+I remembered the work, the dinner and the games before sleep. But there was a whole evening, about 5 hours which I did not recall. The smalls talks, the tiny joy of eating something from outside which I did often exploring foods, and so much more. Every smaller moments in my life I could not remember.
+
+But the suffering, the sleepless tossing in the bed and the thoughts, they stuck with me throughout the day. The thought that there was something in the “Emptiness”, something not so human or something that just cannot be explained.
+
+It was these sleepless nights, I concluded back then. It was the reason for the lapses and maybe I stopped misplacing things as I became more careful with them. And the fact that I was hoping to catch something otherworldly moving my things around, I had been careful about what I left where, so careful that I was never going to misplace them. But I realized that not sleeping well has had a huge impact on my health.
+
+Deprived of sleep I suffered a lot of digestive issues. I always felt heavy and I could not eat much. I had suffered a lot of stomach aches and upsets. My eyes burned and I could not sit and work without taking multiple breaks to rest my eyes. I had to go to the doctor. When the medicines did not help I stopped eating a lot to put an end to the frequent stomach upsets. And for the eye? I had to sleep is what the doctor said. Sleep! But the problem was I was not getting any. 
+
+I stopped using the CCTVs as I did not need them. But the feeling of something here in my “personal space” was still very much powerful. I felt the weight of the emptiness of the four walls even when I was outside in work. No matter where I went and what I did it refused to leave me. 
+
+The feeling was overwhelming. Ever second I felt the pain, and the eyes in the emptiness waiting to devourer me. But yet I was afraid that I was losing my mind, *falling* to some irrational fear. I was repeating these thoughts in my head over and over. I would feel this fear, explain it rationally, but it crept back every time. I decided I should move out. But I had to wait till I get my salary to do so and that was close to three weeks. 
+
+Searching for a house was making matters worse as I could not sleep even though I felt tired and it made the mornings worse.
+
+I was so pissed off and tired that I just wanted to have a good night’s sleep.  I looked at the calendar and was taken aback. I had spent about three and a half months within these walls. I was so lost within time. I could not tell the days apart and forgot to keep track of it. I was sick and tired and I had had enough. I suffered more sleepless nights and paranoia. I had to stop this. 
+
+I got pills. Sleeping pills, popped them in and went to sleep. But that night I was half awake, half asleep and I felt a piercing gaze, I felt the emptiness grow and grow more than it ever did. Grow into infinity. It got into me through my mouth. 
+
+I could not breathe, it was suffocating. And even though it was inside me it was still all around me like the ocean. I jumped and sat right up on my bed and I gasped for air and I looked towards the right (my bed was on the left side of the room and the right was empty) and I stared into it, into the space and it did not feel like I was looking at nothing but at rather something solid, something tangible, like a human or an entity. 
+
+The suffocation grew, my heart started racing and I felt cold chill down my spine, something was here and I was not alone, it was always here, something inside these walls. The realization made me tremble with fear. 
+
+I bolted right out of my bed. The voice inside me screamed. I ran outside the room and ran outside the house and ran till I was at the end of the street. I took the turn and I ran some more and during all this time I did not know why I was doing all this, none of it made sense but I knew one thing and that was I did not want to go back to that house, I ran and ran and then I stopped. What happened after is all very unclear to me. I don’t remember it. Just like before, lapses in my memory. But I did remember one thing, crying. I cried a lot that day. More than I have ever cried before. 
+
+I roamed the streets till the sun came up. I did not have my phone or the key to my bike. And for some reason I did not want to go to my home all alone. Something about that really creeped me out. I went over to the house of a girl I knew. In India people mostly stay with their parents and so did she. I was worried about how they would react. I would have gone to the house of one of my male friends but to be honest I never felt comfortable being vulnerable in front of my male friends expect a few and that few was about 3 of them. Two of whom are in American and the third friend was too far away for me to make it by walk. I kept my thoughts largely to myself and was rather a very keep-to-myself kind of a guy.
+
+So I went to her place and told her I needed her help. Her parents knew me well and they were more worried about me. I could see it in their eyes, it was like they felt sad for me, as if like I was dying (and I understood the gaze only later). We went in her car and I got my things and we left. During the travel she seemed very concerned and she only asked a few questions and if I was alright and she let me be and I was grateful for that. 
+
+I wanted to stay somewhere else till I got my shit together and I went to her house just to take a bath and then I would go to Kaalesh’s house (the third friend). But once there her parents really insisted I stayed saying I look terrible. She had said the very same thing. In fact I was hearing that a lot back then during work. They asked me to take rest at least for the day and I was grateful as I did not have it in me to go that far. I took a bath and I ate. I ate a lot. The food was delightful. And then I went to bed in her room and she had gone to work by then and I was alone. And after a very, very long time I felt like myself. The bed, the room, it felt like my home even though it wasn’t. I only now realize that what I felt back then was “Safe”. And that is how one is supposed to feel inside his or her own home, safe. 
+
+But it was not over. At least the drama of the moment was not over. I woke up after a long sleep. It was around 7 o clock in the evening and I was asleep since 10:30 in the morning. I went to refresh and washed my face and then I stood before the mirror. And for the very first time, in a long time, I got a real good look at myself and now I could understand why they looked at me the way they did. I had lost weight. A lot of weight. I was a fit before but now I looked thin. My eyes were heavy and had dark circles and they looked dead, lifeless. I looked at my hands and the skin was sticking to the bones and there seemed to dirt under my nails. It was one shocking sight. 
+
+How did I not notice? How did I not SEE myself? I felt different and for the first time noticed now weak I felt. It was too much for me to take in and too much for me to believe. I looked back at my reflection and I felt a sting in my heart. What happened? It felt like the life was drained out of me. I was not given too much time to stand there and think as my friends mum called me to have snacks and before walking out of the room I took one last glance and saw myself through the eyes of my friend and her parents, the look of shock and sympathy on their faces and I knew at that moment that whatever happened to me inside that house was “Done” to me, by “Something”. 
+
+The next day I decided to go to my friend’s house but I needed to take a few more things from the house. When I went to the house with my friend I took notice of a lot of things. The house itself was very dirty. There was thick dust on the corners of the houses, floor was very sticky and I had not taken out the garbage for so long and the only kitchen smelled like rotten corpse (though it’s not like I know what that smells like but must be close). I went to take my cloths and realized that most of it was collecting in the laundry bag and I had been wearing one particular dress for at least a week. I took what was there and I left. 
+
+I went to Kaleesh’s house and he had the same look of worry and concern in his eyes. “It’s nothing” I told him. I got all the rest I wanted to. His house was perfect for just one person to stay, not too big and not too small. 
+
+And during my stay I had a lot of time. I had taken sick leave and had gone to the doctor and got myself checked and I was recommended to eat a lot and take a lot of rest. And during this time I thought, tried to make sense of what had happened and honestly could not explain anything. Thinking back about the nights and my time at the house I still feel the eyes, the emptiness staring back at me, something in the “Space”. 
+
+Anyway the thoughts sort of faded away. Things were improving. I did not tell anyone what happened and I myself was not thinking too much about it. Soon I moved into an apartment and it was just like Kaleesh’s house, which is why I went to it in the first place and it was closer to his house too as I felt I could use some company now and then. I sold most of the stuff which I had back then as they were not suit for a house of this size. Here it felt better. There was still a lot of empty space but not too huge that I felt like it swallowed me. Just the rights amounts like it is in any other house. 
+
+But once here my mind kept going back to the house. Right before going to sleep I was reminded of how horrible those nights were. It kept coming back to my mind and it made me restless. I decided that I had to share this with someone and this was the right place to do it. No other place better than this to convey what I felt that day. It all felt like a fever dream but I am alright now and it was luckily in my case, a happy ending.
