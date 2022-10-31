@@ -1,49 +1,57 @@
-I don't know why I signed up for it. I guess I was just bored and wanted some excitement. Having a weak immune system sucked even before COVID, but it became so much worse with the pandemic. I felt like I couldn't go anywhere or I could die. So for the last two and a half years, I've worked from home, gotten groceries delivered, and done all my shopping online. Also, I'm single and have no kids. My dating life was barely alive before, and since the pandemic started, it has been in a coma.
+[Part 1](https://www.reddit.com/r/nosleep/comments/xx4z4i/fear4lifecom/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
-My only communication is through work, which is mostly just emails, as I'm a freelance writer. I've barely talked to anyone these past couple of years, so I think it was the loneliness and boredom that led me to click on the link.
+[Part 2](https://www.reddit.com/r/nosleep/comments/xy2vrm/fear4lifecom_part_2/?utm_source=share&utm_medium=web2x&context=3)
 
-It started as advertisements on websites after I searched for the best horror movies to watch. Those are my favorite kinds of films, and I'm always looking for low-budget indie ones or foreign ones that I haven't seen.
+[Part 3](https://www.reddit.com/r/nosleep/comments/y29zjx/fear4lifecom_part_3/)
 
-I didn't notice the ads at first since I tend to ignore them. But it eventually became the only ad I would see. The ads were pretty basic. They had "fear 4 life" written in white over a black bar. Then it had that fake glitch where the words would blur and move before fading to black. When the words were gone, I could see a faint skull hidden underneath all the black.
+I went a few days without having any problems at my parents house. There were a couple video calls that I didn't answer, but nothing strange happened at their house. The only notifications I received from my camera were from the wind or the raccoons that must live near my house. 
 
-I had been noticing it for about a week and finally clicked on it after an extra slow stretch of work. It took me to a website called [fear4life.com.](http://fear4life.com) There wasn't much to the website. On the bottom was a countdown until Halloween, along with a counter and map so you could see where the webpage visitors were from. I think I may have been the first visitor since it didn’t show any page views when I first went there. There was also text that stated, "Are you ready to fear 4 life?"
 
-I figured being scared would be better than being bored out of my mind, so why not (although I didn't expect anything to happen anyway). I clicked on the link, and it just went to a blank page at first. I was waiting for something else to happen, like a signup page or more information to appear, but there was nothing.
+Yesterday, my parents went out for lunch and shopping. I took the time to sit, relax, and enjoy the silence around me. I started drifting off to sleep while sitting on the couch, but was pulled out of it by a knock coming from the patio door. Their house backs up to the woods so there shouldn't be any reason for someone to go to that door.
 
-After staring at the page for a while, I clicked in the middle, and then it went to another page that stated, "Congratulations! You have been approved to fear 4 the rest of your life. But don't worry, it will all end on October 31!"
 
-I wasn't sure if it was trying to say that being afraid would be over at the end of October or if my life would be over. Of course, it was just some silly website, and I didn't even enter any personal information. I wondered how it was supposed to work. Maybe the website put cookies on my computer, or I accepted notifications without realizing it. I put my computer on standby and got ready for bed.
+I got up and peered around the entryway to the kitchen. The blinds were partially closed. From the light coming through, it didn't look like anyone was there. Still, I waited a minute before walking to the door. Then I opened the blinds all the way and was relieved that no one was there.
 
-That night, I woke up at midnight and thought I heard a noise. I quietly climbed out of bed and walked over to my door. I stood still and listened. It sounded like someone was whispering something down the hall. I tried to hear what was being said, but it was just gibberish; I couldn't make out any words.
 
-I reached under my bed and grabbed the baseball bat I kept there for emergencies. Then I returned to my doorway.
+I was worried I put my parents in danger by coming here, so I figured I'd better go outside and look. I slid open the door wall and stepped outside. The backyard was empty, but I thought I saw movement in the woods at the end of the yard. When I looked around to find the movement again, I couldn't find anything. After pulling out my phone, I zoomed in and took a picture of the woods.. 
 
-Looking down the hall, I saw a faint glow coming from the entrance to my office. The whispering continued and grew faster as I went down the hallway. When I came up to the door to the office, it suddenly got quiet. I leaned around the entrance to look in and didn't see anyone in the room. I noticed the green light above my monitor, signaling that the camera was running. The monitor was turned on, but the screen was blank.
 
-I walked over to the camera and leaned in to cover the lens. Suddenly, an old man appeared on the monitor and began the loud whispering I had heard earlier. It startled me, and I stumbled backward, falling onto the ground.
+Before I could look at the picture, my phone vibrated to notify me there was movement detected at my front door. The camera had saved a short video clip. I played it three or four times, but didn't see anything out of the ordinary. I received a few more notifications, but it was the same thing. Even looking closely and zooming in, I couldn’t see anything moving.
 
-The man's eyes darted toward me, and he screamed. There wasn't much lighting on him, but I could see the bone through the skin on his face, and his eyeballs looked like they were floating in the sockets. He had no eyelids or tissue around them. I got up and turned off the monitor, averting my eyes from the screen as best I could.
 
-Now with my heart beating fast and that horrible image of the man stuck in my head, it was going to be tough to fall back to sleep. Tomorrow, I would deal with what I was sure was a virus on my computer from that stupid website.
+Needing a distraction, I turned on the TV and sat on the couch. My phone vibrated again, but this time it showed that motion was detected from the camera that was by my monitor. Nothing showed on the camera at first, but I could hear something moving near it. It sounded like something was being dragged across the floor. And then something showed up in front of the camera, causing me to send my phone flying across the room. It looked like the thing that had been at my door the first night when this all started.
 
-I went back to my room and climbed into my bed. The clock showed 12:30am. I closed my eyes for a long time and didn't think I would fall back asleep. But when I looked at my clock again, it was 2:45am. I started to close my eyes again when I heard someone knocking. It sounded like it was coming from the front door.
 
-I picked up my bat again and went to check it out. I had curtains covering the sidelights windows on each side of the door, so I couldn't see what was out there. However, I could tell something was moving outside from the shadows the porch light created.
+With my heartbeat rapidly increasing, I went over and picked up my phone. There was a new text message waiting for me. It was from a five digit number and it said, "go home." I responded back with, "no!"
 
-I pulled back a tiny portion of the curtain and looked out. There was nothing in front of the door. The porch extended in front of my living room, so I went to look out those next.
 
-I lifted the shade on one of the windows and peeked out but didn't see anything here either. There was another knock at the door when I dropped the shade.
+Shortly after, my phone vibrated from another text message. It was a different five digit number with an image attached. Risking a virus or malware, I downloaded the image. It was a picture of me standing on the patio of my parents house. My phone vibrated again. Another message came through and another image. This one was my parent's front porch. 
 
-I walked back over and didn't see movement through the curtain this time. Pulled it to the side, and the same man from the computer was staring back at me through the window. His bulging eyes and bony face were pressed up against the window. I shouted and let go of the curtain. The door handle started moving, and I quickly confirmed it was already locked.
 
-"Go away!" I shouted through the door. "I'm going to call the police!"
+My phone vibrated again and again as more pictures came through. Another one looked like it was the window to my parent's bedroom. Then the next one was outside my bedroom. All these messages and images kept coming from different numbers and showed different parts of the house. They were all taken from outside the house. 
 
-He knocked on the door again, and then I heard him bump up against the window. I knew he'd be staring in again if I moved the curtain, so I waited for a few minutes. Finally, I heard him walk away.
 
-Before returning to my room, I ensured all the doors and windows were locked. Then, I got back in bed, but I couldn't fall asleep. I kept thinking about the stupid website.
+Then the original five digit number messaged me. It said, "go home." It repeated the message about ten times and then said, "...or we'll come inside to find you." 
 
-I didn't provide any information to that website, so I don't know how they got my address. Also, whoever did the makeup on the person at my door did a great job. It looked way too real, and I'm afraid I won't be able to get their face out of my mind anytime soon.
 
-I'm lying in bed now, trying to find the motivation to get up and check on my computer. I'll add an update if anything else happens. But I would stay away from that website if I were you.
+I didn't want to put my parents in danger, but I also didn't want to go home. Especially after what I saw on the camera. My concern for my parents won so I texted them and said I needed to get back home for a writing job and that I would talk to them soon.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/xy2vrm/fear4lifecom_part_2/)
+
+I grabbed my things and got in my car. On the way back, I made a stop at the police station. After showing all the texts, pictures, and videos and telling them about the website, they said it was probably a friend playing a prank on me. 
+
+
+I told them I was positive that it wasn't a prank from a friend. I don’t think they believed me that this was real, but they did at least take my information down and said they would look into the website. They also promised to send a police car to drive by my parents’ house tonight. Then they recommended I call the police if anything happens while I was home. That was a very disappointing stop.
+
+
+I took my time driving home and when I finally pulled into the driveway, I just sat there. I started thinking of everything that had happened so far. Nothing had harmed me, but I was definitely afraid. I began wondering if maybe they won’t hurt me and they are just trying to scare me. The website was definitely accurate about being afraid even though I still didn’t understand how it worked.
+
+
+I read a comment someone posted that maybe they were coming in through my computer. As much as I don’t believe that could happen, I don’t know how else they would have gotten inside. However, if that is true, then they could have easily hurt me by now so maybe I don’t need to be so afraid? Although, it is hard not to after seeing what was at my door, on my monitor, and now on the cameras. I’m going to check around the outside of my house once I can gather the courage and then go inside.
+
+
+[Here are the videos I mentioned.](https://youtu.be/gXnH3-qOz7s) It was weird how there was nothing on the video from in front of my house. Especially with how many notifications I had from it. 
+
+
+Edit: I watched the video again after I posted it online and something changed. I'm positive neither of those things were there when I watched it before. I think somehow the website infected my computer and then got into my phone through the synced browser or wifi or something.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/yi2ade/fear4lifecom/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
