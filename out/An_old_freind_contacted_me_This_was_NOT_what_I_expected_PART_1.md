@@ -1,4 +1,8 @@
-  
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/yio21u/an\_old\_freind\_contacted\_me\_this\_was\_not\_what\_i/](https://www.reddit.com/r/nosleep/comments/yio21u/an_old_freind_contacted_me_this_was_not_what_i/)
+
+&#x200B;
 
 A light beep awoke me. It took me a few seconds to realize it had emanated from my phone. What the fuck? Who would have a reason to speak to me at 4am?
 
@@ -8,7 +12,7 @@ I replied.
 
 "Who is this again?"
 
-A reply arrived almost instantly. 
+A reply arrived almost instantly.
 
 "I'm Kevin, remember? We knew each other a few years ago."
 
@@ -72,7 +76,7 @@ He had a dog? That was new...
 
 I put my phone down.
 
-Well, that was unexpected. I didn't plan on letting anyone stay here any time soon. Oh well, I had no reason to decline this. He'd only be here for a day, and something about a coincidence like this felt interesting to me. 
+Well, that was unexpected. I didn't plan on letting anyone stay here any time soon. Oh well, I had no reason to decline this. He'd only be here for a day, and something about a coincidence like this felt interesting to me.
 
 I took a shower, changed into relatively normal looking clothes... And passed out on the couch.
 
@@ -146,15 +150,15 @@ I picked it up, ready to insult the shit out of that asshole for leading whoever
 
 "I'll explain later. I'm nearly at your house. If you see someone who resembles me approaching, let them in. The other one will leave when I arrive. I can guarantee it."
 
-He hung up. 
+He hung up.
 
 I stared at the camera, still armed with a knife, breathing heavily as I stared at the darkness behind the figure as it kept panting at the gate. The sound of a car approaching dragged the figure from it's focus. It spoke once again.
 
 "He... Here... Can mooooovvvvve."
 
-It ran into the darkness, practically dragging its hands behind him. 
+It ran into the darkness, practically dragging its hands behind him.
 
-A silhouette appeared. The HUMAN Kevin this time. 
+A silhouette appeared. The HUMAN Kevin this time.
 
 "Alright then. Let me in before it returns."
 

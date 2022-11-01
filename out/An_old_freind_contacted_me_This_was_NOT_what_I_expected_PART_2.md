@@ -1,4 +1,4 @@
-  
+ https://www.reddit.com/r/nosleep/comments/yhccpl/an_old_freind_contacted_me_this_was_not_what_i/
 
 As soon as Kevin entered, his first action was to collapse into a seat. I could suddenly feel a short, but powerful sense of fatigue emanating from him. It was clear he had experienced things like this before, but perhaps he wasn’t entirely used to it yet. 
 

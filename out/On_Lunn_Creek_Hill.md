@@ -22,7 +22,7 @@ In the distance, thunder sounded. There was something metallic in the air, I cou
 
 “I’ve got a good feeling. Thanks, friend.”
 
-We carried on.
+We cut the line.
 
 My father was a fisherman. He used to put me down for my hobby, never allowing me the opportunity to explain to him how very much in common our hobbies had. It was Freddy who introduced me to amateur radio, or ‘HAM radio’ as the big station workers liked to call it, a word with a deep etymology, developing from a pejorative slur to a prideful colloquialism that we HAMs have adopted with fervor over the past century and a bit.
 
