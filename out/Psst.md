@@ -20,13 +20,19 @@ I run. I make it to the door but the man outside starts charging. I turn; there'
 
 This isn't how it started though. I was five when I saw them the first time. Out of the corner of my eye I'd see them in doorway to my bedroom but only for a glimpse. I called them Shadows. They never bothered me. I grew up with them. I always knew they were around because I'd hear this high pitch frequently - like an old CRT TV was on. 
 
-I remember when I was 11, out of the corner of my eye, not a shadow... But a hand with very long fingernails. The gently scraped against the wall while the hand disappeared into the darkness. 
+I remember when I was 11, out of the corner of my eye, not a shadow... But a hand with very long fingernails. They gently scraped against the wall while the hand disappeared into the darkness. 
 
-*Pssttttt* I hear from the hall. I ran under my bed and fell asleep. 
+*Psst*
+
+I hear from the hall. I ran under my bed and fell asleep. 
 
 -----
 
-*It's poisoned,* they told me while I stared at the plate of pasta my mother put in front of me. I was 14 and my mother wasn't perfect but damn near it she wouldn't poison me. 
+*Psst*
+
+*It's poisoned*
+
+I heard while I stared at the plate of pasta my mother put in front of me. I was 14 and my mother wasn't perfect but damn near it. She wouldn't poison me. 
 
 *It's fucking poison.* 
 
@@ -52,7 +58,7 @@ I ran down the hill, full speed and tackled him. I picked him up and threw him o
 
 *You're ugly. You're fat. No one likes you. You have no friends. Die.*
 
-This was the reprise I heard throughout highschool. I wore hoodies to cover my body and baggy pants so now one could see my size. My head hung low. I spent nights in my room with the shadows and the heavy breathing in my closet. 
+This was the reprise I heard throughout highschool. I wore hoodies to cover my body and baggy pants so now one could see my size. My head hung low. I spent nights in my room with the shadows.
 
 -----
 
@@ -72,7 +78,7 @@ When we left the shelter David told me about his friends who could get us some c
 
 -----
 
-Funny thing about drug dealers, they don't just let you leave. David's friends gave me an Oxy. They told me it was fun. It was. It was really fun. I had never felt so happy. And my brain for the first time since I was 5, was quiet. I chased that peace for months. I started selling for them for a bump here and there. 
+Funny thing about drug dealers, they don't just let you leave. David's friends gave me an Oxi. They told me it was fun. It was. It was really fun. I had never felt so happy. And my brain for the first time since I was 5, was quiet. I chased that peace for months. I started selling for them for a bump here and there. 
 
 I was still a kid. I was stupid. And more drugs meant more peace. It didn't take long before... 
 
