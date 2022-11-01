@@ -62,7 +62,7 @@ In the ten years that followed the town went began to die, the businesses closed
 
 &#x200B;
 
-Even now, despite what happened, I have such great memories of that truck. Jody would always take me for rides and we go speeding through the back roads of Yottle’s road with the windows down and rock music blaring from the 8-track. Sometimes I rode shotgun, sometimes I rode in the back, hanging on for dear life and grinning like a fool. How we didn’t get pulled over and arrested I’ll never know. 
+Even now, despite what happened, I have such great memories of that truck. Jody would always take me for rides and we go speeding through the back roads of Yottle’s road with the windows down and rock music blaring from the 8-track. Sometimes I rode shotgun, sometimes I rode in the back, hanging on for dear life and grinning like a fool. How we didn’t get pulled over and arrested I’ll never know.
 
 &#x200B;
 
@@ -130,7 +130,7 @@ I should have said “Hello” or “I love you” or anything else but that’s
 
 &#x200B;
 
-The sky that night, despite the promises of the local weathermen, was dark and cloudy. I remember how warm and small her hand felt in mine. I also remember the two trailers from that night, one for a movie about a killer whale and the other about a killer buffalo. We thought both were pretty hysterical looking. 
+The sky that night, despite the promises of the local weathermen, was dark and cloudy. I remember how warm and small her hand felt in mine. I also remember the two trailers from that night, one for a movie about a killer whale and the other about a killer buffalo. We thought both were pretty hysterical looking.
 
 &#x200B;
 
@@ -198,7 +198,7 @@ I tried to joke, “Maybe it’s the devil.”
 
 &#x200B;
 
-The goatman began walking toward the couple. As he walked he raised the sword and screamed. The sound was horrible, like nails being dragged across glass and it echoed strangely through the drive-in. At the sight of him, the couple stopped in their tracks. The woman cried out and the birds went silent. 
+The goatman began walking toward the couple. As he walked he raised the sword and screamed. The sound was horrible, like nails being dragged across glass and it echoed strangely through the drive-in. At the sight of him, the couple stopped in their tracks. The woman cried out and the birds went silent.
 
 &#x200B;
 
@@ -230,7 +230,7 @@ The camera’s view moved down from the parapets to the cage until the figure wa
 
 &#x200B;
 
-Then bam! I ran straight into one of the speaker poles and went down hard onto my side. It had knocked the wind out of me, I was gasping for air. Suddenly Ally was at my side. 
+Then bam! I ran straight into one of the speaker poles and went down hard onto my side. It had knocked the wind out of me, I was gasping for air. Suddenly Ally was at my side.
 
 &#x200B;
 
@@ -514,4 +514,4 @@ But it will be playing at Sundance in three weeks. It’s just a test screening 
 
 &#x200B;
 
-\-from ‘Films That Witness Madness Volume 2’ by Christopher Otterson
+[\-from ‘Films That Witness Madness Volume 2’ by Christopher Otterson](http://albruno3.blogspot.com/2022/11/bos.html)
