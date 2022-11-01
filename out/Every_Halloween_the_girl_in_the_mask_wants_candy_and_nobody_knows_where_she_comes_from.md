@@ -150,4 +150,4 @@ Now, as I finish typing this up I hear that familiar sound of a knock on the doo
 
 Things are good now, without Danforth. We all pay our dues to the girl in the mask and not a single soul has been harmed since.
 
-So if you ever see a little girl in a mask that had no face- do give her some candy. She really does appreciate it.
+So if you ever see a little girl in a mask that had no face- do give her some candy. She really does [appreciate](https://www.reddit.com/r/JulianPageInstitute?utm_medium=android_app&utm_source=share) it.
