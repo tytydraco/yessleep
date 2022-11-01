@@ -444,8 +444,6 @@ The results were immediate and Eric writhed in pain. I didn’t envy him. Perhap
 
 It was Nathaniel’s intention that Eric should continue to collect livestock for them under his command. Though the destruction of the processing room was problematic..” Molly mused to herself and I realized then that my hour was up. Of course I still had more questions, but they would have to wait as the guard buzzed through the door to escort me out. 
 
-[NEXT]()
+[NEXT](https://www.reddit.com/r/EricLinnaeus/comments/yissi3/my_name_is_stacy_white_im_an_investigative/?utm_source=share&utm_medium=web2x&context=3)
 
 [Chapter List](https://www.reddit.com/user/xXKikitoXx/comments/xhj9xo/eric_linnaeus_stories_discussion_thread/)
-
-[.xXx.](https://www.reddit.com/user/xXKikitoXx/comments/vl2ws4/hi_and_welcome_to_my_page/)
