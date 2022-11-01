@@ -8,7 +8,7 @@ Most people don't know much about it, except that they like it in their drinks o
 
 I came with a research group that was supposed to sample ice cores and observe the surrounding conditions. A group by the same name as the company and the ice shelf where my Scott's Polar was pitched 45 degrees west of the sun.
 
-If they hadn't been paying me big bucks, there'd be no way in hell that I'd be here. It wasn't about the science, it wasn't even about being right, I love the science and I've always hated losing an argument.
+If they hadn't been paying me big bucks, there'd be no way in frozen hell that I'd be here. It wasn't about the science, it wasn't even about being right, I love the science and I've always hated losing an argument.
 
 It's the Fucking Cold.
 

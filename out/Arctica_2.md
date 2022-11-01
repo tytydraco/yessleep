@@ -2,11 +2,11 @@
 
 &#x200B;
 
-The thing about the South Pole is that no one's ever truly warm. I can feel the coldness seep into my bones, my body is always a shiver away from being too cold to move another muscle. It makes walking difficult, breathing too - the air is thin and ragged on my lungs, even thinking becomes a harrowing task. And I'll put this down in writing, I don't care if someone in the future will see it as an admission of guilt, but it was probably why I wasn't thinking clearly after we arrived back at camp. I never should have took the equipment, cutting Chloe off from the rest of the world. I never should have left her alone. But by this point my self preservation mode had been active since we first left for the mission, and it was all I could manage to come up with before I crawled into my sleeping bag, and passed out.
+The thing about the South Pole is that no one's ever truly warm. I can feel the coldness seep into my bones, my body is always a shiver away from being too cold to move another muscle. It makes walking difficult, breathing too - the air is thin and ragged on my lungs, even thinking becomes a harrowing task. And I'll put this down in writing, I don't care if someone in the future will see it as an admission of guilt, but it was probably why I wasn't thinking clearly after we arrived back at camp. I never should have took the equipment, cutting Chloe off from the rest of the world. I never should have left her alone. But by this point my self preservation mode had been active since we first left for the mission, and it was all I could manage to come up with before I crawled into my own sleeping bag, and passed out.
 
 It never felt so dark.
 
-That's something I never thought I'd say after spending nearly everyday in constant sunlight, this was the beginning of summer, the midnight sun wouldn't set until long after October ' I constantly had to remind myself all those days ago, those day when I wished that the sun would go down for a second, a wink, those days that turned contemptuous, where I wished the sun would sizzle out so that I may get some decent sleep. Those days when I didn't give a damn about anyone. Now, now I'm glad it's high up in the sky at all times. Glad that I can see...see if anything is coming. God, I hope so much that it's help that is coming for us.
+That's something I never thought I'd say after spending nearly everyday in constant sunlight, this was the beginning of summer, the midnight sun wouldn't set until long after October ' I constantly had to remind myself all those days ago, those day when I wished that the sun would go down for a second, a wink, those days that turned contemptuous, where I wished the sun would sizzle out so that I may get some decent sleep. Those days when I didn't give a damn about anyone if only for a wink. Now, now I'm glad it's high up in the sky at all times. Glad that I can see...see if anything is coming. God, I hope so much that it's help that is coming for us.
 
 The 6 hours after our ordeal at the Ross Ice Shelf was a strained one. I woke up thirsty, and damp. Damp is danger, any moisture is dangerous but my body was too tired to care. What was a finger or even a limb if it meant that I could get back to base, get on a helicopter, on a boat, and get home? I'm a long ways away from Ontario, that much was certain.
 
@@ -30,11 +30,11 @@ She unzipped the teeth in her tent, "I'm ready to go. If you're not done in 5. I
 
 I could see the bags forming under her eyes, and the corners around her cornea were bloodshot as well. "Shit. Did you even get any sleep?"
 
-She pushed past me, her pack heavy on her back. For a moment I decided to argue, point out the elephant, but I didn't want to shift the momentum in our movements. So I bit my tongue and quick enough - I got in my tent and stuffed the few things I thought I would need. The trip through the Lewis and the ice belt was about 3 days. Give or take. We would need food, shelter, and...I grabbed my drinking can. The soft plastic was easy enough to grip in the cold and to store when it was empty. Mine was almost gone. I had half a propane cannister which meant that I could melt another liter and a half at most. I groped around my bag for more water, and I found none.
+She pushed past me, her pack heavy on her back. For a moment I decided to argue, point out the elephant, but I didn't want to shift the momentum in our movements. So I bit my tongue and quick enough - I got in my tent and stuffed the few things I thought I would need. The trip through the Lewis and the ice belt was about 3 days. Give or take. We would need food, shelter, and...I grabbed my drinking can. The soft plastic was easy enough to grip in the cold and to store when it was empty. Mine was almost empty. I had half a propane cannister which meant that I could melt another liter and a half at most. I groped around my bag for more water, and I found none.
 
 By now I knew she could hear me outside, scrummaging, thinking, knowing where the water had been stored. Most of it had been in the crawler, the rest of our provisions were stowed in London's tent. A tent where Chloe's footprints had been all over. Before I thought she was only looking for the equipment, but now I knew better.
 
-"I'm afraid," she said as I left my tent. Her arms crossed, "I'm not stupid."
+"I'm afraid," she said as I exited my tent. Her arms crossed, "I'm not stupid."
 
 "Chloe."
 
@@ -62,13 +62,13 @@ She looked at me, "If we contact them before the point of no return, they might 
 
 "What about the blood?"
 
-"Without proper evidence, they might hold us, blame it on spring madness. Extreme sun exposure affecting our brains." She looked at me, "We'll never stand a chance," she chewed on her lower lip, "I say we hand it off to the lab. Let them take a look at it. If they report anything abnormal-"
+"Without proper evidence, they might hold us, and blame it on spring madness. Extreme sun exposure affecting our brains." She looked at me, "We'll never stand a chance," she chewed on her lower lip, "I say we hand it off to the lab. Let them take a look at it. If they report anything abnormal-"
 
 "It'll be someone else's problem."
 
 "They'll stand a better chance at convincing them than us."
 
-We looked at each other silently and agreed amongst ourselves.
+We looked at each other silently and agreed between ourselves.
 
 "Let's go."
 
@@ -84,9 +84,7 @@ I turned the key and prayed. The engine began clicking, sputtering and gurgling 
 
 Chloe laughed, it was the first sign of the tension between us cutting since I woke up. It was a mixture of giddiness and relief. Infectious enough for me to smile through my teeth. "We're getting out of here," I said aloud.
 
-She laughed again, "Damn. You don't know how scared I was when I found all of the equipment gone."
-
-The sense of routine putting us both at ease.
+She laughed again, "Damn. You don't know how scared I was when I found all of the equipment gone," as she flipped through the dials. The sense of routine beginning to put us both at ease.
 
 "You don't know how scared I was trying to leave that tent," I told her.
 
@@ -106,9 +104,9 @@ I could feel the smile disappearing from my face, the tightening around my heart
 
 &#x200B;
 
-We had been driving for nearly 9 hours, several times we had to put the arm down on the crawler. The arm was a flat panel with an inflatable tube filled with sensors that extended about 8 meters in front of the bumper to test the areas ahead for crevasses. Falling through one in the crawler would mean death. Getting stuck, the same.
+We had been driving for nearly 9 hours, several times we had to put the arm down on the crawler. The arm was a flat panel with an inflatable tube filled with sensors that extended about 8 meters in front of the bumper to test the areas ahead for crevasses. Falling through one in the crawler would surely mean death. Getting stuck, the same.
 
-Several hours ago I somehow managed to convince Chloe that I wouldn't murder her in her sleep, and she was finally dozing off. Her head pressed against the sidebar and her legs propped against her chest. I could see her breath fogging the glass window even though the heat pump from the engine bay, porting through the front dash was keeping the cabin fairly warm, warmer than usual at least.
+Several hours ago I somehow managed to convince Chloe that I wouldn't murder her in her sleep, and she was finally dozing off. Her head pressed against the sidebar and her legs propped against her chest. I could see her breath fogging the glass window even though the heat pump from the engine bay ' porting through the front dash, was keeping the cabin fairly warm, warmer than usual I'd say.
 
 This had been our first expedition together, and although I didn't know much about her, outside of work, I couldn't help but feel drawn to her. She was attractive by all means, but it was more than that. An attractive woman can only hold my attention for so long, with the advent of social media, I've stared at attractive woman unabashedly, while on the comforts of my own toilet.
 
@@ -192,7 +190,7 @@ I looked at Chloe and saw her beaming. This was great news. We were traveling. W
 
 "Sounds great Simon. From our coordinates it looks like we're 18 or so hours out. Over."
 
-"This is McMurdo. We will prepare for your arrival. Medical team will be on standby. Over."
+"This is McMurdo. We will prepare for your joint arrival. Medical team will be on standby. Over."
 
 I stretched my neck. Wiggled my toes. And found new grip on the steering.
 
@@ -286,7 +284,7 @@ And then something fell out.
 
 It looked up at us, a glacier of blood caked onto the side of his face.
 
-"Fuck." I tried to find my bearings, "Dave. Are you okay?"
+"Shit." I tried to find my bearings, "Dave. Are you okay?"
 
 He shook his head, his voice groggy. I couldn't make out what he was saying as I pulled him to his feet. His wound had frozen shut.
 
@@ -294,7 +292,7 @@ He shook his head, his voice groggy. I couldn't make out what he was saying as I
 
 "I don't know man. We just got here and..."
 
-"Where are the others?" His head suddenly dancing on his neck as he swiveled back and forth. "Something came at us. It ran me right over. Oh god." His eyes set on the tent where we had found the other bodies. "Oh god. No." He reached out his hand. "Tiffany. Angela?"
+"Where are the others?" His head suddenly dancing on his neck as he swiveled back and forth. "Something came at us. It ran me right over. Oh god." His eyes set on the tent where we had found the other bodies. "Oh god. No." He reached out his hand. "Tiffany. Amy?"
 
 "Where's Simon," Chloe asked.
 
@@ -312,9 +310,9 @@ I heard it splatter on the ground as it left my mouth. Thick like stew, it began
 
 I wiped my mouth, "Why did they. What happened."
 
-By now Chloe had helped Dave pull Patrice out of the tent. There was a gash in her stomach but it wasn't serious, at least not as the bubble forming on the side of her head. It bubbled, likely filled with blood. A hematoma, some part of me remembered.
+By now Chloe had helped Dave pull Patrice out of the tent. There was a gash in her stomach but it wasn't serious, at least not compared to the thing forming on the side of her head. It bubbled, likely filled with blood. A hematoma, some part of me remembered.
 
-"Let's get her into the crawler," Chloe said. She looked at me, "We have to call McMurdo."
+"Let's get her into the crawler," Chloe said. Then she turned to look at me, "We have to call McMurdo."
 
 I nodded, "Yeah. Yeah, I'll get on that." I rushed to the Crawler and got my hands on the radio.
 
@@ -322,9 +320,9 @@ I nodded, "Yeah. Yeah, I'll get on that." I rushed to the Crawler and got my han
 
 After a second's hesitation, "This is McMurdo. Please state your emergency. Over."
 
-"We have three dead." I let it die. "Two dead. And one injured. Another, another missing. Over."
+"We have three dead." I let it die. "Two dead. And two injured. One of them in need of immediate medical. Another...another missing. Over."
 
-"We can send an immediate air drop to your location. Please confirm. Negative 78. Negative 170. Over."
+"We can send an air drop to your location. Please confirm. Negative 78. Negative 170. Over."
 
 "Yes! We have joined with Simon's team. Over."
 
@@ -340,7 +338,7 @@ Chloe ripped the transmitter out of my hand, "McMurdo. We are not waiting for th
 
 Chloe looked at me then back at, "Dave. Listen. There's something. I don't know. There's something, fuck. There's something in the ice."
 
-I could see Dave shaking his head, his eyes closing, his demeanor in disbelief, his mouth still half open when it hit him. Took him right off his feet. It moved so fast and blended into the snow perfectly that it was difficult to see, even more difficult to see when it started stomping the ground where Patrice laid, the snow came up like smoke as I see parts of her stamped out in the ice.
+I could see Dave shaking his head, his eyes closing, his demeanor in full disbelief as his mouth hung half open when it hit him. Took him right off his feet. It moved so fast and blended into the snow perfectly that it was difficult to see, even more difficult to make sense with my eyes when it started stomping the ground where Patrice laid, for the snow came up like smoke as I see parts of her stamped out in the ice.
 
 That's when I ran. I ran as fast as I could, the ground slipping before me as the world turned upside down and I hit my head hard against the ground. If it weren't for Chloe, I would have never made it into the Crawler.
 
@@ -360,7 +358,7 @@ She looked back again.
 
 "What was that thing?"
 
-"I don't know." She looked at me and then leaned in close enough for me to hear, "But did it look to you as if it came back for Angela? To finish her off? Like. It didn't even want Dave. He was just in the way. The way that thing tossed him. But it ripped into her stomach. Pulled out her guts and crushed them. Did it, look like that? To you? Did it?"
+"I don't know." She looked at me and then leaned in close enough for me to hear, "But did it look to you as if it came back for Patrice? To finish her off? Like. It didn't even want Dave. He was just in the way. The way that thing tossed him. But it ripped into her stomach. Pulled out her guts and crushed them. Did it, look like that? To you? Did it?"
 
 And I didn't want take solace in this, but I found some comfort, as we kept driving into the endless white snow, that if it was only killing women. Then maybe I was safe.
 
