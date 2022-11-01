@@ -2,7 +2,7 @@ Six victims in a span of eight weeks, and not a goddamn finger lifted. The state
 
 On paper, it just looked like a complaint. Like not having enough fancy soaps in the bathrooms. But it’s hard to convey the sickening feeling of dread that creeps up on you when you see another victim dead on the operating table; their organs ruptured by hundreds of porcelain-white teeth.
 
-Spontaneous internalized hyperdontia. 
+Spontaneous internalized hyperdontia.
 
 Fancy name for teeth growing inside the body. Molars blocking airways, canines rupturing stomach linings. Blood clots, severed arteries… there is no end to the possible complications.
 
@@ -112,7 +112,7 @@ All it took was a little push for the rotten frame to come loose. I moved it out
 
 I picked up my phone to use as a flashlight, only to see I had just over 30% battery left. I must’ve forgotten to charge it in the car.
 
-The floor and walls were solid concrete. There’d been an attempt to cover it up with wallpaper at some point, but it’d loosened and rolled up years ago. Left was just this chunky yellow texture, still sticky to the touch. 
+The floor and walls were solid concrete. There’d been an attempt to cover it up with wallpaper at some point, but it’d loosened and rolled up years ago. Left was just this chunky yellow texture, still sticky to the touch.
 
 Something crunched under my feet. Looking down, I saw teeth.
 
