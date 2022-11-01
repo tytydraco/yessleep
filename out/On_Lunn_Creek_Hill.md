@@ -22,6 +22,8 @@ In the distance, thunder sounded. There was something metallic in the air, I cou
 
 “I’ve got a good feeling. Thanks, friend.”
 
+We carried on.
+
 My father was a fisherman. He used to put me down for my hobby, never allowing me the opportunity to explain to him how very much in common our hobbies had. It was Freddy who introduced me to amateur radio, or ‘HAM radio’ as the big station workers liked to call it, a word with a deep etymology, developing from a pejorative slur to a prideful colloquialism that we HAMs have adopted with fervor over the past century and a bit.
 
 “Radio?” my father said to me one day after I had gotten home from school. And believe me, I had nearly run home from the bus stop. The truth was I couldn’t wait to hell him. I thought he’d be proud. I thought it would be interesting to him. “What are you, a sissy?” he had said. I remember feeling like he’d just gutted me with a pool cue. “There are plenty of useful after-school activities, Kyle. *Active* activities. It’s in the word, active. What about soccer? You’ve always liked soccer. Or if you’re not into team sports, how about track? I’ll support whatever you choose.”
@@ -36,11 +38,11 @@ As I stated, my father was a fisherman. Not as an occupation, but as a pastime. 
 
 This is what HAM radio is like. First and foremost, finding the perfect conditions in which to send and receive a clear signal. Like my father all those years ago, I was up with the sun. We’d known by the forecast that there was a stormfront coming, which meant that there would be a sufficient temperature inversion in the atmosphere. Tropospheric ducting can happen most successfully in such circumstances, which meant that we had a short window before the storm to potentially throw (and receive) a signal for thousands of miles. Ducting can carry a signal well past the radio horizon and drop it essentially anywhere in the world, if you’re lucky enough. So like a lake after a light rainfall to a fisherman, these morning conditions were ideal for Freddy and I.
 
-We loaded the Cherokee with our equipment and drove it up to the peak of Lunn Creek Hill. We set up our gear and likened our position on the escarpment to that of the bow of a boat, and cast our line into all that empty space before us. Then we did our jig and dance, which was navigating the frequencies. When we catch something on the line, Freddy attempts to reel it in by maneuvering the antennas.
+We loaded the Cherokee with our equipment and drove it up to the peak of Lunn Creek Hill. We set up our gear and likened our position on the escarpment to that of the bow of a boat, and cast our line into all that empty space before us. Then we did our jig and dance, which was navigating the frequencies. When we caught something on the line, Freddy attempted to reel it in by maneuvering the antennas.
 
-So, really, like my father, I am a fisherman. Except we baited different things. But the feeling couldn’t have been much different. Exhilaration. I wish he could have understood. I wish he would have lent me an ear on the subject. I wish I could have shared this with him, like he shared his hobby with me, when I was just a child and he would take me out on the Princecraft and stick a little rod in my hand with a worm squirming on the end of the hook with the red and white bobber. I never cared much for fishing, but I cherished those memories, and I respected him for his passion and skill. That’s all I really wanted from him. Respect.
+So, really, like my father, I was a fisherman. Except we baited different things. But the feeling couldn’t have been much different. Exhilaration. I wish he could have understood. I wish he would have lent me an ear on the subject. I wish I could have shared this with him, like he shared his hobby with me, when I was just a child and he would take me out on the Princecraft and stick a little rod in my hand with a worm squirming on the end of the hook with the red and white bobber. I never cared much for fishing, but I cherished those memories, and I respected him for his passion and skill. That’s all I really wanted from him in return.
 
-I hit a frequency and the low whine of interference became a human voice. It sounded German. “Es ist neunzehnhundert-siebenundsiebzig und ich bin schon mein halbes Leben lang hier auf Sendung.”
+We hit a frequency and the low whine of interference became a human voice. It sounded German. “Es ist neunzehnhundert-siebenundsiebzig und ich bin schon mein halbes Leben lang hier auf Sendung.”
 
 “This is Foxtrot Echo Five Romeo Mike India. To whom am I speaking?”
 
@@ -150,7 +152,7 @@ But this was not the man that carried me away. This was a younger man, in his tw
 
 “Neuschwabenland,” he said in a thick German accent, but he was staring over my head when he said it.
 
-Where have I heard that word before?
+I'd heard that word before.
 
 “I was kidnapped by a Nazi,” I said.
 
@@ -158,7 +160,7 @@ The young man nodded.
 
 “Are you Herschel Grynszpan?” I asked him.
 
-The young man chuckled. “Herschel Grynszpan? He would be one hundred years if he were alive. I am Mikkel.”
+He chuckled. “Herschel Grynszpan? He would be one hundred years if he were alive. I am Mikkel.”
 
 I shook my head in confusion. Did this kid know Herschel Grynszpan? A hundred years old? My head felt like there was an ax lodged deep in the back of it. My neck was a radiating pulse of lightning. It hurt to think at all.
 
@@ -166,7 +168,7 @@ I shook my head in confusion. Did this kid know Herschel Grynszpan? A hundred ye
 
 “They call him the fisherman.”
 
-My eyes widened at that. I thought of my father. I thought about that place he was now, alive and well, scorning some vulnerable version of me and a kid named Eddie. I thought that I would give up everything in my life to be there now, yelled at, abused, but there. With him. I’d tell him that I understood his pain. Now that I’ve grown up, I understood and that it’s okay because I loved him. And then I’d save his life.
+My eyes widened at that. I thought of my father. I thought about that place he was now, alive and well, scorning some vulnerable version of me and a kid named Eddie. I would give up everything in my life to be there now, yelled at, abused, but there. With him. I’d tell him that I understood his pain. Now that I’ve grown up, I understood and that it was okay because I loved him. And then I’d save his life.
 
 “Why do they call him the fisherman?” I said.
 
@@ -194,7 +196,11 @@ I got to my knees and forced myself to stand up. It took a lot of effort, and my
 
 “Okay, I will leave and save Freddy, and then I’ll get the police and come back for you.”
 
-He shook his head. “It will not work. You will run away, you cannot save Freddy. I will thank your friend for you when he arrives. He does not know it, but he saved your life. So you will run, and when you come back this place will be gone. The fisherman has left. Go.”
+He shook his head. “It will not work. You will run away, you cannot save Freddy. I will thank your friend for you when he arrives. He does not know it, but he saved your life. So you will run, and when you come back this place will be gone."
+
+"But. . ."
+
+"The fisherman has left," he said with a surety I found unusual. "Go.”
 
 There was a door in the room, it looked well fortified, but now it swung open on its own. I think about that a lot. It didn’t swing open languidly like a heavy door might in a thick breeze. It seemed to be pulled open by some invisible force. I believe that Mikkel had somehow opened it with his mind. I have since done some research on Neuschwabenland, and it is all but a fairy tale. Although some people speculate that if it ever did exist, it was a lawless bloodbath where Jewish people were kept under medical surveillance like rats. Some others suspected that it was a weapons facility. I believe them both to be true.
 
@@ -202,19 +208,19 @@ I rushed through the now open door and found myself in a long corridor. Pipes li
 
 I passed by several other doors and wondered what might be behind each one. One door I passed actually had a small window so I peeked through it and saw what looked like a radio station studio. The equipment inside looked ancient, but it seemed to be lit up and in working order. I couldn’t help but get the impression of early war communications technology.
 
-I moved along following the sound of thunder. It seemed very close now. I turned a corner and came upon a steel ladder that was fixed to the wall. It had a well around it made of more steel, and it seemed to go up forever. I grabbed the rungs and began to climb. As I made my way up, I started thinking about how one man could possibly carry another grown man down a ladder this long. What subhuman strength was required to achieve that?
+I moved along following the sound of thunder. It seemed very close now. I turned a corner and came upon a steel ladder that was fixed to the wall. It had a well around it made of more steel, and it seemed to go up forever. I grabbed the rungs and began to climb. As I made my way up, I started thinking about how one man could possibly carry another grown man down a ladder this deep. What subhuman strength was required to achieve that?
 
 At the top, there was a hatch. To my surprise, it wasn’t very difficult to open. It was left slightly ajar, so all it took was a push to make it swing up on its hinges. The movement was awkward, I had to let go of the ladder rungs to get both hands above my head, and this caused me some suffering in my neck.
 
 I was greeted with the rushing sound of the rain and the thunder seemed to be celebrating my escape. It was a heavy storm and I remember hoping that Freddy had packed the equipment up before it hit. I contemplated removing my shirt, but then I remembered my stiff neck so I took off a sock instead. I hung it from the branch of a nearby tree, and then looked back at the hatch. I checked my pockets for my phone to take a picture, but my pockets were empty. I would remember this spot. I picked a random direction and ran. If I picked the wrong direction, the direction of the car and Freddy, I was doomed. Because that’s where the fisherman would be. As I ran I made a silent prayer for my friend. I felt like an absolute coward. But I wouldn’t be able to help him alone, and I knew this. I had to get to the police. It was the only way.
 
-Thankfully I chose correctly, because I never came across the Nazi or Freddy. I ran through the dark wet woods for ten to fifteen minutes and then settled down in a clearing. The storm was still strong and I didn’t feel safe beneath all those trees. I didn’t feel safe in the clearing either, but it seemed like the safer place to wait it out. Eventually, the storm subsided and the torrential rain became a drizzle. It was still day time, so when the raven clouds became grey, some light was filtered through. It was difficult to listen for the river when the rain was still steady enough to mask the sound. I could slightly see the position of the sun through the blanketing clouds, and determined which direction to go from there. When I found the river, I followed it North. Lunn Creek flowed South, so I walked against the current. At some point, the sun found its way out of bed and the day was hot and clear again with a blue jay sky. When I reached the base of Lunn Creek Hill, I stared up at our base camp. The radio equipment was still there, unmoved, and undoubtedly ruined by the rain. The Cherokee was there too. Nothing else. No sign of Freddy. I hiked the trail back up the hill and got into the car, still damp from the shower. The keys were in the visor as was our custom. I started the car and drove away, leaving the equipment where it was as evidence of the day.
+Thankfully I chose correctly, because I never came across the Nazi or Freddy. I ran through the dark wet woods for ten to fifteen minutes and then settled down in a clearing. The storm was still strong and I didn’t feel safe beneath all those trees. I didn’t feel safe in the clearing either, but it seemed like the safer place to wait it out. Eventually, the storm subsided and the torrential rain became a drizzle. It was still day time, so when the raven clouds became grey, some light was filtered through. It was difficult to listen for the river when the rain was still steady enough to mask the sound. I could slightly see the position of the sun through the blanketing clouds, and determined which direction to go from there. When I found the river, I followed it North. Lunn Creek flowed South, so I walked against the current. At some point, the sun found its way out of bed and the day was hot and clear again with a blue jay sky. When I finally came upon the base of Lunn Creek Hill, I stared up at our base camp. The radio equipment was still there, unmoved, and undoubtedly ruined by the rain. The Cherokee was there too. Nothing else. No sign of Freddy. I hiked the trail back up the hill and got into the car, still damp from the shower. The keys were in the visor as was our custom. I started the car and drove away, leaving the equipment where it was as evidence of the day.
 
-My drive home was unpleasant. I was too shocked to process anything around me. It had all happened so fast, too fast. One moment we’re talking to the man from Mississippi, the next I wake up in some waystation cell to Antarctica? I can’t help but think back on it now as a submarine. I don’t know where I was that day, but for some reason it reminded me of a big submarine.
+My drive home was unpleasant. I was too shocked to process anything around me. It had all happened so fast, too fast. One moment we were talking to the man from Mississippi, the next I wake up in some way station to Antarctica? I can’t help but think back on that place now as a submarine. I don’t know where I was that day, but for some reason it reminded me of the interior of a big ugly submarine.
 
 The police came back with me later to investigate. They asked if there were any drugs or alcohol involved in our morning endeavour, and I had said no. I don’t think they believed me when I told them that we had somehow ducted to alternate dimensions, or that we somehow participated in the opening of some ephemeral portal to which a super-human Nazi escaped and kidnapped us. It was a typical alien abduction story, and they don’t usually carry a lot of weight with the law. I knew I sounded crazy when I recounted the day, and I couldn’t seem to find the right tone in which to tell it. How can you tell someone something so absurd and expect them to believe you? What tone must you find in order to sound perfectly convincing? Well, I never found the tone, and they never believed me. In fact, once Freddy was officially declared in the missing persons reports, I became the number one suspect. There are still people in our town that think I killed him and hid the body in the woods.
 
-As Mikkel had warned me, the hatch was not there when I came back with the police. My sock still swung from the branch of the tree, but where the hatch should have been was just dirt and leaves. They even indulged me enough to let me dig a little bit, but I knew before trying that there would be no hatch under the soil. I kicked at the dirt and begged them to believe me, knowing they wouldn’t. They looked at me concerned and empathetically, and then walked me back to my car. They took the damaged radio equipment with them just in case Freddy never turned up and they needed to use it for evidence reasons. I let them have it, it was trash anyways.
+As Mikkel had warned me, the hatch was not there when I came back with the police. My sock still swung from the branch of the tree, but where the hatch should have been was just dirt and leaves. They even indulged me enough to let me dig a little bit, but I knew before trying that there would be no hatch under the soil. I kicked at the dirt and begged them to believe me, knowing they wouldn’t. They looked at me with concerned empathy, and then walked me back to my car. They took the damaged radio equipment with them just in case Freddy never turned up and they needed to use it for evidence. I let them have it, it was scrap anyways.
 
 And of course, Freddy never did show up. I wonder if he was afraid like I was when the fisherman found him, or if he fought back. I wonder if Mikkel is keeping him company.
 

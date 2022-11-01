@@ -1,0 +1,41 @@
+Dearest Henry,
+
+I know that it’s been a long while since I’ve written to you, so I apologize if this is strange for you to read after so many years. There may be a slight chance that you’ve heard about my family’s tragedy along the grapevine, but even if you did, there is so much more that is going on than you think. I’m not in hysterics, I swear to the Lord above. But, Henry, I really wish that I was.
+
+Do you remember that twisted tree upon the hill? We used to eat there with mother and father on Sunday morning and we would play with fallen sticks and we would find colorful stones in the stream. It was the one just to the south of our family’s cabin. I took over after they died a couple of years back. I suppose the invitation letter for the funeral I sent never made it to your home because I remember not seeing you there when they were buried. 
+
+Anyways, I went out to collect the ripened raspberries and I collected all that I could see around the base of the hill. When the day nearly ended, I sat upon the hilltop to enjoy the sunset. I noticed these small black spheres that covered the ground beneath the tree. I wondered if they were fruit or some sort of nut, but it clearly was neither of the two. I rolled one in between my fingertips and it popped like a berry. Some cloudy miasma seemed to leak out and it hit my nose like embers. It was sharp, but it wasn’t a gross scent at all. It smelled like eggs and salt pork almost exactly. 
+
+At the time, I wished that I could have shown you how vividly it smelled like that. I gathered a handful of them and put them in my satchel before I made my way home. I don’t believe that you’ve met them yet, but I had married Thomas from down the road and had two children, Michael and Joshua. I was approaching the cabin when I noticed that the lights were off, which was strange because it was only the beginning of nightfall. I carefully opened the door.
+
+A loud sound had swept the balance out of my legs as I nearly dropped dead from shock. They lit a candle and wished me a happy birthday. When I entered my home, I felt something was strange. It was only when Thomas brought me a plate of food that I finally connected that smell that wafted in the air. There, on the plate, was a large portion of eggs and salt pork.
+
+Thomas would have taken me for a madwoman for the blabbering and half-formed words I spewed while staring at this plate. How had the fruit smell exactly like this? Had I been imagining it all? The children stopped dancing and the laughter and cheer had ceased. Chaos took the form of silence as they all stared daggers of confusion at me. I desperately attempted to speak, but my tongue simply refused to cooperate. I paused. I then reached into my satchel and, to my relief, brought out a handful of the charcoal-colored beads to show them, to show them that it was real. In the end, I wish I had been mad after all.
+
+We all smushed one in and smelled them. I had expected the eggs and salt pork I had discovered upon that hill, but it wasn’t anything near that scent. It smelled of fresh rain. Their gaze of confusion then mixed with worry as I could almost hear their thoughts of chucking me into some insane asylum. I simply made my way to the bedroom as I felt the heat of their judging stares on my back.
+
+I tried to sleep, but I simply couldn’t. Even though it was just the sound of a single cricket outside, I couldn’t stop thinking about those… things. The night soon turned to day as I awoke the rest for an early start to the day. Thankfully, the children didn’t seem to remember about last night all too much, so I was able to ease at least some of my tension. I started opening the windows, but I stopped dead after the second.
+
+Henry, when I tell you this, you must believe me. There were no clouds when I picked the berries. I hadn’t heard a drop on the roof. There is no possible way it could have rained last night. But, there outside, the trees were drenched and the soil turned to mud. It had never smelled so strongly of rain before in my entire life.
+
+I could see Thomas’s furrowed brow and knew that he smelled the fresh rain last night as well when we crushed these black things. He looked at me in a mix between bewilderment and curiosity. Before I left the house to go to the market, he shyly asked for another berry and we both smelled this one together out of curiosity. Though, that curiosity soon turned to horror. We knew what we smelled and we didn’t even have to speak. It was the smell of blood. Thick, irony blood.
+
+I looked at Thomas’s eyes deeply and we both knew something was wrong, but neither of us wanted to admit that either of us were losing our minds. I walked my thoughts off as I made my way to the market. I brought out another of these blackened pearls and crushed it in between my fingers to see if this devilspawn was playing tricks, but it still smelled the same. Chills ran down my body and my body felt numb, but I kept onward. As much as I wanted to, I simply couldn’t join the marketplace’s laughter and talk today with the worry that weighed on me. 
+
+Henry, do you recall that in between my cabin and that marketplace was the McKelleys’ pig farm? It was the place where we used to throw small sticks at the pigs and laugh at them beyond the fence. Well, it was from there that I could hear screams from the market. Not even twenty meters down the road I could smell it. It was the same thick blood I had smelled in the morning. 
+
+My legs began to sprint before I could even think. Michael’s screams were shrill and I soon closed the gap between us. His trousers were stuck on the fence and the pigs… Oh God the pigs, Henry… They got so far up his arm that I couldn’t see his elbow. I told him not to go near the pigs, I told him so many times. Why didn’t he ever listen to me? Writing this, I think that I’m sick from remembering this entire ordeal, but I must tell you because the townsfolk are accusing me of throwing him in. I rushed him to the local clinic, but he lost so much blood along the way that he was dead before I got there. His nose was ripped messily off, his skin riddled with missing flesh, exposed bones, and the scalp was so bloody it dyed his hair red. Henry, I didn’t even recognize him in the end, nor could I stand to look at him.
+
+Thomas gagged when he stepped into the clinic, even before he saw Michael. He and I both knew the smell. We had our funeral. Yes, that cold September evening. We swore those blasted fruit off. So, it was all the more worrying when I saw him later that evening, by candlelight, popping another one and smelling. It may be that he was smelling them out of a morbid curiosity. It may be that he was smelling them because he wanted to be punished. But, he received nothing of what he was expecting. However, when I looked at him, instead of worry or concern, he wore a face of morbid confusion. He said it didn’t smell of anything. I rushed over and opened one. It smelled of smoke and fire.
+
+We had gone days without going out. Thomas and I hadn’t even lit a candle since that day, but we had to get food and supplies. I had gone just one night out, Henry. That’s all it was. Thomas even swore not to light anything while I was gone. But, I came back to horror, fulfilling my dreadful expectations. I saw the black plumes in the air and smelled the ash before the fire brigade even arrived. I’m living some nightmare, Henry. Perhaps I am crazy and this is some odd dream, but I’ve pinched myself too many times to believe that.
+
+Joshua and I are the only ones left now. We're currently residing at Cousin Matthew's home now. Joshua didn’t take this too well. He stared into my eyes for one hundred times too many, one hundred moments too long. He never answered my questions or made a sound; he just stared with these hardened eyes.
+
+Last night, I was shaken awake by Joshua and he pinched the fruit into my nose. I yelled and struck him out of fear, I admit, Henry. I know it was rash, but it doesn’t matter anymore. Joshua asked me if it smelled like spoiling meat and rot. 
+
+I smelled nothing, Henry. I smelled nothing.
+
+Please help me.
+
+Your sister, Patricia.
