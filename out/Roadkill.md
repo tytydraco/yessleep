@@ -1,7 +1,5 @@
  
 
-If you would rather listen to this story, the audio version can be found [here](https://youtu.be/dPP8B0PDJws). 
-
 I strained to force open my crust coated eyelids as rays of sunlight beamed full force into my face. My head pounded, pleading with me to shut the blinds. I nearly gagged as the stench of my own rancid breath wafted out of my dry sticky mouth and collided with my nostrils.
 
 I lazily glanced over at the alarm clock. Twelve minutes past one. I rolled over and shut my eyes, attempting in vain to quell the thunderstorm raging in my head.
