@@ -104,7 +104,7 @@ The magician continued to lift into the air, he must’ve been about 15 feet hig
 
 Yelled Darla in pure awe, as she wiggled uncontrollably in her seat.
 
-The magician then descended, slowly, and with his arms outstretched as his feet again touched the stage dais. He then treated his fans to an assortment of less elaborate, but just as impressive tricks: making a rabbit appear out of thin air, to then seemingly transform it into a pigeon and let it fly away into the crowd. He started, piece by piece, started pulling a full set of medieval armor out of his pockets, and then, with a snap of his fingers, gave it life. A thunderous ovation serenaded the theater as the seemingly empty set of armor moved around and swung its sword. My sister, now with her mouth gaping wide open, looked shell-shocked.
+The magician then descended, slowly, and with his arms outstretched as his feet again touched the stage dais. He then treated his fans to an assortment of less elaborate, but just as impressive tricks: making a rabbit appear out of thin air, to then seemingly transform it into a pigeon and let it fly away into the crowd. He started, piece by piece, pulling a full set of medieval armor out of his pockets, and then, with a snap of his fingers, gave it life. A thunderous ovation serenaded the theater as the seemingly empty set of armor moved around and swung its sword. My sister, now with her mouth gaping wide open, looked shell-shocked.
 
 \- ”Well obviously there’s a guy in there. Dumb trick.”-
 
@@ -180,7 +180,7 @@ The flame seemingly extinguished itself. Leaving us in complete and utter darkne
 
 Screeched Darla, breathless as she clapped relentlessly.
 
-Fair enough, it was quite impressive. His final act, Escape From The Gates Of Hell was everything he claimed it would be. It was unbelievable even, it was just… unexplainable. It left you riddled with doubt and unanswerable questions but, above it, all, dazzled by its vastness. Magic is what it was, unexplainable, nonsensical, and much more impressive than the colors of the rainbow or how a human is born.
+Fair enough, it was quite impressive. His final act, Escape From The Gates Of Hell, was everything he claimed it would be. It was unbelievable even, it was just… unexplainable. It left you riddled with doubt and unanswerable questions but, above it all, dazzled by its vastness. Magic is what it was, unexplainable, nonsensical, and much more impressive than the colors of the rainbow, or the anatomical implications of a human being born.
 
 When my sister and I left the theater, that final act was all we could talk about.
 

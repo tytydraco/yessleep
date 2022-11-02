@@ -166,7 +166,7 @@ She cut me off. “Language.”
 
 “Are you sure you didn’t dream it?”
 
- “No!”
+ “Yes!"
 
 “Mmm hmm.” The woman cleared her throat, dismissing my protests. “I’m not a doctor, but If you’re experiencing memory loss and confusion, I suggest you go to the hospital. As for your ludicrous claims, you should keep them to yourself. That poor young man died due to a brain haemorrhage. Terrible and tragic, yes. But it was accidental, and not the work of… I’m sorry, what were you claiming it to be?”
 
@@ -212,7 +212,7 @@ They didn’t move like normal. 
 
 They stalked down the sidewalk like video game characters. The witch shoved a passing old man before pulling out a gun and pointing it at his head. But she didn’t shoot. The three of them ran off—and it was only when I was watching the top of the girl’s witch hat disappear into the night, when I glimpsed something—or someone—at the corner of my eye.
 
-Before I heard laughter. The tree in front of me moves. At first I thought they were shadow’s. Before the shadows bled into figures. Four of them. I glimpse the school colours. Red and Blue. I saw twin ponytails, velvet and blonde-- as well as the tell-tale Sunbeam varsity jacket. The group were laughing, whispering to each other. Not exactly doing a good job of hiding. When they slipped from their hiding place, I recognised Evie. Her fingers was gingerly on her nose which was bleeding heavily. 
+Before I heard laughter. The tree in front of me moves. At first I thought they were shadow’s. Before the shadows bled into figures. Four of them. I glimpse the school colours. Blue and Gold. I saw twin ponytails, velvet and blonde-- as well as the tell-tale Sunbeam varsity jacket. The group were laughing, whispering to each other. Not exactly doing a good job of hiding. When they slipped from their hiding place, I recognised Evie. Her fingers was gingerly on her nose which was bleeding heavily. 
 
 The others were the same, swiping at their faces with jacket sleeves. They didn’t seem fazed. The redhead’s gaze was latched onto the retreating children, his lips curling. I could sense he was still tethered to them. He was still commanding them to act out fucking grand theft auto.  It hit me then. They had caused the man’s death at the game and had controlled those children. I wasn’t crazy or delusional. Evie had killed someone by simply shooting imaginary finger guns, and somehow the others were able to bleed into children’s heads, taking them over. 
 
