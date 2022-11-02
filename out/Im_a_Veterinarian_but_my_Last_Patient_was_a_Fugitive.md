@@ -6,7 +6,7 @@ The intruder whipped around at my gasp, and I realized he was only a kid, his st
 
 “Don’t come any closer!” he yelled, his bloodshot eyes dilated, his weapon trembling in his grip.
 
-I put my hands up, recognizing the signs. “It’s okay, hun, it’s okay. If you’re looking for syringes, they’re the third drawer there, to your left. Take as many as you need.”
+I put my hands up, recognizing the signs. “It’s okay, hun, it’s okay. If you’re looking for syringes, they’re in the third drawer there, to your left. Take as many as you need.”
 
 He stared at me as if I were speaking a different language. I’d seen that dazed look before. On my son. It seemed like this young man was taking the same ruinous path that stole my beautiful boy from me.
 
