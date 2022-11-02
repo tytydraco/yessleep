@@ -1,5 +1,7 @@
 [Arctica 2](https://www.reddit.com/r/nosleep/comments/ya9n8c/arctica_2/)
 
+[Arctica 3](https://www.reddit.com/r/nosleep/comments/yjygxk/arctica_3/)
+
 &#x200B;
 
 Ice.

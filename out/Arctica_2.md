@@ -1,5 +1,7 @@
 [Arctica 1](https://www.reddit.com/r/nosleep/comments/y3kplm/arctica/)
 
+[Arctica 3](https://www.reddit.com/r/nosleep/comments/yjygxk/arctica_3/)
+
 &#x200B;
 
 The thing about the South Pole is that no one's ever truly warm. I can feel the coldness seep into my bones, my body is always a shiver away from being too cold to move another muscle. It makes walking difficult, breathing too - the air is thin and ragged on my lungs, even thinking becomes a harrowing task. And I'll put this down in writing, I don't care if someone in the future will see it as an admission of guilt, but it was probably why I wasn't thinking clearly after we arrived back at camp. I never should have took the equipment, cutting Chloe off from the rest of the world. I never should have left her alone. But by this point my self preservation mode had been active since we first left for the mission, and it was all I could manage to come up with before I crawled into my own sleeping bag, and passed out.
