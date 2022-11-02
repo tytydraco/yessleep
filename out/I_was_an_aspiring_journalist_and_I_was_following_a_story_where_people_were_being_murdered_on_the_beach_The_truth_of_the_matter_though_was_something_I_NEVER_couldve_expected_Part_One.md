@@ -201,3 +201,147 @@ In the end, and I'll go ahead and say right now that I'm not entirely proud of d
 The line cut off after that. I was confused. Why was she asking me if I had any sharp weapons? What did that matter. I mean, yeah, I knew they'd sometimes ask that for safety reasons, but I thought that was only done if they were suspicious of you, or if YOU were the one calling to confess to something like this. Granted, I never really knew much of standard police protocol, but still, something about that made me worried.
 
 I realized, though, that I *had* told them that I didn't actually see who or what did it. That means whoever did it is lurking around the beach somewhere, possibly even in the suite. Even if they weren't suspecting me, that would mean I wasn't safe stepping out of the room. I went ahead and unlocked the door, but remained braced against it. Once I hear the knock of the police, I figured, I could open the door then.
+
+While I was waiting, I went ahead and started sending the pictures to Nolan.
+
+\-- "Dude... I just found this..."
+
+**-- "What is this? This a body?!"**
+
+\-- "Yeah!"
+
+**-- "WTF?! Where? When? Who?"**
+
+\-- "I don't know! I was out on the beach again this morning and there it was."
+
+**-- "Have you called the police?"**
+
+\-- "Yeah, I just did. They're on their way. Listen, I need you to print out copies of those pictures for the story, okay?"
+
+**-- "Uh... I mean, okay, yeah, but..."**
+
+\-- "What?"
+
+**-- "I mean, isn't that kind of fucked up?"**
+
+\-- "Look, I know, I know, but I'm gonna have to end up giving the ones I took over to the cops when they get here and dude... I can't really explain it, but something tells me they wouldn't exactly be big on the idea of showing any of this or letting anything reach the public. This might be the only way this isn't completely lost forever, you know?"
+
+**-- "Yeah, alright man. Just please don't go pissing off the wrong people with this. I can't handle another snafu like what happened with your little stint at Area 51."**
+
+I rolled my eyes. He was always teasing me with that one. *It was ONE FUCKING TIME!*
+
+*--* "Look, I'll be fine. Just print those off for me. That way, if nothing else, we'll have at least SOMETHING to show for the project."
+
+I was jolted up when I heard the knock at the door. I slowly stood up and looked through the peephole. Sure enough, it was two female officers standing at my door. I opened the door. "Hello."
+
+"Maxwell Davidson?" the lead officer asked.
+
+"Yeah?"
+
+"We're with the Mecklenburg county P.D. We're responding to a call about a body being discovered." I noticed her starting to peek around the room from the doorway.
+
+"Yes, on the beach." I replied, growing somewhat nervous now. She looked back to me.
+
+"Okay, could you step outside for us, please?" the other officer asked. I hesitated.
+
+"Why?" The two of them fixed me with a cold stare, the kind that told me without telling me that they *really* weren't in the mood to ask me twice.
+
+"Step outside, sir." the lead repeated, somewhat harsher than before. I stepped outside, shaking. Before I knew it, the partner was walking into the suite.
+
+"Hey, what the hell're you--" I was cut off, however, when the lead officer began hemming me against the wall. "Hey, what is this, what're you doing?!"
+
+"Maxwell Davidson, you have the right to remain silent as anything you say or do can and will be--"
+
+"What the hell? What are you talking about, what am I being arrested for?" I got no answer for this. Instead,  She continued to cuff me while I heard the partner tearing through my room. "The fuck!" I exclaimed, "What the fuck're you two doing?!"
+
+The partner came out of the room holding my camera. "Hey, that's my camera!"
+
+"Move it, sir!" barked the lead officer harshly. I was then shoved down the hallway and out of the suite. once out, I was rudely shoved in the back of the police cruiser before being driven to the station about ten to fifteen minutes away from *SunnyShore Resort.* Once there, I was essentially dragged out of the cruiser into the station before being thrown into a chair.
+
+"Hey, easy, what the hell is going on?" The lead officer sat in the chair across from me. She began laying out photos. "Look, this is a mistake!" I exclaimed. "There's a maniac out there and you're harrassing *me?*"
+
+"You recognize any of these folks?" Her voice was monotone, cold and blunt. I looked at the photos. They were all of shredded human remains, all having been found on the beach.
+
+"What the fuck, no I haven't seen these people before!" The two officers glared at me. "What, *I* didn't do this! How *could* I?"
+
+"How?" the lead officer asked. "Well, the way I understand, you had no trouble offing that poor bastard you confessed on the phone abo--"
+
+"Whoa, whoa, *confessed?* I didn't *confess* to shit!" I was about to jump from my chair when I watched the partner reaching for something in her belt.
+
+"Yeah, I'd advise keepin' yourself in check, there, boy." she said coldly.
+
+"Look, I didn't kill anybody, okay? I saw that body and immediately called you."
+
+"Oh really?" lead officer asked. "The "First thing you did", huh?" She held up my camera. "So you decided *after* you called us to start snapping pictures of your latest accomplishment?"
+
+"What? No, I didn't--"
+
+"So here's the story as I understand it; you, after all this time, come around here after we *finally* get the place opened back up again just to start up your little killing spree again."
+
+"WHAT?!" I screamed. The partner reared back to her belt again. "What the fuck are you talking about, I *didn't kill anyone!*" She turned to her partner.
+
+"Yeah, that'd sound about right to me, what about you?" The partner just kept eyeing me, nodding in agreeance.
+
+"I couldn't have killed them! I don't know them, Hell, I've never seen these fuckers before in my life!"
+
+"Give me one good reason why I'm supposed to believe you."
+
+"What do you mean? I already told you, I called you *right after* I found that body!"
+
+"Your latest victim, you mean?" she asked. My body began shaking violently.
+
+"Goddamn it, have you heard a *single* word I've said? I. Did. Not. Kill. *ANYBODY!* The maniac's still out there!"
+
+"Then why're you taking their pictures?" the partner asked, still glaring daggers at me. "You press?"
+
+"No. I mean, not--"
+
+"You shooting a movie, is that it? You trying to shoot a snuff film?"
+
+"The fuck? Do you people hear yourselves? A "Snuff film", really?"
+
+"So you admit it was for your sick collection?" lead officer asked.
+
+"NO!" I shouted, this time bolting from the chair. I was ready to wrap my hands around both their throats and start shaking the hell out of them to make them fucking listen to me. The only reason I didn't was because as soon as I was to my feet again, Ms. trigger-happy partner drew her gun and aimed it directly between my eyes.
+
+"You know this isn't exactly helping your case, here." lead officer chided. I stayed locked in a staring match with the partner for another minute and a half before diverting my eyes back to the lead officer.
+
+I closed my eyes and inhaled. "I took those pictures because I'm here with a magazine company." Lead officer glanced over to her partner. Partner just remained focused on me.
+
+"I thought you said you weren't with the press."
+
+"I'm not. we're just a startup."
+
+"What "Magazine"?" she asked, using air-quotes.
+
+"*World of Weird*."
+
+"Never heard of it." She looked to the partner again. Again, the partner wouldn't take her eyes (or her gun) away from me as she shook her head.
+
+"You probably wouldn't. Like I said, startup journaling house. Just started back in late 2017 and we haven't picked up much traction."
+
+"So why'd they send you? Why here?"
+
+"Well, to find the same thing you're looking for, more or less."
+
+"What do you mean?"
+
+"I was sent to see if there was any truth to the stories. I only heard about 'em myself just a couple weeks ago when I was given the assignment. Like I've been saying, I'm not even from around here."
+
+"So they sent an out-of-towner here to the resort on some sort of journalism snipe-hunt?" I noticed she had this weird sort of reassurance in her voice when she said this. Like she was glad to hear it, that I was, quote-unquote, "an out-of-towner on a snipe-hunt".
+
+"Uh... S-Sure... but I don't--" She stood up and waved for the partner to take her gun off me.
+
+"Alright, Mr. Davidson, you're free to go. Sorry for any inconvenience. We'll be escorting you back to the resort." I stood dumbly.
+
+"Huh?"
+
+"You were right, we jumped the gun there. We *will,* however be keeping your little camera, here. Don't need you going around trying to spook folks around here when it's clearly nothing but a shark attack."
+
+"Wait, what?" I exclaimed. "But I need my camera."
+
+She just looked at me with a shit-eating smirk and replied, "Again, give my regards to *"Planet of Bizarroland"* or whatever." The two then left before two more officers came in and escorted me out to the cruiser to take me back to the resort.
+
+On the ride back, one thing kept repeating in my mind. That was too easy. Everything about that situation was *wrong*. For starters, despite being so quick to supposedly believe I'd done it, then "confess over the phone", they never tried making me show them where I'd even found the body. Not only that, but they were so quick to let me go after I told them about *World of Weird*, readily dismissing me as just a wingnut spouting bullshit and writing off yet another murder as "just another shark attack".
+
+To top all of that off, they were adamant about keeping my camera, JUST to be able to keep to this story. In other words, I couldn't tell whether they, themselves, actually believed in the legends of the "SunnyShore Slasher" or if they were just trying to shut everybody up. One thing I *was* 100% certain of, though, was that there was definitely something they weren't wanting me to see, and it definitely had something to do with the bodies.
