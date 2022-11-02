@@ -15,7 +15,6 @@ I don’t want to remember what happened that night. This is the last time I’l
 
 This is what happened to my apartment complex, one night. When the lights went out.
 
-#The Night of Cold Lights
 
 Our brain hangs onto the funniest things, doesn’t it? The artificial shade of red in the receptionist’s hair when you go in to see the dentist. The way your high school English room smelled after thunder. 
 
@@ -226,8 +225,6 @@ If there was nothing but the ground below, I would have jumped anyways.
 So I looked at the branches and that fall and the horrible distance below.
 
 And I jumped.
-
-#Epilogue
 
 I no longer live in apartment block. Me and my cat, we're not picky. I can't say we've landed on our feet yet, but we can manage
 
