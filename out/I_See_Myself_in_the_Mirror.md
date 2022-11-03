@@ -130,13 +130,13 @@ I awoke in a dark room, sitting, and strapped to a chair. A light came on overhe
 
 “WRONG!” My ears split in two, splitting again and again until it spoke both an eternity, and a second later, “You are the culmination of those you know, how can you claim it as a self if you are everyone you know? How can you claim your successes as your own? How can you CLAIM ANYTHING!?”
 
-I felt my existence tear as it screamed, my very sense of self dissolving in the acidity of the creature's speech.
+I felt my existence tear as it screamed, my very sense of self dissolving in the acidity of the creature's speech. The only sensation tethering me to my body being the piercing of bone through my heart as the mirror directly in front of me formed one long, bone spear from center mass.
 
 “Some son you are. You couldn’t even follow your passion, and yet you claim to be successful. What a waste of air.”
 
-I shot up, cold sweat trickling down my face, a small puddle underneath me on the leather couch.
+I shot up, cold sweat trickling down my face, a small puddle underneath me on the leather couch. I threw my shirt off, looking over my body. Just over my heart, a small trickle of blood oozed from the center of a deep purple bruise. I checked around me, seeing what had caused it, but there was nothing. The ceiling was intact, I didn't own any animals, and I couldn't have possibly done it myself.
 
-I bolted to the front door, barely fitting my shoes on before I was out the door, keys and wallet in hand. I ignored the rain showering over me as I threw the door of my car open, nearly breaking it. I slid multiple times as I threw my car out of my driveway and sped down the residential area.
+Throwing my shirt back on, I bolted to the front door, barely fitting my shoes before I was out the door, keys and wallet in hand. I ignored the rain showering over me as I threw the door of my car open, nearly breaking it. I slid multiple times as I threw my car out of my driveway and sped down the residential area.
 
 The trip took a good 10 hours, and the sun had begun to rise yet again, though the rain persisted. As I pulled up to the house, I looked over the yard. Weeds had sprouted since I’d last been there, and the general lawn upkeep seemed to be minimal at best.
 
@@ -152,4 +152,6 @@ Making my way to the bathroom, I hesitated upon touching the handle. A few momen
 
 “Don’t let your ego get in the way of who you really are, okay? I just couldn’t stand by anymore. If you ever fall off again, I’ll be waiting, you can be sure of that.”
 
-After I blinked, he was gone, and I could see myself again. My eyes were sunken, and my bags were larger than I’d ever remembered, my short hair was a mess, and my stubble had grown even longer, but it was me, not the impoverished me from when I grew up, but me. I smiled to myself, another tear falling down my cheek, while I had a long way to go, this was a start to a better life. I just hoped I'd have the fortitude to make it out the other side.
+After I blinked, he was gone, and I could see myself again. I thought that would be the end of it, but then a whisper rang through my head. "And be cautious of that manifestation from your dream, I don't think it will be so kind as to give you a simple bruise next time." 
+
+I stared at my reflection, eyes sunken, bags were larger than I’d ever remembered, my short hair was a mess, and my stubble had grown even longer, but it was me, not the impoverished me from when I grew up, but me. I smiled to myself, another tear falling down my cheek, while I had a long way to go, this was a start to a better life. I just hoped I'd have the fortitude to make it out before the thing from my nightmare could catch me.
