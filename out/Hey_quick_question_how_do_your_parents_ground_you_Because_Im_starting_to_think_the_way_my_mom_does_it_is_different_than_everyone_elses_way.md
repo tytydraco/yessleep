@@ -28,7 +28,7 @@ Then, I made the mistake of telling my mom about it, and she flipped out.
 
 “But Celeste said that people’s hands don’t grow back! I was just trying to show her that mine do!”
 
-“Well, some people don’t. It’s rude to point out yours do. You can’t just post stuff like this on social media! It’s dangerous. You could get arrested for posting something like that.”
+“Well, some people's don’t. It’s rude to point out yours do. You can’t just post stuff like this on social media! It’s dangerous. You could get arrested for posting something like that.”
 
 “Oh. I’m sorry.”
 
@@ -42,7 +42,7 @@ I was confused, because she was still at school. If she was grounded, wouldn’t
 
 She giggled, and said she was allowed to go to school, she just couldn’t go anywhere else, and she couldn’t be on her phone.
 
-I don’t understand how they could ground her and let her constantly leave, but I didn’t ask any other questions, because I didn’t her to think I was weird, but now I’m wondering if it is, and I don’t want to ask my mom, because she’s just gonna say it’s normal, or ground me again.
+I don’t understand how they could ground her and let her constantly leave, but I didn’t ask any other questions, because I didn’t her to think it was weird, but now I’m wondering if it is, and I don’t want to ask my mom, because she’s just gonna say it’s normal, or ground me again.
 
 Here’s how my mom grounds me.
 
@@ -58,7 +58,7 @@ Whatever she uses, everything goes black, and when I wake up, I’m in the box.
 
 The first few were lined with wood, but when I learned how to kick open the siding and get un-grounded early, she got one that was lined with steel. No amount of kicking will bust it open.
 
-It’s big enough to fit me, but it’s still extremely claustrophobic. When I was little, I was able to sit up inside it, but now that I’ve gotten taller, I can only lie down inside it. The air in the box is thin, and not breatheable for very long, so I’m constantly blacking out and re-awakening. It’s extremely dark inside, but I’ve got great night vision after years of doing this, so I’m able to see pretty well. Not that there’s much to see anyways. There’s just blank wooden walls.
+It’s big enough to fit me, but it’s still extremely claustrophobic. When I was little, I was able to sit up inside it, but now that I’ve gotten taller, I can only lie down inside it. The air in the box is thin, and not breatheable for very long, so I’m constantly blacking out and re-awakening. It’s extremely dark inside, but I’ve got great night vision after years of doing this, so I’m able to see pretty well. Not that there’s much to see anyways, besides blank wooden walls.
 
 The isolation is not the worst part. Hearing what lies below is the worst part.
 
@@ -142,7 +142,7 @@ But eventually, I go through all the voices on that particular spot the box is u
 
 *Do you understand, little one? Do you understand now? You’ve been through many of the things that they’ve been through, but you’ve got a long way to go.*
 
-*They’re jealous of you. They never got a second chance. Nobody gets a second chance, except you.* 
+*They’re jealous of you. They never got a second chance. Nobody gets a second chance, except you.*
 
 *You never should have existed, little one. You are an abomination.*
 
