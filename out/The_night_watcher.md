@@ -1,6 +1,6 @@
-I lived in an apartment in New York, which goes all the way up to the 40th floor. It’s somewhat of a penthouse, just not as luxurious. The window showing off the city was in my living room, while a very small window was at my bedside. So I suppose you’d be afraid if you saw it too. 
+I lived in an apartment in New York, which goes all the way up to the 40th floor. The window showing off the city was in my living room, while a very small window was at my bedside. So I suppose you’d be afraid if you saw it too. 
 
-It started when I got home from work as per usual, but I had a horrible feeling in my gut. The night was extremely quiet with barely any traffic, which if you live in New York, you’d know that it’s extremely rare. I got off at around 6PM and headed for a bite to eat, however as I got closer and closer to my apartment, I started feeling more and more nauseous. I thought that it was due to the food I ate, and I kept it in until I got inside; but when I did, that feeling was gone. 
+It started when I got home from work as per usual, but I had a horrible feeling in my gut. The night was extremely quiet with barely any traffic, which if you live in New York, you’d know that it’s extremely rare. I got off at around 6PM and headed for a bite to eat, however as I got closer to my apartment, I started feeling more and more nauseous. I thought that it was due to the food I ate, and I kept it in until I got inside; but when I did, that feeling was gone. 
 
 All that was left was me and this empty space. I often contemplated if this room was always so big. The couches and the rugs, the kitchen and the seats all felt so unfamiliar. Almost as if I’ve stepped in another ones home.
 
