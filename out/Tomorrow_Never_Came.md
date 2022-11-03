@@ -1,6 +1,6 @@
 I don't care if anyone believes me. I have spent my whole life afraid to tell this story in fear that I would be called crazy. Afraid that I would be exiled from society and thrown into some asylum for people that *actually* see things. But I know that what I saw was real. And that fear of being cast-away led me to have a sad life. Wallowing away in my misery as that day replays over and over again in my head. I am an old man now, and with my time on Earth slowly approaching it's end, I feel as if I have to get this off my chest. Somebody has to hear me. 
 
-They say that people with grief and trauma tend to forget the events that happened. Forget the things that led to them being so fucked up, but I remember every single thing about that day. Every word spoken, every action taken, and I remember him. 
+They say that people with grief and trauma tend to forget the events that happened. Forget the things that led to them being so fucked up, but I remember every single thing about that day. Every word spoken, every action taken, and I remember *him.* 
 
 This happened on a Saturday in the fall of 65'. A time where there were no cell phones, social media, videogames, or anything else that keeps you kids busy these days. I had just turned sixteen, my sister, Ellie, had turned eight the month prior. When my father died from falling off a ladder the year before, I had to push through the pain and step up to be the man of the house, helping my mom around the house, and most importantly, being a positive male role model for Ellie. From the time my dad died, she was glued to my hip. 
 
@@ -44,7 +44,7 @@ Back in the house, Mom was in the middle of making our lunch. "I'm taking Ellie 
 
 She looked down at Ellie. "Oh! That sounds very fun!" She said excitedly.
 
-Ellie looked at the ground and growned out, "I wanted to have a tea party." 
+Ellie looked at the ground and groaned out, "I wanted to have a tea party." 
 
 "Which we are going to have tomorrow." I chimed in.
 
@@ -106,7 +106,7 @@ I tried to respond, but I was unable to speak. Instead, jumbled groans came out.
 
 The mans lips curved upwards into a grin. "Good." He said. 
 
-We sat in silence for a few seconds that, in the mans presence, felt like an eternity. He finished chewing, and took a loud gulp before looking at Ellie again. "Well, little girl. You never answered my question."
+We sat in silence for a few seconds that, in the mans presence, felt like an eternity. He finished chewing, and took a loud *gulp* before looking at Ellie again. "Well, little girl. You never answered my question."
 
 Ellie looked over to me, and I nodded to her, giving her the go ahead to speak to him. "What happened to him, James?" She asked innocently. 
 
