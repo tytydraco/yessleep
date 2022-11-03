@@ -136,7 +136,9 @@ But they didn’t stop there.
 
 When the crowd exploded with applause, one of the girl’s slowly raised her right arm and shot into the crowd with finger guns.
 
-She shot twice—and with every time she pulled that imaginary trigger, her painted lips stretched into a maniacal grin.Until her gaze was on me. And then behind me. I could see it in her glittering eyes I could no longer call human. I met Evie at the start of my freshman year, and then at the disastrous try-outs. I knew her wide smile, and the glint of passion twisting her expression—a love for the group and the members she couldn’t put into words. Right then I wasn’t seeing Evie, a Sunbeam cheerleader. I was seeing something else entirely, a being scanning faces in the crowd for a victim. 
+She shot twice—and with every time she pulled that imaginary trigger, her painted lips stretched into a maniacal grin.Until her gaze was on me. And then behind me. I could see it in her glittering eyes I could no longer call human. I met Evie at the start of my freshman year, and then at the disastrous try-outs.
+
+I knew her wide smile, and the glint of passion twisting her expression—a love for the group and the members she couldn’t put into words. Right then I wasn’t seeing Evie, a Sunbeam cheerleader. I was seeing something else entirely, a being scanning faces in the crowd for a victim. 
 
 Her expression seemed to melt, from a gleeful grin, to something twisted and putrid, someone who craved the exact opposite of what Sunbeam preached. I watched her lips. I watched the words pop into existence, drowned into nothing by the crowds cheering. But I saw them in perfect clarity. “Drop.” She said, before pulling the imaginary trigger again.
 
@@ -212,9 +214,11 @@ They didn’t move like normal. 
 
 They stalked down the sidewalk like video game characters. The witch shoved a passing old man before pulling out a gun and pointing it at his head. But she didn’t shoot. The three of them ran off—and it was only when I was watching the top of the girl’s witch hat disappear into the night, when I glimpsed something—or someone—at the corner of my eye.
 
-Before I heard laughter. The tree in front of me moves. At first I thought they were shadow’s. Before the shadows bled into figures. Four of them. I glimpse the school colours. Blue and Gold. I saw twin ponytails, velvet and blonde-- as well as the tell-tale Sunbeam varsity jacket. The group were laughing, whispering to each other. Not exactly doing a good job of hiding. When they slipped from their hiding place, I recognised Evie. Her fingers was gingerly on her nose which was bleeding heavily. 
+Before I heard laughter. The tree in front of me moves. At first I thought they were shadow’s. Before the shadows bled into figures. Four of them. I glimpse the school colours. Blue and Gold. I saw twin ponytails, velvet and blonde-- as well as the tell-tale Sunbeam varsity jacket. The group were laughing, whispering to each other. Not exactly doing a good job of hiding. When they slipped from their hiding place, I recognised Evie. Her fingers gingerly on her nose while intense red pooled down her chin. 
 
-The others were the same, swiping at their faces with jacket sleeves. They didn’t seem fazed. The redhead’s gaze was latched onto the retreating children, his lips curling. I could sense he was still tethered to them. He was still commanding them to act out fucking grand theft auto.  It hit me then. They had caused the man’s death at the game and had controlled those children. I wasn’t crazy or delusional. Evie had killed someone by simply shooting imaginary finger guns, and somehow the others were able to bleed into children’s heads, taking them over. 
+The others were the same, swiping at their faces with jacket sleeves. They didn’t seem fazed. The redhead’s gaze was latched onto the retreating children, his lips curling. I could sense he was still tethered to them. He was still commanding them to act out grand theft auto. They had caused the man’s death at the game and had controlled those children. 
+
+I wasn’t crazy or delusional. Evie had killed someone by simply shooting imaginary finger guns, and somehow the others were able to bleed into children’s heads, taking them over. 
 
 Pulling my phone from my pocket, I heaved out a breath. The pain was starting to hit in waves I had to grit through. I couldn’t move. I was stuck, curled up on my floor. While they laughed.
 
@@ -278,7 +282,7 @@ She jumped up and down in glee. “Bang, bang, bang!”
 
 “Keep going,” the voice of the woman crackled through the speaker. “You’ve almost got it.”
 
-“Slice.” Pigtails used her pointer finger at an old man who was skewed by an invisible force sending bloody chunks of him to the floor.
+“Divide.” Pigtails used her pointer finger at an old man who was skewed by an invisible force sending bloody chunks of him to the floor.
 
 "Show off.” The redhead said in a sing-song voice. He was slumped against the back wall using his jersey to wipe blood from his face while the others painted the room scarlet. With simple words of intent and a hand gesture, they were able to take people apart piece by piece.
 
@@ -312,7 +316,9 @@ He’s dragging us again, forcing us down a long winding corridor until we reach
 
 "Drown." The boy - - Jason's-- voice was suddenly in my head. I could sense it was trying to hold back, attempting to peel back whatever power his own words had. But the word came again and again until it was suffocating his mouth. “Drown. Drown. Drown. Drown.”  We were standing in the doorway of a smaller room. In the corner there was a figure curled up with their head pressed against the wall. 
 
-I recognised our school colours, a bloodied varsity jacket over shorts and t-shirt. When he lifted his head and twisted to face the boy whose mind I was in, I noticed he had an uncanny resemblance to me. His eyes  wide, frightened. He had my mother's eyes.
+It was a guy. 
+
+I recognised our school colours, a bloodied varsity jacket over shorts and t-shirt. When he lifted his head and twisted to face the boy whose mind I was in, I noticed he had an uncanny resemblance to me. His eyes wide, frightened. They were my mother's. 
 
 This guy looked exactly like me.
 
