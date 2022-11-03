@@ -74,7 +74,7 @@ That was the moment he realized just how broken he was. He knew that and relief 
 
 I pulled the trigger without a moment’s hesitation. It was the least I could do for a fellow human being. 
 
-The sound of the gunshot echoed through the air. If the Praetor’s didn’t know of our present before that point, they sure did now. Without wasting time, I pulled the broken body out from the car and tossed it unceremoniously onto the ground. His muscles still twitched, but I hoped the damage to his brain was enough to render him unconscious, even if he was still technically alive. 
+The sound of the gunshot echoed through the air. If the Praetors didn’t know of our presence before that point, they sure did now. Without wasting time, I pulled the broken body out from the car and tossed it unceremoniously onto the ground. His muscles still twitched, but I hoped the damage to his brain was enough to render him unconscious, even if he was still technically alive. 
 
 “Let’s go,” I ordered. 
 
