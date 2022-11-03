@@ -1,32 +1,32 @@
-Where to start? 
+Where to start?
 
 &#x200B;
 
-I guess at the beginning, right? When I first saw it. 
+I guess at the beginning, right? When I first saw it.
 
 &#x200B;
 
-It was in one of those YouTube ghost’s-caught-on-camera videos, the Henry Jones house in Ohio video clip. Don’t bother looking for it, trust me, it’s no longer on YouTube. 
+It was in one of those YouTube ghost’s-caught-on-camera videos, the Henry Jones house in Ohio video clip. Don’t bother looking for it, trust me, it’s no longer on YouTube.
 
 &#x200B;
 
-Someone took a video with their cell phone and posted it on the internet. Then the video was included in a Ghost caught on camera compilation. 
+Someone took a video with their cell phone and posted it on the internet. Then the video was included in a Ghost caught on camera compilation.
 
 &#x200B;
 
-They walked through the house. They stopped at a room. It was explained it was Henry’s daughter’s room, hinting at something sinister. While having the door in perfect frame, a shadow moved across the room. 
+They walked through the house. They stopped at a room. It was explained it was Henry’s daughter’s room, hinting at something sinister. While having the door in perfect frame, a shadow moved across the room.
 
 &#x200B;
 
-Spooky stuff, right? A shadow figure inside the room. Or perhaps one of their friends, waiting in the room to walk across it? 
+Spooky stuff, right? A shadow figure inside the room. Or perhaps one of their friends, waiting in the room to walk across it?
 
 &#x200B;
 
-Most of those videos are fakes anyway. But we enjoy them. If they make us jump even for a moment we would laugh about it. But we don’t take any of it seriously. 
+Most of those videos are fakes anyway. But we enjoy them. If they make us jump even for a moment we would laugh about it. But we don’t take any of it seriously.
 
 &#x200B;
 
-But that was not what got my attention. 
+But that was not what got my attention.
 
 &#x200B;
 
@@ -38,11 +38,11 @@ So what, right?
 
 &#x200B;
 
-A woman in the house, standing in a doorway, what is so scary about that? Well, my husband couldn’t see it, so there was that. I thought he was teasing me, I got angry after a while, but he insisted there was nothing. The door was closed, nobody was standing there. 
+A woman in the house, standing in a doorway, what is so scary about that? Well, my husband couldn’t see it, so there was that. I thought he was teasing me, I got angry after a while, but he insisted there was nothing. The door was closed, nobody was standing there.
 
 &#x200B;
 
-At first I thought it was just someone else in the house; it was a tourist attraction after all. So other people were probably in the house. And my husband sometimes has a strange sense of humor. 
+At first I thought it was just someone else in the house; it was a tourist attraction after all. So other people were probably in the house. And my husband sometimes has a strange sense of humor.
 
 &#x200B;
 
@@ -54,11 +54,11 @@ Finally I made a comment on the video, “So who was that in the door then?” P
 
 &#x200B;
 
-I couldn’t believe it. I watched the video again. And sure enough, just into the room, a figure in white facing the door. 
+I couldn’t believe it. I watched the video again. And sure enough, just into the room, a figure in white facing the door.
 
 &#x200B;
 
-I couldn’t explain it. Maybe it was part of a hoax? Maybe there are different versions of the video, to catch people like me. That is why my husband pretended not to see it, one of those stupid internet gags and he was in on it. 
+I couldn’t explain it. Maybe it was part of a hoax? Maybe there are different versions of the video, to catch people like me. That is why my husband pretended not to see it, one of those stupid internet gags and he was in on it.
 
 &#x200B;
 
@@ -70,11 +70,11 @@ I decided to go and see for myself. The house is within driving distance from us
 
 &#x200B;
 
-A guide took us through the house and explained its history. 
+A guide took us through the house and explained its history.
 
 &#x200B;
 
-The house was built for Henry Jones, some rich guy at the turn of the previous century. He moved in with his family, his wife, who passed away a few years after he moved in and two daughters. But there was a scandal. The oldest daughter fell in love with a poor guy. Old Henry didn’t like that. He locked the girl in the house, nobody saw her for many years until she died. Eventually only the youngest daughter remained and she offered the house to the town to be used as a museum. It shows a glimpse of how people lived back then. Rich people, who lock their daughter inside the house for falling in love with someone below their standards. 
+The house was built for Henry Jones, some rich guy at the turn of the previous century. He moved in with his family, his wife, who passed away a few years after he moved in and two daughters. But there was a scandal. The oldest daughter fell in love with a poor guy. Old Henry didn’t like that. He locked the girl in the house, nobody saw her for many years until she died. Eventually only the youngest daughter remained and she offered the house to the town to be used as a museum. It shows a glimpse of how people lived back then. Rich people, who lock their daughter inside the house for falling in love with someone below their standards.
 
 &#x200B;
 
@@ -82,7 +82,7 @@ One of the upstairs rooms was shown as the one where the girl was locked up in. 
 
 &#x200B;
 
-Finally we were in the downstairs hallway. The door I saw on the video was the last one on the right. It was closed. I asked the guide about it. She gave me a look. “It’s just a storeroom.” she said. I looked at the door again. I felt something about the door. It gave me a bad vibe. Sounds silly, it is just a door to a storeroom, but still, I couldn’t shake the feeling there is something wrong. 
+Finally we were in the downstairs hallway. The door I saw on the video was the last one on the right. It was closed. I asked the guide about it. She gave me a look. “It’s just a storeroom.” she said. I looked at the door again. I felt something about the door. It gave me a bad vibe. Sounds silly, it is just a door to a storeroom, but still, I couldn’t shake the feeling there is something wrong.
 
 &#x200B;
 
@@ -90,15 +90,15 @@ The tour ended back in the main foyer. There is a big mirror covering most of th
 
 &#x200B;
 
-I looked back, but there was nobody there. Is my mind playing tricks on me? Like the video I only remember someone in white, but my mind told me it was a woman. I spun around, looked at all the other people in the room, nobody was wearing white. Nobody was lurking in the corner. 
+I looked back, but there was nobody there. Is my mind playing tricks on me? Like the video I only remember someone in white, but my mind told me it was a woman. I spun around, looked at all the other people in the room, nobody was wearing white. Nobody was lurking in the corner.
 
 &#x200B;
 
-We left the house and walked to our car. I was thinking about the house and what I thought I saw. I was trying to convincing myself I imagined everything. When I looked back at the house. I first looked at the girl’s room, on the second floor, but saw nothing. Then I saw below it, where the storeroom was, something in the window. Someone in white. I turned to my husband and wanted to show him, but when I looked again, there was nothing. I started to consider I was going crazy. 
+We left the house and walked to our car. I was thinking about the house and what I thought I saw. I was trying to convincing myself I imagined everything. When I looked back at the house. I first looked at the girl’s room, on the second floor, but saw nothing. Then I saw below it, where the storeroom was, something in the window. Someone in white. I turned to my husband and wanted to show him, but when I looked again, there was nothing. I started to consider I was going crazy.
 
 &#x200B;
 
-On the way back my husband asked me if I was okay, he explained I looked a bit pale. I told him I was just tired. I thought maybe I was going crazy. I was imagining things. This was going to be a problem. 
+On the way back my husband asked me if I was okay, he explained I looked a bit pale. I told him I was just tired. I thought maybe I was going crazy. I was imagining things. This was going to be a problem.
 
 &#x200B;
 
@@ -106,11 +106,11 @@ At home I took a nap and felt better when I woke up. I decided to take shower be
 
 &#x200B;
 
-I didn’t do it. Perhaps my husband was still playing a joke on me, sneaked in while I was in the shower. I was not going to give him the joy to show my reaction. I wiped the mirror with the towel. 
+I didn’t do it. Perhaps my husband was still playing a joke on me, sneaked in while I was in the shower. I was not going to give him the joy to show my reaction. I wiped the mirror with the towel.
 
 &#x200B;
 
-I was still mad at my husband when we went to bed. I slept with my back to him. I dreamed a woman was in the room, sitting on the edge of the bed, just staring. She was wearing a white dress. 
+I was still mad at my husband when we went to bed. I slept with my back to him. I dreamed a woman was in the room, sitting on the edge of the bed, just staring. She was wearing a white dress.
 
 &#x200B;
 
@@ -130,11 +130,11 @@ Finally I had to go see the house again. Something was drawing me to it. My trou
 
 &#x200B;
 
-I went straight to the door in the hallway. I declined the tour, the guide just shrugged. It looked like the other doors. I touched it. A normal door. Yet I still feel something is wrong. 
+I went straight to the door in the hallway. I declined the tour, the guide just shrugged. It looked like the other doors. I touched it. A normal door. Yet I still feel something is wrong.
 
 &#x200B;
 
-I saw an old man watching me. It looks like he worked there, maybe a caretaker or groundskeeper of the house.  I quickly left. I stood outside, facing the house. Looking at the windows. I saw nothing strange. But still, I felt strange, I was sure someone was watching me. 
+I saw an old man watching me. It looks like he worked there, maybe a caretaker or groundskeeper of the house.  I quickly left. I stood outside, facing the house. Looking at the windows. I saw nothing strange. But still, I felt strange, I was sure someone was watching me.
 
 &#x200B;
 
@@ -158,7 +158,7 @@ I jumped and gave a little suppressed scream. It was the old man. He apologized,
 
 &#x200B;
 
-“What scandal? And what women?” I asked. 
+“What scandal? And what women?” I asked.
 
 &#x200B;
 
@@ -174,7 +174,7 @@ He chuckled and shook his head.
 
 &#x200B;
 
-He looked like he was considering things, making a decision. 
+He looked like he was considering things, making a decision.
 
 &#x200B;
 
@@ -290,7 +290,7 @@ On my way home I thought about it a lot. I didn’t know why I could see a ghost
 
 &#x200B;
 
-I decided I would start with making things better between my husband and me. I no longer thought it was a prank, it was something else and  he had nothing to do with it. 
+I decided I would start with making things better between my husband and me. I no longer thought it was a prank, it was something else and  he had nothing to do with it.
 
 &#x200B;
 
@@ -302,7 +302,7 @@ I was in a better mood when I got back home. I started with the food. Checked th
 
 &#x200B;
 
-Luckily the shop is just around the corner, five, ten minutes maximum. I left the food in the stove and quickly walked to the shop. It took a little bit more than ten minutes. 
+Luckily the shop is just around the corner, five, ten minutes maximum. I left the food in the stove and quickly walked to the shop. It took a little bit more than ten minutes.
 
 &#x200B;
 
@@ -310,7 +310,7 @@ On my way out of the shop I heard and then saw the fire trucks racing around the
 
 &#x200B;
 
-Our house was on fire. Smoke was pouring out the windows and doors, there were two fire trucks in front of the house, light flashing in the dusk, neighbors on the sidewalks, staring. 
+Our house was on fire. Smoke was pouring out the windows and doors, there were two fire trucks in front of the house, light flashing in the dusk, neighbors on the sidewalks, staring.
 
 &#x200B;
 
@@ -318,7 +318,7 @@ I ran over, but a fire fighter stopped me. I tried to explain that it was my hou
 
 &#x200B;
 
-Eventually they called us over. The fire was mostly in the kitchen, the rest of the house would be fine. Just need to air it out, there was a lot of smoke, maybe some repainting. They explained that it seems like the oven exploded. I sheepishly admitted I left food in the oven while going to shop. I received a lecture about leaving a stove unattended. I thought it was a minimal risk, but the burned down kitchen proved otherwise. 
+Eventually they called us over. The fire was mostly in the kitchen, the rest of the house would be fine. Just need to air it out, there was a lot of smoke, maybe some repainting. They explained that it seems like the oven exploded. I sheepishly admitted I left food in the oven while going to shop. I received a lecture about leaving a stove unattended. I thought it was a minimal risk, but the burned down kitchen proved otherwise.
 
 &#x200B;
 
@@ -326,11 +326,11 @@ We went to fetch our clothing and toiletries; we were going to sleep at the neig
 
 &#x200B;
 
-On the way out I checked the mailbox. More out of routine than anything else. 
+On the way out I checked the mailbox. More out of routine than anything else.
 
 &#x200B;
 
-And that is where I found it. 
+And that is where I found it.
 
 &#x200B;
 
@@ -338,10 +338,8 @@ A letter, on old stationary, handwritten, in an unsealed envelope. It had a hear
 
 &#x200B;
 
-“*My beloved Ronald. We can finally love each other now that your wife is no longer there to stop our true love from blossoming. I just know we will be so happy together. I will be a much better wife than what she could have ever been. She did not deserve you. Forever yours, T.*” 
+“*My beloved Ronald. We can finally love each other now that your wife is no longer there to stop our true love from blossoming. I just know we will be so happy together. I will be a much better wife than what she could have ever been. She did not deserve you. Forever yours, T.*”
 
 &#x200B;
 
-And a heart with an arrow piercing it, R.T. in the right top corner, T.J in the lower left corner. 
-
-(Final draft 2022/11/03 - 3391 words)
+And a heart with an arrow piercing it, R.T. in the right top corner, T.J in the lower left corner.
