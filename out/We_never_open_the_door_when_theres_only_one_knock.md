@@ -88,7 +88,7 @@ I shook my head and laughed.
 
 I’d never told Max about the fight, in fact, nobody but my parents knew about it.
 
-"I loved that damn thing. Won it at the Halloween carnival. When Ruby saw it she begged me to give it to her, she cried for hours because she hadn't won it. And even when my parents said she'd buy her another toy she wouldn't stop. She wanted mine."
+"I loved that damn thing. Won it at the Halloween carnival. When Ruby saw it she begged me to give it to her, she cried for hours because she hadn't won it. And even when my parents said they'd buy her another toy she wouldn't stop. She wanted mine."
 
 "Well, she wanted to be just like you. It's sweet."
 
@@ -170,6 +170,6 @@ My hands touched the cold door handle, moving almost as if I was in a trance.
 
 Those words pierced through my body and woke something up inside of me. I stepped away from the door and walked back upstairs passing my room where Max was still lying still. But I didn't stop, I walked to the next room. Ruby's old bedroom. Everything there looked just the way it did when she was still here. My parents could never change it.
 
-Everything was still the same. And Jack was still placed on her bed where I put it five years ago after I'd sewn him back together.
+Everything was still the same. And Jack was still placed on her bed where I put it five years ago after I'd sewn it back together.
 
 [They almost got me.](https://www.reddit.com/r/Likeeyedid/)
