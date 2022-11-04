@@ -130,7 +130,7 @@ There were several different vocal chords in this particular voice and it defini
 
 the sad reality is, I have no time to ponder any of this.
 
-My legs are no longer working, and the blood is draining from my body quick.
+My legs are no longer working, and the blood is draining from my body very quickly.
 
 My fingers have been nearly sawn off because I tried to catch the butcher’s knife that repeatedly rammed into my back and out of my stomach.
 
@@ -144,4 +144,4 @@ I’m dying.
 
 Once Meghan or the thing possessing Meghan’s body, ensured I was mutilated, she dragged me to a small closet, threw me in and locked the door.
 
-As my life continues to drain away, I see blueprints and books from Amazon on how to build a couch from scratch. There’s nothing I can do but wait. But I sure do hope that I’m fully dead when she changes me and not like whoever it was that was turned into that ottoman... because boy does it stank!
+As my life continues to drain away, I see blueprints and books from Amazon on how to build a couch from scratch. There’s nothing I can do but wait. But one thing is for sure... I sure do hope that I’m fully dead when she changes me and I'm not like whoever it was that was turned into that ottoman... because boy does that ottoman stank!
