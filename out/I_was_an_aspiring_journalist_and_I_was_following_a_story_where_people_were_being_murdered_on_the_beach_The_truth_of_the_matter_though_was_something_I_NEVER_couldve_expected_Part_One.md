@@ -347,3 +347,5 @@ On the ride back, one thing kept repeating in my mind. That was too easy. Everyt
 To top all of that off, they were adamant about keeping my camera, JUST to be able to keep to this story. In other words, I couldn't tell whether they, themselves, actually believed in the legends of the "SunnyShore Slasher" or if they were just trying to shut everybody up. One thing I *was* 100% certain of, though, was that there was definitely something they weren't wanting me to see, and it definitely had something to do with the bodies.
 
 [Next](https://www.reddit.com/r/nosleep/comments/ykojqj/i_was_an_aspiring_journalist_and_i_was_following/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[FINAL](https://www.reddit.com/r/nosleep/comments/yll5g6/i_was_an_aspiring_journalist_and_i_was_following/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

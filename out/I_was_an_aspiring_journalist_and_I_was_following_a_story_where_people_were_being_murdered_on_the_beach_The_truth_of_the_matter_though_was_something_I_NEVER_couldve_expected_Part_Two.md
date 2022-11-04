@@ -111,3 +111,5 @@ That’s when everything came flooding back to me and I swiped my phone up from 
 That was it. I was screwed, essentially. Even getting the phone turned back on, I’d still lose all of the pictures from that night. I had the ones that’d been sent to Nolan, sure, but no one was gonna take *that* seriously. “Just another shark attack”, that’d be what they called it. Yeah, okay, it’d be *A STORY*, and yeah, I’d make a bit of cash from it, but that’s NOT what the fuck happened here!
 
 I knew it, “Tired Tracy” sure as hell knew it, and I was willing to bet every Penny to my name the police knew about it as well. That then became my next move: find “Tired Tracy” and figure out what they were doing with her on the beach that night. I took a glance down at the footprint and back to the morning tide. I knew it wouldn’t be long before that’d be washed away. *Goddamn it, what I wouldn’t give to have my camera again...*
+
+[FINAL](https://www.reddit.com/r/nosleep/comments/yll5g6/i_was_an_aspiring_journalist_and_i_was_following/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
