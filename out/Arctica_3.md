@@ -22,11 +22,11 @@ Chloe shook her head and I watched her lips form on her face but no sound came o
 
 I glanced down at the monitor, the readings were inconclusive. "Come on you piece of shit, work." I hit the side of it with my glove. Still nothing. I could feel my hand throbbing underneath the material. It was cold in here. I glanced at the temperature. It was dropping every second.
 
-Inside these storms, temperatures could get below 60 degrees. In 1983, near Vostok station, it got even colder than that. At negative 50 degrees, a passing wind can take your nose and ears. At 100, the body starts to freeze in place. I looked at the readings and saw the arrow head for the red.
+In the arm of the storm, temperatures could get below 60 degrees. In 1983, near Vostok station, it got even colder than that. At negative 50 degrees, a passing wind can take your nose and ears. At 100, the body starts to freeze in place. I looked at the readings and saw the arrow head for the red.
 
-"We have to get warm," I struggled to form those thoughts in my head. I reached for the hot pads, crushing them between my gloves until they popped. I watched the foil expand until it was bloated around the middle. I offered it to Chloe but she refused to take her eyes off the road in front of us. They were glued into the windshield, staring out into white abyss, hypnotizing her into place.
+"We have to get warm," I struggled to remember. Soon it was all I could think of as I reached for the hot pads, crushing them between my gloves until they popped. I watched the foil expand until it was bloated around the middle. I offered it to Chloe but she refused to take her eyes off the road in front of us. They were glued into the windshield, staring out into white abyss, hypnotizing her into place.
 
-I think I tried to say something, maybe at how pointless it was to be that vigilante during this time. At these speeds ' if there were anything in our way, we would hit it, any markers, and we would still miss it. These thoughts were swirling in my head as I looked forward and saw the arm start to dip downward, its head still missing from the white swallow before us as we began to fall in slow motion.
+I think I tried to say something, maybe at how pointless it was to be that vigilante during this time. At these speeds ' if there were anything in our way, we would hit it, any markers, and we would still miss it. These thoughts haunted me as I looked forward and saw the arm start to dip downward, its head still missing from the white swallow before us as we began to fall in slow motion.
 
 Suddenly my stomach felt as if a knife had plunged its cold steel into my abdomen, the tip spooning out flecks of my belly button as it scraped my spine. Reopening the mouth I first ate from my mother. As we dropped. The headlong of the crawler crashed into a part of the ice as the walls speared upward in every direction. The yellow eyes of the crawler blinked as darkness came in bursts around us before it all just became black.
 
@@ -36,11 +36,11 @@ Suddenly my stomach felt as if a knife had plunged its cold steel into my abdome
 
 &#x200B;
 
-When I woke up, it wasn't due to the cold. At this point, I had already welcomed it like a friend. It was the sound of the steel crumpling that shook me from eternal slumber. I lazily glanced over and saw Chloe's neck slumped into her chest. An orange beacon was blinking on the dash. And a splinter of light reflected off the ice as the other headlamp laid dead in front of us.
+When I woke up, it wasn't due to the cold. At this point, I had already welcomed it like a friend. It was the sound of the steel crumpling that shook me from going gently. I lazily glanced over and saw Chloe's neck slumped into her chest. An orange beacon was blinking on the dash. And a splinter of light reflected off the ice as the other headlamp laid dead in front of us.
 
 "Chloe," I murmured. "Chloe?" I shook her slightly but she wouldn't stir, though I could see the faint trails of life coming from her nostrils and knew that she was breathing. So I took the chance to observe our surroundings.
 
-We had fallen through a crevasse, this much was clear. Walls of ice in every direction and a darkness so deep that I couldn't even call it black, below us, only an absence. The crawler looked to be wedged. And the sky above us was nothing but an angry howl of ice and fury.
+We had fallen through a crevasse, this much was clear. Walls of ice in every direction and a darkness so deep below us that I couldn't even call it black, only an absence. The crawler looked to be wedged. And the sky above us was nothing but an angry howl of ice and fury.
 
 The steel groaned again.
 
@@ -70,7 +70,7 @@ She scrambled to the passenger side, her boots pressing against my thigh as she 
 
 All I see is a hand reaching down from above, "Hand me an axe. And the rope."
 
-I slowly handed her both items, watching them disappear from view as her footprints clatter above me. "Chloe?" I wait for a few seconds before I see the rope appear.
+I slowly handed her both items, watching them disappear from view as her footprints clatter above me. "Chloe?" I wait for a few seconds before I see the rope re-appear.
 
 "Come on, what are you waiting for?"
 
@@ -78,7 +78,7 @@ I grab the rope and secured it to my waist. Before I start to climb out, I see t
 
 "Come on," she calls again.
 
-I yanked on the rope and somehow managed to hoist myself upward. My muscles shook unsteadily as I clamper onto the roof of the crawler. I stick my leg under a railing and wrap my knee around it, catching my breath as I laid flat.
+I yanked on the rope and somehow managed to hoist myself upward. My muscles shook unsteadily as I clamper onto the roof of the crawler. I stick my leg under a loading rail attached to the top and wrap my knee around it, gasping a lungful of air as I laid flat in near exhaustion.
 
 I had barley closed my eyes when I start to hear the sound of steel again. Except this time, it was that of an ice screw which Chloe was turning into the wall face. "These will hold us," she told me.
 
@@ -126,9 +126,9 @@ There was hardly any room and with each passing second it got tighter. I wasn't 
 
 I could see Chloe's face staring down at me. She was screaming, but I couldn't hear her. The storm was still blowing wildly and she was reaching her hand down at me. I hear another crack as the sheets shifted and my vision began to blur.
 
-It was right before I blacked out that I felt something tugging around my arms. It felt as if they would be yanked right out of their sockets. Suddenly something gave, the pressure around my leg was gone and I was pulled out.
+It was right before I blacked out that I felt something tugging around my arms. It felt as if they would be yanked right out of their sockets. Suddenly something gave, the pressure around my leg was gone and I was pulled out into the storm.
 
-That was when I noticed, that the storm had passed. And it was the helicopter whirling nearby that was kicking up the snow. I could see someone helping Chloe onboard. And a stretcher had been brought out for me as two others strapped me down. I clutched the beacon in my hands dearly, as I slowly drifted to sleep.
+It was only when I felt the tears start freezing on my cheek that I realized, that the storm had already passed. And the raging blast of snow was from the helicopter whirling nearby. I could see someone helping Chloe onboard. And a stretcher had been brought out for me as two others strapped me down. I clutched the beacon in my hands dearly, as I slowly drifted to sleep.
 
 &#x200B;
 
@@ -152,7 +152,7 @@ The woman turned to look at me. I recognized her, though I've never been formall
 
 "London?"
 
-"Why did you leave him," Dr. Grant asked. "You went against protocol. It's one of the company rules."
+"Why did you leave him," Dr. Grant asked. "You went against protocol. Against one of the company rules."
 
 "Oh my god. London." I could feel the tears welling in my eyes. "You're alive. How?"
 
@@ -160,7 +160,7 @@ The woman turned to look at me. I recognized her, though I've never been formall
 
 "London we thought you were dead. That...it took you."
 
-"The drill? The thing didn't fall 5 feet. It was collapsed you fucking idiot! Do you know how cold I was? If I hadn't figured out a way to send a signal through the Pixie Tube antennas I would have died!" He turned to Dr. Grant, "This is negligence at its finest. An utter betrayal on the ice. What's the head office going to do about this?"
+"The drill? The thing didn't fall 5 feet. It was collapsed you fucking idiot! Do you know how cold I was?" I could see his face stutter. "How miserable?" He held up accusatory finger, "If I hadn't figured out a way to send a signal through the Pixie Tube antennas I would have died!" He turned to Dr. Grant, "This is negligence at its finest. An utter betrayal on the ice. What's the head office going to do about this?"
 
 "London, we didn't know." I looked at him desperately, "We thought. You thought. There was something down there."
 
@@ -168,17 +168,17 @@ He rounded on me, "What the hell are you talking about? Have you two gone crazy?
 
 "London," I begged.
 
-"I'm going to make sure neither of you ever work here again. I'm going to make sure everyone knows what you did." He gets in my face, "They'll never trust you near a block of ice, 10 feet, for the rest of your lives."
+"I'm going to make sure neither of you ever work here again. I'm going to make sure everyone knows what you did." He gets in my face, "They'll never trust you near a block of ice, for the rest of your lives. You won't even get an ice cube for your drink without thinking the word lawsuit."
 
 Before I could say anything else, someone else came to the door. I didn't recognize him but he addressed Dr. Grant all the same, "I think you have to come see this." She looked at him, and he nodded. This caused Dr. Grant to get out of the chair and follow the man.
 
 London watched her walk away, turning to me before he followed her out, "We're not through. You hear me?"
 
-When they had left me alone in the room. The smell of antiseptic in the air and the machines buzzing and beeping around me I realized that I couldn't stand another minute of being alone, so I followed them out. Hobbling as the bandages to my torso limited my movement. Tracking my way down the long hall, passing by the sleeping quarters until I saw where many other have gathered near the large double windows carved into the concrete.
+When they had left me alone in the room. The smell of antiseptic in the air and the machines buzzing and beeping around me, I realized that I couldn't stand another minute of being alone, so I followed them out. Hobbling as the bandages to my torso limited my movement. Tracking my way down the long hall, passing by the sleeping quarters until I saw where many others have gathered, near the large double windows carved into the concrete.
 
 I tried peering through their shoulders but it was difficult to discern what was happening out there. It wasn't until I got closer, standing nearly next to London that I noticed what everyone was looking at.
 
-Outside on a hill of snow and ice, just far away enough that it was difficult to make out their faces, stood a line of shadows in various states of dress. Five figures on the ridge, standing there, staring toward our direction.
+Outside on a hill of snow and ice, just far away enough that it was difficult to make out their faces, stood a line of shadows in various states of dress. Five figures on the ridge, standing there, staring in our direction.
 
 I glanced at the temperature outside, it read negative 68 degrees.
 
