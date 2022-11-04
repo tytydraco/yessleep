@@ -2,7 +2,7 @@ I didn’t really feel like visiting Meghan today, but she was adamant. “Come 
 
 We can talk about Josh.
 
-Meaning Josh Stapleton, the guy I’d been crushing on for about 6 months now. In all honesty, I not only wanted to talk about Josh, I wanted to work with Meghan to come up with some sort of plan to get Josh over to her place. Maybe say we were throwing a small party, kickback, maybe just a chill session, whatever… anything we could think of to get him to swing by.
+Meaning Josh Stapleton, the guy I’d been crushing on for about 6 months now. In all honesty, I not only wanted to talk about Josh, I also wanted to work with Meghan to come up with some sort of plan to get Josh over to her place. Maybe say we were throwing a small party, kickback, maybe just a chill session, whatever… anything we could think of to get him to swing by.
 
 As soon as I walked through her front door though, all plans changed.
 
