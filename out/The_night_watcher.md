@@ -10,7 +10,7 @@ I shouldn’t have.
 
 I awoke at around four in the morning. The room was usually pitch black. Except, this time wasn’t. A small circular light was on my bed from an unknown source. My phone was on my nightstand, so it couldn’t have been that, nor could it have been some other piece of technology, as they were all stored away in my office. It had a faint yellow tint, and the more I stared, the more I realized that it was coming from outside. 
 
-My heart began to race as I felt the cold sweat begin to form on my back. What could it be? I lived on the 30th floor. 
+My heart began to race as I felt cold sweat begin to form on my back. What could it be? I lived on the 30th floor. 
 
 There’s no way it could have been human. 
 
@@ -22,7 +22,7 @@ This happened for the next few months.
 
 I could feel my body deteriorating. I could no longer eat, no longer sleep, and due to this, no longer able to preform simple tasks. I got fired, and my life fell into a pit of despair. This however, also enlightened some form of rage within me. I was angry at this creature for destroying me. For watching me. Why me? 
 
-So that night, I was prepared. I stayed up, as per usual, and the yellow light showed up once again. Now my curtains were usually closed, but they fail to cover up my entire window, so there’s always a little crack in the corner. I slowly snuck up from my bed, dodging the light, hoping that it didn’t notice my movements. 
+So that night, I was prepared. I stayed up, as per usual, and the yellow light showed up once again. I slowly snuck up from my bed, dodging the light, hoping that it didn’t notice my movements. 
 
 I stood, and picked up a knife from my bedside drawer and swung open my curtains. 
 
