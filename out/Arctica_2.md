@@ -1,6 +1,4 @@
-[Arctica 1](https://www.reddit.com/r/nosleep/comments/y3kplm/arctica/)
-
-[Arctica 3](https://www.reddit.com/r/nosleep/comments/yjygxk/arctica_3/)
+[Arctica 1](https://www.reddit.com/r/nosleep/comments/y3kplm/arctica/) ||2 || [3](https://www.reddit.com/r/nosleep/comments/yjygxk/arctica_3/) || [4](https://www.reddit.com/r/nosleep/comments/ymgebw/arctica_4/)
 
 &#x200B;
 

@@ -74,7 +74,7 @@ I put my hand to my mouth. “Oh God, poor kid.”
 
 “How did you even get him here?” I asked, following them into the elevator.
 
-“With his help. He was a very level-headed child in spite of his situation. His parents had talked to him about CoveScope and the different gifts that could manifest, and he called us crying, saying he was a Killer.”
+“With his help," Agent Tesfeye said. "He was a very level-headed child in spite of his situation. His parents had talked to him about CoveScope and the different gifts that could manifest, and he called us crying, saying he was a Killer.”
 
 My heart broke. “Oh, no, the poor boy.”
 
@@ -188,7 +188,7 @@ A minute later, I hadn’t moved a muscle, neither voluntarily or involuntarily.
 
 “Why don’t we make each other clap?” Agent Kent said. “Let’s go.”
 
-Not a second later, they were both clapping. At least until Kent slapped her own face.
+Not a second later, they were both clapping. At least until Agent Kent slapped her own face.
 
 “Hey!” she said, glaring at her brother as I tried to hide my chortle.
 
@@ -728,7 +728,7 @@ I met Qadir’s eyes with hope as I asked her, “So, you believe me?”
 
 “What about the security cameras?” I asked.
 
-“We checked them right after Finch told us where you went,” Agent Rodriguez said. “The only interaction between you two is the exchanging of a few words before he walks off. Then you go to a blind spot in the hall and emerge with Agent Hansen’s security card.”
+“We checked them right after Finch told us where you went,” Agent Rodriguez said. “The only interaction between you two is the exchanging of a few words before he walks off. Then you go to a blind spot in the hall and emerge with Agent Silva's security card.”
 
 “Damn it!” I took a few irritated breaths before I said, “I understand. I’m just glad what happened didn’t result in any casualties. We’ll just have to be strong and show him he can’t win.”
 
