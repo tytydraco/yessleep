@@ -72,7 +72,7 @@ I gasped, then jumped back.
 
 I wasn’t expecting him to interact with me. Yet here he was, exceeding my expectations.
 
-So, I kept feeding Roger twice daily, and over time, he grew larger until he almost outgrew the glass jar.
+So, I kept feeding Roger until he almost outgrew the glass jar.
 
 I returned to the hospital for advice.
 
@@ -94,7 +94,7 @@ Roger had not just survived but thrived, even breathing on his own.
 
 \---
 
-For the next few weeks, I marveled at Roger’s progress. He was a rapid learner, catching onto English without difficulty and speaking in complete sentences after one month. I even arranged to get Roger a haircut and a manicure to trim his talon-like nails.
+After taking him home, I marveled at Roger’s progress. He was a rapid learner, catching onto English without difficulty and speaking in complete sentences before long. I even arranged to get Roger a haircut and a manicure to trim his talon-like nails.
 
 And Roger had a quirky sense of humor. He made jokes, flirted with women, and was more popular than I was. I even felt a little jealous.
 
@@ -130,7 +130,7 @@ But Roger didn’t get his own place. Instead, things took a darker turn.
 
 \---
 
-With each passing week, Roger stayed out late, often returning home at dawn.
+Over time, Roger stayed out later, often returning home at dawn.
 
 “Where do you go all night?” I asked, feeling like a suspicious spouse.
 
@@ -138,39 +138,41 @@ With each passing week, Roger stayed out late, often returning home at dawn.
 
 I figured he had a new girlfriend and hoped whoever she was would ask him to move in with her soon. But Roger said nothing more.
 
-Later, after midnight that night, I awoke to a loud crash from the living room. Alarmed, I grabbed my baseball bat and prepared my cell phone to call 911 if necessary. Then I tiptoed into the living room toward the sound, my baseball bat in hand.
+Later, after midnight that night, I awoke to a loud crash from the living room. Alarmed, I grabbed my baseball bat and prepared my cell phone to call 911. Then I tiptoed into the living room toward the sound.
 
 But I dropped my phone and gasped when I rounded the living room corner. Roger stood in the doorway holding an overfilled trash bag as dark fluid dripped onto the carpet.
 
-My hand flew to my mouth, horrified. “Holy shit, Roger. What’s in the bag?”
+My hand flew to my mouth. “Holy shit, Roger. What’s in the bag?”
 
 He glanced at the bag and shrugged. “Oh, this? Nothing. Just doing some house cleaning.”
 
 “What’s in there?”
 
-Roger’s eyes darkened, and his body stiffened, sending chills through me, and something told me to stop asking questions.
+Roger’s eyes darkened, and his body stiffened, sending chills through me, and something told me to stop talking.
 
 I pretended to believe him, then returned to my bedroom panicking, desperate for an escape plan.
 
-What was I supposed to do? If I reported Roger, the police would do nothing without evidence of a crime. And at that point, Roger had already disposed of the bags, so there wasn’t evidence of anything. There were some dark stains on the carpet, but the police wouldn’t have bothered. Besides, calling the cops would have worsened Roger’s wrath.
+What was I supposed to do? If I reported Roger, the police would do nothing without evidence of a crime. And at that point, Roger had already disposed of the bags, so there wasn’t evidence of anything. There were some dark stains on the carpet, but the police wouldn’t have bothered with those. Besides, calling the cops would have worsened Roger’s wrath.
 
 *But what the hell was in the bag?* I wondered.
 
-That night, I decided I didn’t want to know, and I returned to sleep, telling myself I was overthinking the situation.
+That night, I decided I didn’t want to know, and I returned to sleep, telling myself I was overthinking everything.
 
-But similar incidents continued for the next two months. Roger would return home late, sometimes carrying stuffed trash bags, or I would find dark stains on the couch and carpet the next day.
+But these incidents continued. Roger would return home late, sometimes carrying stuffed trash bags, or I would find dark stains on the couch and carpet the next day.
 
 Sometimes, I found random wallets and car keys hidden in desk drawers, but I learned to play dumb. Still, I felt like a fearful partner walking on eggshells to appease a volatile spouse.
 
 Then one day, I couldn’t pretend anymore. It was time to confront Roger whether he liked it or not.
 
-One morning, I was making waffles when a musty odor wafted through the vent from the basement. I sniffed a few times, then turned on a fan.
+One morning, I was making waffles when a musty odor wafted from the basement.
 
 It smelled like old seafood or rotting meat.
 
 *What the hell is that?* I wondered.
 
-Roger wasn’t home, so it was my chance to find out. I usually avoided the basement because that’s where Roger slept, and I tried to avoid him. So, I turned the knob to the basement door and tiptoed downstairs.
+Roger wasn’t home, so it was my chance to investigate.
+
+I usually avoided the basement because that’s where Roger slept, and I tried to avoid him. But this time, I turned the basement door knob and tiptoed downstairs.
 
 “Roger,” I called, making sure he wasn’t home.
 
@@ -180,7 +182,7 @@ Silence.
 
 Nothing.
 
-But the putrid stench intensified, forcing me to pinch my nose and breathe from my mouth.
+But the putrid stench intensified, forcing me to breathe from my mouth.
 
 The basement was piled ceiling-high with junk—sweat socks, dirty sheets, food crusted to dinner plates—but nothing looked amiss.
 
@@ -200,7 +202,9 @@ Chunks rose in my throat, and I projectile vomited into the sink, unable to cont
 
 Then, with trembling hands, I dialed 911, shaking as I reported the incident.
 
-The police arrived minutes later and removed the severed heads from the refrigerator. But they never found Roger, not even after their nationwide search.
+The police arrived minutes later and removed the severed heads from the refrigerator.
+
+But they never found Roger, not even after their nationwide search.
 
 And Roger never came home after that.
 
