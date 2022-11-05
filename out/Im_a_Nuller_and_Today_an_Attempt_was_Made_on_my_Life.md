@@ -622,13 +622,13 @@ He looked at me with sorrow. "Yes, I think it's safer for you to leave."
 
 He turned away in distress, and I tried to stifle my aching heart as I said, "Listen, let’s take this slow. I’ll go, we’ll both talk to more experienced agents, and we’ll figure out a safe way to do this. Okay?”
 
-He nodded, wiping his nose on his arm.
+He nodded.
 
 “Alright.” I took a final sip of my hot chocolate. “Thank you so much for this, and for teaching me a new trick with the cinnamon stick!”
 
 “Oh, you’re welcome.”
 
-“If you’ll just show me how to operate the elevator, I’ll be on my way.”
+“If you can show me how to operate the elevator, I’ll be on my way.”
 
 “I can’t control it.” His skeptical eyes met mine. “Wait, you didn't tell me how you got here."
 
@@ -654,13 +654,13 @@ I put my hand to my mouth in shock. "He said that? Did you tell Agent Rodriguez?
 
 “So they just let him keep bullying you like that?”
 
-“They revoked his access to my elevator, in case he sent up poisoned food. They also began recording my calls, but he started calling from other numbers. Disguising his voice. I blocked so many numbers. But when I got older, it was like … a challenge. Even when I’m close to … to doing it … I don’t want to give him the satisfaction. But now he’s doing the same to you. Your gift protected you from his, didn't it?"
+“They revoked his access to my elevator, in case he sent up poisoned food. They also began recording my calls, but he'd call from other numbers. Disguise his voice. I blocked so many numbers. But when I got older, it was like … a challenge. Even when I’m close to … to doing it … I don’t want to give him the satisfaction. But now he’s doing the same to you. Your gift protected you from his, didn't it?"
 
-"It did. And he wasn't happy."
+"It did."
 
 He nodded. “He sent you here to die. And I’m sure he … he hoped I'd kill myself for killing you."
 
-I curled my lip in disgust. “Well, if that was his plan, he failed. We’re both witnesses to what he’s done. And there are security cameras showing him throwing the card to me. I’m going to talk to Agent Rodriguez.”
+I curled my lip in disgust. “Well, if that was his plan, he failed. We’re both witnesses and there are security cameras showing him throwing the card to me. I’m going to talk to Agent Rodriguez.”
 
 He nodded.
 
@@ -736,13 +736,13 @@ Qadir nodded. “I agree.”
 
 “We're going to keep this between us," Agent Rodriguez said. "We'll say Linda found the card and explored nearby elevators."
 
-Qadir and I looked at each other, dejected. "Okay," we said in unison.
+Qadir and I looked at each other, dejected. "Okay."
 
 "Linda, I’m sending the elevator up for you. I’m glad no one was affected, but we still need to complete your assessment before you interact any further with Qadir.”
 
 “I understand,” I said.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/ykf4te/im_a_veterinarian_but_my_last_patient_was_a/) - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - **Part 3** - *Part 4* - *Part 5*
+[Part 1](https://www.reddit.com/r/nosleep/comments/ykf4te/im_a_veterinarian_but_my_last_patient_was_a/) - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - **Part 3** - [Part 4](https://www.reddit.com/r/nosleep/comments/yn8yu5/im_a_nuller_and_people_are_after_me/) - *Part 5*
 
 \-----
 

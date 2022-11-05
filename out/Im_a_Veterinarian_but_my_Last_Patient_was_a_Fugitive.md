@@ -152,7 +152,7 @@ He opened his mouth to speak, but a distant siren made us both jump. Not a secon
 
 After a moment of stunned confusion, my arms dropped to my side and I released a quivering sob, tears of relief and regret welling in my eyes. Despite being so close to death, I couldn't help but feel like a failure. I couldn't help him. I just hoped he wouldn't end up like my son, discovered on a forgotten curb days after he took his last breath, months after he last heard the words “I love you.”
 
-**Part 1** - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - [Part 3](https://www.reddit.com/r/nosleep/comments/ymar27/im_a_nuller_and_today_an_attempt_was_made_on_my/) - *Part 4* - *Part 5*
+**Part 1** - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - [Part 3](https://www.reddit.com/r/nosleep/comments/ymar27/im_a_nuller_and_today_an_attempt_was_made_on_my/) - [Part 4](https://www.reddit.com/r/nosleep/comments/yn8yu5/im_a_nuller_and_people_are_after_me/) - *Part 5*
 
 \-----
 
