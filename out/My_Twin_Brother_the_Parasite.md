@@ -6,19 +6,19 @@ Sometimes I joked back, made up a due date, or said I planned to name the baby R
 
 Everyone laughed. But kids at school were vicious.
 
-These experiences bugged me more as I got older, especially as my stomach continued growing. Each year, my belly reached farther past my beltline, looking like an ever-expanding soccer ball under my skin. I felt like the pregnant woman in that alien movie.
+These experiences bugged me more as I got older, especially as my stomach continued growing. I felt like the pregnant woman in that alien movie.
 
 Yet doctors insisted I didn’t have a tumor.
 
-“Some people just carry their weight in their belly,” said my primary care physician, despite my lack of belly fat.
+“Some people just carry their weight in their belly,” said my doctor, despite my lack of belly fat.
 
 Still, my appearance made dating difficult.
 
-“Sorry,” one woman said, laughing, when I asked her out. “I don’t date pregnant guys. Too much baggage.”
+“Sorry,” said one woman, laughing, when I asked her out. “I don’t date pregnant guys. Too much baggage.”
 
 I hung my head in shame, quit my job, and even contemplated hanging myself. Meanwhile, my belly kept growing.
 
-The rest of my body remained thin—underweight, even—but my belly ballooned like an unstoppable rebel force that I could neither contain nor extinguish.
+The rest of my body remained thin, but my belly ballooned like an unstoppable force that I could neither contain nor extinguish.
 
 Then one day, I found answers after a medical emergency landed me on the operating table.
 
@@ -28,9 +28,9 @@ I called 911 and was rushed to the ER for emergency surgery.
 
 \---
 
-When I awoke after surgery, a team of doctors huddled around me, wide-eyed.
+When I awoke from surgery, doctors huddled around me, wide-eyed.
 
-“What happened?” I asked through my anesthesia haze.
+“What happened?” I asked, groggy.
 
 “Robert, we removed the fetus,” one doctor said.
 
@@ -56,13 +56,13 @@ He even had adult feet.
 
 As gnarly as the creature was, I followed the doctors’ advice and took him home. I even named him Roger. At first, I didn’t know what to do with him, so I placed him on my nightstand.
 
-Neither the doctors nor I knew what to do with Roger, but they told me to feed him like I would a goldfish. So twice daily, I sprinkled crushed nutrients into his glass jar and observed Roger's eating habits.
+The doctors told me to feed Roger like I would a goldfish. So twice daily, I sprinkled crushed nutrients into his glass jar and observed his eating habits.
 
 The first two days were uneventful, and Roger didn’t touch his food. Then, just as I was about to give up, Roger opened his eyes.
 
 I pressed my face against the jar, eyeing my twin like a ghoulish science experiment. I poked and tapped at the jar, studying Roger and taking notes.
 
-One day, Roger pushed to the surface and gobbled the crushed food. Then, he turned to me and smiled. He even had a full set of adult teeth.
+One day, Roger pushed to the surface and gobbled the food. Then, he turned to me and smiled. He even had a full set of teeth.
 
 I gasped, then jumped back.
 
@@ -72,9 +72,9 @@ I wasn’t expecting him to interact with me. Yet here he was, exceeding my expe
 
 So, I kept feeding Roger until he almost outgrew the glass jar.
 
-I returned to the hospital for advice.
+Then, I returned to the hospital for advice.
 
-“It looks like Roger is ready for Phase II,” said the medical team overseeing Roger’s care.
+“It looks like Roger is ready for Phase II,” said the medical team.
 
 “Phase II?” I asked, confused.
 
