@@ -126,9 +126,9 @@ I didn't know what else to do, so I started yelling at it too. Hoping to distrac
 
 It worked.
 
-The thing turned toward me, and I saw the piercing blue eyes in its skull. The way the boulders on his shoulders flexed and turned like flesh as it looked down at me. I froze in terror as it stared. As its features started to melt away, growing smaller, becoming more like skin as it looked bacj at me with my own face.
+The thing turned toward me, and I saw the piercing blue eyes in its skull. The way the boulders on his shoulders flexed and turned like flesh as it looked down at me. I froze in terror as it stared. As its features started to melt away, growing smaller, becoming more like skin as it looked back at me with my own face.
 
-From the corner of my eye, I saw London drive the axe deep between into the creature's side. It howled, spitting out shards of ice that embedded itself into the walls. Shattering on impact. I shielded my face and started to run.
+From the corner of my eye, I saw London drive the axe deep between the creature's side. It howled, spitting out shards of ice that embedded itself into the walls. Shattering on impact. I shielded my face and started to run.
 
 "Keep going," I hear London shouting from behind me.
 
