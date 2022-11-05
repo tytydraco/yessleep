@@ -146,6 +146,12 @@ People like me aren’t trained to stop being afraid. We’re trained to *live* 
 
 Obviously I made it out alive, but not everyone was so lucky. I didn’t know that at the time, though; the only thing on my mind was that I had to [get back upstairs](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+-------------
+
+[What happened next](https://redd.it/ymt30m)
+
+-----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
