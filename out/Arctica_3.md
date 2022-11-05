@@ -1,4 +1,4 @@
-[Arctica 1](https://www.reddit.com/r/nosleep/comments/y3kplm/arctica/) || [2](https://www.reddit.com/r/nosleep/comments/ya9n8c/arctica_2/) || 3 || [4](https://www.reddit.com/r/CornerCornea/comments/ymgawl/arctica_4/)
+[Arctica 1](https://www.reddit.com/r/nosleep/comments/y3kplm/arctica/) || [2](https://www.reddit.com/r/nosleep/comments/ya9n8c/arctica_2/) || 3 || [4](https://www.reddit.com/r/nosleep/comments/ymgebw/arctica_4/)
 
 &#x200B;
 
@@ -16,7 +16,7 @@ I nodded. It was a sound I had only read about in the handbooks. At the time it 
 
 "It's like someone is gurgling rotten teeth!"
 
-Chloe shook her head and I watched her lips form on her face but no sound came out, none that I could hear as we were engulfed. The hail came in the size of pennies at first, but soon they began growing.
+Chloe shook her head and I watched her lips form on her face but no sound came out, none that I could hear as we were engulfed. The hail came in the size of quarters at first, but soon they began growing.
 
 I glanced down at the monitor, the readings were inconclusive. "Come on you piece of shit, work." I hit the side of it with my glove. Still nothing. I could feel my hand throbbing underneath the material. It was cold in here. I glanced at the temperature. It was dropping every second.
 
@@ -24,7 +24,7 @@ In the arm of the storm, temperatures could get below 60 degrees. In 1983, near 
 
 "We have to get warm," I struggled to remember. Soon it was all I could think of as I reached for the hot pads, crushing them between my gloves until they popped. I watched the foil expand until it was bloated around the middle. I offered it to Chloe but she refused to take her eyes off the road in front of us. They were glued into the windshield, staring out into white abyss, hypnotizing her into place.
 
-I think I tried to say something, maybe at how pointless it was to be that vigilante during this time. At these speeds ' if there were anything in our way, we would hit it, any markers, and we would still miss it. These thoughts haunted me as I looked forward and saw the arm start to dip downward, its head still missing from the white swallow before us as we began to fall in slow motion.
+I think I tried to say something, maybe at how pointless it was to be that vigilante during this time. At these speeds ' if there were anything in our way, we would hit it, any markers, and we would still plow right past them. These thoughts haunted me as I looked forward and saw the arm start to dip downward, its head still missing from the white swallow before us as we began to fall in slow motion.
 
 Suddenly my stomach felt as if a knife had plunged its cold steel into my abdomen, the tip spooning out flecks of my belly button as it scraped my spine. Reopening the mouth I first ate from my mother. As we dropped. The headlong of the crawler crashed into a part of the ice as the walls speared upward in every direction. The yellow eyes of the crawler blinked as darkness came in bursts around us before it all just became black.
 

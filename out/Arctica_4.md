@@ -2,7 +2,7 @@
 
 &#x200B;
 
-Dihydrogen monoxide is a versatile, frightening thing. Commonly known as H20. And most commonly known as water or ice, is also a gas. In its liquid form it has the ability to squeeze things until they collapse, by the sheer weight on its shoulders alone. In its gaseous state, it can reach temperatures capable of steaming a grown man alive. And as ice, it robs all things of heat, pulling the warmth right out of a person's bones until they can no longer move.
+Dihydrogen monoxide is a versatile, frightening thing. Commonly known as H20. And most commonly known as water or ice, is also a gas. In its liquid form it has the ability to squeeze things until they collapse, by the sheer weight on its shoulders alone. In its gaseous state, it can reach temperatures capable of flash steaming a grown man alive. And as ice, it robs all things of heat, pulling the warmth right out of a person's bones until they can no longer move.
 
 That's the thing about the Antarctic. No matter how many layers I've put on, or warm drinks, and blankets up to my ears.
 
