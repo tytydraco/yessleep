@@ -1,28 +1,28 @@
 For as long as I can remember, people called me “the pregnant boy.”
 
-I was a tall, gangly kid with a protruding belly that extended far past my beltline. In kindergarten, kids poked my belly and giggled. Then, in grade school and high school, even teachers asked, “When’s the baby due?”
+I was a tall, gangly kid with a protruding belly that extended far past my beltline. In kindergarten, kids poked my belly and giggled. Then, in grade school and high school, even teachers asked, “When's the baby due?”
 
-Sometimes, I joked back, made up a due date, or said I planned to name the baby Roger.
+Sometimes I joked back, made up a due date, or said I planned to name the baby Roger.
 
 Everyone laughed. But kids at school were vicious.
 
-These experiences irked me more as I got older, especially as my stomach continued growing. Each year, my belly reached farther past my beltline, looking like an ever-expanding soccer ball underneath my skin. I felt like the pregnant woman in that alien movie.
+These experiences bugged me more as I got older, especially as my stomach continued growing. Each year, my belly reached farther past my beltline, looking like an ever-expanding soccer ball under my skin. I felt like the pregnant woman in that alien movie.
 
 Yet doctors insisted I didn’t have a tumor.
 
-“Some people just carry their weight in their belly,” said my primary care physician, even though I didn’t have much stomach fat.
+“Some people just carry their weight in their belly,” said my primary care physician, despite my lack of belly fat.
 
-Still, my appearance made dating impossible.
+Still, my appearance made dating difficult.
 
-“Sorry,” said one woman, laughing when I asked her out. “I don’t date pregnant guys. Too much baggage.”
+“Sorry,” one woman said, laughing, when I asked her out. “I don’t date pregnant guys. Too much baggage.”
 
-I hung my head in shame and quit my job soon after. I even contemplated hanging myself from my ceiling—anything to end the pain. Meanwhile, my belly kept growing.
+I hung my head in shame, quit my job, and even contemplated hanging myself. Meanwhile, my belly kept growing.
 
-The rest of my body remained thin—underweight, even—but my belly grew, ballooning like an unstoppable rebel force that I could neither contain nor extinguish. Worse, the older I got, the larger my tummy grew.
+The rest of my body remained thin—underweight, even—but my belly ballooned like an unstoppable rebel force that I could neither contain nor extinguish.
 
 Then one day, I found answers after a medical emergency landed me on the operating table.
 
-Hours earlier, I was eating a Hot Pocket when something ripped.  At first, it sounded like a zipper busting on a pair of too-tight pants, but that wasn’t the problem. Instead, I looked down to see blood seeping through my white Hanes t-shirt, oozing like a crimson river from the stomach region.
+Hours before, I was eating a Hot Pocket when something ripped.  At first, it sounded like a zipper busting on a pair of too-tight pants, but that wasn’t the problem. Instead, blood seeped through my white Hanes t-shirt, oozing from my stomach like a crimson river.
 
 I called 911 and was rushed to the ER for emergency surgery.
 
@@ -30,9 +30,9 @@ I called 911 and was rushed to the ER for emergency surgery.
 
 When I awoke after surgery, a team of doctors huddled around me, wide-eyed.
 
-“What happened?” I asked through my drug-induced haze.
+“What happened?” I asked through my anesthesia haze.
 
-“Robert, we removed the fetus,” one doctor said, her face stern.
+“Robert, we removed the fetus,” one doctor said.
 
 I shot up in my bed.
 
@@ -44,21 +44,19 @@ He reached for the glass jar behind him.
 
 “Good *god*!” I said, panicking.
 
-I really was that woman from that alien movie.
-
-“Don’t worry,” the doctor said. “You weren’t *pregnant.* You had a rare medical condition called fetus in fetu. It only occurs in roughly one out of half a million pregnancies. It happens during twin pregnancies when one fetus gets trapped inside the other. Usually, both fetuses die, but you survived, and your brother lived as a parasite inside you.”
+“Don’t worry,” the doctor said. “You weren’t *pregnant.* You had a rare medical condition called fetus in fetu. It only occurs in one out of half a million pregnancies. It happens during twin pregnancies when one fetus gets trapped inside the other. Usually, both fetuses die, but you survived, and your brother lived as a parasite inside you.”
 
 Another doctor chimed in. “Yes, your brother was growing quite large.”
 
-Then, when the doctor showed me the contents he’d collected from my abdomen, I thought I would faint. My eyes bulged from their sockets as I stared at the grotesque creature floating in the jar.
+But I thought I would faint when the doctor showed me the contents he’d collected from my abdomen. My eyes bulged as I stared at the grotesque creature floating in the jar.
 
-A giant man-child—beard and all—floated inside the container. He had an adult’s head with a full head of hair, a bulbous nose, and talon-like nails extending from all ten fingers and toes.
+A giant man-child—beard and all—floated inside the container. He had an adult’s head with a full mane, a bulbous nose, and talon-like nails extending from all ten fingers and toes.
 
 He even had adult feet.
 
 As gnarly as the creature was, I followed the doctors’ advice and took him home. I even named him Roger. At first, I didn’t know what to do with him, so I placed him on my nightstand.
 
-Neither the doctors nor I knew what to do with Roger, but they told me to feed him like I would a goldfish. So twice daily, I sprinkled crushed nutrients into his glass jar and observed his eating habits.
+Neither the doctors nor I knew what to do with Roger, but they told me to feed him like I would a goldfish. So twice daily, I sprinkled crushed nutrients into his glass jar and observed Roger's eating habits.
 
 The first two days were uneventful, and Roger didn’t touch his food. Then, just as I was about to give up, Roger opened his eyes.
 
@@ -172,7 +170,7 @@ It smelled like old seafood or rotting meat.
 
 Roger wasn’t home, so it was my chance to investigate.
 
-I usually avoided the basement because that’s where Roger slept, and I tried to avoid him. But this time, I turned the basement door knob and tiptoed downstairs.
+I usually avoided the basement because that’s where Roger slept. But this time, I turned the basement door knob and tiptoed downstairs.
 
 “Roger,” I called, making sure he wasn’t home.
 
