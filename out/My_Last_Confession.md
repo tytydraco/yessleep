@@ -99,3 +99,6 @@ As soon as she left I walked to my car and grabbed my laptop. When I returned I 
 
 
 One more life.
+
+
+[x](https://www.lairofmysteriouspowers.com/)
