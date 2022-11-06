@@ -74,7 +74,7 @@ After a while, the joy of regaining a limb of mine dissipated. After all, I stil
 
 And, after what felt like an eternity, the sound of glass breaking returned.
 
-Too late to react, the pleasant surprise of my body finally being able to move sent me tumbling.
+Too late to react, the pleasant surprise of my entire body finally being able to move sent me tumbling.
 
 Pushing on the ground with both my arms, I stood— and I looked back.
 
