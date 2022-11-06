@@ -2,7 +2,7 @@ It was taped to the bathroom mirror. At my eye level, covering up my reflection.
 
 **Don’t look under the bed.**
 
-I peeled it off the mirror and looked down at it. It was in my handwriting—my sloppy, chicken-scratch handwriting. More sloppy than usual, like I’d been in a rush writing it. I turned it over in my hands, confused.
+I peeled it off the mirror and looked down at it. It was in my handwriting—my sloppy, chicken-scratch handwriting. More sloppy than usual, like I’d been in a rush. I turned it over in my hands, confused.
 
 *Don’t look under the bed?*
 
@@ -36,7 +36,7 @@ It was shattered in the middle of the floor. Red sauce splattered in every direc
 
 Sadie’s bark tore me from my thoughts. I let her in and then collapsed on the couch. “What happened last night?” I muttered.
 
-I wasn’t drinking last night. *Maybe I hit my head?* Maybe I dropped the marinara sauce, slipped in it, and hit my head on the floor. Got a concussion, went up to my bedroom, and fell asleep. But then wouldn’t there be sauce in the bed?
+*Maybe I hit my head?* Maybe I dropped the marinara sauce, slipped in it, and hit my head on the floor. Got a concussion, went up to my bedroom, and fell asleep. But then wouldn’t there be sauce in the bed?
 
 I sighed and pulled out my phone. I’d give my boyfriend Henry a call and see if he remembered anything. But as soon as I unlocked my phone, I saw the notification.
 
@@ -56,7 +56,7 @@ A powerful feeling of derealization hit me. You probably know the feeling I’m 
 
 *I don’t remember anything.*
 
-*Is this even real?* 
+*Is this even real?*
 
 *Am I dreaming?*
 
@@ -96,7 +96,7 @@ My throat went dry. I slowly crouched down, my entire body shaking like a leaf. 
 
 It was him.
 
-His skin was pale, almost blue. The mattress pressed into his tall frame, as if he’d been shoved and kicked under there until he fit. And his eyes… his eyes were empty and lifeless, boring into me as though he knew what I’d done. 
+His skin was pale, almost blue. The mattress pressed into his tall frame, as if he’d been shoved and kicked under there until he fit. And his eyes… his eyes were empty and lifeless, boring into me as though he knew what I’d done.
 
 I ran over to the bathroom and puked. Wiped my face off, gripped the bathroom sink to keep myself from fainting.
 
