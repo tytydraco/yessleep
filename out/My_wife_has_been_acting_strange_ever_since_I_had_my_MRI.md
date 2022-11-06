@@ -6,19 +6,19 @@ I was a bit out of it but I do remember he was screaming something along the lin
 
 As she led me out of the waiting room, my nurse cheerfully explained the procedure to me while wearing the brightest smiley face scrubs I’d ever seen.
 
-I shot one look back to Marie-Anne because despite it being nearly empty, the yelling guy had sat down right next her and stared at her while he kept rubbing at his eyes. She smiled at me, gave me her ‘I’ll be fine’ look, waved me on, and pulled out a well-worn paperback.
+I shot one look back to Marie-Anne because despite the waiting room being nearly empty, the yelling guy had sat down right next her and stared at her while he kept rubbing at his eyes. She smiled at me, gave me her ‘I’ll be fine’ look, waved me on, and pulled out a well-worn paperback.
 
 Once we got past the door, there was a young woman in a hospital bed, being taken down the same hall as me. She smiled at me serenely, but there was something weird about her that I couldn’t put my finger on – maybe the way she stared at me without blinking, or how she breathed in odd, exaggerated breaths. It was almost as if she trying to demonstrate to those around her that she was truly an authentic, living, breathing, person. She stared at me with what looked to be curling, delicate black threads emerging from her eye sockets, but I chalked that up to the sedation meds at the time.
 
 I don’t remember much about the scan itself. I’m not sure how long I had been trapped in there for, but it was late morning when I went in, and pitch black outside when I came out. 
 
-I had come to in that dark and tight space to the gentle whirring sound of the machine. There were no doctors, nurses, or technicians in my room and the lights were off – it was eerily silent. I hadn’t realized where I was at first and had squirmed in my post sedation stupor. I instinctively tried to sit up and my nose made hard contact with the inside of the machine.
+I had 'come to' in that dark and tight space to the gentle whirring sound of the machine. There were no doctors, nurses, or technicians in my room and the lights were off – it was eerily silent. I hadn’t realized where I was at first and had squirmed in my post sedation stupor. I instinctively tried to sit up and my nose made hard contact with the inside of the machine.
 
 They had been kind enough to approve sedating me for the hour and a half long scan due to my claustrophobia but then apparently they had just…forgotten about me? I had pounded on the inside of that awful white tunnel and screamed until I was hoarse, and still no one came for me. At one point, I felt someone tug at me, cold and clammy hands pulled indelicately at my ankles, but they must have given up because not long afterwards I was alone again. I would’ve thought the whole memory was a fabrication of my drugged mind, but there was an odd grey-ish residue on my ankles when I finally got out. I thought of Marie-Anne sitting in the waiting room and didn’t know how everyone could’ve forgotten about me – surely, she would’ve asked about me when several hours had passed, and I still hadn’t returned?
 
-Eventually I calmed down enough to release the belt and slowly inch my way out, trying to keep my eyes shut and my breathing steady while not focusing on the fact that my face was so close to the inside of the tunnel that I could feel my own breath echoed back onto my face. I tried to ignore the friction burns as I accidentally drug bare flesh against the smooth interior. 
+Eventually I calmed down enough to release the belt and slowly inch my way out, trying to keep my eyes shut and my breathing steady while not focusing on the fact that my face was so close to the inside of the tunnel that I could feel my own breath reflected back onto my face. I tried to ignore the friction burns as I accidentally drug bare flesh against the smooth interior. 
 
-In the distance, awful screaming like I had never heard before that seamlessly transitioned into a laughter that was so odd that it gave me chills. It floated down the silent hall. 
+In the distance, awful screaming like I had never heard before seamlessly transitioned into a laughter that was so odd that it gave me chills. It floated down the silent hall. 
 
 At one point as I walked towards the elevator, I thought I saw small and perfectly round eyes gleaming at me from behind the glass panel in one of the darkened rooms. I told myself it was the last of the drugs in my system messing with my head. That was why the elevator buttons looked to be painted with still drying with blood as they lit up, too, I assured myself. Just the meds.
 
@@ -56,7 +56,7 @@ I could see many of the now familiar delicate hair-like threads spilling out of 
 
 I clamped a hand over my mouth tightly to keep quiet and took a last long, sad look at her blood-soaked scrubs and flailing legs.
 
-I speed-limped, clumsily, onwards.   
+I sped up and continued onward clumsily.   
 
 Despite what I’d told myself, I almost couldn’t believe it when I found Marie-Anne still sitting on a now sticky and saturated chair in the waiting room. Her sweater was slashed in places and stained – an entire arm of it was missing.  Splatters and small droplets freckled her cheeks and the cover of the book she was now holding upside down, but she looked entirely uninjured. I had a fleeting moment where I wondered where the blood around her had come from, but was relieved more than anything else. The room was in disarray and single sneaker with the foot still in it peeked out from under her chair, but she didn’t seem even remotely phased by the carnage around her.
 
@@ -68,7 +68,7 @@ We were so close to the exit when I heard the double doors move and ducked behin
 
 Eventually, what remained of my nurse walked out the front doors, and disappeared into the darkness beyond the lights of the parking lot. 
 
-We eventually made it to our car but I can’t drive yet and she’s just sitting in the driver’s seat staring at me without blinking, still and quiet except for an occasional loud and irregular breath. I swear I see delicate threads spilling from under her eyes. I’ve called 911 but keep being getting the next county over. They keep routing me back to my own county, but no one is answering.
+We eventually made it to our car but I can’t drive yet and she’s just sitting in the driver’s seat staring at me without blinking, still and quiet except for an occasional loud and irregular breath. I swear I see delicate threads spilling from under her eyes. I’ve called 911 but keep getting the dispatchers in the next county over. They keep routing me back to my own county, but no one is answering.
 
 I miss the moment when I thought waking up stuck after a full-body MRI was going to be the worst part of my day.
 
