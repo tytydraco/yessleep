@@ -1,0 +1,24 @@
+   I have recently moved back to the small town I spent most of my childhood in for a week or so , to unwind from my  stressfull daily life and this story came up while I was catching up with some old family friends and neighbors .
+
+  So I grew up in a close-knit community in a small rural town in Scottland . The community members were all religious , and I vividly remember going to church early each Sunday along with being a member of the choir . That is where I met Marie .
+
+  Marie was around a year older than me when we met , and was always in the front row of choir . She always had her short brown hair adorned with a pretty red bow and her honey coloured eyes always held a sadness within them that I could never forget . Marie and I quickly became friends and spent a good part of our childhood playing together . We always sat next to each other on Sunday service and in the evening we would play at the local playground together .
+
+  The summer before I started fifth grade , which was also the last summer I spent in my home town , the community church organised a summer program for all the neighborhood kids to partake in . I , along with Marie and all the other choir members were automatically signed in to this summer program . I vaguely remember  my mom driving me there every morning and picking me up at around 2:00 pm every afternoon to drive me back home . Most of the days passed like a breeze , with me and another dozen or two of kids both my age and older being dropped off outside of the community church , playing games and learning life lessons .
+
+Well , all except one ... the last day of the summer program . 
+
+   It's hard to explain where it all went wrong , since everything started off so normal . My mom woke me up in the morning as always , I had breakfast and I got dressed . I was dropped off with all the other kids , we played and sang and talked together . It was almost picture-perfect , a bright happy setting full of smiling kids . However , as the time was nearing for us to go home , instead of leading us to the sidewalk where our parents would be waiting to pick us up they lead us to the inside of the church one by one .The confused whispers of kids filled the room , as most of us were clueless to what was even happening . The nuns looked over at us all , before pointing subtly at one of the older kids , a young boy around the same age as Marie . 
+   
+   They grabbed his arm , yanking him away as he screamed and taking him to the altar  . At this point some of the other children were starting to panic , some of them were weakly calling out for their parents with their faces drenched in tears . I clinged onto Marie's arm .
+
+  For what seemed like hours we could only listen in terror as screams of pain and terror far beyond what any of our little brains could comprehend came from the altar . Sobs and cries for help filled my ears , and my thoughts and for several minutes I couldn't think straight . How could I when the only thing that I could hear was screaming ? 
+  I only snapped out of it when they yanked Marie's hand , pulling her away from me . She struggled and cried , loud shaky sobs escaping her throat . And as they pull her into the altar she turns to look at me for one last time , her honey coloured eyes filled with this primal sense of fear . 
+
+  Once again the screaming started . Screams of pain , pure pain . I closed my ears with my hands hoping it would all go away . The  room fell in a deep silence for a split moment , however it didn't last . A loud , near animalisitic scream echoes throughout the church . A dim orange glow fills the room as the door is kicked open , revealing all the community's parents .
+
+   For the next hour or so , everything is a blur . The kids flood out of the doors , searching for their parents . I somehow find my way into my mother's arms , where I finally start to break down in tears . The police is called and they arrive shortly after and I watch from the car seat window of my mother's car as they tell Marie's already distressed mother that they couldn't find her in there . I learnt many a few days ago as I spoke with some of the remaining residents the community that the police only found the little boy's copse in there . 
+
+Marie was nowhere to be found ...
+
+  We moved away two days later and I never learnt what became of my childhood best friend , and after years passed this story became submerged in the depths of my mind , only being brought up by me returning . For many years I thought that she was dead , or at the very least missing . But as I was talking with my next-door neighbor , an old librarian at the local library when I was a kid , I found out that not only is Marie alive and not missing  but that she still lives in this town and now operates the local church ...
