@@ -1,4 +1,6 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/yj6xgc/when_the_stars_and_moon_vanish_from_the_night_sky/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/yj6xgc/when_the_stars_and_moon_vanish_from_the_night_sky/)  
+_Part 2 - You are here_  
+[Part 3](https://www.reddit.com/r/nosleep/comments/ynwddb/when_the_stars_and_moon_vanish_from_the_night_sky/)  
 
 “Do we exit through the front?” Roger asked. 
 

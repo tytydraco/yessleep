@@ -465,7 +465,7 @@ I tapped my finger over a passage and let her read.
 
   “We might just find our Blessed Torch. So… You wanna google a house in Norway, or do you wanna kill yourself?”
 
-For a moment, I saw an unfamiliar fire in Sophia’s eyes and it was almost like I was looking at a completely different person.
+For a moment, I saw an unfamiliar fire in Sandra's eyes and it was almost like I was looking at a completely different person.
 
   “I think you know what I want.” She replied.
 

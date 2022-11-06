@@ -1,4 +1,8 @@
+*Part 1 - You are here*
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/yl4c42/when_the_stars_and_moon_vanish_from_the_night_sky/) 
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/ynwddb/when_the_stars_and_moon_vanish_from_the_night_sky/) 
 
 My head ached as I awoke my unwilling slumber. I rested on the car’s shattered dashboard with a dying fire blazing just a few feet away. I coughed from the fumes, dazed, but otherwise unharmed. Once I could gather enough air in my lungs, I attempted to push myself up, checking my surroundings for clues as to what had happened.
 

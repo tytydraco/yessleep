@@ -1,4 +1,4 @@
-Hello again, from Alfredo Daglerion. This is part 2 of my grandfather„s story.
+Hello, from Alfredo Daglerion. This is part 2 of my grandfather„s story.
 
 &#x200B;
 
@@ -6,7 +6,7 @@ Hello again, from Alfredo Daglerion. This is part 2 of my grandfather„s story.
 
 &#x200B;
 
-Inside the tent, there was an improvised stage, not like in circuses, but smaller, it had some stand in semicircle, a small stage, draped behind in dark velvet. There were some lights on, but the place still felt dark, like something lurking.  In the audience there were, mostly, middle class people, but also poorer looking people. Suddenly, the lights went out and the place was engulfed in almost complete darkness. Something was heard towards the stage, then the lights went on again.
+Inside the tent, there was a stage, not like in circuses, but smaller, it had some stand in semicircle, a small stage, draped behind in dark velvet. There were some lights on, but the place still felt dark, like something lurking.  In the audience there were, mostly, middle class people, but also poor looking people. Suddenly, the lights went out and the place was engulfed in almost complete darkness. Something was heard towards the stage, then the lights went on.
 
 &#x200B;
 
@@ -14,7 +14,7 @@ On stage, there were two figures. One was clearly Gordon Jameson, in his dark Vi
 
 &#x200B;
 
-The other figure was, of course, Helena, who Jameson held from behind, as the gentleman holds the back of a lady in dance or preparing to dance. Helena was like she was described to me, a doll-like woman or a woman-like doll, wearing a long, black, belle epoque like velvet dress. She had black hair, wiry hair, a weird like pallor that seemed like wood (She was supposed to be made of wood.) or corpse like. Pale, sometimes with a taint of brown or faint green. Over that, she had what appeared to be clown makeup or face paint, but mostly black. The lips were black but, beyond them, the clown grin was not large, only slight and a bit upwards. Under the grin, into the mandible, lines characteristics of ventriloquist dolls were visible, that allow for the jaw of the doll to move. The eye makeup or makeup-like paint was heavy, mostly black, with some faint dark brown edges. It was rhomb like shaped, like in many clowns and it continued down into the cheeks with some small spiral like model. The eyeballs themselves were white, similar to a person who is dead for some time.
+The other figure was, of course, Helena, who Jameson held from behind, as the gentleman holds the back of a lady in dance or preparing to dance. Helena was like she was described to me, a doll-like woman or a woman-like doll, wearing a long, black, belle epoque like velvet dress. She had black hair, wiry hair, a weird like pallor that seemed like wood (She was supposed to be made of wood.) or corpse like. Pale, sometimes with a taint of brown or faint green. Over that, she had what appeared to be clown makeup or face paint, but mostly black. The lips were black but, beyond them, the clown grin was not large, only slight and a bit upwards. Under the grin, into the mandible, lines characteristics of ventriloquist dolls were visible, that allow for the jaw of the doll to move. The eye makeup or paint was heavy, mostly black, with some faint dark brown edges. It was rhomb shaped, like in many clowns and it continued down into the cheeks with some small spiral like model. The eyeballs themselves were white, similar to a person who is dead for some time.
 
 &#x200B;
 
@@ -22,7 +22,7 @@ Helena was looking at us, with a sharp, malicious smile, scrutinizing the crowd.
 
 &#x200B;
 
-Suddenly, Jameson clapped his hands and an unseen orchestra started playing. Waltz music. I recognized it. It was Tchaikovsky, from the Nutcracker. But it was off, the ranges, the tonality of the music was changed. It was darker and felt like menacing. The pair waltzed, it was very unconventional, especially when one of the dancer is a dummy or pretends to be. Jameson kept his hand almost all the time into her back, like controlling the puppet. She moved mechanical, but very complexly, felt autonomous. There were moments where the crowd was amazed, like when Jameson let go of Helena for a few seconds, while she still moved, she even performed some sort of pirouette on her own. I was speechless, amazed and scared in the same time. I felt a power at work in here. Hard to describe what I felt. I wish my memory was better, so to describe you every moment of the waltz. I wish it was recorded on camera.
+Suddenly, Jameson clapped his hands and an unseen orchestra started playing. Waltz music. I recognized it. It was Tchaikovsky, the Nutcracker. But it was off, the ranges, the tonality of the music was changed. It was darker and felt like menacing. The pair waltzed, it was very unconventional, especially when one of the dancer is a dummy or pretends to be. Jameson kept his hand almost all the time into her back, like controlling the puppet. She moved mechanic, but very complexly, felt autonomous. There were moments where the crowd was amazed, like when Jameson let go of Helena for a few seconds, while she still moved, she even performed some sort of pirouette on her own. I was speechless, amazed and scared in the same time. I felt a power at work in here. Hard to describe what I felt. I wish my memory was better, so to describe you every moment of the waltz. I wish it was recorded on camera.
 
 &#x200B;
 
@@ -30,7 +30,7 @@ The music stopped and the pair stopped their dance in the same position as they 
 
 &#x200B;
 
-”My, my, my... Who is here with us tonight... Mr. (I forgot his name), prefect of (I forgot the county.)... So many important people start to me to see us lately, I see. ” The man looked a little embarrassed, said something I could not hear, like a blabber. Helena put her hands on her hips, tilted her head and looked at him amused for a few seconds, then she continued: ”Indeed, we should feel grateful that such a great man, with such a great and vital public function is with us. That he sacrificed an evening from his time to be with us. Especially after how much the nation owes to him.” The man gave a forced, a bit scared, a bit disgusted smile, neither me or Marietta heard what he said.
+”My, my, my... Who is here with us tonight... Mr. (I forgot his name), prefect of (I forgot the county.)... So many important people start to come to see us lately, I see. ” The man looked a little embarrassed, said something we could not hear, like a blabber. Helena put her hands on her hips, tilted her head and looked at him amused for a few seconds, then she continued: ”Indeed, we should feel grateful that such a great man, with such a great and vital public function is with us. That he sacrificed an evening from his time to be with us. Especially after how much the nation owes to him.” The man gave a forced, a bit scared, a bit disgusted smile, we didn„t heard what he said.
 
 &#x200B;
 
@@ -46,7 +46,7 @@ Helena continued on a dark parody of a maternal tone: ”You know, since you gra
 
 &#x200B;
 
-Olive oil shall get into this, some apple vinegar and mujdei (Romanian Garlic Souce). For spices, perhaps some turmeric? Cloves and chilli? I think I shall go with thyme, oregano, sumac. A little bit of lemon juice. I would be tempted to use some mushrooms but, since it is a meat dish, I do not know if they are too appropriate. You know, I am open to suggestions, from the audience, especially you, sir, since you shall be the star of the feast.”
+Olive oil shall get into this, some apple vinegar and mujdei (Romanian Garlic Source). For spices, perhaps some turmeric? Cloves and chili? I think I shall go with thyme, oregano, sumac. A little bit of lemon juice. I would be tempted to use some mushrooms but, since it is a meat dish, I do not know if they are too appropriate. You know, I am open to suggestions, from the audience, especially you, sir, since you shall be the star of the feast.”
 
 &#x200B;
 
@@ -54,7 +54,7 @@ She had a nasty smile on her face, maybe a little rascality in this?  ”Of cour
 
 &#x200B;
 
-The crowed felt mostly frightened, some felt like being put off, some cheered. Helena waved at them and said: ”You know, I am glad some can really enjoy my genius. Therefore, I invite the prefect to offer himself  and I promise that what will come out would be enjoyed by the citizens who will be deeply grateful to him. So a shame he will be not be able to taste himself. But perhaps I could make a appetizer of himself, before he goes into the oven, when he is still alive, so that he may enjoy as well. Rest assured, you screams of fear and pain, when you will be sliced alive will be deeply appreciated, since they sound progressively appetizing to me.”
+The crowd felt mostly frightened, some felt like being put off, some cheered. Helena waved at them and said: ”You know, I am glad some can really enjoy my genius. Therefore, I invite the prefect to offer himself  and I promise that what will come out would be enjoyed by the citizens who will be deeply grateful to him. So a shame he will be not be able to taste himself. But perhaps I could make a appetizer of himself, before he goes into the oven, when he is still alive, so that he may enjoy as well. Rest assured, you screams of fear and pain, when you will be sliced alive will be deeply appreciated, since they sound progressively appetizing to me.”
 
 &#x200B;
 
@@ -74,7 +74,7 @@ As we went out of the tent, Marietta was cheerful, as usual: ”I told you it wo
 
 &#x200B;
 
-Then, something I never expected came. I heard a gun and a bullet came very close to my ear. Startled, we looked behind, in the crowd that leaving the fair. It was Tudor, the husband of Marietta. Some ladies screaming got the people into a panic, as I grabbed Marietta„s left arm. I whispered to her ear: ”Run!” She went as fast as the high heels allowed her, as I turned towards where Tudor was. He shot another time, I managed to get down in time. At least he was not focused on me, not on her.
+Then, something I never expected came. I heard a gun and a bullet came very close to my ear. Startled, we looked behind, in the crowd that left the fair. It was Tudor, the husband of Marietta. Some ladies screaming got the people into a panic, as I grabbed Marietta„s left arm. I whispered to her ear: ”Run!” She went as fast as the high heels allowed her, as I turned towards where Tudor was. He shot another time, I managed to get down in time. At least he was not focused on me, not on her.
 
 &#x200B;
 
@@ -82,7 +82,7 @@ I started to run in another sense then Marietta took. I needed to act fast, so I
 
 &#x200B;
 
-I was able then to hit his hand with the gun and make him drop it. I went for it and, as I touched it, he grabbed my throat with his arm. There were a few tough seconds, as he tried to choke me. I do not remember exactly, I managed to kick him in the stomach. This made him drop the grip. After escaping, I kicked him in the stomach again, he fell to the ground. I took the gun, emptied it, then dropped it on the ground. As Tudor crawled, I shouted to someone to call the police, in French, not sure how fast people understood me. Finally, a police man appeared, he did not seemed to know any other language then Romanian, he grabbed both of us and took us to the station.
+I was able then to hit his hand with the gun and make him drop it. I went for it and, as I touched it, he grabbed my throat with his arm. There were a few tough seconds, as he tried to choke me. I do not remember exactly, I managed to kick him in the stomach. This made him drop the grip. After escaping, I kicked him in the stomach again, he fell to the ground. I took the gun, emptied it, then dropped it on the ground. As Tudor crawled, I shouted to someone to call the police, in French, not sure how fast people understood me. Finally, a policeman appeared, he did not seemed to know any other language then Romanian, he grabbed both of us and took us to the station.
 
 &#x200B;
 
@@ -118,7 +118,7 @@ Matei came out silent, grim, and he greeted me. I had a feeling he shall bring m
 
 &#x200B;
 
-Inside me, two forces fought, a cold and calm fear, and something alluring me. Night was mostly quiet, as people were indoors, mostly, just some dog barking from time to time, in the autumn mist. The star filled skies above me. October night started to get misty, slowly, as we crossed the railroad and a graveyard  appeared on my right. A huge factory was on the left, a mill, it looked like a citadel on its own. It was dark, silent and imposing. The central part was a silage of bricks, that indeed had towers and battlements, like a fortress.
+Inside me, two forces fought, a cold and calm fear, and something alluring me. Night was mostly quiet, as people were indoors, mostly, just some dog barking from time to time, in the autumn mist. The star filled skies above me. October night started to get misty, slowly, as we crossed the railroad and a graveyard appeared on my right. A huge factory was on the left, a mill, it looked like a citadel on its own. It was dark, silent and imposing. The central part was a silage of bricks, that indeed had towers and battlements, like a fortress.
 
 &#x200B;
 
@@ -126,11 +126,11 @@ A train passed, as we reached the graveyard gates, that were in an arched gatewa
 
 &#x200B;
 
-We went to the right. Shortly after, another crossroad, the railway crossed this place as well. The train was not long to block this part as well, so we crossed to the other side. I kept in mind the landmarks, in order to return of my own. The grey mist was getting heavier, as something inside me felt build up. Anxiety and being drawn. The two feeling fought stronger and stronger with each step. Soon, we reached a gate of a small house. One level house, like the rest, a faint light was inside.
+We went to the right. Shortly after, another crossroad, the railway crossed this place as well. The train was not long to block this part as well, so we crossed to the other side. I kept in mind the landmarks, in order to return of my own. The grey mist was getting heavier, as something inside me felt build up. Anxiety and being drawn. The two feelings fought stronger and stronger with each step. Soon, we reached a gate of a small house. One level house, like the rest, a faint light was inside.
 
 &#x200B;
 
-The boy knocked at the wooden gate, with the same grim face, greeted me silently with his beret, then left. I waited for one minute or two, no one appeared in sight. Suddenly, the gate creaked out open. A cold breeze went from right to left. Something was calling me. Something heavy was on me, something cold, I should have turned back. But I was like under a spell. In fact, I think I was under a spell. But it probably also my adventurous side that brought me to this distant and foreign country.
+The boy knocked at the wooden gate, with the same grim face, greeted me silently with his beret, then left. I waited for one minute or two, no one appeared. Suddenly, the gate creaked out open. A cold breeze went from right to left. Something was calling me. Something heavy was on me, something cold, I should have turned back. But I was like under a spell. In fact, I think I was under a spell. But it probably also my adventurous side that brought me to this distant and foreign country.
 
 &#x200B;
 
@@ -142,11 +142,11 @@ The first room was short, old feel, somewhat shriveled, both the walls and the f
 
 &#x200B;
 
-Seeing her from the distance was one thing. Seeing her from up close made me realize in a second this was neither a ventriloquist doll, neither a living person. This was something dead. Cold and cruel. Who preys on living people. The supposed clown makeup was part of real skin color on her face. Her dead white eyes looked at me and I stopped in awe. She were a black, old fashioned dress, elegant, and her black wiry hair had small jewelry in it, like on stage. This being fed on Humans, I knew it, she was the source of the anxieties I felt the nights and days before. The power that allured me here, the grey mist from outside, were her work. Yes, indeed, I knew now La Strega I feared as a child was real, and I was in her grasp. I dropped the rose on the floor and turned to the door. Helena made a sign with her right arm and the door locked before I could do too much, and the key flew to her hand. Then, smiling sadistically, she placed it a pocket of her dress.
+Seeing her from a distance was one thing. Seeing her from up close made me realize in a second this was neither a ventriloquist doll, neither a living person. This was something dead. Cold and cruel. Who preys on living people. The supposed clown makeup was part of real skin color on her face. Her dead white eyes looked at me and I stopped in awe. She were a black, old fashioned dress, elegant, and her black wiry hair had small jewelry in it, like on stage. This being fed on Humans, I knew it, she was the source of the anxieties I felt the nights and days before. The power that allured me here, the grey mist from outside, were her work. Yes, indeed, I knew now La Strega I feared as a child was real, and I was in her grasp. I dropped the rose on the floor and turned to the door. Helena made a sign with her right arm and the door locked before I could do too much, and the key flew to her hand. Then, smiling sadistically, she placed it a pocket of her dress.
 
 &#x200B;
 
-I turned to her, as my heart started to beat fast, and a sense of imminent death was upon me. I started to hyperventilate, but I have not scream. I was in a tomb, in the lair of La Strega. My childhood fear came true. And the fool of me went to this by my own.
+I turned to her, as my heart started to beat fast, and a sense of imminent death was upon me. I started to hyperventilate, but I have not screamed. I was in a tomb, in the lair of La Strega. My childhood fear came true. And the fool of me went to this by my own.
 
 &#x200B;
 
@@ -162,11 +162,11 @@ I opened my eyes to her own dead eyes ravaging me. But I forced myself to get as
 
 &#x200B;
 
-Reluctantly, I joined at the table. I felt her discrete, old style perfume. Like when you open a closet from your deceased grandmother„s house and you discover her clothes from the times she was young and you can sense the perfume she wore,
+Reluctantly, I joined the table. I felt her discrete, old style perfume. Like when you open a closet from your deceased grandmother„s house and you discover her clothes from the times she was young and you can sense the perfume she wore.
 
 &#x200B;
 
-As appetizer, there was zacusca, a type of spread, made from roasted eggplants, with some added tomatoes, onion and pepper. Sometimes, like in this case, it also had some mushroom mixture, alongside spices. Also, as appetizer, there was a somewhat soft, white traditional Romanian cheese named telemea. There was a large, full wheat bread, with seeds and herbs in it. We started eating, I had to admit zacusca was really good, the cheese was also interesting. So, in order to keep myself calm, I told her about zacusca: ”This is delicious. Never tasted anything like it.” She smiled at this compliment (in her own twisted way, of course) and replied: ”I made it myself. In here, we do lots of things, including zacusca, in autumn, to store, until spring crops came out.”
+As appetizer, there was zacusca, a type of spread, made from roasted eggplants, with some added tomatoes, onion and pepper. Sometimes, like in this case, it also had some mushroom mixture, alongside spices. Also, as appetizer, there was a somewhat soft, white traditional Romanian cheese named telemea. There was a large, full wheat bread, with seeds and herbs in it. We started eating, I had to admit zacusca was really good, the cheese was also interesting. So, in order to keep myself calm, I told her: ”This is delicious. Never tasted anything like it.” She smiled at this compliment (in her own twisted way, of course) and replied: ”I made it myself. In here, we do lots of things, including zacusca, in autumn, to store, until spring crops come out.”
 
 &#x200B;
 
@@ -178,7 +178,7 @@ After finishing the first part of the meal, as an awkward silence came from my b
 
 &#x200B;
 
-”Excuse me, but Milonga is different from Tango. In a way, Milonga influenced Tango itself. I realize that not many outside Argentina know this and call it is labeled as Tango.” Helena looked at me interested and said: ”Go on. I would to know more about it.” So I made her a little speech on the history of the dances, how they appeared, how they evolved. Helena finally said: ”Alright then. Show me how is danced, as you do in Buenos Aires.”
+”Excuse me, but Milonga is different from Tango. In a way, Milonga influenced Tango itself. I realize that not many outside Argentina know this and call it is labeled as Tango.” Helena looked at me interested and said: ”Go on. I would to know more about it.” So I made a little speech on the history of the dances, how they appeared, how they evolved. Helena finally said: ”Alright then. Show me how it is danced, as you do in Buenos Aires.”
 
 &#x200B;
 
@@ -206,11 +206,11 @@ There were some really interesting sausages, well spiced, with a strong flavor, 
 
 &#x200B;
 
-She replied: ”I did some ballet a long time ago, when I was a Human child. After that, for the act, Gordon taught me a lot. I practiced it with him. You can say many bad things about him, but you can not say that he is a bad dancer, or not a well read man, or a mannered man. He taught me a lot. He is the one who keeps me in his control, most of the times: Due to him I lost my Human, mortal life, but he compensated it a little. Like homeschooling me somewhat, allowing me to read many things. He also taught me some things you should not know about.”
+She replied: ”I did some ballet a long time ago, when I was a Human child. After that, for the act, Gordon taught me a lot. I practiced it with him. You can say many bad things about him, but you can not say that he is a bad dancer, or not a well read man, or a mannered man. He taught me a lot. He is the one who keeps me in his control, most of the times. Due to him I lost my Human, mortal life, but he compensated it a little. Like homeschooling me, allowing me to read many things. He also taught me some things you should not know about.”
 
 &#x200B;
 
-”You always practice such humor on the stage?  Helena replied: ”Not always. We do just dances, sometimes. But, that night, the prefect was there, I noticed you in the public, so we decided to do it. Indeed, I am sure you shall never meet a Clown like me. You know, people tend to despise clowns, thinking them to be shallow and cheap. I dare those to say those about me.” And winked with her malice.  After a few seconds of break and another glass of wine (If this would have been a normal, human, lady, I would have been already worried of her drinking too much. But I did not dared to say anything.) she went on:
+”You always practice such humor on the stage?  Helena replied: ”Not always. We do just dances, sometimes. But, that night, the prefect was there, I noticed you in the public, so we decided to do it. Indeed, I am sure you shall never meet a Clown like me. You know, people tend to despise clowns, thinking them to be shallow and cheap. I dare them to say those about me.” And winked with her malice.  After a few seconds of break and another glass of wine (If this would have been a human lady, I would have been already worried of her drinking too much. But I did not dared to say anything.) She went on:
 
 &#x200B;
 
@@ -218,15 +218,15 @@ She replied: ”I did some ballet a long time ago, when I was a Human child. Aft
 
 &#x200B;
 
-She already felt somewhat more human, so to say. I felt less afraid then in the beginning, that was for sure. ”One more dance before desert, shall we?” she proposed. I agreed.
+She already felt somewhat more human, so to say. I felt less afraid then in the beginning, that was for sure. ”One more dance before dessert, shall we?” she proposed. I agreed.
 
 &#x200B;
 
-It went another round of tangos. At one moment, a clumsy moment and I stepped on her foot. My hard went cold, panic returned and I fell to my knees. She looked at me with anger, like wanting to pierce me with a sword. I started to mumble, she grabbed my chin fiercely (It hurt pretty much.) and said with a harsh, but restrained voice: ”You are doing it to yourself! Brace yourself at once! What would you do if this happened with a normal lady, not with me?” I manged to brace myself and mumbled as calmly as I could: ”Excuse my clumsiness. I did not meant to.” Her tone returned to the one before and said: ”Apologies accept. Let„s go on.” Shaking yet, I continued, until i recovered my nerve from before. Finally, the dance finished and we went to desert.
+It went another round of tangos. At one moment, a clumsy moment and I stepped on her foot. My heart went cold, panic returned and I fell to my knees. She looked at me with anger, like wanting to pierce me with a sword. I started to mumble, she grabbed my chin fiercely (It hurt pretty much.) and said with a harsh, but restrained voice: ”You are doing it to yourself! Brace yourself at once! What would you do if this happened with a normal lady, not with me?” I managed to brace myself and mumbled as calmly as I could: ”Excuse my clumsiness. I did not meant to.” Her tone returned to the one before and said: ”Apologies accept. Let„s go on.” Shaking yet, I continued, until i recovered my nerve from before. Finally, the dance finished and we went to dessert.
 
 &#x200B;
 
-She unveiled a huge round coliva. I said: ”Is this coliva?” She looked at me with a less sharp smile: ”Indeed, it is. I see you found out our favorite desert and its purpose. Too bad I was never offered it as a offering, after I was turned, as people do with their dead usually. But I did it for myself often. Tonight, besides boiled wheat and honey, I have added some pomegranate, some vanilla. I hope you shall like it.” This was delicious as well. ”What a lady...” I thought to myself. I looked at her and tried to imagine how would she be if she were still human and alive. She would have looked very much like a Latin American woman, with her hair, her features, her style even. Her waist looked beautiful, her chest as well. Her corpse like face with all the clown patterns could not hide the features that she would have had. I touched her strong and cold hand as gently as I could. She smiled in a more human way.
+She unveiled a huge round coliva. I said: ”Is this coliva?” She looked at me with a less sharp smile: ”Indeed it is. I see you found out our favorite dessert and its purpose. Too bad I was never offered it as a offering, after I was turned, as people do with their dead. But I did it for myself often. Tonight, besides boiled wheat and honey, I have added some pomegranate, some vanilla. I hope you shall like it.” This was delicious as well. ”What a lady...” I thought to myself. I looked at her and tried to imagine how would she be if she were still human and alive. She would have looked very much like a Latin American woman, with her hair, her features, her style even. Her waist looked beautiful, her chest as well. Her corpse like face with all the clown patterns could not hide the features that she would have had. I touched her strong and cold hand as gently as I could. She smiled in a more human way.
 
 &#x200B;
 
@@ -238,7 +238,7 @@ Besides fear, the revulsion of the fact that I was about to do something with a 
 
 &#x200B;
 
-I got down my head to her chest, as my mortal body prepared for the first stages of death, and I heard her beating heart. She had a beating heart! Was she dead or alive? This made the revulsion get much weaker, but the terror remained. I looked into her eyes, as I touched the back of her dress and tried to open it. Then tried to uncover her breasts.
+I got down my head to her chest, as my mortal body prepared for the first stages of death, and I heard her beating heart. She had a beating heart! Was she dead or alive? This made the revulsion get much weaker, but the terror remained. I looked into her eyes, as I touched the back of her dress and tried to open it, then to uncover her breasts.
 
 &#x200B;
 
@@ -250,7 +250,7 @@ I woke up at the gate of the restaurant, in the morning. The boyar and the barte
 
 &#x200B;
 
-In my mind I had the self-ironic half-silly thought that I can have Helena as a lover now, so no need to ling on to Marietta. I laughed out loud a bit, as the mist of the night was getting out of my mind the clear autumn sun caressed me. I looked at he blue sky and I felt happy to be alive. Upstairs, I have discovered a note in my pocket, like the first ones. It said:
+In my mind I had the self-ironic half-silly thought that I can have Helena as a lover now, so no need to cling on to Marietta. I laughed out loud a bit, as the mist of the night was getting out of my mind the clear autumn sun caressed me. I looked at the blue sky and I felt happy to be alive. Upstairs, I have discovered a note in my pocket, like the first ones. It said:
 
 &#x200B;
 
@@ -262,4 +262,4 @@ I decided in a few days that it is best for me to leave this place. I do not kno
 
 &#x200B;
 
-After all those years, I still think from time to time at Romania. At Bucharest. At Helena. As the memory grows distant and the memory of terror faded away, I remember her with some regret. Perhaps I should have had the power to stay and try. I never met a lady like her ever again, perhaps my life would have been different if I was strong enough to be able to embrace the shadows. Now, upon the end of my mortal life, it makes no sense to let myself ruined by regret. But to remember everything that was beautiful in life, even if this beauty was not the beauty you would have expected or longed for.
+After all those years, I still think from time to time at Romania. At Bucharest. At Helena. As the memory grows distant and the memory of terror faded away, I remember her with some regret. Perhaps I should have had the power to stay and try. I never met a lady like her ever again, perhaps my life would have been different if I was strong enough to be able to embrace the shadows. Now, upon the end of my life, it makes no sense to let myself ruined by regret. But to remember everything that was beautiful in life, even if this beauty was not the beauty you would have expected or longed for.
