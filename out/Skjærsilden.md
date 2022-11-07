@@ -424,6 +424,6 @@ All she'd left behind, was a note: “Help them see the light.”
 
 The decision had already been made. With the loss of my soulmate, I'd been given a new purpose in life. That following morning, I got dressed, and entered the lobby. Mr. Winchester smiled as he saw me approach the reception desk alone.
 
-He didn't have to say anything, I already knew what he would ask.
+He didn't have to say anything, I already knew what he would ask. He gave me one last chance to contact friends and family on the outside world, who will be uploading this story on my behalf. Once it was done, he asked me one, final question: 
 
 [“Are you ready to get to work?”](https://www.richard-saxon.com/books/)
