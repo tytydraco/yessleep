@@ -131,7 +131,7 @@ Maybe I really was seeing shit, but her smile was getting wider and wider as her
 
 And that fucking terrified me. I had seen horror movies. I’d seen the worst Japanese horror flicks, and those freaked me out. But seeing Uncanny Valley, or at least a variant of it in the flesh, sent shivers sliding down my spine. I  found myself standing on the threshold of the classroom, frozen, watching her, when someone tapped me on the shoulder. 
 
-“Hey, are you the new kid?” The voice, a rich Aussie accent,  brought me back to reality and I blinked, shaking my head of mind-fog. It was thick and heavy over my eyes, choking my brain. I was aware of the classroom ignited with life, chatter and laughter around me. There were a group of kids at the front pulling their chairs around one desk, their conversation gibberish in my ears. No matter how many times I rubbed my eyes, swiping at them and blinking rapidly, the girl was still there getting progressively closer to the classroom, even if it was at a snail’s pace. 
+“Hey, are you the new kid?” The voice, a rich Aussie accent,  brought me back to reality and I blinked, shaking my head of cotton candy. It was thick and heavy over my eyes, choking my brain. I was aware of the classroom ignited with life, chatter and laughter around me. There were a group of kids at the front pulling their chairs around one desk, their conversation gibberish in my ears. No matter how many times I rubbed my eyes, swiping at them and blinking rapidly, the girl was still there getting progressively closer to the classroom, even if it was at a snail’s pace. 
 
 They had to see her, right? 
 
@@ -267,7 +267,7 @@ My heart was in my fucking throat. I  was aware of my hands clawing at my hair.
 
 I could feel myself moving slowly, falling over myself to get to the doorway. Before someone stepped in front of me. Kai. It hit me that I had been talking to a past Kai. This Kai’s expression was haunted, his lips pulled back into a scowl, eyes narrowed into slits. I finally knew why his jacket was discoloured, sharp stains of scarlet tainting his collar. The boy resembled a doll without a head, or one with a head which had been forced back on. 
 
-His body was mangled, one arm twisted and hanging limp. I could see where his flesh had been ripped from his skull, an ugly puncturing wound where something had been forced through his head. I wasn’t seeing Kai. I was seeing his corpse. I was seeing  what was left of his body which had been ripped apart and then cruelly put back together like a puzzle. When he blinked, his eyes looked wrong, like they had been forced inside the wrong sockets. “Who… who the fuck are you?” His voice was different to his usual happy-go-lucky twang, more of a frustrated snarl.
+His body was mangled, one arm twisted and hanging limp. I could see where his flesh had been ripped from his skull, an ugly puncturing wound where something had been forced through his head. I wasn’t seeing Kai. I was seeing his corpse. I was seeing  what was left of his body which had been ripped apart and then cruelly put back together like a puzzle. When he blinked, his eyes looked wrong, like they had been forced inside the wrong sockets. “Who… who the fuck are you?” His voice was different to his usual happy-go-lucky laugh, more of a frustrated snarl.
 
 He looked… tired. Exhausted. Like he was forcing his corpse to comply with him. “Well? Who the fuck are you, huh?”
 
@@ -341,7 +341,7 @@ Beginning the loop once more.
 
 “DBC?” My voice was a hoarse whisper.
 
-His smile wavered a little. “The name’s a little insensitive, but I mean—it works.”
+His smile wavered a little. “Dead Breakfast Club. The name’s a little insensitive, but I mean—it works.”
 
 “Do you mean the class… who were…”
 
