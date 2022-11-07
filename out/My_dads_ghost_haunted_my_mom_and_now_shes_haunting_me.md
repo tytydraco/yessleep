@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/yosqf6/my_dads_ghost_haunted_my_mom_and_now_shes/?utm_source=share&utm_medium=web2x&context=3)
+
 Dad was apathetic. He said it was a trait he took from his family, perhaps genetic. As long as I've known him, he rarely smiled. His eyes were always downtrodden, and when they did look up at me there wasn't much of an expression to see—just the same vacant stare that made my heart ache every time we spoke. I guess we should've seen his suicide coming when he began drinking. He didn't get mad or hit us when he was drunk. Dad would never hurt us. I think that's what caused it. He didn't want us to be worried by telling us about what he was feeling.
 
 It only got worse when his father died from grief after his wife overdosed on pills. Because afterwards, he drank even more than before; until eventually, he hung himself. I tried to block out the memory of the phone call my mom got, and the cries that came out of her mouth. I barely saw him before, so now it would be no different. At least, that’s what I said to myself.
