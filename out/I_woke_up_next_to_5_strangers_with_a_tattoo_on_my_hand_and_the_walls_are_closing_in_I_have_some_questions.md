@@ -194,13 +194,13 @@ It took us a minute to sort it out. It was the period after “again” on my ha
 
 With a sizzle, the blacklight gave away to sharp fluorescence.
 
-There weren’t any humans left in the life.
+There weren’t any humans left in the light.
 
 Just animals.
 
 Practiced animals.
 
-\-----------------------------------------------------------------------------------------------------------------------------------------------------
+\------------------------------------------------------------------------------------------------------------------------------------------------
 
 I don’t know how much time passed.
 
@@ -210,7 +210,7 @@ A doctor was examining my wounds. Gashes, tears, bruises, split lip. A snapped w
 
 He riddled off my injuries. His voice was disconcerting. Full of wonderment and awe instead of the typical monotonous, clinical tone one expects from an overworked physician.
 
-“Don’t worry about the police, Pappy. Our people are in the right places over there. The report says you were mugged and left to die but fought off your attackers. Managed you pulled through. Got some good punches in fighting, too.”
+“Don’t worry about the police, Pappy. Our people are in the right places over there. The report says you were mugged and left to die but fought off your attackers. Managed to pull through. Got some good punches in fighting, too.”
 
 His grin was inhuman, painfully wide, like the Cheshire cat had fucked a B horror movie ghoul.
 
