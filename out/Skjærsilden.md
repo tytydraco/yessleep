@@ -180,7 +180,7 @@ I took my jacket off, and tried handing it to her. In response, she finally lift
 
 Despite her wounds, she didn't bleed. She just sat there and cried, barely able to breathe through her crushed chest.
 
-“Oh, my God!” I shouted loudly in shock.
+“Oh, my God!” I shouted loudly in shock, an immediate sense of fear shooting through my body. 
 
 Before we could properly react, Mr. Winchester came rushing down the hall with a couple of bellboys.
 
