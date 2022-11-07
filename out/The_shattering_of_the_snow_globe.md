@@ -42,4 +42,4 @@ I reacted just before it could put me in its mouth, a little jolt making me real
 
 I didn’t see it again after that, and it’s been years since this incident happened but even now, long after I’ve moved out of my parents house and married my long term boyfriend… I can still hear it occasionally. Tapping gently against the glass. 
 
-I don’t know what sort of monster I released all those years ago when I dropped a carelessly wrapped snow globe on the ground by accident in my cold basement room all those years ago but I hope my husband never notices, because I wouldn’t want anyone else to see that large gaping maw.
+I don’t know what sort of monster I released when I dropped a carelessly wrapped snow globe on the ground by accident in my cold basement room all those years ago but I hope my husband never notices, because I wouldn’t want anyone else to see that large gaping maw.
