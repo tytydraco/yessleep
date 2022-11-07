@@ -1,0 +1,15 @@
+I was maybe four or five the first time I heard it. It always came at night when I laid down for the night. Rhythmic thumps in sets of two. Thump-thump, thump-thump, like the uneven footsteps of someone with a limp. They were quiet in the first nights, barely noticeable except on those rare evenings where the tv was off and the traffic outside was still. 
+
+I had nightmares during this time. Every night the thumping would come and every night I’d have the same nightmare. I’d be in any of my favorite places—the park across the street from my house, my neighborhood pool, my bedroom. Then the thumping would come, slow and methodical. Somehow I’d know that I was being hunted. The thumping would grow louder and I would try to hide somewhere that would be obvious to a child; the bathroom, under my bed, in my closet. The creature found me every time. I’d watch it from cracks in the doors or quick peeks, a giant, sentient blob of sticky black goo. Each night my dream would end by being sucked into it and carried away.
+
+The first several nights it happened I would blame my brother and yell at him to stop banging on the floor or on my door. The first time the thumping came on a night he wasn’t home I mustered the courage to ask my parents if they heard it. They hadn’t, of course.
+
+Sometimes after those nightmares I’d wake up in the same places, under my bed or in my closet, and my room would be a disaster. Furniture displaced, blankets, clothes and toys strewn around the room. My parents would yell at me. My dad blamed me, my mom blamed it on sleepwalking. 
+
+When the divorce happened my brother and I went to live with my mom across the country in Ohio. My dad didn’t contest custody and I never spoke to him or saw him again, which is why I was surprised to find out he named me and my brother the sole benefactors of his will. My guess is the house was meant as a coward’s way of asking for forgiveness. 
+
+The nightmares stopped after I moved. As I grew older I convinced myself the nightmares were caused by hearing my heartbeat in my pillow— the cadence was similar enough— and eventually forgot about the thumping and the nightmares entirely. I can remember even laughing at such a childish creature. 
+
+My brother still lives in Ohio and sold me his half of the estate. Three weeks ago I moved back into my childhood home in Colorado with my wife and five year old son, Aiden. Two nights ago I heard the thumping again for the first time in thirty years. It was exactly the same. Thump-thump, thump-thump. 
+
+Two nights ago Aiden went missing. Everything was the same as it was when I was a kid. The furniture was moved, clothes thrown around the floor. Everything was the same except for one thing - I found scratches and something that I think is a piece of a fingernail in the floorboards. My wife doesn’t believe my story. I don’t think the police do either.
