@@ -136,4 +136,4 @@ I relaxed my body and let my hands fall to my sides. Daring myself to open my ey
 
 “What on earth happened?” the receptionist asked.
 
-Would she have believed me if I told her? I drew in a shaky breath and broke eye contact. That’s when I saw the thick, red secretion on my boot. It just wouldn’t leave [me](https://linktr.ee/amandanevadademel) be.
+Would she have believed me if I told her? I drew in a shaky breath and broke eye contact. That’s when I saw the thick, red secretion on my boot. It just wouldn’t leave [me](https://www.reddit.com/u/amanda_nevada_demel?utm_medium=android_app&utm_source=share) be.

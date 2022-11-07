@@ -10,6 +10,6 @@ The flowers were crawling. One grabbed Little Queen but there was no time to tur
 
 My gut told me to run but I was froze. TJ Had to push me as he ran by so I can break the trance I was in. As I ran I heard screams and slowly realized it was Little Queen. I seen Big Queen running toward us to retrieve her twin but she ended in the same tragic fate. We don't know what truly happened to the Queen Twins but we never reached that gate that we longed for we were literally running for our lives. Soon we found the gate a managed to get out in the horrible condition we were in. When we were running to the basketball court I could of sworn the flowers were crawling. They started to grow in the cracks of the concrete. There was nothing to say and we knew there was no escaping the tragedy we entered. I picked one of the flowers and my eyes started to close.
 
-Me and TJ woke up with scars and flower petals all over. We were told the scars were from a fence we were found by. We were told the new that Little and Big Queen found ***us.*** I thought it would be the other way around.
+Me and TJ woke up with scars and flower petals all over. We were told the scars were from a fence we were found by. We were told the news that Little and Big Queen found ***us.*** I thought it would be the other way around.
 
 A couple of years later I saw kids do the same thing we did but If i warned them i would've sounded insane. Then kids started disappearing nearby the forest. We swore we wouldn't say what happened that day because we don't have no idea as to what happened either.
