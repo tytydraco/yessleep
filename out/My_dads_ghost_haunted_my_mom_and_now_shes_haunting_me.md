@@ -22,7 +22,7 @@ She's distant, of course, and I wish I had more time to talk to her. Mom’s dea
 
 Until a week ago, that is.
 
-I walked into our dingy apartment, expecting to be met with the drabness of the walls and the scent of old smoke. Instead, I found my mother standing right beside the stairs. I froze, blinking several times. She was wearing the same outfit she had worn on the night of the funeral; a black dress with buttons down the front. A scar on her neck ran across her throat to where her collar bones began, and her hair hung long in the back.
+I walked into our dingy house, expecting to be met with the drabness of the walls and the scent of old smoke. Instead, I found my mother standing right beside the stairs. I froze, blinking several times. She was wearing the same outfit she had worn on the night of the funeral; a black dress with buttons down the front. A scar on her neck ran across her throat to where her collar bones began, and her hair hung long in the back.
 
 After several minutes, I managed to continue walking without so much as reacting. She wasn't there, just a figment of imagination, I thought. I announced my arrival to my sister, walking past my mom—no, that thing—and headed upstairs. Ellie had barely left the bedroom since the incident. She sat alone in front of our computer desk, playing games while listening to music. As I approached her chair, she glanced up at me, her sluggish eyes a painful reminder of mother's.
 
