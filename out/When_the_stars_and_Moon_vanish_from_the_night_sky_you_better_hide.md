@@ -26,13 +26,13 @@ That’s when it hit me: the reason why I’d been in such a rush towards the ce
 
 With that realization, a surge of adrenaline put my body to purpose. I pushed the car door open, crawling out onto the ground. I prayed for another vehicle to pass by, knowing it was a futile pipe dream. By now, I knew the raid shelters were ready to close, which meant anyone half intelligent would have gotten their asses off the streets. I was alone, and would remain so until the raid finally arrived.
 
-For that was the curse of Silverwoods, that during the night of Halloween, something horrible emerged from the depths of the Earth. The creatures, Preators, would emerge into the darkness of the night, seeking out each and every unfortunate soul still outside. Our only refuge were emergency raid shelters spread across town, and a few bunkers constructed by the rich and wealthy for their own protection.
+For that was the curse of Silverwoods, that during the night of Halloween, something horrible emerged from the depths of the Earth. The creatures, Praetors, would emerge into the darkness of the night, seeking out each and every unfortunate soul still outside. Our only refuge were emergency raid shelters spread across town, and a few bunkers constructed by the rich and wealthy for their own protection.
 
 Alas, the closest shelter was several miles down the road, a sanctuary I’d never reach in time…
 
-Still dazed by the crash, I started rushing along the empty toad. My only solace was a small gas station about a mile’s walk down the road. Though it wouldn’t stand a chance at keeping the Preators out, it might serve as a decent hiding place as I awaited the break of dawn.
+Still dazed by the crash, I started rushing along the empty toad. My only solace was a small gas station about a mile’s walk down the road. Though it wouldn’t stand a chance at keeping the Praetors out, it might serve as a decent hiding place as I awaited the break of dawn.
 
-With a quick estimate, I guessed I had fifteen minutes before the last rays of sunlight vanished below the horizon. A fit man might have easily made it to the gas station by then, but in my current condition, I knew I didn’t stand a chance. Despite that fact, I kept limping my way down the road, practically betting on a miracle to happen. All the while the memories of years passed haunted me, knowing exactly what would happen if the Preators would find me.
+With a quick estimate, I guessed I had fifteen minutes before the last rays of sunlight vanished below the horizon. A fit man might have easily made it to the gas station by then, but in my current condition, I knew I didn’t stand a chance. Despite that fact, I kept limping my way down the road, practically betting on a miracle to happen. All the while the memories of years passed haunted me, knowing exactly what would happen if the Praetors would find me.
 
 Long shadows were cast by the trees along the road, obscuring the mysteries of the forest. Though no one had been able to confirm it, some believed it to be the creatures’ origin. Thus it was a place avoided by most, not even visited on sun filled, summer days. Strange whispers started to emerge from the treeline, marking the beginning of the raid.
 
@@ -40,7 +40,7 @@ The sounds resembled human chatter, speaking in incomprehensible words, mimickin
 
 It was an old tornado siren, one programmed to mark the last five minutes of daylight. It rang with an overwhelming sense of impending doom, giving people one last warning to get to the nearest shelter.
 
-But reaching safety was not an option, so I had to settle for the next best option. I was about two thirds of the way to the gas station when I felt the pain in my head intensify. With it, I started to feel dizzy, causing me to stumble and fall to the ground. Yet I had not given up, so I tried to crawl, anything to escape the clutches of the Preators.
+But reaching safety was not an option, so I had to settle for the next best option. I was about two thirds of the way to the gas station when I felt the pain in my head intensify. With it, I started to feel dizzy, causing me to stumble and fall to the ground. Yet I had not given up, so I tried to crawl, anything to escape the clutches of the Praetors.
 
 I stared up into the sky just in time to witness the last bit of daylight vanish in the distance. With that, the siren finally stopped its foreboding song. The raid had begun, and I was trapped outside. A blanket consisting of a strange, dark substance crawled across the sky, swallowing not only the hidden sun, but the emerging stars, the Moon; and with it, the only remaining semblance of hope. All the while, the pain inside my head got stronger, until I could no longer fight it. I stopped crawling, letting my wound take its toll, once again bringing me to the realm of sleep.
 
@@ -50,9 +50,9 @@ I’m not sure how much time passed between the beginning of the raid, and my se
 
 Using what little remained of my strength, I got back on my feet, moving towards the light on shaky legs. For a while, I wondered if I’d been killed. I thought the light might be my entrance into the afterlight, but as I got closer, that hope was brutally shattered.
 
-Down the road I could recognize the outline of the gas station, illuminated by a car parked a few hundred yards further ahead. It essentially left me with two options: either run for the car and attempt a futile escape, or hide inside the building. Considering my dazed state, I opted for the latter, knowing the Preators would be quick to investigate the unexpected lightsource.
+Down the road I could recognize the outline of the gas station, illuminated by a car parked a few hundred yards further ahead. It essentially left me with two options: either run for the car and attempt a futile escape, or hide inside the building. Considering my dazed state, I opted for the latter, knowing the Praetors would be quick to investigate the unexpected lightsource.
 
-Using the gas station’s backdoors, I could enter the building out of view of the lights. I was depending on the place being empty, hoping the bright lights had attracted the Preators away from my chosen hiding spot.
+Using the gas station’s backdoors, I could enter the building out of view of the lights. I was depending on the place being empty, hoping the bright lights had attracted the Praetors away from my chosen hiding spot.
 
 Holding my breath, I turned the handle to open the door. It produced loud creaks as I pulled it, a sound that shattered the otherwise silent atmosphere. But before I could even get it half way open, I felt something punch me in the chest, shoving me to the ground. Coughing for air, I could only stare up at my assailant, waiting for the next blow to tear through my flesh.
 
@@ -64,7 +64,7 @@ In spite of the darkness, I could tell he was a well built man, most likely in h
 
 “Are you one of them?” he asked, a bit louder this time.
 
-Had he mistaken me for one of the Preators? Or was he blinded by the darkness and confused. Nevertheless, I was too frozen in fear to even form a coherent response. Only once he asked me a second time, did I find the words to beg for mercy.
+Had he mistaken me for one of the Praetors? Or was he blinded by the darkness and confused. Nevertheless, I was too frozen in fear to even form a coherent response. Only once he asked me a second time, did I find the words to beg for mercy.
 
 “Please, I just need a place to hide.”
 
@@ -84,7 +84,7 @@ He ordered me to sit down, putting a firm hand on my shoulder. Then he bent down
 
 “David,” I said.
 
-He inspected my face, almost as if expecting me to change shapes and attack him. Though Preators could poorly mimic human speech, there was no way he could have mistaken me for one of them. Only when he noticed the blood dripping down my temple, did he appear to calm down.
+He inspected my face, almost as if expecting me to change shapes and attack him. Though Praetors could poorly mimic human speech, there was no way he could have mistaken me for one of them. Only when he noticed the blood dripping down my temple, did he appear to calm down.
 
 “You hurt?” he asked, showing a bit more concern.
 
@@ -100,7 +100,7 @@ As I spoke these words, a faint memory flashed before my eyes. I remembered spee
 
 “Alright, David, do you have any idea what the hell is going on here?” Roger asked.
 
-It was a peculiar question, not because I actually had the faintest idea what the Preators were, or why our town was cursed, but because of how honest the question was. The man before me, Roger, hadn’t the faintest idea what was going on. He didn’t even seem surprised by the monster's very existence. Only then did it hit me why they hadn’t sought out safety in the shelters.
+It was a peculiar question, not because I actually had the faintest idea what the Praetors were, or why our town was cursed, but because of how honest the question was. The man before me, Roger, hadn’t the faintest idea what was going on. He didn’t even seem surprised by the monster's very existence. Only then did it hit me why they hadn’t sought out safety in the shelters.
 
 “You’re not from around here?” I asked in shock, knowing that no visitors had been allowed into town for over ten years.
 
@@ -120,11 +120,11 @@ His obliviousness was understandable, as our town hadn’t been marked on any ma
 
 Though I fully understood the gravity of the situation, I lacked the vocabulary to properly explain just how screwed we were. I hesitated, trying my best to find a reasonable explanation.
 
-“Every year, on the night of the thirty-first…” I began, still not sure exactly what to say. “Something happens to Silverwood. It’s like the world falls away, collapsing into a dark abyss. The sky vanishes, and these creatures, Preators, emerge from the dark. People that hide in the bunkers are usually fine, but for the rest, people like us, they get taken.”
+“Every year, on the night of the thirty-first…” I began, still not sure exactly what to say. “Something happens to Silverwood. It’s like the world falls away, collapsing into a dark abyss. The sky vanishes, and these creatures, Praetors, emerge from the dark. People that hide in the bunkers are usually fine, but for the rest, people like us, they get taken.”
 
 “Taken?” Roger asked to clarify.
 
-“When the Preators attack, they don’t kill you. They just form deep wounds that refuse to bleed. No matter how much you suffer, no matter how much you beg for death, they won’t let you go. Only way out is to cremate the bodies before they’re used as spare parts for those monsters. We’ve tried to fight back, but our weapons barely do anything to them.”
+“When the Praetors attack, they don’t kill you. They just form deep wounds that refuse to bleed. No matter how much you suffer, no matter how much you beg for death, they won’t let you go. Only way out is to cremate the bodies before they’re used as spare parts for those monsters. We’ve tried to fight back, but our weapons barely do anything to them.”
 
 The woman looked at me with terror in her eyes, begging for me to reveal that it had all been a cruel joke. But such a relief would never come.
 
@@ -142,7 +142,7 @@ Any amount of hope I could provide would be a thinly veiled lie. But when death 
 
 “We’ll hide here until sunrise. If we stay quiet we might have a chance.”
 
-She nodded in agreement, just slightly relieved by my hollow reassurance. My thoughts wandered to Roger’s brother, who he thought was dead. Truth be told, I knew the man was stuck inside the car, suffering from wounds that should have been fatal. But as morbid as it might have been, his suffering could have been the only thing keeping the Preators distracted from our presence within the gas station.
+She nodded in agreement, just slightly relieved by my hollow reassurance. My thoughts wandered to Roger’s brother, who he thought was dead. Truth be told, I knew the man was stuck inside the car, suffering from wounds that should have been fatal. But as morbid as it might have been, his suffering could have been the only thing keeping the Praetors distracted from our presence within the gas station.
 
 “How many times have you been through this?” Kassandra asked, her voice still shaky.
 
@@ -152,11 +152,11 @@ She nodded in agreement, just slightly relieved by my hollow reassurance. My tho
 
 “It’s not that simple,” I simply stated, hoping she wouldn’t pry too deep.
 
-Roger sat by the wall, staring into the dark through a crack in the door with his hand on the revolver. I didn’t even dare to tell him how inefficient it would be at keeping the Preators at bay. Best case scenario, it could slow them down. But keeping that information from him just might have left him with the slightest sense of control in an otherwise hopeless world.
+Roger sat by the wall, staring into the dark through a crack in the door with his hand on the revolver. I didn’t even dare to tell him how inefficient it would be at keeping the Praetors at bay. Best case scenario, it could slow them down. But keeping that information from him just might have left him with the slightest sense of control in an otherwise hopeless world.
 
 \*\*\*
 
-About an hour passed as we sat in silence, none of us daring to speak a word, lest the Preators find us. I counted the seconds, trying to calculate how long we’d have to sit before being greeted by the first rays of morning light.
+About an hour passed as we sat in silence, none of us daring to speak a word, lest the Praetors find us. I counted the seconds, trying to calculate how long we’d have to sit before being greeted by the first rays of morning light.
 
 But our bout of silence would be abruptly interrupted by the distinct sound of knocking. Shocking us all back to attention. It was coming from the back door I’d used to sneak inside.
 
