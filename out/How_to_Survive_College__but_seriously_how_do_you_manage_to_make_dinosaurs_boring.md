@@ -4,7 +4,7 @@ I thought about writing something insightful about how we can’t escape our pas
 
 I wish I could say that after finishing my freshman year everything settled down, but that’s not how these things work.  I’m not naive.  When I returned home for a short break before the start of the fall semester, I already knew that when I went back to campus I’d be marked.  I had a bargain with the devil and I’d traveled into the depths of the traveling river and returned.  These things can’t be set aside so lightly.
 
-But at least I had a brief reprieve back in my hometown.  
+But at least I had a brief reprieve back in my hometown.
 
 Hah.
 
@@ -89,7 +89,7 @@ Let’s review the rules.
 7. If you’re in the steam tunnels and a door doesn’t open to where you expect, close it and open it again. It should lead you to the correct location on the second try.
 8. If you absolutely must venture out in the rain, go in groups.  Do not be caught in the rain alone.  Similarly, never swim in the gym pool alone.  They hunt in packs and are looking for easy prey.
 
-They don’t have everything, but those are the rules I felt most confident putting into print.  I can always put out updates.  I’ll be honest - I feel silly with these.  Kate always complained about how they didn’t work but she kept doing it, so it must have had *some* effect, right?  And maybe it’ll be different here because people are already passing what to do with the rain around by word of mouth.  I feel they take it more seriously.  
+They don’t have everything, but those are the rules I felt most confident putting into print.  I can always put out updates.  I’ll be honest - I feel silly with these.  Kate always complained about how they didn’t work but she kept doing it, so it must have had *some* effect, right?  And maybe it’ll be different here because people are already passing what to do with the rain around by word of mouth.  I feel they take it more seriously.
 
 But yanno?  Distributing these is a problem for another day.  For the first week I only wanted to focus on my classes and my new job (more on that in another post).
 
@@ -105,7 +105,7 @@ It’s an early morning class.  Starts at 8AM, which is a special kind of hell i
 
 And starts *droning*.
 
-I just have so much regret right now.  
+I just have so much regret right now.
 
 Like most everyone, I suspect, I’m having trouble staying awake.  I’m doing my best.  It’s like he’s going out of his way to make it as difficult as possible, though.  Phones and laptops are banned and since the room is semi-dark, it’s easy to see who is breaking the rule.  I try to take notes but I’m kind of a shit note taker to begin with and it’s not enough to keep my brain engaged.  I’m just hoping this is one of those classes where you can read the textbook and be okay for the exams.
 
@@ -121,9 +121,9 @@ Something ran across my foot.  That was what woke me up.  The professor was stil
 
 There was something odd about the floor, though.  The shadows were off, subtle, but enough to catch my eye and I took a harder look.
 
-The ground was covered in tree roots.  They grew together in thick cords, reminding me of the tangled cables in a computer server room.  They ran down the stepped levels of the lecture hall, flowing steadily towards the middle, rarely branching, rarely veering.  Then they pooled around the podium, swirling to a thick knot right in front of the podium, and then branched out again towards the back wall and beyond.  
+The ground was covered in tree roots.  They grew together in thick cords, reminding me of the tangled cables in a computer server room.  They ran down the stepped levels of the lecture hall, flowing steadily towards the middle, rarely branching, rarely veering.  Then they pooled around the podium, swirling to a thick knot right in front of the podium, and then branched out again towards the back wall and beyond.
 
-I leaned over, pretending to look inside my backpack.  This could be another situation like the thing in the hallway and I felt it best to act natural until I understood what was happening.  But while I was bent over, I touched the tree roots.  
+I leaned over, pretending to look inside my backpack.  This could be another situation like the thing in the hallway and I felt it best to act natural until I understood what was happening.  But while I was bent over, I touched the tree roots.
 
 They felt real enough.  Smooth and cold with a slight chalky texture.  I stared hard at them, trying to make out details as my eyes slowly adjusted to the darkness under the table, shielded from the glow of the unending presentation.  They were covered in lines like cracks, dark paths running perfectly parallel to each other, sometimes crossing over to form bridges between each track.  It reminded me of computer circuitry.
 
@@ -135,9 +135,9 @@ I froze.  It did not.
 
 It *unwound*.  A long, sinuous body uncurled, hundreds of legs clinging to the underside of the particleboard.  Its carapace shined as it caught the light of the projector and two antennas flitted in my direction, each as long as my forearm.
 
-Look, there’s only so much a person can take and still remain calm and collected.  I apparently found my breaking point right then and there and that point is a giant ass bug monster inches from my face.  
+Look, there’s only so much a person can take and still remain calm and collected.  I apparently found my breaking point right then and there and that point is a giant ass bug monster inches from my face.
 
-I screamed.  I threw myself away from it, falling out of my chair.  It reacted to the noise, skittering down the table leg as fast as thought.  I heard the click of its multitude of legs as it stretched out to its full length.  A yard long, at least, and as thick as an apple.  
+I screamed.  I threw myself away from it, falling out of my chair.  It reacted to the noise, skittering down the table leg as fast as thought.  I heard the click of its multitude of legs as it stretched out to its full length.  A yard long, at least, and as thick as an apple.
 
 A millipede.  A giant millipede.
 
@@ -184,6 +184,8 @@ Like hell I’d sit near the front.  I didn’t need him to see me drooling into
 I wonder if they were avoiding the professor eavesdropping.  I wonder if the professor knew it wasn’t a rat.  If he’s going to be watching me now.  Or maybe I’m letting my paranoia get ahead of me.
 
 Or maybe it doesn’t matter.  I have to be careful.  I killed the eye and I have to assume that there is now a target on my back.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/ypawnx/how_to_survive_college_im_a_shitty_barista/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 

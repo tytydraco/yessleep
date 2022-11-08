@@ -184,9 +184,13 @@ A minute later, I hadn’t moved a muscle, neither voluntarily or involuntarily.
 
 “Kent, try making Laurier-Kent clap,” the man on the speaker said. “I want to see if Linda’s gift protects her or affects you.”
 
-“Why can’t *I* make *her* clap?” Agent Laurier-Kent asked.
+"Oh, Agents Rodriguez and Hansen and Detective Cho were able to use their gifts in front of me when they visited."
 
-“Why don’t we make each other clap?” Agent Kent said. “Let’s go.”
+"I understand, but we need to do this in a controlled environment for our records and observation."
+
+“Why can’t *I* make my sister clap?” Agent Laurier-Kent asked.
+
+“Why don’t we make each other clap?” she said. “Let’s go.”
 
 Not a second later, they were both clapping. At least until Agent Kent slapped her own face.
 
@@ -248,39 +252,39 @@ I told him everything in detail, and he nodded and held out his hands and asked 
 
 He handed me a small pouch before he put his fingers in his ears and closed his eyes. “There are flavored candies in there. I want you to take one, read it, smell it, unwrap it, and eat it. You have until I count to ten.”
 
-He began counting, and I quickly reached into the bag, pulling out a flat disk wrapped in rough paper that had “kiwi” written on it. After unfolding the crinkly wrapper, I smelled the candy and popped it into my mouth. The burst of sweetness was a pleasant surprise, and I let it linger on my tongue.
+He began counting, and I reached into the bag, pulling out a disk wrapped in rough paper that had “kiwi” on it. After unfolding the crinkly wrapper, I smelled the candy and popped it in my mouth. The burst of sweetness was a pleasant surprise, and I let it linger on my tongue.
 
-“... nine … ten!” He opened his eyes and ears. “Did you do it?”
+“… ten!” He opened his eyes and ears. “Did you do it?”
 
 I nodded, and he sighed and leaned closer. “Here, hold my hand, let’s see if I can at least get something.”
 
-We linked hands, and he squinted in concentration before he smirked. “You had the kiwi one, didn’t you?”
+We linked hands, and he squinted in concentration before he smirked. “You had the kiwi one.”
 
 My mouth fell open in shock, as did those of the people outside.
 
 “Laurier-Kent, were you able to access her senses via touch?” the man on the speaker asked.
 
-Dr. Laurier-Kent laughed, releasing me as he leaned back. “No, I just smelled it on her breath.”
+Dr. Laurier-Kent laughed, releasing me. “No, I just smelled it on her breath.”
 
 I put my hand to my heart in relief. “Oh, my God, for a moment there …”
 
 “Laurier-Kent, your husband is a terrible influence on you,” the man on the speaker said, not amused. “Get out of there.”
 
-Dr. Laurier-Kent kept chuckling as he got up and walked to the door. “Sorry, Doc, couldn’t resist. Welcome to CoveScope!”
+Dr. Laurier-Kent kept chuckling as he walked to the door. “Sorry, Doc, couldn’t resist. Welcome to CoveScope!”
 
 “Thank you,” I said, my pulse racing after his little prank.
 
 A woman waltzed in next, flipping the chair and straddling it backwards. “Hey, Doc. I’m Agent Singh. I’m a Primary Panger and I’m going to give you a few choices. I can make your heart flutter, make you lose your breath, make your stomach growl, or make you feel like you need to drop a deuce. Pick one.”
 
-“Oh, uh …” I frowned in thought. “I guess you can try to make my stomach growl.”
+“Oh, uh … I guess you can try to make my stomach growl.”
 
-“Try? No, I’m going to do it!”
+“Try? I’m going to do it!”
 
 A few unsuccessful minutes later, she slammed her hands palm-up on the table. “Grab them and let’s get your tummy growling.”
 
 She gripped my hands tight, my skin turning yellow beneath her fingers, but my stomach remained quiet. She let me go and crossed her arms as she scanned me up and down
 
-“Damn, you just might really be a Nuller.”
+“Damn, you just might be a Nuller.”
 
 I smiled, rubbing my aching hands. “I really hope so.”
 
@@ -288,7 +292,7 @@ I smiled, rubbing my aching hands. “I really hope so.”
 
 “Agent Finch, Dr. Abbas, Agent McKenna, Agent Silva, Agent Hunter, and Dr. Nguyen," replied the man on the speaker.
 
-“What about Qadir? He’ll be the most excited to know we have a Nuller.”
+“What about Qadir?"
 
 “We have to make sure she passes her assessment before we even think of sending her to him, or he could end up killing her.”
 
@@ -322,11 +326,11 @@ The seconds became minutes, and I began to get antsy again. Agent Finch hadn’t
 
 “You didn’t read it, did you?” Agent Finch growled.
 
-“I did!” I said, looking at him in shock. “I practically memorized it!”
+“I did!” I said, looking at him in shock. “I memorized it!”
 
 “Finch,” the man on the speaker said. “What are you experiencing?”
 
-Agent Finch clenched his jaw with concentration before he said, “I can feel a crack in her shield.”
+Agent Finch clenched his jaw with concentration before he said, “I feel a crack in her shield.”
 
 I raised my eyebrows in surprise. “Really?”
 
@@ -358,13 +362,13 @@ I looked outside in shock. “An hour! Detective Cho read Agent Hansen’s mind 
 
 He flared his nostrils. “It may be slowing me down, but I can breach it.”
 
-“Finch, this is no time for pride. We’re trying to run an assessment.”
+“Finch, this is no time for pride," the man on the speaker said. "We’re trying to run an assessment.”
 
 “And that’s what I’m trying to do!” Agent Finch snapped, making me recoil as he stood up and knocked his chair back with a crash.
 
-“Alright, you know what.” The man on the speaker sighed. “How about we take a lunch break. Everyone, come back at two sharp.”
+“Alright, you know what.” The man on the speaker sighed. “Let's take a lunch break. Everyone, back at two.”
 
-After shooting me a final look of animosity, Agent Finch stormed out of the room. Shaking off my unease, I stood up, and a woman with blue hair knocked on the glass before she peeked through the door.
+After shooting me a final look of animosity, Agent Finch stormed out of the room, and a woman with blue hair peeked through the door.
 
 “Hey, join us for lunch!”
 
