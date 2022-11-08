@@ -8,7 +8,9 @@
 
 “That’s correct, doll,” Peggy munched a gingerbread cookie and sipped her pumpkin coffee. “Edna and my mother were best friends. As they grew old, they made a pact. Whoever died first would contact the other to let them know what came after this life.” 
 
-“Edna passed away just over a year ago?”
+I rifled through some questions:
+
+“Edna died just over one year ago?”
 
 “Quite right.”
 
@@ -16,9 +18,9 @@
 
 “Yes. Precisely.”
 
-“And there were multiple? In the mailbox?”
+“And there were multiple?”
 
-“Oh, yes. We’ve received quite a few letters over the past year. Always in a pastel blue envelope. Edna’s favorite color, apparently.”
+“Oh, yes. They show up in the mailbox. We’ve received quite a few letters over the past year. Always in a pastel blue envelope. Edna’s favorite color, according to mom.”
 
 “Pastel blue?” I scribbled this detail in my notebook. “And how would you describe the content of these letters, exactly?”
 
@@ -94,14 +96,46 @@ Peggy shifted in her seat, letting out another toot. I was on the verge of sayin
 
 “Right,” I had seen enough, and my mind wandered to my date with Eric. “You’ve been really helpful, Peggy, and I appreciate everything. I think I have what I need.”
 
-“Found your creative inspiration?”
+“Found your inspiration?”
 
-“Ha… Well… Something like that.”
+“Something like that.”
 
-“Glad I could help!” Peggy seemed pleased. “And before you go? I wanna show you the most recent letter. Your tale being a ghost story and all. This one gave me the creeps.”
+“Glad I could help,” Peggy seemed pleased. “And before you go? I wanna show you the most recent letter. Your tale being a ghost story and all. This one gave me the creeps.”
 
-“Oh?” I felt unsettled. “The creeps?”
+“Oh?” I felt uneasy. “The creeps?” 
 
-“Big time,” Peggy was ruffling through her folder. She slid a final note across the tabletop. “Tell me that isn’t kinda freaky?” I reluctantly reached forward and brought the letter to my eyes. “I wanted to burn the damn thing.”
+“Big time,” Peggy was ruffling through her folder. She slid a final note across the tabletop. “Tell me that isn’t kinda scary?” I reached forward – reluctantly – and brought the letter to my eyes. “I wanted to burn the damn thing.”
 
-**PIE IT’S EDNA PIE THIS IS OUR LITTLE SECRET DON’T SHOW THIS TO ANYONE BUT PEGGY ONLY PEGGY PLEASE PIE PLEASE YOU MUSTN'T SHOW THIS TO ANYONE ELSE OTHERWISE I’LL HAVE TO KILL YOU AND KILL THEM TOO**
+**PIE IT’S EDNA PIE THIS IS OUR LITTLE SECRET DON’T SHOW THIS TO ANYONE BUT PEGGY ONLY PEGGY PLEASE PIE PLEASE YOU MUSN’T SHOW THIS TO ANYONE ELSE OTHERWISE I’LL HAVE TO KILL YOU AND KILL THEM TOO**
+
+“Excuse me?” I put the letter down and stared angrily at Peggy. “What the heck?” Was she messing with me? This was getting very uncomfortable. “I’m not sure what-“
+
+The relative peace of Peggy’s home was shattered by a bloodcurdling scream of fear from upstairs. The two of us nearly fell from our chairs, and my mug slipped from my hand, dousing the pine flooring in pumpkin coffee. 
+
+I seriously considered booking it the hell outta there and getting the fuck out of this nutty situation before some primordial (and frankly misplaced) sense of right and wrong kicked in, causing me to race up the stairwell alongside Peggy to see exactly what had happened. 
+
+It’s very difficult to describe what I witnessed when we opened the door to the bedroom. 
+
+My adrenaline was juicing, which caused my vision and temporal sequencing to feel choppy and blurred. Kinda like those stop-motion animations that I used to watch as a kid. 
+
+Esther – the friendly nurse – was the one screaming. It seemed that she was being eaten alive in the corner of the room. Except… I couldn’t see what was consuming her… massive chunks of flesh were being ripped from her body and disappearing into thin air.
+
+The helpless woman flailed miserably as handfuls of her cheek and jaw were pulled away in gooey red bunches. Her eyes were suddenly gone… Then her lips. Peggy and I wailed in horror as Esther’s mangled body collapsed in a pile on the bedroom floor.
+
+“Mom!” Peggy bayed. 
+
+I turned away from the mess of gore that was Ester’s limp form and observed the matriarch of the household. Peggy’s mom, Phyllis, was kneeling by the window. Phyllis was butt-naked and otherwise exactly as anticipated: thin, frail and clearly sick. The window was open, and blustery November air billowed into the room, making me shiver uncontrollably.
+
+“Please, Edna…” Phyllis groaned, begging for mercy. “Please?” I saw Phyllis’ arms pull back and away from her body. Very roughly. “**Ouch!** Stop it, Edna… please… you’re hurting me!” Some invisible entity seemed to force her neck down, holding it against the window sill. “Stop! I didn’t do it! I didn’t show anyone! I’m your best friend, Edna… Don’t take me there!”
+
+I watched in disbelief as the window sill came down with such force against the back of her neck that it lopped the old woman’s head from her body. The crown of her torso must’ve fallen somewhere outside. The naked, decapitated corpse slid downward, splashing the ugly floral wallpaper with crimson arterial fluid.
+
+Peggy was yelling like she was batshit. Telling me to run and call the cops. I felt dizzy, and realized that I was about to pass out. 
+
+Suddenly: Peggy cries in pain and begins to swat desperately at something in front of her. The woman stumbles back – choking on mouthfuls of panic – before tumbling over the second floor railing. Her body bends awkwardly when she impacts the landing, snapping her spine like an accordion… I hear her buttocks emit a final, discordant note.
+
+I’m sitting in the car now. My bone-white hands grip the wheel as the engine rumbles idly. Its unhurried purring makes me jump. My body is paralyzed with terror as my eyes watch exhaust fumes rise in the rear view mirror. 
+
+I should call the police… but what would I say? They’ll blame me for this psycho shit! 
+
+And what about Eric? I could try and explain it to him… But I’m scared to drive home…
