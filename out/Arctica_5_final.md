@@ -184,7 +184,7 @@ It followed behind us, a broken fireman's handle deeply embedded into its side, 
 
 &#x200B;
 
-We turn corner after corner until we finally reached an exit. Chloe got her hands and cranked the handle closed behind us. I run forward and open the second door to the chute. A burst of cold air greeting us, a welcome smell from the putrid lingering of the station behind.
+We turn corner after corner until we finally reached an exit. Chloe cranks the handle closed behind us. I run forward and open the second door to the chute. A burst of cold air greeting us, a welcome smell from the putrid lingering of the station behind.
 
 Together we ran toward the landing pad. I could hear the others shouting at us. I could see Pascal cheering. He slapped me hard on the back as we rushed into the helicopter.
 

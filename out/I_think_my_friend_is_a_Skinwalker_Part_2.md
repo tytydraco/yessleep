@@ -70,7 +70,7 @@ I sped walk to my car and got in, key in ignition, and then placed the brown sat
 
 Once I got back to my apartment, I kicked my shoes off and put the alcohol in the fridge except for one. I shuffled over to the couch and sat down, beer in my left, satchel in my right. I sat the bag down in front of me on the coffee table and then opened the beer. I stared for a few minutes before taking a big gulp and then pulled out my phone to get on Google.
 
-The Shaman said *White Ash* before she threw the bag at my head, so I researched white ash and its uses for the next hour or so. From what I could turn up it could be used to hurt and even kill a Skinwalker. Some have made white ash bullets; others have made a paste and coated a blade with the substance.
+The Shaman said *White Ash* before she threw the bag at me, so I researched white ash and its uses for the next hour or so. From what I could turn up it could be used to hurt and even kill a Skinwalker. Some have made white ash bullets; others have made a paste and coated a blade with the substance.
 
 I exhaled loudly, overwhelmed by everything, was I really going to try to fight this thing? Should I just give up? I was already five beers in and decided to go to bed. The weekend was another opportunity to sulk and think so I wanted to get a jump start by calling it an early night.
 

@@ -10,7 +10,7 @@ According to my GPS though, the exit for the road I would be traveling on was ab
 
 After driving for about 10 minutes, I found myself exiting onto Route 50* which according to my GPS, would take me the rest of the way to my parent's house.
 
-An hour had passed and I noticed there was not one single car on the road, besides me.
+An hour had passed and I noticed there was not one single car on the road, except for me.
 
 The road was located in a very rural area of the state so, I figured that was the reason for the absence of cars.
 
