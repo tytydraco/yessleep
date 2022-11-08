@@ -19,12 +19,11 @@ My lawyer stood up and spoke:
 I felt nervous, and terrified. “Is this supposed to be my life? This isn’t how I pictured it”, echoed in my head. But I made an effort to put my weaknesses aside, and once and for all, claim justice.
 
 -“Stay calm, Mathew. Just tell them your side of the story. Tell then what you told me, and I’ll do the rest. Let’s make him pay.”- 
-
 Whispered my lawyer, as he subtly patted me on the back.
 
 I took a deep breath, and began: 
 
--“My name is Mathew Lewis, and this is my testimony:-
+-“My name is Mathew Lewis, and this is my testimony:”-
 
 A great commotion shook our town that day. It would’ve been an ordinary Sunday morning, if it weren't for all those giant and colorful signs scattered around, seemingly announcing the arrival of a mysterious personality: a man by the name of “Dante, The Vast”. Everywhere I looked, I saw his blue eyes staring at me through his purple mask. “Guess who’s here? Dante The Vast, better get here fast!”. 
 
@@ -36,7 +35,7 @@ The morning fog was thick, and you could just barely see him, but regardless of 
 
 A little boy yelled. 
 
-But of course, our friend decided to ignore anyone and everyone who desperately tried to get his attention. He simply waved goodbye, and we got inside the limousine and ordered the driver to speed off. Leaving his many fans dust-covered and heartbroken as the white vehicle got further and further away. 
+But of course, our friend decided to ignore anyone and everyone who desperately tried to get his attention. He simply waved goodbye, as he got inside the limousine and ordered the driver to speed off. Leaving his many fans dust-covered and heartbroken as the white vehicle got further and further away. 
 
 \- ”What. A. Douche. - 
 
@@ -133,7 +132,7 @@ The magician continued to lift into the air, he must’ve been about 15 feet hig
 
 Yelled Darla in pure awe, as she wiggled uncontrollably in her seat. 
 
-The magician then descended, slowly, and with his arms outstretched as his feet again touched the stage dais. He then treated his fans to an assortment of less elaborate, but just as impressive tricks: making a rabbit appear out of thin air, to then seemingly transform it into a pigeon and let it fly away into the crowd. He started, piece by piece, started pulling a full set of medieval armor out of his pockets, and then, with a snap of his fingers, gave it life. A thunderous ovation serenaded the theater as the seemingly empty set of armor moved around and swung its sword. My sister, now with her mouth gaping wide open, looked shell-shocked. 
+The magician then descended, slowly, and with his arms outstretched as his feet again touched the stage dais. He then treated his fans to an assortment of less elaborate, but just as impressive tricks: making a rabbit appear out of thin air, to then seemingly transform it into a pigeon and let it fly away into the crowd. He then, piece by piece, started pulling a full set of medieval armor out of his pockets, and then, with a snap of his fingers, gave it life. A thunderous ovation serenaded the theater as the seemingly empty set of armor moved around and swung its sword. My sister, now with her mouth gaping wide open, looked shell-shocked. 
 
 \- ”Well, obviously there’s a guy in there. Dumb trick.”- 
 
@@ -290,8 +289,9 @@ I asked again.
 
 \- ”Jesus, Darla. And that’s your idol?”- 
 
-I joked. That made her laugh a bit.
+That made her laugh a bit.
 
+We joked then, but soon, there would be nothing to joke about. 
 
 \-”Ooh! or maybe the fire is fake! With a good enough lighting system and temperature control, it could be a possibility.”-
 
