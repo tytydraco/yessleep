@@ -2,7 +2,7 @@ I laid in bed with my girl, the love of my life. We’d been dating for some mon
 
 She lives in the countryside, since she has her own horses to take care of. Having her own stable and field takes a lot of ground, so that is the reason the house is in the middle of nowhere. But not only is it in the middle of nowhere, it’s surrounded by a forest, it's not placed on a passive field, its trees hugging a large meadow.
 
-So when night strikes, it’s void outside. Stepping just a few steps outside of the comfort lights inside the house, your hands vanish in front of your face. This isn’t the case in the summer though, since the nights around here are rather bright. And of course if the moon is shining brightly down, igniting the world around us. But on those cloudy, dark winter nights, I get the creeps.
+So when night strikes, it’s void outside. Stepping just a few steps outside of the comfort lights inside the house, your hands vanish in front of your face. This isn’t the case in the summer though, since the nights around here are rather bright. And of course if the moon is shining brightly down, it ignites the world brightly around. But on those cloudy, dark winter nights, I get the creeps.
 
 But just stay inside you might say. Yes, that is the problem. Because you see walking inside with the lights on and the darkness surrounding the house, the windows reflect everything inside the house perfectly. It’s almost like a mirror. It’s so perfect that if something were to stand on the other side of the mirror, you’d see your own reflection before you’d notice the thing watching. This is the problem.
 

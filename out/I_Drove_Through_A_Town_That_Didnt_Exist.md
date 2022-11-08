@@ -1,4 +1,4 @@
-Several years ago, I was driving to my parent's home for the holidays.
+Several years ago, I was driving to my parent's house for the Christmas Holidays.
 
 Normally, I would have left a day early (we live in different states) but I had to work overtime so, I got a late start.
 
@@ -8,7 +8,7 @@ Searching my phone, I found one that I was not familiar with but decided to take
 
 According to my GPS though, the exit for the road I would be traveling on was about 2 miles away. 
 
-After driving for about 10 minutes, I found myself exiting onto Route 50* where according to my GPS, would take me the rest of the way to my parent's house.
+After driving for about 10 minutes, I found myself exiting onto Route 50* which according to my GPS, would take me the rest of the way to my parent's house.
 
 An hour had passed and I noticed there was not one single car on the road, besides me.
 
@@ -16,9 +16,9 @@ The road was located in a very rural area of the state so, I figured that was th
 
 Even the road itself was bumpy and full of potholes, so people probably avoided it for these reasons too.
 
-Anyway, the road was surrounded by forest on both sides and I noticed there were no light posts, making it very dark.
+Anyway, the road was surrounded by forest on both sides and I noticed there were no light posts either, making it very dark.
 
-As I continued to drive, I began to get sleepy and nearly crashed my car into a ditch, jolting me wide awake.
+As I continued to drive while listening to Christmas Songs on the radio, I began to feel sleepy nearly crashing my car into a ditch, jolting me wide awake.
 
 Using my phone as a source of light, I got out of my car to access the damage and noticed a sign that read Pottsville - 1 Mile.
 
@@ -28,7 +28,7 @@ I noticed though that I was beginning to feel hungry and remembering the sign fo
 
 Upon entering Pottsville, it appeared normal enough but the further I drove into town, the more I began to notice something was off...
 
-The buildings themselves appeared to be void of color like something out of those old black and white movies but even stranger though, were the people...
+The buildings themselves appeared to be void of color like something straight out of old black and white movies but even stranger though, were the people...
 
 The people, who, I swear were walking backwards like somebody rewinding a movie.
 
@@ -46,7 +46,7 @@ Red light or not, that was my cue to get the hell out of this town.
 
 As I sped off, I looked into my rear-view window and saw that the people were still standing there unmoving, as they watched me leave town.
 
-When I passed the "Leaving Pottsville" sign, there were several Police Officers waiting for me as they barricaded the road.
+When I passed the "Leaving Pottsville" sign, there were several Police Officers (they were flickering too) waiting for me as they barricaded the road.
 
 Not wanting to wait around, I quickly drove through the barricade not looking back once.
 
