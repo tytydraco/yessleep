@@ -32,7 +32,7 @@ The buildings themselves appeared to be void of color like something straight ou
 
 The people, who, I swear were walking backwards like somebody rewinding a movie.
 
-On top of that, they were flickering in and out much like a computer glitch.
+On top of that, they were flickering in and out reminding me of a computer glitch.
 
 These people seemed to be oblivious to me as I continued staring at them, nearly running a red light in the process.
 
@@ -54,7 +54,7 @@ It was around 3 in the morning, when I finally made it to my parent's house luck
 
 The following year, I decided to take the same route (despite my ordeal) and to my surprise, there was no town, no sign of people nothing almost like the town never existed.
 
-To add to the mystery, the road that led into town was actually, a dead end.
+To add to the mystery, the road that led into town was actually now, a dead end.
 
 I don't care if anybody believes me or not because I know what I experienced was real.
 
