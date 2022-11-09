@@ -60,7 +60,7 @@ I crossed the threshold into the house and immediately regretted every decision 
 
 “It’s bad. Jesus fuck woman, that ain’t a dead rat, that’s a fucking family of dead rats.” I covered my nose with the sleeve of my jacket. Beatrice looked offended.
 
-Ammonia hung in the air as an invisible haze, turning tears into acid and breath into hot fire. I’d smelt death only once before. It had been my neighbour and fellow druggy; *Big Bobby*/ His so-called mates had been too busy getting high to call anyone. He was bloated and blue and dripping with maggots when the body-collectors came to drag his sorry-ass out the door. They had all gotten noseblind to him over the week and a half they had lived with his corpse, easy to do when you’re higher than the Burj Khalifa on stilts. Beatrice must have been noseblind too. Only way you could live here.
+Ammonia hung in the air as an invisible haze, turning tears into acid and breath into hot fire. I’d smelt death only once before. It had been my neighbour and fellow druggy; *Big Bobby*. His so-called mates had been too busy getting high to call anyone. He was bloated and blue and dripping with maggots when the body-collectors came to drag his sorry-ass out the door. They had all gotten noseblind to him over the week and a half they had lived with his corpse, easy to do when you’re higher than the Burj Khalifa on stilts. Beatrice must have been noseblind too. Only way you could live here.
 
 “Mind you’re tongue my lovely. Just like my son. I know it's bad - it’s just so hard being a single mother these days.” She shook her head dismissively.
 
@@ -92,7 +92,7 @@ I was scared. Scared of what I’d see sitting on that couch. *Was he dead?* Was
 
 Then I saw it laying there on the couch like a washed up whale in summer; A rotund mass which used to be a man, swollen with rot and gas, enshrined in mustard-stained sheets and liquified fat. There were mountains of maggots basking in the chaos of seeping flesh and rotting bed sores. I could not see the legs, it seemed to me that they had fused together with the couch, the piles of excrement serving as a goopy glue to aid the cursed marriage of man and couch.
 
-“Holy- holy fucking shit.”  I stumbled backwards, knocking over my cleaning trolley. I wondered how long ago he’d died, to have rotted away like that\*. Too fucking long ago.\* No wonder there were rats. Beatrice was crackers. More fucking crackers than the druggies on South Street who had lived with Big Bobby’s corpse for a week.
+“Holy- holy fucking shit.”  I stumbled backwards, knocking over my cleaning trolley. I wondered how long ago he’d died, to have rotted away like that. Too fucking long ago. No wonder there were rats. Beatrice was crackers. More fucking crackers than the druggies on South Street who had lived with Big Bobby’s corpse for a week.
 
 Then I heard it again. The fingers on buttons, the mashing of the controller, the TV still on and a lone shooter sniping from some hill in pixelated Beirut.
 
@@ -100,7 +100,7 @@ Then I heard it again. The fingers on buttons, the mashing of the controller, th
 
 Just as soon as I realised it, he let out a large groan and twisted his horrifying mass to look at me.
 
-There were shackles on his ankles; buried under blankets of pillowy soft flesh. If I touched his skin, I imagined it would have come sloughing off the bone like a well-cooked Christmas turkey.
+There were shackles where his ankles should have been; buried under blankets of pillowy soft flesh. If I touched his skin, I imagined it would have come sloughing off the bone like a well-cooked Christmas turkey.
 
 “Get out.” He mouthed at me. It was all he could do, and it seemed to take him a lot to say. His jowls shook as he said it and his rotted teeth clattered. “Now.”
 
@@ -114,7 +114,7 @@ But it was too late...
 
 &#x200B;
 
-I woke up a few hours later. Across from the rotted mass of her son there had been a small couch; a two-seater. It was in the same gaudy print as the other but looked new and was untarnished by rot. I woke up there, my bloodied head resting on the arm of the chair. Beatrice was beside me, with the frying she must have walloped me with. I tried to move, but my legs were shackled together.
+I woke up a few hours later. Across from the rotted mass of her son there had been a small couch; a two-seater. It was in the same gaudy print as the other but looked new and was untarnished by rot. I woke up there, my bloodied head resting on the arm of the chair. Beatrice was beside me, with the frying pan she must have walloped me with. I tried to move, but my legs were shackled together.
 
 “Don’t panic my lovely. Everything’s alright. I did tell you not to come in here. I don’t have many valuables, I’m sure that’s what you were looking for right? I don’t hire drug addicts to clean my house without hiding my precious things first. Now. Now. Don’t worry. I’m here to help.” She smiled. “We all have vices. Mine is tea, I could drink it all day! My Connor here loves his - Yell of duty - or whatever it’s called. I live to please. What is it *you* want?”
 
