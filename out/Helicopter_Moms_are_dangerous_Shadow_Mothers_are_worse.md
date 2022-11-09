@@ -92,7 +92,7 @@ I found a whole lot of nothing.
 
 Still I tried, even keeping a camera on hand at all times, so that I can capture it. Just to say that I wasn't going crazy. I was so consumed at this point that I even kept certain tabs open on my browser, black ones, just so I could look behind me. Because I knew that if I had on my webcam, she wouldn't appear.
 
-It was on one of those nights when I was hunched over my computer screen, when I was switching between articles and black screens, when I finally saw her reflection. I could feel my heart beating in my chest as slowly reached for my camera.
+It was on one of those nights when I was hunched over my computer screen, when I was switching between articles and black screens, when I finally saw her reflection. I could feel my heart beating in my chest as I switched back and forth, her image blinking in and out, as I slowly reached for my camera.
 
 I whirled around quickly and snapped a photo of her standing outside my window.
 
@@ -110,9 +110,9 @@ I grew more and more desperate, and angry. Angry that I missed my chance to prov
 
 It didn't.
 
-The next time I saw her behind me, I cocked the pistol underneath my hoodie and shot her.
+The next time I saw her behind me, I shot her.
 
-I could hear someone above me screaming. But I didn't care, with my smoking gun I opened the sliding glass and held her down at gunpoint. There was blood everywhere, and I could feel the hot tears rolling down my face as I knew my nightmare was coming to an end.
+I could hear someone above me screaming. But I didn't care. With my smoking gun I opened the sliding glass and held the woman down at gunpoint. There was blood everywhere, and I could feel the hot tears rolling down my face as I knew my nightmare was coming to an end.
 
 "Who are you," I cried. "Why have you been stalking me? Following me? Why did you kill my mother?"
 
@@ -125,3 +125,7 @@ The woman gasped, she was struggling to breathe, I could feel her dying under my
 &#x200B;
 
 When the police came, I was held on accounts of the investigation. The paramedics arrived and called a time of death, zipping up the body as I was drove to the station. A six week investigation took place, it involved the police recovering items from the woman's apartment. There they found pictures of me spanning back from when I was a baby. Among them was a diary documenting how she wanted her child to have a better chance at life, and every time she saw that child; dances, graduation, their first kiss; evidence that placed her in the background, always in the shadows. And an urn, where a blue eyed newborn with blonde hair, was stuffed inside.
+
+&#x200B;
+
+[S](https://www.reddit.com/r/CornerCornea/comments/u6rx8n/subscribe/)
