@@ -124,7 +124,9 @@ The woman gasped, she was struggling to breathe, I could feel her dying under my
 
 &#x200B;
 
-When the police came, I was held on accounts of the investigation. The paramedics arrived and called a time of death, zipping up the body as I was drove to the station. A six week investigation took place, it involved the police recovering items from the woman's apartment. There they found pictures of me spanning back from when I was a baby. Among them was a diary documenting how she wanted her child to have a better chance at life, and every time she saw that child; dances, graduation, their first kiss; evidence that placed her in the background, always in the shadows. And an urn, where a blue eyed newborn with blonde hair, was stuffed inside.
+When the police came, I was held on accounts of the investigation. The paramedics arrived and called a time of death, zipping up the body as I was drove to the station. Then a six week investigation took place, it involved the police recovering items from the woman's apartment. There they found pictures of me spanning back from when I was a baby. Among them was a diary documenting how she wanted her child to have a better chance at life, and every time she saw that child; dances, graduation, their first kiss; evidence placed her in the background, always in the shadows. And there was also an urn, where a blue eyed newborn with blonde hair, was stuffed inside next to a baby tag.
+
+I was switched at birth.
 
 &#x200B;
 
