@@ -6,7 +6,7 @@
 
 “Perhaps,” I felt a rush of annoyance. “Now, about the letters?” My time was limited. I had a movie date with Eric back home in Massachusetts later this evening. “Phyllis – your mother – she had a deal with this friend of hers that croaked? Edna Goldberg?”
 
-“That’s correct, doll,” Peggy munched a gingerbread cookie and sipped her pumpkin coffee. “Edna and my mother were best friends. As they grew old, they made a pact. Whoever died first would contact the other to let them know what came after this life.” 
+“That’s correct, doll,” Peggy munched a gingerbread cookie and sipped her pumpkin coffee. “Edna and my mother were best friends. As they grew old, they made a pact. Whoever died first would contact the other to let them know what came after this life.”
 
 I rifled through some questions:
 
@@ -24,7 +24,7 @@ I rifled through some questions:
 
 “Pastel blue?” I scribbled this detail in my notebook. “And how would you describe the content of these letters, exactly?”
 
-“Hmm…” Peggy frowned. “That’s a good question.” She seemed uncomfortable. “Edna was a bit of a kook, you know? Especially as she aged. Both Edna and mom struggled with dementia. The letters were the same as her personality, I suppose.” Peggy grunted, raising her thigh from the chair before sighing contentedly. “They were, uh… kinda weird?” I realized with dismay that she had ripped ass. “Some were lovely. Others were cryptic. The letters gave mom advice, mainly. That’s what happened with the lottery. The letter told mom to pick those numbers, specifically.” 
+“Hmm…” Peggy frowned. “That’s a good question.” She seemed uncomfortable. “Edna was a bit of a kook, you know? Especially as she aged. Both Edna and mom struggled with dementia. The letters were the same as her personality, I suppose.” Peggy grunted, raising her thigh from the chair before sighing contentedly. “They were, uh… kinda weird?” I realized with dismay that she had ripped ass. “Some were lovely. Others were cryptic. The letters gave mom advice, mainly. That’s what happened with the lottery. The letter told mom to pick those numbers, specifically.”
 
 “Right,” I was trying not to breathe. “And the story got picked up in the Gazette. *Ghostly Friend Helps Pittsford Woman Win Big*.” I took the newspaper from my bag and pointed. “As soon as I saw the title, I had to reach out.”
 
@@ -78,9 +78,9 @@ I squinted at the uneven lettering:
 
 “With all the money?”
 
-“Oh,” Peggy scratched her veins. “We did what the letters suggested. We’ve used most of the money to get mom the best doctors in the area. Her leukemia is at a very advanced stage at this point. She’s bed-ridden upstairs.” 
+“Oh,” Peggy scratched her veins. “We did what the letters suggested. We’ve used most of the money to get mom the best doctors in the area. Her leukemia is at a very advanced stage at this point. She’s bed-ridden upstairs.”
 
-Peggy shifted in her seat, letting out another toot. I was on the verge of saying something rude when we both turned at the sound of a car crunching over the gravel driveway. 
+Peggy shifted in her seat, letting out another toot. I was on the verge of saying something rude when we both turned at the sound of a car crunching over the gravel driveway.
 
 “Speak of the devil. That’s the nurse. Mom can’t move anymore. But we pay for in-home help to care for her around the clock.” The door opened: a stout, middle-aged woman with beautiful mahogany skin walked in from the cold. “Esther, dear. Say hi to Kimber!”
 
@@ -90,7 +90,7 @@ Peggy shifted in her seat, letting out another toot. I was on the verge of sayin
 
 “No, no thank you,” Esther replied politely, lifting a case of what I assumed were medical supplies and starting up the staircase. “I’ll be upstairs with Mammy Phyllis.” The stairs creaked as Esther walked to the second floor of the house. “Nice to meet you, Kimber.”
 
-“You as well,” I glanced at the time. 
+“You as well,” I glanced at the time.
 
 “Esther’s an angel. She takes the best care of mom. It’s expensive, though, and we’re blowing through winnings faster than I’d have thought. At least I was able to fix the boiler.”
 
@@ -102,7 +102,7 @@ Peggy shifted in her seat, letting out another toot. I was on the verge of sayin
 
 “Glad I could help,” Peggy seemed pleased. “And before you go? I wanna show you the most recent letter. Your tale being a ghost story and all. This one gave me the creeps.”
 
-“Oh?” I felt uneasy. “The creeps?” 
+“Oh?” I felt uneasy. “The creeps?”
 
 “Big time,” Peggy was ruffling through her folder. She slid a final note across the tabletop. “Tell me that isn’t kinda scary?” I reached forward – reluctantly – and brought the letter to my eyes. “I wanted to burn the damn thing.”
 
@@ -110,32 +110,30 @@ Peggy shifted in her seat, letting out another toot. I was on the verge of sayin
 
 “Excuse me?” I put the letter down and stared angrily at Peggy. “What the heck?” Was she messing with me? This was getting very uncomfortable. “I’m not sure what-“
 
-The relative peace of Peggy’s home was shattered by a bloodcurdling scream of fear from upstairs. The two of us nearly fell from our chairs, and my mug slipped from my hand, dousing the pine flooring in pumpkin coffee. 
+The relative peace of Peggy’s home was shattered by a bloodcurdling scream of fear from upstairs. The two of us nearly fell from our chairs, and my mug slipped from my hand, dousing the pine flooring in pumpkin coffee.
 
-I seriously considered booking it the hell outta there and getting the fuck out of this nutty situation before some primordial (and frankly misplaced) sense of right and wrong kicked in, causing me to race up the stairwell alongside Peggy to see exactly what had happened. 
+I seriously considered booking it the hell outta there before some primordial (and frankly misguided) sense of right and wrong kicked in, causing me to race up the stairwell alongside Peggy to see exactly what had happened.
 
-It’s very difficult to describe what I witnessed when we opened the door to the bedroom. 
-
-My adrenaline was juicing, which caused my vision and temporal sequencing to feel choppy and blurred. Kinda like those stop-motion animations that I used to watch as a kid. 
+It’s very difficult to describe what I witnessed when we opened the door to the bedroom.
 
 Esther – the friendly nurse – was the one screaming. It seemed that she was being eaten alive in the corner of the room. Except… I couldn’t see what was consuming her… massive chunks of flesh were being ripped from her body and disappearing into thin air.
 
 The helpless woman flailed miserably as handfuls of her cheek and jaw were pulled away in gooey red bunches. Her eyes were suddenly gone… Then her lips. Peggy and I wailed in horror as Esther’s mangled body collapsed in a pile on the bedroom floor.
 
-“Mom!” Peggy bayed. 
+“Mom!” Peggy bayed.
 
-I turned away from the mess of gore that was Ester’s limp form and observed the matriarch of the household. Peggy’s mom, Phyllis, was kneeling by the window. Phyllis was butt-naked and otherwise exactly as anticipated: thin, frail and clearly sick. The window was open, and blustery November air billowed into the room, making me shiver uncontrollably.
+I turned away from the mess of gore that was Ester’s limp form and observed the matriarch of the household. Peggy’s mom, Phyllis, was kneeling by the window. Phyllis was butt-naked and otherwise exactly as anticipated: thin, frail and clearly sick. The window was open, and blustery November air billowed into the room, making me shiver.
 
 “Please, Edna…” Phyllis groaned, begging for mercy. “Please?” I saw Phyllis’ arms pull back and away from her body. Very roughly. “**Ouch!** Stop it, Edna… please… you’re hurting me!” Some invisible entity seemed to force her neck down, holding it against the window sill. “Stop! I didn’t do it! I didn’t show anyone! I’m your best friend, Edna… Don’t take me there!”
 
-I watched in disbelief as the window sill came down with such force against the back of her neck that it lopped the old woman’s head from her body. The crown of her torso must’ve fallen somewhere outside. The naked, decapitated corpse slid downward, splashing the ugly floral wallpaper with crimson arterial fluid.
+I watched in disbelief as the window sill came crashing down with such force against the back of her neck that it lopped the old woman’s head from her body. The crown of her torso must’ve fallen somewhere outside, and her naked, decapitated corpse slid downward, splashing the floral wallpaper with crimson fluid.
 
-Peggy was yelling like she was batshit. Telling me to run and call the cops. I felt dizzy, and realized that I was about to pass out. 
+Peggy was yelling like she was batshit. Telling me to run and call the cops. I felt dizzy, and realized that I was about to pass out.
 
 Suddenly: Peggy cries in pain and begins to swat desperately at something in front of her. The woman stumbles back – choking on mouthfuls of panic – before tumbling over the second floor railing. Her body bends awkwardly when she impacts the landing, snapping her spine like an accordion… I hear her buttocks emit a final, discordant note.
 
-I’m sitting in the car now. My bone-white hands grip the wheel as the engine rumbles idly. Its unhurried purring makes me jump. My body is paralyzed with terror as my eyes watch exhaust fumes rise in the rear view mirror. 
+I’m sitting in the car now. My bone-white hands grip the wheel as the engine rumbles. Its idle purring makes me jump. My body is paralyzed with terror as my eyes watch exhaust fumes rise in the rear view mirror.
 
-I should call the police… but what would I say? They’ll blame me for this psycho shit! 
+I should call the police… but what would I say? They’ll blame me for this psycho shit!
 
 And what about Eric? I could try and explain it to him… But I’m scared to drive home…
