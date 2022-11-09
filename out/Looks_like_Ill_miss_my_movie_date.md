@@ -126,7 +126,7 @@ I turned away from the mess of gore that was Ester’s limp form and observed th
 
 “Please, Edna…” Phyllis groaned, begging for mercy. “Please?” I saw Phyllis’ arms pull back and away from her body. Very roughly. “**Ouch!** Stop it, Edna… please… you’re hurting me!” Some invisible entity seemed to force her neck down, holding it against the window sill. “Stop! I didn’t do it! I didn’t show anyone! I’m your best friend, Edna… Don’t take me there!”
 
-I watched in disbelief as the window sill came crashing down with such force against the back of her neck that it lopped the old woman’s head from her body. The crown of her torso must’ve fallen somewhere outside, and her naked, decapitated corpse slid downward, splashing the floral wallpaper with crimson fluid.
+I watched in disbelief as the window came crashing down with such force against the back of her neck that it lopped the old woman’s head from her body. The crown of her torso must’ve fallen somewhere outside, and her naked, decapitated corpse slid downward, splashing the floral wallpaper with crimson fluid.
 
 Peggy was yelling like she was batshit. Telling me to run and call the cops. I felt dizzy, and realized that I was about to pass out.
 

@@ -29,3 +29,5 @@ The whole mirror turned black, like an ink slowly spread over and consumed it. S
 
 
 The mirror became inky again. When the image returned it was me, but with missing teeth, an even more crooked nose, and severely overweight. My hair was thin and poorly maintained, while facial hair seemed to sprout from all sorts of unsightly places on my face. Deep down it was an image of everything I didn’t like about myself. The reflection started to scream and I screamed too, screams of pure horror, until finally I grabbed a nearby vase and threw it with all my strength into the mirror. It smashed into a million pieces, and I stared at the remains in shock and terror for some time. They say that breaking a mirror gives seven years of bad luck, but after meeting that demon... I think my bad luck started before then.
+
+[x](https://www.lairofmysteriouspowers.com/)
