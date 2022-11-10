@@ -42,7 +42,7 @@ He took one look at the suitcase, then at me, before rushing over to come pick m
 
 Things changed after that.
 
-The business went under, and my dad got a part time job at the power plant. That didn't last. Nor any other job for that matter. Which is why we ended moving again. And again, and again. It was a wonder how I got through high school at all. In one semester I changed districts 4 times.
+The business went under, and my dad got a part time job at the power plant. That didn't last. Nor any other job for that matter. Which is why we ended moving again. And again, and again. It was a wonder how I got through high school at all. During one semester, I changed districts 4 times!
 
 But I was a good student.
 
@@ -64,7 +64,7 @@ Hopefully, nothing like me.
 
 Everything was going better than expected. I was on track to transfer to a four year college that was nearby this time, though it only offered a half scholarship, but couple that with some loans, a grant, and FAFSA. I was ready to go.
 
-My boyfriend was even supportive, and it even seemed as if my dad was coming around. He showered more regularly, worked more consistently, and even started drinking less.
+My boyfriend was incredibly supportive, and it even seemed as if my dad was coming around. He showered more regularly, worked more consistently, and even started drinking less.
 
 This was my ticket I thought.
 
@@ -74,9 +74,9 @@ And when I turned around, she was gone.
 
 For days it haunted me. Guilt, that perhaps my mother was seeing something. Fear, that it was now affecting me. Anger, that it was possibly hereditary. Of all the things that I could have gotten, this was it?
 
-The woman in black consumed my living days. I stopped sleeping, and barely ate. Everywhere I went, I was always looking over my shoulder. Checking my bags. Carrying pepper spray. And I knew it was coming to an end when I was on a date with my boyfriend and I locked the doors on our way into a restaurant.
+The woman in black consumed my living days. I stopped sleeping regularly, and barely ate. Everywhere I went, and wanted to go, would be spent constantly looking over my shoulder. Checking my bags. Carrying pepper spray. And I knew it was coming to an end when I was on a date with my boyfriend and I locked the doors on our way into a restaurant.
 
-I looked into his eyes. as he sat across from me, and I knew that whatever my mom did to my dad. I couldn't do to him. That I had to help myself, before I was ready to be in a relationship. That I loved him enough, to not destroy his life as well. So I said goodbye a person I loved.
+I looked into his eyes. as he sat across from me, and I knew that whatever my mom did to my dad. I couldn't do to him. That I had to help myself, before I was ready to be in a relationship. That I loved him enough, to not destroy his life as well. So I said goodbye to a person I loved.
 
 My psychiatrist recommended some pills. Blue ones, white ones, a purple one. I took them by the handful, hoping that they would work. And every time that I think they were starting to help, I would catch a glimpse of something in my corner cornea. A shadow, or a figure. A woman in black.
 
@@ -92,7 +92,7 @@ I found a whole lot of nothing.
 
 Still I tried, even keeping a camera on hand at all times, so that I can capture it. Just to say that I wasn't going crazy. I was so consumed at this point that I even kept certain tabs open on my browser, black ones, just so I could look behind me. Because I knew that if I had on my webcam, she wouldn't appear.
 
-It was on one of those nights when I was hunched over my computer screen, when I was switching between articles and black screens, when I finally saw her reflection. I could feel my heart beating in my chest as I switched back and forth, her image blinking in and out, as I slowly reached for my camera.
+It was on one of those nights when I was hunched over my computer, when I was switching between articles and black screens, that I finally saw her reflection. I could feel my heart beating in my chest as I switched back and forth, her image blinking in and out, back and forth, as I slowly reached for my camera.
 
 I whirled around quickly and snapped a photo of her standing outside my window.
 
@@ -112,7 +112,7 @@ It didn't.
 
 The next time I saw her behind me, I shot her.
 
-I could hear someone above me screaming. But I didn't care. With my smoking gun I opened the sliding glass and held the woman down at gunpoint. There was blood everywhere, and I could feel the hot tears rolling down my face as I knew my nightmare was coming to an end.
+I could hear someone above me screaming, yelling for the police. But I didn't care. With my smoking gun I opened the sliding glass and held the woman down at gunpoint. There was blood everywhere, and I could feel the hot tears rolling down my face as I knew my nightmare was coming to an end.
 
 "Who are you," I cried. "Why have you been stalking me? Following me? Why did you kill my mother?"
 
@@ -124,7 +124,7 @@ The woman gasped, she was struggling to breathe, I could feel her dying under my
 
 &#x200B;
 
-When the police came, I was held on accounts of the investigation. The paramedics arrived and called a time of death, zipping up the body as I was drove to the station. Then a six week investigation took place, it involved the police recovering items from the woman's apartment. There they found pictures of me spanning back from when I was a baby. Among them was a diary documenting how she wanted her child to have a better chance at life, and every time she saw that child; dances, graduation, their first kiss; and how she was always in the shadows, watching. And there was also an urn, where a newborn was stuffed inside next to an old baby tag, its blonde hair still growing.
+When the police came, I was held on accounts of the investigation. The paramedics arrived and called a time of death, zipping up the body as I was escorted to the station. Then a six week investigation took place, it involved the police recovering items from the woman's apartment. There they found pictures of me spanning back from when I was a baby. Among them was a diary documenting how she wanted her child to have a better chance at life, and every time she saw that child; dances, graduation, their first kiss; and how she was always in the shadows, watching. And there was also an urn, where a newborn was stuffed inside next to an old baby tag, its blonde hair still growing.
 
 &#x200B;
 
