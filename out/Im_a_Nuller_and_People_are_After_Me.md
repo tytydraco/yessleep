@@ -556,7 +556,7 @@ I jumped at a distant crack and cowered against the wall, trembling as I kept my
 
 I hated waiting indefinitely. Every shadow and sound was going to toy with my nerves and spur my unpleasant imagination. The sun was setting too, and although the night would provided better cover, chills crept down my spine at the thought of being alone and vulnerable in a dark, secluded construction zone. With a fretful breath, I leaned against the wall and hugged my legs, praying CoveScope would call soon and let me know it was safe to come out.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/ykf4te/im_a_veterinarian_but_my_last_patient_was_a/) - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - [Part 3](https://www.reddit.com/r/nosleep/comments/ymar27/im_a_nuller_and_today_an_attempt_was_made_on_my/) - **Part 4** - *Part 5*
+[Part 1](https://www.reddit.com/r/nosleep/comments/ykf4te/im_a_veterinarian_but_my_last_patient_was_a/) - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - [Part 3](https://www.reddit.com/r/nosleep/comments/ymar27/im_a_nuller_and_today_an_attempt_was_made_on_my/) - **Part 4** - [Part 5 (final)](https://www.reddit.com/r/nosleep/comments/yr2f57/im_a_nuller_and_they_broke_me/)
 
 \-----
 

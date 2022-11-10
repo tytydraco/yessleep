@@ -1,0 +1,15 @@
+this all started 2 years ago when i swear to god i saw something standing in the corner of my room. when i got up to leave my room and tell my parents i came back and it was gone. of course my parents thought i was crazy but i would too if my son had said there is somebody standing in their room.
+
+ after the first appearance it never stopped showing up. i kinda got used to it but it was still very unsettling. then a exact year after the first appearance, it never showed up again, that is until now.
+
+ the day it came back i was not scared until i realized it wasn’t the same. it was in the same exact position as before but was not the same figure. the first figure was slender and human shaped. this one is slender but has a bad hunch and no arms. the worst part was i could see its face. the most awful thing i’ve seen in a while. the eyes wide and glowing white with all black pupils. the grin. i cant even describe it. smiling with no teeth and just dark with a light in the middle of the throat. at least that’s what it looks like to me.
+
+ i immediately got up and ran to my parents. they didn’t believe me but i was so persistent they decided to at least check. this time it didn’t leave. my dad was the country type so he had a gun case full of shotguns, ARs, etc. he grabbed a shotgun and walked in my room. he turned the light on and it just stood there. oh god it was disturbing i almost threw up from the sight of it.
+
+ the arms were just gone but the worst part was they didn’t heal you could see the bone. i never wanna see it again. the face is even worse in the light. it was the palest face you would ever see just grinning ear to ear. pieces of flesh just missing. teeth were missing and what looks like a lightening bug in the throat of this.. this thing. no hesitation my dad pulls the trigger and after i open my eyes the thing is gone but there is a hole in my wall. i look over for my dad.
+
+ he’s gone. my dad is gone. i panicked and look around and realize my mom is also not next to me anymore. i run to my sisters room and swing the door open and they are still there but the thing is standing over my older sister. i run as fast as possible to my dads room to grab a gun. i run back to there room and it is grabbing my sister as i shoot. the sound it made was like nothing you’d ever hear even from a dying moose. a scream but also not a scream it was like a gurgled scream.
+
+ my sister was dropped on the floor. and the thing was gone. i cleared the whole house making sure it wasn’t still here. i called 911 and they just came to make sure it wasn’t here and told me if it showed up again to call. i tried to explain that wouldn’t be possible but they said to try as hard as possible. 
+
+ i haven’t seen it since but my parents have not turned up and my sister is not the same as she was before that night.

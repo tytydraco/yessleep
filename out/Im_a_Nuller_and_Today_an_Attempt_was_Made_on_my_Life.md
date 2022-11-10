@@ -740,13 +740,13 @@ Qadir nodded. “I agree.”
 
 “We're going to keep this between us," Agent Rodriguez said. "We'll say Linda found the card and explored nearby elevators."
 
-Qadir and I looked at each other, dejected. "Okay."
+Qadir and I sighed, dejected. "Okay."
 
-"Linda, I’m sending the elevator up for you. I’m glad no one was affected, but we still need to complete your assessment before you interact any further with Qadir.”
+"Linda, I’m sending the elevator up. We need to complete your assessment before you interact any further with Qadir.”
 
 “I understand,” I said.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/ykf4te/im_a_veterinarian_but_my_last_patient_was_a/) - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - **Part 3** - [Part 4](https://www.reddit.com/r/nosleep/comments/yn8yu5/im_a_nuller_and_people_are_after_me/) - *Part 5*
+[Part 1](https://www.reddit.com/r/nosleep/comments/ykf4te/im_a_veterinarian_but_my_last_patient_was_a/) - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/ylhv7k/im_a_veterinarian_and_also_a_nuller/) - **Part 3** - [Part 4](https://www.reddit.com/r/nosleep/comments/yn8yu5/im_a_nuller_and_people_are_after_me/) -  [Part 5 (final)](https://www.reddit.com/r/nosleep/comments/yr2f57/im_a_nuller_and_they_broke_me/)
 
 \-----
 

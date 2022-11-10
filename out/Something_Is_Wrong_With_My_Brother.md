@@ -1,0 +1,25 @@
+I grew up as an only child, it being only me and my parents living together up until I was 10. When I turned 10 my birthday surprise was my parents adopting a new kid who was my age. His name was Montel and what people would call a very reserved person. He didn't talk much nor did he show much emotion as even when he first saw me he had little to no expression. Over the years he would become more and more odd and usual, until one day where he'd cross the line.
+
+&#x200B;
+
+We lived in a pretty small town in kinda the shitty part of it, I honestly don't know why my parents would want another kid as we could hardly even sustain ourselves. To keep clothes on our backs and food in our stomachs both our parents would work pretty intense jobs that took up a lot of time which left Montel and I to go to school and spend the rest of our day doing whatever we could until our parents got back. This also let me observe Montel so to speak, letting me watch his habits and stuff like that. The one odd thing about Montel I first noticed is that he never ate or drank If you were to look at him you'd see he's a healthy looking person, not malnourished or anything like he should be. We'd taken him to the doctor after noticing this and they even said he doesn't have an eating disorder or anything like that.
+
+&#x200B;
+
+One day I was watching TV with Montel and eating some heated up pizza and offered him a slice but he just looked at me almost in disgust, "I don't eat food like that." He told me. "What do you mean? It's just pizza." I told him. "I only eat organic food." Montel said. "You mean like apples and stuff?" I asked. He just shook his head and continued watching TV. Another weird thing about him was he hated light touching him. He always wore a jacket or hoodie and some gloves, keeping his face hidden whenever a light was on with a face mask. Speaking of which he never took that mask off at least in front of everyone.
+
+&#x200B;
+
+At school one day I was called to the office as my mom had called to say that Montel was sent home sick, which I thought was weird as the kid never got sick. So I went through the rest of my day at school before coming home and once I got home I saw something that still frightens me today. Trailing from the side of the house up to the door step was a trail of crimson, leading up to the door. I hesitantly walked up to the door and opened it to see more blood leading into the house and I followed it. I followed the trail down the hall and into Montel's room, "Montel, a-are you okay?" I called out. I walked up to his door and opened it to see a horrifying and unnerving sight. Montel was on the floor with his back to me hunched over the body of a person, I saw that person's face and saw blood dripping out the side of his mouth as I also saw his neck missing a large chunk.
+
+&#x200B;
+
+Montel suddenly stopped what he was doing and looked back at me, I then finally got to see his real face. His jaw was unhinged with what looked like thousands of razor sharp teeth that were coated in blood and chunks of flesh and guts. I saw the body of the man he was feasting on and saw a crater in the man's stomach, having organs spilled out on the sides of it. I stumbled back until I fell to the floor with tears and sweat starting to drip down my face. Montel let out an inhuman roar as he stood up and as he did I did the same, running back down the hall and out of the door towards the street.
+
+&#x200B;
+
+As soon as I got onto the street suddenly a car came out of nowhere and ran into me sending me at least 10 feet away. I rolled onto my back feeling what had to be broken ribs as I looked in front of me at the car, the driver came out and went to come over to me when he was tackled into his car. Montel jumped on top of the driver and sank his teeth into the skull of the man to then rip it out which sprayed blood everywhere including on me. I crawled backwards as Montel continued to rip out and consume the skull and brain of the driver until he looked at me, getting off the man and stalking towards me. As he was about to pounce onto me suddenly a chunk of his skull was blown off after a loud gunshot went off.
+
+&#x200B;
+
+Montel's body fell on top of me and I screamed as I pushed him off, seeing Montel missing half of his head with blood pouring out everywhere. I looked to see who shot Montel and saw my dad with a smoking revolver. My mom ran over to me and helped me up as I looked at my dead brother on the concrete, "It's okay baby, you're safe now." My mom told me as she brushed my hair. My parents helped me into the car and took me to the hospital where I was treated for four broken ribs and a concussion. We managed to scrape up enough money to move to a somewhat better part of town as we didn't want to even spend a second back in that house. If you ever get an adopted sibling, please be sure you know who they really are.
