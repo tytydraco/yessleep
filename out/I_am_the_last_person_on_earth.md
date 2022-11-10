@@ -1,0 +1,55 @@
+I had long lost track of the time I have spent wandering. Being the last person is lonely, and it is hard work living totally off the land by yourself, but it keeps me busy. Especially in the winter: I’ve no flint to make fire, so I am often cold, in spite of the shaggy furs I wear. For that same reason, I have also adjusted to eating raw meat – but that transition was shockingly easy. 
+
+Now, wandering through the snow, the pangs of hunger tug at my belly. Hearing the chittering of a squirrel in a tree, my belly growls. On wide strides I make my way to the tree, easily reaching up to pluck the squirrel from its branch. It squirms in my grasp, but I hold it fast. Biting down into its head, it squeals before going limp, its skull snapping into pieces between my jaws. Sinewy strands stretch from its head to its tiny body as I pull back. Chewing as I continue to walk, I start to contemplate where I’ll sleep tonight. I do have a couple makeshift shelters in the area, each one differently suited to different conditions. Today is a lovely day, though so I think I will wander a bit further than I ordinarily would.
+
+Most other creatures are not as foolish as this squirrel. Most keep well out of my path, hearing or smelling my approach. The still, quiet woods make a peaceful walk, and I reflect that not all is bad now that my kin are gone. 
+
+I never did get along with others. From the time I was young, I was bullied and rejected by my peers. Not that it mattered much. I would prefer to play alone anyways or read in some corner by myself. I just wished they’d ignore me. Their torments did wear me down sometimes, but  I was used to being ignored: When I went home, my father would likely be passed out on the couch, drunk; my mother likely at work. This was the most peace I knew, until my mother came home, when my parents would start screaming at one another. I would grab a book and make my way into the woods, reading until the sun started to set, when I would make my way home. When my mother finally left my father, it seemed she worked even more, leaving me to get back and forth from school and cook for myself. I learned independence from a young age. 
+
+I was a teenager – maybe fourteen – when I started working, my mother needing me to contribute to the home. I worked at first at a little convenience store, then with a small construction company, then with a land scaping business, until finally I got my dream job. I signed a temporary contract with a government department that was responsible for rescue and recovery. My home is in a very rural, mountainous area, and many people get lost or stranded in the wilderness. The woods have always been a second home for me, so I jumped at the opportunity. 
+
+A tourist was reported missing by his relatives, claiming they had not heard from him in days. He had been camping on the biggest mountain in our town and was supposed to be back by now. We were dispatched a day or so later when still no one had heard from him. 
+
+After day or so on the mountain, we were resolved for it to be a recovery mission, but still found no trace of the missing person. I can vaguely recall when we first realized we were lost. Figuring the tourist went off the beaten trail as we could not find any trace of him along the common paths, we had gone into the woods. After several hours, of wandering among the trees, we started to pay more attention to our compasses: my stomach had dropped as I realized we had been walking in circles for hours. 
+
+It was fall. I remember that.  The days were bright and sunny, but the temperatures plummeted in the nights. We would huddle together in one tent, trying to maintain our warmth, hunting any little critter that passed our campsites. 
+
+There was snow on the ground by the time I found the trail back to town. Walking on exhausted feet, the relief I felt as I saw my hometown was quickly extinguished as I walked down the main street. The rest of my crew had long ago succumbed to exposure or starvation, and I found I was the only survivor, not only of the mountain, but also whatever the hell happened to my town. It was afternoon, based on where the sun was in the sky, and yet there was no one there. It was like the entire town had packed up and left. No cars were left in driveways, and when I peered into the windows, layers of dust covered the scattered things that were left. It seemed people took everything except furniture and hangings on the wall and had just fled. 
+
+I roamed around town, lingering in the spots I recalled most affectionately. Eventually, I made my way to the next town over, where I discovered the same sort of ghost town. Every place I went from then on in the coming years was similarly abandoned. In time, I came to terms with the state of things. I started setting up my shelters, creating a new routine for myself. It could be lonely, cold, and difficult, but I am introverted, independent and used to the woods, so I adjusted and just accepted my circumstances.
+
+So, you can imagine my shock when I heard a sound I never thought I would hear again. Making my way through the trees at the bottom of that same mountain, I could hear the distant, but unmistakable, sound of human voices. I felt my feet animatedly carry me up the mountainside, following the voices. 
+
+“Hurry, Dan!” a woman’s voice called out, the voices now loud enough that I could distinguish specific words. 
+
+“I’m going as fast as I can,” a man’s exasperated voice replied. “It’s all a silly superstition, anyway. Don’t know why you’re so afraid.” 
+
+“I’ve told you, I’ve never seen Dad so on edge in my life,” the woman replied. “I’ve never known Dad to be scared of anything, but the look on his face when he showed up that night.” She paused. “You didn’t see him. It was like he had seen a ghost.” 
+
+The man chuckled. “Like your father would be scared of a ghost.” 
+
+Approaching, now slowly, I hid among the trees, trying to make as little noise as possible. I could hear the woman cluck her tongue. “That’s the point! Dad never believed any of those old stories. He was one of the last ones to leave, thinking they were all going crazy. So, I believe what he told me. Besides, this whole area just creeps me out now. Do you seriously not feel it? How eerily quiet and still everything is? Like just before a storm rolls in.” 
+
+“That’s cause no one’s here, Sarah,” the man said, his voice amused.
+
+As I drew near, I could see a little log cabin in a clearing beyond the trees. In the driveway, one of those big moving trucks. The door to the cabin was wide open, so I assumed they had gone back inside. 
+
+Creeping around the treeline, I moved as carefully as I could. A part of me wanted to just jump out and run to them, in some strange elation I never thought I’d feel at the sound of another’s voice. But yet another part of me knew I needed to hide in the trees. I settled on lingering on the threshold created by the trees and watching curiously. 
+
+The woman came back outside, opening the door wide and moving a decorative bin out of the way of the door. I got my first real look at her and in that instant, something snapped within me: some animal instinct, running deep in my veins reared its head. I must have moved or made a noise, because the woman’s head jerked up and she saw me in the trees. She screamed and plunged back into the house as I burst out from among the trees, lunging at the door as she slammed it shut. I hit the door just as I heard the lock click into place, and I mindlessly threw my fists at the door. The door did not budge, so I slammed my body into it, flinging myself into the wood, hearing it starting to splinter. 
+
+Memories flooded my mind through hunger pangs as I recalled the sweet, succulent taste of human flesh. The first time I had eaten human flesh, it had been with shame. Cooked over a hastily made fire, myself and two of my coworkers had eaten in total silence over the remains of our first fallen comrade. As I ate, I had been shocked to find I quite enjoyed it: it tasted oddly like pork, the blood and juices exploding in my mouth, satisfying my hunger in a way the birds and hares we had survived off of never could. I quickly grew stronger than the others as I ate more meat than them. Slowly but surely, they all died off, their corpses being immediately devoured.
+
+The last of my coworkers – I cannot recall his name – I could tell, did not trust me. He eyed me over the embers of that last fire, neither of us willing to be the first to fall asleep. Eventually, he dropped off from exhaustion, but I remained awake, watching him in the dying light. I bashed in his skull with a rock, before eating his brains just as they were. I remember the slimy texture, but I did not care: I was overcome with a primal bloodlust I had never known. 
+
+That same savage need surged through me again, as I slammed my body against the door, still not yielding. I can remember the agony I had felt as my body had turned into the beast I am now, but it was all worth it. My bare hands could uproot a sapling, snap a bone in half – or smash a window open. 
+
+Snarling, I withdrew from the door, moving slowly to the window. I could hear them whimpering but could not see them. With a clawed hand, I punched through the window, which shattered easily. I heard the woman scream, and poked my head through the big window, my antlers smashing the last of the glass out. Looking about, I see them cowering in a corner in the kitchen, the man’s hand over his wife’s mouth as she sobbed. I felt my warped face twist into a grin as I crawled through the window.
+
+I crossed the room in two swift strides, and picked the man up by the lower jaw, lifting him off the ground. The man started to cry as he gasped out, “Sarah… Sarah, run!” 
+
+She screamed as I crushed his windpipe with my hand, then bit into his face, his skull collapsing in a satisfying crunch. Chewing his bones and flesh, I tossed his limp form aside as I snatched the woman when she tried to run. Their meat was even richer and juicier than that of my dead coworkers. Perhaps it had just been so long since I satiated this need, or perhaps these were just healthier than my old comrades. The woman’s hot blood gushed down my throat onto my chest as I ripped her throat open with my teeth. 
+
+I lingered in the cabin for a couple of days. After that, I went for a walk in the woods, renewed life and energy surging through me. By sunset I made my way back to the cabin for the remainder of the meat. As I neared, I heard yet more voices from within the clearing. Blue and red lights lit up the forest, shining through the trees. The light hurt my eyes, but it jogged another memory. Men in dark red uniforms, arresting my father as he lay drunk just outside our house. 
+
+Keeping cover beneath the trees, one of those men emerges from the cabin, emptying his stomach onto the gravel. As he hunched over, he did not hear my footsteps coming up behind him.
