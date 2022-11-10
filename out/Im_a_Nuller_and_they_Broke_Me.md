@@ -578,11 +578,11 @@ He returned my smile as he walked over to my bed, Agent Silva right behind him. 
 
 "Why's it called Wookiee? That's a funny name."
 
-"A Wookiee is what Chewbacca is in \*Star Wars\*."
+"A Wookiee is what Chewbacca is in *Star Wars*."
 
 He crinkled his face in amused confusion. "What? What are those?"
 
-I laughed, realizing how silly the names sounded to the unacquainted. "\*Star Wars\* is a series of movies and shows that take place in space. There are spaceships, planets, aliens, light sabers. We could watch them if you're interested."
+I laughed, realizing how silly the names sounded to the unacquainted. "*Star Wars* is a series of movies and shows that take place in space. There are spaceships, planets, aliens, light sabers. We could watch them if you're interested."
 
 "Are they funny?"
 
