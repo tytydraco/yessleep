@@ -1,6 +1,8 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/yqpxzv/the_hotel_people_part_2_all_out_of_games_to_play/)  
 
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/yrqzh5/the_hotel_people_part_3_pardon_me_but_what_are/)
+
 “You need to be careful around hotel people.” My father warned my little brother Cayden and I. “Some of them are strangers, and others are just *strange*. They don’t all want what’s best for you, and just because they smile doesn’t mean that they’re your friend. Hey…are you kids even listening to me?”
 
 We weren’t. Cayden and I pressed our faces against the glass wall of the elevator, watching the lobby disappear below. It was our first time staying in a big hotel like this, but it wouldn’t be the last–and only years later would I understand the horrific reason why.
