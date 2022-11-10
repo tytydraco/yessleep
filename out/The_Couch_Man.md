@@ -126,4 +126,12 @@ I wanted…
 
 “Of course my lovely! Your mummy will get it for you.” She smiled. “All you have to do is stay right here and I will take care of you.”
 
-It’s pretty funny when you think about it. It could be a lot worse, I mean there are children starving in Africa and junkies with no fix. *Who am I to complain?* I don’t have to do anything for a hit anymore.
+It’s pretty funny when you think about it. It could be a lot worse, I mean there are children starving in Africa and junkies with no fix. *Who am I to complain?* I don’t have to do anything for a hit anymore. 
+
+
+Hi there my lovelies!
+
+This is Beatrice, my little darling loves writing stories so I gave him a notebook and pen to pass the time. I decided to post this here, he does love to exaggerate that little rascal! I'm not sure if this is the right place for it but I do love to please. I feel very strongly that everyone deserves to have their voice heard. With that being said, would any of you lovelies be interested in a cleaning job? £200 cash in hand. I'll supply the cleaning supplies. I can be very generous. There's some extra money in it for you if you're good at digging holes. My poor garden has gotten out of hand! 
+
+See you soon,
+Beatrice.
