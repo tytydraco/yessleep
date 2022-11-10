@@ -42,7 +42,7 @@ I didn’t have the confidence to just walk up to someone and strike a conversat
 
 So, I was classed as “shy” and “not doing enough to participate in discussion”.  I did however have an unhealthy one sided relationship with three other kids since we were little. Which had quickly become more of an obsession than a liking. My infatuation with Annalise Duval and her friends began in Kindergarten when they refused to let me join in with their live-action game of Scooby Doo.  
 
-They needed a Shaggy, and I rocked up to them with a giant grin, pointing to my bright green dress. But they just exchanged glances, shaking their heads and giggling. I spent the rest of the day following them around and begging them. And if that wasn’t embarrassing enough, our teacher gave me a stern talking to. The three wanted me to leave them alone, but as a kid, I didn’t want to do that. Annalise Duval, Jasper O’ Brien and Jack Marriot were the bane of my existence throughout my whole childhood.
+They needed a Shaggy, and I rocked up to them with a giant grin, pointing to my bright green dress. But they just exchanged glances, shaking their heads and giggling. I spent the rest of the day following them around and begging them. And if that wasn’t embarrassing enough, our teacher gave me a stern talking to. The three wanted me to leave them alone, but as a kid, I didn’t want to do that. Annalise Duval, Jasper O’ Brien and Jack Locke were the bane of my existence throughout my whole childhood.
 
  But I also loved them. 
 
@@ -190,11 +190,11 @@ But I never got to speak to them. Neither up them turned up, which was odd. I wa
 
 They had perfect attendance. The three had not been seen since the night before. Since around 4pm.
 
-Right before I punched Jack Marriot in the face.
+Right before I punched Jack Locke in the face.
 
 I never saw them again. Officially, they had moved away with their parents. 
 
-Unofficially? Annalise, Jack and Jasper were missing in a town which didn’t care about its kids. It wasn’t the first time a teenager had disappeared, and my town treated their disappearance like they did every other. A statement was made. The three had left town with their parent’s permission. I actually visited Jack’s parents’ house, three weeks after he’d gone missing. The lights were off, and the car was gone. I waited for them to come back. Hours. I stood there for hours waiting for Mr and Mrs Marriot to pull into the driveway. But there was nothing. Like their son, they too had dropped off the face of the earth.
+Unofficially? Annalise, Jack and Jasper were missing in a town which didn’t care about its kids. It wasn’t the first time a teenager had disappeared, and my town treated their disappearance like they did every other. A statement was made. The three had left town with their parent’s permission. I actually visited Jack’s parents’ house, three weeks after he’d gone missing. The lights were off, and the car was gone. I waited for them to come back. Hours. I stood there for hours waiting for Mr and Mrs Locke to pull into the driveway. But there was nothing. Like their son, they too had dropped off the face of the earth.
 
 Blinking myself back into the present, I realised I was staring at the link I’d opened, my hand quaking on the mouse. Outside, it was pouring, and I found myself glancing at the sliding glass doors leading out onto my patio. It was pitch black, but if I let my imagination run wild, I could imagine a figure standing there. Shaking my head, I turned back to my laptop screen. The page was simple. Just a search bar. According to the email, I just had to type the name of a person. It was stupid, right? Just a scam.
 
@@ -280,7 +280,7 @@ Early twenties. College age.
 
 “You’ve… you’ve got the wrong number.” I said shakily.
 
-Before I could hang up, I was being deafened by static. “Listen to me,” He said. “Cole bought us, and then they took him, alright? We have no idea what is going on,  but wherever he is the key to our memories. And I know…I know I’m not making sense right now. I just properly woke up. I’ve been out of it for so long, and I don’t even fucking know who I am any more. All we know is Cole. So, if you could just listen to us—"
+Before I could hang up, I was being deafened by static. “Listen to me,” He said. “Cole bought us, and then they took him, alright? We have no idea what is going on,  but wherever he is, is the key to our memories. And I know…I know I’m not making sense right now. I just properly woke up. I’ve been out of it for so long, and I don’t even fucking know who I am any more. All we know is Cole. So, if you could just listen to us—"
 
 Gripping my phone tighter, I cut him off. " "Who is this?”
 
