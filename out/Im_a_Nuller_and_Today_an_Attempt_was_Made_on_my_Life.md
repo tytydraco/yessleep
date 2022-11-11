@@ -184,7 +184,7 @@ A minute later, I hadn’t moved a muscle, neither voluntarily or involuntarily.
 
 “Kent, try making Laurier-Kent clap,” the man on the speaker said. “I want to see if Linda’s gift protects her or affects you.”
 
-"Oh, Agents Rodriguez and Hansen and Detective Cho were able to use their gifts in front of me when they visited."
+"Oh, Agents Rodriguez and Hansen and Detective Cho were able to use their gifts in front of me when they visited," I said.
 
 "I understand, but we need to do this in a controlled environment for our records and observation."
 
