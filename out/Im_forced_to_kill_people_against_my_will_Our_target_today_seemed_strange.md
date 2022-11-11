@@ -1,0 +1,35 @@
+
+My name is Web. Or- my full name is Webster, but my coworkers call me Web or Webs. It’s a childish nickname, I know, but it’s our last bit of closure in our situations. I live by myself in a secluded area away from people, so of course I was tasked with the hard parts of the job. Harder to trace, they said. So, it was just a normal Tuesday for me, I was just getting ready to fix myself lunch when my phone rang.
+
+You can imagine my disdain when I heard the world’s most annoying voice shrieking in my ears.
+“We got another one for ya!” My coworker Cupid chirped, nearly blasting my ear off with his phone’s shitty audio. Cupid was assigned to tell me about targets, info, all that stuff. We both worked close-up with targets, with Cupid getting a schedule ready with them to get them alone. We have two other coworkers, but I’ll get to them later. This time, I’ll talk about what happened on one of our assignments. 
+
+After talking to Cupid for a while, we agreed to drive close to the target’s place, let Cupid do his job, wait out until the registered time and place, then get the fucker. It was our whole work routine at this point, and we never ran into anything while doing this specific routine. Until today.
+
+After I spotted Cupid walking back to the car, I notice he kept on looking back at the house, staring out into the streets. So, naturally, I asked him about it. “What’s on your mind? Anything off about him?” He shook his head. “Kinda, I guess. He didn’t really say anything while I was doing the worker act, he just stared out his window and nodded, like some freaky zombie! You should’ve seen it, really fucking creepy.” “Glad I got the better job,huh?” “Shut it,asshat!” He hit me in the shoulder.
+
+We waited late in the evening, around…I wanna say 7 or so? It was finally time for my turn. Cupid hopped out of the truck, as I checked over how many bullets I had in my small pistol, gifted by my cousin recently. We started walking across the street, and I remember a sinking feeling in my gut, screaming at me to run and never look back. Never in my years working for this company, had I ever had a feeling like that. Cupid seemed to notice it too, staring over his shoulder every now and so. 
+
+We saw the target before he saw us, leaning against the back door of his house with a rubix-cube in his hands, turning it over as he seemed to study it like he’s never seen one before.  He was muttering to himself, swaying slightly as Cupid approached. “Excuse me sir! I spoke with you earlier today. Could you show me the area in your floor that needs fixing?” My friend carried a toolbox, wearing a fake uniform of some old repair company.
+
+The man grunted in response, opening the door was we walked inside. Almost immediately, wafts of odor hit my nose, and I tried not to run back outside, holding my nose shut instead. After a while of us lying out the tools, Cupid asked the man where his bathroom was. Again, it took some while for him to respond, finally getting the hint when Cupid snapped in his face. Cupid nodded at me, as I made sure to lock his doors and shut his windows.
+
+Cupid held up a conversation as they walked, the man not seeming to notice me discreetly following. “You have a lovely home! When was it built?”  The target finally decided to speak, his voice hoarse and raspy as he seemed to linger on the end of every word.
+
+ “Mm. Around the time my momma was born.” “That’s very nice to hear, sir! Do you have any children if your own?” “I ain’t got the time for little shits to run around, breaking my things.” The man snapped, as Cupid nodded, walking along until they reached the bathroom. “Thank you sir. I’ll be out in a moment.” Cupid walked inside, making sure to lock the door with his gloves. Finally, I approached the target, raising my gun as he turned around. 
+
+“Don’t move. I’m just doing my job, sir.” The old man’s sunken eyes widened, as I pulled the trigger. He fell back, his thud nearly shaking the house as dark red liquid stained his clean white walls, dripping down the door. Strangely, the blood almost seemed black. Relieved that the job was done, me and Cupid cleaned up quickly. 
+
+We made sure to stage everything to look like a suicide, putting a spare gun in the man’s hands. As we both headed back to the car, I got the urge to stop in my tracks. I tried to brush off the feeling, though my legs quickly began shaking as my heart pounded in my chest. Feeling chills down my spine, I managed to suck it up and walk to the truck, putting the tops in the back. “Ready to go?” Cupid asked. “All set. Make sure to record the time.” I handed a clipboard to Cupid, as we sat in the car for a while, relaxing in the trees. 
+
+I didn’t mean for anything to happen. I really didn’t.
+
+I was in the drivers seat, my back turned to the closed window as my best friend was in the passenger, texting his boyfriend about his day. He paused, stopping his typing as he shut his phone off. “Do you hear that?”  He stared past me, looking back at the old man’s house. “Nuhuh. Hear what?” 
+
+I squinted, before seeing a faint silhouette of a abnormally tall person on the man’s porch. “Fuck, get down!” I threw the seats back, trying to hide out of view as Cupid’s phone went flying out of his hands, going out the open window as I heard it crash onto the street floor. “Fucking hell, my phone!” “I though no one else lived with him?!” I whisper-yelled as Cupid shook his head.
+
+“No one does!” Slowly, I brought my seat back up, looking through the window. The person was in the lawn now, as I could see them a bit more clearly. Pale yellowish-skin looked almost rubbery on the old man, the gunshot wound still in his skull as his sunken eyes stared. Horrified, we watched as the old man’s arms cracked and popped, the bone extending as his fingers grew into long, scythe-like claws. I shakily grabbed the wheel, staring down the creature.
+
+Cupid rose his seat, gasping as he smacked my hand. “Go, go, go!” I didn’t need to be told twice, stepping on the gas as the creature roared, charging across the street. We quickly drove off, screaming both of our heads off as we watched the creature chase after the car, gaining speed as it approached closer and closer. I nearly shat my pants when I felt the monster jump up onto our car, stabbing it’s hands through the roof as Cupid got out his gun, shooting at it as it let out a ear-piercing scream. The monster got off our car, as I swerved in the road, dodging upcoming cars as we drove back into the city. We drove in silence for the rest of the ride, and Cupid decided to head home early. That left me to tell our boss the bad news.
+
+I’m writing this while waiting to report to my boss. I don’t know what that thing was, or why he wanted it dead. I just hope I don’t ever see anything like that again. I hate my job so fucking much.
