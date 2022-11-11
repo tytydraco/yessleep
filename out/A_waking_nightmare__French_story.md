@@ -1,4 +1,4 @@
-Hello everyone, my name is Lisa and here I will tell you my story (a true story) which I describe as really terrifying and which unfortunately still affects my life today, you will understand why... Before I begin, I apologize for the grammatical errors, I am French and I am not good in English!
+Hello everyone, my name is Lisa and here I will tell you my story which I describe as really terrifying and which unfortunately still affects my life today, you will understand why... Before I begin, I apologize for the grammatical errors, I am French and I am not good in English!
 I published the French text at the end for my francophone friends. 
 
 I decide to share it with you because it took place exactly 2 years ago and because I think it can serve to awaken the prudence of some (especially in this period where the days are shortening).
