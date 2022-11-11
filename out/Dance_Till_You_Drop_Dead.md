@@ -64,6 +64,8 @@ There’s Dana, and Henry, and Thomas… all of them.
 
 I glare at Alexis every time I pass him by.
 
+I'm typing this on my phone right now, and my fingers are exhausted too.
+
 If he hadn’t pissed those two off we wouldn’t be here right now. I don’t know how I know that…I just know.
 
 But for now, all we can do is dance.

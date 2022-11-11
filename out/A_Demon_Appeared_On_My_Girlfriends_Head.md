@@ -1,4 +1,4 @@
-Yin and yang depict balance, duality.  It shows that there is no light without darkness, no darkness without light, and ultimately, they add up to zero.  
+Yin and yang depict balance, duality.  It shows that there is no light without darkness, no darkness without light, and ultimately, they add up to zero.
 
 &#x200B;
 
@@ -18,11 +18,11 @@ If everything is truly in balance, if I’m the representation of darkness then 
 
 &#x200B;
 
-Anais was, by all accounts, the definition of perfection.  Stellar student, funny yet thoughtful, kind yet strong, and beautiful.  Her hazel eyes, fair skin, her wonderful figure—I still remember seeing the wind mess her long, silky, auburn hair for the first time.  The moment I fell in love with her. 
+Anais was, by all accounts, the definition of perfection.  Stellar student, funny yet thoughtful, kind yet strong, and beautiful.  Her hazel eyes, fair skin, her wonderful figure—I still remember seeing the wind mess her long, silky, auburn hair for the first time.  The moment I fell in love with her.
 
 &#x200B;
 
-I don’t know what did it, but the feeling was mutual, we’ve been—were… we were together for 3 years.  And everything was wonderful.  Aside from any normal spats which she usually ended up being the bigger person in, we had a prosperous relationship… 
+I don’t know what did it, but the feeling was mutual, we’ve been—were… we were together for 3 years.  And everything was wonderful.  Aside from any normal spats which she usually ended up being the bigger person in, we had a prosperous relationship…
 
 &#x200B;
 
@@ -38,7 +38,7 @@ It was about 8 months ago when I first saw it.  I was taking care of the dishes 
 
 &#x200B;
 
-Near the top of her head, wrapped around the temple was a darkness.  And peeking above her head was that face… that awful, awful face.  
+Near the top of her head, wrapped around the temple was a darkness.  And peeking above her head was that face… that awful, awful face.
 
 &#x200B;
 
@@ -50,7 +50,7 @@ Two large circular white eyes and a smile… an inhuman smile larger than possib
 
 &#x200B;
 
-She said as brightly as ever, that beautiful—somewhat teasing—smile on her face.  
+She said as brightly as ever, that beautiful—somewhat teasing—smile on her face.
 
 &#x200B;
 
@@ -106,7 +106,7 @@ Many times when she would be planning to go out I saw the creature appear and st
 
 &#x200B;
 
-As the creature… the demon… I don’t know, to this day I still wonder where it came from.  To this day I wonder what I could’ve done to exorcise this beast from Anais’s… from my Ana’s being.  
+As the creature… the demon… I don’t know, to this day I still wonder where it came from.  To this day I wonder what I could’ve done to exorcise this beast from Anais’s… from my Ana’s being.
 
 &#x200B;
 
@@ -114,7 +114,7 @@ As the creature… the demon… I don’t know, to this day I still wonder where
 
 &#x200B;
 
-We were arguing a bit more in this time.  Anais’s temper seemed a bit shorter and we’d get into more spats, and every time we did I saw the demon’s smile get larger than the already inhumane size it was.  
+We were arguing a bit more in this time.  Anais’s temper seemed a bit shorter and we’d get into more spats, and every time we did I saw the demon’s smile get larger than the already inhumane size it was.
 
 &#x200B;
 
@@ -162,7 +162,7 @@ But it seemed like it was trying to lead me somewhere, so gathering every bit of
 
 &#x200B;
 
-“M-m-m-my, my—I think, my g-g-g-girlfriend k-ki-ki-died.”  
+“M-m-m-my, my—I think, my g-g-g-girlfriend k-ki-ki-died.”
 
 &#x200B;
 
@@ -170,7 +170,7 @@ After the officers got there and tried to question me they quickly filed the dea
 
 &#x200B;
 
-When I got home, I went to wash my tear-stricken face in the sink.  When I looked in the mirror… there it was.  I didn’t see my face, no, no, I saw the demon, on mine, on my being now.  
+When I got home, I went to wash my tear-stricken face in the sink.  When I looked in the mirror… there it was.  I didn’t see my face, no, no, I saw the demon, on mine, on my being now.
 
 &#x200B;
 
@@ -178,4 +178,4 @@ I knew it.  I knew my Ana would never do something like that, she would never.  
 
 &#x200B;
 
-Before it reunites me with my beautiful Ana…  Before it takes me \[into the dark\]([https://youtu.be/jbBXK09dfs8](https://youtu.be/jbBXK09dfs8)).
+Before it reunites me with my beautiful Ana…  Before it takes me [into the dark](https://youtu.be/jbBXK09dfs8)
