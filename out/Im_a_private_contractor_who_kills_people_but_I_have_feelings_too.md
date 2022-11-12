@@ -84,6 +84,12 @@ I looked back at Laney, who was still smiling. “Okay, little girl. We’ve got
 
 She licked her lips, collecting a thick coat of blood and slurping it into her mouth like it was rich marinara sauce. “[You need to kill my parents](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+-----------
+
+[The fun with murder we had next](https://redd.it/yt6yef)
+
+----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
