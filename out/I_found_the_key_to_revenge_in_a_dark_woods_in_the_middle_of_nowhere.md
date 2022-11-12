@@ -1,5 +1,3 @@
-I found the key to my revenge in a dark wood, in the middle of nowhere
-
 I find myself in middle of nowhere, a small town sheltered in an endless sea of pine trees. It’s a miserable place with only 3 things you can do, hunting, fishing, or church. But my life was not always like this, before winding up in this hick town, I lived with my mother by the sunny shores of California. That was 4 months ago, then some idiot rammed into her car, fleeing the area, and leaving my mother in a coma. Now I’ve been shipped down to nowhere, to stay with Paul, my estranged dad, and Jim my brother. Every day I wake expecting a call to tell me she woke up and I could get out of this dreary place. That never happened, and that old bastard, keeps telling me that I should get comfortable here, I shouldn’t expect her to wake up anytime soon. I don’t care what they say she’s not brain dead, she’ll be fine. I know she will wake up eventually, so I still haven’t fully unpacked my bags, or bothered making friends. It’s not worth the effort, not that I even want to befriend the hillbillies in this town. 
 
 
