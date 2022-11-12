@@ -66,7 +66,7 @@ What’s strong enough to smash a sturdy window, if it came to it?
 
 I’ll follow up soon.
 
-**EDIT 2:**  Kevin’s been emotional over the last while. I finally asked him what the fuck all of this was. This is what he said (not an exact quote but the best I can remember): 
+**EDIT 2:**  Kevin’s been emotional over the last while. I finally asked him what the fuck all of this was. This is what he said (not an exact quote but the best I can remember):
 
 “Five years ago, I came to the cabin alone to find some center. Life was okay but it wasn’t… as good as I wanted it to be. No matter how hard I worked, it felt like I kept bumping into some ceilings I couldn’t overcome. That’s when *they* approached me. They told me that they could help me obtain the life of my dreams. Everything that I wanted to happen. They said there’d be a trade-off in the future. They made me sign something with my blood. I… didn’t really think it’d work out, but it did. And life has been amazing! And I want it to stay amazing! But they told me that I now need to honor the contract. They want *my life* man. My perfect fucking life! I can’t throw it away. I don’t wanna die. And so… as the day came closer, I asked them if they were open to an adjustment on the arrangement. If I found another soul… would they give me another five years? They seemed intrigued, and they told me to bring a replacement.”
 
@@ -80,31 +80,31 @@ Fuck. That was a gut-punch.
 
 He kept going but I just tuned it out. He was going back and forth between being apologetic, and justifying his decision to make me a fucking sacrifice.
 
-I look out at the room with my heart racing. The low chant is louder than it's ever been before. The demons standing in the middle of the room are all looking at me now. The one holding the book approaches me. Fuck. 
+I look out at the room with my heart racing. The low chant is louder than it's ever been before. The demons standing in the middle of the room are all looking at me now. The one holding the book approaches me. Fuck.
 
-The demon opens the book and holds it out in front of me. On the page are signals and insignias I can’t understand. 
+The demon opens the book and holds it out in front of me. On the page are signals and insignias I can’t understand.
 
-“You need to sign with your blood. Here, use this,” Kevin says. 
+“You need to sign with your blood. Here, use this,” Kevin says.
 
-He holds out a small razor blade and hands it to me. 
+He holds out a small razor blade and hands it to me.
 
 “I’m not gonna do this,” I say back.
 
 “You have to.”
 
-Deep down, I’d known it since I stepped foot in the cabin. This wasn’t a trip. I shouldn’t have been in denial this whole time. And now, there’s a demon in front of me holding out a book. I hear the low hum in my head. The room lights up, bright crimson. 
+Deep down, I’d known it since I stepped foot in the cabin. This wasn’t a trip. I shouldn’t have been in denial this whole time. And now, there’s a demon in front of me holding out a book. I hear the low hum in my head. The room lights up, bright crimson.
 
-I thought about taking the razorblade and slicing Kevin’s throat. But, if this was truly the end of the line for me, I didn’t know if committing one last sin before death would tip the scales for me to go to heaven, if such a place even exists. 
+I thought about taking the razorblade and slicing Kevin’s throat. But, if this was truly the end of the line for me, I didn’t know if committing one last sin before death would tip the scales for me to go to heaven, if such a place even exists.
 
-I’m not sure if I was fully in control when I sliced my finger and let the blood spill over the book. 
+I’m not sure if I was fully in control when I sliced my finger and let the blood spill over the book.
 
-It happened. And I thought I’d immediately be pulled into hell. Or devoured by the ghoulish creatures in a painful fashion. Instead, the demon closed the book and returned to the center of the room with others, standing by the candles. 
+It happened. And I thought I’d immediately be pulled into hell. Or devoured by the ghoulish creatures in a painful fashion. Instead, the demon closed the book and returned to the center of the room with others, standing by the candles.
 
-I told Kevin that I was gonna run for it. That I hope these fucking beings, whatever the hell they are, torture him for the rest of eternity. 
+I told Kevin that I was gonna run for it. That I hope these fucking beings, whatever the hell they are, torture him for the rest of eternity.
 
 He told me that if I tried to escape after signing the agreement, that I’d be put through a fate “worse than death.” Fuck that. I’m not gonna believe the guy that brought me here to save his own sorry self. I might be a degenerate, but I’m not a narcissistic evil lunatic. Asshole.
 
-I’m typing this on a phone that is now covered with blood. I sliced my finger deeper than I should’ve. It’s still bleeding. 
+I’m typing this on a phone that is now covered with blood. I sliced my finger deeper than I should’ve. It’s still bleeding.
 
 Kevin and the demons have been re-arranging the candles in the center of the room. The cabin is noisy. A mix of loud hums, chants, screams, and low giggles. The ritual is building to its climax.
 
@@ -112,7 +112,7 @@ Kevin just finished organizing the candles.
 
 “You need to come to the center of the room and lie down in the middle of the candles. This is the end, now. I’m sorry man.”
 
-I’m scanning the room one last time for anything that can save me. Any deus-ex machina or last minute escape plan I can muster up. 
+I’m scanning the room one last time for anything that can save me. Any deus-ex machina or last minute escape plan I can muster up.
 
 There’s no safe rooms. No exits. The doors aren’t going to work.
 
@@ -121,3 +121,27 @@ They’re all waiting for me.
 All I see is a vase beside the couch. And some large logs in the fireplace. I need to pick one to smash the window with.
 
 I’m gonna make a break for it.
+
+**EDIT 3:**  I did it! I fucking escaped.
+
+I picked the vase and it *actually* worked. I smashed the window, and I jumped out to escape the cabin. As I was jumping out, I could feel an immense force pulling me back in. The sound of the demons in my head, with their low hums turning into loud screams...
+
+But I made it.
+
+As I was running further and further away, I could hear Kevin’s blood-curdling shrieks. They sounded inhumane. I guess the demons defaulted to their original agreement.
+
+Yes, I’m bleeding all over. The glass from the broken window scraped the hell out of me during my escape. And yes, I really don’t know where the fuck I am. But I’m *out*. And freedom feels good.  I’ve got a new lease on life now. Not gonna take anything for granted anymore. I’m gonna pursue my dreams. Gonna make something of myself.
+
+So… I might need some help from commenters. Concrete, Washington is fucking weird. I’ve been running for the last half-hour in what feels like a never-ending forest. It just keeps going. And the forest looks… *bizarre*? The trees look different from any I’ve ever seen in my life before.
+
+Also, not sure if some sort of astrological event is happening tonight, but the whole sky is glowing crimson red. In every direction I look. That’s the same for you guys too, right?
+
+I’m gonna keep running. I’ll find a way home. I always do.
+
+This is gonna be my last update. If you can spare a moment, hold a positive thought in your minds for me. Sayonara.
+
+&#x200B;
+
+edit: 
+
+Go od news:) –  I have escaped!! Its good :) All OK! THx its all okay. Dont ever worry
