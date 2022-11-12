@@ -1,6 +1,6 @@
-My grandfather was, for lack of a better term, an ass. Unfortunately, he suffered a lot of symptoms of what I often referred to as "Old Man-itis." On top of the real-life ailments that forced him to live at home with us, his general abrasiveness made me avoid him like the plague. 
+My grandfather was, for lack of a better term, an ass. Unfortunately, he suffered a lot of symptoms of what I often referred to as "Old Man-itis." On top of the real-life ailments that forced him to live at home with us, his general abrasiveness made me avoid him like the plague.
 
-Growing up, this was something that deeply bothered my dad. He'd make it a point to tell me to "Go learn from your granddad." He'd say things like, "He won't be here forever," and "You'll regret not talking to him when you're older." 
+Growing up, this was something that deeply bothered my dad. He'd make it a point to tell me to "Go learn from your granddad." He'd say things like, "He won't be here forever," and "You'll regret not talking to him when you're older."
 
 And every time, I'd give a very non-commital, "Yeah, sure. Maybe."
 
@@ -10,7 +10,7 @@ One night after coming home from hanging out with my friends, I saw dinner on th
 
 Reluctantly, I grabbed two plates, filled them up with the remainder of the food, and walked them to my grandfather's room. A split second after opening the door, cigar smoke and the smell of cheap whiskey stung my nostrils. At the center of the room sat a lanky man with pale skin in an oversized chair faced towards a television. A gravelly voice greeted me with a stern, "What the hell do you want?"
 
-Only a few seconds in his room, and I was already beyond irked. I decided to match his energy with a dry... "Food's here, dude," and proceeded to drop the plate on his empty nightstand. Hoping this would end our "conversation" for the week, I turned toward the door and attempted to go about my business. 
+Only a few seconds in his room, and I was already beyond irked. I decided to match his energy with a dry... "Food's here, dude," and proceeded to drop the plate on his empty nightstand. Hoping this would end our "conversation" for the week, I turned toward the door and attempted to go about my business.
 
 To my dismay, the old man was in a talkative mood. "Hold on there." He said. "That's it? You drop off my food and what? Nothing? You go to play your E-Box and talk to strangers online but not your own flesh and blood? Without me, you don't exist, boy. Kids these days... No respect..."
 
@@ -24,13 +24,13 @@ He shook his head and pointed a bony finger at me. "See this! Your father isn't 
 
 I considered his invitation for a moment. I couldn't know what exactly he was referring to. Still, I was already invested in the conversation and eventually acquiesced to what I assumed would be another nonsensical rant. As I sat down, he took another two shots of whiskey and a puff from his cigar. And with a deep breath, he began to tell his tale.
 
-My grandfather started with the story of his family's farm. His family had come from poor beginnings and essentially learned that hard work was the only way to make it. All he knew growing up was getting up to tend to the farm, sleeping, and then getting up to work some more. The idea sounds utterly foreign to us today, but that was life for him and his family. Tough and monotonous but simple. 
+My grandfather started with the story of his family's farm. His family had come from poor beginnings and essentially learned that hard work was the only way to make it. All he knew growing up was getting up to tend to the farm, sleeping, and then getting up to work some more. The idea sounds utterly foreign to us today, but that was life for him and his family. Tough and monotonous but simple.
 
-And yet, even in that simplicity, far from all the temptation and excitement of city life... Uniqueness still managed to find its way into his life. My grandfather was very close to his mom. In a place like that, the simple pleasure of having a home-cooked meal and a shoulder to cry on when the work becomes just a little too harsh was valuable to a young man. 
+And yet, even in that simplicity, far from all the temptation and excitement of city life... Uniqueness still managed to find its way into his life. My grandfather was very close to his mom. In a place like that, the simple pleasure of having a home-cooked meal and a shoulder to cry on when the work becomes just a little too harsh was valuable to a young man.
 
-Every so often, from the time he was a kid, his mom would come into his room after a hard day's work and tell him stories about the woods beyond their farm. She'd tell my grandfather about the beings that dwelled there. Thin women that towered over people and stole their children. Dark beings that mimicked people and animals. Giant insects with intelligence beyond our own that feed on our fear. All this and more was ever-present, not just in the woods but in every dark corner of this earth. 
+Every so often, from the time he was a kid, his mom would come into his room after a hard day's work and tell him stories about the woods beyond their farm. She'd tell my grandfather about the beings that dwelled there. Thin women that towered over people and stole their children. Dark beings that mimicked people and animals. Giant insects with intelligence beyond our own that feed on our fear. All this and more was ever-present, not just in the woods but in every dark corner of this earth.
 
-But even though these beings have roamed our world since before our species carved rocks into tools, he wasn't ever to worry about them. At the end of every story about a ghoul, animal, or evil person, there was one consistent message. He was always protected. He was special. "The crows are always watching you." She'd say. "They watch all of us with curious eyes. But you? You're rare. The crows do more than watch you, son. They love you. They know that you have a purpose in all of this. They will always protect what they love." 
+But even though these beings have roamed our world since before our species carved rocks into tools, he wasn't ever to worry about them. At the end of every story about a ghoul, animal, or evil person, there was one consistent message. He was always protected. He was special. "The crows are always watching you." She'd say. "They watch all of us with curious eyes. But you? You're rare. The crows do more than watch you, son. They love you. They know that you have a purpose in all of this. They will always protect what they love."
 
 When she'd finished telling her tales, he'd always hear that familiar "Caw-caw" just outside his window. When he'd ask what his purpose was exactly, she'd just smile and point outside.
 
@@ -44,19 +44,19 @@ My grandfather could hear muffled screams and cries and then... nothing... He re
 
 The following day, he sat alone with his father at the breakfast table. A poorly made platter of eggs, bacon, and toast lay before him. Working up the courage to ask the obvious, his question escaped as a whimper. "Where's mom?"
 
-His father threw the fork containing rubbery bacon onto the table. He pointed a calloused finger into the young boy's face. "She's. Not. Here." He stated. A deep breath followed, and he retracted his hand. "It was her decision to put lies into your head. So, for the time being, she staying at gran's house. That's it. We never speak on it even if she returns." 
+His father threw the fork containing rubbery bacon onto the table. He pointed a calloused finger into the young boy's face. "She's. Not. Here." He stated. A deep breath followed, and he retracted his hand. "It was her decision to put lies into your head. So, for the time being, she staying at gran's house. That's it. We never speak on it even if she returns."
 
-My grandfather knew better than to question his father but deep down, he wondered if he'd ever see his mother again. He'd later find out that he never would. But on that day, he did as he had always done. He nodded, finished and cleaned his plate, and returned to work on the farm. 
+My grandfather knew better than to question his father but deep down, he wondered if he'd ever see his mother again. He'd later find out that he never would. But on that day, he did as he had always done. He nodded, finished and cleaned his plate, and returned to work on the farm.
 
-That night, he lay in his bed, thinking about the stories his mom had told him. He looked out into the woods beyond the farm, thinking about all the things that lurked in the shadows. 
+That night, he lay in his bed, thinking about the stories his mom had told him. He looked out into the woods beyond the farm, thinking about all the things that lurked in the shadows.
 
-A familiar "Caw-caw" rang out from just outside his window, and he remembered his mother's words, The crows are always watching... They love you... They will always protect what they love." 
+A familiar "Caw-caw" rang out from just outside his window, and he remembered his mother's words, The crows are always watching... They love you... They will always protect what they love."
 
 He couldn't explain why but an urge came over him as he looked out into the woods. It was as if the trees were whispering to him. Telling him to come out and meet an unknown fate. Almost mindlessly, he peaked his head out his door to listen for his dad's loud snores. After confirming the old man was asleep, he quickly gathered his jacket, flashlight, and hunting knife for the trek out. Silently, he crept out his first-floor window. He was careful to tip-toe until he hit the end of the gravel road leading to his farm and not turning on his flashlight until he was behind the wall of trees.
 
-Slowly he made his way through the dark woods. He was unsure where he was headed or why he was heading there. His only guide was the dim flashlight and the faint "caw-caws" he'd hear in the distance. 
+Slowly he made his way through the dark woods. He was unsure where he was headed or why he was heading there. His only guide was the dim flashlight and the faint "caw-caws" he'd hear in the distance.
 
-He remembered walking in those woods for what felt like hours. It was as if he was weaving between an army of tall wooden soldiers. He could recall temping voices clearly calling to him and large figures moving just out of the corner of his eye. 
+He remembered walking in those woods for what felt like hours. It was as if he was weaving between an army of tall wooden soldiers. He could recall temping voices clearly calling to him and large figures moving just out of the corner of his eye.
 
 Many times he wanted to turn and run. Part of him knew that if he dwelled in the shadows for too long, they'd surely consume him like his mother had warned they'd done to so many others.
 
@@ -68,7 +68,7 @@ The girl was wearing a large overcoat and had a warm smile. Soft-spoken, she int
 
 Unprompted, she followed up by saying she'd understood why he was scared but to not be afraid because she was led there for the same reason he was.
 
-He asked what she meant, and in response, she laughed, made an "Shhh" sound, and pointed to the sky. My grandfather pointed the flashlight up into the sky and waited. Unsure of what he was supposed to be looking for. Suddenly, the snapping of branches and a great gust of wind filled the air. Momentarily, the dim light caught a massive twisted black figure above them in the sky. 
+He asked what she meant, and in response, she laughed, made an "Shhh" sound, and pointed to the sky. My grandfather pointed the flashlight up into the sky and waited. Unsure of what he was supposed to be looking for. Suddenly, the snapping of branches and a great gust of wind filled the air. Momentarily, the dim light caught a massive twisted black figure above them in the sky.
 
 It let out a grossly distorted "Caw-caw-caw" that sounded more akin to that of a broken horn than an animal. Drips of what looked like tar hit his face as it swooped by, and the creature's smell was more pungent than any dead animal or droppings he'd had the displeasure of encountering.
 
@@ -76,7 +76,7 @@ Crashing back into the trees, the thing disappeared. My grandfather could hardly
 
 He shined his flashlight back on the girl and caught her, maintaining a calm smile. "Our guide watches over us all. Always."
 
-My grandfather looked at the girl with horror in his eyes. He couldn't think of what else to ask other than just what the hell that was and how on earth that clearly demonic being could be any sort of a guide. 
+My grandfather looked at the girl with horror in his eyes. He couldn't think of what else to ask other than just what the hell that was and how on earth that clearly demonic being could be any sort of a guide.
 
 "Because they... because *he* loves you." She said. "Don't be afraid. You have nothing to fear. You're more important to him than any of us are." The next thing he felt was a kiss on the forehead. His mind became fuzzy, and the next thing he knew, her soft hand was guiding him through the woods back home. As they walked back, the shadows that stalked him earlier seemed further away now. The voices he'd heard before were little more than whispers in the dark.
 
@@ -90,19 +90,19 @@ A loud slam of the front door interrupted their readings. His father wasn't supp
 
 "Where's the girl?" He grumbled.
 
-"I don't know what you're talking about." My grandfather replied. 
+"I don't know what you're talking about." My grandfather replied.
 
-"The hell you don't, boy... I... I know you've been sneaking out to see that which. Black goddamn magic... In my household, no... Not here."
+"The hell you don't, boy... I... I know you've been sneaking out to see that witch. Black goddamn magic... In my household, no... Not here."
 
 "Dad, it's not..."
 
-"YES. Yes, it is!" He shouted before taking a long swig of the drink. "What she's doing... What your mother did... It's an affront to God. A black stain that I won't let my son be tainted by." 
+"YES. Yes, it is!" He shouted before taking a long swig of the drink. "What she's doing... What your mother did... It's an affront to God. A black stain that I won't let my son be tainted by."
 
 Instinctively, my grandfather went to raise the hunting knife in front of him, but before he could put it between him and the old drunk, bony knuckles collided with his temple, and he was on the floor. Trying to fight off the dizziness, all he could focus on was the voice of an unhinged man rifling through the various rooms in the house, shouting, "Where is she? Where the hell is she?"
 
 My grandfather stood to his feet to face his old man. He tried rushing him from behind but, in the ensuing struggle, once again found himself on the ground and receiving a steel-toed boot to the ribs for good measure.
 
-"I'm doing this for you, boy!" His father yelled. "You don't get that you're a pawn in their fucked up game! As soon as they're done with you, they'll spit you out. Leave you with nothing. Alone to face the demons by yourself." 
+"I'm doing this for you, boy!" His father yelled. "You don't get that you're a pawn in their fucked up game! As soon as they're done with you, they'll spit you out. Leave you with nothing. Alone to face the demons by yourself."
 
 As my grandfather writhed in pain, the sound of his father looking around the house continued. Under every table, around every corner, inside every cabinet. Until finally, the sounds of a screaming young girl hit his ears. Still trying to recover, he could only watch as his old man had a fistful of Mia's hair and was walking her outside, repeating, "None of the devil's blood will stain my home."
 
@@ -118,11 +118,11 @@ Taking a deep breath, he finally managed to unlock the front door. To his horror
 
 Standing in between Mia and his dad was a man-sized crow-like creature. The familiar pungent odor wafted through the air. The thing stood on two backward-facing humanoid legs. Long pale arms with crooked fingers hung loosely at its side. Its scissored beak extended far past its body, and what looked like large molars were growing out of the sides. Most striking were those "goddamn eyes." Massive balls of white with veiny strings of red lead to a pulsating pupil.
 
-He couldn't explain why but as he watched it analyze the man before it, he knew this wasn't just a mindless animal following instinct. It was intelligent. It was assessing the situation, playing out scenarios in its head, and planning out the best course of action. 
+He couldn't explain why but as he watched it analyze the man before it, he knew this wasn't just a mindless animal following instinct. It was intelligent. It was assessing the situation, playing out scenarios in its head, and planning out the best course of action.
 
 His father screamed for forgiveness, said that he was a God-fearing man and that he'd promise to never hurt another soul if he could survive the night.
 
-The crow-thing continued observing and outstretched its massive wings in an intimidating fashion. It took a moment and then hacked up black fluid onto the ground in front of it. And to my grandfather's shock..., a twisted voice emerged. 
+The crow-thing continued observing and outstretched its massive wings in an intimidating fashion. It took a moment and then hacked up black fluid onto the ground in front of it. And to my grandfather's shock..., a twisted voice emerged.
 
 "There is no God. There is no devil. There is only truth." It stated. "The crows know this. You, however, hide truth for comfort. It..." The creature stopped for a second to hack up another round of black fluid. "Sickens us. Our word will be spread. The truth will be everpresent. Your kind will no longer be blind to it."
 
@@ -146,6 +146,6 @@ Honestly, I didn't know how to take that. I felt that he was either crazy or mes
 
 I don't know. Maybe that's why I'm sharing this. Perhaps I feel like someone else can give me the answers I'm looking for or a starting point with how to find them.
 
-For what it's worth, a guy tried to rob me the other night. I was coming home late, and he pulled a knife on me. I told him I didn't have any cash, but apparently, that wasn't good enough. Just as that "Oh, shit, I'm going to get stabbed" feeling hit, three crows swooped down and started clawing at the guy. Apparently, one of them got really aggressive around the eyes. From an article I read, he won't ever see again. Weird coincidence or an intentional clue? I can't say. 
+For what it's worth, a guy tried to rob me the other night. I was coming home late, and he pulled a knife on me. I told him I didn't have any cash, but apparently, that wasn't good enough. Just as that "Oh, shit, I'm going to get stabbed" feeling hit, three crows swooped down and started clawing at the guy. Apparently, one of them got really aggressive around the eyes. From an article I read, he won't ever see again. Weird coincidence or an intentional clue? I can't say.
 
-But I know I can hear a familiar "caw-caw" outside my window even as I write this. And I can't put my finger on it, but as I look out my window or drive by the woods, something familiar has been calling me to the trees.
+But what I do know is that I can hear a familiar "caw-caw" outside my window even as I write this. And I can't put my finger on it, but whenever I drive by the woods on my way to work, something familiar has been calling me to the trees.
