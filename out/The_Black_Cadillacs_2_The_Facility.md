@@ -10,7 +10,7 @@ Making as little sound as possible, I moved out into the hall and went left towa
 
 A gray hand shot out from the hallway. It grabbed me in the neck and squeezed tight. The hand wasn’t a human’s. It was plastic.
 
-Two figures revealed themselves. They were tall, wore black suits and ties. Their faces were gray and lifeless. In fact, they weren’t human. They were mannequins, with black eyes. The mannequins made swift work, tying my ankles and wrists, slapping duct tape over my mouth. They picked me up and hurriedly carried me outside. I was thrown in the backseat of the Cadillac, and the mannequin driver sped away.
+Two figures revealed themselves. They were tall, wore black suits and ties. Their faces were gray and lifeless. They were mannequins, with black eyes. The mannequins made swift work, tying my ankles and wrists, slapping duct tape over my mouth. They picked me up and hurriedly carried me outside. I was thrown in the backseat of the Cadillac, and the mannequin driver sped away.
 
 Nothing was said for a few minutes, until the driver spoke up: “Get her on the phone.” I knew they were referring to Caroline.
 
@@ -80,9 +80,7 @@ I thought about it. What was the alternative? Stay here forever? Nah. I was goin
 
 “First of all, your only chance is at night. If you’re out there in daylight you’re dead. But you probably figured that. Once you get out of the building, you have three fences to clear in order to get to the main road. Nobody’s gotten that far. But if you do, you’ll still have to get off the property - which extends three miles out to the highway - all before they realize you’re gone.”
 
-Buck looked out the window. “And those fences? They’re not the ones you’d find in your backyard. The first one isn’t too bad. But the second and third are twice your height, cinder block, barbed wire on top. How you’d climb that, I don’t know. Nobody has gotten past the second fence.
-
-One guy got to the top by climbing a blanket that was stuck to the barbed wire, but he was picked off before descending the other side.”
+Buck looked out the window. “And those fences? They’re not the ones you’d find in your backyard. The first one isn’t too bad. But the second and third are twice your height, cinder block, barbed wire on top. How you’d climb that, I don’t know. Nobody has gotten past the second fence. One guy got to the top by climbing a blanket that was stuck to the barbed wire, but he was picked off before descending the other side.”
 
 I tried to shift things to a more positive note. “So . . . if somebody was to get out . . . how would they do it?”
 
