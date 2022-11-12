@@ -16,7 +16,7 @@ Right away people around them started whispering.
 
 "Maybe it's from the mother's side?"
 
-It got so bad that when I was about 4 or 5 years old, they were practically shouting it. I vividly remember my grandparents showing up one day when my mother was gone. They got into a row with my dad. "Leave her," they said. "Leave both of them." I remember sitting right there in the living room floor. "She's not yours," they told him. "Just look at her."
+It got so bad that when I was about 4 or 5 years old, they were practically shouting it. I vividly remember my grandparents showing up one day when my mom was out, and they got into a row with my dad. "Leave her," they said. "Leave both of them." I remember sitting right there on the living room floor. "She's not yours," they told him. "Just look at her."
 
 I don't remember what Dad said, but by the end, he was shouting and pushing them roughly out the door. I had never seen him so angry before, not even when he and my mom argued, and they argued a lot.
 
@@ -74,13 +74,13 @@ And when I turned around, she was gone.
 
 For days it haunted me. Guilt, that perhaps my mother was seeing something. Fear, that it was now affecting me. Anger, that it was possibly hereditary. Of all the things that I could have gotten, this was it?
 
-The woman in black consumed my living days. I stopped sleeping regularly, and barely ate. Everywhere I went, and wanted to go, would be spent constantly looking over my shoulder. Checking my bags. Carrying pepper spray. And I knew it was coming to an end when I was on a date with my boyfriend and I locked the doors on our way into a restaurant.
+The woman in black began to consume my living days. I stopped sleeping regularly, and barely ate. Everywhere I went, and wanted to go, would be spent constantly looking over my shoulder. Checking my bags. Carrying pepper spray. And I knew it was all coming to an end when I was on a date with my boyfriend and I locked the doors on our way into a restaurant.
 
 I looked into his eyes. as he sat across from me, and I knew that whatever my mom did to my dad. I couldn't do to him. That I had to help myself, before I was ready to be in a relationship. That I loved him enough, to not destroy his life as well. So I said goodbye to a person I loved.
 
 My psychiatrist recommended some pills. Blue ones, white ones, a purple one. I took them by the handful, hoping that they would work. And every time that I think they were starting to help, I would catch a glimpse of something in my corner cornea. A shadow, or a figure. A woman in black.
 
-It got so bad that even my dad started to notice something was wrong with me. He never said anything though, and I was never going to tell him even if he asked, but I could tell it by his eyes, as if he recognized something that has haunted him.
+It got so bad that even my dad started to notice something was wrong with me. He never said anything though, and I was never going to tell him even if he asked, but I could tell it by his eyes, as if he recognized something inside of me that has haunted him.
 
 I guess that was why I had to leave.
 
@@ -96,13 +96,13 @@ It was on one of those nights when I was hunched over my computer, when I was sw
 
 I whirled around quickly and snapped a photo of her standing outside my window.
 
-The only problem was the flash. At least, that was what the police officer said when I took it in as proof.
+The only problem was the flash. At least, that was what the police officer said when I took it in as proof that I was being followed.
 
 "It's just your reflection," he said. "Cameras do that." He looked at me, "Are you on drugs?"
 
-It's hard to explain that I was, but they were prescriptions, not that it ever mattered once they find out.
+It's hard to explain that I was, but they were prescriptions, not that it ever mattered once they found out.
 
-Still, I looked at that photo every waking day, for weeks. Driving myself insane. Sure the flash caused the window to reflect me in it, but just behind the smudges, there was clearly another figure there. I know she was there. I know it.
+So I went home, no further than the months before, and looked at that photo every single day, for weeks. It nearly drove me insane. Sure the flash caused the window to reflect me in it, but just behind the smudges, there was clearly another figure there. I know she was there. I know it.
 
 Weeks go by without a sighting.
 
@@ -124,7 +124,7 @@ The woman gasped, she was struggling to breathe, I could feel her dying under my
 
 &#x200B;
 
-When the police came, I was held on accounts of the investigation. The paramedics arrived and called a time of death, zipping up the body as I was escorted to the station. Then a six week investigation took place, it involved the police recovering items from the woman's apartment. There they found pictures of me spanning back from when I was a baby. Among them was a diary documenting how she wanted her child to have a better chance at life, and every time she saw that child; dances, graduation, their first kiss; and how she was always in the shadows, watching. And there was also an urn, where a newborn was stuffed inside next to an old baby tag, its blonde hair still growing.
+When the police came, I was held on accounts of the investigation. The paramedics arrived and called a time of death, zipping up the body as I was escorted to the station. Then a six week investigation took place, it involved the police recovering items from the woman's apartment. There they found pictures of me spanning back from when I was a baby. Among them was a diary documenting how she wanted me to have a better chance at life, and all the times she watched me from afar, in the shadows; dances, graduation, my first kiss. And among her things they also found an urn, where a newborn was stuffed inside next to an old baby tag, its blonde hair still growing.
 
 &#x200B;
 
