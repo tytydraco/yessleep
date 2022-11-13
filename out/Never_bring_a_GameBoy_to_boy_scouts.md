@@ -1,0 +1,28 @@
+Today I went back to my parent's house to get a few things before heading off to college. I was looking for a few things when I found an old container under my bed. I pulled it out and opened it out of curiosity. When I opened It had all my GameBoy advanced games and under the pile of games was my midnight black GameBoy. I picked it up and saw its screen was slightly cracked in the corner. Suddenly I had a flood of haunting memories.
+
+So today I will be sharing those haunting memories with all of you. When I was ten I went to Boy Scouts. My dad forced me to join because he was a troop leader. He was obsessed with nature, and spent every second outdoors he possibly could. Unfortunately, he and I did not share a common interest. So when I turned ten my dad signed me up and told me two days before we went to Boy Scouts. He wanted to spend time bonding. 
+
+We started to pack our things and against my dad's wishes, I secretly packed my midnight black GameBoy advance and two games, Pokémon Fire Red and Metroid prime. I stuffed them inside my sleeping bag just in case my dad checks my backpack. After packing all my stuff dad checked my backpack to make sure I didn’t forget anything. My plan worked and he didn’t find my secret treasure of entertainment. We headed to the truck and dad started it.
+
+We went to the gas station and after fueling up the truck with gas, we went inside. Dad let me get a treat. I got a chocolate bar and dad got coffee. After the trip to the gas station, we went down a road I recognized. We were heading to my cousin's! I was so excited. Even though my cousin Jay was three years older than me. We got along just fine. We were like Pb&J. When we got to Jay's house we parked on the driveway. 
+
+Jay ran out of their house and got into the truck. “Be safe!” Jay's mother yelled to us. My father said we would be safe. Even though there was no one in the front seat Jay sat in the back right next to me. They had blond curly hair that lay on their right side and their left side was shaved. They said how excited they were to see me. 
+
+Even though I and Jay are in different age groups, at the start of the summer for the first week. All scouts of different age groups are together. When we pulled up we parked by the other cars. Jay split up from us for a bit to their group. We met the rest of the group. We would set up a camp that wasn't too far from the road.
+
+After all the activities the sun started to set and we were all sent to our camps. I would sleep with my dad since he was the troop leader of our group. I was waiting for my dad to fall asleep so I could play on my GameBoy. Eventually, I closed my eyes and fell asleep. I jolted awake when I heard the loud snap of a branch breaking.
+
+My dad was still sleeping, he was a very heavy sleeper. I slowly walked out with a flashlight in my hand. I turned it on and went out and a hand covered my mouth muffling my scream. I heard a familiar voice say “It's just me”. It was Jay. They said they wanted to go walk around and wondered if I wanted to tag along. I decided I would and went back into the tent and quietly grabbed my GameBoy And put my shoes on. When we got past camp they introduced me to their friends.
+
+“This is John, Andrew, and Dave,” they said. John was a lanky dude with long arms and legs, Andrew was the opposite; he was short and bulky and was very buff. Dave on another hand was your average Joe. We walked near the hill the road was on till we came across a tunnel. 
+
+I pulled my midnight-black GameBoy out, unfortunately, I forgot to bring my games, I probably wouldn’t be able to see the screen anyway. I disappointedly put my GameBoy advance in my pocket. The rest of the group decided we would go into the tunnel. I didn't want to go into the tunnel, but I didn't want to seem like a scaredy-cat. So we turned on our flashlights and went into the tunnel. If I knew what was in there I would have never gone in and would've run back to the truck.
+
+We walked for what felt like hours when in reality it had only been minutes. Then I smelled something horrible, I couldn't describe it, but it was the worst thing I've ever smelled. Eventually, we saw a lump, we got closer, and it… It was a deer carcass. I will not describe it in great detail, but it traumatized me. I let out a whimper. Jay seemed to notice and said that we should turn back. So we did, then we heard footsteps behind us. We turned around to see a large dark figure behind us, it was tall with long antlers, but that's all I could make out of it.
+
+It let out a deep roar. It started to pursue. We started to run. I ran as fast as I could. I tripped and fell under a fallen log. I did not hear its footsteps. But when I rolled to my side my face was filled with fear as I heard the Gameboy advance startup noise. Then I heard its roar. 
+I looked everywhere, then I saw a hole in the log. And I was small enough to crawl inside. My GameBoy Advance fell out of my pocket onto a rock cracking its screen.
+
+Then I heard its footsteps. The footsteps got farther and farther. I waited for what felt like an hour before I crawled out and grabbed my GameBoy and stuffed it in my pocket. I ran back to my tent. I couldn't fall asleep.
+
+The next day I ran into Jay and their friends luckily no one was hurt. We all agreed not to tell anyone of this incident ever. I'm telling you this now to warn you to never bring a GameBoy to Boy Scouts.
