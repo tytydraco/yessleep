@@ -8,7 +8,7 @@ Confused, I began to read.
 
 *Welcome to your new house! However this was delivered to you, it is vital that you follow each and every rule very carefully as long as you live here. Only you-- Whoever received the letter is bound to the rules and their consequences.* ***Please remember that any writing in strange penmanship is meant to deceive you***. Usually, these will be crossed out, but if they are not, please cross it out yourself. The rules are as follows:
 
-*1) If anything goes wrong in the events of rule 2 or you don't follow rule 3, you must* ~~^(go outside)~~~~.~~ *head to the kitchen and pour sea salt in a circle around you before covering your ears. Once the clock reads 5:00, you can clear away the salt and go back to what you were doing prior.*
+*1) If anything goes wrong in the events of rule 2 or you don't follow rule 3, you must* ~~^(go outside)~~~~\~\~\~\~.~~ *head to the kitchen and pour sea salt in a circle around you before covering your ears. Once the clock reads 5:00, you can clear away the salt and go back to what you were doing prior.*
 
 *2) If, at night, you hear a window creak open and you wake up, you must not show you're awake. Count to 30 in your head and try your best to go back to sleep. If something goes wrong, follow rule 1.* ~~^(listen to the voices. I would never lead you astray, right?)~~
 
@@ -22,7 +22,7 @@ She stared at me blankly, looking a little confused. "..I don't know, what is it
 
 I tried to tell her that she'd given it to me just a few minutes before, but she denied it and said she'd been watching TV for the past half an hour. I knew I wouldn't get anywhere with it, so I walked away.
 
-On my way upstairs, I heard crying. I rounded the corner and found the source: A little girl facing away from me with her hands covering her face; my older sister.
+On my way upstairs, I heard crying. I rounded the corner and found the source: A girl facing away from me with her hands covering her face; my older sister.
 
 I set a hand on her shoulder, asking her what was wrong. She turned around and I found that she was quite obviously not crying, but instead had an eerily calm and happy expression. Something about her face felt off. We sat there staring at each other for a moment before she ran towards the stairs, giggling.
 
