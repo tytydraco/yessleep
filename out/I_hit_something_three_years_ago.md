@@ -35,3 +35,5 @@ After she finished speaking I saw that some tears began to fall down her face. I
 
 
 W҉h҉a҉t҉ w҉a҉s҉ t҉h҉e҉ n҉a҉m҉e҉ o҉f҉ t҉h҉e҉ p҉e҉r҉s҉o҉n҉ t҉e҉a҉c҉h҉i҉n҉g҉ y҉o҉u҉ t҉o҉ d҉r҉i҉v҉e҉
+
+https://www.reddit.com/r/nosleep/comments/ytdtht/i_hit_something_three_years_ago_pt2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button -part two

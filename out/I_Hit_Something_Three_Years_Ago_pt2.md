@@ -23,3 +23,5 @@ How would Lorraine or my brother react once they notice I've gone missing. If I 
 All of a sudden,she stops walking and I stop in turn. I look at her and I see her staring at the massive house in front of us. I switch my attention to the Manor that stands before us as I hear her say:
 
 "We're here."
+
+https://www.reddit.com/r/nosleep/comments/yosu3b/i_hit_something_three_years_ago/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button -part one
