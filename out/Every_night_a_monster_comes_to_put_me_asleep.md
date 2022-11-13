@@ -6,7 +6,7 @@ When the monster harms me, it HURTS. Most people would pass out immediately if t
 
 I went for months without knowing what caused this pain. Doctors and health practitioners couldn’t pinpoint a specific cause. Sleeping pills wouldn’t help me sleep any better. It had already been a few months of my “poor sleep” and I had no idea what was behind it. For a while, I chalked it up to some form of anxiety disorder or some such, since those pains were always accompanied by memories of things I regret doing. Not necessarily just wrong things, but also embarrassing situations. Maybe it was stress from an overwhelming university? 
 
-The day I figured out what was going on was just an awfully exhausting one, between studying for incoming engineering tests and a lot more responsibility for an overworked intern than what he signed up for. It was just the day where I wanted to lie down as soon as I got hole, even if I was dreading sleep.
+The day I figured out what was going on was just an awfully exhausting one, between studying for incoming engineering tests and a lot more responsibility for an overworked intern than what he signed up for. It was just the day where I wanted to lie down as soon as I got home, even if I was dreading sleep.
 
 I didn’t even turn on my lights, just threw my backpack on the floor and lied down on my bed, face to the ceiling. I thought my exhaustion would be enough to sleep tight… how wrong I was. I immediately felt my heart race as what felt like a few sharp tips slowly ripping through my flesh. I didn’t dare open my eyes for a while until I felt a pull… a literal tug of my heartstrings, if you will.
 
