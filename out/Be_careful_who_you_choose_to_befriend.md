@@ -1,0 +1,27 @@
+This incident took place in the year 1998, when I was about 6-7 years old. I lived in a somewhat rural area in Warwickshire, England. For a small town, we had a lot of scummy and dodgy people. Most kids weren’t allowed out of their houses after 6 o clock, even in the summer. 
+
+I lived in a block of council flats/apartments, on the 10th floor. My mom was a single mom and struggled a lot for money, so I learnt to be very independent from a young age. I struggled A LOT making friends,  and was always the singled out weird kid. One day, my mom took me to a local park, where most kids my age would play. As I got to the bottom of one of the slides, I noticed a kid sitting in a bench, completely on his own, he was about my age so that was super weird.
+
+He was very pale, he looked like he had been deprived of sleep, he was wearing a woollen hat, gloves, and a large coat. The most noticeable thing to a 7 year old girl however was his spider man trainers. I got up and decided to inquire about them, “I like your shoes, where did you get them?” I asked him. He blinked, then looked up at me, He shrugged his shoulders and said “My daddy got them for me.” His voice was very raspy and tired sounding, like he had a cold. “Why are you on your own?” I asked him. “I came here on my own.” I was very confused, as I was used to going everywhere with my mother. “Ok…well what’s your name?” I said, smiling down at him.
+
+“Ronnie, my names Ronnie.”
+
+“Well do you want to play with me Ronnie?” He stood up, his eyes widening slightly. “Ok.”
+There was no emotion in his voice, or to him whatsoever, but I still always played with him, because he came up with some super cool games, some I still remember to this day. Every time my mom would take me to the park, Ronnie would always be sitting on that bench. Waiting for me. He was never once late, like he knew when I was going to come. One day whilst I was playing with Ronnie, he asked me; “Do you have a mommy?” That was a very peculiar question. I didn’t want to lose my only friend so I said to him, “I can show you her.” Ronnie walked right by my side, his long curly hair bouncing as he did so. He seemed nervous whilst waking past the other children. I could see his hands shaking. He took my hand and stopped me. “What’s the matter Ronnie?” I asked. “I want to go back and play. Please.” I could hear the tremor in his voice. I noticed how visibly nervous he looked, so I took him to go back and play. 
+
+One time, however, Ronnie was not waiting for me. In fact, he wasn’t anywhere to be seen. After thoroughly scanning the park, I decided to try and sneak behind the bushes, and visit Ronnie’s house. He had pointed to where he lived before so I knew where to go. I made sure my mom wasn’t looking and snuck off to try and find Ronnie. His house was very old, and small. It looked very dirty, and the windows were covered with plywood, to prevent anybody from seeing in.
+Nervously, I approached his front door, and knocked.
+
+To my surprise, an older man opened the door, he was so scary looking. Similar to Ronnie, he looked sleep deprived, and expressionless, but without Ronnie’s deathly blue paleness. “Is Ronnie here?” I asked the man, whilst stuttering. He gave me an angry look, and slammed the door shut in my face. Disappointed, I ventured back through the bushes and into the park. My mom was calling my name and frantically searching for me. When she caught sight of me, she was livid. She brought me straight home and said I wasn’t allowed to go back to the park for an entire month, for giving her such a scare.
+
+I remember looking outside my bedroom window, and seeing the park off in the distance. Ronnie would still wait for me every day on that rusty old bench. After a while, I ended up forgetting about the park, and Ronnie along with it. When my mom started taking me to the park again, it was too late. I had forgotten Ronnie and he never came back to that bench.
+
+About a week ago, my mom hosted a party at her apartment for a family members birthday. The same apartment I lived in as a little girl. The party was pretty good, I spoke to family I hadn’t seen for ages. While me and some other family where speaking about us as kids, and old memories, when my mom said something that triggered all of these memories to come flooding back.
+
+“Hey, do you remember when Koniqua had that imaginary friend, Ronnie, wasn't it? You would spend ages at the park speaking to thin air, even making up games with it. It was adorable."
+
+Everyone all said they remembered me speaking about Ronnie, and apparently talking to nothing.
+
+I was super weirded out, because Ronnie was 100% real. I remember touching him, and playing with him. After that I ended up looking up stuff about child psychology, and imaginary friends. And yesterday I looked up stuff about the area I lived in, and came across an article about a boy who was strangled to death by his deranged and abusive father in the early 80s. There was a grainy photo of him, taken on the day he died, as he was killed on a fishing trip with his dad. He looked so smiley, and happy. As I read up more,  it said his dad was only arrested in 2001, and the poor kid didn’t get justice until almost 18 years. There was another photo of him, still as grainy as the last one. Then, I noticed something that made my stomach drop.
+
+He was wearing a pair of bright red and blue spider man trainers.
