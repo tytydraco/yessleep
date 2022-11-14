@@ -124,13 +124,13 @@ His father screamed for forgiveness, said that he was a God-fearing man and that
 
 The crow-thing continued observing and outstretched its massive wings in an intimidating fashion. It took a moment and then hacked up black fluid onto the ground in front of it. And to my grandfather's shock..., a twisted voice emerged.
 
-"There is no God. There is no devil. There is only truth." It stated. "The crows know this. You, however, hide truth for comfort. It..." The creature stopped for a second to hack up another round of black fluid. "Sickens us. Our word will be spread. The truth will be everpresent. Your kind will no longer be blind to it."
+"There is no God. There is no devil. There is only truth." It stated. "The crows know this. You, however, hide truth for comfort. It..." The creature stopped for a second to hack up another round of black fluid. "Sickens us. You know me. You know our word will be spread. The truth will be everpresent. Your kind will no longer be blind to it."
 
 My grandfather didn't know if what happened next was out of a genuine belief that he could harm the thing or out of pure fear. While the crow creature was giving its enigmatic speech, his dad managed to load up another round and again took aim. This time unloading as many bullets as he could toward the humanoid bird.
 
 All to no avail. The thing made something akin to a sighing sound as it flapped its impressive wings once more. It let out a broken "Caw-caw-caw" and rushed forward on those disgusting legs with inhumane speed. In an instant, its beak unhinged like a snake and swallowed the foolish man whole. The last thing my grandfather saw of his dad was his legs disappearing into the thing's maw. An image that would be burned into his mind for the rest of his life.
 
-And just as soon as it had come, it was gone. Nothing but a permanent black stain was left behind. He called out to Mia not only to ask if she was okay but for some kind of reasoning. What was that thing? How did it know to come to find her? Where did it go?
+And just as soon as it had come, it was gone. Nothing but a permanent black stain was left behind. He called out to Mia not only to ask if she was okay but for some kind of reasoning for what took place. What was that thing? How did it know to come to find her? Where did it go?
 
 To his relief, she was okay. Scared but unharmed just behind where the creature had stood. "The crows will always protect those they love," she reminded him.
 
@@ -140,9 +140,11 @@ While I found the story absolutely fascinating and actually preferred it to play
 
 My grandfather wasn't one to smile, but he couldn't hold one back when I asked him that same question.
 
-"You're next in line. My role was to ensure that you were born and knew our history." He stopped to take another puff of his cigar. "The crows have been watching over me my whole life. They've kept me safe from all sorts of evils. They brought me true love. A child. I thought it was so I could praise them for all the good they've done, but no one could know their true intentions. Only bits and pieces. Though they have told me this..." I leaned in closer to hear what he had to say, "A child would be born to deliver our message and change the world to how they see fit. That child will create a better, more pure, truthful world. That child is you."
+"You're next in line. My role was to ensure that you were born and knew our history." He stopped to take another puff of his cigar. "The crows have been watching over me my whole life. They've kept me safe from all sorts of evils. They brought me true love. A child. I thought it was so I could praise them for all the good they've done, but no one could know their true intentions. Only bits and pieces. Though they have told me this..." I leaned in closer to hear what he had to say, "A prophet would be born to deliver our message and change the world how they see fit. That prophet will create a better, more pure, truthful world. That prophet is you."
 
-Honestly, I didn't know how to take that. I felt that he was either crazy or messing with me. But another part of me genuinely wanted to consider that it was true. What if there was more to this? I was unsure. And to this day, I still am. I don't feel any different from anyone else. I don't feel that I'm meant to change the world in any fundamental way. And yet, until his death, my grandfather maintained that I'd see the truth one day.
+I didn't know how to take that. I felt that he was either crazy or messing with me. But another part of me genuinely wanted to consider that it was true. What if there was more to this? I was unsure. And to this day, I still am. I don't feel any different from anyone else. I don't feel that I'm meant to change the world in any fundamental way. 
+
+And yet, even on his deathbed, as my grandfather screamed that the demons coming for him were more horrible than he could've ever imagined, he still maintained that I'd see the truth one day. And that even though the crows no longer protected him, my mission was so important to the world that it was worth facing the horrors that had wanted to take him for so long.
 
 I don't know. Maybe that's why I'm sharing this. Perhaps I feel like someone else can give me the answers I'm looking for or a starting point with how to find them.
 
