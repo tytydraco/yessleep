@@ -1,0 +1,13 @@
+The wind howled outside as the temperature kept dropping alongside the setting sun. The fire crackled and popped, my pit bull breathing heavy and deep as he lay beside me watching “The Conjuring” with me. My dog and I go everywhere together since my wife left. He’s my best friend, goes on hikes with me, watches tv with me and comes out hunting with me. 
+
+The boy doesn’t get scared he’s been surrounded by the sound of gunfire from my hunting trips and the loud bangs from the movies I watch, he’ll run off after an animal and bring it back to me. He’s a tough dog, but on that night, something scared him and the house hasn’t felt right since.
+
+As the movie is starting its way to the climax I see my dog lift his head and stare at the front door. The fur running down his back starts to spike. I pet him and try to calm him down, but it doesn’t work. I hear the deep guttural growl he lets out before he pounces. He leaps up and bolts for my front door, the barking is loud and the growling is deep. I grab for my six shooter I keep on my hip. My left ear begins to ring and the possessed mom pops up on the screen, the sound makes me jump. I can feel my heart beating in my skull. The ringing will not go away. The barking is insistent. 
+
+I slowly start making my way to the door, my gun drawn. The barking stops. The ringing in my ear is gone and the lights go out. The fire is causing the shadows to come alive. My dog stares at the door and starts to whimper and actually runs away. My heart starts to race. I slowly pull back the curtain on my front doors glass with the barrel of my gun to look outside… nothing… I get chills down my spine and my ears explode with the high pitched ringing. I drop to my knees, the sound, paralyzing. My dog runs to my side, completely normal now.
+
+I slowly start to stand up, the ringing still there but much less aggressive. I turn around and I see a shadow walk across my living room. I shake my head and rub my eyes. The lights come back on, the ringing subsides and my dog hops on the couch.
+
+When the movie finishes I turn off all the lights and get ready for bed. I get around to brushing my teeth, go down to spit out my mouthwash and as I bring my head back up to look in the mirror I see a face, the eye sockets are black as coal, the face is charred and in decay, the skin seemed to be falling off, it smiled at me the grin kept growing and growing until the corners of the mouth touched each ear. I jump, spin around and nothing is there.
+
+I haven’t slept for days. Whatever that was.. it hasn’t left..
