@@ -10,7 +10,7 @@
 
 &#x200B;
 
-Gravel crunched beneath the tires of my Ford Tacoma as we screeched to a halt.
+Gravel crunched beneath the tires of my Toyota Tacoma as we screeched to a halt.
 
 &#x200B;
 

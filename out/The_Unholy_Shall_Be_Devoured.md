@@ -1,0 +1,27 @@
+“The Unholy Shall Be Devoured.” We were used to graffiti in our part of town, we were used to religious nuts telling us were going to hell too, so when that phrase showed up painted on a concrete pillar underneath the bridge nobody gave it a second thought. Sure it was higher than most of the others and it looked a little more professionally done but it was just more graffiti. Besides, the list of things people cared about in the 2nd Ward was very strictly drugs and then not getting killed, in that order. Some people didn’t’ worry about eating except once every couple of days so this “unholy” business didn’t even register.
+
+Now I’m not claiming to be any better than any of my other homeless comrades out here in the tent cities but I will point out one subtle difference between them and myself. I got here by using drugs, sure, but I’ve stayed here to sell them. Life and death really isn’t a motivator for a lot of lost souls down here but I’m one of the lucky ones. After my 4th overdose in as many months I decided to get clean. I’m not sober in the strictest sense of the word because I drink and I smoke pot to take the edge off, but I’m off of the hard stuff. I’m acting as a middle-man between the heavy movers and nickel and dime junkies that litter the 2nd ward. No shit  I was able to set up a bank account with my mother’s address and I deposit the cash every couple of days, decrease my chances of getting robbed. Another month or so I’ll be able to get some place to live. It won’t be much but it won’t be the tent I call home now.
+
+When you run drugs out here information becomes a valuable resource and a 2nd form of income. I know who the junkies are, I know what their drug of choice is, I know how much money they owe and who’s trading sex or other favors for their fix. I know where people live, I know what they buy, I can pretty much find whoever I need to using those two pieces of information. When a customer or two of mine started to go missing I didn’t pay much attention. We lost customers all the time out here, that’s the nature of the business. Even worse, it’s always your best customers that you lose cause they’re the most likely to OD, but when one customer in particular was nowhere to be found I started to keep my eyes peeled even more than I already did.
+
+Jody the Talker they used to tell her. She lived in a tent city down in an old irrigation ditch by the park. She was well like by everyone cause she wasn’t like the rest of us out here. She only used enough dope to calm the voices in her head, diagnosed schizophrenia. She didn’t want to be using, she didn’t want to be out here, she just did what she had to in order to get a moments peace. I used to make the mile walk every couple of days to take her dope to her, she was always good to talk to which was part of the reason for her nickname. The other half being when she didn’t get her dope she never stopped talking to herself. Or the voices I guess.
+
+When Jody wasn’t there when I went to make her drop I got worried. She was always there. I asked around and nobody had seen her, it was weird to see a bunch of junkies worried that someone was missing but they knew what I knew and I knew Jody never went anywhere too far from the ditch. I stayed out late that night looking for her, then the next day too. That 2nd night was when it everything got fucked up.
+
+I was about a half mile from the ditch, closer to the city. I was checking alleyways and tent cities, nobody had seen her. I was about to give up and go home when I heard whispering from the alley I was passing. I took the turn in and gripped the knife in my pocket. About halfway through the alley I found Jody. She looked fucking terrible, she was on the ground with her hands over her head. I thought I was looking at what the voices did to her without dope but she looked like she was on dope, not dope sick. I found there was a needle next to her, a bag had fallen from her jacket pocket.
+
+“Jody whats wrong? Did something happen?
+
+“I don’t know, I don’t know, I don’t know. What the fuck did I do?”
+
+“Idk Jody, that’s why you gotta tell me, maybe I can get some help for you.”
+
+“You’ve gotta get the fuck out of here. Usually it works. Usually it makes it all go away but it’s hanging around.”
+
+“What is it Jody?”
+
+“Run.”
+
+Jody took off sprinting down the alley. Didn’t even bother with the needle or the bag that fell out of her pocket. I looked up and down I couldn’t see anything so I took off after her. I chased her 4 or 5 blocks and then she disappeared into a left hand turn behind a building. When I turned the corner my life changed forever. There was a creature standing where Jody should have been. Or I guess still was. It was a grotesque shade of white, not pale, not translucent at all but white. Its mouth was unhinged and it already had about three quarters of Jody’s body in it’s mouth. It had giant pink eyes with a dead black in the middle, two sets of arms shoving more of Jody in it’s mouth.
+
+I wish I could say I stayed and fought for Jody. I wish I could say I rounded up a junky militia and we found that thing and tore it limb from limb. But all I did was run. I ran straight to my tent and I counted the cash I had and went straight for the seedy motel I’m in now. I’ll spend the rest of my money, I don’t give a fuck. Whatever I do next the only thing I’m sure of is I won’t be perceived as unholy. Not anymore.
