@@ -12,4 +12,4 @@ The nightmares stopped after I moved. As I grew older I convinced myself the nig
 
 My brother still lives in Ohio and sold me his half of the estate. Three weeks ago I moved back into my childhood home in Colorado with my wife and five year old son, Aiden. Two nights ago I heard the thumping again for the first time in thirty years. It was exactly the same. Thump-thump, thump-thump. 
 
-Two nights ago Aiden went missing. Everything was the same as it was when I was a kid. The furniture was moved, clothes thrown around the floor. Everything was the same except for one thing - I found scratches and something that I think is a piece of a fingernail in the floorboards. My wife doesn’t believe my story. I don’t think the police do either.
+Two nights ago Aiden went missing. Everything was the same as it was when I was a kid. The furniture was moved, clothes thrown around the floor. Everything was the same except for one thing - I found scratches and something that I think is a piece of a fingernail in the floorboards. My wife doesn’t believe my story. I don’t think the police do [either.](https://www.reddit.com/r/WorldArchitect/comments/yv369y/thanks_for_being_here/)
