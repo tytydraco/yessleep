@@ -124,7 +124,7 @@ His father screamed for forgiveness, said that he was a God-fearing man and that
 
 The crow-thing continued observing and outstretched its massive wings in an intimidating fashion. It took a moment and then hacked up black fluid onto the ground in front of it. And to my grandfather's shock..., a twisted voice emerged.
 
-"There is no God. There is no devil. There is only truth." It stated. "The crows know this. You, however, hide truth for comfort. It..." The creature stopped for a second to hack up another round of black fluid. "Sickens us. You know me. You know our word will be spread. The truth will be everpresent. Your kind will no longer be blind to it."
+"There is no God. There is no devil. There is only truth." It stated. "The crows know this. You, however, hide truth for comfort. It..." The creature stopped for a second to hack up another round of black fluid. "Sickens us. You know who we are. You know our word will be spread. The truth will be everpresent. Your kind will no longer be blind to it."
 
 My grandfather didn't know if what happened next was out of a genuine belief that he could harm the thing or out of pure fear. While the crow creature was giving its enigmatic speech, his dad managed to load up another round and again took aim. This time unloading as many bullets as he could toward the humanoid bird.
 
@@ -142,9 +142,9 @@ My grandfather wasn't one to smile, but he couldn't hold one back when I asked h
 
 "You're next in line. My role was to ensure that you were born and knew our history." He stopped to take another puff of his cigar. "The crows have been watching over me my whole life. They've kept me safe from all sorts of evils. They brought me true love. A child. I thought it was so I could praise them for all the good they've done, but no one could know their true intentions. Only bits and pieces. Though they have told me this..." I leaned in closer to hear what he had to say, "A prophet would be born to deliver our message and change the world how they see fit. That prophet will create a better, more pure, truthful world. That prophet is you."
 
-I didn't know how to take that. I felt that he was either crazy or messing with me. But another part of me genuinely wanted to consider that it was true. What if there was more to this? I was unsure. And to this day, I still am. I don't feel any different from anyone else. I don't feel that I'm meant to change the world in any fundamental way. 
+I didn't know how to take that. I felt that he was either crazy or messing with me. But another part of me genuinely wanted to consider that it was true. What if there was more to this? I was unsure. And to this day, I still am. I don't feel any different from anyone else. I don't feel that I'm meant to change the world in any fundamental way.
 
-And yet, even on his deathbed, as my grandfather screamed that the demons coming for him were more horrible than he could've ever imagined, he still maintained that I'd see the truth one day. And that even though the crows no longer protected him, my mission was so important to the world that it was worth facing the horrors that had wanted to take him for so long.
+And yet, even on his deathbed... Even as I heard my grandfather scream about the demons finally coming to take him because the crows no longer cared to protect him from them, he still maintained that I'd know the truth. He maintained that everything was worth it for their wisdom to be spread to the people. No consequence was too great even if he had to be the one to bear it.
 
 I don't know. Maybe that's why I'm sharing this. Perhaps I feel like someone else can give me the answers I'm looking for or a starting point with how to find them.
 
