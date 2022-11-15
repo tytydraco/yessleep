@@ -1,5 +1,3 @@
-It was snowing heavily today. Everything outside was covered with snow. Only the inside of the bus was mostly snow free. The bodies of the dead passengers were still unchanged because of the cold. As I was laying in my sleeping bag and looking at the body of a little girl who was still holding h
-
 It was snowing heavily today. Everything outside was covered with snow. Only the inside of the bus was mostly snow free. The bodies of the dead passengers were still unchanged because of the cold.
 As I was laying in my sleeping bag and looking at the body of a little girl who was still holding her small teddy bear in her frozen hand. Reminded me of how I got here. Dad and I were going on a holiday to go skiing on the local mountain. 
 

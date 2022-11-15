@@ -94,7 +94,7 @@ That would be my aunt-in-law. She married into the family when I was twelve so s
 
 &#x200B;
 
-“Marvin,” she said, hugging me, “it has been too long. How are you.”
+“Marvin,” she said, hugging me, “it has been too long. How are you?”
 
 &#x200B;
 

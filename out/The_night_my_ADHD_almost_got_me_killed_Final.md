@@ -22,7 +22,8 @@
   Speaking of which, was it wrong that I still kept eyeballing the blonde? Sure, she had most definitely been leading me on to get me into her house and all, but man she looked good in that painted-on dress. Damnit! What the hell was I thinking!? What're you gonna do? Ask her out for a cheap ass beer when she gets done eating your liver with some fava beans and a nice chianti!? Wait…did I hear that right!?
 
   "You're gonna what?" Earl asked, whimpering slightly as he backed away from the bars. 
- "We…are…going…to…dine…on…you..," snooty looking, slick back hair guy said, mockingly slowly. 
+ 
+  "We…are…going…to…dine…on…you..," snooty looking, slick back hair guy said, mockingly slow. 
 
   "Y'all some sick mother fuckers…" Burt said, shaking his head in apparent denial. 
 
