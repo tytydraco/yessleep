@@ -1,5 +1,3 @@
-[Last Chapter (My reason for never EVER going thrift shopping again)](https://www.reddit.com/r/nosleep/comments/yp5s60/my_reason_for_never_ever_thrift_shopping_again/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
-
 Walking the same familiar route can feel comforting since you know exactly where you are going. But what happens when someone else knows that same route? I sadly have had this experience and I’ll tell you, it’s good to mix up your schedule.
 
 As a child I always took the same route from my bus stop to my house. I did this because it was routine and felt familiar. I continued this pattern of having one specific route all the way to college. Only then did I even consider taking a new way.
