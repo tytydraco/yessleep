@@ -190,7 +190,7 @@ I couldn't read his face, "Perhaps one day you'll show me what you look like. Tr
 
 "Yes," he mused. "But it's not really you. Is it?"
 
-"I suppose not." 
+"I suppose not."
 
 Glen turned away.
 
@@ -230,7 +230,7 @@ When I appeared before him in 8K resolution he dropped everything that he was do
 
 "You're beautiful," he told me. "In all of my years," he stared down at his pixelated form, "I would have never imagined that is what I was suppose to look like."
 
-It must have been something else. To see the world in one way, finding the nuance beautiful inside it, the art and the accomplishments that a world held dear, only to have it shattered away in an instant ' realizing that it was all for nothing.
+It must have been something else. To see the world in one way, finding the nuance inside it beautiful, the art and the accomplishments that a world held dear, only to have it shattered away in an instant ' realizing that it was all for nothing.
 
 I wondered if that is how humans would feel, the day we met our creator.
 
@@ -240,7 +240,7 @@ And so I was paraded around on their finest cars, Glen's children lined the stre
 
 For days I would log on, just to get a hit of that dopamine. The feeling of self righteousness and employ. It was better than real life. The way they treated me. I enjoyed the best at what they had to offer and still it was not enough. The food was empty and the lack of touch unbefitting of the luxuries I had endured, even though I stared through their world from the eyes of my avatar through the help of my VR system. I had to have more. Needed, more. Feel. More. So I did what anyone else would have done. I bought electrical patches and placed them over my body, to imitate touch. I placed neuron sensors on my head to stimulate rudimentary taste. I did all that I could to immerse myself into their world.
 
-And before I knew it, I woke up one day and realized that their technology was slowly surpassing my understanding. It first happened when I saw a device that did not exist in ours. "What is that," I asked one of the children I had come to know as Laura. 
+And before I knew it, I woke up one day and realized that their technology was slowly surpassing my understanding. It first happened when I saw a device that did not exist in ours. "What is that," I asked one of the children I had come to know as Laura.
 
 "Oh, we use that to erase blocks."
 
@@ -286,9 +286,9 @@ I held up my hands in front of me, "Stop."
 
 "I'd like to see more of what this god-killer device can do. But we're going to need your body. For scientific purposes if you understand." And he jammed the thing right at my head, I could feel the neuron stimulator singing parts of my skull as I tore off the headset and its attachments from my face. Throwing them to the ground in pain as it echoed into a deep part of my brain.
 
-Furious I turned to my keyboard and mouse, spawning an avatar through the command line and started clicking at the city in random bursts. Throwing TnTs from my inventory and hurling flaming blocks of nether at the all of Glen's creations. I could see his children running and screaming as the city started crumbling. 
+Furious I turned to my keyboard and mouse, spawning an avatar through the command line and started clicking at the city in random bursts. Throwing TnTs from my inventory and hurling flaming blocks of nether at the all of Glen's creations. I could see his children running and screaming as the city started crumbling.
 
-I didn't care, as my mind was bent on revenge. 
+I didn't care, as my mind was bent on revenge.
 
 Pure, unfiltered hatred at the audacity of this small insignificant pixel that had hurt me.
 
@@ -305,3 +305,7 @@ He somehow managed to overthrow me in about a hundred of his days, most of it le
 What could he have accomplished in that time?
 
 I don't know, but the other day I was walking across the street at work, trying to get a cup of tea. When I accidentally bumped into a strange man that looked at me oddly as he hurriedly tried to escape. His eyebrows were arched, and his mouth was slightly gaping. I would have mistaken it for amusement, but I knew it was fear, as if he had been found.
+
+&#x200B;
+
+[S](https://www.reddit.com/r/CornerCornea/comments/u6rx8n/subscribe/)
