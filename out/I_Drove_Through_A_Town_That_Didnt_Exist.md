@@ -22,13 +22,13 @@ As I continued to drive while listening to Christmas Songs on the radio, I began
 
 Using my phone as a source of light, I got out of my car to access the damage and noticed a sign that read Pottsville - 1 Mile.
 
-Finding no visible damage to my car and the sign, I decided to continue driving.
+Finding no visible damage to my car or the sign, I decided to continue driving.
 
 I noticed though that I was beginning to feel hungry and remembering the sign for Pottsville, I decided I would have a bite there since I had to drive through the town anyway...
 
 Upon entering Pottsville, it appeared normal enough but the further I drove into town, the more I began to notice something was off...
 
-The buildings themselves appeared to be void of color like something straight out of old black and white movies but even stranger though, were the people...
+The buildings themselves appeared to be void of color like something straight out of old black and white movies but even stranger though were the people...
 
 The people, who, I swear were walking backwards like somebody rewinding a movie.
 
