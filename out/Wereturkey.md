@@ -132,7 +132,7 @@ I held up the brownies.
 
 &#x200B;
 
-Those would be my cousins. I came into the living room as they were coming downstairs. We greeted each other and talked for a bit. Eventually, other members of the family arrived. Much to my surprise and apprehension, my parents decided to show up. 
+Those would be my cousins. I came into the living room as they were coming downstairs. We greeted each other and talked for a bit. Eventually, other members of the family arrived. Much to my surprise and apprehension, my parents decided to show up.
 
 &#x200B;
 
@@ -150,9 +150,9 @@ Yeah, we hadn’t been on great terms for the past months. Long story short, the
 
 &#x200B;
 
-I chose to ignore my mom and him. My plan was to mingle with other family members so I wouldn’t have to deal with them. For a while, this worked. However, 
+I chose to ignore my mom and him. My plan was to mingle with other family members so I wouldn’t have to deal with them. For a while, this worked. However,
 
-something would bring us together, something I’ll never forget. You see, my uncle’s neighbors were kind of odd. 
+something would bring us together, something I’ll never forget. You see, my uncle’s neighbors were kind of odd.
 
 &#x200B;
 
@@ -178,7 +178,7 @@ They were a couple that was eerily similar in appearance. I suspect the less I k
 
 &#x200B;
 
-Against my better judgment, I acknowledged her and immediately cursed myself for doing so. 
+Against my better judgment, I acknowledged her and immediately cursed myself for doing so.
 
 &#x200B;
 
@@ -264,13 +264,13 @@ They told me they'd see me later and I gave them a half-hearted wave as I starte
 
 &#x200B;
 
-The walk wasn’t only to work off some of my fullness or to get away from my parents. I’m someone who can feel overwhelmed by an abundance of social interaction. Therefore, in those kinds of situations, I step away for a bit. During this, I passed by Teddy’s neighbors. Since he’s mentioned their oddities to me on a few occasions, I paid their property no mind and kept going. 
+The walk wasn’t only to work off some of my fullness or to get away from my parents. I’m someone who can feel overwhelmed by an abundance of social interaction. Therefore, in those kinds of situations, I step away for a bit. During this, I passed by Teddy’s neighbors. Since he’s mentioned their oddities to me on a few occasions, I paid their property no mind and kept going.
 
 &#x200B;
 
 &#x200B;
 
-That’s what I would be saying if it weren’t for the craziest shit happening. 
+That’s what I would be saying if it weren’t for the craziest shit happening.
 
 &#x200B;
 
@@ -282,13 +282,13 @@ That’s what I would be saying if it weren’t for the craziest shit happening.
 
 &#x200B;
 
-I stopped. A turkey’s call wasn’t unusual. How primal it sounded was. It was ancient like something that was getting the best sleep of its life for the past several thousand years and was now awake and incredibly pissed off. It was obvious where it was coming from and I began to sweat. 
+I stopped. A turkey’s call wasn’t unusual. How primal it sounded was. It was ancient like something that was getting the best sleep of its life for the past several thousand years and was now awake and incredibly pissed off. It was obvious where it was coming from and I began to sweat.
 
 &#x200B;
 
 &#x200B;
 
-I knew that was my cue to head back the way I came. Two things I learned that night. One is that wereturkeys are a thing. Yes, as in the curse of werewolves only it’s turkeys instead. The second was that turkeys can fly. 
+I knew that was my cue to head back the way I came. Two things I learned that night. One is that wereturkeys are a thing. Yes, as in the curse of werewolves only it’s turkeys instead. The second was that turkeys can fly.
 
 &#x200B;
 
@@ -350,13 +350,13 @@ It wouldn’t be kept out long. I needed a place to hide and call for help. The 
 
 &#x200B;
 
-Heart racing, I pulled a small table with a vase on it in front of the entrance and then went down, yanking the door closed behind me. It was dark and there was a distinct metallic smell. I felt along the wall, eventually, finding a light switch. Turning it on was a mistake. On the floor, was one of my uncle’s neighbors or rather, what was left of him. 
+Heart racing, I pulled a small table with a vase on it in front of the entrance and then went down, yanking the door closed behind me. It was dark and there was a distinct metallic smell. I felt along the wall, eventually, finding a light switch. Turning it on was a mistake. On the floor, was one of my uncle’s neighbors or rather, what was left of him.
 
 &#x200B;
 
 &#x200B;
 
-Shredded flesh in a shape vaguely resembling a man lay in a pool of blood and a headless turkey. I nearly threw up. This was fucked. I turned away from the gruesome sight. My hands were shaking and I forced them to relax as I was dialing the police. 
+Shredded flesh in a shape vaguely resembling a man lay in a pool of blood and a headless turkey. I nearly threw up. This was fucked. I turned away from the gruesome sight. My hands were shaking and I forced them to relax as I was dialing the police.
 
 &#x200B;
 
@@ -398,13 +398,13 @@ Then it dawned on me that they probably wouldn’t believe the truth and that fo
 
 &#x200B;
 
-All I could do then was wait. There was a chair in the basement. I sat in it and exhaled deeply, massaging my temples. Something prompted me to take a closer glance around the room. My eyes fell on a bookcase. 
+All I could do then was wait. There was a chair in the basement. I sat in it and exhaled deeply, massaging my temples. Something prompted me to take a closer glance around the room. My eyes fell on a bookcase.
 
 &#x200B;
 
 &#x200B;
 
-The house was big so I wondered why they’d put it there of all places. Every so often, I would hear the enraged wereturkey smashing something to bits as it was trying to find my hiding spot. A couple times it got way too close for comfort. There was a book already open face down on the floor. I picked it up. 
+The house was big so I wondered why they’d put it there of all places. Every so often, I would hear the enraged wereturkey smashing something to bits as it was trying to find my hiding spot. A couple times it got way too close for comfort. There was a book already open face down on the floor. I picked it up.
 
 &#x200B;
 
@@ -416,7 +416,7 @@ One look at the pages and I knew the symbols within were not meant for mortal ey
 
 &#x200B;
 
- Probably a weredolphin or a werespider unless this isn’t restricted to solely real animals taking human shape. Otherwise, there might be some shit like werekrakens and that’s not something I want to think about. I figured the book might contain some weakness of the wereturkey in case the blasting it to bits method failed. Too bad that part wasn’t in English.
+Probably a weredolphin or a werespider unless this isn’t restricted to solely real animals taking human shape. Otherwise, there might be some shit like werekrakens and that’s not something I want to think about. I figured the book might contain some weakness of the wereturkey in case the blasting it to bits method failed. Too bad that part wasn’t in English.
 
 &#x200B;
 
@@ -428,7 +428,7 @@ I guess Teddy’s neighbors were in the process of translating and decided to tr
 
 &#x200B;
 
-It let out an ear-piercing cry and descended the steps. I  searched for something to defend myself with and grabbed a small knife with the blade half broken. I was so fucked. There wasn’t any escape or way for me to defend myself save a small knife with the blade half bro. Then there was a loud boom and the wereturkey fell down the rest of the way. 
+It let out an ear-piercing cry and descended the steps. I  searched for something to defend myself with and grabbed a small knife with the blade half broken. I was so fucked. There wasn’t any escape or way for me to defend myself save a small knife with the blade half bro. Then there was a loud boom and the wereturkey fell down the rest of the way.
 
 &#x200B;
 
@@ -468,7 +468,7 @@ The creature was getting up.
 
 &#x200B;
 
-He did and I sprinted up the stairs. It was clear guns would only put it down for so long. 
+He did and I sprinted up the stairs. It was clear guns would only put it down for so long.
 
 &#x200B;
 
@@ -512,7 +512,7 @@ This was one hell of a way to spend Thanksgiving. Some other members of my famil
 
 &#x200B;
 
-“I knew there wasn’t something right about them,” Selama said, shaking her head.
+“I knew there wasn’t something right about them,” Selma said, shaking her head.
 
 &#x200B;
 
