@@ -1,6 +1,6 @@
 I first met Malcolm about a year ago. It was just after 10 P.M. when the scuffed bell above the door clanged. My diner, Grandma’s Kitchen, had just closed. I could remember flipping the OPEN sign to CLOSED, but it was unusual for me to forget to lock the door. It was out on the edge of town without much going on, so I was never too concerned someone was going to walk in and rob the place.
 
-I had been in the kitchen washing dishes when I heard the bell. A scraping noise echoed through the empty diner. Someone pulled one of the stools away from the old Formica counter. 
+I had been in the kitchen washing dishes when I heard the bell. A scraping noise echoed through the empty diner. Someone pulled one of the stools away from the old Formica counter.
 
 I sighed deeply.
 
@@ -46,7 +46,7 @@ By the time I walked through the door, he had finished all of the food. It could
 
 Bewildered, I popped the cap off of the beer and sat it in front of him.
 
-Wordlessly, he picked it up and swallowed the whole thing without taking his lips from the bottle. 
+Wordlessly, he picked it up and swallowed the whole thing without taking his lips from the bottle.
 
 “Must not have tasted too good, eh?” I teased the man.
 
@@ -120,7 +120,7 @@ The yellow orbs remained, locked onto me. A lump piled in my throat. My eyes dar
 
 “Get out of here!” I yelled again to no effect. “I said go on!”
 
-I chucked one of the rocks and to my surprise, it landed with a pleasant thud a few feet in front of the set of glowing eyes. It still didn’t blink. Just gazed down at the rock I had thrown. My gut told me to get my ass back inside, but something held me in place. 
+I chucked one of the rocks and to my surprise, it landed with a pleasant thud a few feet in front of the set of glowing eyes. It still didn’t blink. Just gazed down at the rock I had thrown. My gut told me to get my ass back inside, but something held me in place.
 
 I felt like I couldn’t move. Somewhere in the back of my brain, a little voice started talking to me.
 
@@ -158,10 +158,12 @@ Was that all it had been? A few starving mutts in the woods had stopped to watch
 
 I burst into laughter.
 
-There I sat. A grown man who hid in his diner for God knows how long in piss-filled pants because a few hungry dogs had stopped to watch him. 
+There I sat. A grown man who hid in his diner for God knows how long in piss-filled pants because a few hungry dogs had stopped to watch him.
 
 The whimpering and the howls? Two of them must have gotten in a fight. My mind had probably made up the rest of the noises. I’d never felt so damn stupid.
 
 I pulled the truck around the side of the diner and onto the street toward my house. What a night. I tossed a final glance back toward the streetlight in front of the diner. Something was there.
 
 It looked like Malcolm walking back into the [woods.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
+
+[\[FINAL\]](https://www.reddit.com/r/nosleep/comments/yvyljy/i_run_a_diner_in_a_small_town_one_of_my_regulars/)
