@@ -209,3 +209,5 @@
   He cut his words short when a door opened, shedding light on the otherwise darkened room. It was almost blinding at first, even though it looked as though it came from the top of a staircase, some ten or fifteen feet away. When heavy feet began to stomp down to the level we were on, I felt my stomach lurch from fear of whatever they had in store for us. 
 
   I just stared up at the glow silhouetting the group who strolled down as casually as if they were fetching a bottle from the wine cellar. My heart was jackhammering with the hope of finding a way out of this seeming incredibly more unlikely by the second. One thing was certain, though: whatever this batshit crazy family had planned for us, we were about to find out.
+
+[Final](https://www.reddit.com/r/nosleep/comments/ywapmz/the_night_my_adhd_almost_got_me_killed_final/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
