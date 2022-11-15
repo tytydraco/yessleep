@@ -58,4 +58,4 @@ To add to the mystery, the road that led into town was actually now, a dead end.
 
 I don't care if anybody believes me or not because I know what I experienced was real.
 
-Anyway here's a warning to you... If you're ever driving  down Route 50 and happen stumble upon the town of Pottsville, avoid it at all cost or, you might not be able to escape so easily like me.
+Anyway here's a warning to you... If you're ever driving down Route 50 and happen stumble upon the town of Pottsville, avoid it at all cost or, you might not be able to escape so easily like me.
