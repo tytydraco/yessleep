@@ -4,7 +4,7 @@ I shrugged. “Not much. I spent most of my time with the Forest Service out wes
 
 He grunted, wrestling with the steering wheel of the four-wheel-drive pickup as it bucked over the unused trail, heavy underbrush and thick trees passing by dangerously close on either side. The road was narrow, barely wide enough to accommodate the time-worn truck, and he was driving it a bit faster than I was comfortable with.
 
-“I’m surprised they assign rangers to it, though. It seems pretty remote,” I said. We’d been driving for a couple of hours on this trail already and the lonely stretch of paved road we’d left earlier was little more than a distant memory at this point. 
+“I’m surprised they assign rangers to it, though. It seems pretty remote,” I said. We’d been driving for a couple of hours on this trail already and the lonely stretch of paved road we’d left earlier was little more than a distant memory at this point.
 
 “Used to be a fairly popular long-hike trail that ran near it and the department wanted to make sure that we had a presence out here in case anyone got in trouble,” he said, never taking his eyes off the path ahead. “It was a pretty technical trail, and it was pretty common for city folk to underestimate the difficulty. Or the risk.”
 
@@ -16,11 +16,11 @@ Gibson shook his head and spat out the open window. “Nah, too many people were
 
 He spared a quick glance at me and said, “You know the saying, ‘*if there’s a station, there’s a ranger’.* They’ll probably get around to decommissioning it at some point, but for now…”
 
-At that moment, we rounded a bend in the trail and the station came into view. It was built to look like a rustic log cabin and was planted in the middle of a depressed area of the surrounding forest, the gentle ridges surrounding the area creating a natural bowl. The trees here were dense and somehow foreboding, and the unkempt limbs, heavy with gray tendrils of Spanish moss, reached over the cabin and crowded the edges of the modest clearing. 
+At that moment, we rounded a bend in the trail and the station came into view. It was built to look like a rustic log cabin and was planted in the middle of a depressed area of the surrounding forest, the gentle ridges surrounding the area creating a natural bowl. The trees here were dense and somehow foreboding, and the unkempt limbs, heavy with gray tendrils of Spanish moss, reached over the cabin and crowded the edges of the modest clearing.
 
 The entire area was a lush green, heavily shadowed by the canopy above, and the air was thick with the scents of the deep bush.
 
-He used the open clearing to turn the truck around and stopped it in front of the wooden door emblazoned with the forestry service logo. Throwing it into park, he turned in his seat and looked at me expectantly. 
+He used the open clearing to turn the truck around and stopped it in front of the wooden door emblazoned with the forestry service logo. Throwing it into park, he turned in his seat and looked at me expectantly.
 
 “Not staying a while?” I asked, opening my door and grabbing my overflowing duffel bag from the bed.
 
@@ -48,9 +48,9 @@ The air was cool and still as I stepped onto the wooden porch that spanned the f
 
 The interior of the station was spartan and neat, divided into a small office space for visitors and a slightly larger living space for the ranger. I walked around the low wooden counter and through the open doorway that led to my new accommodations for the next month.
 
-It was relatively neat and organized; the ranger who’d been here before me looked to have been fairly settled into his posting. I wondered briefly at why a forest ranger, accustomed to spending his time alone in the forests, would decide one day to just pick up and leave. 
+It was relatively neat and organized; the ranger who’d been here before me looked to have been fairly settled into his posting. I wondered briefly at why a forest ranger, accustomed to spending his time alone in the forests, would decide one day to just pick up and leave.
 
-The trail back to the main road wasn’t a difficult one to hike, but it was a long one. Of course, Ed Marsh had probably called a friend to come out and pick him up, but it still didn’t make any sense. 
+The trail back to the main road wasn’t a difficult one to hike, but it was a long one. Of course, Ed Marsh had probably called a friend to come out and pick him up, but it still didn’t make any sense.
 
 Regardless, it was a mystery for another day. The sun was beginning to set, and I still needed to get settled in and set for the night.
 
@@ -58,7 +58,7 @@ Regardless, it was a mystery for another day. The sun was beginning to set, and 
 
 By the time I had unpacked my stuff and started a fire in the cobblestone fireplace, night had fallen. The silence of the woodlands around me was a familiar comfort, different from my previous posts in the pacific northwest, yet somehow the same. The air began to chill with the coming of night, and I made my way around the cabin, locking the front door to prevent any curious critters from finding their way inside during the night. I left the windows open a bit for the airflow and settled comfortably in a cushioned chair in front of the crackling flames with a bit of the Johnnie Walker I’d carefully packed, just enjoying the moment.
 
-Lost in my thoughts, my eyes wandered aimlessly around the room, taking in my new surroundings. 
+Lost in my thoughts, my eyes wandered aimlessly around the room, taking in my new surroundings.
 
 I stopped when they settled upon some crumpled pieces of paper that had been discarded and were hiding in the corner of the room near the bed. With a grunt of interest, I stood from the chair and took another swallow of the scotch, heading over and snatching the papers up from the floor.
 
@@ -84,11 +84,11 @@ The last page was the strangest of the bunch.
 
 *I think I saw it today, out by the ravine, but I think it saw me too. I don’t think it likes it when you notice it, because it sure took notice of me pretty damned quick after I spotted it. Need to be more careful.*
 
-I reread the pages a few more times, pouring myself a bit more of the scotch and reclining back in the chair as I pondered what I had read. 
+I reread the pages a few more times, pouring myself a bit more of the scotch and reclining back in the chair as I pondered what I had read.
 
-I must have drifted off at some point, because I awoke to the sound of rain and thunder. The fire had died down to embers, and a chill had replaced the comfortable warmth it had provided. 
+I must have drifted off at some point, because I awoke to the sound of rain and thunder. The fire had died down to embers, and a chill had replaced the comfortable warmth it had provided.
 
-I stood from my chair and walked over to the window, looking out into the dark at the rain. Even with the heavy cloud cover, I could still make out the dim shapes of the trees beyond the clearing in front of the cabin. A gust of wind rose and blew the misting rain into my face through the screen. Not wanting to have to spend the next morning trying to dry everything out, I began walking around all the windows and closing them, lamenting the loss of the fresh air they permitted into the cabin’s interior. 
+I stood from my chair and walked over to the window, looking out into the dark at the rain. Even with the heavy cloud cover, I could still make out the dim shapes of the trees beyond the clearing in front of the cabin. A gust of wind rose and blew the misting rain into my face through the screen. Not wanting to have to spend the next morning trying to dry everything out, I began walking around all the windows and closing them, lamenting the loss of the fresh air they permitted into the cabin’s interior.
 
 I moved to the last window, the one nearest the main entrance to the ranger station and froze. My brow creased and I squinted into the rainy darkness. I was sure I had seen a shape moving along the tree line but lost it when the storm intensified briefly and obscured my view.
 
@@ -96,7 +96,7 @@ Staring into the darkness for a long minute, I reluctantly backed away and close
 
 \*
 
-By the time I rolled out of bed the next morning, all remnants of the previous night’s unease had vanished, and my mood was heightened as I faced my first morning at my new post. After a quick breakfast and a change into a fresh uniform, I threw open all the windows before stepping out of the cabin and into the damp early morning air. 
+By the time I rolled out of bed the next morning, all remnants of the previous night’s unease had vanished, and my mood was heightened as I faced my first morning at my new post. After a quick breakfast and a change into a fresh uniform, I threw open all the windows before stepping out of the cabin and into the damp early morning air.
 
 I dug my camera out of its case and threw its strap over my head as I set out. The first thing I wanted to do was to take a look around the area and get a sense of my surroundings. Gibson had told me there was an old rope bridge that led to the decommissioned trail nearby, and after a quick look at the area map in the ranger’s office, I found that it was only a hundred yards or so north of the station. I figured that would be as good a place as any to start and would probably provide some nice opportunities to get some dramatic shots.
 
@@ -106,7 +106,7 @@ With a spring in my step, I followed the narrow trail through the woods, embraci
 
 Before long, I emerged from the trail and found myself standing at the edge of a jagged cliff, the grassy ground abruptly giving way to a rocky vertical face that tumbled down nearly a hundred feet to the floor of the ravine below. The base of the gulch was filled with the angry flow of a narrow river, though I suspected that it was likely the storm from the night before that made it so. It was probable that it was ordinarily little more than a meandering creek when the weather was dry.
 
-Spanning the ravine was an old and weather-worn rope suspension bridge with gap-toothed wooden planks beckoning for travelers to cross. They didn’t look too trustworthy, so I decided to keep my feet on solid ground for today. Perhaps I’d be a little braver another day and try my luck with the bridge. 
+Spanning the ravine was an old and weather-worn rope suspension bridge with gap-toothed wooden planks beckoning for travelers to cross. They didn’t look too trustworthy, so I decided to keep my feet on solid ground for today. Perhaps I’d be a little braver another day and try my luck with the bridge.
 
 Instead, I raised my camera and removed the lens cap, bringing it up to my eye and taking several pictures of the scene, including one point-of-view shot looking across the bridge itself, as if the viewer were ready to step onto the span. I was pleased with that one; I felt it added a little drama to the rest. After a while, I replaced the lens cap and continued my exploration of the area surrounding the ranger station, eventually finding myself back at the cabin in the waning afternoon light. All in all, it had been a peaceful and pleasant day, and I’d wrap it with some light chores around the station before calling it a day.
 
@@ -132,7 +132,7 @@ Still, a small glass of Johnnie Walker was always welcome, so I started a fire a
 
 During the light cleaning I had done that afternoon, I’d found another couple of crumpled pages behind the waste basket and had set them aside on the end-table to review later. Now, as I sat again before the crackling flames, I examined the two additional pages and felt the chill of dread climb from the base of my spine as I read the increasingly chaotic script.
 
-*Something was outside the cabin again last night. It wasn’t just hiding in the trees anymore. I feel like it’s seen me, like it’s taken notice of me now. I know how crazy that sounds, but it’s the only way I can explain it.* 
+*Something was outside the cabin again last night. It wasn’t just hiding in the trees anymore. I feel like it’s seen me, like it’s taken notice of me now. I know how crazy that sounds, but it’s the only way I can explain it.*
 
 *Elliot Barnes will be out here in two days to resupply me, and I’ll leave with him when he gets here. They can find someone else to sit out here in this deserted ranger station! There’s no need for any of us to be here, and I don’t think we belong here.*
 
@@ -154,7 +154,7 @@ I was starting to agree with my predecessor; a rifle would have gone a long way 
 
 The rain came again that night, with less fury, but greater volume. I tossed and turned in my sleep, never finding a comfortable position.
 
-In fact, it was less the mattress and more my imagination keeping sleep at bay. I couldn’t coax my mind to quiet and calm itself. In the darkness, it insisted on constructing sinister images to keep me awake. When I opened my eyes, it continued, making the shapes of the furniture around me into alien and menacing forms. 
+In fact, it was less the mattress and more my imagination keeping sleep at bay. I couldn’t coax my mind to quiet and calm itself. In the darkness, it insisted on constructing sinister images to keep me awake. When I opened my eyes, it continued, making the shapes of the furniture around me into alien and menacing forms.
 
 I turned over on my side with frustration, forcing my eyes closed and focusing on the hissing sound of the rain on the metal roof above me. Normally, it would provide the perfect environment to lull me into a deep and restful sleep, but now it only served to mask the sounds of anything that might be sneaking around outside of the cabin.
 
@@ -168,11 +168,11 @@ Involuntarily, I abruptly sat upright in my bed in shock, and without changing i
 
 In an instant, it had faded away from the window, leaving only blackness in its wake.
 
-Was it gone? Was it moving to another window? 
+Was it gone? Was it moving to another window?
 
 Was it waiting for me?
 
-It wasn’t an animal – that much I could tell. If it was a man, I needed to understand what he wanted. 
+It wasn’t an animal – that much I could tell. If it was a man, I needed to understand what he wanted.
 
 If it wasn’t a man, I needed to understand what it was. I couldn’t stay here for another month with this thing haunting me every day and night, always wondering if and when it would come for me.
 
@@ -190,8 +190,10 @@ Wish me luck…
 
 The preceding pages were discovered in a journal left by the forest ranger I was sent here to relieve. I can’t find any trace of him other than his camera and some other personal effects, and the Ranger that dropped me off said that he just went missing one day. From what he was telling me, that’s not exactly an unheard-of occurrence at this station. Some people just can’t handle the isolation.
 
-Reading his journal, it sounds like he was more than a little unhinged and experiencing hallucinations. I’ve long thought the Forestry service needed to institute psychological evaluations before they just sent people out into the wilderness in complete solitude. 
+Reading his journal, it sounds like he was more than a little unhinged and experiencing hallucinations. I’ve long thought the Forestry service needed to institute psychological evaluations before they just sent people out into the wilderness in complete solitude.
 
 One thing that I can agree with my predecessor on, however, is that I need to keep the door locked at night. It sounded like something pretty big was moving around outside in the rain last night. I’m going to set some trail cameras tomorrow, I think.
 
 But if I hear it outside again tonight, I’ll need to check it out.
+
+ [\>-<](https://www.youtube.com/@dark_night_tales) 
