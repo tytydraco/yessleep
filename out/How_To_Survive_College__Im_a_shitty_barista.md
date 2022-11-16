@@ -4,9 +4,9 @@ Yes I know it’s ‘opossum’.  I even used ‘opossum’ last time because I 
 
 Also because I’m sure I’ll hear about it in the comments: I have not yet talked to Grayson.  No I’m not finding excuses not to because I’m scared of what he’ll tell me.  Nope.  Not me.  I’d never do something like that.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
-Anyway!  My job.  I’m no stranger to working, obviously, as I spent all of my summers through highschool working on the campground.  That was much harder work than making coffee and bagel sandwiches, too.  At the campground store I was lugging around boxes of watermelons.  Here, the heaviest thing I have to lift are the muffins that get dropped off in the morning from a local bakery.  For the first week I was there, I thought this was going to be an easy job.  
+Anyway!  My job.  I’m no stranger to working, obviously, as I spent all of my summers through highschool working on the campground.  That was much harder work than making coffee and bagel sandwiches, too.  At the campground store I was lugging around boxes of watermelons.  Here, the heaviest thing I have to lift are the muffins that get dropped off in the morning from a local bakery.  For the first week I was there, I thought this was going to be an easy job.
 
 I was wrong.
 
@@ -48,7 +48,7 @@ She raised her gaze to stare at me for a half second.  Even without her personal
 
 “Well, take a broom and go chase it off,” she said.
 
-“I, I, um,” I squeaked. 
+“I, I, um,” I squeaked.
 
 She dropped her phone on her desk.  Just opened her hands and dropped it.  I winced.
 
@@ -104,7 +104,7 @@ I stepped down off the single cement step, clutching the broom tightly with both
 
 “Shoo!” I yelled, swinging the broom at the nearest.
 
-It retreated.  Another one, the female, skittered sideways and I swung the broom at her as well.  
+It retreated.  Another one, the female, skittered sideways and I swung the broom at her as well.
 
 Except she didn’t run.  She reached up one hand and grabbed hold of the broom in mid-swing.
 
@@ -175,6 +175,8 @@ I knew what was holding Cassie here.
 I didn’t think Cassie was going to answer at first.  She kept staring up at the sky.  When she spoke, I heard helplessness in her voice.  She was gone and forgotten and there was nothing Cassie could do about that.
 
 Sarah.  Her name was Sarah.  Then Cassie went inside and we haven’t talked about this since. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/ywjw20/how_to_survive_college_i_have_stalkers/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 

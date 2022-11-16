@@ -34,8 +34,4 @@ I felt something move. I picked up the arm. It was horrible to grab. It was horr
 
 I moved to its head and started to squish the nose. I could hear it making a noise. I moved to its face and I tried to squish its eyes. I could feel a little bit of guilt, but I didn't care. I could feel its forehead. I could feel its nose. I could feel its little face. I could hear the same sound, but it was echoing. I could hear the sound echoing, but I couldn't tell if my ears were ringing or I could hear it from the outside. I moved to its arms, and tried to squish it, but it was still hard. I didn't care. I didn't care about it. I wanted to help myself. I tried to move its arms again, but it was hard. It was still hard. I tried to move its head to turn it around, but it was hard, and I didn't care. I just wanted to. I wanted to get closer to it, and it was hard to turn. I wanted to get closer to it.
 
-It fell. I heard it fall. It was silent. It was dark again. I could feel my surroundings again. It was itchy. It was hot. It felt like it was on fire. I had no energy. It was fuzzy, like when I was awake. I tried to open my eyes, but I couldn't feel my lids move. I was breathing. I was breathing, but it was so hot. I felt like I was breathing. I could feel the air surrounding me. It was hot. It was so hot. But i was finally free from the mud
-
-&#x200B;
-
-The end.
+It fell. I heard it fall. It was silent. It was dark again. I could feel my surroundings again. It was itchy. It was hot. It felt like it was on fire. I had no energy. It was fuzzy, like when I was awake. I tried to open my eyes, but I couldn't feel my lids move. I was breathing. I was breathing, but it was so hot. I felt like I was breathing. I could feel the air surrounding me. It was hot. It was so hot. But i was finally free from the mud, i could finally breathe again and my life was now free.
