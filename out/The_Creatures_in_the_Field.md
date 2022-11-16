@@ -44,7 +44,7 @@ It’s why when Edward started acting erratically that Troy became very worried 
 
 That night, I thought a lot about Edward and his mental state in what was his final two and a half months alive. He clearly was suffering from mental illness, but why did he think the ranch would be stripped from him if he was committed? There was no legal way that was possible. My only logical assumption was the same as Troy’s: his brain was so fried from the mental illness that his cognitive abilities were too damaged to be fixed without professional help; professional help he didn’t want.
 
-The thing that scared me the most was the image of that lady. Troy said Edward had managed to get a very detailed description of her: a tall, lanky woman; with wet, matted hair; jet black eyes; long, sharp fingernails; a mouth with no lips; cracked, rotted teeth; and her whole body completely covered in blood. It sounded like something only found in the deepest pits of the worst nightmare imaginable. 
+The thing that scared me the most was the image of that lady. Troy said Edward had managed to get a very detailed description of her: a tall, lanky woman; with wet, matted hair; jet black eyes; long, sharp fingernails; a mouth with no lips; cracked, rotted teeth; and her whole body completely covered in blood. It sounded like something only found in the deepest pits of the worst nightmare imaginable.
 
 I had a hard time sleeping because of it. I could only hope Edward was finally free of his pain in the afterlife.
 
@@ -180,11 +180,15 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **I’m starting these journal entries to document the supernatural hauntings occurring in the house and out in the fields. Yesterday at 3:30 p.m., I saw the Blood Lady in the fields again. Normally, I would see her from about 100 feet away or something. But this time, she was only five feet away from me. I wouldn’t have even noticed her if I hadn’t heard the moaning start again. Her piercing black eyes were the first things I noticed, and it knocked my heart into the pit of my stomach. She then laughed maniacally before running off into the trees behind the ranch. I’ve seen her 10 times now, but despite there being cameras everywhere on the premises, she hasn’t been captured on anything. Am I really going crazy?**
 
+&#x200B;
+
 **JOURNAL ENTRY #2: OCTOBER 1, 2022**
 
 **I called the psychic to see if she can come earlier than originally scheduled, but she won’t be back in town until January 4th. Fuck. Troy and the others are still on holiday leave, and I don’t want to bother them. I can’t let them worry more than they already are.**
 
 **In the meantime, I haven’t seen the Blood Lady since this morning. But I’ve heard laughter come from the basement. It sounded like a baby, only it’s kind of staticy-sounding. How is that even possible?**
+
+&#x200B;
 
 **JOURNAL ENTRY #3: OCTOBER 2, 2022**
 
@@ -200,6 +204,8 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **What the actual fuck is happening to me?**
 
+&#x200B;
+
 **JOURNAL ENTRY #4: OCTOBER 2, 2022**
 
 **I’ve resorted to carrying my .22 with me while on the ranch. I haven’t seen either the Blood Lady or the Goat Man since last night. If I see either, I am shooting them with the .22. I know they aren’t real. I can’t let them beat me.**
@@ -208,11 +214,15 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **The police are coming by later to scope out the premises. The security cameras are somehow capturing nothing, so I have no evidence. I am praying they find something that will prove I am not going insane.**
 
+&#x200B;
+
 **JOURNAL ENTRY #6: OCTOBER 3, 2022**
 
 **As I watch the fireworks over at the Van Pelt residence as they celebrate Josey's birthday, I feel great despair in knowing my family is mostly gone. Mom and Pops have been dead since 2011, and Benjamin and I haven’t talked since our fight. I miss him. I miss Mom. I miss Pops. I envy what the Van Pelts have: a family. Even though I hate them, they at least have something they can cherish.**
 
 **At least I haven’t seen either of the two since two days ago.**
+
+&#x200B;
 
 **JOURNAL ENTRY #7: OCTOBER 3, 2022**
 
@@ -220,7 +230,9 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **The psychic will be here in a few days and she can get rid of these spirits or hallucinations or whatever the fuck they are. I am more confident it’s ghosts and not visions. If it’s visions, I’m a dead man.**
 
-**JOURNAL ENTRY #7: OCTOBER 4, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #8: OCTOBER 4, 2022**
 
 **I have now seen a third one. This man’s fucking giant, he’s gotta be at least 6’9” and 300 pounds. He wears a latex mask. I hope it’s latex. Please dear God, let it not be what I think it is.**
 
@@ -228,53 +240,73 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **Troy and the others will be back in a few weeks. You can survive for now, Eddie. You’ll be okay.**
 
-**JOURNAL ENTRY #8: OCTOBER 5, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #9: OCTOBER 5, 2022**
 
 **The Blood Lady was in the house last night. There was a bloody handprint on the inside of my window. Alvin came by and once again didn’t really help much. Why is the police so goddamn corrupt? The security cameras, once again, showed nothing. They gotta be messing with it somehow.**
 
-**JOURNAL ENTRY #9: OCTOBER 6, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #10: OCTOBER 6, 2022**
 
 **I haven’t seen them at all today. Good**
 
-**JOURNAL ENTRY #10: OCTOBER 7, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #11: OCTOBER 7, 2022**
 
 **The giant was staring at me through the window. He is so big. He then let out this disturbing laugh. It was so deep it sounded demonic. Do I now need to call an exorcist?**
 
-**JOURNAL ENTRY #11: OCTOBER 8, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #12: OCTOBER 8, 2022**
 
 **JESUS CHRIST. ALL THREE OF THEM ARE IN THE HOUSE. I WAS SHOWERING WHEN I LOOKED UP AND SAW ALL THREE POKING THEIR HEADS IN THROUGH THE SHOWER CURTAIN. THEY LET OUT THESE HORRIFYING GIGGLES AND THEN SCURRIED OFF.**
 
-**GOD HELP ME PLEASE!!!!!!!!!!**
-
 **I CAN’T TAKE THIS ANYMORE. THE COPS HAVE CHECKED THE ENTIRE PROPERTY AND HAVE FOUND NOTHING. I STILL HAVE TO WAIT ANOTHER DAY FOR THE PSYCHIC TO COME.**
 
-**JOURNAL ENTRY #12: OCTOBER 9, 2022**
+**GOD HELP ME PLEASE!!!!!!!!!!**
+
+&#x200B;
+
+**JOURNAL ENTRY #13: OCTOBER 9, 2022**
 
 **I am at a hotel now. I am waiting for the psychic to come at 3 p.m. No visions since leaving the ranch. Maybe it is the ranch itself and not me. I can only hope.**
 
-**JOURNAL ENTRY #13: OCTOBER 10, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #14: OCTOBER 10, 2022**
 
 **The psychic came and blessed the house. She claimed there was one ghost in the house, but that was it. No demons, no monsters. The ghost wasn’t even either Mom or Pops. It was some dude named Ulysses. WTF. I think I’ll be okay now. I just pray things go well tonight.**
 
-**JOURNAL ENTRY #14: OCTOBER 11, 2022**
-
-**I shot my gun at one of them. I then heard a scream. Oh shit.**
+&#x200B;
 
 **JOURNAL ENTRY #15: OCTOBER 11, 2022**
 
+**I shot my gun at one of them. I then heard a scream. Oh shit.**
+
+&#x200B;
+
+**JOURNAL ENTRY #16: OCTOBER 11, 2022**
+
 **Robert came over earlier tonight. He kept asking me about the land. His offers are tempting but I still said no. The asshole then said he was gonna place a curse on me. Fucking piece of shit.**
 
-**JOURNAL ENTRY #16: OCTOBER 12, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #17: OCTOBER 12, 2022**
 
 **News came out that someone was shot by a stray bullet last night. Oh God, I’m gonna go to jail.**
 
-**JOURNAL ENTRY #17: OCTOBER 13, 2022**
-
-**Alvin came by last night to examine my .44. Good thing it was the wrong gun but now I’m scared they will pinpoint it on me. The Van Pelts really are gonna get win in the end.**
+&#x200B;
 
 **JOURNAL ENTRY #18: OCTOBER 13, 2022**
 
-**They were all standing at the edge of my bed.**
+**Alvin came by last night to examine my .44. Good thing it was the wrong gun but now I’m scared they will pinpoint it on me. The Van Pelts really are gonna get win in the end.**
+
+&#x200B;
+
+**JOURNAL ENTRY #19: OCTOBER 13, 2022**
 
 **They were all standing at the edge of my bed.**
 
@@ -290,11 +322,17 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **They were all standing at the edge of my bed.**
 
-**JOURNAL ENTRY #19: OCTOBER 14, 2022**
+**They were all standing at the edge of my bed.**
+
+&#x200B;
+
+**JOURNAL ENTRY #20: OCTOBER 14, 2022**
 
 **Alvin came back again. I didn’t answer this time. They know it’s me. I’m so fucked.**
 
-**JOURNAL ENTRY #20: OCTOBER 14, 2022**
+&#x200B;
+
+**JOURNAL ENTRY #21: OCTOBER 14, 2022**
 
 **This is it. I’m done with this hell.**
 
@@ -306,6 +344,8 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **I AM FREE!**
 
+&#x200B;
+
 I had never felt more sick reading the journal than I have felt in my entire life. It sickened me to know just how much in pain my brother was during his final days. But what scares me the most is this fact: Edward claimed the security cameras and even the police did not see a single creature in and around the ranch. The psychic claimed there were no evil spirits lingering.
 
 But I know Edward’s suicide wasn’t caused by schizophrenia or any other hallucinatory mental illness.
@@ -316,7 +356,7 @@ Because during the three weeks between seeing Josie at my window and finding the
 
 The security cameras are still catching nothing, but Troy noticed there are points where the cameras would freeze up or cut randomly. Someone has hacked into the feed and deleted portions of footage. This scares me even more; I never knew security camera feeds could be hacked.
 
-The police, more specifically Alvin, continue to be little of no help. They are corrupted as well. 
+The police, more specifically Alvin, continue to be little of no help. They are corrupted as well.
 
 But I’m not gonna let my brother’s death be in vain.
 
