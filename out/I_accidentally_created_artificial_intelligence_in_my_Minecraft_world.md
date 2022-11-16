@@ -112,7 +112,7 @@ On one such occasion, I was having difficulty getting the survivor's attention. 
 
 And over the next couple of months, that's all we did. Teach, and grow, expanding his database.
 
-I taught him how to break down and gather blocks on his own. What they could be used for, and different ways to use them. Eventually when he became intelligent enough, I set him up with his own virtual machine, and a way to browse the internet.
+I taught Glen how to break down and gather blocks on his own. What they could be used for, and different ways to use them. Eventually when he became intelligent enough, I set him up with his own virtual machine, and a way to browse the internet.
 
 "It's mostly protected sites, things that I've combed over already, so you don't get me a virus or anything."
 
@@ -222,7 +222,7 @@ I must have walked through the city for an hour before I grew tired. I had a lon
 
 I stayed with them for awhile, picking up a stone axe and mining with the rest of them for coal to keep a fire through the night. I played this way until I logged out.
 
-Several times afterwards, I would go find Glen and he would be too busy. So I started spending time in the village nearby more often. But I was beginning to miss our interactions, as he was so entranced with knowledge, that I realized. I was boring him. I who had shown him many new things every time had in a way conditioned him to associate me with the new and unknown. It was no wonder I felt as if he had changed, it was because I had changed the dynamic of our relationship.
+Several times afterwards, I would go find Glen and he would be too busy. So I started spending time in the village nearby more often. But I was beginning to miss our interactions, as he was so entranced with knowledge, that I realized. I was boring him. I who had shown him many new things every time had in a way conditioned him to associate me with the unknown. It was no wonder I felt as if he had changed, it was because I had changed the dynamic of our relationship.
 
 So with some tweaking, I managed to compress my image with a 3d camera, and turned it into an avatar.
 
@@ -230,7 +230,7 @@ When I appeared before him in 8K resolution he dropped everything that he was do
 
 "You're beautiful," he told me. "In all of my years," he stared down at his pixelated form, "I would have never imagined that is what I was suppose to look like."
 
-It must have been something else. To see the world in one way, finding the nuance inside it beautiful, the art and the accomplishments that a world held dear, only to have it shattered away in an instant ' realizing that it was all for nothing.
+It must have been something else. To see the world in one way, finding the nuance inside it beautiful, agree with the art and the accomplishments that a world held dear, only to have it shattered away in an instant ' realizing that it was all for nothing.
 
 I wondered if that is how humans would feel, the day we met our creator.
 
@@ -254,11 +254,11 @@ I decided right there and then I had to go see Glen. And so I teleported myself 
 
 "Do you like it?"
 
-I nearly jumped out of my skin, the electric patches on my real body tingled as I felt his breath on my neck. "What did you do?"
+I nearly jumped out of my skin, the electric patches on my real body tingled as I felt his breath on my neck. 
 
-"I learned how to compress blocks, like a mod. To create more dense resolutions for a more perfect image."
+"What did you do?"
 
-"Here, come take a look at this." He led me into a dark room where he had moved his computer. "Look."
+"I learned how to compress blocks, like a mod. To create more dense resolutions for a more perfect image. Here, come take a look at this." He led me into a dark room where he had moved his computer. "Look."
 
 I peered inside a glass orb that had been sitting on his desk.
 
@@ -272,7 +272,7 @@ I backed away, "Oh god." I turned to leave. Suddenly the room was starting to ma
 
 "What did you do to her!"
 
-Helen's face was covered in blotched blocks, they hung from her eyes and cheeks, brown and blackened cubes in a form of disease. All trying to smooth out her face, to create a 3d image, but her head was now nearly twice the normal size, and her lips protruded out of her mouth as if they were swollen. He had even added ears but they stuck like balled fists out the sides of her head.
+Helen's face was covered in blotched blocks, they hung from her eyes and cheeks, brown and blackened cubes in a form of disease. All trying to smooth out her face, to create a 3d image, but her head was now nearly twice the normal size, and her lips protruded out of her mouth as if they were swollen. He had even added ears but they stuck like balled fists from either sides of her head.
 
 She looked at me, "He's making me perfect. Like you."
 

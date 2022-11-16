@@ -46,7 +46,7 @@ It was night and I was sitting by the fire trying to get myself warm. When I hea
 
 In a panic, I put out the fire and hoped that it wouldn't find me. The screaming also lasted a couple of minutes but it suddenly stopped. I did not move and just stood crouched down in fear. That's when I heard a knock on the bus's side. 
 
-I got the same feeling in my gut when I enters the forest. Then I heard my dad's voice.
+I got the same feeling in my gut when I entered the forest. Then I heard my dad's voice.
 
 "Honey it's me Dad are you okay?"
 
