@@ -176,7 +176,7 @@
 
   "Well, I'm certain you're making him feel…" 
 
-  While they bantered back and forth, I just gazed around the large room, attempting to not notice the especially judgy eyes of the older couple. Seeing them as her folks, I was reminded that my dad would likely be getting pretty heated if I didn't show up soon. Hell, he was likely more worried about the car than me, to be honest. I'm not trying to sound like a dick or anything, but work comes first, and I was on the job at the time. 
+  While they bantered back and forth, I just gazed around the large room, attempting to not notice the especially judgy eyes of the older couple. Seeing them as her folks, I was reminded that my dad would probably be getting pretty heated if I didn't show up soon. Hell, he was likely more worried about the car than me, to be honest. I'm not trying to sound like a dick or anything, but work comes first, and I was on the job at the time. 
 
   We'd always been pretty close; my old man and me, but he was a working man through and through, and he expected the same of me. I just hoped that…wait. What did he just say? 
 
