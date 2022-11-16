@@ -82,7 +82,7 @@ I took the apple and stuck it into my inventory.
 
 The survivor gasped again. "Glen," he exclaimed. "Glen!" It ran back into the forest and collected another apple, thinking the first one had disappeared.
 
-I couldn't help but laugh, so I showed him that I could go to any object in the world and tuck it into my inventory. It must have looked like magic. When I loaded a few trees, I finally pulled out the 'Glen' and wrote, "We call this an apple."
+I couldn't help but laugh, so I showed him that I could go to any object in the world and tuck it into my inventory. It must have looked like magic. After loading away a few trees, I finally pulled out the 'Glen' and wrote, "We call this an apple."
 
 "Apple."
 
