@@ -1,3 +1,7 @@
+Part 1- You are here
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/yx9127/my_mother_handed_me_a_strange_set_of_rules_for/)
+
 We moved into our new house just a few weeks ago.
 
 Yesterday, though now it seems so long ago, my mother handed me a strange and tattered list. Her eyes were unfocused and her movements were shaky. I asked her what was wrong, but she shuffled away without a word.
@@ -8,7 +12,7 @@ Confused, I began to read.
 
 *Welcome to your new house! However this was delivered to you, it is vital that you follow each and every rule very carefully as long as you live here. Only you-- Whoever received the letter is bound to the rules and their consequences.* ***Please remember that any writing in strange penmanship is meant to deceive you***. Usually, these will be crossed out, but if they are not, please cross it out yourself. The rules are as follows:
 
-*1) If anything goes wrong in the events of rule 2 or you don't follow rule 3, you must* ~~^(go outside)~~~~\~\~\~\~.~~ *head to the kitchen and pour sea salt in a circle around you before covering your ears. Once the clock reads 5:00, you can clear away the salt and go back to what you were doing prior.*
+*1) If anything goes wrong in the events of rule 2 or you don't follow rule 3, you must* ~~^(go outside)~~~~\~\~\~\~\~\~\~\~.~~ *head to the kitchen and pour sea salt in a circle around you before covering your ears. Once the clock reads 5:00, you can clear away the salt and go back to what you were doing prior.*
 
 *2) If, at night, you hear a window creak open and you wake up, you must not show you're awake. Count to 30 in your head and try your best to go back to sleep. If something goes wrong, follow rule 1.* ~~^(listen to the voices. I would never lead you astray, right?)~~
 
