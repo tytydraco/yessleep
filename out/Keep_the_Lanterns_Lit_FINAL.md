@@ -1,6 +1,6 @@
 Hi everyone! I’ve finally caught a break and can tell you the rest of my story. It’s been hectic in town recently but we are recovering. I’ll explain more at the end so don’t let me hold you any longer. Let’s return back where I left off.
 
-If you haven't read the first part of my story you can find it at the link below.([https://www.reddit.com/r/nosleep/comments/yv5aas/keep\_the\_lanterns\_lit/](https://www.reddit.com/r/nosleep/comments/yv5aas/keep_the_lanterns_lit/))
+If you haven't read the first part of my story you can find it [here](https://www.reddit.com/r/nosleep/comments/yv5aas/keep_the_lanterns_lit/).
 
 The police from down the street began to release a barrage of hot metal as I saw two more come out from the trees behind Mr. Derricks's house. They stayed at the edge of the path of light coming from the van's headlights which gave them an eerie glow. The one in front seemed to buckle and fall to it’s knees while the other two swayed a little but kept walking. The whole time they were rocking their heads back and forth letting out some of the most inhumane laughter I’ve ever heard.
 
@@ -72,7 +72,7 @@ A long black arm reached around the driver's side and gripped my dad’s shoulde
 
 I slammed my feet into the front windshield with every ounce of strength I had, my legs buzzing with static. After a few hearty kicks it gave in and I started crawling out. The remaining glass was shredding my forearms as I crawled. Making it out, I saw my father whose shirt was slowly being painted red with blood. I took off the gym bag that contained my last hope for saving my dad. Three more Trobus were making their way over as I pressed the button.
 
-The most beautiful flash of light I had ever seen lit up the night. I never knew how happy hearing a body hit the ground could make me. When the white spots left my vision I made my way over to my dad who was lying on the ground gasping for air.
+The most beautiful flash of light I had ever seen lit up the night. I never knew how happy hearing a body hit the ground could make me. When the white spots left my vision I made my way to my dad who was lying on the ground gasping for air.
 
 “It’s okay Dad, you’re safe now,” as I said that he raised his now only good arm and pointed behind me.
 
@@ -82,7 +82,7 @@ They were already getting up. I pulled my dad over to the curb to sit up as he m
 
 I kept firing until I heard the click of an empty magazine. I pulled off my bag to get another magazine when an arm came crashing into my chest. I was airborne for what felt like an eternity until I came tumbling back into the earth below. I opened my eyes only for a moment to see my dad pull out his last grenade and fill the night with light one last time.
 
-I woke up in the hospital the next morning with my sister and mother by my side. They were cut and bruised pretty badly but I was so happy to see them alive. I learned that my father was worse for wear and was being prepped for surgery. As I said in the last part he has woken up from the surgery at this point. Would you believe he’s already trying to get back out there to help?
+I woke up in the hospital the next morning with my sister and mother by my side. They were cut and bruised pretty badly but I was so happy to see them alive. I learned that my father was worse for wear and was being prepped for surgery. As I said in the last part he has woken up from his surgery at this point. Would you believe he’s already trying to get back out there to help?
 
 After I passed out from being flung from the road onto someone's yard I learned that my father was the one who held the Trobus off long enough for help to arrive. He kept firing until he ran out of ammo and shielded my sister and mom with his body. He was hit like I was and had a punctured lung and broken ribs. His left shoulder was also ripped to shreds. My mother said they had all accepted their demise when one of the police vans rolled onto the street.
 
