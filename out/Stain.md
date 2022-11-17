@@ -1,4 +1,4 @@
-I need to quit my job, but I don’t think I’m allowed to. 
+I need to quit my job. But I don't think Ill make it out alive. 
 
 Over the summer, I injured my knee and it completely ended my volleyball career (I say career, but I was a benchwarmer at best). To save my mental state, I decided to move on from sports. This left me with a lot of free time on the weekends, and I’ve been meaning to redo my bedroom, so I needed some extra cash. I became a housekeeper for the neighbors. They were The Rich People™ in the neighborhood. Everyone knew them as a little… eccentric. The type of people to collect spoons and garden statues. But they were a seemingly sweet little old couple and they were offering to pay well. I took the job before anyone else could. 
 

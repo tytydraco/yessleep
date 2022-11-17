@@ -42,7 +42,7 @@ He sounded so out of breath. Now that I think, I hadn't seen his car in the driv
 
 'Look, I really need to speak to you on a matter. And I trust you, Dan. I know we've fallen out, but I want you to know that I have always looked up to you and respected you. I have always trusted you, and I know you're a good man.'
 
-I sighed. *All right, makes sense now. He wants to fucking borrow money.* 
+I sighed. *All right, makes sense now. He wants to fucking borrow money.*
 
 'You want money, Theo? Is that what you're after? The gold digger job - literally - does not suit you anymore? You couldn't get promoted?' I narrowed my eyes. 'Please don't tell me you're in debt... Did, uh, God, did anyone follow you here? *Is that why you told me to lock the door really well?*'
 
@@ -178,7 +178,7 @@ I was seriously disturbed.
 
 'Theo, I'll call the fucking police. I want to go upstairs to my kids.'
 
-He sighed. For fuck's sake, the more I looked at him, the more I felt the shadows in the window behind him were moving. 
+He sighed. For fuck's sake, the more I looked at him, the more I felt the shadows in the window behind him were moving.
 
 After what seemed like hours, I finally got him to leave. It was well over midnight. I was shaking when I opened the door. The street was so empty, and so dark. So still. This stillness I feared the most. He looked so fragile.
 
@@ -186,4 +186,4 @@ After what seemed like hours, I finally got him to leave. It was well over midni
 
 I closed the door, locked it, triple checked, then turned off the light and ran upstairs like a fucking toddler scared of the dark. You ever heard of little kids coming to their parents' bedroom to sleep, 'cause they're afraid? Well, I, a grown man, slept in my kids' room that night.
 
-What scared me the most was the calmness of it all. I certainly don't want to get involved, but I fear he may come back again.
+What scared me the most was the calmness of it all. I certainly don't want to get involved, but [I fear he may come back again.](https://www.reddit.com/r/nosleep/comments/yy23d5/i_have_a_friend_who_goes_grave_robbing_and_he/)
