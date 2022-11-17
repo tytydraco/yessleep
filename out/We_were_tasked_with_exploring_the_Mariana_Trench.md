@@ -1,8 +1,6 @@
- 
+ This was the thing that almost cost me my life.
 
-This was the thing that almost cost me my life.
-
-It was August  2022, maybe around the 14th, and my team was funded with the chance of being the first people on Earth to explore the Mariana Trench.
+It was January 2019, maybe around the 14th, and my team was funded with the chance of being the first people on Earth to explore the Mariana Trench.
 
 When I first heard the offer, I jumped at the mention of getting it, before we were even picked, we had already begun to pour thousands of dollars into research, and by no one’s surprise, we were picked.
 
@@ -12,17 +10,17 @@ With the increase of funds, by a couple of weeks, we had come up with the first 
 
 Though, we wanted to go deeper, to reach the bottom.
 
-I really wish we had just stopped there.
+I wish we had just stopped there.
 
 Finally, the time had come, and we made the first-ever submarine, that could handle the pressure and depth of the Mariana Trench.
 
-One person, who had been fond of this project and regularly brought it up, wanted to be the first to do it. So, we all voted and brought up safety concerns, but in the end, he was able to go.
+One person, who had been fond of this project and regularly brought it up, wanted to be the first to do it. So, we all voted and brought up safety concerns, but in the end, he could go.
 
 The next weekend, he had gone into the sea.
 
 He was never seen again, all that remained was the submarine, which we had been able to connect with and bring it back up to shore when we couldn't get in contact with him.
 
-The seats were soaked in blood, though, nobody was there like something had dragged him out.
+The seats were soaked in blood
 
 The family of the victim even tried to sue us, but we had shown them the documents he had signed, noting that if something happened, we would not be liable for any damage or death that occurred.
 
@@ -38,7 +36,7 @@ I got inside and dove inside the Trench, I had brought a Pistol just in case, we
 
 I had gotten to the bottom, I turned on all the lights, and I drove around in the sub.
 
-The sounds were, unsettling, like the roars of a lion, only longer, and higher pitched. 
+The sounds were unsettling, and terrifying,  like the roars of a lion, only longer, and higher pitched. 
 
 After a couple of hours, I was sick of it.
 
@@ -46,7 +44,7 @@ After a couple of hours, I was sick of it.
 
 The ocean heard me. I heard thumping around the sub, I looked out the front window, and two, beady eyes stared back at me.
 
-I paused and just looked. I was frozen, not by fear, but by amazement.
+I paused and just looked. I was frozen, it was like it was holding me there, I was frightened beyond belief.
 
 It got closer, and the light inside the shuttle showed me what it looked like, it was a long, thin body. Like humans, it also had a sharp smile, as wide as a knife. It had grey, tattered skin, and broken chains crossed around his arms. 
 
@@ -78,7 +76,7 @@ They didn't come back.
 
 No matter how hard we tried, more and more people from the scientific community wanted to see the Mariana Trench, and some came back, fortunately. Though, they acted like I did, just shocked.
 
-One person, however, said they saw something else than the skinny one. Let’s call it the controller. 
+However, one person said they saw something other than the skinny one. Let’s call it the controller. 
 
 They said they saw a large man, heavy built, and it had hundreds of tiny eyes, throughout the body, what seemed odd to me, is that they couldn't see down here, *how and why would they need eyes?*
 
