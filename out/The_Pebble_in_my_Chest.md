@@ -1,3 +1,5 @@
+
+
 It’s hard to differentiate what part of your body is the source of pain when it’s your brain that’s ultimately responsible. 
 
 Have you ever been so anxious that you threw up? Do you blame your stomach for having a reaction to something most likely not immediately dangerous to you?
@@ -64,8 +66,4 @@ The mountain is gone. The original pebble severed. For now. I’ll feel it again
 
 But for now I’ve got an anchor.
 
-And I remember that this mountain I’ve been carrying in my chest I was only supposed to climb. 
-
-I just wish I had known that three weeks ago. When I was still breathing. Before I was trapped in this purgatory. Reliving my last thirty minutes. Maybe this reaches you. Maybe it even helps. I hope so. 
-
-At least my cat is visiting. Find your cat.
+And I remember that this mountain I’ve been carrying in my chest I was only supposed to climb.
