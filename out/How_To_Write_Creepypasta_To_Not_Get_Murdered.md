@@ -1,0 +1,67 @@
+It all started quite some time ago when I decided to take a writing course. I had always enjoyed writing, even though when I first started out I wasn’t very good at it. I figured, hey, I enjoy reading so much, how hard could it really be? The answer is- it’s not as easy as it seems, that’s the god’s honest truth. The first dozen or so attempts were, well they were horrible. Through practice and perseverance however, over time I got better. I wrote and wrote and eventually refined my skills into something, well, at least coherent and at best passable. One day, I saw an ad for creative writing courses. It was local and affordable so I thought I would go for it, I signed up.
+
+The instructor was an older gent named Mathias Willow, a published author of many books and genres, and most recently, a series of fantasy novels. Nothing that ever made the bestseller list, but still, he was a published author. The idea of having something that I had written being published seemed a dream, a nigh unobtainable one at that point in my amateur writing career. 
+
+He was the person to first introduce me to writing prompts- a writing exercise in which you take a topic or a focus, usually one to three sentences, and expand upon it, write a story around it. Many of my favorite assignments were from prompts, things like “It was a dark and stormy night. The flames in the fireplace were dying when there was a loud pounding at the door…” and  “I was on vacation and traveling through a small town. Walking through the downtown area looking at the historical buildings, a young girl ran up and whispers to me “Get out of town before sunset or you’ll never leave.”” There were so many good assignments, it was hard for me to pick a favorite.
+
+He also introduced me to Creepypasta. At this time in my life, I had read books and published authors almost exclusively. All of the literary classics had a place on my bookshelves. My favorite genre by far was horror, authors like Lovecraft, Lumley, Poe, Blackwood, Stoker, and King. He, with the introduction of Creepypasta, had opened up new vistas for my literary mind to enjoy. I was immediately addicted, reading all of the top rated ones in a bingeing fervor over the coming months. I couldn’t get enough, there were so many good writers out there, it was a bit daunting I’ll admit, wanting to do what they did. Mr. Willow inspired me though, and pointed out to me that every single one of those authors, indeed all authors everywhere, had to start somewhere, often on the bottom rung of the proverbial ladder. 
+
+After several months of taking his class, my writing was improving exponentially. I had gone from barely being able to make a few comprehensible paragraphs to writing several thousand word stories. Mr. Willow was a great teacher. I remember the first assignment I turned in that really caught his eye, it was a short horror story about a monstrosity in the basement. He showered me with praise for it, saying it was the first thing he had read in quite some time that he felt himself truly invested in. “Top shelf stuff, sir!” he had said.
+
+He was definitely an odd character, Mr. Willow. Let's just say he would stand out in a crowd. He always wore an old suit, like something from colonial times, ruffles overflowing from his chest and at the end of his sleeves and everything, and he was tall, in spite of the fact that he was always hunched over his walking cane, a shiny onyx thing with an owl’s face protruding from its handle. He spoke like a learned scholar, his British accent seething from every syllable. A man whose very presence demanded respect, and from his first lesson and on, I did respect him, I idolize the guy.
+
+With his help, my writing turned from hobby to passion. With his invaluable help I honed my craft. Assignment after assignment, bit by bit, I improved. At Mr. Willow’s request, I began to submit some of my better short stories to forums and Creepypasta publishing sites. Some of them did alright, they were no masterpieces but were at least better than a majority, the ones filled with spelling errors and lacking the knowledge of how, or when, to use a comma. He said it was important for me to test the waters, get some feedback and use the criticism to improve. 
+
+For a time, I had been working on a series. It wasn’t one of his assignments, rather a passion project I had been working on between them. I worked diligently on it, always putting it on the back burner to simmer when important assignments came up. I hadn’t let anyone read it, it was my baby. I wanted to keep it sheltered and protected from all criticism until it matured enough to stand on its own two feet, until it could shine on its own. One day after completing another assignment, I accidentally emailed Mr. Willow the wrong file. It was supposed to be a story about a haunted house, but I only noticed until after I had uploaded the file and hit SEND that instead I had sent to him my series, my baby. I immediately sent him another email, with the correct story this time, and asked him to please disregard that last one. The next day, I was taken completely by surprise when he invited me over to his house for tea. 
+
+My first thought was that he HAD opened the file and read my in-progress story and just wanted to let me down in person. I was afraid that he had hated it. Afraid that even though he had taken me under his wing, it was all a waste of his time. Despite all of my fears of rejection and of disappointing someone I held the utmost respect and adoration for, I accepted his invitation.
+
+I arrived at his beautiful two story Victorian era style home, the first time I had ever been. His classes were always held at a rented space at the civic center, usually after some Alcoholics Anonymous meeting or some support group. Actually being invited into this man’s home, the man I had spent months looking up to to the point of adoration, I treated it as the utmost of a privilege, even if he was probably about to kick me out of his class. The entire time I had been taking his classes I had never heard of him inviting ANYONE to his home, I felt truly honored. 
+
+“Do you know why I invited a young bloke such as yourself into my humble abode?” he asked, motioning for me to have a seat in his parlor room. He was cutting straight to the point, a quality I had always admired about the man.
+
+“N-no sir” I stammered. The room around me was immaculate. It screamed culture, and I had still been feasting upon its grandeur with my peasant’s eyes when his directness had caught me off guard. 
+
+“That story you sent me last night, superb, child, bloody brilliant!” he chuffed, tamping down tobacco into his ivory pipe.
+
+“Thank you, sir. I was just following the assignment.”
+
+“No no, not that one, though good job on that one as well. No, I’m speaking of the other story, the one you told me to disregard! Well, disregard I didn’t. I began reading it and was absolutely enthralled, I daresay. From the opening sentence, I was hooked. And the way you wrote your protagonist, absolutely sublime! You, my son, are becoming quite good, quickly finding your style…” he struck a wooden match and lit his pipe, letting the flame lick the tobacco as he puffed to get it lit.
+
+“T-thank you, sir! It means so much coming from someone like yourself. And if I may, a lot of the credit goes to you. Ever since I began your class, I feel… well I feel like my writing just comes together. I definitely had a great teacher.” I said, meaning every word.
+
+He held up both hands palms out in a motion to stop, pipe dangling between his teeth. “My son, the talent was already there. I, as a teacher, merely help coax it forth, and in your case it took little to do so. Oh, but where are my manners? I believe I invited you here for tea and here we sit, and I don’t know about you but I’m bloody parched.” And with that he stood, giving me a slight bow as he scurried off as fast as his walking cane would allow.
+
+I stared around the room in his absence, taking in the many interesting things he had decorating his sitting room. Several expensive looking paintings adorning the walls, the beautiful tile mosaic that covered the floor in the center of the room, even the intricate carvings on the armrests of our chairs were like candy for the eyes. I could have sat in that room for days, discovering new details all the while. When he returned with the tea several minutes later, setting it on the table between us, I failed to notice at the time that he no longer had his cane with him. I even failed to notice he seemingly no longer needed it to walk, carrying a teacup on a saucer in each hand. I only realize these things now.
+
+We sat and talked for a while longer, about this and that, sipping our tea all the while. He always seemed to steer the conversation back to my story somehow, the one I had accidentally sent him. He wanted to know how it would finish.
+
+“I..I don't know yet, sir. It’s definitely a work in progress. I try not to plot anything out too far ahead, as much as it goes against some of your lessons. It’s almost as if I’m not the one writing the story, more like the story is using me to bring it into being, if that makes sense?”
+
+He merely nodded while staring me down, that ivory pipe still dangling between his teeth. Then, something very odd happened. He began to split into two of himself, all four eyes boring into me. I felt light headed and the room was spinning. I realized there weren’t two of him, merely my eyes seeing double.
+
+“I… I don’t feel so good, Mr. Willow.” I wiped the quickly accumulated sweat from my brow.
+
+“That’s to be expected, my boy. Why don’t you have a lie down, when you get up, everything will be right as rain.”
+
+That was the last thing I remember.
+
+It turns out my teacher turned mentor has writer’s block. Has for decades now. Of all of the many stories and novels he has written over the years, only the first few were of his own creation. Then there were only failures, many failures. The frustrating inability to recreate that spark of success only further attributed to his writer’s block. Then, like the saying goes, “Those who can’t do, teach”. So, he began teaching, and after getting caught stealing some of his more promising students’ stories and attempting to pass them off as his own, along with several claims of plagiarism, he had an inspiration. His eureka moment, as it were. That was when he began kidnapping them.
+
+When I woke up, I was chained to this pipe protruding from the brick wall in what I can only assume is his basement, though it seems more like a dungeon. It’s dark, and aside from a couple of oil burning lanterns, there is no light. The room reeks of decay and rot, and the humidity coats the walls and they glisten in the torchlight. The occasional rivulets that accumulate and trickle down the walls are better than TV. There are several other setups similar to mine throughout the room, though currently Jerry and I are its only occupants. Jerry is a corpse, with scraps of dehydrated flesh still clinging to his skeletal frame, his clothes soiled and torn. What he lacks in flesh and blood he more than makes up for in humor though. He’s hilarious, and great at parties.
+
+My new life isn’t too bad. As long as I keep cranking out the stories at a pace that he feels is sufficient, he doesn’t beat me too often. I get fed semi-regularly, he even lets me have a hot bucket of water to wash myself with if one of my stories is well received and gets a few thousand upvotes. Jerry was his most recent cash cow before me. His writing was so good, it even got published- that series of fantasy novels I mentioned toward the beginning. He stopped writing stories way before I moved in next door, and Mr. Willow says he remains here as an example and a reminder of what happens if you don’t do what Mr. Willow says. Don’t tell Mr. Willow, but sometimes Jerry and I spitball story ideas back and forth to each other. 
+
+Mr. Willow begs and begs for me to finish my series- the one that made him decide to keep me, but in my many attempts to force the plot along, well, it always just turns out terrible. He rejects them, then beats and starves me when this happens. I just can’t seem to get that spark I got when writing it all those years ago (I think it's been years, anyway. I’ve been down here so long I can’t tell anymore). To make up for my failure to move the series along, I write the short stories to keep my master appeased. Good news though, apparently some of them are big hits out there on the websites and forums. He’s even in talks with a publisher about having some of them compiled into a book. It’s still hard to believe that after all of these years, through literal blood, sweat, and tears, that my dream is finally going to come true… my stories are going to be published! And it’s all thanks to Mr. Willow.
+
+Oh, I almost forgot, this is a Rules Creepypasta. Here are my rules to not get murdered:
+
+1. Mr. Willow knows what’s best.
+2. Don’t pull at that chain.
+3. Go to the bathroom in the bucket.
+4. Stop looking at him like that.
+5. Mr. Willow always knows what’s best.
+6. No yelling for help. Nobody will hear you anyway.
+7. No staying up all night talking to Jerry.
+8. No trying to escape.
+9. Mr. Willow ALWAYS knows what’s best.

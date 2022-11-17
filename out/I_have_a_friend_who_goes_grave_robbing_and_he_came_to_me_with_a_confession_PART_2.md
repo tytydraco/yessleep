@@ -1,4 +1,4 @@
-Since his visit, I have slept less and less.
+Since his [visit](https://www.reddit.com/r/nosleep/comments/yuewqd/i_have_a_friend_who_goes_grave_robbing_and_he/), I have slept less and less.
 
 My wife came home and immediately sensed something wrong. She knows what's up with Theo (the grave robbing part), yet I won't tell her about his visit. I'm just protecting her.
 
