@@ -1,7 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/yvdl2w/the_night_my_adhd_almost_got_me_killed_part_1/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 
-  Selena walked behind the three men in nearly tailored suits, seemingly having left their folks and other sister upstairs. Whether or not they were involved with whatever was going on here didn't much matter to me at the time. The blonde still looked as happy and carefree as she did before, as though she was about to pet her new fluffy puppy, rather than touching base with her prisoners. 
+  Selena walked behind the three men in neatly tailored suits, seemingly having left their folks and other sister upstairs. Whether or not they were involved with whatever was going on here didn't much matter to me at the time. The blonde still looked as happy and carefree as she did before, as though she was about to pet her new fluffy puppy, rather than touching base with her prisoners. 
 
   "Let us go you som'bitches!" Burt said as soon as they came into view, "y'all ain't got no right to keep us like this!" 
 
