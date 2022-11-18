@@ -124,6 +124,14 @@ It began to look more agitated, passing through each train car again until it lo
 
 It fell to the floor. I'd been hoping it would stay that way, but it started to get up. Luckily, the train had reached a stop. I jumped out just as it got up and slammed its fists against the window angrily.
 
-I'm writing this at the train station. I'm worried it'll break out and come back while I'm off guard, so yet again, I've written it all down in hopes that, if I die, at least someone will know what happened to me.
+I'm writing this at the train station. I can hear it screeching in the distance, so yet again, I've written it all down in hopes that, if I die, at least someone will know what happened to me.
 
-Signing off,Your formerly anonymous host, Alex.
+The noise is getting much, much louder.  
+
+
+&#x200B;
+
+Signing off,  
+
+
+Your formerly anonymous host, Alex.

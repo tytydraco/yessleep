@@ -1,3 +1,5 @@
+\[1\] - [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/)
+
 I was born in Maryland in the autumn of ‘99. My biological father, Keith Digman, was never a part of the picture, so I was raised by my mother and stepfather. But after a falling out with my family in the spring of 2019, I was left to fend for myself; financially and otherwise.
 
 Striking out on my own, with little to no prospects, I decided to get back in touch with my biological father. It didn’t take long for me to learn he had passed away a few years ago. To get to know him better, and because I lacked any direction in life, I decided to seek out what remained; to see who he was, and what he did.
@@ -266,7 +268,7 @@ There was a short pause, as it pondered what to do. Maybe it just liked to hear 
 
 I heard something whip back and forth. A crackle as ceramic tiles shattered, the bathroom mirror breaking, and the bathroom sink falling to pieces.
 
-“*Disgusting*!” it shrieked. “*Disgusting, disgusting* ***wheat****!*”
+“*Disgusting*!” it shrieked. “*Disgusting, disgusting* ***wheat***\*!\*”
 
 &#x200B;
 

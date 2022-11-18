@@ -1,4 +1,3 @@
-
 My wife Cody and I have run an assisted-living home for the last seven years.  She inherited it from her mother, and while I was initially very unsure about us taking over that kind of responsibility, it’s actually turned out great.  Our twenty tenants have their own bungalows, and we aren’t taking care of them directly in any capacity.  Our job is mainly maintenance of the property, helping the tenants get in contact with the services they need, and normal business administration stuff.  And having our house next to the property means that we can spend more time together and with our son, Evan.  He’s going into preschool next year, and having this time with him and each other…well, we’re all really close and very happy.  And if you’d asked me two months ago how things were going, I would have said everything was pretty great.
 
 But then back in September my wife had an accident.  I got the call while driving through the country a couple of counties over.  The cell service in that area is terrible, and when I looked over at my ringing phone, I saw multiple notifications coming in, with two missed calls being from the woman who was calling me again.  I answered immediately, and as soon as she identified herself as a nurse, my heart dropped.  Forcing myself to listen past the panicked buzz that was growing in my head, I understood that Cody had been in a car accident and was found unconscious behind the wheel.  That she had not yet regained consciousness, but her vitals were otherwise stable and they were going to be taking her to imaging to see if they could find any signs of injury other than the scrapes and bruises they’d already seen.
@@ -124,4 +123,4 @@ I felt something twisting deep in my belly as I stared in what I thought was her
 
 **** 
 
-[Part Two](https://redd.it/yyrb4z)
+[Part Two](https://redd.it/yyvv8q)
