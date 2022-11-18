@@ -1,14 +1,14 @@
-As I sat there in the Coast Guard ship's infirmary, I felt thankful that I was still alive.
+As I sat there in the Coast Guard ship's infirmary, I felt grateful yet guilty, that I was still alive.
 
 I along with the surviving members of the fishing boat I worked on, were being questioned about the deaths of four of our friends.
 
 Although it happened a week ago, it still feels like a nightmare...
 
-*"So, help me understand how four of your friends ended up dead?"*
+*"So, help me understand how four of your friends end up dead and where did you put their bodies?"*
 
-*"I already told you, I don't know!"*
+*"I already told you, I don't know and I'm innocent!"*
 
-*"Oh, I think you know so start from the beginning and tell me exactly what happened 2 days ago, on that fishing boat..."*
+*"Oh, I think you know so start from the beginning and tell me exactly what happened a week ago, on that fishing boat..."*
 
 Okay, my name is *Ann* (not my actual name of course) and for several years, I've been working on a fishing boat, called *The Aurora.*
 
@@ -74,10 +74,8 @@ Once I was safely back on the boat, we contacted the Coast Guards and in a very 
 
 We remained there until the Coast Guards arrived leaving *The Aurora* behind.
 
-After nearly 3 hours of being interrogated, I was finally cleared of any wrongdoing 9which was a relief to me).
+After nearly 3 hours of being interrogated, I was finally cleared of any wrongdoing.
 
-That was several days ago...
-
-Anyway, the reason why I'm sharing my story here is that I need your help... 
+That was several days ago anyway, the reason why I'm sharing my story here is that I need your help... 
 
 I've been seeing *Joe* and the others everywhere, so I think they're still alive and I'm going back for them...
