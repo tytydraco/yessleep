@@ -180,4 +180,4 @@ I jumped up off the sofa and began to walk towards the door. On the way out, I t
 
 “Look, I appreciate what you’ve done for me, and I’ll pay for today’s session. But my mind is made up, either this ends with me or *it*, and I’m okay with that.”
 
-With that I left the office and began to plan my next visit to our favorite spot once more.
+With that I left the office and began to plan my next visit to our [favorite spot](https://www.reddit.com/r/nosleep/comments/yymm0t/i_think_my_friend_is_a_skinwalker_final/) once more.
