@@ -1,0 +1,13 @@
+So this was approx. 2 years ago. I lived in a hostel at that time and staying up late till 2 or 4 is normal there.
+It was quite dramatic in the way it happened making it hard for anyone i tell this, to believe. It was raining and at around 12 i decided to cry in some lonely corner over my unrequited love. Yes. Since it's tough to find privacy in a girl's hostel i decided I'd sit where the stairs end at top. I don't know if they have a word for that place. These stairs led to the roof of our hostel but it's been locked off since forever for fear that some idiot might think it'd be a great idea to commit suicide by jumping off a 2 storey building. Anyway, it's always locked but the door at the bottom has around 8 to 10 inches wide gap. In short, one can easily detect someone walking around it on the other side. So after a good 15 minutes or so of crying over stupid stuff i hear the door behind me shake, and the lock on it beats against it. I shake it off thinking it's nothing but the wind due to the bad weather. And then, i hear footsteps of someone running behind me parallel to the gate. I look back and i fk u not i did seee what looked like a person's feet behind a door that's looked from my side. After a second of processing my brain took in wht just happened and i bolted down the stairs at the speed of fking light!!! I didn't sleep the entire night, i had goosebumps all over my body for 2 days.
+
+Now, what makes this weird and hard for me to understand is i know this place. There's no other building attached on any of the sides to our hostel.
+Our hostel is within the college premises and even then i don't see any intelligible reason for a person to climb up there unless they r some new species of creep.
+Other hostelers said it might have been either a monkey or a cat. Now there ain't no monkey in that place because ive lived there and know this for a sure fact that there ain't no macaques hangin round at night in that area.
+As for cats my friends, what species of cats runs like fking hulk I'd definitely like to know.🗿
+Plus i saw it. And i know both a cat and the macaques possess short-ish legs unlike those hulk feet that my eyes witnessed. 
+There's no other animal species in that area with aerobic abilities either. 
+I don't know what i saw and heard. 
+I went to that place after 2 years to shale the fear off and even though nothing happened i still felt an eerie feeling about the place. I've lived in that hostel all alone for over a week and nothing happened even then.
+Except for a cat showing up twice to stare at me at 3 in the night ive never witnessed anything so absurd as that again.
+That's my story. And it's as real as i am.

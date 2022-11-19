@@ -116,6 +116,12 @@ Slowly, the sound of footsteps came from below.
 
 “The trick worked,” she whispered as the footsteps moved upstairs. “That’s my father, and his whole plan was to trap you. Put away your guns, they can’t [save you now](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+------------
+
+[The creepy guy on the stairs](https://redd.it/yzb5kp)
+
+------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
