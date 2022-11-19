@@ -1,0 +1,79 @@
+&#x200B;
+
+For years now I’ve tried to warn as many people as I can. I’ve tried warning my classmates, the police, I’ve even tried writing to my state’s senator. None of it’s worked so I’ve just come to accept that a majority of the people I come across won’t take what I have to say next seriously. That’s fine by me. I warn who I can, and the rest can do what they want.
+
+So, here it goes. You’re going to laugh at me but, there are people out there with…abilities. Supernatural abilities. I know because I was or am one. But the people I’m talking about, they’re no X-Men. They’re sick, twisted psychopaths that would kill you just for laughs. I’ll tell you my story, it’ll explain a lot. 
+
+Growing up, I never knew my parents. I jumped from foster home to foster home. Never staying at the same one for too long. I’d start fights just to get attention. At some point however, the adults at the homes started complaining that I had been running away. This confused me considering that I was admittedly a trouble maker, but running away had never been on my long list of offenses.
+
+I soon discovered that I had the ability to render myself invisible. Not the kind of invisibility you see in comics or movies. It’s almost like I’m able to make it so that people don’t notice me. I would stand in front of people calling my name, screaming that I was there,and pull on their clothes but they’d just go on as if I wasn't. 
+
+I started practicing with these powers and it didn’t take me long to become pretty good with them. It was like I could surround myself in a cloak that made the entire world unable to register my very existence. I could walk into a cafeteria, flip some kids lunch tray, punch the principal in the face and take the gym teacher’s wallet from his pocket, and not a single person would be able to say that I had done it, or even know that I was there.
+
+Jump to my 17th birthday. The day this nightmare started. I’d gotten back to the foster home I was living at at the time and planned on spending the rest of the night laying in bed, watching Netflix on my laptop. I made it back to my room and was checking through some stuff on my phone when I noticed it. An app icon that sure as hell hadn’t been there earlier. My first thought was that I clicked on some ad by accident and it downloaded whatever app it was promoting. I held the screen for the uninstall option to pop up but instead the app opened. 
+
+In bright red and blue letters the words “Toy Box” popped up. The app looked simple enough, with bulgy cartoon lettering over only two options. A box with the words “Inbox” over it and a circle with the word “Jobs” over it. I was going to close the app and uninstall it but honestly curiosity got the best of me. A large blue number 1 sat next to the inbox icon. I clicked on the message and a small paragraph in white appeared headed as being from ToyBox Inc.
+
+“Welcome to the Toy Box. We supply gifted individuals like yourself with fun opportunities. While the fun lasts, why not make some money ?” 
+
+I begin asking myself all sorts of questions. One of which being what the hell that message even meant. Did this app somehow know I had powers ? I’d used my abilities on several reckless occasions before and for a while I ran a couple scams but even then I was always careful. The red flags should have looked more like glowing neon flags. I should have gone with my initial gut instinct of uninstalling the app and moving on but I just couldn’t. I exited the inbox menu and noticed new text had appeared at the bottom of the apps homepage.
+
+“Total Members: 6”
+
+Not only that but a large,blue number 1 now hovered over the “Jobs” box.I tapped it and was taken to a checklist style page with only one task listed.
+
+“Play three pranks”
+
+Confused, I wondered if there was some kind of mini game or something I had missed. As if the app understood my confusion a small chat bubble appeared in the corner of the screen.
+
+“Friends or family count,indulge some in harmless fun :D”
+
+Were they watching me through my phone's camera ? Were they listening to me ? I didn’t think too deep into it at the time but looking back, maybe someone was. Either way I figured I may as well play along for now considering that playing pranks was pretty easy, especially with my abilities. 
+
+I activated my powers and walked into the room of two guys that bunked together down the hall from me. One sat playing video games with the other who sat in his bed, reading a book. Simply enough I took a pillow from the bed and threw it at the guy playing video games, who quickly turned around assuming his bunk mate was being a jerk. With one down I went downstairs as a group of younger kids were watching Tv. For about 5 minutes I’d unplug the TV over and over as one of them would get up to plug it back in, blaming the faulty socket. Lastly I just tripped a guy as he came out of the bathroom. To be fair it was the only thing I could think of. I walked back to my room and as soon as I opened ToyBox , confetti covered the screen as what sounded like a retro video game theme played in the background. As the theme ended a large “+$50” flashed onto the screen. 
+
+I thought the app must have had some kind of currency system to it but when I checked over the small selection of menus within the app I couldn’t find the supposed 50 coins I had obtained.  A thought popped into my head but I quickly pushed it out as there was literally no way some random app would pay me $50 just to pull some pranks. I hadn’t even entered my banking info. I sat there, ready to uninstall the app again, but something inside kept pushing me to check my account. Finally I bit and when I opened my banking app I almost fell over. A deposit had been made only minutes ago for $50 from ToyBox Inc.. Doing some stupid pranks had earned me $50. I didn’t care about the common sense things such as how this company got my banking information or what they got out of it giving money to kids for menial tasks. It was at that moment I found myself suddenly hooked. Immediately I checked the “Jobs” menu and found another task already waiting for me. 
+
+“Break 8 glass objects.”
+
+I stayed up until almost 2am that night. Completing job after job. I ended up making almost $500 too. Honestly it went on like this for months. Whenever I could, I’d complete jobs, earning varying amounts of money. I was so caught up in making what I saw as easy cash, that I didn’t realize these “jobs” had begun elevating from small unpleasantries to actual crimes.
+
+One week I’d have to poke 100 people in 24 hours and the next I’d have to break 3 products in an electronics store. Or steal from 20 purses. Or slash the tires of 4 red cars. That app had a hold on me. Yeah I made money from doing these things but the real incentive was the sense of superiority and achievement I felt in doing these things and getting away with them. Then I got my first “job” that broke through my immoral high.  
+
+“Break 4 limbs”
+
+I just remember staring at my phone, reading the “job” over and over. I couldn’t believe what I was being asked to do. I also couldn’t believe I was out of my mind enough to still be considering it. Then I noticed a new bit of text under the job.
+
+“2P”
+
+2P ? What did that mean ? Did it mean 2 players ? Once again as if on queue I received a message notification from my “Inbox”.Only it wasn’t from Toybox Inc, the message didn’t have a tagged sender.
+
+“Meet at Pizza Hut on 3rd in 30.Look for red hoodie”
+
+Confused but eager for an explanation I set off and ended up meeting a girl around my age there. Brianna, as I’d later find out her name was.We exchanged a few words and moved to grab a table. I found out she’d been a member of what she insisted was called, the ToyBox Gang” for nearly 2 years. She also confirmed that besides the two of us there were 4 other members who she assured me I would meet eventually. I’d been using the conversation to try and ease my unrest when Brianna suddenly stood up fast and began to quickly walk towards the restaurant's exit. I followed behind her and got outside to see her briskly walking towards a young couple that had been heading towards their car. I expected her to pull a pipe from her hoodie and attack them. Instead she reached out her arm, the guy in front of her yelled in surprise as he was lifted into the air, and both of his arms and legs snapped in unnatural directions. 
+
+For as long as I live I don’t think I’ll forget the sound of all of his limbs cracking. A violent snap, followed by the primals screams of the man as he crumpled to the floor. The girl he was walking began to scream in horror but I watched as Brianna pointed her arm at her, lifting her into the air as well. I squeezed my eyes shut as I heard a series of deep cracks. The girl stopped screaming and began emitting a sound as if she were choking on her tongue. I opened my eyes to see Brianna walking towards me. I flinched expecting her to lift me into the air and crumple me into a ball. Instead she patted me on the shoulder and said see ya as she kept walking.
+
+I didn’t open the app until I got home. Once I did, I saw a large “+$50,000” along with the usual confetti appear on the screen.” Again I felt that sense of relief and accomplishment as the electronic jingle ended. But I couldn’t help but hear the sound of the couple’s bones breaking. I couldn’t help but linger on the realization that there were others out their with abilities.My own let me hide better than anyone else but if there were people out there that could snap limbs with a literal thought, could I even hide from that? 
+
+Brianna had said there were 4 other members and that I would eventually meet them, and well she was right. Over the next couple months I would be assigned to jobs with each of them on multiple occasions. Sometimes it’d be two of us and sometimes it’d be 3. Eventually we all became friends I suppose. Never trading direct telephone numbers but staying in contact on the ToyBox app until we were assigned on a mission together. When we were together we treated each other like long time friends. But to those that found themselves targets of our jobs, there was nothing but merciless violence. 
+
+I’ll take a break for a minute to tell you about the other members of the ToyBox Gang, In case you ever come across them. Maybe knowing what each one is capable of will at least give you a chance at survival.
+
+First is Brianna who, to put it plainly, is a telekinetic. She’s able to move things with her mind, although the last time I saw her, the weight of objects she was able to move was pretty low. That doesn't mean much as you know she is easily capable of folding a human into a ball and tossing them aside. It became sort of her signature, destroying people’s limbs.  I’ve also seen her launch someone at a wall hard enough that they damn near exploded. I threw up for hours afterwards. She laughed about it for days.
+
+Brett manipulates people’s sense of direction and time. He has to touch you first but after he does, no matter where you are for the next 30 minutes, he can make you feel like up is down, or like left is right. Your body just feels like it doesn't respond correctly to anything your brain asks it to do.  His abilities aren’t overly deadly but he loves challenging those under his influence to knife fights. Don’t think he’s ever lost. 
+
+Philip has powers that feel like they come straight out of a fantasy game. He can conjure arms from shadows.As long as there is drkness, he can form arms from it. While the appendages are seemingly made from a dark mist, they are in fact able to grab objects.He’s told me before that he always feels like he isn’t using the entirety of his abilities. I don’t know what kind of things he’ll be capable of if he used what he would call his full potential. 
+
+I’ll be honest, Reina’s powers scare me. She can look at someone  and cause them to hallucinate a demon. Not some red horned imp with a pointed tail. But some kind of creature that looks and feels like it was born from your nightmares. I was curious what her abilities really did so one day I asked her to use them on me. I can’t fully describe the entity I saw but the fear I felt from looking at it is something I’ll never forget. The creature didn’t move to attack me or even move at all. It just stood there, and that was enough to make my heart pound fast enough that it felt like it would explode had she kept it up. If she does keep it up long enough your heart will explode. I’ve seen that happen too.I don’t think I slept for days afterwards.
+
+Lastly is Trent, who is a pyrokinetic. Out of everyone I’d argue that Trent has the worst control over his abilities but the most destructive power. His powers seemed to be tied to his emotions. Instead of carefully igniting objects. Trent would lose control of his emotions and create accidental maelstroms of fire around himself. I’ve seen him create flames hot enough to turn cars into piles of slag. It’s unsettling to think about what he’ll be like when he learns to control his abilities.
+
+And that’s the Toybox Gang. I ran with them for almost 2 years. Looting, breaking, scaring, …killing. We did it all. A bunch of super powered teenagers following the commands of an app. Some of the things we did. Some of the things I heard, I’ll never forget. No matter how many bodies we piled up, no matter how many people we crippled, we just kept on going. I won’t lie and pretend I was a victim, because I have blood on my hands. But the others ? You have to believe me. The others were worse. Men, women, children, they’ll hurt anyone and it’ll be nothing less than fun for them.
+
+Eventually I’d had too much. I decided to stop using the ToyBox app. I couldn’t handle the constant stream of violence I’d found myself in. I was finally able to uninstall the app and managed to focus on my actual life enough that I applied for a college a couple hours away. A couple months later I even found out I’d gotten in. It felt bizarre living life not guided by ToyBox. But soon I started getting messages from unknown numbers. I couldn’t tell who they were from at first but eventually I’d recognize the speech patterns of the ToyBox gang members.
+
+Some messages came from Trent, some from Philip, Some from Brianna. They started out friendly enough asking where I’d been and saying that they missed me. Soon enough they turned threatening. Asking if I’d gone soft and joking that they’d have to come “chat” in person. It’s been months since the messages started and they still come through occasionally, despite me changing my number several times. They’ve made it very clear that they have no intention of letting me walk away. My path is my own and it’s one I’ll have to walk. But I wanted to get my story out to those that would listen in case you find yourself to be a target of their game. 
+
+Something that worries me is that I can feel my powers growing. Feels like everyday I become slightly more capable. But if my powers are growing, then the others must feel their powers growing as well. More and more I hear about dismembered bodies being found around my hometown. Sometimes its random burned bodies of couples in their car, sometimes it’s joggers found dead from massive heart attacks. Another worry is that I’ve been hearing about bizarre deaths more and more across the US. A girl was found with shards of gold piercing her body, and two boys were discovered hanging from massive vines in the middle of a city. My theories were proven correct when I got a text message with a screenshot of the ToyBox app. No words, just a screenshot of the ToyBox gang member count. And it sat at 76.

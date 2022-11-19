@@ -72,4 +72,6 @@ As I reversed the cruiser out the street, Mason didn’t look back at the house.
 
 But the truth is, I did. And I sincerely wish that I hadn’t.
 
-My eyes squinted through the thick darkness between me and a garbage can at the side of the house to see a black figure kneeling by the gate, as if watching us leave. And as we finally began to drive away, as the house became more and more distant in the rear view mirror, the figure slowly stood itself up. And, I’ll swear even today, that as it stood up, its head peaked over the roof of that two-story house.
+I looked and squinted at a garbage can by the side of the house to see a strange, dark figure kneeling by the gate, as if watching us leave. 
+
+And as we finally drove away, as the house became more and more distant in our mirror, the figure slowly stood itself up. And, I’ll swear even today, that as it stood up, it didn’t stop rising until its head peaked over the roof of that two-story house.
