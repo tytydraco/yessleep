@@ -41,3 +41,5 @@ I've written my story out three times now. And each time I found some reason to 
 
 
 If you're reading this, please, try to find some way of helping me! I don't know how you'd do it. I can't know. If I actually believed that someone could, I don't think I would be able write this much. I want to delete it, but I'm going to hit post before I talk myself out of it again.
+
+Edit: [update](https://www.reddit.com/r/nosleep/comments/yz9l8j/i_think_my_roommate_is_a_vampire_update/)
