@@ -38,7 +38,7 @@ We sat for a little while accompanied only by the light of the moon and laughter
 
 “The hospital or the police station is probably our safest bet. They run off of generators so they should have lights. We were always told to go to one or the other if something major like this ever happened and we needed to regroup The hospital is closer so that’s where we’ll go.”
 
-More and more screams were filling the air as we devised our plan of escape. We needed to first get to my dad's truck which was out in the driveway. This is one of those times when I wished we had a garage. If we couldn’t wait for an opening my dad was going to use the flash grenades to buy us some time while we loaded into the truck. We also had two flashlights. Even though they wouldn’t do much good my dad said one good shot in the eyes would definitely hurt. With a plan in mind, we all crept down into the living room and waited for the right moment.
+More and more screams were filling the air as we devised our plan of escape. We needed to first get to my dad's truck which was out in the driveway. *Why didn't he ever park it in the garage?* If we couldn’t wait for an opening my dad was going to use the flash grenades to buy us some time while we loaded into the truck. We also had two flashlights. Even though they wouldn’t do much good my dad said one good shot in the eyes would definitely hurt. With a plan in mind, we all crept down into the living room and waited for the right moment.
 
 After a while of waiting with no sign of them moving on, we decided to make a run for it before they got so close that we wouldn’t be able to make it out without being grabbed.
 
