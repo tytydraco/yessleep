@@ -1,6 +1,6 @@
 So like many people. I am a pretty big fan of Spider-Man. I read the comics, watch the cartoons and movies, collect the little action figures and play the games. I have been a fan of the web-slinger ever since I was just one year old
 
-One day, I was at my local game store, looking for rare games to buy, and then I stumbled across a game titled Spider-Man 4, supposedly for the unreleased Raimi movie.
+One day, I was at my local game store, looking for rare games to buy, and then I stumbled across a GBA game titled Spider-Man 4, supposedly for the unreleased Raimi movie.
 
 The cartridge was clear red (I think it was the same one used for Pokémon Ruby) the label had a fake logo and a Spider-Man image from Spider-Man 3.
 
@@ -32,7 +32,7 @@ I booted it up, and it took me to the place where I quit. There weren’t any gl
 
 After I beat the Hulk, the screen went black, and that is when everything went horribly wrong.
 
-Not only did the screen turn black, it started glitching even worse even though the screen was black, it caused the other GBA games to glitch up again. apparently it had a sensor that caused a ton of other electronics to glitch up, like my TV, all computers in my house, everyones phones, etc
+Not only did the screen turn black, it started glitching even worse even though the screen was black, it caused the other GBA games to glitch up again. apparently it had a sensor that caused a ton of other electronics to glitch up, like my TV, all computers in my house, everyones phones, etc. Even some strange things like electronic dolls and walkie talkies started glitching
 
 Even some of my neighbors electronics glitched up.
 
