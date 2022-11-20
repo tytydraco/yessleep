@@ -58,7 +58,7 @@ A tall blonde girl skipped over to the group of us.
 
 For a few hours we strolled through the woods, mapping out different tree species, animals and plants. This entire time, the group of scrawny kids stared at me. I'm not sure what they were looking for. Changes in my movements, perhaps? Me to screw up? I don't know.
 
-She stopped us at another waypoint. "Its hide 'n' seek time, who volunteers to be in?" 
+She stopped us at another waypoint. "Its hide 'n' seek time, who volunteers to be in?"
 
 Frizzy shot his hand up instantly, his belly button showing from the roof his shorts. The blonde girl nodded, and he stood upon the platform, his hands covering his eyes.
 
@@ -70,19 +70,19 @@ I dashed off, abandoning the others. While walking, I had encountered the perfec
 
 I diverted off the main path and into a small sector of plain grass that cut into the creek. A rock lay neatly behind a tree and I scrambled underneath it. I waited. Seconds turned into minutes and then I remembered.
 
-*Stay inside the sector.* 
+*Stay inside the sector.*
 
-*Shit.* I thought, picking myself up to head back to the main path. As I gathered myself, a hush of leaves bristled behind me. I swivelled around to see a figure in the all-yellow instructor uniform crouched over something. A pile of leaves perhaps? 
+*Shit.* I thought, picking myself up to head back to the main path. As I gathered myself, a hush of leaves bristled behind me. I swivelled around to see a figure in the all-yellow instructor uniform crouched over something. A pile of leaves perhaps?
 
 Drawing nearer, I realised it was Kevin. He twisted his head, his neck crunching as it snapped out of place to greet me with a wicked grin. My stomach churned.
 
- I ran. Through gaps in trees and hedges of ivy. I didn't look back, afraid of what might greet me.
+I ran. Through gaps in trees and hedges of ivy. I didn't look back, afraid of what might greet me.
 
-As I reached the main path, a ball of orange jumped into my view. 
+As I reached the main path, a ball of orange jumped into my view.
 
 "Got ya!" Frizzy yelled, grabbing my shoulders with his slimy hands. I nodded, slowly heading back to the platform. As I turned I saw Kevin appear from the forbbiden sector. I hid behind the tree. He started talking to Frizzy and Frizzy was nodding frantically.
 
-I watched as he strolled away with Frizzy, their hands locked. I didn't bother saying anything. 
+I watched as he strolled away with Frizzy, their hands locked. I didn't bother saying anything.
 
 Arriving at the platform, I realised something. Did Kevin think the person he saw in the forbidden sector was Frizzy? I gulped.
 
@@ -96,7 +96,7 @@ When I arrived, everyone else was there, wating eagerly for the end result. The 
 
 "Ah, okay. *No, he didn't."*
 
-She ended her call and ordered us the other way. 
+She ended her call and ordered us the other way.
 
 The sun drew close to the horizon, it's rays bouncing off the edges of the water like tennis balls. I hurriedly walked behind the group. I thought I was last, but spotted Milkshake in the corner of my sight. He was looking at his feet while he walked, ignoring his surroundings.
 
@@ -106,7 +106,7 @@ The blonde girl dropped us off at our cabin. She picked up Frizzy's items and wa
 
 "...An emergency. He had to rush off. He won't be returning." she left in an instant, leaving a trail of mystery in her path.
 
-Milkshake hopped in to bed, his items already layed out on the top bunk. The other boys strolled into the bathroom, messing around for what felt like hours. I was in my bed, my sleeping bag set out over the mattress. When night fell and darkness seeped through the cracks in the walls, the biggest of the scrawny boys grabbed my shoulder. 
+Milkshake hopped in to bed, his items already layed out on the top bunk. The other boys strolled into the bathroom, messing around for what felt like hours. I was in my bed, my sleeping bag set out over the mattress. When night fell and darkness seeped through the cracks in the walls, the biggest of the scrawny boys grabbed my shoulder.
 
 "Hey you. Come with us." I was content on staying, but the look on their faces with pleading us pulled me out of bed to head out with them.
 
@@ -116,22 +116,28 @@ A few stones were stashed under a tree and the boys slowly picked them up. I wat
 
 It was a head. A severed head of a person I had never seen before. Blood trickled out of its eyes and the thick blackness of the head's mouth enveloped me in disgust. I didn't move. I couldn't.
 
-The boys chuckled. 
+The boys chuckled.
 
 "What you scared or something?" the biggest one said, bumping my shoulder. Their faces were drowning in the dullness of the night. One of them grabbed me by the hand and we ambled through the woods.
 
-It seemed...familiar almost. Ah yes, now I remembered. It was where I was hiding. 
+It seemed...familiar almost. Ah yes, now I remembered. It was where I was hiding.
 
 An old shack in the corner beside the creek lay messily. I could only watch as the boys dragged me in there.
 
 As soon as the door swung open, a putrid smell wafted up my nose. I covered my face, horror coating my eyes with its demonic mask.
 
-It was Frizzy, except it wasn't. His body was gone, bones remained clean and crusty. Any skin, liver or organs had been removed. His eyes were missing. His hair pulled back.  
+It was Frizzy, except it wasn't. His body was gone, bones remained clean and crusty. Any skin, liver or organs had been removed. His eyes were missing. His hair pulled back.
 
 I glanced over at the boys. Their faces dropped. Tears ran down one of their faces.
 
 "Hello, Cabineers," a voice rang out from the entrance.
 
-*Kevin.* 
+*Kevin.*
 
 "Its activity time!"
+
+I don't exactly remember anything after that. Perhaps a foggy memory and throbbing head? I think I awoke some time in the early hours of the morning. I recall waking up smothered in a substance which even today I can't recognise.
+
+Watch out, cabineers. He's hiding, he's waiting and *boy* is he hungry.
+
+\-end-
