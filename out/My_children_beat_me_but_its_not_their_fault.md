@@ -78,7 +78,7 @@ Except when I barge in through the front door, the kids think I'm an intruder, a
 
 After they're done pummeling me, they throw me outside in the winter night.
 
-The cops are called, I can see their lights. I scramble the yard to find my license. But it doesn't matter. The moment that I hand it over, they forget about it. It falls out of the cop's hands, onto the lawn, and I am taken to the back of their squad car because I can't identify my address.
+The cops are called, I can see their lights. I scramble the yard to find my license. But it doesn't matter. The moment that I hand it over, they forget all about it. It falls out of the cop's hands, lands on the lawn, and I am taken to the back of their squad car because I can't identify my address.
 
 We start driving, and driving, but then the vehicle starts to slow down. The officers began to seem more relaxed. Their shoulders droop a bit and the tension they exude begins to ebb.
 
