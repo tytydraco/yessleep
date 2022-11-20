@@ -28,7 +28,7 @@ The man looked down on her and wrinkled his nose. She crawled farther into the s
 
 I held my aim steady. “We agreed to remove her from harm,” I snapped. “We’re going to do that, no matter who might be hurting her.” 
 
-He scowled. “So bed it,” he huffed.
+He scowled. “So be it,” he huffed.
 
 Then he pulled an enormous dagger with a cruel-looking, wavy blade from inside his jacket pocket and crossed through the shadows toward the cowering little girl. 
 

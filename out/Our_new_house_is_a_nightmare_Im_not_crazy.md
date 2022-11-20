@@ -1,3 +1,5 @@
+[Part two](https://reddit.com/r/nosleep/comments/yzrq5j/our_new_house_is_a_nightmare_im_not_crazy_part_2/)
+
 Hi Reddit. I am in desperate need of advice. Call me Alice.
 
 My girlfriend "Lily" (24F) and I (23F) moved into our first house five months ago. It's only 1156 sq ft and kinda shitty, but we love it. We call it our little cottage. We have two levels, a garage, a porch swing, a teeny front yard full of planter boxes, and plenty of space for me, Lily, and our cat Bugs. [Pet tax](https://imgur.com/a/bcdaQhL). And it's practically brand-new(!!), too.
