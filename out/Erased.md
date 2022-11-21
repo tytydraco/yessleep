@@ -10,7 +10,7 @@ I suppose some background is necessary. Ernest and I went way back from meeting 
 
 &#x200B;
 
-The topic of my weight would be brought up a lot by both family and friends much to my annoyance. I was in denial which resulted in me being morbidly obese up until about two years ago.  Ethan and I kept in touch after graduation. He continued his passion for fitness and became a motivational instructor.  Meanwhile, I didn’t have money for college so I ended up taking different office jobs, something where I could sit on my ass all day.
+The topic of my weight would be brought up a lot by both family and friends much to my annoyance. I was in denial which resulted in me being morbidly obese up until about two years ago.  Ernest and I kept in touch after graduation. He continued his passion for fitness and became a motivational instructor.  Meanwhile, I didn’t have money for college so I ended up taking different office jobs, something where I could sit on my ass all day.
 
 &#x200B;
 
@@ -557,5 +557,3 @@ Ernest doesn’t even get that. I’m so angry about all of this. I want to conf
 &#x200B;
 
 That woman didn’t kill him. She made it so he was never here, to begin with, and to me, that is a [very](https://www.reddit.com/r/StoriesFromRose/) scary [thing.](https://twitter.com/RoseBlack2222)
-
-&#x200B;
