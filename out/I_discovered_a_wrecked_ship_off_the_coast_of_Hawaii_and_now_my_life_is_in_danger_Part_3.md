@@ -158,7 +158,7 @@ Chapman hesitated a bit before replying, and I watched a dolphin dart past us, j
 
 “It’s ok, try again,” Chapman commented. I fired once more, aiming for the A. And once again I missed my shot. With Chapman’s accuracy, I wondered just how skilled with guns and fighting he was. He seemed like the kinda guy to not get dirty himself, but with these people, I didn’t even really know.
 
-“Here, why don’t you try again,” Chapman insisted and swam towards me, outstretching his own gun. I put my own gun back on the thrust-pack and grabbed his. Then I raised his gun, aimed, and breathed deeply. This time when I fired the gun, the spear hit the mark.
+“Here, why don’t you try again,” Chapman insisted and swam towards me, outstretching his own gun. I put my own gun back on the thrust pack and grabbed his. Then I raised his gun, aimed, and breathed deeply. This time when I fired the gun, the spear hit the mark.
 
 “Good job Sione.”
 
@@ -214,9 +214,17 @@ I thought about saying something but held my tongue for now. After around maybe 
 
 “Got it.”
 
-I watched as Chapman began to ascend to the surface, and then move to the ladder. Pretty soon, he disappeared completely from sight. I watched with anxiety, almost expecting to see his body splash back down into the water or any number of others. The minutes ticked by, and I heard nothing. I was in complete silence under the water, and the boats were still. It was like someone had paused time.
+I watched as Chapman began to ascend to the surface, and then move to the ladder. Pretty soon, he disappeared completely from sight. I watched with anxiety, almost expecting to see his body splash back down into the water or any number of others. The minutes ticked by, and I heard nothing. I was in complete silence under the water, and the boats were still. It was like someone had paused time. 
 
-“God please let them be safe,” I uttered a quick prayer and then began to consider going back to the ship, back to the turtles. With them, I felt some comfort. And if I was gonna die, I didn’t want to die alone. With every growing minute, my anxiety grew deeper. And finally, I began to let myself sink, sink back down to the depths. Sink back to a place away from all this presumed death and chaos, to tranquility. But then I took one last glance up and noticed something. The boat parked next to the boat was moving away from it. And not long after, the other boats began to pull away. I watched as they left the main boat, and headed back in the direction of Madagascar.
+“God please let them be safe,” I uttered a quick prayer and then began to consider going back to the ship, back to the turtles. With them, I felt some comfort. And if I was gonna die, I didn’t want to die alone. With every growing minute, my anxiety grew deeper. And finally, I began to let myself sink, sink back down to the depths. Sink back to a place away from all this presumed death and chaos, to tranquility. This was an odd feeling, running through me. It was something I had never felt before. From the darkness below, the turtles began to emerge and swim toward me. They swam in a circle as they approached me, and I let myself sink down to them. They circled around me as I sank, and soon I was down at the ship again. One by one they lead me to the fallen-over bridge of the ship. I watched as two of them went inside, and followed them a little closer. What I saw, shook me to my core. Strapped to the captain's chair was the skeletal remains of the human. 
+
+*What? How did Chapman and them miss this?* 
+
+I watched as the turtle begin to gnaw at the seaweed holding the blackened and algae-covered skeleton down. And once it was free, it floated out past me. But it didn't float up like it should have, rather it floated forward away from the ship like it was almost swimming away. I activated the thrust back and shot up, dread overcoming me. But once I had gone about fifty feet up and stopped myself, I looked down to notice the turtles and the skeleton were gone. 
+
+*Had I just imagined that all?*
+
+Slowly, I made my way back up to our own ship and noticed the pirate's ships were gone now. 
 
 *That doesn’t change anything, they still could have killed everyone on the boat and just left it out here to rot.*
 
@@ -242,7 +250,7 @@ I let out a deep breath and swam up to the surface. As soon as I emerged I swive
 
 “Come with me, let’s get that suit off you.”
 
-With that, Chapman turned around and began to walk back into the cabin. I rushed after him.
+With that, Chapman turned around and began to walk back into the cabin. I rushed after him. I thought about mentioning the skeleton, but I was certain I had just imagined that. 
 
 “Hey, I need to know that this is gonna be safe. I have a family to go back to. But with the pirates and the speargun practicing…”
 
