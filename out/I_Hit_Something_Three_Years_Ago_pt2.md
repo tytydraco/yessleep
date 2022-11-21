@@ -18,7 +18,7 @@ We begin walking to the supposed direction of my instructor's house and as we're
 
 I simply nod and continue walking. What have I gotten myself into. I never considered any possible consequences of going along with this plan. I was so willing to sacrifice myself for someone that I didn't even consider what the people around me would think. 
 
-How would Lorraine or my brother react once they notice I've gone missing. If I suddenly come back after thus mission,I'll most likely be taken in for questioning. I don't really think I'll be taken seriously if I say I was essentially kidnapped by the ghost of a girl I ran over by accident three years ago to help her get revenge. 
+How would Lorraine or my brother react once they notice I've gone missing. If I suddenly come back after this mission,I'll most likely be taken in for questioning. I don't really think I'll be taken seriously if I say I was essentially kidnapped by the ghost of a girl I ran over by accident three years ago to help her get revenge. 
 
 All of a sudden,she stops walking and I stop in turn. I look at her and I see her staring at the massive house in front of us. I switch my attention to the Manor that stands before us as I hear her say:
 
