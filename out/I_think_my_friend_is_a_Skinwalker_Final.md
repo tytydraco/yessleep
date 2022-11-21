@@ -4,7 +4,7 @@
 
 &#x200B;
 
-I’ve heard that hatred weakens the heart, ironic how it feels like it’s the only thing keeping it pumping. I hate that creature, hate it for taking his life. But I hate myself even more, I should have told James no that night, we shouldn’t have been walking around at night intoxicated in the first place. I hate myself for running away, for doing nothing for so long.
+I’ve heard that hatred weakens the heart, ironic how it feels like it’s the only thing keeping mine pumping. I hate that creature, hate it for taking his life. But I hate myself even more, I should have told James no that night, we shouldn’t have been walking around at night intoxicated in the first place. I hate myself for running away, for doing nothing for so long.
 
 I sat in my car, arms folded over the steering wheel, head resting on top. A light rain began to tap on the roof of my car. I didn’t leave the parking lot until about an hour had passed, like the rain, I let all the memories wash over me. Then I made my way back to the apartment.
 
@@ -50,7 +50,7 @@ Then it stood up, and to keep me in place it brought a hoof down hard onto my sh
 
 “I just…need…to get…it off my…chest.”
 
-With that its ribcage splayed open in an explosion of bone and viscera. It began to lower its torso over me, A void stared back, it was though a black hole had nestled into this creatures bosom, and it was going to suck me in and pull me apart from every direction imaginable.
+With that its ribcage splayed open in a macabre explosion of bone and viscera. It began to lower its torso over me, A void stared back, it was though a black hole had nestled into this creatures bosom, and it was going to suck me in and pull me apart from every direction imaginable.
 
 I thought of how I was going to be consumed, how it would go on to masquerade itself as me. How it would lure my mom or friends out in the woods and then mutilate them and continue the cycle. I thought of how it spoke with James voice, how much that angered me. Was I going to just let this thing eat me like it did James? I was going to die no matter what, so it didn’t matter what I did at this point.
 
