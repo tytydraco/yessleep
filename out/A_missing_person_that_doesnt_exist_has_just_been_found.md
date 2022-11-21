@@ -122,7 +122,7 @@ When I got home, I ran up to my room, and opened my laptop.
 
 &#x200B;
 
-\[Benjamin Cook missing kid local area\]
+\[*Benjamin Cook missing kid local area*\]
 
 &#x200B;
 
@@ -130,7 +130,7 @@ Is what I typed into the search bar, but weird enough, no results. I tried again
 
 &#x200B;
 
-\[Benjamin Cook missing 15 year old local area\]
+\[*Benjamin Cook missing 15 year old local area*\]
 
 &#x200B;
 
@@ -164,11 +164,11 @@ I thought this could be a coping mechanism, making it seem like he’s still her
 
 &#x200B;
 
-‘Benjamin. I dearly miss you.
+‘**Benjamin. I dearly miss you.**
 
-Please come home. Here is this picture of us happy together. When will you come back home?
+**Please come home. Here is this picture of us happy together. When will you come back home?**
 
-From, Grandma’
+**From, Grandma**’
 
 &#x200B;
 
@@ -210,7 +210,7 @@ All it said was:
 
 &#x200B;
 
-'I saw your bike out front. Ben has been found. Thank you.'
+'*I saw your bike out front. Ben has been found. Thank you.*'
 
 &#x200B;
 
@@ -382,7 +382,7 @@ It would make me feel better to know that I will never see that old lady again.
 
 &#x200B;
 
-To know I’ll never have to pass by that dirty orange house again
+To know I’ll never have to pass by that dirty orange house again.
 
 &#x200B;
 
