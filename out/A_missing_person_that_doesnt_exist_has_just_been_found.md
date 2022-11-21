@@ -36,8 +36,6 @@ RACE:  CAUCASIAN
 
 &#x200B;
 
-&#x200B;
-
 ‘IF FOUND PLEASE BRING TO xxxx MEADOWLARK LANE! OR CALL 911, THANK YOU.’
 
 &#x200B;
@@ -348,23 +346,41 @@ I couldn’t get that image out of my head.
 
 That smell either. It’s like it’s in my mouth. Just this disgusting rancid smell. When I got home, I dialed 911 and told them everything.
 
+&#x200B;
+
 I told them about the house, her address, my address, and about the lady.
+
+&#x200B;
 
 They told me the police would be there soon, within the next five to six minutes.
 
+&#x200B;
+
 I got a knock on my door, and opened it, to find two officers on my porch.
+
+&#x200B;
 
 I escorted them in, and they questioned me about everything.
 
+&#x200B;
+
 I told them about the old lady. The dead raccoon. I showed them the posts, the Facebook account, and the pictures of Ben.
+
+&#x200B;
 
 I called my parents soon after, and they sounded worried sick over the phone. My mom was crying, and my dad was trying to keep her sane. They told me they were on their way home and would arrive in a few hours.
 
 It was so stupid of me to not have called them. It didn’t even cross my mind once, not with all of this going on.
 
+&#x200B;
+
 Another pair of cops arrived at my house about an hour after the first. They told me they had found what I described to the other officers, the raccoon, the candles and the yellow walls.
 
+&#x200B;
+
 I'd overheard them talking to the other officers about dead animals in her fridge. Mainly roadkill, but that didn’t make it any more comforting. There was one thing they managed to keep from me until I asked about her.
+
+&#x200B;
 
 They didn’t find a lady in the house.
 
