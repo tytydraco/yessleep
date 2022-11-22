@@ -260,7 +260,7 @@ She nodded, opened the door, and gestured me in.
 
 &#x200B;
 
-I reluctantly walked in, took my phone out and made sure to always stay in front of her so I wouldn’t get attacked. I could easily overpower her, but I was still cautious.
+I reluctantly walked in, took my phone out and made sure to always stay behind her so I wouldn’t get attacked. I could easily overpower her, but I was still cautious.
 
 &#x200B;
 
