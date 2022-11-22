@@ -288,6 +288,6 @@ I had questions, however. "Barrow, what happened to DeGuire?"
 
 He was hesitant, but I didn't not have to pester to break him. Barrow let out a long sigh, then stared with regret at the woods. "He bought a candle."
 
-Nothing more notable happened that night, other than the occasional strange order or customer. I went home, closed my blackout curtains, and took some melatonin. Like I said, I have Tuesdays and Wednesdays off. If something else happens during the weekend, and you all are interested, I'll write it all down here. It is... therapeutic. Gets my mind off of why I came here, to Rykar Valley, as well as helps me process the strangest night I've ever experienced.
+Nothing more notable happened that night, other than the occasional strange order or customer. I went home, closed my blackout curtains, and took some melatonin. Like I said, I have Tuesdays and Wednesdays off. If something else happens during the weekend, I'll write it all down here. It is... therapeutic. Gets my mind off of why I came here, to Rykar Valley, as well as helps me process the strangest night I've ever experienced.
 
 Thanks for reading, and I'm sure I'll have plenty more to talk about soon.
