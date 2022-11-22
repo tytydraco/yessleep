@@ -113,3 +113,7 @@ I brought up my complaint with the head, and I now realize he does not care. We 
 If you have any questions, feel free to ask me. I will answer anything I can legally answer.
 
 So long.
+
+&#x200B;
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/z1hrba/a_girl_speaks_to_her_dead_dad_and_kills_thousands/?utm_source=share&utm_medium=web2x&context=3)
