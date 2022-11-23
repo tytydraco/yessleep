@@ -88,7 +88,7 @@ She gave me a soft smile. "We're now trying to get you to a healthy weight, whic
 
 "*Solid* food?" I asked in disgust.
 
-"Yes. It'll be a slow process since your digestive system isn't used to it, so we'll start with mushy food first. You'll live with me, mom, and dad. They can't wait to see you. And I have a dog, Patch. She's a dalmatian. Remember how we always wished we had one after watching \*101 Dalmatians\*? We wanted to call it Patch?"
+"Yes. It'll be a slow process since your digestive system isn't used to it, so we'll start with mushy food first. You'll live with me, mom, and dad. They can't wait to see you. And I have a dog, Patch. She's a dalmatian. Remember how we always wished we had one after watching *101 Dalmatians*? We wanted to call it Patch?"
 
 "No."
 
