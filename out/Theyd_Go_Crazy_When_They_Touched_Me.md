@@ -94,7 +94,7 @@ She gave me a soft smile. "We're now trying to get you to a healthy weight, whic
 
 Her smile wavered. "It's okay, you were too young. But everyone is ready to meet you. So, whenever you're ready to come home, let me know. Until then, I'll still drop by every day … and here." She placed a tablet on the overbed table. "This is just like the voice-activated one we use for our lessons, and here's the stylus. I got you a bigger one so it's easier to control with your mouth. You can contact me anytime."
 
-I met her eyes. "I have listened to what you said and I am making my choice. I want to go back home. To my real home."
+I met her eyes. "I have listened to what you said and I am making my choice. I want to go back home. To my real home that you took me from."
 
 Her smile vanished. "How about you take some time to think things over first?" she said, her voice breaking as she stood up. "I'll be back tomorrow. Goodnight, Ty."
 

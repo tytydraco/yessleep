@@ -14,7 +14,7 @@
 
 &#x200B;
 
-*Me and Darnell started to argue about who could drive better when a loud thump came from the door we had just come from. It was silent for so long I was able to hear everyone's breathing. Kate then broke the silence and said we should go when the door burst open and out came the same zombie that killed Caleb.*
+*Me and Darnell started to argue about who could drive better when a loud thump came from the door we had just come from. It was silent for so long I was able to hear everyone's breathing. Kate then broke the silence and said we should go when the door burst open and out came the same zombie that killed Fred.*
 
 &#x200B;
 
