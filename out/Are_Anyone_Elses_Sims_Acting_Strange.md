@@ -175,7 +175,12 @@ I thought for a moment he would run back to the computer and somehow climb back 
 A too-real smile spread across his face and I looked back to see a furry, black-clawed hand reach out from the computer screen.  And I heard a growl begin to emanate from within.
 
 
-I wish I’d never bought that fucking werewolf [expansion.](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
+I wish I’d never bought that fucking werewolf expansion.
+
+After a quick escape, I ended up at a nearby internet cafe where I typed this up to warn you all.  If you play the Sims and your characters start acting strange - delete the game immediately. 
+
+
+Otherwise who knows what we might unleash on the real [world](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
 
 
 [YT](https://youtu.be/rHcK2TpBeG4)

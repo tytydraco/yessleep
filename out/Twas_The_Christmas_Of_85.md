@@ -64,7 +64,7 @@ Later on, the police found me passed out on the floor apparently, the silent ala
 
 The creature, although badly injured was still alive.
 
-After they restrained the creature, I shouted, *"Monster!"* 
+After they tranquilized the creature, I shouted, *"Monster!"* 
 
 Not like it would understand me, though.
 
