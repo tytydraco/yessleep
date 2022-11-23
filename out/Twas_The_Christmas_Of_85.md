@@ -1,6 +1,6 @@
-Several days ago, I attended a Christmas party when the host asked me, "What was your most memorable Christmas?"
+Several days ago, I attended a Christmas party when the host asked me, *"What was your most memorable Christmas?"*
 
-I thought about it for a moment and said, "The Christmas of 85."
+I thought about it for a moment then said, *"The Christmas of 85."*
 
 I can still remember the Christmas of 85 like it was yesterday...
 
@@ -24,7 +24,7 @@ Lately, the talk at work was about the 3 bodies that were discovered last month 
 
 The coroner ruled the deaths accidental despite visible scratch marks all over the bodies.
 
-After I was finished watching TV, I locked all the doors and then lay down on the couch. 
+Anyway, after I finished watching TV, I locked all the doors and then lay down on the couch. 
 
 As soon as my head hit the pillow, I passed out.
 
@@ -44,11 +44,11 @@ I must be tired, I thought to myself because I was starting to see things that w
 
 That's when it smiled at me, exposing razor-sharp teeth.
 
-"What do you wa-" I nervously asked, but before I could finish my sentence the creature broke through the window shattering glass everywhere.
+*"What do you wa-"* I nervously asked, but before I could finish my sentence the creature broke through the window shattering glass everywhere.
 
 This caused my adrenaline to rise...
 
-I could feel the claws on my hands begin to grow. 
+I could feel the claws on my hands begin to grow as the rage grew inside of me. 
 
 I screamed in pain as they tore through my flesh. 
 
@@ -64,7 +64,7 @@ Later on, the police found me passed out on the floor apparently, the silent ala
 
 The creature, although badly injured was still alive.
 
-After they restrained the creature, I shouted, "Monster!" 
+After they restrained the creature, I shouted, *"Monster!"* 
 
 Not like it would understand me, though.
 
@@ -74,4 +74,4 @@ The authorities later thanked me for being brave.
 
 Anyway, I work at the research facility where the creature has been for 34 years...
 
-Last week it escaped and now, I'm worried for my life...
+Last week it escaped and now, I fear for my life...
