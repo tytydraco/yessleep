@@ -1,3 +1,9 @@
+This is part one, the beginning of my experience with the supernatural, and my first shift at The Drowsy Spectre. If you are looking for part two, or just want to read more, you can click [here](https://www.reddit.com/r/nosleep/comments/z2gw2o/i_had_a_strange_first_shift_at_my_new_job_but_now/?utm_source=share&utm_medium=web2x&context=3).
+
+&#x200B;
+
+\--------------------------------------
+
 I'm a long time fan of r/nosleep and creepypastas in general. Obviously, like most, I take them as fiction. Or at least, I did. I might have to consider something that, until recently, I would have thought ridiculous. I've found myself wrapped in a story of my own, one that I doubt anyone will believe. I can't share it with my family as I am not fond of becoming the butt of every joke, the same goes for my friends.
 
 Assuming I don't get killed for not seeing that a latte was supposed to be made with almond milk (that is a hazard that regular baristas face, nothing to do with the hauntings that plague The Drowsy Spectre), then I’ll just update things here. I’ve been given Tuesday and Wednesdays off, giving me plenty of time to write down whatever weird stuff happens.
