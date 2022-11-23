@@ -31,3 +31,10 @@ Full disclosure: I've found the dirty blonde man in my vision. I've been dating 
 I know he's the one. 
 
 I'm actually going to propose to him as soon as I'm done writing this. I'm going to offer him my Dad's wedding band, of course. I am pretty sure he's going to say yes. I'm both looking forward to it and dreading it at the same time.
+
+
+EDIT: To all the people who keep downvoting me: that's not going to make me change my mind. 
+
+To all the people in the comments who have a gift that's like mine: thank you for sharing your story! I always hoped there'd be more people like me. Thank you for your support ♥️ 
+
+To all the people in the comments who are telling me I'm crazy, or narcissistic, or that this is all simply a symptom of trauma... You aren't the first to tell me that.
