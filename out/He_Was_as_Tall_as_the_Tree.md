@@ -1,0 +1,37 @@
+When I was young, a large elm tree stood tall and proud in the backyard of my parent's townhome. For prior background knowledge, I have three siblings. An older brother, an older sister, and a younger brother. My younger brother is the main focus. 
+
+When I was about 8 or 9, and my brother was around 6, we decided to go outside to play tag. The tag was one of our favorite games growing up. My older brother decided that he was going to sit out for the round that we were on. It was just me, my younger brother, and my sister. We had been running for what seemed like an eternity when it was most likely 10 minutes when all of a sudden we heard a snap. We disregarded it. 
+
+It was probably just a branch that had fallen off that elm. We would have never guessed how wrong we were at that moment. My mother walked outside with a pitcher of lemonade and small dixie cups. When she called us over, our whole lives came crashing down on us. That same elm, standing before my older brother was born, came tumbling down. To my younger brother's luck, on the way to our patio, it crushed his small body. 
+
+I was oblivious. It was selfish of me, but I only cared for my mother's sweet lemonade. My mother screamed and ran inside to get my dad. He stood in the sliding glass doorway holding the rotary phone that was stationed in our kitchen. My mom ran over to her screaming child. My brother took my sister and me and ran us inside. Quicker than ever, the emergency vehicles arrived and took my brother away. He was pronounced dead on April 19th, 2005. 
+
+I decided to write this because of an experience I had a few weeks ago. In October I went to a nightclub for a Halloween type deal. Everyone was in costume, including my friends and me. After a few shots of Titos, I was feeling a bit tipsy. I managed to meet a very nice man who bought me a few drinks. He offered to take me home and while I refused, he kept on pushing it. "I came here with my friends." I kept saying, but he insisted I go home with him. 
+
+Eventually, I passed out. I still have no idea why I might've, possibly he could've slipped something in my drink. I don't know. All I know is that I woke up in a room that I had never been in before. It was a one-room apartment thing and the only window was the peephole in the door. 
+
+I stumbled as I got up. As I walked to the door, I realized how claustrophobic I was. The room was insanely small. The door seemed like it was built for a 7-year-old. I bent down to the peephole and looked through. It was dark until what seemed like a video started playing. It was a blank white screen with a deep beeping noise, and it was all morse code. 
+
+As it was beeping, a large elm tree faded onto the screen. Standing by the tree was a picture of a man wearing the same outfit my brother was the day he died. The background was an empty field with clouds and a blue sky. I couldn't see the man's face, it had been blurred for whatever reason. I could almost see my brother in him though. 
+
+While the face was blurred, I could see the same young facial features that my brother had. The outline of a button nose, and dusty blonde hair, it must’ve been him. His eyes were the only thing that wasn’t blurred were his downturned grey eyes. But why was he so tall? 
+
+As I pondered my question, the audio recording kept getting louder and louder. It was burned into my brain. 
+".. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.. / .. / .- -- / .-. . .- .-.."
+
+After I heard the code, I attempted to open the door. It was locked tight. I kept trying with all of my might. Absolutely nothing was happening. I walked to the corner of the room and took a seat. I couldn’t possibly be stuck there. It took a few hours until I realized that I’d probably be stuck here for the rest of my life.
+
+I began to weep. This could’ve happened to anyone else. Why me? Was it something that I had done? As I pondered my life choices before this event, I looked around the room. It was a plain white room. It was extremely clean, so much that it hurt my eyes. I stopped sulking and began to walk around. If there was any single clue or anything that could help me live in here without going insane I would have to find it. I began to search in an empty room. It was helpless. Nothing in this place could help me escape. 
+
+I began to scream. The room started spinning as if I was dizzy. Children’s laughing played in my head as if I was at a birthday party. What the fuck is this sick joke? “If anyone can hear me you can go burn in hell,” I yelled. The manic laughter just kept on repeating and repeating.
+
+This room was a nightmare and if I couldn’t get out then nobody would ever find my dead body. The screaming and crying abruptly stopped when I started to hear faint talking and walking coming from the door. The laughing in my head came to a close, like an orchestra playing its final piece. I slowly and quietly took steps toward the door. This time when I looked through the peephole, there were people. Normal living people who could get me out of there! I banged on the door. “Can anyone hear me? Get me out of here!” Nobody responded. Nobody even took a look at the door. Was I invisible? Was this some sort of illusion? I felt as if I was going insane. 
+
+I slowly stopped banging on the door. It was no use. That was the first time I had contemplated death. My family wouldn’t know where I was or how to find me. I wouldn’t ever be found. What would ever happen? What does death feel like? As I questioned myself, the door opened. Nobody was there, and the small plaza being shown just an hour ago turned into a long valley with a beautiful blue sky.
+
+I cautiously walked outside, my hands trembling. “Hello?” My voice echoed. I turned around to see only a doorway breaking in from the sky. No room, no doorframe, nothing. What was behind me was the same large elm tree and the man who I presume is my brother from that video.
+
+I stood there, horrorstruck. Suddenly my brother walked over. He shrunk as he came closer. He took my hand without a sound. With tears in my eyes, I followed. Was I dead? We got to the tree and he pointed to a small kite stuck in the branches. “Get it for me.” He demanded. I shook my head. “No, no. I can’t, you’re not real.” The morse code rang through my ears. He looked me dead in the eye and said “Get my kite.”
+I climbed up the tree for what seemed like forever. I had finally reached the kite when all of a sudden I heard a snap. The tree slowly started tipping over and I started to scream. I was going to die this time for sure.
+
+As soon as I hit the ground, I woke up. Turned out I had been in a coma for a few weeks. I looked around the room in fear. Only two doctors were in the room. The doctors stopped talking when they heard the rustle in my bed. They turned to look at my live body and smiled. I smiled back at them until I noticed; they had the same grey almond eyes and blonde hair as my brother.

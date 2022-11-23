@@ -140,8 +140,6 @@ My stomach flip-flopped.
 
 "Her husband left her, and it sounds like she didn't take it well." He pointed to the entryway. "Hung herself right there in the hallway."
 
-*Did you have to tell me that?* I thought.
-
 \_\_
 
 I never saw Edna again after that, but I learned the house across the street had been unoccupied for years. No one but me had seen Edna gardening all those mornings.
