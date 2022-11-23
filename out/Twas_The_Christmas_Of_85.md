@@ -1,4 +1,4 @@
-Several days ago, I attended a Christmas party when the host asked me, *"What was your most memorable Christmas?"*
+Several days ago, I attended a Christmas party when the host asked, *"What was your most memorable Christmas?"*
 
 I thought about it for a moment then said, *"The Christmas of 85."*
 
