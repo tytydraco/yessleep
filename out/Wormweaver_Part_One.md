@@ -6,7 +6,7 @@ I glanced aside, looking at the pile of word vomit that I called a first draft a
 
 “Have a good one,” he said, kicking me off the video conference call.  I rubbed my eyes, putting a hand to my forehead and shaking my head.
 
-It wasn’t easy being second banana to someone far superior in every way.  Looks, success, having a wife and kids, intelligence, everything including the kitchen sink.  But for some reason, I couldn’t help but take his advice.  I didn’t know if his constant pompous behavior was just an act to encourage me to work hard a la tough love or if he really was a dick.  Still, I did respect him.  Who wouldn’t respect such a talented and charismatic guy?  
+It wasn’t easy being second banana to someone far superior in every way.  Looks, success, having a wife and kids, intelligence, everything including the kitchen sink.  But for some reason, I couldn’t help but take his advice.  I didn’t know if his constant pompous behavior was just an act to encourage me to work hard a la tough love or if he really was a dick.  Still, I did respect him.  Who wouldn’t respect such a talented and charismatic guy?
 
 Besides, he was still my friend.
 
@@ -16,7 +16,7 @@ I turned to the left side of my desk, picking up an old family photo of my wife,
 
 Right in the middle of my train of thought, I felt an itch akin to getting smacked with a baseball with screws poking out.  The itch was localized just below my left shoulder where the socket was.  For some reason, the pain came to a halt at some line below my shoulder as if an invisible fence was blocking my nerves from sensing the pain.
 
-I crammed my other hand up my sweater to relieve the stress, but nothing worked.  The itch only grew worse the more I scratched it.  Rushing to the bathroom, I put on some soothing lotion.  It only hid the pain for a minute before its effects wore off.  At one moment, the affected arm spontaneously flailed around like a nightcrawler attached to a hook.  Before my out-of-control hand could hit my face or break anything, I grabbed it to keep it still.  
+I crammed my other hand up my sweater to relieve the stress, but nothing worked.  The itch only grew worse the more I scratched it.  Rushing to the bathroom, I put on some soothing lotion.  It only hid the pain for a minute before its effects wore off.  At one moment, the affected arm spontaneously flailed around like a nightcrawler attached to a hook.  Before my out-of-control hand could hit my face or break anything, I grabbed it to keep it still.
 
 When it settled down, I continued to scratch at my arm until the area was as moist as the inside of a strawberry jelly filled donut and just as red as the filling.  From underneath I could hear something crackle on my skin.  “It’s the middle of winter in New York.  Mosquito season isn’t happening now, so what’s wrong with my freaking arm?” I wondered.
 
@@ -40,13 +40,13 @@ I brushed the thought off, wrapped an ice pack and bandages around my diseased a
 
 \---
 
-The following morning, I woke up with the prickling sensation still present and even more virulent than the day before.  I yanked open the covers and threw off my undershirt.  
+The following morning, I woke up with the prickling sensation still present and even more virulent than the day before.  I yanked open the covers and threw off my undershirt.
 
 My eye began to twitch.  The arm was still flailing about aimlessly like one half of a bisected worm.  The bruise had increased to double its previous size, this time wine stain purple and beet red in color.  It cloaked my entire left hand in a patch of plague as well.  The vein mass had spread even farther than before.  A pus white discharge leaked out of the sides of some of the sores near the tangled tumors and underneath the fingernails.  Without skipping a beat, I rung up my phone and called my doctor.  I rushed to the car, flooring it all the way to his office.
 
 \---
 
-The moment I get there, I hurried into the reception and told the lady working there that I needed a doctor immediately.  I was so lucky that my arm didn’t go haywire in the moment and slap anyone.  Who knows what would have happened if security saw THAT.  
+The moment I get there, I hurried into the reception and told the lady working there that I needed a doctor immediately.  I was so lucky that my arm didn’t go haywire in the moment and slap anyone.  Who knows what would have happened if security saw THAT.
 
 She directs me to the waiting room covered with a basic white paint job and littered with an assortment of chewed up toys.
 
@@ -78,7 +78,7 @@ As I drove home, I started praying that everything was perfectly fine.  I ground
 
 \---
 
-During the middle of the night, I woke up with a splitting pain by my left side.  I sprinted to the bathroom.  The floor leading to it suddenly felt unusually slick, as if it were greased in cooking oil.  Unseen liquid dripped onto the tile and broke the silence.  
+During the middle of the night, I woke up with a splitting pain by my left side.  I sprinted to the bathroom.  The floor leading to it suddenly felt unusually slick, as if it were greased in cooking oil.  Unseen liquid dripped onto the tile and broke the silence.
 
 I turned on the light and sat down on the rim of my bathtub.  It took a few seconds for my sight to focus, but when it did, what I saw left me slack jawed.
 
@@ -90,7 +90,7 @@ Suddenly, the bed of rooty veins started wriggling around.  Small macaroni shape
 
 A maggot.
 
-I dropped the tweezers and bug in a shock, stamping my foot on the wretched bastard, darting out of the slippery bathroom and searching for my phone.  My body suddenly grew weaker by the second as my arm was chewed up from the inside out.  Glistening wounds resembling spilled grape jelly burst open.  More of the bastards start to slither down to my hand, making it feel like the bones were going to explode.  I army crawl over to my bed stand, now unable to get up at all, only managing to dial the first two numbers before something stopped me.  Giving it all I got, I try to input in the last digit, but my healthy arm just stood still.  
+I dropped the tweezers and bug in a shock, stamping my foot on the wretched bastard, darting out of the slippery bathroom and searching for my phone.  My body suddenly grew weaker by the second as my arm was chewed up from the inside out.  Glistening wounds resembling spilled grape jelly burst open.  More of the bastards start to slither down to my hand, making it feel like the bones were going to explode.  I army crawl over to my bed stand, now unable to get up at all, only managing to dial the first two numbers before something stopped me.  Giving it all I got, I try to input in the last digit, but my healthy arm just stood still.
 
 Why is my arm suddenly paralyzed?  I know I wouldn’t hesitate to call for help in a situation like this!  What gives?
 
@@ -124,7 +124,7 @@ Through the pain, I amble over towards the window, hopelessly trying to stop the
 
 CRASH!  Another window is left splintered, this time coming from my bedroom.  Five separate things, fleshy things, thud to the hardwood floor and slither around.  When I look down the corridor, being pulled like a carriage attached to a troop of millipedes, was a human torso, a rolling head, and two severed legs moving like caterpillars.
 
-As they get closer to me, I can see several tattoos shine in the light on the torso.  Upon closer inspection, I see that it came from an extremely muscular man with a six-pack.  
+As they get closer to me, I can see several tattoos shine in the light on the torso.  Upon closer inspection, I see that it came from an extremely muscular man with a six-pack.
 
 The parasites must have infected another person.  But why?
 
@@ -140,7 +140,7 @@ He resembled Aiden one-hundred-and-ten percent.
 
 At a loss for words, I just sit there in disbelief at the situation, taking an occasional break to hold back the pain of my missing limb.  What the hell was that thing and how did it know what my friend was wearing?  What was it trying to do?
 
-“What…Are you?  Why are you…taking on the…form of my friend?” I tried to pipe up while he fished around my drawers searching for perfect clothing for the weather.  
+“What…Are you?  Why are you…taking on the…form of my friend?” I tried to pipe up while he fished around my drawers searching for perfect clothing for the weather.
 
 Instantly he turns his head around.  My limbs are frozen with fear, so I was in no power to stop him.  And even if I did, what good would it do?  What were those parasites capable of doing to me?  They already took my arm; I know that they can deal even more damage if I dare try to harm whatever the hell that thing was.  He walks up to me, looming over, clasping my throat.
 
@@ -150,7 +150,7 @@ The only response he makes is he puts a finger up to his mouth, smiling like a s
 
 \---
 
-I woke up in a hospital bed with my left side completely bandaged up and fresh.  I hear the sound of a trolley with a blood bag on it getting rolled away.  The sky outside my window was a deep grey, like it could snow at any minute, and an orange horizon is covered by the skyline of New York.  Somehow the clouds were not able to cover the lower sky.  
+I woke up in a hospital bed with my left side completely bandaged up and fresh.  I hear the sound of a trolley with a blood bag on it getting rolled away.  The sky outside my window was a deep grey, like it could snow at any minute, and an orange horizon is covered by the skyline of New York.  Somehow the clouds were not able to cover the lower sky.
 
 I heard someone call my name.  It was a white capped nurse holding a notepad.  She murmured something along the lines of “Patient…Condition…Stable…”
 
@@ -158,19 +158,19 @@ I heard someone call my name.  It was a white capped nurse holding a notepad.  S
 
 “It’s a long story,” I said.  “How long was I passed out?”
 
-“You were slipping in and out of consciousness for about two days.  It’s currently 8:30 pm.”
+“You were slipping in and out of consciousness for about two days.  After that you were in a coma for ten days.  It’s currently 8:30 pm.”
 
 I looked down at my side and smile at her.  “Thanks for saving my life.”
 
 Something caught my eye.  The window has a pair of binoculars resting on it.  I set them into focus, searching for what caught my eye.  Blatantly sticking out of the crowd is a man that exactly resembled the assailant that took my arm.  A blonde speck floats by down another avenue.
 
-Another copy of my friend, matching in body structure and differing only in clothing. 
+Another copy of my friend, matching in body structure and differing only in clothing.
 
 Moving through the various pathways across Central Park are three more clones.  None of the clones ever get close to each other as if operating with completely separate intentions.  In the adjacent street are two more.  They all were close to unaware patrons to blend in, walking at brisk but nonchalant paces.  All of them are spaced far away from each other, but were heading right towards New York’s luxury district.
 
 “I want to be like him in every way,” the clone’s voice echoed through my head.
 
-My breath rattled.  
+My breath rattled.
 
 I leaned over my bed to a nurse taking notes.  “Get me my phone. Now.”
 
@@ -180,6 +180,6 @@ The nurse handed my phone.
 
 “Aiden, get on the phone right now!  This is urgent!  You’re in danger!”
 
-I didn’t care if he acted like a pompous idiot that would fit perfectly on a marriage reality TV program or what exactly he’s trying to do with that; he’s still my friend.  His grit always inspired me.  He told me millions of times when I felt like throwing my computer off a cliff that I need to keep fighting.  I hoped he can keep up that spirit up and fight off whatever those doppelgangers want from him.
+I didn’t care if he acted like a pompous idiot that would fit perfectly on a marriage reality TV program or what exactly he’s trying to do with that; he’s still my friend.  His grit always inspired me.  He told me millions of times when I felt like throwing my computer off a cliff that I need to keep fighting.  I hoped he can keep up that spirit up and fight off whatever those doppelgängers want from him.
 
-The only use I had at the moment was just a stupid phone.  I didn’t even bother asking for the nurses to release me so I could help him.  The only thing I could do is wait for him to get on the phone while I waited for the doppelgangers to strike.
+The only use I had at the moment was just a stupid phone.  I didn’t even bother asking for the nurses to release me so I could help him.  The only thing I could do is wait for him to get on the phone while I waited for the doppelgängers to strike.
