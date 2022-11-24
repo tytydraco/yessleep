@@ -164,7 +164,7 @@ He chuckled. “They sent me the first one when I was fifteen. There were many w
 
  “Oh, wow,” I whispered, feeling her pulse thud against my hand. “That’s amazing. And her skin is very realistic.”
 
-“Really? That's good. I don’t remember what real skin feels like. I hug her at night and I sleep on her lap when we watch movies.”
+“I hug her at night and I sleep on her lap when we watch movies.”
 
 I smiled. “I’m glad she’s with you.”
 
