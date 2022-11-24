@@ -82,7 +82,7 @@ I could also see something curious on my arm - something dark, wet, pooled aroun
 
 And it was coming down from the ceiling, softly dripping off of a round, red circle, right above my bed. It was at that moment that I first truly couldn’t believe I had fallen for whatever I had fallen for. I thought about never seeing my family or friends again. 
 
-I knew one thing for certain: *I was going to die in the Turner Manor.* 
+I knew one thing for certain: *I was going to die in the Turner Manor.*
 
 The thought and blood quickly became afterthoughts because I could hear an argument somewhere else in the house. What sounded like a young woman going at it with older, deeper voices. 
 
@@ -123,3 +123,219 @@ She was replaced by a young woman who stood in the door and looked at me, grave 
 She asked if I was okay. I was honest. I was not. 
 
 She then introduced herself as Sophie, my daughter.
+
+Sophie had come home from university. No one had told her what was going on with me and she was horrified. Her family couldn’t be trusted. 
+
+I didn’t like hearing any of this. Especially that Sophie said it was best at this point for me to go along with her family’s wishes. She was worried about what they might do if I left. 
+
+*So what was I supposed to do? Sit tight until Sophie could figure out the next move.* 
+
+Also, what was the deal with Belle? Sophie’s brow furrowed as soon as I asked the question. 
+
+Belle was dead, remember? Sophie explained to me. 
+
+Oh shit. I was so disoriented by everything I had forgotten the whole entire reason I was even there. Belle had died. 
+
+The room suddenly got very cold. I was going to have to keep staying in this room? I thought about asking Sophie the question, but I saw that she was distracted and looking at the closed bedroom door. Frightened. 
+
+“I have to go.” Sophie said before she went out the door. 
+
+She stopped just before she got out the door. 
+
+“Do not leave the room, please.”
+
+Sophie left me in darkness.
+
+\-
+
+I don’t know how long I laid there in the dark. All I know is that I was eventually woken by the bathroom door slowly opening. 
+
+“Are you there?” I heard Sophie’s voice whisper across the room.
+
+I jumped up out of bed and went to the bathroom door. I had just gotten there when I lost my breath - seeing it was the rotting figure of Belle coming out of the bathroom and not actually Sophie. 
+
+Belle had her cold and clammy hands on my neck before I could do anything. She pushed me back to the bed. 
+
+The speed with which she was able to take my breath away didn’t seem possible. Within moments I was gasping for air and I could feel her sharp nails ripping into my soft neck. 
+
+I could also sense something peculiar from Belle. I could feel her emotions radiating out of her. She just wanted me to stay with her. She was like an aggressive dog you realize is just scared and not angry. I could sense her fear of being alone. 
+
+There was no time to feel sorry for her though. She was choking me out in no time and I felt myself start to flirt with losing consciousness. 
+
+My eyes started to flutter and provided an almost strobing vision of the room, and someone rushed into the space. 
+
+*It was Sophie*. I watched her pry Belle off of me and carry her over to the corner of the room. 
+
+The two of them communicated quietly while I watched and tried to catch my breath with my windpipe still feeling crushed. 
+
+I could breathe. My only problem was my brain and how horrified and traumatized I was. Looking into Belle’s eyes still burning into my mine across the room didn’t help that in the least bit. 
+
+I was relieved to see Belle start to vanish before my eyes. I was quickly alone in the room with Sophie. 
+
+Sophie had a new urgency. She needed to explain everything to me and we needed to start moving. The spirits in the house were more powerful than she thought, and they wanted to take me quickly. 
+
+Also - everyone in the house was dead. All of the people at that dinner. Dead. Grandpa in the bathroom. Dead. 
+
+Belle’s family was a rich family whose noble lineage went back thousands of years. The family established itself centuries before acting as mediums to the occult underworld. They charged prim and proper royalty and the wealthy for access to darkness and evil. 
+
+It made Belle’s family exceptionally powerful and wealthy. It also cursed them. They lived extravagant lives but they also met horrific early deaths and were plagued with mental illness. 
+
+This went on for generation after generation.
+
+The family tree was horrifically rotten by the time Belle arrived. Belle tried to cope with it by living recklessly - drinking and doing things like having unprotected sex with American boys like me. 
+
+It only allowed Belle to cope so much. She was tortured by the family and disgusted by the things that they did.
+
+Belle got drunk one night and tried to end it all. She started several fires in the endless labyrinth that was the manor in the middle of the night. She wanted the entire family to die. 
+
+Belle didn’t succeed in burning the house down at all. She got too drunk and couldn’t get the fires going. 
+
+What she accidently did though was create a gas leak which spread through the entire house. 
+
+The gas leak killed everyone in the house, subtly, and silently. 
+
+*Including Belle.* 
+
+Sophie was lucky to miss going down with the rest of the troubled family. Sort of. She wasn’t affected because she was in a mental health facility in the country. 
+
+The family had learned from Belle’s rebellious ways. As soon as Sophie started to act out as a teen, they sent her away to a glorified asylum, locked her up, and threw away the key. 
+
+This was one of the reasons Belle killed the entire family. 
+
+Sophie felt something horrible at the facility she was at. She knew something had happened at the Manor She was able to get her yearly external visit early and came home to find her entire family dead. 
+
+She would have been happy had she not found Belle amongst the dead family members. Instead, she was lost, broken and alone. 
+
+Her only relief came from getting there before the help found the family dead, so she would be able to report it properly to authorities and not point the finger at Belle and from having a rock solid alibi, having been at the facility when it happened. She made the report and got out of the property as soon as she possibly could.
+
+Sophie started to slow her story. She struggled to get words out. She didn’t want to say what she was going to say. 
+
+She revealed she had lured me to the manor with the letter. With everything. She needed my help. 
+
+*What the fuck?* Sophie knew it was terrible. It was the only way she could survive though. The only way to combat the spirits was with their blood, and she needed help. The spirits would only present to their blood, and technically I was since I was Sophie’s father. 
+
+I was usually an irritable fuck, but I looked into Sophie’s tired and horrified eyes and I was suddenly happy she had tricked me into going halfway across the world to help her fight off a house full of evil spirits. I was game to get her out of there and expand my little life with a daughter. 
+
+Sophie said the dark spirits of the family wanted to end her as revenge on Belle’s spirit for killing them. Sophie also believes if the spirits aren’t fought by her, and me, they could get out and cause serious darkness in the world.
+
+She had tried to exorcize the demons in the manor before. She brought in an outside exorcist. The best in England, but it didn’t work and feared it was going to get her caught. She took what she could from the expert and knew she had to do it on her own, she couldn’t let outsiders truly find out what was going on. 
+
+So it was up to us. We had to work together to expel the evil spirits so Belle’s spirit could rest and Sophie could live on. 
+
+The exorcist had given Sophie trimmings of a dead bush, what she called Dead Brush. A bush grown with the fertilizer of dead bodies, which could create a fog in the air which illuminated the dead. The exorcist used it earlier and Sophie said it worked. 
+
+Then she dropped a bombshell. There was what she called a Hell Hole in the basement of the manor. The exorcist found it and explained it to her. The exorcist could sense it as soon as she had walked into the place. 
+
+The Hell Hole was a hole dug deep in the ground below the manor. Her family used it to transport dark spirits and souls to and from the underworld. It had been there for hundreds of years. 
+
+*And it was still open.* 
+
+The exorcist refused to work with the Hell Hole, even though she said it was the best way to exercise the spirits. They could lure them down into the hole and then seal it with a casing of Holy Water. 
+
+*Guess who was going to do this now?* 
+
+Sophie started by warning me before she lit the Dead Brush in the fireplace in the middle of the manor and watched the smoke of the ugly dead wood spread throughout the space. 
+
+I would be horrified very, very soon, but I didn’t have time to be scared. We had to hurry down to the basement. 
+
+Sophie was right. After a few moments, the haze of the Dead Brush illuminated 10 staggering, charred and rotting corpses on each side of me. 
+
+I recognized the rotten nightmares all around me as the family I ate that first marvelous dinner with. 
+
+I was then yanked away. I held my breath and Sophie whisked me away downstairs. 
+
+We dodged hideous souls the entire way. She never slowed. 
+
+Before I knew it. We were in the frigid basement - a dark, cavernous, brick labyrinth which she navigated with ease, driving us into the back of the space. 
+
+The basement never seemed to end. It just seemed we walked into blackness. With the dark spirits the entire time. And getting closer. 
+
+It was when I felt they were right behind us that the ground gave out from under me. Suddenly I was tumbling with no control over where my body was. 
+
+The only thing anchoring me was my hand holding onto Sophie’s as we plummeted. 
+
+I didn’t feel us land, but suddenly I felt ground beneath my feet. I took a second to get my bearings and could finally see some light - a dim yellow radiating in from the corners of the black room we found ourselves in. 
+
+There wasn’t anything dark or sinister I could see in the room. Worse yet, I could just feel it. I felt like I was in the guts of a brutal monster and it was going to digest me if I spent too much time in there. 
+
+“We’re here,” Sophie whispered to me and pulled my hand, taking me deeper into the room. 
+
+I should correct myself and say it didn’t seem like we were in a room - more of an endless series of hallways which seemed to stretch out forever and in endless directions. It felt like a maze made of dark, jagged, rock walls. 
+
+I could hear and feel the dark spirits. The dark family from the house followed us. 
+
+I looked at Sophie. She broke away from my hand and turned around. There were tears in her eyes. 
+
+“What? What? What the fuck?” I blurted out to Sophie. 
+
+“You’re leaving me here. You’re going to run right back out once they all come to me. Once you’re back in the basement room there’s a water tank, filled with Holy Water. You’ll slide it over the opening and you’ll fly back to America,” Sophie explained, flat, but with tears streaming down her eyes. 
+
+I was still in shock. I thought of something to say. She beat my lips by getting more words out. 
+
+“Everyone in the house was dead except for you. Me included. I just showed up late,” Sophie went on. “I don’t haunt the house. I haunt the asylum where I was trapped, but I won’t anymore. I’ve cleared what’s kept me lingering up there now,” Sophie explained. 
+
+“But you brought me out here?” I asked as I could hear and sense the dark spirits of our family zeroing in on us from behind. 
+
+“I found information about you in some of my mom’s things that I found. Before then I had no idea who you were. I’m sorry I tricked you. I trapped you. I knew it would be messy, but I knew it would be the only way we could get out of this. I can rest now,” Sophie said, her image fading for just a second as the last words dribbled out of her lips. 
+
+I started to join Sophie in her tears. 
+
+“Go. They’ll follow me,” Sophie said, fading away again. “Then I’ll be gone.”  
+
+
+“You’re going to stay in Hell?” I asked, horror dripping off of my voice with every word. 
+
+ “This isn’t Hell. It’s the space in between Hell and oblivion. The veins. I’ll lead them to the gates, then I’ll go my own way,” Sophie explained. 
+
+*“Alone?”*   
+
+
+I watched Sophie’s eyes move behind me to something. I whipped my head around and saw Belle’s spirit standing there - looking beaten and dead, but not grotesque the way she did before. She almost seemed to glow now, and her cracked and bleeding lips seemed to be smiling - or at least trying to. 
+
+“*Not alone*,” Sophie whispered. 
+
+Sophie reached out and slapped my hand, placing something into it that I grasped. 
+
+“Go. Now!” Sophie yelled. “Run through them. Don’t look back. *Ever*.”
+
+I felt my hand leave Sophie’s and I took off running in the direction from which we came. 
+
+I soon came upon the horde of the spirits of the family members, but they paid me no mind. They literally ran right through me. 
+
+It took my breath away for a moment and I heard a ruckus behind me up the tunnel. I paid none of it any mind. I just kept running like Sophie said to do. 
+
+I eventually felt myself push through a dark, invisible barrier and fell into the cold stone of the basement of the manor. 
+
+Sophie was right. I immediately saw a glass tank of water resting next to the entry I had blindly came through. 
+
+I felt a cold and bitter wind come out of the opening. A heard a mournful whine broadcast from somewhere deep in it. 
+
+I pushed the tank over the hole and got out of the basement as fast as I could. 
+
+The manor was odd as I made my way up and through it, back to where I remembered the front door was. It felt so cold then. So empty. All the undead life out of it. 
+
+I also felt it not wanting me to go. I opened the door. I saw daylight. I saw freedom. I saw life. 
+
+Just as if the place was calling to me and trying to keep me in. Lights started to flicker on, one-by-one as I stood there in the open door. 
+
+I felt the door push against my hand a little bit - like it was trying to close itself. 
+
+I pushed back and burst out into the light of the day. 
+
+—
+
+I flew back home. I’ve never been more happy to be in an airport or in coach on a 10-hour flight. 
+
+My house was dark and cold when I got back. A lot like the Chelsea Manor. I had never felt so alone in it. 
+
+I went back to my life. I went back to work. I went back to trying to date. I went back to living all alone in my three-bedroom rustic house. 
+
+Something made me feel less alone the other day though. I put on the sweatshirt I was wearing back at the Chelsea Manor that day when I left. 
+
+I found something in the pocket. A small piece of paper. Written on it in perfect cursive penmanship was a phrase:
+
+*You Are Never Alone.*
+
+I took the paper and put it in my nightstand next to my bed. 
+
+I’ve felt less alone ever since. 
