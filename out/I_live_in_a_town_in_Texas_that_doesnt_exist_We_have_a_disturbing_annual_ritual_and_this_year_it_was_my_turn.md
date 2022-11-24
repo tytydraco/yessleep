@@ -196,7 +196,7 @@ And time for half of us to exit stage left to wherever that might lead.
 
 “Eat your meat.”
 
-A man none of us had noticed him slithered out of the forest. His voice was hardly a whisper but was unshakably commanding.
+A man none of us had noticed had slithered out of the forest. His voice was hardly a whisper but was unshakably commanding.
 
 He bore the crest of our village on his shirt.
 
@@ -266,7 +266,7 @@ We all stood fast in place.
 
 My vision returned, adjusting to the light the flickering flames cast around us.
 
-I consider myself moderately braved. There is no doubt in my mind I would have shrieked like a Banshee and dove rolling off that hill if I had the slightest choice in the matter.
+I consider myself moderately brave. There is no doubt in my mind I would have shrieked like a Banshee and dove rolling off that hill if I had the slightest choice in the matter.
 
 My legs would not move at my command, nor would my voice cry out.
 
@@ -322,7 +322,7 @@ It smeared our faces as they floated by, rain downed on us as they swirled above
 
 “Demons.”
 
-They took turns, each pushing out a breathless whisper. Each wonder sent electricity down my spine.
+They took turns, each pushing out a breathless whisper. Each word sent electricity down my spine.
 
 My eyes caught a few of my classmates wetting themselves.
 
@@ -336,7 +336,7 @@ Each of the monstrosities breathed deep, sucking in the smell of us.
 
 “Meat.”
 
-The dove in, up and down, eyes less, smelling our transfixed bodies, coating us in more and more blood.
+The dove in, up and down, eyeless, smelling our transfixed bodies, coating us in more and more blood.
 
 “Shepherd.”
 
@@ -453,6 +453,8 @@ I just crave beef.
 The Boventus began encircling us, their lidless faces and withered mouths spilling whispers as they cascaded up and down, smelling us.
 
 I thought of Matt. Kind, gentle, honest, and true.
+
+And gone.
 
 I felt them inside my brain.
 
