@@ -73,7 +73,7 @@ Not like it would understand me, though.
 
 The authorities later thanked me for being brave.
 
-Anyway, the creature was eventually taken away to some research facility located just outside of town in order to conduct testing on it.
+Anyway, the creature was eventually taken away to some unknown research facility located just outside of town in order to conduct testing on it.
 
 That was 37 years ago and now, I work for the research facility where the creature is being kept.
 

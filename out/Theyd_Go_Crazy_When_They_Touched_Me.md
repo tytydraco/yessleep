@@ -22,7 +22,7 @@ I started seeing flashes of light as I gulped for air, huffing and wheezing, my 
 
 …
 
-The weeks afterwards were hell. I was strapped down, probed, prodded, scanned, injected, and had samples taken, all without asking me. They also did not feed me anything. I would make noises and struggle, but they did not understand me and I did not understand them. Not until they moved me to a white room and gave me a teacher.
+The weeks afterwards were horrible. I was strapped down, probed, prodded, scanned, injected, and had samples taken, all without asking me. They also did not feed me anything. I would make noises and struggle, but they did not understand me and I did not understand them. Not until they moved me to a white room and gave me a teacher.
 
 She spent months with me, and I tried my best to learn so I could talk to them. When I learned how to ask for food, I asked for it all the time, but they only fed me three times a day. They gave me soup in a cup with a straw and held it up for me as I drank. I never felt more helpless and slighted. My body would make growling sounds as it hurt, but they did not care.
 

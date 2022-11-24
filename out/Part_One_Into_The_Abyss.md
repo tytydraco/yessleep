@@ -40,7 +40,7 @@ And I filled with dread, I had been brought to… Another dimension maybe? I’m
 
 But then an even worse thought struck me, whoever that woman was I felt… If I lose it’ll get her eventually. I knew I couldn’t let that happen. So I open myself up to this connection, and I feel it. I calm the dread I feel filling me and block it out. Then I push out, I search through all the pain and despair searching for her.
 
-And then something, it’s a small connection but I concentrate on it using all my power to block everyone else out. And then something connects and I turn what I’m pretty sure is south. I’m not ready for this, but time to begin.  
+And then something, it’s a small connection but I concentrate on it using all my power to block everyone else out. And then something connects and I turn what I’m pretty sure is south. I’m not ready for this, but time to begin.
 
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)  
+[Part 3](https://www.reddit.com/r/nosleep/comments/z3tgww/part_three_and_then_the_world_broke/)
