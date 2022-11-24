@@ -26,6 +26,8 @@ I wish I could say this cold, lost part of the world was home because my father 
 
 Nobody ever left, or came, to Scythe.
 
+Not permanently. Those who went to get provisions or services found themselves racing back to little corner of the universe. 
+
 In retrospect, life was mostly typical, albeit mind-numbingly dull. My childhood diverged in two profound aspects.
 
 Well, three.
@@ -562,7 +564,7 @@ My father speared a steak and plopped one onto each of our plates.
 
 “So now you know.”
 
-I left town, dear reader, to send you this message. I picked a name at random and mailed it to you. The world should know.
+I am posting this story, dear reader, giving into the temptation of the internet, because someone should know.
 
 The world should know.
 

@@ -98,7 +98,7 @@ I met her eyes. "I have listened to what you said and I am making my choice. I w
 
 Her smile vanished. "How about you take some time to think things over first?" she said, her voice breaking as she stood up. "I'll be back tomorrow. Goodnight, Ty."
 
-I didn't reply, and she wiped a tear before she turned and left. I sniffled as I looked at the tablet. I didn't want to be here. A prisoner forced to live like them and eat like them. I wanted to go back home. Back to where everything was perfect.
+I did not reply, and she wiped a tear before she turned and left. I sniffled as I looked at the tablet. I did not want to be here. A prisoner forced to live like them and eat like them. I wanted to go back home. Back to where everything was perfect.
 
 \-----
 
