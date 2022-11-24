@@ -1,12 +1,13 @@
-Several days ago, I attended a Christmas party when the host asked, *"What was your most memorable Christmas?"*
+Several days ago, I attended a Christmas party where the host asked, *"What was your most memorable Christmas?"*
 
-I thought about it for a moment then said, *"The Christmas of 85."*
+I thought about it for a moment then said, *"The Christmas of 85..."*
+______________________________________________
 
 I can still remember the Christmas of 85 like it was yesterday...
 
-It was a blisteringly cold night on that fateful Christmas back in 85.
+It was blisteringly cold on that fateful Christmas back in 85.
 
-The ground was covered with at least 2 inches of snow due to a blizzard that hit the night before. 
+The ground was covered with 2 inches of snow due to a blizzard that hit the night before. 
 
 I had just finished a 9-hour shift at my Uncle's restaurant (at the local mall) so, I was exhausted and just wanted to go home. 
 
