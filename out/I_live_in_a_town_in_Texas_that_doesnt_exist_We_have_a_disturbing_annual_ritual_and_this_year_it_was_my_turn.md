@@ -272,7 +272,7 @@ My legs would not move at my command, nor would my voice cry out.
 
 We all glanced around, eyes bulging, realizing we were all frozen in place, entrenched by some spell.
 
-Thousands of human skills ringed the hilltop. Maybe tens of thousands. They were piled high, a circular wall of art deco death that never seemed to move.
+Thousands of human skulls ringed the hilltop. Maybe tens of thousands. They were piled high, a circular wall of art deco death that never seemed to move.
 
 A bright and devilish fire danced atop the skulls, never touching them.
 
