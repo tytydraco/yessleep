@@ -1,7 +1,9 @@
 Several days ago, I attended a Christmas party where the host asked, *"What was your most memorable Christmas?"*
 
 I thought about it for a moment then said, *"The Christmas of 85..."*
+
 ______________________________________________
+
 
 I can still remember the Christmas of 85 like it was yesterday...
 
@@ -69,10 +71,10 @@ After they tranquilized the creature, I shouted, *"Monster!"*
 
 Not like it would understand me, though.
 
-Anyway, the creature was eventually taken away to a research facility just outside of town in order to conduct testing on it.
-
 The authorities later thanked me for being brave.
 
-Anyway, I work at the research facility where the creature has been for 37 years...
+Anyway, the creature was eventually taken away to some research facility located just outside of town in order to conduct testing on it.
 
-Last week it escaped and now, I fear for my life...
+That was 37 years ago and now, I work for the research facility where the creature is being kept.
+
+Last week though, the creature escaped and now, I'm in fear for my life...
