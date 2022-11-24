@@ -2,7 +2,7 @@ Several days ago, I attended a Christmas party where the host asked, *"What was 
 
 I thought about it for a moment then said, *"The Christmas of 85..."*
 
-______________________________________________
+
 
 
 I can still remember the Christmas of 85 like it was yesterday...
