@@ -1,5 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/z1ywhz/theres_a_war_raging_under_the_earth_humanity_is/?utm_source=share&utm_medium=web2x&context=3)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/z3wzlc/theres_a_war_raging_under_the_earth_humanity_is/)
+
 When I try to remember the fall of Delta Camp, there are two things that stand out in my memory. Only the knowledge of the truth, and Rodriguez’ mute urging, keeps me writing.
 
 The first thing that stands out is how fast the defences were overrun. 

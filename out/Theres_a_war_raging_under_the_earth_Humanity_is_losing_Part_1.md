@@ -216,4 +216,8 @@ Rogers grabbed a microphone from his desk, keyed it on, and brought it to his li
 
 "Code Black, I repeat, Code Black." he said, his voice tense. "The perimeter is breached. *They’re coming."*
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/z334q8/theres_a_war_raging_under_the_earth_humanity_is/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/z3wzlc/theres_a_war_raging_under_the_earth_humanity_is/)
+
 [x](https://www.reddit.com/r/drunkenwrites)
