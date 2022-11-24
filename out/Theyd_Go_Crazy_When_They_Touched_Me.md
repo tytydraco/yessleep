@@ -1,4 +1,4 @@
-I used to love looking out at the green sky before I was kidnapped. I had it all, a gold throne, a great view, and amazing meals. I never went hungry, and I never had to lift a finger. I was worshipped.
+I used to love looking out at the green sky before I was kidnapped. I had it all, a gold throne, a great view, and amazing meals. I never went hungry, and I never had to do a thing. I was worshipped.
 
 My throne was a domed gold platform hanging beside a huge window. Every time the purple rings would cross each other in the sky, my worshippers would come to me with their offerings. They would place the tray in front of me, and I would drink every last drop. Afterwards, I would roll around, enjoying a warm shower as they sprayed me and my throne with a silky liquid that left us sparkling clean.
 
