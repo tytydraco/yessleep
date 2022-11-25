@@ -28,7 +28,7 @@ Nobody ever left, or came, to Scythe.
 
 Not permanently.
 
-Those who went to get provisions or services found themselves racing back to little corner of the universe. Everything we needed to build, we learned. It had been that way for generation.
+Those who went to get provisions or services found themselves racing back to our little hamlet. Everything we needed to build, we learned. It had been that way for generations. 
 
 A lonely, little self-sufficient blot.
 
