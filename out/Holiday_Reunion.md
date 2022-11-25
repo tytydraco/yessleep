@@ -18,7 +18,7 @@ I’m sitting on my rented bed now, and I’ve written this out here in hopes th
 
 \~\~\~
 
-I slept for too long today. A combination of jet lag and reliving my mom and I’s argument last night that had me tossing and turning, unable to fall asleep for the longest time, meant that I hadn’t been up and awake until after 1pm today. I was on a mission though, bound and determined to fix things. After a half a pot of coffee and a long hot shower, I was up and ready to go and find some answers. I had planned to find my sister, to talk some sense into her. To grab her and shake some damn sense into her if I had to. After I got dressed and went to leave my motel room, I found that I didn’t have to though. When I opened my door, I was standing there just outside.
+I slept for too long today. A combination of jet lag and reliving my mom and I’s argument last night that had me tossing and turning, unable to fall asleep for the longest time, meant that I hadn’t been up and awake until after 1pm today. I was on a mission though, bound and determined to fix things. After a half a pot of coffee and a long hot shower, I was up and ready to go and find some answers. I had planned to find my sister, to talk some sense into her. To grab her and shake some damn sense into her if I had to. After I got dressed and went to leave my motel room, I found that I didn’t have to though. When I opened my door, she was standing there just outside.
 
 Surprised, I began yelling at her. Scolding her like the immature little child that she was. She just stood there though, eyes cast at the ground. She wouldn’t even look at me. I stepped out to further confront her, to really get in her face and shake some sense into her, when I was stopped by a suave tall and dark stranger who had been hiding just out of my sight, right beside my door.
 
@@ -50,7 +50,7 @@ They have some big meeting out in the woods on the edge of town tonight. I’m g
 
 “I watched just long enough to witness the blood start to coalesce into something, something wrong, something from outside the laws of our universe. It was something that should not be. Something horrible, a mass of gelatinous terror that formed and destroyed and formed again, each time more horrible than the last. God, I can still see it when I close my eyes, and yet at the same time I can see myself, looking at me through its eye. When I close my eyes, it gets worse.”
 
-“I can’t stay here. I’m packing my bags right after I finish writing this. I can’t stop crying, I want to get naked and jump into the shower and scrub my eyes raw with a wire brush with the water boiling hot to get rid of this feeling. I don’t think that will be enough. Nothing I do, no matter how long I live will ever be enough. I want to remove my eyes from my skull, but I know that will be worse, because it gets worse when I close my eyes…”
+“I can’t stay here. I’m packing my bags right after I finish recording this. I can’t stop crying, I want to get naked and jump into the shower and scrub my eyes raw with a wire brush with the water boiling hot to get rid of this feeling. I don’t think that will be enough. Nothing I do, no matter how long I live will ever be enough. I want to remove my eyes from my skull, but I know that will be worse, because it gets worse when I close my eyes…”
 
 \*Streamer sets phone down and leaves frame\*
 
