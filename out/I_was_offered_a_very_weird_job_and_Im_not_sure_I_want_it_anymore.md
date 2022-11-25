@@ -1,0 +1,19 @@
+I am a single father with two children. I have to support the family and it’s difficult. I make barely enough money to live, until I found something. One day, I was scrolling on Instagram until I stumbled upon an interesting advertisement for a job. It seemed innocent enough, I had to deliver a package to a house each day.
+
+
+I messaged the person running the account and we wrote back and forth.
+
+ “Hey, I’m interested in this job. How much does it pay?” 
+“3,000$ each day” 
+“Well how can I get started?” “There a few rules you need to follow be for your get started.” 
+
+At this point, I thought it was kind of fishy but it was the best shot I had at making some money. These were the list of rules. 
+
+“1. Make sure to deliver the package as quietly as possible. DO NOT knock on the door 2. Make sure to deliver the package from 3.00 to 4.00 AM. No other time. 3. To get the package, you will have to first drive to a tall office that is 39 stories high. It is located near 275 Darkman street. You will notice the building when you see it. 4. Make sure to go on the elevator on the left, NOT on the right. When in the elevator, first press floor 1 then 39 in that specific order. This step is very important. 5. You will arrive at a room with a person sitting at a desk. Ask them for a package by John. They will give you the package. 6. On the way back, go on the elevator on the left again and press floor 1 and floor 39 in that order again. 7. Make sure to keep the package safe. It cannot be broken. 8. Deliver the package to 617 redrun street” 
+
+At this point I was doubting accepting this job. But for some odd reason, I accepted it.
+The next morning I was ready for the first day of the job. I made sure it was 3 am and drove to 275 darkman street. I immediately spotted the enormous building and walked inside. I walked into the elevator and clicked floor 1 and then floor 39. I saw the man at the desk and asked for the package. I then stepped back into the elevator. Though this time. I noticed it took quite some time to get to the top. I was getting concerned after 10 minutes I still hadn’t got anywhere. I tried calling the police but I had no signal. I tried banging on the walls and yelled for help but it was useless. Around the 25 minute mark, I started experience a lot of shaking. The amount of shaking escalated and before I knew it I was on the floor unable to move. After 10 seconds, the door opened. But something was off.
+
+As the door opened, I was met with hundreds of thousands of humanoid creatures working on high tech computers. The computers were not something human made, they were much more advanced. The second I stepped into the room they all turned around. I froze. They were faceless except for a huge eerie smile on their face. Whatever they were, they were much taller than a regular human. Like I was saying when they turned around, they all repeated the same sentence “You are not supposed to be here”
+
+I turned around but the elevator was gone. I sprinted for my life while they ran after me with inhuman speed. I kept running for my life until I felt something grab my arm with superhuman strength. But when I looked back, everybody was gone. There was no trace of any computers or humans. There was a single elevator and I walked into it. At this point, I don’t know what to do and I’m sitting in this elevator. My arm feels weak and tired. Every few minutes I hear a slight laugh, or maybe a cry, coming out side the door. Then it hit me. I walked into the wrong elevator. I accidentally went into the elevator on the right while walking back. I’ll update you on what happens next.
