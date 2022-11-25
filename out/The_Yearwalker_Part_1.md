@@ -1,4 +1,4 @@
-\[1\] - [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/)
+\[1\] - [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/)
 
 I was born in Maryland in the autumn of ‘99. My biological father, Keith Digman, was never a part of the picture, so I was raised by my mother and stepfather. But after a falling out with my family in the spring of 2019, I was left to fend for myself; financially and otherwise.
 

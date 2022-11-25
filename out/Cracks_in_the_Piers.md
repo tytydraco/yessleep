@@ -1,8 +1,10 @@
-[The Concrete Below the River](https://www.reddit.com/r/nosleep/comments/870ysy/the_concrete_below_the_river/)
+*Part of the series:* [The Concrete Below the River](https://www.reddit.com/r/nosleep/comments/870ysy/the_concrete_below_the_river/)
 
- I’m telling you, and everyone else I know, to just stay away from those God damned concrete piers. There is no reason at all to put your life in jeopardy to photograph yourself next to them. There’s no reason to go up to them to see what they look like. There’s no need to touch them, post them on Instagram, or imitate one for Halloween. I’m glad that radio DJ Lauren Hunter hasn’t received any ill effects, but it’s more unusual to come out unscathed than it is to have this *thing* follow you around for the rest of your days.
+I’m telling you, and everyone else I know, to just stay away from those God damned concrete piers. There is no reason at all to put your life in jeopardy to photograph yourself next to them. There’s no reason to go up to them to see what they look like. There’s no need to touch them, post them on Instagram, or imitate one for Halloween. I’m glad that radio DJ Lauren Hunter hasn’t received any ill effects, but it’s more unusual to come out unscathed than it is to have this *thing* follow you around for the rest of your days.
 
-Of course, maybe she is having problems. Who would she tell? Her listening audience? I told some people once, and where did that get me?
+Of course, maybe she is having problems. Who would she tell? Her listening audience? I told some people once, and where did that get me? 
+
+It had been five years since we had discovered the concrete cube buried underneath the riverbed. At the time, I had been concerned that the low hum it emitted, that seemingly only a few of us could hear, would be a harbinger of death and destruction. Especially after many of my staff experienced effects ranging from headaches to being driven to exceptional self-harm and suicide. I lamented when they incorporated it into the Tawatina bridge structure, a bridge that is now an integral part of the infrastructure for the Edmonton Valley Line LRT system. That means more concrete than ever was now attached to it. I was hoping that would perhaps silence it. But then the cracks started showing up in multiple places further down in the line piers. That’s when I started hearing the cube again. 
 
 “Where did you go just now?” Vanessa inquired.
 
@@ -24,17 +26,15 @@ Vanessa breathed out a sigh of relief and reviewed her notes again. She twirled 
 
 “Just…think of it this way. Whatever is bothering you here isn’t going to be there. Take some time between the work to unwind and enjoy yourself. See some live music. Buy a girl a drink. Have a dance. Get drunk. Do all those things I would counsel all my other clients *not* to do.” Vanessa urged, with a grin on her face.
 
-With that, I left the session, considering what she had mentioned. It was the last item that really had stuck out to me. In the years since I had been plagued with knowing the countdown was on, and that we’d all face certain demise, I had shied away from more or less being human. Whereas some might have found it an excuse to drink, or behave as though there was no consequences to their actions, what with the end of the world coming, I had become so straight-and-narrow, I was essentially dormant. I had become the poster-boy for holding your breath, waiting for the other shoe to drop. Not to mention, mind altering substances aren’t necessarily the first thing you’d want to jump to when you’re questioning your own sanity. 
+With that, I left the session, considering what she had mentioned. It was the last item that really had stuck out to me. In the years since I had first discovered the cube, I had shied away from more or less being human. Whereas some might have found the perceive end of the world as an excuse to drink and fuck and party, I had become so straight-and-narrow, I was essentially dormant. I had become the poster-boy for holding your breath, waiting for the other shoe to drop. Not to mention, mind altering substances aren’t necessarily the first thing you’d want to jump to when you’re questioning your own sanity. 
 
-And while I wasn’t unreliable, I was unreachable. It was a matter of months before my spouse had begun complaining I wasn’t emotionally available. I was disconnected. I’d typically eschew connection for escapism. I began spending a lot of time playing video games and watching tv. I watched my kids grow older and start school, and make friends. I watched my family enjoy sunny days and vacations and life events. But I was not an active participant in any of these things. I had just checked out. The pain of knowing I’d probably lose them was overwhelming. Nothing makes you want to detach from everyone around you faster than thinking they might die horribly. Some might try to spend every last second with their loved ones. To me, that just made it more painful. Call me a coward. I couldn’t do it. I disconnected from them, and so, they moved on from me. I saw my kids three nights every second week. The small experiences I had with them were enough to convince me I was making the most of the time we had remaining. Vanessa recommended I had started spending more time with them. Their mom is reluctant. I want to think everything that happened was imaginary, and I can enjoy the time with them without the pain of thinking I might have to let go. But it hadn’t been easy.
+And while I wasn’t unreliable, I was unreachable. It was a matter of months before my spouse had begun complaining I wasn’t emotionally available. I had eschewed connection for escapism. I began spending a lot of time playing video games and watching tv. In the background, my kids grew older, started school, and made friends. I watched my family enjoy sunny days and vacations and life events. But I was not an active participant in any of these things. I had just checked out. The pain of knowing I’d probably lose them was overwhelming. Nothing makes you want to detach from everyone around you faster than thinking they might die horribly. Some might try to spend every last second with their loved ones. To me, that just made it more painful. Call me a coward. I couldn’t do it. I disconnected from them, and so, they moved on from me. I saw my kids three nights every second week. The small experiences I had with them were enough to convince me I was making the most of the time we had remaining. Vanessa recommended I had started spending more time with them. Their mom is reluctant. I want to think everything that happened was imaginary, and I can enjoy the time with them without the pain of thinking I might have to let go. But it hadn’t been easy. I couldn’t just write off my experiences as being in my head. The same experiences were happening to others, too. 
 
 Vanessa has also recommended I get back into the workforce. The company my grandfather and father had worked so hard to build, the legacy I had spent my formative years solidifying, I had sold as a turn-key operation to other investors. During the pandemic it was easy to find other parties who were looking to strike out on their own, and I had substantial contracts and connections that made my brand difficult to overlook. The income from the sale would be enough to keep me comfortable and solvent for at least a few years. I thought about the potential legacy I may be denying my family. I had asked my five year old son at the time if he wanted to do what Daddy did and take over the family business when he got older. He said he wanted to be a professional baseball player. I hope history goes on long enough for him to realize that dream. Certainly it’s a better calling than being the project manager that discovered the thing that would destroy us all. He could have the love and devotion of fans. I’ll keep being asked every so often by internet strangers if what I found was real. You need only look up the articles.
 
 **Tuesday, October 11, 2022**
 
-It had been an unseasonably warm fall. The trees had only begun to turn colours, which is unusual for an Albertan autumn. Typically, that would have started in late August. I left Vanessa’s office and then stopped briefly at home to finalize my packing. I shoved the beat-up luggage into the nose of my Porsche and set out for Nisku, and the airport. My neighbors most likely believed I was going through some midlife crisis. A divorce, no kids around, a gleaming 911 Targa 4S in the driveway. Me watching hockey on a 75” television in my garage. The day I pulled up in the car to her office, Vanessa had outright asked me if this is what this was. I simply told her that I wanted to know what it was like to own a Porsche before I died. I *suppose* that’s what a midlife crisis is too. Only I had the luxury of knowing that I probably would never have to pay it off. If we’re all going out, might as well rack up that debt. 
-
-After a half hour on the highway, I pulled up to a big yellow building, valeted the Porsche, and took a shuttle to the international terminal. 
+It had been an unseasonably warm fall. The trees had only begun to turn colours, which is unusual for an Albertan autumn. Typically, that would have started in late August. I left Vanessa’s office and then stopped briefly at home to finalize my packing. I shoved the beat-up luggage into the nose of my car and set out for the Edmonton International Airport.  
 
 I appreciated places like the airport. It was noisy, and there was always a lot going on. It was enough to block out the noise in my head and drown any intrusive thoughts. 
 
@@ -60,13 +60,13 @@ I texted my ex to see how the kids were doing. They were fine. In school as usua
 
 I texted Vanessa.
 
-*Had another dream. This time the kids were there.*
+*The dreams have started again. I don’t remember the last time I had one this bad. This time the kids were there.*
 
 I showered and dressed for the ten o’clock meeting I had planned, and awaited her reply.
 
 *It’s normal. You’re starting something new and out of your comfort zone. They’re the thing that makes you feel most vulnerable. They are OK and so are you. Like we talked about: growth can be painful! No pain no gain!*
 
-I kind of sneered at her positivity, but then again, what else could she do? What would occur if I was correct about everything and she had to admit it? Personally, I’d rather it just be true that I’m crazy and therefore nothing is going to happen to the people I care about. 
+I kind of sneered at her positivity, but then again, people who hadn’t experienced the cube’s powers would have a lack of general understanding. To those who hadn’t heard the infernal noise it put into your head, who hadn’t been overtaken by an overwhelming loss of control and immediate desire to self harm, those afraid of a concrete block likely looked simply mentally ill.
 
 I took one last look in the mirror before exiting the small condo I had booked. I tried to button up the top button on my navy suit jacket but it clearly had become too small for me in the last few years of my sedentary, depressive state.
 
@@ -100,7 +100,7 @@ I began looking around the room and out the window. The late morning sun was gle
 
 I was becoming increasingly uncomfortable. The room seemed to be getting hotter. The low frequency buzzing was getting louder and louder. The musty stench became thicker to the point I felt as if I was suffocating. 
 
-“We know that construction techniques around that time weren’t especially sophisticated and a lot of scrap and waste exists…”
+“We know that construction techniques around that time weren’t especially sophisticated, and a lot of scrap and waste exists…”
 
 I thought I began to smell smoke. My face burned as if I had stuck it too close to an open oven door. I looked around the room completely perplexed by what was happening. Dan didn’t seem at all phased.
 
@@ -130,9 +130,9 @@ I hated hearing “trust me” as a reason to do something. I didn’t even trus
 
 Dan straightened up and clasped his hands in front of him. He looked at me very directly. “Usually we tender these types of contracts. We don’t usually sole source them. But I have ensured our board, my colleagues, and higher-ups, that this is *the best* thing we can do here. Everything you and your former company has done was done efficiently, inexpensively, and with exceptional results. That’s what we’re looking for here. I was assured that if I had you down here, we could negotiate something. I’m hoping you won’t make a fool of me.”
 
-If there was one thing that motivated me, it was indeed disapproval by other people. If I returned to Edmonton after bailing on the potential contract, if I embarrassed Scott and Victoria, they had enough clout in the industry to ensure I’d potentially never work again. My money wasn’t going to last forever. Apparently they had told Dan that if he just offered me a price I was looking for I’d say yes. What choice did I have?
+If there was one thing that motivated me, it was indeed disapproval by other people. If I returned to Edmonton after bailing on the potential contract, if I embarrassed Scott and Victoria, they had enough clout in the industry to ensure I’d potentially never work again. My money wasn’t going to last forever. Apparently, they had told Dan that if he just offered me a price I was looking for I’d say yes. What choice did I have?
 
-“What is the opportunity to work remotely? I have kids back home and…well…their Mom and me aren’t together anymore. So I can’t exactly move them with me…” I figured playing to his sense of humanity might work. I didn’t like using the kids as an excuse to get out of something, but my objection *was* true. Also, if I *was* going to take on this job, I definitely wasn’t going to personally watch the jobsite descend into a chaotic bloodbath in person. 
+“What is the opportunity to work remotely? I have kids back home and…well…their mom and me aren’t together anymore. So I can’t exactly move them with me…” I figured playing to his sense of humanity might work. I didn’t like using the kids as an excuse to get out of something, but my objection *was* true. Also, if I *was* going to take on this job, I definitely wasn’t going to personally watch the jobsite descend into a chaotic bloodbath in person. 
 
 “Well, that is a concern. Typically I’d like my project managers to have their finger on the pulse…”
 
@@ -146,12 +146,28 @@ If there was one thing that motivated me, it was indeed disapproval by other peo
 
 “Great! Well we’ll send you the proposal and if it looks good, you can sign it and send it back to us as soon as possible. I’m open to negotiating if need be!” Dan cut me off quickly and began wrapping things up. I was hoping between the time I softly uttered what he took as a confirmation, and whenever he sent me a contract, I could come up with maybe some other means of escaping the project with my integrity intact. “You should have the proposal in your email before you get back to your hotel!”
 
-*Fuck!* That didn’t leave me much time. Perhaps the cube would destroy everything in the twenty minute drive back to the hotel. Then again, there wasn’t much hope of that. In the past four years the original cube hadn’t done much. Or had it? I had been out of the game a while. I didn’t want to know what the thing was doing so I stayed away from it. Perhaps it was still claiming victims. 
+*Fuck!* That didn’t leave me much time. Perhaps the cube would destroy everything in the twenty-minute drive back to the hotel. Then again, there wasn’t much hope of that. In the past four years the original cube hadn’t done much. Or had it? I had been out of the game a while. I didn’t want to know what the thing was doing so I stayed away from it. Perhaps it was still claiming victims. 
 
 “Now! You’re in Music City! I suggest you get out there and see everything it has to offer. Get yourself some hot chicken!” And with that Dan brought me back to the moment, and I was reminded of my original mission that Vanessa had left me with. I shook his hand and departed. 
 
-It was noon when I hit Broadway, and the high sun made wearing a suit unbearable. I ducked into a boot shop just for the temporary air conditioning. *Buy one, get two free.* I couldn’t fathom how their business model worked, aside from extreme mark-ups. However, I’m sure my kids would be disappointed if I had come back with no souvenirs, and I was already near the back of the pack in the father-of-the-year race, flanked and ready to be overtaken by men who convinced their kids to reach under a lawn mower to pull a jam out of it, or guys who had gone for cigarettes and never come back. I selected a pink, bejeweled pair for my daughter, a pair with red and blue on it that looked like it could have been Spider Man licensed for my son, and the way the twenty-something female sales associate swooned at a pair of white python boots I tried on made me somehow swallow the four hundred dollar price tag. 
+It was noon when I hit Broadway, and the high sun made wearing a suit unbearable. I ducked into a boot shop just for the temporary air conditioning. *Buy one, get two free.* I couldn’t fathom how their business model worked, aside from extreme mark-ups. However, I’m sure my kids would be disappointed if I had come back with no souvenirs, and I was already near the back of the pack in the father-of-the-year race, flanked and ready to be overtaken by men who convinced their kids to reach under a lawn mower to pull a jam out of it, or guys who had gone for cigarettes and never come back. I selected a pink bejewelled pair for my daughter, a pair with red and blue on it that looked like it could have been spiderman licensed for my son, and the way the twenty-something female sales associate swooned at a pair of white python boots I tried on made me somehow swallow the four hundred dollar price tag. 
 
-I left the store smiling, but in short order I decided to retreat to my Air BnB. The low hum that I had heard in the office was present again. I could hear it even over the miles of bands playing Johnny Cash covers. I hustled back to my rental car and drove straight back to my accommodations. I peeled off my suit, put in my earphones and turned up *Lamb of God*, sufficiently loud enough to drown out the pestilent hum. 
+I left the store smiling, but in short order I decided to retreat to my Air BnB. The low hum that I had heard in the office was present again. The cube was calling to me. I could hear it even over the miles of bands playing Johnny Cash covers. I hustled back to my rental car and drove straight back to my accommodations.
 
-*I'll tell you more when I wake up.*
+When I burst through the door of the Air BnB condo, the hum was now so loud I could barely walk. I peeled off my suit and tore into the bathroom. My whole body began to shake. The noise had reached a crescendo to the point I felt as if my teeth were actually vibrating, as if I had rested my chin directly on a running metal grinder.
+
+There was only one way to make it stop.
+
+I searched around the bathroom counter and through my shaving kit for something sharp. Nothing could be found. Desperate, I smashed a bottle of Body Shop *White Musk for Men* cologne against the counter top, until I had a sufficiently sized shard of glass. 
+
+The buzzing in my head had caused my vision to become blurry. White shimmering circles overtook my eyes until I could barely see what was in front of me.
+
+I fell to my knees and crawled into the shower, turning the water to only cold. I began to cut my upper arms and legs. With each cut, the sound of the cube ringing in my head became slightly less. After the noise had sufficiently reduced, I ensured to make small superficial cuts, avoiding any significant veins or arteries, until the sound had nearly extinguished completely. 
+
+*What the hell did it want from me now?*
+
+I was exhausted. 
+
+I stumbled out of the shower, drying myself with a towel that would end up being a sopping, bloody pink heap on the floor. 
+
+I crawled into bed without treating my wounds. I could barely lift my arms or legs. I put in my earphones and turned up *Lamb of God*, sufficiently loud enough to drown out the pestilent hum, should it attempt to return. 
