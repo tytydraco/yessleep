@@ -1,4 +1,4 @@
-Part One: Into the Abyss
+&#x200B;
 
 Have you ever traveled across space, time, and dimensions to battle an inter-dimensional demi god hell bound on eating the soul of the girl you love? Did you have to travel back to your dimension and live without her while staying in love with only her until you die? Well I have, let me tell you how it all happened.
 
@@ -43,4 +43,6 @@ But then an even worse thought struck me, whoever that woman was I felt… If I 
 And then something, it’s a small connection but I concentrate on it using all my power to block everyone else out. And then something connects and I turn what I’m pretty sure is south. I’m not ready for this, but time to begin.
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)  
+
+
 [Part 3](https://www.reddit.com/r/nosleep/comments/z3tgww/part_three_and_then_the_world_broke/)
