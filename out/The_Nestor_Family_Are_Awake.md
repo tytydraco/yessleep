@@ -67,7 +67,7 @@ I already knew what it was. It was the device buried inside our heads. If we fai
 
 Before we could react, he took pleasure in saying our activation code one final time, bringing my already empty thoughts to a  standstill.
 
-Slowly, my lips stretched into a smile which split my lips apart and I spoke in childlike glee.
+Slowly, my mouth stretched into a smile which split my lips apart and I spoke in childlike glee.
 
 Next to me, the others did the same.
 
@@ -111,7 +111,7 @@ I was on the edge of my seat. Literally. Johnny took the opportunity to dive for
 
 Jumping to my feet, I nodded at my mother. She wasn’t smiling as usual, her expression frozen into permanent impatience. She did smile, but it was rare. Mother only smiled when either of us reported getting closer to Connor Aisling. We had all worked hard to get to know the family. Mom gifted them casserole and freshly made pies, dad befriended Connor’s father through their mutual job, and my siblings and got close to him at school. In Mother’s hands was a casserole. The smell gathered in my nose and throat. It smelled wonderful. I did notice the sauce looked thicker than usual. 
 
-Was mother trying a new a recipe? I hoped so.
+Was mother trying a new a recipe? I hoped so. "Wendy, darling," Mom spoke in a soft breath.
 
 “Did you invite Connor Aisling to dinner like I asked?”
 
@@ -411,9 +411,13 @@ Mother and Father’s smiles remained, despite their panicked yells. “Wait!”
 
 Her lips formed a merciless smile, curving around our self-destruct trigger.
 
+Mother dropped first, an explosion in the back of her head. 
+
+Then Father. 
+
 Seeing Mother and Father self-destruct only brought more pain I shouldn’t have been able to feel, and accompanying that, a memory.
 
-This time I was in a classroom. The desks were mostly empty, apart from a select few. Caine was at front, standing on a chair. “Whoever these people are, they’re in our town!” He yelled. “They’re taking us, our moms and dads, our brother’s and sister’s. Even our grandparents.”
+This time I was in a classroom. The desks were mostly empty, apart from a select few. Caine was at the front, standing on a chair. “Whoever these people are, they’re in our town!” He yelled. “They’re taking us, our moms and dads, our brother’s and sister’s. Even our grandparents.”
 
 “And what we are supposed to do?” A girl leaned forward on her desk, her eyes raw from crying. “What the fuck are we supposed to do, Caine?”
 
@@ -459,7 +463,7 @@ He stuck the drill into his temple. “Drill until you hit something springy. It
 
 “What do you mean permanent?” 
 
-“I mean permanent.” Caine got closer—- and the boy in front of me turned around, his identity finally bleeding into view.
+“I mean mind altering permanent.” Caine got closer—- and the boy in front of me turned around, his identity finally bleeding into view.
 
 I recognised him. His lips formed a smile.
 
@@ -468,12 +472,18 @@ Peter.
 “Well, shit,” he shot me a teasing grin. “Let’s hope we don’t get taken, yeah?”
 
 
--
+... 
+
+... 
+
+... 
 
 
 “Let’s hope we don’t get taken, yeah?”
 
-His voice was in my head, at the exact time my gaze flashes to Peter. I didn’t feel anything for him. He was nothing to me. But in splinters of my memory, he had existed. Meant something. The woman was still displayed on the laptop smiling widely, after witnessing the death of Mother and Father.  “I’ll give the Nestor siblings a little longer,” she said with a light laugh.  “You are children, after all. Let’s call it mercy.”
+His voice was in my head, at the exact time my gaze flashed to Peter. I didn’t feel anything for him. He was nothing to me. But in splinters of my memory, he had existed in her life. Meant something to the mind wiped from me. 
+
+The woman was still displayed on the laptop smiling widely, after witnessing the death of Mother and Father.  “I’ll give the Nestor siblings a little longer,” she said with a light laugh.  “You are children, after all. Let’s call it mercy.”
 
 The laptop exploded. Peter’s voice echoed in my ear, as my brain started to boil. Something ran from my nose. But I was too busy looking next to me. The same face in the classroom. Caine’s best friend. Who Other Me had risked her life to save.  “Let’s not get taken, yeah?”
 
@@ -481,7 +491,9 @@ I’m sure you know what I did next.
 
 I did exactly what Caine had told me to do, regardless of it sounding ridiculous. 
 
-I grabbed a rag and bit into it, pressed as much pressure as possible, and drilled until I was screaming into the gag, until blood was running down my face and neck, screaming against waves of pain hitting me—until it hit something. I felt the weight of it. Gritting my teeth, I wrapped my fingers around it and yanked as hard as I could until my fingers were bloody, and a coil of metal, the ends flashing red, was in my fist. It was only when I had managed to remove the O27 from Peter and Jane, did I pick up a low beeping down. A countdown, I thought. They were getting rid of us, and then every trace we existed.
+I grabbed a rag and bit into it, pressed as much pressure as possible, and drilled until I was screaming into the gag, until blood was running down my face and neck, screaming against waves of pain hitting me—until it hit something. I felt the weight of it. Gritting my teeth, I wrapped my fingers around it and yanked as hard as I could until my fingers were bloody, and a coil of metal, the ends flashing red, was in my fist. It was only when I had managed to remove the O27 from Peter and Jane, did I pick up a low beeping noise. 
+
+A countdown, I thought. They were getting rid of us, and then every trace we existed.
 
 59. 
 
@@ -493,14 +505,19 @@ A mechanical voice spoke inside my head.
 
 56.
 
-The voice was counting down from 20 by the time I was dragging them, Johnny over my shoulder, and Peter and Jane stumbling in my arms. When my feet touched grass, a blast threw me to the ground, and once my face was buried in dirt and mildew, I was laughing until I couldn’t breathe. I felt like I was dying, blood seeping from my head, my thoughts dizzy. But the first time in so long I was able to laugh for myself.
+The voice was counting down from 20 by the time I was dragging them, Johnny over my shoulder, and Peter and Jane stumbling in my arms. When my feet touched grass, a blast threw me to the ground, and once my face was buried in dirt and mildew, I was laughing until I couldn’t breathe. I felt like I was dying, blood seeping from my head, my thoughts dizzy. But the first time in so long I was able to laugh for myself. 
 
 Think for myself.
 
+And with my siblings next to me, I felt content. 
+
 Three days later, I am alone.
 
-Makeshift bandages are working, but we really need a hospital.  
+They are not waking up. 
 
+I am alone and its not fair! 
+
+Makeshift bandages are working, but we really need a hospital.  
 
 Whoever Caine is, he was wrong— or at least, he was wrong about some things. Removing the O27 does not bring us back. It just removes initial programming. 
 

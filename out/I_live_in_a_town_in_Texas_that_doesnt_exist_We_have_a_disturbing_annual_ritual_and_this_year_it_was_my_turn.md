@@ -26,7 +26,11 @@ I wish I could say this cold, lost part of the world was home because my father 
 
 Nobody ever left, or came, to Scythe.
 
-Not permanently. Those who went to get provisions or services found themselves racing back to little corner of the universe. 
+Not permanently.
+
+Those who went to get provisions or services found themselves racing back to little corner of the universe. Everything we needed to build, we learned. It had been that way for generation.
+
+A lonely, little self-sufficient blot.
 
 In retrospect, life was mostly typical, albeit mind-numbingly dull. My childhood diverged in two profound aspects.
 
