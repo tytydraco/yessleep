@@ -77,7 +77,12 @@ We looked across the room.
 “That’s my mother,” whispered Laney, who had been silent as we killed her father. “She’s much more dangerous than my dad, and she’s [floating outside the window](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
 
+-------------
 
+[How this shit wrapped up](https://www.reddit.com/r/nosleep/comments/z57lxa/im_a_private_contractor_who_kills_people_part_of/?)
+
+
+------------
 
 
 
