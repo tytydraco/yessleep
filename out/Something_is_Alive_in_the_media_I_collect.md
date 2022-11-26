@@ -2,7 +2,7 @@ This will be chronicled in a few other posts, just to really capture the metric 
 
 Growing up, my family wasn't very wealthy. I wasn't born in the USA, rather down even further south, in Colombia. Getting official DVDs of movies, TV shows, even games was far out of my families financial capabilities.
 
-Unless you went elsewhere! And that's how I got myself so intertwined with the world of bootlegs. Bad rips of TV shows, movies, shitty renditions of games made for cheap, sold for cheap, and poor parents bought. I don't blame my folks—they were always just trying to make me happy. This sparked my fascination with them, once we eventually moved into the US. Getting the real thing, and comparing it to whatever the hell I got, that didn't repulse me from thar world; infact it sparked a flame of curiosity! What could I find from the most second-hand of markets?
+Unless you went elsewhere! And that's how I got myself so intertwined with the world of bootlegs. Bad rips of TV shows, movies, shitty renditions of games made for cheap, sold for cheap, and poor parents bought. I don't blame my folks—they were always just trying to make me happy. This sparked my fascination with them, once we eventually moved into the US. Getting the real thing, and comparing it to whatever the hell I got, that didn't repulse me from that world; infact it sparked a flame of curiosity! What could I find from the most second-hand of markets?
 
 Come my teen years, working minimum wage, spending half on that on this interest of mine. I usually find them off cheaper than cheap listings on Ebay, flea markets, thrift stores, garage sales—anything not from official means. Not so much for the content that's labeled on the box, more what it *actually* was.
 
