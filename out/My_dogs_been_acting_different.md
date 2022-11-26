@@ -51,4 +51,4 @@ I can’t move.
 
 My dog has been standing in the corner of my room. Watching me. It’s in the back right corner where the light from the window doesn’t hit. I can see its blurred and lowered form quivering slightly in the shadow of my bed. I think its head is cocked over, mouth grinning, showing teeth. I see its two yellow eyes. Wide and glaring at me. Unmoving. 
 
-I woke up at one and it was there. I know I shut my door. Its been right fucking there. It’s  7:26am. It just sighed in my voice.
+I woke up at three and it was there. I know I shut my door. Its been right fucking there. It’s  7:26am. It just sighed in my voice.
