@@ -8,9 +8,9 @@ The worst, by far, was the smell. No matter what I brought into the bathroom, it
 
 &#x200B;
 
-Little over a week into January, I met up with Jonathan again. I was feeling a bit weak, like a cold was coming on. I thought about staying home, but Jonathan insisted; and I got the feeling he wasn’t the kind of person you should say no to.
+Little over a week into January, I met up with John again. I was feeling a bit weak, like a cold was coming on. I thought about staying home, but John insisted; and I got the feeling he wasn’t the kind of person you should say no to.
 
-Arriving at the same old corner pub, I found Jonathan with a nacho plate and a beer. He wasn’t even pretending to eat something this time. He’d tucked the stray hairs of silver behind his ear, as if to cover them up.
+Arriving at the same old corner pub, I found John with a nacho plate and a beer. He wasn’t even pretending to eat something this time. He’d tucked the stray hairs of silver behind his ear, as if to cover them up.
 
 “You alright there?” he asked.
 
@@ -24,7 +24,7 @@ Arriving at the same old corner pub, I found Jonathan with a nacho plate and a b
 
 &#x200B;
 
-He pushed the nacho plate to me and leaned in. There were a few other guests in the back, but I got the impression no one was listening. Maybe Jonathan was a regular.
+He pushed the nacho plate to me and leaned in. There were a few other guests in the back, but I got the impression no one was listening. Maybe John was a regular.
 
 “I still don’t get it,” I said. “I don’t understand what the hell that thing was.”
 
@@ -42,7 +42,7 @@ I didn’t even try to understand. I just stuffed my face with cheese and corn c
 
 &#x200B;
 
-“I think what came out of the pipes was a fluke,” said Jonathan. “Most of our water runs through a nearby reservoir, and they’ve been having some trouble. I think something dislodged and got into the system.”
+“I think what came out of the pipes was a fluke,” said John. “Most of our water runs through a nearby reservoir, and they’ve been having some trouble. I think something dislodged and got into the system.”
 
 “Nasty stuff,” I said in-between bites. “Not a fan.”
 
@@ -56,7 +56,7 @@ I didn’t even try to understand. I just stuffed my face with cheese and corn c
 
 &#x200B;
 
-I wiped my face and drank my beer. Jonathan just looked at me, hands crossed.
+I wiped my face and drank my beer. John just looked at me, hands crossed.
 
 “I’m asking you,” he said. “If that stuff comes up again, save it. Take it to me.”
 
@@ -64,7 +64,7 @@ I wiped my face and drank my beer. Jonathan just looked at me, hands crossed.
 
 “Do I need a reason for you to help me?”
 
-I hadn’t been entirely serious, but Jonathan was nothing but. I could see the red of his eye poking out from his dark sunglasses. This wasn’t him asking nicely.
+I hadn’t been entirely serious, but John was nothing but. I could see the red of his eye poking out from his dark sunglasses. This wasn’t him asking nicely.
 
 “Sure,” I nodded. “Fine.”
 
@@ -116,11 +116,11 @@ There, on the other side of the street, was a dark shape. At the edge of the str
 
 I couldn’t believe my eyes.
 
-I picked up my phone, stepped back, and looked for Jonathan’s number. My fingers shook so much I put in the wrong code twice. I never turned my back on that window. The thing was tall enough to reach inside my goddamn bedroom.
+I picked up my phone, stepped back, and looked for John's number. My fingers shook so much I put in the wrong code twice. I never turned my back on that window. The thing was tall enough to reach inside my goddamn bedroom.
 
 &#x200B;
 
-“You feeling better?” Jonathan’s voice came through.
+“You feeling better?” John's voice came through.
 
 “No!” I screamed. “No, it’s… oh God.”
 
@@ -160,7 +160,7 @@ I looked outside. I tried to see something. I tried to *make* myself see somethi
 
 I fetched a blanket and curled up on the couch. I probably had to throw away my bed completely. As the blue stains sunk through the mattress, I realized there was no way I was getting rid of the smell. Then again, I had plenty of extra cash on hand. More than enough for a bed.
 
-What the hell did Jonathan do for a living anyway?
+What the hell did John do for a living anyway?
 
 As my stomach calmed, I drifted off to a restless sleep.
 
@@ -190,7 +190,7 @@ I jumped off the couch, almost slipping on my sweaty feet.
 
 I just screamed out reflexively. As I did, it retracted. It was fast, and completely soundless. Like bumping into a little fish in the dark of a nightmare.
 
-I decided I’d count the hours until Jonathan got there. I tried sending him a text, but my fingers were too slippery for the screen. I wasn’t gonna turn my back on that window, so I just had to wait. I could do that. I could wait.
+I decided I’d count the hours until John got there. I tried sending him a text, but my fingers were too slippery for the screen. I wasn’t gonna turn my back on that window, so I just had to wait. I could do that. I could wait.
 
 I thought back on that thing I’d seen in the bathroom. That monstrous thing, calling me the ‘little wheat’. Maybe this was why it didn’t eat me. Maybe whatever dropped out of that showerhead was so awful that it made an otherworldly predator turn its’ back on me. And maybe this was the price I had to pay for surviving that night.
 
@@ -220,7 +220,7 @@ The phone rang.
 
 &#x200B;
 
-I fumbled it out of my pocket. I answered the call, hearing Jonathan’s voice for a brief second.
+I fumbled it out of my pocket. I answered the call, hearing John's voice for a brief second.
 
 “I’m about five-six minutes away, I’m-“
 
@@ -278,17 +278,17 @@ The bathroom door flung wide open.
 
 In the blink of an eye, I saw the bulbous head of the creature, pulled back to reveal a massive skull the size of my torso. A cranium covered in void-black veins, pulsating with excitement.
 
-Jonathan Digman grabbed my arm and pulled; hard. I thought he’d pull my arm straight out of the socket. Maybe the surprise of it all had the creature staggered, as it let go. It retreated, hundreds of little tendrils getting sucked back into the pipes.
+John Digman grabbed my arm and pulled; hard. I thought he’d pull my arm straight out of the socket. Maybe the surprise of it all had the creature staggered, as it let go. It retreated, hundreds of little tendrils getting sucked back into the pipes.
 
-“Fucking *hell*,” Jonathan spat. “When the fuck did he get out of his fucking washing machine?!”
+“Fucking *hell*,” John spat. “When the fuck did he get out of his fucking washing machine?!”
 
 &#x200B;
 
 I leaned on him as he hurried to get me outside. I could see black goo running down my chest. I must’ve thrown up more than I thought.
 
-“That’s it,” Jonathan said. “You’re staying with me. Enough of this.”
+“That’s it,” John said. “You’re staying with me. Enough of this.”
 
-He helped me down the stairs, where I could see my landlord smoking in the hallway. Jonathan walked straight past her.
+He helped me down the stairs, where I could see my landlord smoking in the hallway. John walked straight past her.
 
 “No time, Leah,” he said. “And keep your fucking brother away.”
 
@@ -300,29 +300,29 @@ He helped me down the stairs, where I could see my landlord smoking in the hallw
 
 &#x200B;
 
-Jonathan kicked the front door open.
+John kicked the front door open.
 
 And there it was. 11 feet tall, rippling with pent-up strength. Like ripples in a river, the shakes were so violent I could hear the vibrations. Peeking out of corners of its’ visage, I could spot parts of a giant  skeleton hiding in the dark.
 
 “Jesus Chri-… hold on.”
 
-Jonathan dropped me like a sack of potatoes and rushed back inside. The creature immediately reached for me. It didn’t bother staying quiet anymore, and it didn’t care if I knew. The viper was striking. I pushed myself back against the wall, shielding myself, screaming my throat raw.
+John dropped me like a sack of potatoes and rushed back inside. The creature immediately reached for me. It didn’t bother staying quiet anymore, and it didn’t care if I knew. The viper was striking. I pushed myself back against the wall, shielding myself, screaming my throat raw.
 
 But nothing came of it.
 
-A little flick in the dark, as Jonathan held up my landlords’ lighter. For a brief second, the creature just looked at us; repelled by the flame.
+A little flick in the dark, as John held up my landlords’ lighter. For a brief second, the creature just looked at us; repelled by the flame.
 
-“Just go back to sleep, Hank!” Jonathan called out. “Or go back to the quarry! I don’t fucking know what you do, but unless you want to become a walking fucking tire fire, you better *fuck* right off!”
+“Just go back to sleep, Hank!” John called out. “Or go back to the quarry! I don’t fucking know what you do, but unless you want to become a walking fucking tire fire, you better *fuck* right off!”
 
 It circled us. A single step taking it a cars’ length in either direction. It stared intently at us. Glimpses of a death’s head moving in and out of the void.
 
-“You got plenty of it up in the apartment,” Jonathan said. “Take it. Leave us the fuck alone.”
+“You got plenty of it up in the apartment,” John said. “Take it. Leave us the fuck alone.”
 
 Whatever bargain he struck must’ve worked. Moments later, it melted into the dark of the night, and disappeared.
 
 &#x200B;
 
-Jonathan pushed me into his car. My mind was racing, and I just looked around me. I could imagine shapes in the dark, like it was still out there. I tried to focus on a single thing to calm my heart, but nothing seemed to work. My stomach still turned over and over, like a washing machine.
+John pushed me into his car. My mind was racing, and I just looked around me. I could imagine shapes in the dark, like it was still out there. I tried to focus on a single thing to calm my heart, but nothing seemed to work. My stomach still turned over and over, like a washing machine.
 
 “Just stay awake,” he said. “I think I know what you got, and I know what to do.”
 
@@ -330,7 +330,7 @@ Jonathan pushed me into his car. My mind was racing, and I just looked around me
 
 “Right,” he said. “Right. Hank. Yeah, we ought to talk about that.”
 
-I focused on him. I bobbed my head back and forth, trying to keep my eyes from rolling back. Jonathan stepped on the gas. The little streaks of silver in his hair were solid metal, with little copper endings. They really were cables.
+I focused on him. I bobbed my head back and forth, trying to keep my eyes from rolling back. John stepped on the gas. The little streaks of silver in his hair were solid metal, with little copper endings. They really were cables.
 
 “Y-you… you got-“
 
@@ -338,17 +338,17 @@ And I passed out.
 
 &#x200B;
 
-I have a vague memory of waking up every now and then. I remember being carried. I remember pain, pieces of tape, a beeping sound. I remember a bucket, and Jonathan beating a machine to life.
+I have a vague memory of waking up every now and then. I remember being carried. I remember pain, pieces of tape, a beeping sound. I remember a bucket, and John beating a machine to life.
 
 And as the sun rose, I woke up in a bed.
 
 &#x200B;
 
-Jonathan had to pump my stomach and put me on a round of dialysis. When I woke up, I thought that whole thing had been a nightmare. The sun was so warm, shining on my face, and the sheets were so soft. Like no one had ever slept in that bed.
+John had to pump my stomach and put me on a round of dialysis. When I woke up, I thought that whole thing had been a nightmare. The sun was so warm, shining on my face, and the sheets were so soft. Like no one had ever slept in that bed.
 
-Jonathan checked my temperature, took a blood sample, and had me swallow a handful of vitamins. He still wore his sunglasses. I just did what he said. I was so happy not to have my stomach turn that I didn’t mind. I was already hankering for a sandwich, maybe some orange juice.
+John  checked my temperature, took a blood sample, and had me swallow a handful of vitamins. He still wore his sunglasses. I just did what he said. I was so happy not to have my stomach turn that I didn’t mind. I was already hankering for a sandwich, maybe some orange juice.
 
-“It’s a sort of build-up,” Jonathan said bluntly. “That shit stays in your system for a long time. I can get it out, but you’ll need regular check-ups.”
+“It’s a sort of build-up,” John said bluntly. “That shit stays in your system for a long time. I can get it out, but you’ll need regular check-ups.”
 
 “What… what is it?”
 
@@ -364,7 +364,7 @@ He sat down on the edge of the bed, patting my bandaged leg. Most of me was band
 
 &#x200B;
 
-Jonathan got back up and looked out the window. For a moment, I feared a hand would appear, but nothing happened.
+John got back up and looked out the window. For a moment, I feared a hand would appear, but nothing happened.
 
 “Now imagine life evolved there,” he continued. “Isolated and independent from everything else. Life that needs the nutrients and minerals contained in that ecosystem.”
 
@@ -390,7 +390,7 @@ He sat down on the floor next to me, leaning against the wall. I could see the e
 
 “Sort of, yeah. They’re not really just one thing.”
 
-Jonathan got back up and stretched. He adjusted his sunglasses, snapped his fingers, and headed for the door.
+John got back up and stretched. He adjusted his sunglasses, snapped his fingers, and headed for the door.
 
 “I’ll get you breakfast. You’ll be staying with me from now on.”
 
@@ -402,7 +402,7 @@ He stopped by the door, looking back on me.
 
 &#x200B;
 
-Jonathan nodded.
+John nodded.
 
 “Right, yeah,” he said. “There’s that.”
 
