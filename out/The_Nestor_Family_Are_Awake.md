@@ -59,7 +59,7 @@ Not even an hour old.
 
 Having already been equipped with the necessary abilities to carry out my orders, I was quick on my feet when told to turn to the left and the right. When I was shot at, my body reacted automatically, disarming the guard standing next to me and hitting the cardboard target.  Risking a sharp glance to my left, I allowed myself to look at my siblings properly. But there was nothing of them to drink in. I was looking at empty and unblinking eyes focused on looming figures testing our reaction times. 
 
-If there ever had been something, it had been away hours before inside the room with the bleeping machines. We had an audience, along with the people in black testing our activation code. The word slipped inside my mind, easily slicing its way through my thoughts. Once said, my body was theirs, my thoughts puppeteered.
+If there ever had been something, it had been torn away hours before inside the room with the bleeping machines. We had an audience, along with the people in black testing our activation code. The word slipped inside my mind, easily slicing its way through my thoughts. Once said, my body was theirs, my thoughts puppeteered.
 
 Standing in the middle was the only silhouette I recognised.  I knew the man from her memories. I knew the cruel curve of his lips went he bent over her and forced the metal rod in further, revelling in her choked scream, the crunch of the end splitting her skull apart and sending her body writhing against velcro. The man was more shadow than human, his identity hidden in overexposed light. I did see what was pinched between his thumb and finger.  It was a small device, a coil, or a spring. He didn’t explain what it was, but he didn’t need to. 
 
@@ -301,7 +301,9 @@ Blue.
 
 Black and white.
 
-It was like my perception was faltering. I thought the colours would  leave, but they stayed, exploding once more, and this time drenching my siblings looming over me, and bringing them to life with the rest of the world. I didn’t know Peter’s hair was red until right then. Johnny’s hair was more of a chestnut shade, while Jane was a blonde like me. Their faces startled me for the first time, especially when I took a moment to fully take them in. Their expressions were frozen, seemingly varying between three. Joyful, horrified, and content. They weren’t blinking either. 
+It was like my perception was faltering. I thought the colours would  leave, but they stayed, exploding once more, this time drenching my siblings looming over me, bringing them to life with the rest of the world. 
+
+I didn’t know Peter’s hair was red until right then. Johnny’s hair was more of a chestnut shade, while Jane was a blonde like me. Their faces startled me for the first time, especially when I took a moment to fully take them in. Their expressions were frozen, seemingly varying between three. Joyful, horrified, and content. They weren’t blinking either. 
 
 Everything about them seemed forced and robotic, from the way Peter reached out his hand for me to take, and Jane stroking her hands through my hair. Jane, her mane of gold locks hanging in my face, was grinning wildly despite her eyes wide with fear. There were scratch marks on her arms. The buttons on her dress collar had been ripped off. Peter’s fingernails were scarlet. There were stains down his shirt.
 
@@ -401,11 +403,17 @@ Father arrived after that.
 
 After dinner we always gave a report.
 
-A redhaired woman appeared on the screen. She was scowling. “Disgraceful.” She spat. “I have reports of you butchering normal people, and as of an hour ago, Connor Aisling and his family murdered two people in broad daylight. Your programming must have malfunctioned."
+A redhaired woman appeared on the screen. She was scowling. “Disgraceful.” She spat. “I have reports of you butchering normal people, and as of an hour ago, Connor Aisling and his family murdered two people in broad daylight. Your programming must have malfunctioned. You have failed."
 
 “No.” Mom said in a hearty laugh.  “No, give us another chance. We will get him.” She wrapped her arms around us. “Isn’t that right, kids?”
 
-“No, I think it’s time to say goodbye.” The woman said with a sigh.  “It was a pleasure collaborating with you, Nestor family. We have thousands of other families about to be greenlit inside Markham. Unfortunately, you have become useless.”
+"Of course." Johnny said. 
+
+"Anything for The Nestor Family!" Peter and Jane joined in. 
+
+My old self had seen the two of them. Before she was taken. I remembered the palm of her hands pressed against a glass screen. I remembered their eyes wide, their bodies rattling with electroshocks forced through them, eyes flickering, lips forming silent cries. I wondered why my old self was watching them. Why she felt agony and loss, unbridled despair. Blinking back the memory, I focused on the woman's words. “No, I think it’s time to say goodbye.” The woman said with a sigh.
+
+“It was a pleasure collaborating with you, Nestor family. We have thousands of other families about to be greenlit inside Markham. Unfortunately, you have become useless. It's time for you to be deactivated."
 
 Mother and Father’s smiles remained, despite their panicked yells. “Wait!”
 
@@ -443,9 +451,11 @@ When he didn’t respond, she grabbed his sleeve, tugging it. “Ally? She needs
 
 Caine cleared his throat. “Well. I can’t say anything for beating them, but I know how to get out the self-destruct.”
 
-“What the fuck?” Some boy let out an incredulous laugh, and I resisted against a hiss.
+“Wait, for real? You got that thing out?” Some boy let out an incredulous laugh, and she resisted against a hiss.
 
-Roman's laugh drove me crazy.
+Roman's laugh drove her crazy.
+
+Like a fucking hyena, she thought. 
 
 Caine held up the drill. “From what I know, this thing is like… a root. A digital root they put inside our head—- which they program. But…”
 
@@ -463,7 +473,7 @@ He stuck the drill into his temple. “Drill until you hit something springy. It
 
 “What do you mean permanent?” 
 
-“I mean mind altering permanent.” Caine got closer—- and the boy in front of me turned around, his identity finally bleeding into view.
+“I mean mind altering permanent.” Caine got closer—- and the boy in front of me turned around, his identity finally bleeding into view
 
 I recognised him. His lips formed a smile.
 
@@ -481,17 +491,15 @@ Peter.
 
 “Let’s hope we don’t get taken, yeah?”
 
-His voice was in my head, at the exact time my gaze flashed to Peter. I didn’t feel anything for him. He was nothing to me. But in splinters of my memory, he had existed in her life. Meant something to the mind wiped from me. 
+His voice was in my head, at the exact time my gaze flashed to Peter. I didn’t feel anything for him. He was nothing to me. But in splinters of my memory, he had existed in her life. Meant something to the mind wiped from me. The woman was still displayed on the laptop smiling widely, after witnessing the death of Mother and Father.  “I’ll give the Nestor siblings a little longer,” she said with a light laugh.  “You are children, after all. Let’s call it mercy.”
 
-The woman was still displayed on the laptop smiling widely, after witnessing the death of Mother and Father.  “I’ll give the Nestor siblings a little longer,” she said with a light laugh.  “You are children, after all. Let’s call it mercy.”
-
-The laptop exploded. Peter’s voice echoed in my ear, as my brain started to boil. Something ran from my nose. But I was too busy looking next to me. The same face in the classroom. Caine’s best friend. Who Other Me had risked her life to save.  “Let’s not get taken, yeah?”
+The laptop exploded. Peter’s voice echoed in my ear, as my brain started to boil. Something ran from my nose. But I was too busy looking next to me. The same face in the classroom. Caine’s best friend. Who Other Me had risked her life to save.  “Let’s not get taken, yeah?” Jane and Johnny stood frozen, their expressions slack. Mindless. When I nudged Peter, he didn't move. His eyes were still glued to the laptop. His voice wouldn't stop. His old voice. 
 
 I’m sure you know what I did next.
 
 I did exactly what Caine had told me to do, regardless of it sounding ridiculous. 
 
-I grabbed a rag and bit into it, pressed as much pressure as possible, and drilled until I was screaming into the gag, until blood was running down my face and neck, screaming against waves of pain hitting me—until it hit something. I felt the weight of it. Gritting my teeth, I wrapped my fingers around it and yanked as hard as I could until my fingers were bloody, and a coil of metal, the ends flashing red, was in my fist. It was only when I had managed to remove the O27 from Peter and Jane, did I pick up a low beeping noise. 
+I grabbed a rag and bit into it, pressed as much pressure as possible, and drilled until I was screaming into the gag, until blood was running down my face and neck, crying against waves of pain slamming into me—until it hit something. I felt the weight of it. Gritting my teeth, I wrapped my fingers around it and yanked as hard as I could until my fingers were bloody, and a coil of metal, the ends flashing red, was in my fist. It was only when I had managed to remove the O27 from Peter and Jane, did I pick up a low beeping noise. 
 
 A countdown, I thought. They were getting rid of us, and then every trace we existed.
 
@@ -505,11 +513,11 @@ A mechanical voice spoke inside my head.
 
 56.
 
-The voice was counting down from 20 by the time I was dragging them, Johnny over my shoulder, and Peter and Jane stumbling in my arms. When my feet touched grass, a blast threw me to the ground, and once my face was buried in dirt and mildew, I was laughing until I couldn’t breathe. I felt like I was dying, blood seeping from my head, my thoughts dizzy. But the first time in so long I was able to laugh for myself. 
+The voice was counting down from 20 by the time I was dragging them, Johnny over my shoulder, and Peter and Jane stumbling in my arms. When my feet touched grass, a blast threw me to the ground, and once my face was buried in dirt and mildew, I was laughing until I couldn’t breathe. I felt like I was dying, blood seeping from my head, my thoughts dizzy. But for the first time in so long I was able to laugh for myself. 
 
 Think for myself.
 
-And with my siblings next to me, I felt content. 
+And with my siblings next to me, I felt content. Peter, faced down in the grass. Jane, her body twisted like a pretzel, and Johnny, laying on his back, unblinking eyes on the sky. I only needed them to be okay again. 
 
 Three days later, I am alone.
 
