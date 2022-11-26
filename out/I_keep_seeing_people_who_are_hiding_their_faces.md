@@ -42,7 +42,7 @@ I threw my groceries on the conveyor belt. The cashier raised her eyebrow as the
 
 “I’m in a hurry,” I breathed as I ran over to the keypad and stuck my card in.
 
-It had started to rain. Light, pattering raindrops fell on the windshield, bleeding into little rivers that distorted the road before me. *Swish—*I turned on the wipers and they swept through.
+It had started to rain. Light, pattering raindrops fell on the windshield, bleeding into little rivers that distorted the road before me. \*Swish—\*I turned on the wipers and they swept through.
 
 I couldn’t stop my fingers from frenetically tapping the wheel.
 
@@ -113,3 +113,7 @@ I drew the deadbolt and ran upstairs.
 I’ve been sitting up here for an hour now, waiting for Jack to come home. But part of me is terrified. What if, when he comes inside… he’s hiding his face too?
 
 What then?
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/z5jp0h/i_keep_seeing_people_who_are_hiding_their_faces/)
