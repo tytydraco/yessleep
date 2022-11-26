@@ -23,30 +23,32 @@ Sure enough, around eleven in the morning, the sun glinting off his smooth brown
  He approached me silently for several feet before I began to process his expression. His dark brown eyes were lighter in the late-summer sun, almost fluorescent yellow. They were wide. His head and legs were slightly lowered in an awkward, disjointed prowl. His gait was lumbering, slow, and lacked any rhythm. His face. 
 
 “You alright buddy?” 
-Silence. He halted a dozen feet back near to an old birch with twisted twin trunks.
+Silence. He halted a dozen feet back, near to an old birch tree with twisted twin trunks.
 
-His jaw hung open completely, as far as a dogs mouth could open, but not for a bite and not to bark. His tongue hung out, but he was not panting. He was looking me right in the eyes. There was no sympathy. 
+His jaw hung open completely, as far as a dog’s mouth could open, but not for a bite and not to bark. His tongue hung out, but he was not panting. He was looking me right in the eyes. There was no sympathy. 
 
 I was taken aback. ‘He’s usually so vocal’ I remember thinking to myself. ‘His face…’ 
 
 It corrected itself as Trooper stared into me, or past my head, still silent. He never got closer than several yards. His tongue slid back into his jaw, which hinged shut slowly,  on its own, but even 
  in the shadow at the base of our tall blistered tree his yellow irises didn’t darken. 
 
-He’s always been quiet since he came back. Like a month after my dog came home I had to leave for school, out of state university, I’m a lucky kid. 
+He’s always been quiet since he came back. Something like a month after my dog came home I had to leave for school, out of state university, I’m a lucky kid. 
 
 My first year sucked. The pandemic was in full effect. Kids were being served citations for leaving their dorms. The fraternity I was rushing got dealt a year-ending blow in the first month of school, wherein something like 20 brothers got expelled. My rush ended. I began working at McD’s. 
 
 I came home a lot that year, to visit my family, mostly, who at the time felt like my only real friends. I stopped talking to my high school buddies. My then-girlfriend and I broke up. I was happy to come home sometimes, mostly. 
 
-The last two years have been so much better though. I finished rushing, got back in touch with old friends and made a hundred new ones. I’m even talking to a few new girls and they’re really nice, and I, admittedly, visit home less. Even my grades are up, so when I came home for break my parents had even less to talk to me about. They never talk about Trooper. He’s here too though. Always has been I guess. He’s watched a couple times over the last few years. 
+The last two years have been so much better though. I finished rushing, got back in touch with old friends and made a hundred new ones. I’m even talking to a few new girls and they’re really nice, and I, admittedly, visit home less. Even my grades are up, so when I came home for break my parents had even less to talk to me about. They never talk about Trooper. He’s here too though. Always has been I guess. He’s watched me a couple times over the last few years. 
 
-I’ve tried asking them if the dog seems different since I left for school. They’ve usually brushed me off. I caught it staring at me the other night. I mentioned it to my mother, and she looked, and it looked back, beyond her. Its mouth fell agape, exposing the jagged teeth and black gums. Its tongue must have felt itself snaking its way of the mouth, because its mouth gradually resumed a more normal position, a corrected one. Its yellow eyes were motionless on her for a moment. 
+I’ve tried asking them if the dog seems different since I left for school. They’ve usually brushed me off. I caught it staring at me the other night. I mentioned it to my mother, and she looked, and it looked back, beyond her. Its mouth fell agape, exposing the jagged teeth and black gums. Its tongue must have felt itself snaking its way out of the mouth, because its mouth gradually resumed a more normal position, a corrected one. Its yellow eyes were motionless on her for a moment. 
 
 “He’s just a little crazy, better watch out cuz he’ll eat you” 
 “You might be right” 
 
 I’ll never ask her about it again. She tried to be funny about it. They all know it too. How could they not. They ignore the damn thing on purpose. 
 
+I can’t move. 
+
 My dog has been standing in the corner of my room. Watching me. It’s in the back right corner where the light from the window doesn’t hit. I can see its blurred and lowered form quivering slightly in the shadow of my bed. I think its head is cocked over, mouth grinning, showing teeth. I see its two yellow eyes. Wide and glaring at me. Unmoving. 
 
-I woke up at one and he was there. I know I shut my door. He’s been right fucking there. It’s  7:26am. He just sighed in my voice.
+I woke up at one and it was there. I know I shut my door. Its been right fucking there. It’s  7:26am. It just sighed in my voice.

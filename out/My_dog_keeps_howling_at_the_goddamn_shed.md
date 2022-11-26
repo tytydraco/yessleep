@@ -30,9 +30,9 @@ My sledgehammer clattered to the ground and I keeled over in shock and disgust. 
 
 …skin off of…
 
-\*\*…his arm.\*\*
+**…his arm.**
 
-I let out a bloodcurdling scream, scrambled to my feet, grabbed my dog, and sprinted inside. I think he ate the chunk of…\*meat\*…before I entered the door. Jesus fucking Christ. I ripped off my gas mask and looked for my phone, pretty much hyperventilating all the while.
+I let out a bloodcurdling scream, scrambled to my feet, grabbed my dog, and sprinted inside. I think he ate the chunk of…*meat*…before I entered the door. Jesus fucking Christ. I ripped off my gas mask and looked for my phone, pretty much hyperventilating all the while.
 
 This all happened about a week ago. The cops cleaned everything up. I was questioned, but too stunned to speak, and they ruled it as an accident on my neighbor’s part. I covered the back door with a black cloth. I’m never going out there again. I’m moving out of this house. Or killing myself. Not sure which one. The image has been flashing in my mind ever since I saw it. I’ve only just now gained the courage to put my experience on paper.
 

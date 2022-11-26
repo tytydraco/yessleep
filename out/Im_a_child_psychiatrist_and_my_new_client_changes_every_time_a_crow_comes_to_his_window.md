@@ -124,9 +124,7 @@ I locked Tyler's door before I left that evening and chatted with Gretta.
 
 "Why does Mr. Bruno want Tyler's room locked from the outside?"
 
-She paused for a moment. "Sometimes he sleepwalks."
-
-But she seemed to be holding something back.
+She paused for a moment. "Mr. Bruno has been protective since the accident."
 
 "What do you mean?"
 
@@ -134,11 +132,11 @@ She glanced down, nervous. "I'm surprised Mr. Bruno didn't tell you—"
 
 "About what?"
 
-"The accident."
+"Eric."
 
-"Tell me about it."
+"Tell me."
 
-She nodded. “Tyler had a twin brother Eric, who also used to sleepwalk. Sometimes they'd wander around or go outside. But one night, Eric fell down the living room stairs while he was sleepwalking. Broke his neck. Died before he got to the hospital." 
+She nodded. “Tyler had a twin brother Eric, who used to sleepwalk. Sometimes he'd wander around the house or go outside. But one night, Eric fell down the living room stairs while he was sleepwalking. Broke his neck. Died before he got to the hospital."
 
 “How tragic for you—for *everyone*. Why didn’t Mr. Bruno tell me?”
 

@@ -120,7 +120,7 @@
 
   His hands fell limp to his sides, tracing his padded gloves across the carpeted floor. As he hung his head, shying his eyes away from mine, I let the blanket slip from my fingers, raising my hand to his cold and wrinkled cheek.
 
-  "It actually feels kinda neat," I said, running my no longer shivering digits across the seam holding the  upper flap of his face to the lower, "does it hurt?" 
+  "It actually feels kinda neat," I said, running my no longer shivering digits across the seam holding the upper flap of his face to the lower, "does it hurt?" 
 
   He just shook his head, still seemingly studying the floor beneath his knees. 
 
@@ -164,7 +164,7 @@
 
   "I would never hurt a child, dear Edward," he said, pulling the mitten back over his hand, "but a few lumps of coal are not quite as effective to a naughty adult." 
 
-  With that, he gave me a wink, tousled my hair again with his fully-fingered right hand, and picked the large bag back up again. 
+  With that, he gave me a wink, tousled my hair again with his fully-fingered right hand, and picked the large bag back up. 
 
   "You had better get some sleep now." 
 
