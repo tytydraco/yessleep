@@ -76,7 +76,7 @@ At least we’re talking again via text.  I told him about my hunt for Sarah and
 
 I haven’t decided if I’m going to tell him about the flickering man, though.
 
-There’s something that’s been going on since the start of the semester that I think I haven’t wanted to notice.  I’ve been breaking my own rules and going out in the rain because I think I’m starting to get a feel for when it’s dangerous or not.  It rains enough around here that it’s not possible to *always* stay inside when it rains and I’ve found that being in a group helps.  But there’s also the *kind* of rain it is - light drizzles don’t seem to pose much threat.  
+There’s something that’s been going on since the start of the semester that I think I haven’t wanted to notice.  I’ve been breaking my own rules and going out in the rain because I think I’m starting to get a feel for when it’s dangerous or not.  It rains enough around here that it’s not possible to *always* stay inside when it rains and I’ve found that being in a group helps.  But there’s also the *kind* of rain it is - light drizzles don’t seem to pose much threat.
 
 There’s also something that just feels wrong about the rains that are going to have something dangerous out in them.  It’s not something I can point to quantitatively.  It’s just a feeling.
 
@@ -126,7 +126,7 @@ Then he answered me.
 
 And he stepped *out* of the rain and into the dry space beneath the underhang.
 
-He was no longer flickering.  He was as solid as anyone else, his feet firmly on the ground and his body rightside up.  He was dressed casually in jeans and a t-shirt, but they were soaked through and plastered to his body.  Average build and dark brown hair that stuck to his neck. 
+He was no longer flickering.  He was as solid as anyone else, his feet firmly on the ground and his body rightside up.  He was dressed casually in jeans and a t-shirt, but they were soaked through and plastered to his body.  Average build and dark brown hair that stuck to his neck.
 
 He looked… ordinary.  I suppose the worst monsters always do.
 
@@ -228,7 +228,7 @@ I should have expected this.  There’s always a catch when dealing with an enti
 
 And the devil is protecting me because he’s waiting for the trap to spring.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
-[Keep reading.](https://www.reddit.com/r/nosleep/comments/ywjohy/how_to_survive_college_i_have_a_stalkers/)
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/z4x0nl/how_to_survive_college_scratching_at_the_door/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
