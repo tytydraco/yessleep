@@ -4,23 +4,23 @@ My wife Brooke and I bought Frank at an antique doll shop in New York City for o
 
 “Oooh, he’s *beautiful*!” Dahlia shrieked as she opened her gift. “I *love* him!”
 
-It was a fun day, but our enjoyment was short-lived. Events took a darker turn before long. 
+It was a fun day, but our enjoyment was short-lived. Events took a darker turn before long.
 
 *\*\*\**
 
-A few nights later, I woke up late to children stomping and giggling. It sounded like someone was having a party. But Dahlia was our only daughter; something didn’t feel right. 
+A few nights later, I woke up late to children stomping and giggling. It sounded like someone was having a party. But Dahlia was our only daughter; something didn’t feel right.
 
-Concerned, I hurried down the hall to check on Dahlia, but she was sitting at her vanity, serenading Frank and brushing his hair when I entered the room.
+Concerned, I hurried down the hall to check on Dahlia, but she was sitting at her vanity, serenading Frank and brushing his hair.
 
 "Honey, why are you up so late?"
 
-"We're playing beauty parlor, daddy!" 
+"We're playing beauty parlor, daddy!"
 
-She beamed, enjoying herself and her new friend. I hated to be the killjoy dad who ruined her fun. And I’ll admit, her smile melted me.
+She beamed, enjoying herself and her new friend. I hated to be the killjoy dad who ruined her fun.
 
 "Okay," I said in a hushed voice. "I'll let you stay up just this once. But *don't* tell your mother."
 
-"Oh, thank you!" she said, jumping and clapping. She waved goodnight as I closed the door. 
+"Oh, thank you!" she said, jumping and clapping. She waved goodnight as I closed the door.
 
 "Good night, pumpkin."
 
@@ -28,9 +28,9 @@ But when I went downstairs to cook breakfast the next morning, a surprise guest 
 
 *Who does he think he is?* I thought, figuring Dahlia put him there.
 
-But when I glanced under her door, the room was dark, and Brooke was also asleep. 
+But when I glanced under her door, the room was dark, and Brooke was also asleep.
 
-I moved Frank onto the couch. "Nice try, buddy." 
+I moved Frank onto the couch. "Nice try, buddy."
 
 Then, I returned to the stove and scooped the batter into the skillet. But Frank was back in my chair when I turned around.
 
@@ -38,17 +38,17 @@ He looked so *entitled,* like he was waiting to be served.
 
 "Dahlia? Brooke? Anybody up?"
 
-Silence. 
+Silence.
 
-I checked upstairs, but they were both asleep. 
+I checked upstairs, but they were both asleep.
 
-An uneasy feeling rushed over me as I returned Frank to the sofa and finished making the pancakes. Moments later, I turned back around to see Frank *again.* Even the napkin I'd removed was tucked back into his shirt. 
+An uneasy feeling rushed over me as I returned Frank to the sofa and finished making the pancakes. Moments later, I turned back around to see Frank *again.* Even the napkin I'd removed was tucked back into his shirt.
 
 *What's going on?* I wondered.
 
-I hurried upstairs to talk to Brooke. “Sorry to wake you, honey, but we have a situation.” 
+I hurried upstairs to talk to Brooke. “Sorry to wake you, honey, but we have a situation.”
 
-She groaned. “Not now, John. I’m sleeping.” 
+She groaned. “Not now, John. I’m sleeping.”
 
 “I know, but—”
 
@@ -66,9 +66,11 @@ I pointed at the table. "He was just *right* *there*. Little bastard was wearing
 
 But Brooke rolled her eyes and patted my head as though I were a child having a nightmare.
 
-I put the incident out of my mind, but these events happened more often as the weeks passed. And my anxiety grew by the day.
+I put the incident out of my mind, but these events happened more often as the weeks passed.
 
-\*\*\* 
+And my anxiety grew by the day.
+
+\*\*\*
 
 Some nights, I woke up to a boy giggling, but no one was there when I opened my eyes. Other times, Frank popped up in odd places, appearing in the kitchen or bathroom even after I’d put him in a storage room or closet.
 
@@ -96,21 +98,19 @@ He sounded like ET but less charming.
 
 My eyes bulged with horror, but Dahlia’s face lit up, delighted. "See? I told you!"
 
-But when Frank spoke again, he spoke in an unknown language. It sounded like nothing we’d heard before. Our eyes almost popped from our sockets as the doll launched into a spine-chilling monologue, blabbering for minutes uninterrupted.
+But when Frank spoke again, he chatted in an unknown language. It sounded like nothing we’d heard before. Our eyes almost popped from our sockets as the doll launched into a spine-chilling monologue, blabbering for minutes uninterrupted.
 
-I searched the doll from head to toe looking for a button. *Surely there was a button that made him talk?*
+I searched the doll from head to toe looking for a button that made him talk. *Surely there was something.*
 
-But there was none.
+But nothing.
 
-\*\*\* 
+\*\*\*
 
 Later that night, I combed the internet for answers, determined to solve the mystery. I Googled everything I could imagine:
 
 \- *Talking porcelain dolls…*
 
 \- *Creepy dolls…*
-
-\- *Are porcelain dolls supposed to talk…*
 
 \- *Language experts…*
 
@@ -124,15 +124,15 @@ Brooke and I couldn't get there fast enough.
 
 The next morning, we wrapped Frank in a giant Ziploc bag and sealed him up like evidence from a crime scene.
 
-We arrived at Dr. Rudolph's office before lunchtime. He was a short, jolly-looking fellow with ruby cheeks and wire-rimmed glasses. Awards, diplomas, and maps of ancient Mesopotamia hung on his walls beside a mahogany bookshelf.
+We arrived at Dr. Rudolph's office before lunchtime. He was a short, jolly-looking fellow with ruby cheeks and wire-rimmed glasses. Awards, diplomas, and maps of ancient Mesopotamia hung on his walls.
 
-Dr. Randolph invited us to sit. "So, tell me about this mysterious addition to your family." He twirled his pen, raptly listening as we shared our story.
+Dr. Randolph invited us to sit. "So, tell me about this mysterious addition to your family." He twirled his pen, raptly listening as we explained.
 
-After we filled him in, Dr. Randolph motioned toward Frank. "Let's have a look, shall we?"
+Afterward, Dr. Randolph motioned toward Frank. "Let's have a look, shall we?"
 
-Brooke handed him the Ziploc bag with Frank.
+Brooke handed him the Ziploc bag.
 
-He removed Frank from the bag and stood him on the desk, studying him. "Sometimes dolls carry energy. I could fill a small library with the stories involving haunted dolls. Dolls are some of the most common items associated with paranormal activity. Some say it's because of their likeness to humans.” 
+He stood Frank on the desk, studying him. "I could fill a library with the stories involving haunted dolls. Dolls are some of the most common items associated with paranormal activity because of their likeness to humans.”
 
 "Do you think it's a *poltergeist*?" I asked.
 
@@ -154,7 +154,7 @@ I shuddered.
 
 "Tell me about yourself," Dr. Randolph continued. "And feel free to use your native tongue if you wish."
 
-That really got Frank rolling. After that, Frank jabbered nonstop for minutes without taking a breath. Dr. Randolph listened, but his amusement soon turned to concern, and he scribbled something in his notepad. 
+That really got Frank rolling. After that, Frank jabbered nonstop for minutes without taking a breath. Dr. Randolph listened, but his amusement soon turned to concern, and he scribbled something in his notepad.
 
 "What's going on?" I whispered.
 
@@ -162,11 +162,11 @@ After Frank finished, Dr. Randolph turned to us, his eyes serious. "I'm uneasy w
 
 "What is it?" Brooke asked.
 
-"I'd have to translate the recording to give you the full content, but I understood enough to help you.” 
+"I'd have to translate the recording to give you the full content, but I understood enough to help you.”
 
 "What did he say?" Brooke asked.
 
-Dr. Randolph's eyes widened like half-dollars, and he shook his head. "I can't believe it, but your doll is speaking ancient *Sumerian,* a language of Mesopotamia*.* Not just that, but whatever is inhabiting this doll *isn't* very nice. And frankly, I don't care for the way he talks about *you*, John."
+Dr. Randolph's eyes widened like half-dollars, and he shook his head. "I can't believe it, but your doll is speaking ancient *Sumerian,* a language from Mesopotamia. Not just that, but whatever is inhabiting this doll *isn't* very nice. And frankly, I don't care for the way he talks about *you*, John."
 
 "What did he say about me?" I asked, my back stiffening.
 
@@ -180,9 +180,9 @@ Dr. Randolph continued. "This doll must have quite a history, though."
 
 “How does a doll become haunted?” Brooke asked.
 
-"Sometimes, dolls absorb energy from their environments. But other dolls are inhabited by low-level entities, which aren't always so nice." 
+"Sometimes, dolls absorb energy from their environments. But other dolls are inhabited by low-level entities, which aren't always so nice."
 
-Dr. Randolph returned Frank to the Ziploc bag, then continued. "But you two have a paranormal emergency on your hands and removing the doll from your home is *vital*. I'd also like to send Frank to a lab for testing if you don’t mind.” 
+Dr. Randolph returned Frank to the Ziploc bag, then continued. "But you two have a paranormal emergency on your hands and removing the doll from your home is *vital*. I'd also like to send Frank to a lab for testing if you don’t mind.”
 
 "Please, go ahead," I said, eager to get rid of the foul-mouthed creature.
 
@@ -200,7 +200,7 @@ Brooke and I exchanged looks.
 
 Dr. Randolph continued. “Apparently, when the man was alive, he slaughtered his fellow villagers, including innocent families in their sleep. He was even put to death for his misdeeds. So, rest assured you did the right thing by getting rid of the doll.”
 
-Brooke and I thanked Dr. Randolph for his help and sighed with relief. 
+Brooke and I thanked Dr. Randolph for his help and sighed with relief.
 
 *Finally, we’re free at last.*
 
