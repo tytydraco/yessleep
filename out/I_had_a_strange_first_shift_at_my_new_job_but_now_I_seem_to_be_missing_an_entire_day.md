@@ -1,4 +1,4 @@
-This update is shorter than the first one, but it was too odd to wait until next week. If you didn't catch what started this whole thing, here is [Part One](https://www.reddit.com/r/nosleep/comments/z1kdi2/i_work_at_a_coffee_shop_my_boss_offered_me_a/?utm_source=share&utm_medium=web2x&context=3).
+This update is shorter than the first one, but it was too odd to wait until next week. If you didn't catch what started this whole thing, here is [Part One](https://www.reddit.com/r/nosleep/comments/z1kdi2/i_work_at_a_coffee_shop_my_boss_offered_me_a/?utm_source=share&utm_medium=web2x&context=3). To see everything in one place, click [here](https://www.reddit.com/user/AHauntedBarista/comments/z473tt/i_am_a_barista_that_serves_the_supernatural_find/?utm_source=share&utm_medium=web2x&context=3).
 
 \--------------------------------------
 
