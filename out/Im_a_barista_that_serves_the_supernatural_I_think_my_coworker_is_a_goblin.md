@@ -1,10 +1,8 @@
- 
-
 I think my coworker is a goblin. No, I *know* my coworker is a goblin. Or at least something like that. I've never heard of a goblin wearing someone else's skin. Some stories say they can shift into animals, but are humans really on that list? Anyway, if you are just finding me, probably best for you to start[ here](https://www.reddit.com/r/nosleep/comments/z1kdi2/i_work_at_a_coffee_shop_my_boss_offered_me_a/?utm_source=share&utm_medium=web2x&context=3). If you feel like you missed something, try[ this post](https://www.reddit.com/user/AHauntedBarista/comments/z473tt/i_am_a_barista_that_serves_the_supernatural_find/?utm_source=share&utm_medium=web2x&context=3).
 
 \--------------------------------------
 
-I wanted to explain some things in more detail to you all. First, I do not work Tuesdays or Wednesdays, unless specifically requested to by management (such as this Wednesday). Work days are ten hour shifts; we do *not* leave the store until it is time to close. I asked what would happen if we did and no one was sure, but Em suggested that Tall Ben would probably take advantage of the situation. I go in at 7:00pm, we lock up at 5:00:am. That was the shift I was getting used to, the overnights that Richard promised. For whatever reason, Monday's mystery resulted in a change of plans. Richard wants us to open earlier. He was incredibly specific about the time that the store needed to be opened, no earlier than 7:00pm, but now he wants to push back our hours to 5:00pm. That means a twelve hour shift, not including breaks. 
+I wanted to explain some things in more detail to you all. First, I do not work Tuesdays or Wednesdays, unless specifically requested to by management (such as this Wednesday). Work days are ten hour shifts; we do *not* leave the store until it is time to close. I asked what would happen if we did and no one was sure, but Em suggested that Tall Ben would probably take advantage of the situation. I go in at 7:00pm, we lock up at 5:00:am. That was the shift I was getting used to, the overnights that Richard promised. For whatever reason, Monday's mystery resulted in a change of plans. Richard wants us to open earlier. He was incredibly specific about the time that the store needed to be opened, no earlier than 7:00pm, but now he wants to push back our hours to 5:00pm. That means a twelve hour shift, not including breaks.
 
 That also means I get a flex day off. I honestly find the idea tempting.
 
@@ -22,7 +20,7 @@ Selene was already in the parking lot when I arrived. She was leaning against he
 
 "Is that... dangerous?"
 
-"Listen, even I am not entirely sure *what* Amber Bucker is. She sells extremely dangerous candles. She has rules, like any supernatural being." I hadn't realized she was supernatural, but it made sense with the whole candle thing. "The name thing, with them having power, is usually a fae thing. She isn't a fae, I would know. I don't think she cares about human names."
+"Listen, even I am not entirely sure *what* candle lady is. She sells extremely dangerous candles. She has rules, like any supernatural being." I hadn't realized she was supernatural, but it made sense with the whole candle thing. "The name thing, with them having power, is usually a fae thing. She isn't a fae, I would know. I don't think she cares about human names."
 
 "She bothers customers too?"
 
@@ -32,27 +30,27 @@ I got there early again, by fifteen minutes. That's 4:15 on the new shift. With 
 
 We small talked, but the time to clock on was coming quickly. It was 4:22.
 
-"The Wednesday crew is a bit different. John won't be in the kitchen, you'll be meeting Jonathan today. One thing to note; you are the only one with any fixed days off. Lucky, if you ask me."
+"The Wednesday crew is a bit different. Little John won't be in the kitchen, you'll be meeting Johnny today. One thing to note; you are the only one with any fixed days off. Lucky, if you ask me."
 
-"Why do I get a special shift?"
+Did she mean Jonathan? Barrow had mentioned him. "Why do I get a special shift?"
 
 "We already have someone like you on Tuesday and Wednesday."
 
 "Someone like me?"
 
-She smiled. "Jonathan."
+She smiled. "Johnny."
 
 "I'll be the judge of that." I quipped. Cars were pulling in, so I would be making that judgment soon.
 
 Barrow arrived, followed by Em. We went to the door, waiting for Jonathan. With seconds to spare, an old minivan turned into the parking lot at far too high a speed. The car almost tipped over, then missed a parking spot to hit a "handicap" sign hard enough to bend it. I was expecting a person to climb out, but I was unpleasantly surprised.
 
-I am not sure if they were just called this thing Jonathan or if this was an early customer. It approached us at the door just as Selene was pushing it open. I let it pass, then followed Barrow and Em inside. Once in the lobby, Selene gestured at the thing.
+I am not sure if they were just called this thing Jonathan or if this was an early customer. It approached us at the door just as Selene was pushing it open. I let it pass, then followed Barrow and Em inside. Once in the lobby, Barrow gestured at the thing.
 
-"Axel, Jonathan. Jonathan, Axel."
+"New Guy, Johnny. JJohnny, New Guy."
 
-"H-hey..." I offered awkwardly, denying the hand that he stretched out.
+That wasn't my name, but I didn't much care. "H-hey..." I offered awkwardly, denying the hand that he stretched out.
 
-"You two know each other?" Em asked.
+"You two know each other, Axel?" Em asked.
 
 I certainly hoped I did not know, or had not known, whoever the thing was wearing. It was as if a person had been skinned and their... pelt treated to be worn as a costume. I mean, I could see the damn things eyes! It was like a poor fitting mask, the bone structure underneath did not fit the skin suit at all! The thing was short, misshapen, and far too fat for the person it decided to wear. Uhg, I can still smell the thing. Piss, it smelled like piss.
 
@@ -108,7 +106,7 @@ Out came the little ass. I guess it was nervous; the disguise was majorly out of
 
 "And your names?"
 
-They gave them.
+Barrow introduced everyone.
 
 "Looking for somebody. Not your usual suspect. He's been breaking some rules, been a real pain in the ass to track down." Was he an inspector, or a detective? "Stopped at a few places like this. Almost had him at a little gas station."
 
@@ -156,7 +154,7 @@ Bilgoth leaned forward and sneered. "I don't owe you shit."
 
 "No!" Bilgoth begged as I moved towards the counter. "No, not that!"
 
-"Care to explain, Axel?" Selene wasn't patient.
+"Care to explain, New Guy?" Selene wasn't patient.
 
 "I mean, seriously, guys? He's a goblin. Jonathan is a goblin, or... or I guess a goblin is wearing Jonathan?"
 
@@ -178,7 +176,7 @@ Selene rubbed the bridge of her nose. "What? How did you... you didn't look like
 
 "What can I say? I am a master of my craft." He bowed.
 
-"So what about Jonathan? Did you kill him?"
+"So what about Johnny? Did you kill him?"
 
 He turned on me. "What? No! I didn't kill no one. Goblins ain't about killing people, then we'd have no one to mess with. Nah, I found the bloke in the woods. He'd been there a day or two."
 

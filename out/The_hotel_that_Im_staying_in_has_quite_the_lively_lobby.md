@@ -108,7 +108,7 @@ He continued silently snickering to himself. It was annoying.
 
 He interrupted me:
 
-“I’m trying to help you. Clearly you’ve been in la la land. That’s not necessarily all on you. The hotel doesn’t always make it super clear. They’re trying to help, but you have to pay attention and actually read the crap they give you with your room key or the stuff they leave in your room. Hence, most people don’t realize it immediately, and since others aren’t really allowed to say too much, bad things happen. So, if you want the short explanation: *you can’t leave this place.*”
+“I’m trying to help you. Clearly you’ve been in la la land. That’s not necessarily all on you. The hotel doesn’t always make it super clear. They’re trying to help, but you have to pay attention and actually read the crap they give you with your room key or the stuff they leave in your room. Most people don’t realize it immediately, and since others aren’t really allowed to say too much, bad things happen. So, if you want the short explanation: *you can’t leave this place.*”
 
 Hahahaha. *Right.* As I’d suspected, this guy was just a freak with a sick sense of humor.
 
@@ -146,7 +146,7 @@ And with that, he got up and walked off, leaving me with a strange, unsettling f
 
 I got up to head back to my room when I noticed the folks at the bar all looking at me, and all lighting up as I walked past. *Fuck it, the bar lobby is always a good time.* I needed to shake off the bad energy.
 
-As I made my way to an open bar seat, the bartender gave me the line he gave me last time:
+As I made my way to an open bar seat, the bartender gave me the same line he said to me last time:
 
 “Ahh you’re looking a little glum, Peter.”
 
@@ -162,7 +162,7 @@ After about an hour of hanging out, I decided to leave and go up to my room. As 
 
 *The lobby feels safe. I want to stay there.*
 
-I made it back to my room. My friends were gonna arrive very late that night, and so we were all gonna meet up together tomorrow. I, again, focused on getting a good night’s sleep and did well to keep my mind off of some of the weird happenings I’d run into that day.
+I made it back to my room. My friends were gonna arrive very late that night, and so we were all gonna meet up together tomorrow. I made sure to focus on getting another good night’s sleep and tried to keep my mind off of the weird happenings I’d run into that day.
 
 I slept in, and woke up the next day, completely fresh and ready for the day ahead of me. Or so I thought.
 
@@ -324,7 +324,7 @@ He kept his hands up. He took in a deep breath and he answered.
 
 “What does that even mean?!”
 
-“Didn’t you read the guides in your room? On your bedside? The thing I put my envelope under?!” he said back, nervously shouting.
+“Didn’t you read the guides in your room? On your bedside table? The thing I put my envelope under?!” he said back, nervously shouting.
 
 That bullshit “hotel rules” guide on the table in the plastic casing? No… I guess I didn’t.
 
@@ -402,11 +402,11 @@ I ignored it.
 
 Ignored it. The man in the red jacket started speaking:
 
-“Peter is the bartender’s son. He went outside past the tranquility period. No one knew what it meant at the time.”
+“Peter is the bartender’s son. Years back when they first arrived, Peter stayed outside past the tranquility period. He didn't know what it meant at the time.”
 
 He motioned to the others seated with me.
 
-“Some people have been here longer than others. Many of them lost someone to the outside. Didn’t realize the severity of the tranquility period. And now, they’re all here. Looking for distractions. To drown out the noise.”
+"Some people have been here longer than others. Many of them lost someone they traveled with to the outside. Didn’t realize the severity of the tranquility period. And now, they’re all here. In the lobby... looking for distractions. To drown out the noise."
 
 I scanned the bar. Everyone was smiling and cheering. But I saw the crinkles of desperation in the corners of their eyes. Something I didn’t notice before. They had to be loud. To drown it all out.
 
@@ -418,7 +418,7 @@ The man in the red jacket took a moment to really think.
 
 *Shit. That happened to me too.*
 
-“And… we ended up here. Very, very similar to New York by all accounts. At first, anyways. In fact, if you stare out hard enough into the strange horizon surrounding us, you can see little hints that NYC physically ain’t that far from us. But right now, we’re trapped. Not in purgatory. Very much ourselves, and very much alive, but if we leave this building, we’re at the whim of whatever’s out there. And whatever’s out there… doesn’t seem to be very friendly.”
+“And… we ended up here. Very, very similar to New York by all accounts. At first, anyways. Heck, if you stare out hard enough into the strange horizon surrounding us, you can see little hints that NYC physically ain’t that far from us. But right now, we’re trapped. Not in purgatory... very much ourselves, and very much alive. But. If we leave this building, we’re at the whim of whatever’s out there. And whatever’s out there… doesn’t seem to be very friendly.”
 
 I looked outside. The noises were coming to the forefront again. Those *shrieks*. At first, it sounded like evil creatures. Banshees, demons, something in that universe. But something about the sounds was starting to become clear to me… there was almost a *human* quality to them.
 
