@@ -39,6 +39,7 @@ He stared at us, examines me and my family with his eyes, then he said: “I am 
 The old man looks at her: “Do you believe in our method?” 
 
 “Oh, sure! we are great believers in this method” Mom said recklessly.  
+
 “WE?!” Betty asked nervously
 
 Dad elbowed her and told her to be quiet.
@@ -81,21 +82,21 @@ Then he quickly walked away. “T.. Thank you for everything!” my mother calle
 
 We enter the cabin, and my parents open the luggage and the bags and start to unpack in their bedroom. I and Betty enter our joint room, the inside is made from wood, and two beds, one on each side. At the center, there is a dresser and on top of it a vase with a few yellow flowers in it. above it, there is a window overlooking the village and at the horizon, you can see the well at the center of the village.
 
-I was walking around the house when suddenly: “ARE YOU SERIOUS?! We don’t even have a bloody TV here” I heard Betty from the living room. In every room that I enter, I see the same vase with a few yellow flowers. “Ummm.. mom? What’s up with these flowers?” I ask her when I get to their room. My Mom, getting closer to the vase, caresses one of the flowers: “If I am not wrong Clay.. this flower is called Calendulas”, “Calendulas?” I ask, “Yes Clay, Calendula is the name of this flower.. According to some Mexican traditions, it is believed that the Calendula has the power to summon the spirits of the dead. In Spanish they called *‘Flor de Muerto*’ - Flowers of the Dead”.
+I was walking around the house when suddenly: “ARE YOU SERIOUS?! We don’t even have a bloody TV here” I heard Betty from the living room. In every room that I enter, I see the same vase with a few yellow flowers. “Ummm.. mom? What’s up with these flowers?” I ask her when I get to their room. My Mom, getting closer to the vase, caresses one of the flowers: “If I am not wrong Clay.. this flower is called Calendulas”, “Calendulas?” I ask, “Yes Clay, Calendula is the name of this flower.. According to some Mexican traditions, it is believed that the Calendula has the power to summon the spirits of the dead. In Spanish they called \*‘Flor de Muerto\*’ - Flowers of the Dead”.
 
 A strange feeling starts to fill my body, “Then... Why would they put them in every room in our cabin?” I ask, “Oh Clay… don’t underestimate other's faiths” She replies. “I do not underestimate, it just--”
 
-*KNOCK KNOCK KNOCK* 
+\*KNOCK KNOCK KNOCK\* 
 
 Before I get the chance to answer her, three soft knocks on the front door interrupts me. We’re all going towards the living room where the door is at. I spot three young ladies through the door’s window, dressed in white, smiling, and waiting in front of our door.
 
 I open the door and they’re immediately aiming their smiling faces towards me, “Yes? how may I help yo-”
 
-“*Hello. Welcome. We hope that you feel comfortable here.  We brought you your clothes that you are required to wear throughout your stay here”* 
+“\*Hello. Welcome. We hope that you feel comfortable here.  We brought you your clothes that you are required to wear throughout your stay here”\* 
 
 The lady in the middle hands me two pairs of white suits and two pairs of white dresses. “Thank you!” my mom thanked them while I was busy being stupefied by their creepy smiles.
 
-*“Don’t forget that at six o'clock dinner is served to all the villagers. Don’t miss it! it’s going to be delicious!”* says the lady on the left, then the three of them giggle lightly.
+\*“Don’t forget that at six o'clock dinner is served to all the villagers. Don’t miss it! it’s going to be delicious!”\* says the lady on the left, then the three of them giggle lightly.
 
 “We’ll be there,” my father said with a nice smile. I close the door as the three walk away calmly in a suspicious way. 
 
@@ -173,7 +174,7 @@ I stared at their flower " What’s that flower doing on your ears ?" I ask " Cl
 
 " What is so special about today? " I ask, she grins and says to me " Oh, you will find out soon enough ". mother pulls my hand and drags me in. she thanks the creepy ladies and shuts the door. 
 
-"stop being impertinent Clay, " she says, and walks away.
+"stop being impertinent Clay, " she says and walks away.
 
 At 6 PM we arrive at the center well again. I can’t help but think of what I heard from there last night.
 
@@ -253,14 +254,12 @@ As we get inside, we are in shock at the view, dozens of cars, family SUVs proba
 
 He hits the speed break, and the car drives through the warehouse walls. in the rear mirror, we notice a bunch of the ladies in white, at least 50 of them, running after the car and crying out, "NO!!! NO!!!" "BRING OUR DAD BACK", "PLEASE!!!" but they are not fast enough, Dad traveling at full speed towards the main gate and breaking it. We leave the village and head towards the forest.
 
-We are driving in the forest, traveling at full speed, but the ... our car starts to lose speed little by little... no fuel ... they must have emptied the tank. The car slowly loses its speed ... and finally, comes to a full stop. My dad knocks on the steering wheel with anger, my mom is stressed and Betty screams. The old man is still in the trunk, and we are stuck, Dad presses the button that locks all doors and windows. We're in the car … Desperate. lost out of options, and don't know what to do.
+We are driving in the forest, traveling at full speed, and after around 10 minutes our car started slowing down... no fuel ... they must have emptied most of the tank. The car slowly loses its speed ... and finally, comes to a full stop. 
 
-Suddenly, we hear them… running towards us… I can almost feel the earth shakes from the number of people that approaches us. They reach out from the bushes from all sides … 50 or 60 of them, all in white, sobbing, surround the car. My mother screams when she sees them clinging to the windows, from all directions. Suddenly their sad faces turn into hungry-evil grins. They smile again and they whisper to us through the windows *"PLEASE OPEN... WE ARE HUNGRY", "YESSS WE ARE STARVING", "PLEASE OPEN THE DOOR"...* . "Everyone stay still, no one opens the door!" My dad screams. 
+Luckily or not it was enough of us to arrive at some lonely motel, it seemed empty enough for us to sneak the old man without anyone noticing. While dad and mom were talking to the reception guy about getting the cheapest room, I and Betty were holding the old man with our hands, pretending he was our old grandpa who is too old to walk by himself. We got into the room on the ground floor, with a view of the dark forest. Dad knocked the old man out and put him in the bathroom and locked the door. As they think about how to explain the whole situation to the police, I sit down to write this crazy story. 
 
-"You might not open the door ..." says suddenly the old man from the trunk, "*but they will :)*".
+It's 2 AM and I've been distracted by this noise, the same eerie noise that I've heard the first night, it's this creepy laughter again. I poke my head from the screen and... I can see them, the ladies in white, they are standing outside of our window, leaning their heads on the glass and starting to whisper...
 
-Suddenly one of the girls started to bang her head on the window, again and again until she started to bleed, but she continued. the others join her, they hit my window again, and again, and again and again,
+\*"PLEASE OPEN... WE ARE HUNGRY", "YESSS WE ARE STARVING", "PLEASE OPEN LET US IN"...\* 
 
-And then... THE WINDOW BREAKS DOWN--
-
-Written by: [Tomer Carmeli](https://www.youtube.com/watch?v=qEh3osh9Bbk&ab_channel=TomerCarmeli-%D7%AA%D7%95%D7%9E%D7%A8%D7%9B%D7%A8%D7%9E%D7%9C%D7%99)
+I would have to end the story here. because the window slowly starts to break, as well as the main door.

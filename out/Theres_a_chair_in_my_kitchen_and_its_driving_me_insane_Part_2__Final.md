@@ -4,7 +4,7 @@
 
 I'm sitting in the chair as I write this.
 
-The chair still had 2 legs this morning. I've counted 15 times since my last post. It feel harder to count them each time I do. I couldn't wrap my head around how this chair continued to stand, and it broke everything I knew.
+The chair still had 2 legs this morning. I've counted 15 times since my last post. It feels harder to count them each time I do. I couldn't wrap my head around how this chair continued to stand, and it broke everything I knew.
 
 Sometimes I would count the back leg first, sometimes I would count the front leg first. It did not change anything; Two is always the final leg.
 
