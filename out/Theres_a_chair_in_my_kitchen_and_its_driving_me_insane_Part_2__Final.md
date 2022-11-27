@@ -4,15 +4,17 @@
 
 I'm sitting in the chair as I write this.
 
-The chair still had 2 legs this morning. I've counted 15 times since my last post.
+The chair still had 2 legs this morning. I've counted 15 times since my last post. It feel harder to count them each time I do. I couldn't wrap my head around how this chair continued to stand, and it broke everything I knew.
 
 Sometimes I would count the back leg first, sometimes I would count the front leg first. It did not change anything; Two is always the final leg.
 
-Yesterday a police officer knocked on my door. I didn't get her name whilst she was alive. She showed me a picture of Jason and his colleague and asked if I knew anything about their disappearances. I don't know if it was my pale face from living a nightmare, or my bloodshot eyes from lack of sleep, but she didn't buy my "No."
+I didn't sleep last night, I just stared at the chair. I could feel it staring back at me. I tried not to count the legs too often.
+
+Earlier today, a police officer knocked on my door. I didn't get her name whilst she was alive. She showed me a picture of Jason and his colleague and asked if I knew anything about their disappearances. I don't know if it was my pale face from living a nightmare, or my bloodshot eyes from lack of sleep, but she didn't buy my "No."
 
 She came in, pushing past me, and went into the kitchen. I had cleaned up the blood and guts, but it still smells terrible. She took one look at the chair, and looked at me. She could sense something off about the chair, too. I knew I would sound crazy if I told her everything, and I'd get blamed for everything that's happened.
 
-"That's the chair with 2 legs," I spoke calmly.
+"That's the chair with 2 legs," I spoke calmly, whilst inside I felt anything but.
 
 She did not take this as the warning I hoped it would convey, as she immediately pushed the chair to see if it would fall over.
 
@@ -22,6 +24,8 @@ She reached for her gun, instinctively using the hand that had just disappeared.
 
 Soon, it wasn't everything vanishing - Only her skin. Blood poured out.
 
+This is the second time I've seen it happen, the second time I've seen the chair consume someone as if they were nothing. I felt myself trembling. I wondered if the chair was alive, if it could think for itself. Does it enjoy what it does?
+
 I counted the legs to distract myself. One, 2.
 
 I counted backwards. It didn't change anything. Two, 1.
@@ -29,6 +33,8 @@ I counted backwards. It didn't change anything. Two, 1.
 Then, again, it happened. For a brief moment, around the time her heart hit the floor, the chair had 3 legs.
 
 Then the chair was gone. She was, too. The blood, the organs, everything. It was as if the chair had cleaned up after itself.
+
+I thought it was over. It was not.
 
 I reached for a spoon, and threw it at where the chair used to be. It froze there, mid-air. A loud bang came from my bedroom, as the spoon fell.
 
@@ -42,11 +48,15 @@ Speaking out loud did not change the outcome. I had hoped it would.
 
 I still had Jason's phone in my pocket. I wanted to use it, but something else came over me instead. I'd had enough. This chair was driving me insane. So I decided I'd do what I thought I would never do.
 
+The very thought of sitting upon the chair made me feel dread. The kind of dread you get when there's something you know you have to do, but don't want to. Make no mistake - This is something I HAD to do. Something told me it was the only way forward.
+
 As I sat on it, I did one thing differently from everybody else. I made sure that no part of me was touching the ground as I made contact with the chair. I jumped back into it as I sat. I think this is why the chair chose to spare me.
 
 I didn't morph, I didn't contort. But the world around me did. Walls moved, furniture shrunk and grew, holes appeared in the floor and ceiling. It slowed to a stop, and I've been too afraid to get up from this chair since. I don't want to touch this morphed world.
 
-I could see through my wall. There's a gaping hole, yet no debris. I could see my neighbour, sitting in his dining room. I could see through his skin, I could see inside of him. Yet he continues to sit there as if nothing is wrong.
+I couldn't understand why the chair didn't consume me. I thought at first that it was torturing me - Killing people in front of me yet refusing to put me out of my misery. But I know better now.
+
+I noticed could see through my wall. There's a gaping hole, yet no debris. I could see my neighbour, sitting in his dining room. I could see through his skin, I could see inside of him. Yet he continues to sit there as if nothing is wrong.
 
 I looked down.
 
@@ -82,6 +92,12 @@ He didn't know I could see through his skin.
 
 Why was he lying? It has 4. I can count them all. One, two, three, four.
 
+I spoke out loud to see if they would pretend to not hear me. "Hello?"
+
+They all looked around. One spoke into their radio again.
+
+"Someone is here. But they're not in our cross-section of the fourth dimension. They've rotated through it. I don't know how they survived."
+
 He didn't touch the chair, but I did reach out to him as he got closer. I wanted to see what would happen. I wanted to see if he would stop pretending he couldn't see me.
 
 He started screaming. I'm not sure why, he looked fine. In fact, his skin was back.
@@ -96,7 +112,7 @@ I think they're dead.
 
 But the chair has 4 legs. Everything should be fine.
 
-I don't know why these agents were so interested in such a normal chair. They should be more concerned about the rest of the world, everything is broken. I'm not sure what these agents want, or where they're coming from. I'm still trying to figure out what Jason meant when he spoke about dimensions.
+I don't know why these agents were so interested in such a normal chair. They should be more concerned about the rest of the world, everything is broken. I'm not sure what these agents want, or where they're coming from. I'm still trying to figure out what the agents meant when they spoke about dimensions.
 
 They're probably going to send more agents out soon. I wonder if they'll pretend not to see me, too.
 
