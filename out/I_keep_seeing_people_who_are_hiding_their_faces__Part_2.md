@@ -115,3 +115,5 @@ His face slowly tilted up as I jumped out of the bed. As if he could see me betw
 I jumped out of bed and ran into the hallway. I could hear his footsteps behind me, creaking across the old wood. I stumbled down the stairs and ran through the kitchen. His bare feet slapped on the tile behind me. I ran into the garage, panting. Grabbed my keys and dove into my car.
 
 I didn’t dare look at him as I peeled out of the driveway.
+
+[Part 3 Final](https://www.reddit.com/r/nosleep/comments/z6jjf9/i_keep_seeing_people_who_are_hiding_their_faces/)

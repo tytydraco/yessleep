@@ -114,6 +114,6 @@ I’ve been sitting up here for an hour now, waiting for Jack to come home. But 
 
 What then?
 
-&#x200B;
-
 [Part 2](https://www.reddit.com/r/nosleep/comments/z5jp0h/i_keep_seeing_people_who_are_hiding_their_faces/)
+
+[Part 3 Final](https://www.reddit.com/r/nosleep/comments/z6jjf9/i_keep_seeing_people_who_are_hiding_their_faces/)

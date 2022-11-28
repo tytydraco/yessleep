@@ -1,0 +1,24 @@
+I haven't retained sleep in weeks. Some nights, I don't even sleep at all. I have counted the 463 tiles that cover the ceiling of my bedroom 56 times in that time frame.
+The bags under my eyes feel as heavy as the stress from this whole experience. At this point, my circadium rythum is so completely out of whack, I've lost track of how many days i've been suffering with this but i can tell you when it all started. 
+
+Her name was Jessica. It was a pretty standard tinder experience. We had planned to meet up at a bar that was smack dab in the middle of both of our towns, so it was a date. 
+The night ends up going off without a hitch, besides her being a little too drunk and insisting that I drove her home in her car and left mine at the bar, so that's what we did. 
+Back at her place, it was clear that she had a little too much to drink and I didn't feel right engaging in SI but she didn't seem to think that was the case. She was dead set that I wasn't having SI with her because of how fat she looked in her dress. She ended up storming off and locking herself in her spare room. Not her bedroom, not her bathroom, but her spare room. 
+I tried knocking several times, but i never heard a single noise come from that room for the rest of the night.
+
+so I was stuck there. I couldn't just take her car back to my car and leave her stranded here and with my phone dead and no charger anywhere, the keys that sat in my pocket were completely useless to me. So I figured I was safe, she was safe, and everything else could wait till the morning so I made myself comfortable. I sat on the couch, occassionally standing up and walking to the end of the hallway to check for any sign of life. 
+
+It was at 7:15 the next morning that a sign of life was heard from that end of the hallway. the clicking of the latched doorknob woke me from my sleep. I found her in my place at the end of the hallway and looked at me, asking rudely what I was still doing there. After explaining to her my situation, her facial expression grew weary and after an awkward moment of silence, she offered me a ride back to my car.
+Concluding one of the most uncomfortable, unapologetic car rides i've ever recieved, I thanked her for her hospitality and she returned the gesture, apologizing for her behavior. I insisted I understood the effects of alcohol and chuckled. I looked up to met her gaze, expecting a warm gaze and smile to meet me but instead i was greeted by dismay. With the smile falling from my face, the last words I heard from her were a cryptic "the alcohol helps", followed by the sound of her car being shifted into gear and slowly driving away.
+Confused and bewildered by the entire night, I pulled my phone out and deleted the tinder app as I sat into the drivers seat.
+
+
+It was that very afternoon that I had the first dream.
+It started off subtle. I'd wake up feeling like I had been running a marathon in my sleep and this hum that resembled the feedback from a microphone would completely engulf my thought process. At first, I would blame it on the occassional bad food choice or even a little bit of the sauce but after the first couple of days of consistently waking up in this way and the hum only increasing, I had made appropriate dietary changes so by morning #5 with no change, I was growing more frusterated than anything, desprate for some relief.
+The hums had slowly developed into whispers which slowly developed into speech, which eventually evolved into what resembled an entire crowd of people all speaking at the same time in all types of different languages. Soon it started to feel as though I was only closing my eyes at night just to listen to the racket.
+
+It had been some time when the only thing louder than the hum that may have been permantely etched into my brain were the cryptic words of that woman "Alcohol helps".
+
+I've tried other methods. I downloaded tinder on my phone again but there is no trace of her anywhere. Not in the messages, the SMS or even the phone call we shared when we both arrived at the bar. It was like she had vanished and I was left the delusional psycho. At my wits end I even went back to the place I had spent the night to knock on the door to only be greated by a girl that wasn't even the right skin tone as Jessica. Going a little overboard at this point I insisted that I had been here to which she told me she had been living there with her 3 kids and husband for the better part of 2 years. Defeated, all I could do was leave and return home.
+
+So I grab another bottle off the shelf hoping that tonight is going to be the night I finally get some rest. Though it doesn't solve my problems, it does lessen the racket back down to the whispers and at this point, anything close to silence would be enough to rest my soul and leave space for my head to try and figure out who the hell was Jessica and what did she do to me?
