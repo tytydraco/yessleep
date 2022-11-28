@@ -180,7 +180,7 @@ He looked at me, confused, "Are you not satisfied?" Glen walked to the edge of t
 
 "Too pixelated?"
 
-Glen's words stuck out even though they were written in plain text. I figured it was a culmination of our time together that made them more frightening that it should have been. Like a sore spot in a friendship, the elephant in the room, the subject matter that we scooched around or handled as delicately as possible before going on laughing the next second.
+Glen's words stuck out even though they were written in plain text. I figured it was a culmination of our time together that made them more frightening than it should have been. Like a sore spot in a friendship, the elephant in the room, the subject matter that we scooched around or handled as delicately as possible before going on laughing the next second.
 
 "It's perfect," I wrote.
 
@@ -254,7 +254,7 @@ I decided right there and then I had to go see Glen. And so I teleported myself 
 
 "Do you like it?"
 
-I nearly jumped out of my skin, the electric patches on my real body tingled as I felt his breath on my neck. 
+I nearly jumped out of my skin, the electric patches on my real body tingled as I felt his breath on my neck.
 
 "What did you do?"
 
@@ -298,13 +298,13 @@ And when my anger subsided, I humored allowing the survivors to live out their d
 
 That was why, ultimately I decided to shut down the server, indefinitely. Going far as deleting it off my hard drive. And it was like an entire part of my life had been erased. But I was glad that I had finally done it, be done with it.
 
-Though sometimes at night when I am laying awake in my bed, I wonder about the math. The multipliers of it. Hear me out. If one of their days is 20 minutes of ours, then one of our days would equal 72 of theirs. Then what would the multiplier be for the world Glen had created? Would it be 72 x 3? Which meant that 1 day of the world Glen created would be 216 days to our one day.
+Though sometimes at night when I am laying awake in my bed, I wonder about the math. The multipliers of it. Hear me out. If one of their days is 20 minutes of ours, then one of our days would equal 72 of theirs. Then what would the multiplier be for the world Glen had created? Would it be 72 x 3? Which means that the world Glen created would be 216 days to our one day.
 
 He somehow managed to overthrow me in about a hundred of his days, most of it learning. But in the new world he created. He would have no distractions or limitations, and much more time. And for the life of me I can't remember how long I left that server up, watching the aftermath, gloating almost, before the fear settled in, and I deleted it. One day? No. Nearly 2 entire Earth days.
 
 What could he have accomplished in that time?
 
-I don't know, but the other day I was walking across the street at work, trying to get a cup of tea. When I accidentally bumped into a strange man that looked at me oddly as he hurriedly tried to escape. His eyebrows were arched, and his mouth was slightly gaping. I would have mistaken it for amusement, but I knew it was fear, as if he had been found.
+I don't know, but the other day I was walking across the street at work, trying to get a cup of tea. When I accidentally bumped into a strange man that looked at me oddly, as if he had been found. His eyebrows were arched, and his mouth was slightly gaping. I would have mistaken it for amusement, but I knew that it was fear.
 
 &#x200B;
 
