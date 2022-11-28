@@ -457,7 +457,7 @@ Roman's laugh drove her crazy.
 
 Like a fucking hyena, she thought. 
 
-Caine held up the drill. “From what I know, this thing is like… a root. A digital root they put inside our head—- which they program. But…”
+Caine held up a drill. “From what I know, this thing is like… a root. A digital root they put inside our head—- which they program. But…”
 
 He pointed to his own head. “I got it out.”
 

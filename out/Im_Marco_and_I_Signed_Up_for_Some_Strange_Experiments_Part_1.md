@@ -12,7 +12,7 @@ I decided I shouldn’t postpone my burrito for this stranger, but I also wanted
 
 Before people ask why I opened the door, there’s some stuff you should know about me and where I live.
 
-The stuff about me first. I’m really stupid, and o try and help when I shouldn’t.
+The stuff about me first. I’m really stupid, and I try and help when I shouldn’t.
 
 Now about where I live.
 
@@ -20,7 +20,7 @@ In my town I’d heard a lot of weird stories. Stories about things that happen 
 
 Most of these stories have come from passersby, people who stop at my isolated house asking for directions, food, medical supplies, or all three.
 
-These stories are about ghosts and the supernatural. All stories I’d avoided being a part of by keeping my head down for 18 years. Also all stories I didn’t believe for good reason.
+These stories are about ghosts and the supernatural. All stories I’d avoided being a part of by keeping my head down for 18 years. Also all stories I didn’t believe, and for good reason.
 
 That’s where my weird begins. At 18, living alone, and calling attention to myself when I shouldn’t.
 
@@ -30,7 +30,7 @@ Total strangers are a real shock in this place. Even I, thanks to my time workin
 
 “Marco!” He greeted me like an old family member, or maybe it was like a man trying to give me a false sense of security. I think it might have been both.
 
-I felt like the cold blast of winter wind was all too fitting for this man. The pale skin didn’t go well with the all black suit he was wearing. Neither did the heavy purple bags drooping beneath his eyes. Behind his spectacles was a piercing green stare.
+The cold blast of winter wind was all too fitting for this man. The pale skin didn’t go well with the all black suit he was wearing. Neither did the heavy purple bags drooping beneath his eyes. Behind his spectacles was a piercing green stare.
 
 Stretched out toward me was a skinny hand, sprung like a trap.
 
