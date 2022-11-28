@@ -275,7 +275,7 @@ Ally nodded. “Is it all going to be over soon?”
 
 My other self didn’t reply. Instead, she hugged Ally again, before letting the little girl climb into the backseat.
 
-“You’re suicidal.” Caine said, climbing into the driver’s side. He saluted me with two fingers. “I’ll make sure to make eye awkward contact with you across the street when you’ve been assimilated into your new family and are a mindless shell of yourself wiped of all you were.”
+“You’re suicidal.” Caine said, climbing into the driver’s side. He saluted me with two fingers. “I’ll make sure to make awkward eye contact with you across the street when you’ve been assimilated into your new family and are a mindless shell of yourself wiped of all you were.”
 
 She sent him the finger. “Well if I am going to be erased completely, yes. It was me who stole your GTA game.”
 
