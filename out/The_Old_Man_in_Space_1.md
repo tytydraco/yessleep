@@ -1,0 +1,13 @@
+As kids, we always got up to something in the mobile home park overlooking the old reservoir. Whether we were exploring the wooded areas surrounding the park or playing in the unoccupied lots, there was plenty for us to stay entertained. 
+
+The park had 100 spaces, about 70 of which were being utilized by homes and was tucked back away from the town, about 15 miles through the farmland on a windy mountain road. In some areas the spaces didn't follow a particular order as they were numbered based on when they became occupied. 
+
+Space #1 was tucked away in its own little area at the top of a steep hill leading down to a clubhouse and playground. My friends and I always passed the house on our adventures and never really noticed how creepy it was until a cold winter morning in December 2000. Rumor had it, the old man who had lived there had passed away of natural causes in the house. 
+
+We didn't know too much about the old man, but according the adults in the park he kept to himself and seemed to only leave at night, taking extra care to not be seen. Very few people remembered seeing his car out in the wee hours of the night. He had also been there as long as anyone could remember and never participated in any community events. His was also the only dark house on Halloween. The kids who had lived there longer than my friends and I were terrified of him and refused to go near his lot. 
+
+We were riding our bikes down to the clubhouse for a community event and decided to go past his house and as we passed by, we heard a strange noise coming from the house. I was only 9, and a very petite girl, so I was more hesitant than the boys to approach the house. We slowly walked up and one after the other peered through the glass, Jesse going first. Then Danny, then Jeff, and then I approached. 
+
+We were looking through the window and I didn't see anything except for old dusty furniture when Jesse cried out in shock and yelled "run!", so we ran and didn't look back. We asked Jesse what he had seen but he couldn't even get the words out, the color had drained completely from his face and his eyes were so wide it didn't look like he'd ever be able to blink again. 
+
+Later the next year they tore the house down so a new family could move in to a whole new house and life went on. The family who moved in were lovely and super involved with the community. We never found out what Jesse saw that day, we tried to ask him a couple more times what he had seen but he just got that terrified look on his face and went silent so we stopped asking. Eventually he stopped going out with us at all when his family packed up and moved away. None of us ever heard from him again.

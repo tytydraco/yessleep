@@ -32,7 +32,7 @@ We small talked, but the time to clock on was coming quickly. It was 4:22.
 
 "The Wednesday crew is a bit different. Little John won't be in the kitchen, you'll be meeting Johnny today. One thing to note; you are the only one with any fixed days off. Lucky, if you ask me."
 
-Did she mean Jonathan? Barrow had mentioned him. "Why do I get a special shift?"
+Did she mean Jonathan? Barrow had mentioned him on Monday. "Why do I get a special shift?"
 
 "We already have someone like you on Tuesday and Wednesday."
 
@@ -44,9 +44,9 @@ She smiled. "Johnny."
 
 Barrow arrived, followed by Em. We went to the door, waiting for Jonathan. With seconds to spare, an old minivan turned into the parking lot at far too high a speed. The car almost tipped over, then missed a parking spot to hit a "handicap" sign hard enough to bend it. I was expecting a person to climb out, but I was unpleasantly surprised.
 
-I am not sure if they were just called this thing Jonathan or if this was an early customer. It approached us at the door just as Selene was pushing it open. I let it pass, then followed Barrow and Em inside. Once in the lobby, Barrow gestured at the thing.
+I am not sure if they were just called this thing Jonathan or if this was an early customer. It approached us at the door just as Selene was pushing it open. I let it pass, then followed Barrow and Em inside. Once in the lobby, Selene gestured at the thing.
 
-"New Guy, Johnny. JJohnny, New Guy."
+"New Guy, Johnny. Johnny, New Guy."
 
 That wasn't my name, but I didn't much care. "H-hey..." I offered awkwardly, denying the hand that he stretched out.
 
@@ -100,7 +100,7 @@ Her office door opened, she spotted the man, and rolled her eyes. "Again?"
 
 "I guess so." Fields replied.
 
-Why on earth was a doctor doing inspections? Jonathan didn't come up, so Barrow called again. "Johnny, come on!"
+Why on earth was a doctor doing inspections? Jonathan didn't come up, so Barrow called again. "Jonathan, come on!"
 
 Out came the little ass. I guess it was nervous; the disguise was majorly out of place. Only one eye hole was lined up right, the nose was down by its mouth, and one leg was rolled up to its knee. How the hell was anyone falling for that? Still, Selene, Barrow, and Em stood with "Jonathan" as if nothing at all was amiss.
 
