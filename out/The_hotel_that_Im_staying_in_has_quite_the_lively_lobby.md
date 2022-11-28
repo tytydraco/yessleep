@@ -14,7 +14,7 @@ What I loved, more than anything, was that it was always lively in the lobby.
 
 *I love this city,* I thought to myself. I could only imagine what sorts of adventures these folks were going to have here during their travels.
 
-So… it had been an awesome trip so far, and it was now a few nights before the wedding activities were about to start. I was heading to my room after another successful night of exploring the city. I trekked through the lively bar area in the lobby, and did a double take when I heard of the bartenders call out to me:
+So… it had been an awesome trip so far, and it was now the night before the wedding activities were about to start. I was heading to my room after another successful night of exploring the city. I trekked through the lively bar area in the lobby, and did a double take when I heard of the bartenders call out to me:
 
 “Ahh you’re looking a little glum, Peter.”
 
@@ -32,7 +32,7 @@ Fuck it. This was kind of what I was hoping would happen. It felt like everyone 
 
 I sat and joined everyone there for what was a very fun few hours. They asked me about what brought me here and why I was visiting, and I have to say, they were *incredible* listeners. Drinks were on them (hell yes), and as someone who doesn’t get to spend a lot of time just “going with the flow”, a spontaneous night of drinking with strangers was just what the doctor ordered. It was a well-needed reprieve from my usual life of “work hard, save money, you can relax later.” I was on *holiday*. And to have such worldly folks hanging off my every word was a good feeling.
 
-Off the heels of a fantastic night on an already fantastic vacation, I went up to my room, ready to call it a day. I had two more full days to myself before my friends were gonna arrive and wedding season was gonna kick in, so I figured it’d be smart to get some extra shut-eye.
+Off the heels of a fantastic night on an already fantastic vacation, I went up to my room, ready to call it a day. Wedding season was going to kick in very soon, so I figured it’d be smart to get some extra shut-eye.
 
 I entered my room. As I changed into my sleeping clothes, I noticed an enclosed envelope on my bedside table. It was tucked under a plastic display that had some generic hotel policy stuff on it.
 
@@ -90,13 +90,13 @@ The front desk workers looked at me. Their eyes read - “are we all good here?�
 
 He snickered.
 
-“I overheard all of you at the bar last night. Sounds like you guys were having a great time.”
+“I overheard all of you at the bar earlier tonight. Sounds like you guys were having a great time.”
 
 He motioned to the crew of elderly folks who were all seated at the bar close to us. As he looked over, they noticed me and started cheering. I heard a smattering of their different voices:
 
-“Hey! Kevin’s Here!” / “Oh Look it’s Kevin!” / “Join us man, we want to hear some more stories!”
+“Hey! Kevin’s back!” / “Oh Look it’s Kevin!” / “Join us man, let's make it a late night!”
 
-It was pretty much the exact same crew as yesterday. *Odd.* They were dressed the same too. Still as welcoming as ever.
+The gang was still all there, as welcoming and excited as ever.
 
 The man in the red jacket started laughing.
 
@@ -146,13 +146,13 @@ And with that, he got up and walked off, leaving me with a strange, unsettling f
 
 I got up to head back to my room when I noticed the folks at the bar all looking at me, and all lighting up as I walked past. *Fuck it, the bar lobby is always a good time.* I needed to shake off the bad energy.
 
-As I made my way to an open bar seat, the bartender gave me the same line he said to me last time:
+As I made my way to an open bar seat, the bartender gave me the same line he said to me earlier in the night:
 
 “Ahh you’re looking a little glum, Peter.”
 
 “It’s uh, still Kevin, but nice to see you again sir!”
 
-I plopped down at the lively bar area. Saw some familiar faces. The elderly woman I spoke with the previous night started it off -
+I plopped down at the lively bar area. The elderly woman I spoke with the earlier kicked it off again -
 
 “You got any new stories for us, Kevin? Maybe tell us what you do for a living?”
 
@@ -162,7 +162,7 @@ After about an hour of hanging out, I decided to leave and go up to my room. As 
 
 *The lobby feels safe. I want to stay there.*
 
-I made it back to my room. My friends were gonna arrive very late that night, and so we were all gonna meet up together tomorrow. I made sure to focus on getting another good night’s sleep and tried to keep my mind off of the weird happenings I’d run into that day.
+I made it back to my room. My friends were gonna arrive very late that night, and so we were all gonna meet up together tomorrow. I made sure to focus on getting a good night’s sleep and tried to keep my mind off of the weird happenings I’d run into that day.
 
 I slept in, and woke up the next day, completely fresh and ready for the day ahead of me. Or so I thought.
 
