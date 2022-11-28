@@ -18,9 +18,9 @@ Concerned, I hurried down the hall to check on Dahlia, but she was sitting at he
 
 She beamed, enjoying herself and her new friend. I hated to be the killjoy dad who ruined her fun.
 
-"Okay," I said in a hushed voice. "I'll let you stay up just this once. But *don't* tell your mother."
+"Okay, I'll let you stay up just this once. But *don't* tell your mother."
 
-"Oh, thank you!" she said, jumping and clapping. She waved goodnight as I closed the door.
+"Oh, *thank* you!" 
 
 "Good night, pumpkin."
 
@@ -54,7 +54,7 @@ She groaned. “Not now, John. I’m sleeping.”
 
 She sat up, bleary-eyed. “What is it?”
 
-“It’s *Frank.*” I kept my voice low, my eyes darting around the room as I spoke. "Frank was sitting at the table when I woke up, so I moved him, but he came back—*twice*!"
+“It’s *Frank.* He was sitting at the table when I woke up, so I moved him, but he came back—*twice*!"
 
 She rubbed the sleep from her eyes and frowned. "Honey, have you been drinking?"
 
@@ -80,15 +80,15 @@ It also didn’t help that Dahlia brought Frank *everywhere;* he was her new, be
 
 Dahlia shook her head. "But Frank is *special,* mommy. He even *talks.*"
 
-Brooke laughed. "No, honey. Porcelain dolls don't—"
+"No, honey. Porcelain dolls don't—"
 
 "But he *does*!" Dahlia shouted.
 
-Later, Dahlia showed us Frank's "secret talent." She stood him on the kitchen table and spoke to him. “All you have to do is start talking, and he talks back.”
+Later, Dahlia showed us Frank's secret talent. She stood him on the kitchen table and spoke to him. “All you have to do is start talking, and he talks back.”
 
 Brooke and I exchanged amused glances, but we played along.
 
-"How are you, Frank?" Dahlia said.
+"How are you, Frank?" 
 
 *Kids are so cute,* I thought, expecting nothing to happen.
 
@@ -140,7 +140,7 @@ He shrugged. "Could be. It's hard to say." He pointed to Frank. "But I'd like to
 
 I nodded. "All you have to do is start talking, and he'll talk your ear off."
 
-"Very well," he said. "And do you mind if I record this?"
+"Very well. And do you mind if I record this?"
 
 "Please, go ahead," Brooke said.
 
@@ -152,7 +152,7 @@ Then, Frank's left foot twitched, and the raspy voice from the previous night re
 
 I shuddered.
 
-"Tell me about yourself," Dr. Randolph continued. "And feel free to use your native tongue if you wish."
+"Tell me about yourself. And feel free to use your native tongue if you wish."
 
 That really got Frank rolling. After that, Frank jabbered nonstop for minutes without taking a breath. Dr. Randolph listened, but his amusement soon turned to concern, and he scribbled something in his notepad.
 
@@ -168,7 +168,7 @@ After Frank finished, Dr. Randolph turned to us, his eyes serious. "I'm uneasy w
 
 Dr. Randolph's eyes widened like half-dollars, and he shook his head. "I can't believe it, but your doll is speaking ancient *Sumerian,* a language from Mesopotamia. Not just that, but whatever is inhabiting this doll *isn't* very nice. And frankly, I don't care for the way he talks about *you*, John."
 
-"What did he say about me?" I asked, my back stiffening.
+"What did he say about me?" 
 
 "He said you grabbed him and threw him on the couch, and now he wants to—and these are *Frank's* words—'teach that asshole a lesson.'"
 
@@ -186,7 +186,7 @@ Dr. Randolph returned Frank to the Ziploc bag, then continued. "But you two have
 
 "Please, go ahead," I said, eager to get rid of the foul-mouthed creature.
 
-“Very well,” he said. “You two go home, relax, and I’ll be in touch.”
+“Very well. You two go home, relax, and I’ll be in touch.”
 
 We thanked him and left.
 
