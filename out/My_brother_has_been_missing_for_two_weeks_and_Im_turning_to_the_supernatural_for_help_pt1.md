@@ -346,4 +346,6 @@ He had a point, but I didn’t want to give him that, “Can you let go of me no
 
 I didn’t understand what they were talking about until I dared look at it myself. It was healed, not so much as a mark left. I realized two things at once. First, was that Eric was expecting something worse and he was almost willing to let it happen. Secondly, I now understood what these people were. Cold to the touch and with a thirst for blood? Vampires. 
 
+[Next](https://www.reddit.com/r/EricLinnaeus/comments/z7vgpo/my_brother_has_been_missing_for_two_weeks_and_i/?utm_source=share&utm_medium=web2x&context=3)
+
 [More](https://www.reddit.com/r/EricLinnaeus/comments/yisk8p/chapter_list/?utm_source=share&utm_medium=web2x&context=3)
