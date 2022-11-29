@@ -1,6 +1,4 @@
-This is part one, the beginning of my experience with the supernatural, and my first shift at The Drowsy Spectre. If you are looking for part two, or just want to read more, you can click [here](https://www.reddit.com/r/nosleep/comments/z2gw2o/i_had_a_strange_first_shift_at_my_new_job_but_now/?utm_source=share&utm_medium=web2x&context=3).
-
-&#x200B;
+I work at The Drowsy Spectre, a café positioned in a place sure to never get any business. No human business, that is. This is the beginning of my experience with the supernatural, and my first shift at The Drowsy Spectre. If you ended up here on accident, or are looking for more, click [here](https://www.reddit.com/r/nosleep/comments/z2gw2o/i_had_a_strange_first_shift_at_my_new_job_but_now/?utm_source=share&utm_medium=web2x&context=3).
 
 \--------------------------------------
 
