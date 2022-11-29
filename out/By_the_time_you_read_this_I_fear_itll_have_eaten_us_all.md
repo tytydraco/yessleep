@@ -30,9 +30,9 @@ Lucas frowned. With every jeer and jab, he tried a bit hardier, but you could te
 
 But he kept trying, harder and harder, take after take. He walked the same hallway over and over again, growling,  clawing at the walls, at his face. Asher continued to drill him, but no tantrum came. Instead, for a moment, it seemed the house had a meltdown– the power went out, wind seemed to whistle in from between windows and beneath doors, channels of drafts running down my neck and pooling in the hallway. Lucas stood stock still, just for a moment, until the lights flickered on once again, in a trembling snap.
 
-"You kids okay!?!" Nana Maggie shouted from the kitchen, stirring freshly made gravy over the stovetop. "I think there were too many lights on. Turn one off in the living room, if you can!" We turned off two, the floor lamp and a little horse shaped ceramic piece, over by the bookshelf.
+"You kids okay!?!" Nana Maggie shouted from the kitchen, stirring freshly made gravy on the stovetop. "I think there were too many lights on. Turn one off in the living room, if you can!" We turned off two, the floor lamp and a little horse shaped ceramic piece, over by the bookshelf.
 
-Now, I’m not entirely sure it was an overloaded circuit. Lucas seemed to move differently after it all, as if compelled to put on an increasingly terrifying performance. It wasn’t right, how he was moving. He was charged with a sort of dense, sinister energy, seeped deep into his tiny frame, turning his eyes pale and glossy. His tongue lolled out of his mouth.
+Now– I’m not entirely sure it was an overloaded circuit. Lucas seemed to move differently after it all, as if compelled to put on an increasingly terrifying performance. It wasn’t right, how he was moving. He was charged with a sort of dense, sinister energy, seeped deep into his tiny frame, turning his eyes pale and glossy. His tongue lolled out of his mouth.
 
 One simply isn’t scared of a five year-old. After all, what can a five year-old do, in his worst moments, other than pull loose a few tufts of hair, or kick a few shins? But Lucas didn’t seem much like a five year-old anymore, hardly like a boy at all.
 
@@ -44,11 +44,11 @@ There was something very wrong with Lucas.
 
 They say in circumstances of profound fear, "fight or flight" kicks in. But me, I just froze. Asher began crying, silently. I noticed I had dropped my phone. The filming dot blinked in the corner of the screen, as the phone lay, face down, on hardwood. The house must’ve been built on a slant, because blood crept across the floorboards and pooled beside it.
 
-Everything seemed to slow then. Nana called in from the kitchen.
+Everything seemed to slow then. Nana called out from the kitchen.
 
 "Kids! You alright in there? What’s happening? It’s almost time to eat!"
 
-Dinner was the least of my concerns, then, but Lucas– he swiveled on his heel, and with sudden swiftness, scrabbled for the kitchen. He began making a horrendous crunching sound, which I recognized –horribly– to be the sound of teeth snapping. He slammed his jaw up and down and up again with such staggering force his teeth broke, leaving jagged, bloody shards, fit for what– I dared not imagine.
+Dinner was the least of my concerns, then, but Lucas– he swiveled on his heel, and with sudden swiftness, scrabbled for the kitchen. He began making a horrendous crunching sound, that I recognized –horribly– to be the sound of teeth snapping. He slammed his jaw up and down and up again with such staggering force that his teeth broke, leaving only jagged, bloody shards...fit for what– I dared not imagine.
 
 He scrabbled towards the kitchen, and, suddenly, shock and paralysis gave way to pure and utter panic. Asher took off for the living room, screaming for his parents, a strangled and sobbing cry. I ran for the kitchen, where Nana stood with her back turned, still stirring the gravy, and humming to herself.
 
@@ -62,13 +62,13 @@ Nana started crying from the floor, where she lay.
 
 I felt a single tear fall from my left eye. *This is how I’ll die*. The truth hit me like a truck. There were no doors in the basement, no windows more than a few inches wide. The door could hold him perhaps for a few minutes –a half-hour at best– but it was hollow, made of that thin, cheap wood. The kind you could punch through, if you tried real hard.
 
-Vision blurry, I ran up the stairs, my mom and another uncle in hot pursuit. We slammed the door shut with a resounding crack, just seconds before Lucas, sliding now in a pool of sludge, reached the landing. We held fast, hearing a scratching now from the door’s opposite face. The door had no lock, no bolt, and so we just held it there, the three of us, pressed against one another in desperation.
+Vision blurry, I ran up the stairs, my mom and another uncle in hot pursuit. We slammed the door shut with a resounding crack, just seconds before Lucas, sliding now in a pool of sludge, reached the landing. We held fast, hearing his scratching from the door’s opposite face. The door had no lock, no bolt, and so we just held it there, the three of us, pressed against one another in desperation.
 
 There was a table in the basement. Most of the dishes had been laid out already– tin foil and plastic wrap pulled back gently. The sweet pie scent still wafted deliciously from the windowsill, and perhaps it still would, after it all, mingled with the metallic scent of blood.
 
-We had planned to eat together, down here. The spread was beautiful. The turkey sat on the table, both main course and centerpiece, now grown cold. Asher sat crying on the landing. "Good enough, good enough, good enough…" he whispered, rocking back and forth. His face was wet and glistened in the faint light–- no one had thought to turn the lamp, and it was doubtful anyone ever would.
+We had planned to eat together, down here. The spread was beautiful. The turkey sat on the table, both main course and centerpiece, now grown cold. Asher sat crying on the landing. "Good enough, good enough, good enough…" he whispered, rocking back and forth. His face was wet and glistened in the faint light–- no one had thought to turn on the lamp, and it was doubtful anyone ever would.
 
-A half-hour gone now and I’ve left the barricade at the door, replaced by an aunt. She used to play softball in high school. She’s strong, perhaps not enough, but strong. Lucas, or whatever used to be Lucas, can now reach his fingers through the clawed fragments of the door. He screams and rattles and clicks from above, digging down, punctuating any silence with a strangled, broken cry. His fingernails have to be nearly ground down by now, but still, he advances.
+A half-hour gone now and I’ve left the barricade by the door, replaced by an aunt. She used to play softball in high school. She’s strong, perhaps not enough, but strong. Lucas, or whatever used to be Lucas, can now reach his fingers through the clawed fragments of the door. He screams and rattles and clicks from above, digging down, punctuating any silence with a strangled, broken cry. His fingernails have to be nearly ground down by now, but still, he advances.
 
 I write from a paper pad by the table. I found Nana’s old fountain pen in the pocket of her apron, halfway up the stairs. She’s nearly unconscious from the blood loss. I doubt we have long left.
 
