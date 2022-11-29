@@ -187,3 +187,5 @@ He knew better. We didn’t sleep, not when the fog was still in the mountains. 
 “Sure, Danny Boy...” I went to the kitchen, already getting a pot of coffee ready to start my day at 2 A.M. I eyed the bottle of tequila on the counter for a moment before breaking off the seal and taking a sip straight from the bottle. It hit my throat with a pleasant heat that I once promised I’d never feel again. “I’ll be here as long as you need me.”
 
 This is Evelyn McKinnon from 104.6 F.M. And I don’t think Pinehaven is ever going to be the same after tonight. Neither will we.
+
+[Next](https://www.reddit.com/r/nosleep/comments/z88b7n/accounts_from_a_lonely_broadcast_station_dead_air/)
