@@ -1,3 +1,7 @@
+part 1:   
+[https://www.reddit.com/r/nosleep/comments/wvx15u/i\_found\_my\_great\_grandfathers\_journal\_from\_the/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/wvx15u/i_found_my_great_grandfathers_journal_from_the/?utm_source=share&utm_medium=web2x&context=3)  
+
+
 Hello once again! My name is Trent and firstly, I apologize dearly for my absence, things have been getting crazy around here, but I've been doing more research about my Great Grandfathers time in the army during world war one, specifically about the events written in the journal I found, here I will share my findings, and more entries inside the journal.
 
 That night when I got home had been a restless one, filled with nightmares about that monster I read about in the journal and repeating the same questions in my head over and over, I had gotten myself into a hole that I simply could not climb out of, I needed to know what had happened, and if there was any other info about this incident other than my Great Grandfathers old war journal. I made sure to set a reminder on my phone to continue reading the journal the next day, not that I would've needed one but, it was just a habit I had fallen into.
