@@ -44,7 +44,9 @@ I pull myself back up and wipe away my tears. I will fail this, I have no chance
 
 I pull myself up by the bootstraps and open myself up, The Abyss was hiding for the moment. I could play with my new talent, I will need the practice. So I connect to everyone, and I send out hope, and happiness, and a sense someone is fighting for them. And it only lasts a moment, but I feel a small relief in the grief and despair. Then it returned, but I smiled anyway still.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)  
+[Part 1](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/z3tgww/part_three_and_then_the_world_broke/)  
 
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/z3tgww/part_three_and_then_the_world_broke/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)

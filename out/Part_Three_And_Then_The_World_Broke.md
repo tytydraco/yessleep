@@ -64,7 +64,9 @@ And I felt something. ***Her***. The little hope she felt, it was lost, and it b
 
 I lie on the ground barely able to breath, my group of people around me. A man lowers his hand toward me, I take it and he pulls me up. A woman puts her shoulder under my arm and they help me sit down on a rock nearby. I could feel The Abyss still, he wasn’t dead, just too wounded to hide himself from me. But he knew I was wounded too, neither were a threat to the other at this moment.
 
-[Part One](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)  
+[Part One](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/z2y5ms/part_two_and_then_the_abyss_stares_back_into_you/)  
 
 
-[Part Two](https://www.reddit.com/r/nosleep/comments/z2y5ms/part_two_and_then_the_abyss_stares_back_into_you/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)
