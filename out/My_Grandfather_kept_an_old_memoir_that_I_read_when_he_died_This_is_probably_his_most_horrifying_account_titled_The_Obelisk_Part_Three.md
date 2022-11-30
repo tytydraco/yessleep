@@ -123,3 +123,5 @@ In other carvings, particularly the ones closest to the peak of the obelisk, I s
 And because of this, men as such would lose their minds completely. So much that is being shown to me, so much that was formerly unknown, now being pushed into the light, and yet to still be left with so little to no answers at all. Yes, this is madness itself, and I fear I will be no exception to it's crippling hold.
 
 \*\*\*
+
+[Final](https://www.reddit.com/r/nosleep/comments/z8g9b5/my_grandfather_kept_an_old_memoir_that_i_read/?utm_source=share&utm_medium=web2x&context=3)
