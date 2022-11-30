@@ -44,25 +44,21 @@ I turned back to the surly hostess. “Okay, then, can you put us on *the list*?
 
 “No. That is *not* how we operate,” Helga snapped. “You have to call at least two days before to put your name on *the list.*”
 
-“So, I can’t just tell you my name and have you add it to the list now while I’m here?”
+“I can’t just tell you my name and have you add it to the list now while I’m here?”
 
 “No.”
 
-"So, I have to leave and then call you to tell you the same thing I'm saying now?"
-
-"Correct."
-
 Steven nudged me and whispered, “ Come on, man. Let’s go.”
 
-But I wasn’t going anywhere. And this lady wasn’t going to ruin my plans. “Okay, we’ll be in touch.”
+But this lady wasn’t going to ruin my plans. “Okay, we’ll be in touch.”
 
 “What bullshit,” Steven said as we left. “Forget this place. Screw the zucchini—”
 
-But I wasn’t giving up. After some more convincing, Steven gave in. "Fine, but let's hope we don't have to see that jackbooted medusa again."
+But I wasn’t giving up, and after some more convincing, Steven gave in. "Fine, but let's hope we don't have to see that jackbooted medusa again."
 
-So, I called the restaurant, and Helga answered right away. But her voice reflected no trace of recognition when I told her I was just there.
+So, I called the restaurant, and Helga answered right away.
 
-"It's Will Drake. I'd like to put my name on your list."
+"I'd like to put my name on your list."
 
 This time, Helga sounded professional and polite.
 
@@ -82,37 +78,29 @@ I gave her all five names.
 
 “Very good. You’re on *the list.* Give your server the password 4355 when you arrive.”
 
-Then, she hung up before I could ask questions.
-
 \*\*\*\*\*
 
 Friday night, Steven, Kiera, Cole, Layla, and I walked to Miss Lucy’s from my place. Unfortunately, Helga O. greeted us.
-
-“Shit,” Steven mumbled.
 
 But this time, Helga was all smiles. “Yes, I see you’re on *the list.* Your password, please?”
 
 “It’s 4355.”
 
-Helga O. checked off a box on her list. “Perfect. Right this way.”
+“Perfect. Right this way.”
 
-Then, Helga pulled back the giant room divider and led us into the bar area, and it felt like entering another world. Electric purple lights lit up the space, which looked three times larger than I’d imagined. There were wall-to-wall aquariums with huge tropical fish, massive flatscreens, velvet lounge chairs with faux-fur blankets, and a revolving bar. The bar actually rotated carousel-style. It looked like something you’d see in Vegas. I couldn’t believe I lived across the street from this place.
+Then, when Helga pulled back the giant room divider and led us into the bar area, it felt like entering another world. Bright purple lights lit up the space, which looked three times larger than I’d imagined. There were wall-to-wall aquariums with tropical fish, massive flatscreen TVs, velvet lounge chairs, and a revolving bar.
 
-“Damn!” Cole said, admiring everything as we followed Helga up a spiral glass staircase, then toward the back of another room. The upstairs floor almost looked like a library, with large bookshelves and sofas.
+It looked like something you’d see in Vegas. I couldn’t believe I lived across the street from this place.
 
-We were so taken in by the surroundings, we hardly noticed we were the only customers in sight.
+“Damn!” Cole said as we followed Helga up a spiral glass staircase into another room. The upstairs floor resembled a library, with large bookshelves and sofas.
 
-We followed Helga past more velvet lounge chairs to the back of the room.
+We were so enamored with the surroundings, we hardly noticed we were the only people there.
 
-“Wow, look at this place,” Layla said.
+We followed Helga all the way to the back until we reached a bookshelf against a brick wall. Then, Helga opened a book on the middle shelf and pressed a large button inside. As if on cue, the bookshelf crept open, revealing a spacious private dining room and bar. All ours.
 
-Moments later, we arrived at another bookshelf against a brick wall. It looked like we’d reached a dead end.
+“Unbelievable,” Kiera said.
 
-Just then, Helga opened a book on the middle shelf and pressed a large red button inside. Then, as if on command, the bookshelf crept open, revealing a spacious private dining and bar area. *And* it was all ours.
-
-“Unbelievable,” Kiera marveled.
-
-Inside the private dining space was a lit, translucent glass floor with a koi pond underneath. And there were more crystal chandeliers, antique mirrored tables, velvet chairs, a wall-to-wall aquarium, and even a private bar. We even had our own server, an unsmiling, skinny guy who looked a little uptight.
+Inside was a lit, translucent glass floor with a koi pond underneath. And there were more chandeliers, mirrored tables, and velvet chairs, along with a giant aquarium and a private bar. We even had a private server.
 
 “*This* is all for *us*?” I asked, my jaw dropping.
 
@@ -172,7 +160,7 @@ But he never replied.
 
 “What the hell?” Cole asked.
 
-My heart raced. *What did I get us into? I wondered. What if this place is over-the-top expensive? My friends will kill me.*
+My heart raced. *What did I get us into? What if this place is over-the-top expensive? My friends will kill me.*
 
 Sure, I could afford the occasional nice dinner, but within reason. *What if this place is totally out of our price range?*
 
@@ -198,9 +186,7 @@ At that moment, the music stopped, and the room went black. Even the iPad screen
 
 “What the hell?” Steven said, nudging me.
 
-*Huh? What’s going on?*
-
-“Hello,” I said, waiting for a response.
+“Hello,” I said.
 
 Silence.
 
@@ -268,7 +254,13 @@ We hadn’t heard a peep.
 
 Steven’s eyes bulged, and Layla froze, looking too terrified to speak.
 
-Moments later, the server returned with another tray. Once again, he set the items on the table, scanned the list, walked to the wall, and flipped a switch. And once more, the music stopped, and the room went dark.
+"Kiera?" we called.
+
+But silence.
+
+Moments later, the server returned with *another* tray of items we hadn't ordered. Once again, he set the items on the table, scanned the list, walked to the wall, and flipped a switch.
+
+Again, the music stopped, and the room went dark.
 
 A small gasp was the only sound.
 
@@ -288,11 +280,11 @@ Steven tried, but the call dropped for him, too.
 
 “I don’t know,” I said, dialing the front desk again. Apparently, that was the only number that worked.
 
-After a few rings, Helga answered, sounding calm and unruffled as I explained the situation.
+After a few rings, Helga answered, sounding unmoved as I explained the situation.
 
 “Three of our friends have vanished. We need help—now. Let us out of this room!”
 
-But the hostess remained unruffled and nonchalant. “You’ll have to wait until your server returns.”
+But the hostess remained calm. “You’ll have to wait until your server returns.”
 
 “But he won’t *talk* to us!” I shouted, my anxiety surging.
 
@@ -348,7 +340,7 @@ I held her close, happy she was safe but worried about my other friends.
 
 Her voice trailed off. And I just hugged her.
 
-An hour, Steven came over and pressed for details.
+An hour later, Steven came over and pressed for details.
 
 “Layla, I know you’ve been through a lot—I can’t imagine—but we *really* need to know what happened. And we need to know if Cole and Kiera are okay?”
 
@@ -382,31 +374,31 @@ None of it made sense to us, either. But after twenty-four hours, I called the p
 
 Perhaps the strangest part about this experience is what happened several days later when the police called to give us an update.
 
-“Your friends didn’t go missing. They said they told you they were leaving early.”
-
-*No, they didn’t. Why would they say that?*
-
-“And your friend Kiera says she’s even working at Miss Lucy’s now.”
+“Your friends didn’t go missing," the officer said. "They said they told you they were leaving early. Your friend Kiera even told us she's working at Miss Lucy's now.”
 
 “Wait—*what*?”
 
-*No way.*
+*No way. That's impossible.*
 
-“Kiera said that?” I asked.
+“*Kiera* said that?” I asked.
 
-That didn’t sound like her. And it wasn’t like either of them not to call or text for days. So after I hung up, I called Miss Lucy’s to learn more.
+That didn’t sound like her. And it wasn’t like either of them not to call or text for days. So after I hung up, I called Miss Lucy’s.
 
-Sure enough, Kiera answered.  Her voice sounded flat and robotic; I barely recognized it. “Miss Lucy’s. Kiera speaking.”
+Sure enough, Kiera answered, but her voice sounded flat and robotic. I barely recognized it. “Miss Lucy’s. Kiera speaking.”
 
-“Kiera, it’s me, Will. What the hell happened? And why are you working *there*?”
+“Kiera, it’s Will. What happened to you? And why are you working *there*?”
 
-Her voice reflected no trace of recognition. It was like she didn’t know me at all. Chills ran down my spine. All she said was, “Sir, are you on *the list*?”
+But it was like she didn’t know me. All she said was, “I'm sorry, sir. Are you on *the list*?”
 
-I hung up. I never did find out everything that happened to Cole, Layla, and Kiera that night, but I was grateful Layla had been spared. Still, I didn’t understand any of it.
+I hung up.
+
+I never did find out everything that happened to Cole, Layla, and Kiera that night, but I was grateful Layla had been spared.
 
 After that night, Cole and Kiera changed; I felt like I hardly knew them anymore, and they spent all their time with their creepy, new friends from Miss Lucy’s.
 
-Since then, I’ve talked to other people who’ve been to Miss Lucy’s and they all have similar stories. Either their friends changed or started working there soon after they went. Other people’s friends vanished but never returned. Unfortunately, the police never believed their stories.
+Since then, I’ve talked to other people who’ve been to Miss Lucy’s and they all have similar stories. Either their friends changed or started working at the restaurant soon after they went. Other people’s friends vanished but never returned. 
+
+Unfortunately, the police never believed their stories.
 
 However, everyone says their friends are different now. Nobody can explain it.
 

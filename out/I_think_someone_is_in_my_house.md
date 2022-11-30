@@ -1,0 +1,13 @@
+“Bye!” My wife said as she began to walk out the door. “Bye!” I yelled back before realizing she didn’t hear me. I rush outside to say goodbye. She laughs knowing she closed the door on me before I could get a chance to say bye back. I like to play games a lot, and my setup is in my basement. I walk downstairs to where it is.
+
+I play for a few hours before hopping off. I made a Grubhub order and turn on TV. I laugh at the TV show “Ha! Because they never found him!” I hear the knock at the door. I open the door, say thank you and tipped the guy. And began to eat some of my really good sandwich from Subway.
+
+I hear a window open. We have been having some really strong winds lately and thought that was what it was. I didn’t mind it at first, but for some reason it really bothered me. So I went to check and sure enough it was wide open. I knew immediately someone was in the house because our winds don’t do that. I run to my room and shaking, I grab my handgun. I hear a load crash in the basement.
+
+I try and get close to the basement door, I run outside to my storm cellar. I shut the door quietly as to not alert my position. I see him…he has the same handgun… He also looks shockingly like me, I immediately think back to scary stories I see on Reddit about skin walkers. “Skinwalkers aren’t real…” I whisper to myself. I reach for my phone in my pocket. It’s not there… I had no other choice but to but to fight, I can’t just run back. These doors are pretty heavy and lifting them to go up is gonna make some noise.
+
+I begin to shoot at the “skinwalker.” He sounded normal when I shot him, must’ve been lighting. I dodge a bullet, I take a few more shots then I run back upstairs to grab my ph- Where is it? I used it to make the order! I feel a gun behind my head. He cocks it, “Why the fuck would you keep me in there for so DAMN LONG!” I begin to say you’ve got the wrong guy but as I turn around I notice he is identical to me, I wonder why he sounded normal… At this point, I had no idea why he looked like me. He says “ANSWER THE DAMN QUESTION!” “You have the wrong guy! I didn’t take anyone…” I say calmly. “WELL THEN WHY THE HELL DO WE LOOK SIMILAR HMM?” “I don’t know..”
+
+I get very defensive and pull out my gun. “I gave you a chance…” I say “I gave you food and water to live in there.” “ I’m probably the nicest skinwalker out there.” I could’ve killed as soon as I saw you.” I begin to laugh hysterically. “HA! BECAUSE THEY NEVER FOUND HIM!” I shot him and ate the body. It’s pretty good when you put it with lemon and pepper.
+
+My wife gets back from work. “Hey! What did you do?” “Oh, nothing much.”
