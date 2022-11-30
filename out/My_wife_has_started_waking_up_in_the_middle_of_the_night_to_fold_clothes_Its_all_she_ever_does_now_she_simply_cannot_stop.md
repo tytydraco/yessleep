@@ -314,7 +314,7 @@ Holy shit. The serial folder wasn’t Kerry. It was Nick…
 
 Those dazzling eyes scanned me from head-to-toe, a long, forked tongue whipping across a thin set of lips. He appeared completely calm, like the idea of us escaping was simply unthinkable.
 
-The steps flew beneath Harry and I’s feet. We charged past the make-up room, downstairs, along the hall, into the garage, only to discover a shadowy figure hanging from the rafters like a bat.
+The steps flew beneath Ben and I’s feet. We charged past the make-up room, downstairs, along the hall, into the garage, only to discover a shadowy figure hanging from the rafters like a bat.
 
 How on earth did he move so fast?
 
