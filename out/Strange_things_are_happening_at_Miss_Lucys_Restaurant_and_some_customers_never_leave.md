@@ -14,15 +14,15 @@ Once, I counted the incoming and outgoing traffic, and sure enough, twenty-six c
 
 *There has to be a rational explanation. But what?*
 
-Regardless, I was craving fried zucchini, so Steven and I stopped by one weeknight. After a quick trek across the intersection, we arrived. The yellow sign out front read: Miss Lucy’s—For a Real Dining Adventure.
+Regardless, I was craving fried zucchini, so Steven and I stopped by one weeknight. After a quick trek across the intersection, we arrived.
 
-A bell jingled when we entered. Inside, dance music played, neon lamps and wall-to-wall aquariums lit up the room, and massive chandeliers hung above velvet lounge chairs and antique mirrors.
+Inside, dance music played, neon lamps and wall-to-wall aquariums lit up the room, and massive chandeliers hung above velvet lounge chairs and antique mirrors.
 
-“Cool place,” Steven said, looking around.
+“Cool place,” Steven said.
 
-But the hostess scowled when we approached. She had hawklike eyes, a fierce perm, and razor-straight bangs, and her nametag read: Helga O. 
+But the hostess scowled when we approached. She had hawklike eyes and a fierce perm. Her nametag read: Helga O.
 
-“Are you on *the list*?” 
+“Are you on *the list*?” she asked.
 
 “What list?”
 
@@ -40,7 +40,7 @@ I glanced around, seeing no one, but giant room dividers sectioned off the dinin
 
 I turned back to the surly hostess. “Okay, can you put us on *the list*?”
 
-“No. That is *not* how we operate,” Helga snapped. “You have to call at least two days before to put your name on *the list.*”
+“No. That is *not* how we operate. You have to call at least two days before to put your name on *the list.*”
 
 “I can’t just tell you my name and have you add it to the list now?”
 
@@ -92,7 +92,7 @@ It looked like something in Vegas. I couldn’t believe I lived across the stree
 
 We were so enamored with the surroundings, we hardly noticed we were the only people there.
 
-We followed Helga all the way to the back until we reached a bookshelf against a brick wall. Then, Helga opened a book on the middle shelf and pressed a large button inside. As if on cue, the bookshelf crept open, revealing a spacious private dining room and bar. 
+We followed Helga all the way to the back until we reached a bookshelf against a brick wall. Then, Helga opened a book on the middle shelf and pressed a large button inside. As if on cue, the bookshelf crept open, revealing a spacious private dining room and bar.
 
 “Unbelievable,” Kiera said.
 
@@ -151,8 +151,6 @@ But he never replied.
 “What the hell?” Cole asked.
 
 My heart raced. *What did I get us into? What if this place is over-the-top expensive? My friends will kill me.*
-
-Sure, I could afford the occasional nice dinner, but within reason. *What if this place is totally out of our price range?*
 
 I watched the iPad, waiting for the server to reply, but he never did.
 
@@ -234,7 +232,7 @@ At that moment, the secret door opened, and our server reappeared with another t
 
 “Sir, where is our friend?” Kiera asked, her eyes frightened.
 
-But the server refused to answer. He wouldn’t even look at her—at any of us. 
+But the server refused to answer. He wouldn’t even look at her—at any of us.
 
 Instead, he placed the items on the table. Then, he pulled out his list again, scanned it, walked back to the wall, and flipped the switch again. And once more, the music stopped, and the room went black.
 
@@ -250,7 +248,7 @@ Steven’s eyes bulged, and Layla froze, looking too terrified to speak.
 
 But silence.
 
-Moments later, the server returned with *another* tray of items we hadn't ordered. 
+Moments later, the server returned with *another* tray of items we hadn't ordered.
 
 Once again, he set the items on the table, scanned the list, walked to the wall, and flipped a switch.
 
@@ -308,7 +306,7 @@ I didn’t argue. I handed the server my credit card. He ran it and handed it ba
 
 Our friends were nowhere to be found, and no other customers were dining when we left. Steven and I dialed the police right away.
 
-But the cops were no help. “We can’t do anything unless they’ve been missing twenty-four hours. Your friends are probably playing a prank.” 
+But the cops were no help. “We can’t do anything unless they’ve been missing twenty-four hours. Your friends are probably playing a prank.”
 
 He obviously didn’t know our friends.
 
@@ -364,9 +362,9 @@ None of it made sense to us, either. But after twenty-four hours, I called the p
 
 \*\*\*\*\*
 
-Perhaps the strangest part about this experience is what happened several days later when police called with an update. 
+Perhaps the strangest part about this experience is what happened several days later when police called with an update.
 
-“Your friends didn’t go missing," the officer said. "They said they told you they were leaving early. And your friend Kiera is working at Miss Lucy's now." 
+“Your friends didn’t go missing," the officer said. "They said they told you they were leaving early. And your friend Kiera is working at Miss Lucy's now."
 
 “Wait—*what*?”
 
@@ -390,6 +388,6 @@ Since then, I’ve talked to other people who’ve been to Miss Lucy’s and the
 
 Unfortunately, the police didn't believe their stories.
 
-However, everyone says their friends are different now. 
+However, everyone says their friends are different now.
 
 Maybe what really happens at Miss Lucy's will always remain a mystery. But one thing we *do* know is we're never going back.
