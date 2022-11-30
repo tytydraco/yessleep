@@ -20,7 +20,7 @@ A bell jingled when we entered. Inside, dance music played, neon lamps and wall-
 
 “Cool place,” Steven said, looking around.
 
-But the hostess scowled when we approached. She had hawklike eyes, a fierce chin-length perm, and thick bangs cut across her forehead in a razor-straight line. Her name tag read: Helga O.
+But the hostess scowled when we approached. She had hawklike eyes, a fierce perm, and thick, razor-straight bangs. Her name tag read: Helga O.
 
 Helga’s voice was sharp and curt. “Are you on *the list*?”
 
@@ -52,11 +52,9 @@ Steven nudged me and whispered, “ Come on, man. Let’s go.”
 
 But this lady wasn’t going to ruin my plans. “Okay, we’ll be in touch.”
 
-“What bullshit,” Steven said as we left. “Forget this place. Screw the zucchini—”
+"Forget this place,” Steven said as we left.
 
-But I wasn’t giving up, and after some more convincing, Steven gave in. "Fine, but let's hope we don't have to see that jackbooted medusa again."
-
-So, I called the restaurant, and Helga answered right away.
+But I wasn’t giving up. So, I called the restaurant, and Helga answered right away.
 
 "I'd like to put my name on your list."
 
@@ -90,7 +88,7 @@ But this time, Helga was all smiles. “Yes, I see you’re on *the list.* Your 
 
 Then, when Helga pulled back the giant room divider and led us into the bar area, it felt like entering another world. Bright purple lights lit up the space, which looked three times larger than I’d imagined. There were wall-to-wall aquariums with tropical fish, massive flatscreen TVs, velvet lounge chairs, and a revolving bar.
 
-It looked like something you’d see in Vegas. I couldn’t believe I lived across the street from this place.
+It looked like something in Vegas. I couldn’t believe I lived across the street from this place.
 
 “Damn!” Cole said as we followed Helga up a spiral glass staircase into another room. The upstairs floor resembled a library, with large bookshelves and sofas.
 
@@ -122,35 +120,31 @@ The velvet seats and tables sat on a revolving platform that rotated like a caro
 
 Helga switched off the revolving platform, motioned for us to sit, and handed us the menus. “Your server will be with you soon.”
 
-Then, she handed me a mini iPad.
-
-“What’s this for?”
-
-“You can use this to customize your experience,” she said, pointing to a text box. “Type in your request in this box, and your server will send you a confirmation and an estimated delivery time. You can also change the music.”
+Then, she handed me a mini iPad. “You can use this to customize your experience,” she said, pointing to a text box. “Type in your request in this box, and your server will send you a confirmation and an estimated delivery time. You can also change the music.”
 
 She showed me a music library with tons of playlists. And we could even change the light colors.
 
-“No way!” Kiera said, pressing different buttons as the chandelier lights changed from amber to red to green. Even the floor bulbs changed colors.
+“No way!” Kiera said, pressing the buttons as the chandelier lights changed from amber to red to green. Even the floor bulbs changed colors.
 
 “I want this in my house!” Layla said.
 
 Cole glanced around, taking it all in. “Are you *sure* this place isn’t expensive?”
 
-Helga left, and the faux bookshelf closed behind her, leaving us to enjoy our secret dining space.
+"I don't think so."
 
-I shrugged. “I don’t think so.”
+Helga left, and the faux bookshelf closed behind her, leaving us to enjoy our secret dining space.
 
 We opened the menus, but no prices were listed.
 
-*That’s strange. Where are the prices?*
+*That’s strange.*
 
 I grabbed the iPad and typed a note to the server. “Where are the prices listed?”
 
-After a moment, the server’s response appeared: “They aren’t.”
+After a moment, the server responded: “They aren’t.”
 
 My buddies and I exchanged nervous glances.
 
-“What does he mean, there aren’t prices listed?” Cole said.
+“What does he mean, the prices aren't listed?” Cole said.
 
 I typed: “How much are the drinks?”
 
@@ -276,7 +270,7 @@ My fingers shook as I called 911. But the call dropped before it rang.
 
 Steven tried, but the call dropped for him, too.
 
-“Why won’t go through?” he shouted.
+“Why won’t it go through?” he shouted.
 
 “I don’t know,” I said, dialing the front desk again. Apparently, that was the only number that worked.
 
@@ -396,7 +390,7 @@ I never did find out everything that happened to Cole, Layla, and Kiera that nig
 
 After that night, Cole and Kiera changed; I felt like I hardly knew them anymore, and they spent all their time with their creepy, new friends from Miss Lucy’s.
 
-Since then, I’ve talked to other people who’ve been to Miss Lucy’s and they all have similar stories. Either their friends changed or started working at the restaurant soon after they went. Other people’s friends vanished but never returned. 
+Since then, I’ve talked to other people who’ve been to Miss Lucy’s and they all have similar stories. Either their friends changed or started working at the restaurant soon after they went. Other people’s friends vanished but never returned.
 
 Unfortunately, the police never believed their stories.
 
