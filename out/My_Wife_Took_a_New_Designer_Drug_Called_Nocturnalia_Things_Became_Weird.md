@@ -1,6 +1,6 @@
 “Don’t do drugs, kid, unless you want to have some fun.”
 
-That’s the first thing my wife Janet ever said, giving me a wink. She promptly swallowed a little pill, and without another word, held one out for me. I made a dismissive gesture and off she went, back to the dance floor.
+That’s the first thing my wife Janet ever said me, giving me a wink. She promptly swallowed a little pill, and without another word, held one out for me. I made a dismissive gesture and off she went, back to the dance floor.
 
 It was at one of those hidden little back alley scene club, the type frequented by the weirder or more alternative parts of the population. You know the type: free spirits, esoterics, soul searchers, musicians, artists.
 
@@ -232,5 +232,4 @@ For the past days, I’ve looked into every single member of Janet’s little gr
 
 Sometimes, however, on rare occasions, in these dark joints, frequented by the weirder or more alternative parts of the population, I notice a certain figure. A suave one, sometimes a woman, sometimes a man, but they’d always be sharing a strange, glistening substance amongst the patrons.
 
-[YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)  
-[WS](https://rehnwriter.com/)
+[YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)[WS](https://rehnwriter.com/)
