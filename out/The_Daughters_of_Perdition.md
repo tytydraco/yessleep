@@ -1,4 +1,9 @@
-RIP Dora Dunnwood, 1699- 1766 read the tombstone. The undertaker leaned up against the tombstone and winked. 
+I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found a book with a bunch of stories about how certain monks had come to this monastery. After reading it I found this story particularly fascinating and wanted to share it.
+
+
+
+
+RIP Dora Dunnwood, 1599- 1666 read the tombstone. The undertaker leaned up against the tombstone and winked. 
 
 "Your mother has already handled payment lad. Pity not the dead, for they have rejoined our lord in heaven." he said with a sly smile and a wink before turning away and leaving.
 
@@ -54,7 +59,7 @@ The barn cat came out of a bush and sat looking at me. He looked disturbed, like
 
 I sat there and all seemed calm, there was no wind at all. Then I thought I heard the beating of wings. It was far off, it sounded like an absolutely massive humming bird. I thought I was just hearing things until I saw the cats ears follow the noise. It looked terrified. We both listened and the sound stopped. I listened closely but couldn't hear anything.
 
-I had almost let myself believe I was hearing things when I heard Jack scream at the top of his lungs. He sounded anguished, I felt the pain down to my soul. I grabbed a hoe for self defense and ran to the source of the scream. What I saw will haunt me to the day I die.
+I had almost let myself believe I was hearing things when I heard Jack scream at the top of his lungs. He sounded anguished, I felt the pain down to my soul. I grabbed a rake for self defense and ran to the source of the scream. What I saw will haunt me to the day I die.
 
 As I rounded the house and everyone came into view I couldn't believe me eyes. Both Jack and Jill were atop the tombstone. And atop jack was a black wasp the size of a raven crawling all over him and doing something. My mother sat right beside the two holding the urn of her mothers ashes, throwing them on the twins and whispering.
 
@@ -66,11 +71,11 @@ The wasp jumped to the ground and started to dance around. It made a sound like 
 
 "Give your grandmother a hug Jon. She missed you while she was away" My mother said as the wasp moved towards me on its back. It made sounds like a horny woman.
 
-I had never been more disgusted in my whole life. I swung the hoe in an arch and brought it crashing down between the wasp's abdomen on thorax and pinned the awful beast to the ground. It suddenly shrieked like a banshee and started struggling. With all my might I held the wasp to the ground and looked around for help. My mother starred at me bug eyed, Jackie lay in the fetal position behind the bush, and my father was nowhere to be found.
+I had never been more disgusted in my whole life. I swung the rake in an arch and brought it crashing down between the wasp's abdomen on thorax and pinned the awful beast to the ground. It suddenly shrieked like a banshee and started struggling. With all my might I held the wasp to the ground and looked around for help. My mother starred at me bug eyed, Jackie lay in the fetal position behind the bush, and my father was nowhere to be found.
 
 "Jackie hold this! I'll go into town and get the inquisition!" I yelled in a panic.
 
-"I'll hold it deary" my mother said sweetly and came over holding the hoe and pinning the wasp. I wasn't going to ask any questions and ran down the road to town. It wasn't far and when I got there talking about a raven sized black wasp the inquisitors were quick to respond. We returned in what felt like no time at all. I rode on the back of one of the horses as they charged around back. There was no one there. The horses formed a semi circle around the back of the house.
+"I'll hold it deary" my mother said sweetly and came over holding the rake and pinning the wasp. I wasn't going to ask any questions and ran down the road to town. It wasn't far and when I got there talking about a raven sized black wasp the inquisitors were quick to respond. We returned in what felt like no time at all. I rode on the back of one of the horses as they charged around back. There was no one there. The horses formed a semi circle around the back of the house.
 
 Lance, the captain then yelled "The inquisition is here, have no fear! Where is the culprit, the wasp of unfathomable proportions?"
 
@@ -114,4 +119,4 @@ And that was the last thing I heard any of my family say, because I ran out the 
 
 I traveled for 4 days with no food, only drinking from streams and letting the horse graze, when I came upon a monastery. I had somehow crossed the border and these were french priests. They saw that I was starving and took me in and fed me. I started working around the monastery, up-keeping the place to earn my keep and within a year I had learned french.
 
-I studied at that monastery for the rest of my days, becoming a man of the lord, and living out my days among like minded monks.
+I studied at that monastery for the rest of my days, becoming a man of the lord, and living out my days among like minded monks. I have written the story of how I got here down for my contemporaries, as well as future generations.
