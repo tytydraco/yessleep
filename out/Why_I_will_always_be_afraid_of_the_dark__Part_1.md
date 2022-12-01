@@ -1,6 +1,8 @@
- [Part 2](https://www.reddit.com/r/nosleep/comments/yxq3k1/why_i_will_always_be_afraid_of_the_dark_part_2/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/yxq3k1/why_i_will_always_be_afraid_of_the_dark_part_2/)
 
- [Part 3](https://www.reddit.com/r/nosleep/comments/z3iydg/why_i_will_always_be_afraid_of_the_dark_part_3/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/z3iydg/why_i_will_always_be_afraid_of_the_dark_part_3/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/z9mvuv/why_i_will_always_be_afraid_of_the_dark_part_4/)
 
 I have always thought of darkness as a place – one where you are alone and defenceless. For as long as I can remember it has been my biggest fear. People mostly grow out of it, but I never did. And then I found a reason to be afraid. They came for me, the creatures that live and hunt in the dark. The ones I would come to know as the Umbra.
 

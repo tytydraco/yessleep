@@ -2,6 +2,8 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/z3iydg/why_i_will_always_be_afraid_of_the_dark_part_3/)
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/z9mvuv/why_i_will_always_be_afraid_of_the_dark_part_4/)
+
 After the figure disappeared into the darkness, I checked the time and rubbed my eyes. I stepped into the underground station and then straight back out again and I jogged to the bus. I had to check on Merry. I wouldn’t sleep if I didn’t.
 
 I sat up top and tapped my legs until the bus pulled out onto the road. The abandoned warehouses went by cloaked in the dark of night. The same rhythmic thud from the building under the spotlights broke the silence of the night.
