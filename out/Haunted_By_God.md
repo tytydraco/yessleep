@@ -70,7 +70,7 @@ The cold, steely grip of a premonition accosted me.
 *I could see pentacles made of the visual snow in my vision.*
  
 
-In the interest of calming me down, Emily and I decided to go for a walk at the nearby park. 
+In the interest of calming me down, Emily and I decided to go for a walk in the nearby park. 
  
 
 The premonition became overwhelming. 
