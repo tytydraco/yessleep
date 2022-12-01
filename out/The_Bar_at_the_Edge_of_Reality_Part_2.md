@@ -222,4 +222,4 @@ That was also one of the only times I’ve seen Henri in his true form. He’s a
 
 Plus, he cares about me. We may not be related by blood, but he is every inch my uncle.
 
-And honestly, thank God for that.
+And honestly, thank God for [that.](https://www.reddit.com/r/nosleep/comments/z9e6kc/fire_and_destruction_the_bar_at_the_edge_of/?utm_source=share&utm_medium=web2x&context=3)
