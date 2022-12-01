@@ -278,7 +278,7 @@ The other Jason thought about this for a moment before asking his next question 
 
 Jason grinned, his one eye looking at me while the other looked at the police officer.
 
-"Of course.  We're best friends.  You know what they say.  Best friends are forever.  Even if they are a little [crazy."](https://youtu.be/rumiJJyA2FM)
+"Of course.  We're best friends.  You know what they say.  Best friends are forever.  Even if they are a little [crazy."](https://youtu.be/flxKL84uzlY)
 
 [JG](https://www.reddit.com/r/JGcreepypastas?utm_medium=android_app&utm_source=share)
 
