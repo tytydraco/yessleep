@@ -28,7 +28,7 @@ Some time afterward, there was an issue with my paycheck where I was short $540.
 After disputing the pay issue, I was sent on another shift. 
  
 
-During that shift, I had some down time and used it browse Facebook. 
+During that shift, I had some down time and used it to browse Facebook. 
  
 
 That's when I saw a friend's status update wherein they complained about a water bill that they had an issue with. 
@@ -58,7 +58,7 @@ Could it be God?
 Coincidence?
  
 
-Unnerved, I showed the status to my girlfriend of the time, who we'll call Emily. She acknowledged the uncanniness of the situation, but was able to help me stay calm and rational. 
+Unnerved, I showed the status to my girlfriend of the time, who we'll call Emily. She acknowledged the uncanniness of the situation, but was able to help me calm down and rationalize. 
  
 
 Some time after that, perhaps a few months later, on one particular night, I could be found cuddling with Emily in my bedroom. 
@@ -118,4 +118,4 @@ God is watching me.
 I'd share more stories, but writing this out made me realize that I have to go take care of something:
  
 
-I forgot to do a backflip.
+I gotta go do some backflips.
