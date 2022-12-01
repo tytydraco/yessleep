@@ -1,26 +1,26 @@
- At first, Gertrude seemed like the answer to our problems, and we welcomed her into our home with open arms. I knew she was special from the moment we met.
+At first, Gertrude seemed like the answer to our problems, and we welcomed her into our home with open arms. I knew she was special from the moment we met.
 
-"I'm Jeffrey." 
+I shook her hand. "Happy to meet you. I'm Jeffrey."
 
-“A pleasure,” she said, smiling through the pain of her recent hip replacement surgery.
+“A pleasure," she said, smiling through the pain of her recent hip replacement surgery.
 
 "Are you sure you're ready to work? Take time to recover if you need to. We wouldn't want you to injure yourself."
 
 But she swatted at me. “They don’t call me Gertrude the Grizzly for nothing.” She lifted her hands and growled like a bear. “Grrr!”
 
-I laughed politely, and she slapped my back, perhaps a little too hard. Then, she grabbed a mop and polished the shit out of our floors. She also polished our countertops and windows, making everything look immaculate, and she cooked a mean lasagna and tuna casserole. She was also attentive and doting, anticipating our needs and wishes before we were aware of them ourselves. 
+I laughed politely, and she slapped my back, perhaps a little too hard. Then, she grabbed a mop and polished the shit out of our floors. She also polished our countertops and windows, making everything sparkle, and she cooked a mean lasagna and tuna casserole. She was also attentive and doting, anticipating our every need and wish.
 
 Once, she brought me a pitcher of coffee while I worked in my home office.
 
-“Try this, Jeffrey,” she said, pouring me some coffee. “It’s from the Nepalese forest. It gives you super-concentration powers.”
+“Try this, Jeffrey,” she said, pouring me a cup. “It’s from the Nepalese forest. It gives you super-concentration powers.”
 
 Intrigued, I took a sip. After a moment, I adapted to the bold flavor. “Not bad,” I said. “Thanks so much. I feel pretty energized!”
 
-Gertrude knew just what we needed and when. 
+Gertrude knew just what we needed and when.
 
-*Life wouldn’t be the same without her,* we thought.
+*Life wouldn’t be the same without her.*
 
-But the good times turned dark before long.
+Or so we thought.
 
 \_ \_ \_
 
@@ -34,13 +34,13 @@ Gertrude smiled. “Right here!” Then she threw her arms around me. “You guy
 
 She twirled around, modeling her miniskirt, and gave us each a huge kiss on the cheek.
 
-The whole situation felt awkward—not going to lie—but what could I say? 
+The whole situation felt awkward—not going to lie—but what could I say?
 
 The following week, Becca and I decided we could use some time alone, so we offered Gertrude a break.
 
 “We’d like to offer you a four-day paid vacation,” I said. “You’ve earned it.”
 
-But to our surprise, Gertrude’s eyes darkened. “But the floors—” 
+But to our surprise, Gertrude’s eyes darkened. “But the floors—”
 
 I shook my head. “Don’t worry about the floors. They’ll be here Monday when you get back. Now, go *relax*.”
 
@@ -54,13 +54,13 @@ Around midnight that night, headlights outside caught our eye. We lived on a cul
 
 Curious, I glanced outside to find Gertrude’s Buick circling the street. Round and round, she went, not once or twice, but *twelve* times.
 
-“What is she *doing*?” Becca asked as we watched from the window
+“What is she *doing*?” Becca asked as we watched from the window.
 
 But as soon as I opened the door, her tires squealed, and her Buick rocketed off like a bullet.
 
 The next night was similar to the one before it.
 
-Gertrude’s Buick appeared around midnight and circled the cul de sac several times. Then, she flipped off the lights, parked her car, and whipped out a pair of binoculars. 
+Gertrude’s Buick appeared around midnight and circled the cul de sac several times. Then, she flipped off the lights, parked her car, and whipped out a pair of binoculars.
 
 “Honey, I think we have a situation here,” Becca said.
 
@@ -116,11 +116,11 @@ She began to grind, twirl, and thrash like an exotic dancer on a four-day meth b
 
 I nudged Becca, but she was out cold.
 
-“Don’t worry about her,” Gertrude said, cackling. “I knocked her out with some homemade brew. You and me, we’ve got seven hours all to ourselves!” 
+“Don’t worry about her,” Gertrude said, cackling. “I knocked her out with some homemade brew. You and me got seven hours baby!”
 
-She cackled, sounding half drunk, half mad.
+She sounded half drunk, half mad.
 
-“No!” I shouted again, but my cries fell on deaf ears. 
+“No!” I shouted, but my cries fell on deaf ears.
 
 Then, Gertrude whipped out something from behind her back: a giant machete.
 
@@ -128,20 +128,20 @@ Then, Gertrude whipped out something from behind her back: a giant machete.
 
 “Then what do you want?” My mind raced, searching for answers, but I found none.
 
-“Let me move in with you!” 
+“Let me move in with you!”
 
-*Oh God, help me. Help me.* 
+*Oh God, help me. Help me.*
 
 “But you’re unwell…” I regretted the words the moment they left my lips.
 
 “I’m perfectly well when I’m with *you*, my little petunia.”
 
-“Shit,” I said, trying to think of something—anything—to appease her. Finally, I blurted out the first thing that came to mind. 
+“Shit,” I said, trying to think of something—anything—to appease her. Finally, I blurted out the first thing that came to mind.
 
 “Fine, move in with us.”
 
 *Shit, Jeffrey, what are you saying? You’re going to regret this.*
 
-But her face broke out into a broad grin, and the light returned to her eyes. Gertrude put away the machete and gave me a huge bear hug.
+But her face broke into a broad grin, and the light returned to her eyes. Gertrude put away the machete and gave me a huge bear hug.
 
 “Oh, Jeffrey,” she said. “I knew you’d come around.”
