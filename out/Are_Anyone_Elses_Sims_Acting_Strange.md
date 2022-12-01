@@ -180,7 +180,6 @@ I wish I’d never bought that fucking werewolf expansion.
 After a quick escape, I ended up at a nearby internet cafe where I typed this up to warn you all.  If you play the Sims and your characters start acting strange - delete the game immediately. 
 
 
-Otherwise who knows what we might unleash on the real [world](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
+Otherwise who knows what we might unleash on the real [world](https://youtu.be/flxKL84uzlY)
 
-
-[YT](https://youtu.be/rHcK2TpBeG4)
+[JG](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
