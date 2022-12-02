@@ -1,4 +1,4 @@
-Closing the door behind us, I took in the morning. The fog so thoroughly obscured the landscape that I felt like I was in a new world. When you have lived somewhere for some time, you become accommodated to your environment. I had stopped seeing with the eyes of a newcomer. It was only on days of extreme weather that I could still feel the wonder.
+I took in the morning. The fog so thoroughly obscured the landscape that I felt like I was in a new world. When you have lived somewhere for some time, you become accommodated to your environment. I had stopped seeing with the eyes of a newcomer. It was only on days of extreme weather that I could still feel the wonder.
 
 More than anything else, the trees took on an awesome dimension. Usually, trees seem to reach into the open sky. But this morning, in the thick fog, the trees appeared to be hanging in the air and reaching down to me.
 
