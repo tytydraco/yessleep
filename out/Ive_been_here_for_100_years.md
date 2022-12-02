@@ -1,0 +1,25 @@
+But I haven't aged a single day.
+
+This all started what you would call a century ago, I was in Canada, Vancouver, waiting for my train to depart. I was in the waiting dock as I notice that there are only two other people waiting for this particular train. It was a dark and rainy day with many leaves falling around during fall. My coat was quite itchy, and my leggings were nice and warm for this time of year. The other people were wearing similar clothing as the style in 1922 was very straight forward. I start reading my newspaper about the WW1 and start imagining what a second world war would look like with all the new dangerous weaponry. I feel quite happy on this quiet day because of my newest promotion at my boating company. 
+
+It has been a long, little while and I start to wonder if the train shut down. There are no sounds or rain anymore and I think to myself about how to train must have run into some issues while on the way to our dock. I get this eerie feeling, like the one you get when someone is watching you. My back starts to tingle, and my neck goes pale with goosebumps. The air surrounding me suddenly becomes cold, not in temperature, but in feeling, like when you realize you forgot to feed your horse. It suddenly becomes hard to breathe, like an invisible, unfeelable clot forms in my throat which racks all the way to my brain.
+
+My heart then promptly starts beating faster than a drugged horse who lost its family. I feel lost and I feel very uncomfortable in my own skin. My world feels as if it is falling apart. I start to lose control of my senses. I start seeing these creatures all around me. I start hearing these creatures speaking.               "Come here, you can make it" was what they were saying, repeating it in a ritualic way, almost like a chant or a war cry. 
+
+Then, I notice the people. Still standing completely still. I hadn't noticed it before but, they were not moving, there were no signs of life coming from them. It reminded me of my parents, always there but they never really existed, not to me at least. I finally have my freedom back after they were mysteriously killed. The cold soothing air left swiftly, leaving only a blurry sight.
+
+The train has still yet to arrive, and I start to worry, really worry. My parents mentioned these symptoms that I'm feeling to me right before they disappeared and were told as dead. I decide that the best option is to go home, I figure that this place is not safe, and I can visit my sister another time. I then look at my magazine. It had clearly changed; the date and the stories were all different. Then, I run.
+
+It's clear that my footsteps are not the only ones that are tapping on the light pavement. The trees are telling me shadows that are behind, many many shadows. I don't dare to look back. They are catching up, but all I need to do is to get home. I start hearing their chant again. "Come here, you can make it". They keep repeating it over and over. my coat is now no longer itchy, and my leggings no longer warm. The dark rainy world turned into a light sunny day, but red so much red. I make it to the edge of my street and enter my home at last. I look out the window and see nothing, the world is back to as it was.
+
+I then turn around from my place near the window. As I slowly turn my waist, I finally understand where they wanted me to come to. The monsters were red with fury and their skin made of a black obsidian. They all had blood over their bodies. They looked straight out of hell. I grab my cross and back towards my backyard window. I could try to run but I would be caught. I could try and fight, but I would be defeated. I grab a dish and try to smash my silver lined window but to no avail. I was caught. They grabbed me and took me back to the train station. 
+
+It has now been a century of being inside of this hellhole. My newspaper is all that is my friend. Changing every few hours and telling me about what is happening on earth. My surroundings are red trees with red grass. The only color I see is the plain brown of the benches on the dock. I can see shadows of people who come here every day. Most importantly, I can see the floating souls of my parents.
+
+The air is cold, but my spirit is colder. The familiar itchiness of my sweater is gone, and the warmth of my leggings disappeared. The long stretchy dock is now unreliable my life feels pointless. The only saving grace is my newspaper, but I still wonder who keeps exchanging it. My body is not aging, but I feel frailer, my soul is aging but my body is not. My soul deteriorating daily and my spirit running lower.
+
+The spirits torture me every day and taunt me. They burn my face, and they take off my limbs. My body is no longer a body, it's a frame of what used to be a person. I have always wanted to know what happened to my whole family, but now I know that that wish has been granted. Maybe next year someone will finally free me from my eternal doom. 
+
+But now my newspaper has run out of places to write. I grab the knife on the dock. This is the end. Goodbye.
+
+\- Journal, years 1922 - 2022

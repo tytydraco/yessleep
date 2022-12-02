@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/zaujb3/my_cousin_has_been_missing_for_years_her_old/) 
+
 The photograph depicted six people joyfully smiling at the camera and posing in front of a beautifully decorated Christmas tree. Four of them were adults: My uncle, aunt, mother and father and the other two were a ten year old girl and a one year old baby the young girl lovingly cradled in her arms.
 
 "Ever since your mother got pregnant, Kylie wouldn't stop rambling about how impatient she was for you to be born. And when that finally happened, she then wanted you to grow up quickly so you could both play together." my aunt explained as I stared at the picture. I had no memories of Kylie, so seeing a picture of myself right alongside her as a baby was fascinating and emotional in a way I can't really put into words. It made me wonder what could've been had it not for the sudden tragedy that would befall upon my cousin and would devastate the whole family shortly after. Just a week after that cheerful Christmas Day of 2005, Kylie would mysteriously go missing one dark and cold January night of 2006, never to be seen or heard from again.
