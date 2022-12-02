@@ -1,0 +1,14 @@
+My family moved to a small town in Connecticut called Sycamore 3 months ago. We made the move because my father, who is a plastic surgeon, got a good-paying job at a hospital here. He practiced in Florida for many years, but wanted to try out small-town, suburban life. He said it would do me some good. He quickly found that the citizens of Sycamore despised plastic surgery- everyone said they wanted to be all natural. In the hospital, he pretty much only consulted with people who had been disfigured in car accidents or fires, and even then they declined his services.
+When I started attending the local high school, word was quick to spread that my dad was a plastic surgeon. I received comment after comment, disparaging his profession, accusing me of getting work done, I was even told more than once that we should “go back where we came from.” My parents told me not to react, to brush it off, but I knew they hated Sycamore just as much as I did. 
+
+I began dreading life. Waking up, going to school, everything sucked. At school, I was tormented, day in and day out. I gave them nothing, no reaction, but it persisted. I reported it, and nothing happened. Even the teachers seemed to have it out for me. You’d think my dad had single-handedly forced everyone in town to get a boob job and face lift. In reality, he just sat in his office all day, doing consultations he knew would lead nowhere. He hadn’t operated on anyone since we came to this stupid town.
+
+One day, I broke down. Had enough. I came home from school and sobbed until my voice was raspy and my eyes were nearly swollen shut. Then, I made a wish.
+“I wish that all of the stupid students at Sycamore High School were ugly! Then they’d see why plastic surgery exists. I wish that they wake up, and look in the mirror, and see their biggest insecurity staring them right in the fucking face!”
+I didn’t go to school the next day. My parents saw how upset I was, and encouraged me to just rest for a day. When I walked into school the day after, I was shocked at what I saw.
+
+Everyone looked… different. For some people, they had changed in small ways- a girl in my math class had a bigger nose than before. It seemed like it was almost swallowing her face. For others, they had changed an impossibly large amount. A star football player who had bullied me previously looked to be nearly 600 pounds. He avoided my eyes when I passed him in the hallway. Some people sprouted cystic acne all over their face, some people had giant ears popping out of the sides of their head, some people’s lips seemed to have disappeared or tripled in size, and some people even had the wrinkles of an 80-year-old. Something isn’t right, and no one will address it. 
+
+When I speak, no one in class looks at me. No one answers.
+
+I don’t know how my wish came true, but I want to go back to Florida.
