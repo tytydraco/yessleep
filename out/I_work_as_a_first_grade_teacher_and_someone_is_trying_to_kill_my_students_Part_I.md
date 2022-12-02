@@ -1,4 +1,4 @@
-[Part II](https://www.reddit.com/r/nosleep/comments/z7j5rw/i_work_as_a_first_grade_teacher_and_someone_is/)
+[Part II](https://www.reddit.com/r/nosleep/comments/z7j5rw/i_work_as_a_first_grade_teacher_and_someone_is/)  [Part III](https://www.reddit.com/r/nosleep/comments/zak5p6/i_work_as_a_first_grade_teacher_and_someone_is/)
 
 Three of the students in my class all happened to have the same birthday, so I asked everyone to bring in candy so we could throw a party in their honor. The candy was then set aside in the far corner of the classroom, to be devoured at the end of the school day, when our party was set to take place.
 
