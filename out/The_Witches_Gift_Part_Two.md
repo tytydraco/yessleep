@@ -35,7 +35,7 @@ I had a bad sinking feeling.
 
 So, in the middle of driving, I used it. I froze time. Joshua was in the middle of calling the police with his mouth parted open. as my headlights shun on the two in front of me. I can clearly see a shadowy figure holding onto the teenage girl who struggled to get out of his arms. I wonder what this thing wanted, I mean sure I’ve seen things in the corner of my eyes before, I just ignored them. but this was different. This was terrifying. Someone was going to get hurt. And he was right, her death will be on my hands if I didn’t do as he said. 
 
-“Good. Now get out of the car.” The voice demanded. 
+*“Good. Now get out of the car.”* The voice demanded. 
 
 Slowly I opened my door, unbuckled myself and stepped out on the gravel road. When I’m in frozen time there is no temperature. I wasn’t sure how to explain it, but there wasn’t. slowly I walked to the front of my car, I held my hands up to show I wasn’t carrying a weapon, and I wasn’t posing any threats like he was. I felt like a hostage negotiator at this point. “Want to tell me what this is about?”
 
