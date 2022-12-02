@@ -1,5 +1,3 @@
- 
-
 I work at The Drowsy Spectre, a café positioned in a place sure to never get any business. No human business, that is. That spider-lady came back on Monday with the same proposal, which I denied. She left on her own this time. A giant seems to have gotten into my head. In short, a lot of weird stuff happens. If you want to get caught up, or start at the beginning, then go ahead and check[ this](https://www.reddit.com/user/AHauntedBarista/comments/z473tt/i_am_a_barista_that_serves_the_supernatural_find/?utm_source=share&utm_medium=web2x&context=3) out.
 
 \--------------------------------------
@@ -80,7 +78,7 @@ He grimaced. "Smart. Since you're smart, you know you are in a tough spot. It'd 
 
 She hesitated and glanced at her father. "Sure we are, Axel. This is a good thing, you can get anything you want from my father!"
 
-Wait, Laura said that she got turned into a lizard by shaking a man's hand. A deal to find out if a certain lover was pinning for her. Suddenly I was forced to view the animals in Laura's house in a different light, but I kept my cool. "This is a big thing to throw on someone and you can't blame me for being a bit nervous. Guard the door, if you need to, but I have to pee." They didn't say anything. "Look, I'm about to piss myself right here."
+Wait, Laura said that she got turned into a lizard by shaking a man's hand. A deal to find out if a certain lover was pinning for her. Suddenly I was forced to view the animals in Em's house in a different light, but I kept my cool. "This is a big thing to throw on someone and you can't blame me for being a bit nervous. Guard the door, if you need to, but I have to pee." They didn't say anything. "Look, I'm about to piss myself right here."
 
 Em's father grinded his teeth for a moment, but stepped aside. "Fine, but Em will be watching your car. I don't think you are stupid enough to run out into the woods. Take the time to think about what you might want."
 
@@ -102,7 +100,7 @@ She considered this for a moment. "Fine, but I've no idea what you plan to do."
 
 I scooped her up and put her in my left pocket. She fit snuggly next to my phone, which had no signal (I checked). Then, knowing that there was a large chance my plan would fail, I swung open the door and locked eyes with Em's father. He stared at me for a moment, entirely confused as to why I had a cup of urine in my hand. Neither he, nor Em, knew that I had a condition. How would they? Hemochromatosis. Too much iron absorbed by the body. I take pills for it, which causes all that extra iron mix with my urine. At least, I think it goes into my urine. Lots of ways this could go wrong, but pouring a cup of pee on someone would at least keep them busy for a second.
 
-So that's what I did. Soaked the shithead in almost an entire cup of pee. His face sizzled, so I guess there was urine in my pee. Enough, at least, to make him cry out in pain (or maybe surprise) and fall to the floor. He called me all sorts of names as I dashed through the house, but I hesitated at the front door. I couldn't save all of them, assuming they were all people at one time. But I could go out the back door, I could save Laura (or at least what was left of her).
+So that's what I did. Soaked the shithead in almost an entire cup of pee. His face sizzled, so I guess there was iron in my pee. Enough, at least, to make him cry out in pain (or maybe surprise) and fall to the floor. He called me all sorts of names as I dashed through the house, but I hesitated at the front door. I couldn't save all of them, assuming they were all people at one time. But I could go out the back door, I could save Laura (or at least what was left of her).
 
 I couldn't carry her cage, so I placed her in my jacket. I don't think giant day geckos are supposed to get *that* big, because she barely fit and when she struggled she put up a fight. I was saving her, though, so I ignored her frantic attempts at escape as I hurried around the house, cup of remaining pee still in hand and ready to be weaponized.
 

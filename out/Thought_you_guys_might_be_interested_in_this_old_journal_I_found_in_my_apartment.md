@@ -149,7 +149,7 @@ They are everywhere. I have seen them creep across my page, I have seen them loo
 
 They are not visions—I have reached out and touched them. 
 
-The one I felt was bubble-gum coloured—it was warm and fleshy to the touch.
+The one I felt was chewing-gum coloured—it was warm and fleshy to the touch.
 
 &#x200B;
 
