@@ -1,0 +1,26 @@
+
+ 
+It all happened in an instant. My friend Jerome dared me to jump in and dive to the bottom of the pool before our swimming instructor came. Not being a wuss, I decided to take the challenge. I cannonballed into the deepest part and swam down,touching the bottom. It was hard to hear any noise deep down and my vision got a little hazy around the edges, so I swam back up. I took a few breaths before opening my eyes and what I saw was shocking. The pool as well as the entire surrounding area was devoid of people. 
+
+Furthermore, there appeared to be another room at the far end of the pool, where there’d normally be windows facing the park outside. In fact, the entire room was different, except for the pool and the clock behind me. There was no entrance to the showers and such, only a wall, the fluorescent lights had a strange blue tint on the edges, were slightly dim, but if looked at directly, glowed so bright that I felt the light would penetrate through my eyeballs and into my brain, frying it from the inside.
+
+I climbed out of the pool and headed towards the second room, the only noises being that of my feet on the tiles and the water in the pool swishing. I reached the second room, which contained a rather large and luxurious looking hot tub. I followed a hall at the other end and ended up in yet another room with a pool, this one being shaped like the infinity symbol with no clear entrance to the pool. The room was also lit very brightly and after a couple minutes there I began to feel a slight headache, and continued walking, this time down a hall with blue plastic arches depicting various cartoon drawings of marine animals. 
+
+The fourth room was the largest and most ornate. In the center was a huge pool with a cliff themed waterfall that extended into a cave on one side. The cave was partially underwater with one large platform on the water’s surface and what seemed to be a smaller one under the water. On top of the waterfall was a platform with was a rope bridge on each end, both of them leading to a water slide, which went in circles before dropping you into the pool from a height of about four feet.  
+
+I decided to rest for a while before continuing to explore this strange place or dimension, whatever it is. I sat by the edge of the pool, facing the cliff and dipped my feet in the water. A couple minutes later, I noticed movement on the right side- where the cave was. Something was splashing around in the water, trying to stay afloat. 
+
+I ran up to it, and noticed it was a boy about twelve years old, flailing around in the water and kicking, attempting to swim to the pool’s edge. I reached out to him and he grabbed my hand. I pulled him towards me and that’s when I noticed his left foot was stuck somewhere under the cave’s second platform. 
+
+I started to reach down to free the boy’s foot, but he looked at me wide eyed, and shook his head. 
+
+“What’s wrong?” I asked, but he simply shook his head again. I pulled and his foot seemed to loosen for a split second, but right when I was about to pull him out, it got stuck again.  A second later there was a sickening crack and the boy began to howl in pain as blood seeped out of his wound, mixing with the pool’s chlorinated water.
+
+I watched as he got dragged underwater, desperately trying to get back to the surface, until he went limp and slowly sank to the bottom of the pool, before something large swam out from under the water. It was a bit longer than 9 feet, similar to a crocodile, except for the webbed spines on its back, gills along its neck,and cone shaped head with milky white eyes. It slowly swam to the surface, before reaching out to the pool’s egde, grabbing it with it’s two front feet and hoisting itself out of the water. It’s gills closed and I noticed it had two skin covered bumps on top of its head. The skin parted like an eyelid, exposing two narrow slits on top of the bumps. Whatever this thing is, it appeares it can breathe in and out of the water. 
+
+It then started moving towards me. Without thinking, I picked up speed and started running. I ran from room to room, not caring how fast the thing is, just that I need to get as far away from it and this hellish place.
+I stopped running after what seemed like hours, only to look at the clock on the wall and notice it’s only been 5 minutes. I heard wet slaps behind me and began running again. 
+
+And all that running brings me to where I am now, a bar on top of a house themed to look like some celebrities’ L.A mansion, with a diving board extending from the bar on top where I’m at now. Of course, it’s not a real bar as you can’t order anything via the menu tablets installed in the tables. I checked all of them and one is actually a normal tablet with Reddit installed. I’m writing this in the hopes that if anyone sees this, they’ll think twice before diving into a pool. 
+
+To any of my family members that might find this, and reach out to me, I’ll probably be dead, I can see the monster moving closer with every sentence I type. I love all of you, including Isabelle, hopefully you’ll all be able to adjust to life without me.
