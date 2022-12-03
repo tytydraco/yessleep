@@ -14,7 +14,7 @@ I paused the lesson and checked with the teacher next door, a sullen brunette na
 
 “I thought they fixed that in the summer?” I said, remembering a message about the repairs just before the school year ended.
 
-“I don’t think anyone was here doing the summer,” said Barb, a fellow teacher. “If I were you, I wouldn’t worry about it. Though I get that you’re probably still jumpy from the candy incident. Can’t blame you there.”
+“I don’t think anyone was here during the summer,” said Barb, a fellow teacher. “If I were you, I wouldn’t worry about it. Though I get that you’re probably still jumpy from the candy incident. Can’t blame you there.”
 
 I returned to my classroom slightly calmer. But the moment I opened my mouth, the loud voices returned. I returned to the window and gazed out onto the roof. It was empty.
 
@@ -122,7 +122,7 @@ Notably, after a well-attended start of the year, the absences suddenly began to
 
 “Today, we’ll be watching a fun video about the alphabet,” I said a couple of days later, once things had somehow calmed down, though they truly never really did. My class, which had started out with fourteen students, was now down to seven, after two were poisoned, one was injured by the drone, three were abducted, and one was pulled out of school by his worried parents. Little Jack, Cameron, Leon, Caleb, Sally, Jerry, and Chaney looked up nervously at me, as I turned their attention to the TV.
 
-Shortly before the class had started, I had heard Jack brag about how his father a former stuntman, signed him up for karate reasons in the light of everything that happened. Cameron, who had been the recipient of this tidbit, had responded that his own father, a psychiatrist, had signed him up for therapy. Their little exchange had then prompted a reaction from Caleb, who had said that *his* father had somehow managed to send him a makeshift dagger from his jail cell, so he could better “protect himself.” And then, to the sound of oohs and aaahs, Caleb showed it to them in-person, scaring little Sally with its presence.
+Shortly before the class had started, I had heard Jack brag about how his father a former stuntman, signed him up for karate reasons in light of everything that happened. Cameron, who had been the recipient of this tidbit, had responded that his own father, a psychiatrist, had signed him up for therapy. Their little exchange had then prompted a reaction from Caleb, who had said that *his* father had somehow managed to send him a makeshift dagger from his jail cell, so he could better “protect himself.” And then, to the sound of oohs and aaahs, Caleb showed it to them in-person, scaring little Sally with its presence.
 
 In a moment, I was transported back to my conversation with Harriet’s and Sara’s mothers who had accused Caleb’s incarcerated father of being behind everything. Evidently not, I decided, studying Caleb’s scared face.
 

@@ -172,8 +172,8 @@ The first night I opened the door for them was terrifying, like losing one's vir
 
 During these conversations they instructed me to share Cole's story with the world so some of his madness could rub off on others and “season the meat.”
 
-In this partnership of ours they only gained a buffet of people, while I gained so much more. Not only would they tell me tales I would pass off as my own, as long as I keep them sated, I will be able to join their ranks. 
+In this partnership of ours they only gained a buffet of people, while I gained so much more. Not only would they tell me tales I would pass off as my own, I will be able to join their ranks as long as I keep them sated
 
-Heralding their coming will include everything from seeing shadows in the corner of your eyes, the sounds of whispering and something similar to the cawing of crows. Once you hear this, you can thank me, a better and far more successful Pass It On Killer than Cole ever was.
+Heralding their coming will include everything from seeing shadows in the corner of your eyes, the sounds of whispering and something similar to the cawing of crows. Once you hear these things, you can thank me, a better and far more successful Pass It On Killer than Cole ever was.
 
 [WAE](https://www.reddit.com/r/WhisperAlleyEchos/)
