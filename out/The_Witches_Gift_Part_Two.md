@@ -95,4 +95,4 @@ I had never felt happy in my life like this. “So, you believe me?”
 
 I sighed, but at the back of my head I can still feel like he’s watching me from the shadows, slowly I turned around. one of the streetlamps across the way was flickering, as if the light was deciding whether to stay on or not. and suddenly the light decided to stay on, and a man was standing under the lamplight. He wore an expensive black suit with a red tie. He wore a fedora with matching colors, but it was tipped downward into the mans face, so all I could see was a sinister smile. and I could hear his laughter in my head. In a blink of an eye, he was gone. and the streetlight continued to flick again.  
 
-It’s been a long time since I’ve felt helpless not since I was a child. I had a bad sinking feeling about this.
+It’s been a long time since I’ve felt helpless not since I was a child. [I had a bad sinking feeling about this.](https://www.reddit.com/r/nosleep/comments/zbpxue/the_witches_gift_part_three/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

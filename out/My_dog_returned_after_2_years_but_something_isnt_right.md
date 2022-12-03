@@ -28,7 +28,7 @@ I got into bed and fell fast asleep as I was happy Molly was home again.
 
 It was around two in the morning when I woke up and was feeling faint, I looked down to see a chunk of my skin missing and my bed sheets covered in blood, I screamed so loud the neighbours could probably hear me, I then looked to my left and saw Molly chewing on something, I went to see what she was chewing on when she snapped her head around and growled at me except this time she looked different, her beard was soaked in blood, her teeth were razor sharp nearly like a sharks and her eyes had been rolled back I to her head showing just the whites of them, I managed to get a look at what she was chewing and it was the missing chunk of my skin.
 
-I felt sick to my stomach and immediately got up and sprinted for the kitchen to gt a piece of cloth and some tape to hopefully seal off the womb enough until I managed to get to the hospital. Molly was following me more aggressive than ever.
+I felt sick to my stomach and immediately got up and sprinted for the kitchen to get a piece of cloth and some tape to hopefully seal off the womb enough until I managed to get to the hospital. Molly was following me more aggressive than ever.
 
 I managed to escape her and get into my car and went to drive to the hospital nearly blacking out on the way, I pulled up in the hospital car park feeling extremely faint.
 

@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/z9w4ed/my_cousin_has_been_missing_for_years_her_old/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/z9w4ed/my_cousin_has_been_missing_for_years_her_old/) [Part 3](https://www.reddit.com/r/nosleep/comments/zbpu20/my_cousin_has_been_missing_for_years_her_old/)
 
 I brought Kylie's diary with me to college. The last lecture of the day was considered the most boring one by practically the entire class, so plenty of students spent the hour distracting themselves with their computers, playing videogames or checking social media. I opted to spend it reading a few entries of Kylie's dairy, desperate to find out more details about my cousin's fate, especially after the terrifying events I had experienced the previous night.
 

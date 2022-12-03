@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/zaujb3/my_cousin_has_been_missing_for_years_her_old/) 
+[Part 2](https://www.reddit.com/r/nosleep/comments/zaujb3/my_cousin_has_been_missing_for_years_her_old/) [Part 3](https://www.reddit.com/r/nosleep/comments/zbpu20/my_cousin_has_been_missing_for_years_her_old/)
 
 The photograph depicted six people joyfully smiling at the camera and posing in front of a beautifully decorated Christmas tree. Four of them were adults: My uncle, aunt, mother and father and the other two were a ten year old girl and a one year old baby the young girl lovingly cradled in her arms.
 
