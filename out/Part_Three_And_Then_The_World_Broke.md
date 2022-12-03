@@ -66,7 +66,7 @@ I lie on the ground barely able to breath, my group of people around me. A man l
 
 [Part One](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)
 
-[Part Two](https://www.reddit.com/r/nosleep/comments/z2y5ms/part_two_and_then_the_abyss_stares_back_into_you/)  
+[Part Two](https://www.reddit.com/r/nosleep/comments/z2y5ms/part_two_and_then_the_abyss_stares_back_into_you/)
 
-
-[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)  
+[Part Five](https://www.reddit.com/r/nosleep/comments/zb9yey/part_five_and_then_the_hero_died/)

@@ -46,7 +46,9 @@ I pull myself up by the bootstraps and open myself up, The Abyss was hiding for 
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/z3tgww/part_three_and_then_the_world_broke/)  
+[Part 3](https://www.reddit.com/r/nosleep/comments/z3tgww/part_three_and_then_the_world_broke/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)  
 
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)
+[Part Five](https://www.reddit.com/r/nosleep/comments/zb9yey/part_five_and_then_the_hero_died/)
