@@ -82,7 +82,7 @@ I can feel Riley’s suspicion like a thick blanket in the car, this girl was go
 
 We finally made it, I had parked a block away from my childhood house, I don’t want my old man knowing I came by. That wasn’t going to be good for me or them. we all got out of the car and instantly Emily was complaining how cold it was, and her toes were freezing, and she didn’t have a jacket. all Joshua can provide was a coat for her, but ultimately Emily decided to stay in my car realizing she couldn’t go hiking in her platform shoes. So, it was just the three of us, Riley, Joshua and I headed for the woods. All with working flashlights, that illuminating in the darkness, being in the woods at night was different from the daylight hours. Here anything can jump out at you, but during the daylight hours you could at least see. 
 
-“So where are we going exactly?” Riley asked as she shun her light around us, the trees seemed more ominous, the branches reaching out like an old witches’ fingers, reaching out threateningly. 
+“So where are we going exactly?” Riley asked as she shone her light around us, the trees seemed more ominous, the branches reaching out like an old witches’ fingers, reaching out threateningly. 
 
 “To the old well they sealed off a month ago.” 
 
@@ -112,25 +112,25 @@ Joshua gave me that ‘uh huh’ look but didn’t question it. I used my own fl
 
 “I don’t know,” I whispered. 
 
-Suddenly Riley screamed as she was flipped on her back and she was being dragged through the snow, I tried to reach her put whatever was pulling her was fast. to my surprise Riley pulled out a hunting knife and hacked towards her feet, I shun the light and saw thick vines were wrapped around her ankles, I dropped the flashlight and wrapped my arms under her armpits and pulled. It felt like I was playing tug-a-war with a human. 
+Suddenly Riley screamed as she was flipped on her back and she was being dragged through the snow, I tried to reach her put whatever was pulling her was fast. to my surprise Riley pulled out a hunting knife and hacked towards her feet, I shone the light and saw thick vines were wrapped around her ankles, I dropped the flashlight and wrapped my arms under her armpits and pulled. It felt like I was playing tug-a-war with a human. 
 
 She screamed in pain, but she kept hacking at the thick vines, eventually she was able to hack through them, we both heard this squealing sound, high pitched of the vines screaming in pain. she was immediately let go and I pulled her back to our backpack. We were both breathing heavily, she glanced up at me and gave me worried smile. now everything went quiet, only our breathing could be heard. In a heartbeat all the vines lurched out at us, I had no choice, I used my ability and froze time. right before one of the vines could impale Riley. 
 
 “Oh fuck!” Riley screamed and stared cross-eyed at the vine that was inches away from the bridge of her nose. 
 
-I had never touched anyone during my time stopping, I suppose it makes sense that if I touch someone, I’m able to bring them here with me. I let out a breath of relief. Slowly she moved out of the vines reach, my hands shook as I snatched up the flashlight on the ground and shun it and we were surrounded until my light caught *him* leaning against one of the trees. My Time Stalker, again, his fedora was slid forward, and I couldn’t see his eyes but only that malicious smile he bore. 
+I had never touched anyone during my time stopping, I suppose it makes sense that if I touch someone, I’m able to bring them here with me. I let out a breath of relief. Slowly she moved out of the vines reach, my hands shook as I snatched up the flashlight on the ground and shone it and we were surrounded until my light caught *him* leaning against one of the trees. My Time Stalker, again, his fedora was slid forward, and I couldn’t see his eyes but only that malicious smile he bore. 
 
 “You are looking for her too?”
 
 *“We think the same . . . how interesting.”*
 
-My instinct naturally reacted when he moved faster then my eyes could track him and I was thrown across the clearing into a tree, one of the frozen vines scrapped across my outer thigh. Riley screamed, I pushed myself off up, and picked up the dropped flashlight and shun the area around again, I couldn’t see them. but I did see the hunter knife laying in the snow, covered in plant ooze. I picked it up, even though my fingers were numb, I knew I needed a weapon. I took a deep breath. 
+My instinct naturally reacted when he moved faster then my eyes could track him and I was thrown across the clearing into a tree, one of the frozen vines scrapped across my outer thigh. Riley screamed, I pushed myself off up, and picked up the dropped flashlight and shone the area around again, I couldn’t see them. but I did see the hunter knife laying in the snow, covered in plant ooze. I picked it up, even though my fingers were numb, I knew I needed a weapon. I took a deep breath. 
 
-“Nick watches out!” I heard Riley scream. 
+“Nick watch out!” I heard Riley scream. 
 
 I was shoved towards one of the frozen vines, I was able to dodge it before I was impaled into it, he was smiling not too far from me, I slashed at him, and he did something that surprised me, time was unfrozen and the vines lashed out and one of them impaled right through left upper thigh, I screamed and fell to the ground in pain. I used the hunting knife to hack at the vine. But he was no longer a man in a black suit and red tie and matching fedora. He was now solid form of a shadow he reached for me. I panicked, my life was in danger, I shoved the hunting knife into his lower stomach, I sunk the knife down to the hilt, he didn’t scream. he staggered back until one of the vines impaled him through the shoulder. 
 
-I groaned in pain and pushed myself back on my feet. And grabbed the flashlight and shun it around, panicked that if Riley died because of me, I’d feel guilty. what I found was her leaning up against the tree but frozen in time. I wondered if she was stuck because neither of us touched her and was caught in time. reaching out with my trembling hand I touched her, and she gasped for air, gulping it greedily and her eyes searched wildly until they found mine. 
+I groaned in pain and pushed myself back on my feet. And grabbed the flashlight and shone it around, panicked that if Riley died because of me, I’d feel guilty. what I found was her leaning up against the tree but frozen in time. I wondered if she was stuck because neither of us touched her and was caught in time. reaching out with my trembling hand I touched her, and she gasped for air, gulping it greedily and her eyes searched wildly until they found mine. 
 
 She wrapped her arms around me, “are you okay? I don’t know what happened, it felt like I was stuck and—”
 
