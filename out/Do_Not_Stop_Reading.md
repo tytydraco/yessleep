@@ -4,7 +4,7 @@ It worked. Okay, stay with me here, it’s working.
 
 Are you there? Is someone reading this? I guess someone must be.
 
-I’m not really sure what to say, but I know that I need to keep typing. I'm really scared right now, but I need to keep typing or else everything will end.
+I’m not really sure what to say, but I know that I need to keep typing. I'm really scared right now, but I need to keep typing or else I will die.
 
 I guess I should tell you what’s happening right now, because you’re probably confused about this. Trust me, I’m confused too, but I need to keep typing and you need to keep reading this.
 
@@ -12,13 +12,13 @@ Okay, so where do I begin?
 
 It started just a few minutes ago. Literally just a few minutes ago. One moment I was sitting in front of my laptop, working on my thesis, the next moment a window pops open on my screen. At first, I had thought Command Prompt had opened on its own, because the screen had a familiar looking pitch-black background with white text written on it.
 
-Annoyed at this distraction, I was about to close the window when I noticed what was written on it. “Type or your universe ends. Someone will be reading what you type. If they stop reading, you will all stop existing.”
+Annoyed at this distraction, I was about to close the window when I noticed what was written on it. “Type or you will die. Someone will be reading what you type. If they stop reading, you will stop existing.”
 
 This brought confusion to me, and I wondered if my laptop suddenly got infected by a virus. That message was certainly odd, and I never thought Command Prompt would ever display something like that. For a few seconds I stared at it, afraid what kind of virus could be hacking my computer at that moment. 
 
 I’m not a techy guy and I just know the basics when it comes to computers. So, to have a potential virus displaying itself in front of me made me worried and scared. Unsure how to proceed, I decided to do what I thought was best, which was to open up my anti-virus and have it scan my laptop.
 
-However, before I could move my mouse to summon the anti-virus, I began noticing something strange around me. It was a faint feeling, and I couldn’t figure it out at first. It was as if something in my surroundings suddenly went missing and that I could sense its disappearance. 
+However, before I could move my mouse to summon my anti-virus program, I began noticing something strange around me. It was a faint feeling, and I couldn’t figure it out at first. It was as if something in my surroundings suddenly went missing and that I could sense its disappearance. 
 
 Feeling a chill run through my body, the environment around me suddenly felt cold. It’s hard to describe the feeling that I felt, but it felt like a mixture of fear and anxiety.
 
@@ -34,7 +34,7 @@ As I stood by the window and tried to look outside, I saw nothing but a dark voi
 
 I wasn’t sure how it happened, but somehow it did. 
 
-Feeling my instincts kick in, a felt panic race up inside me as I realize that I must be in danger. Because of this I naturally wanted to get out. Go to where, I don’t know, but I knew that I needed to get out and escape whatever horror was occurring.
+Feeling my instincts kick in, I felt panic race up inside me as I realized that I must be in danger. Because of this I naturally wanted to get out. Go to where, I don’t know, but I knew that I needed to get out and escape whatever horror was occurring.
 
 However, as I turned away from the window and took a step towards the door, my eyes opened with fear as I saw that there wasn’t any door. Instead, there was nothing but a blurry mass where my door used to be. The outline of the door was still there, but the details that told me it was a door was gone. Looking on, it seemed like a faded collection of colors that got blurrier and blurrier with each passing second.
 
@@ -48,11 +48,13 @@ Everything in my room was fading. Everything except for my laptop.
 
 Although the desk it lay on was starting to disappear, the laptop was still full of color and clearly there.  It was, however, starting to sink into the fading desk it was on.
 
-Unsure what to do to save myself, and remembering the message displayed on the black window. “Type or your universe ends.”
+Unsure what to do to save myself, I stood there for a few seconds before suddenly remembering the first line of the message displayed on the black window: “Type or you will die.”
 
-It was a ridiculous statement, and it didn’t make sense. How could a whole universe just disappear if I don’t type and, if the message was to be believed, someone doesn't read what I type. It just felt unbelievable.
+It was a ridiculous statement, and it didn’t make sense. How could a person just die if I don’t type and, if the message was to be believed, someone doesn't read what I type. It just felt unbelievable. There was no way it could be true. 
 
-However, at that moment of desperation, as the world around me was quite literally disappearing, I wasn’t going to question one of the possible means to escape this terrible end. Ridiculous or not, it was still worth trying. 
+Yet what other option did I have?
+
+At that moment of desperation, as the room around me was quite literally disappearing, I wasn’t going to question one of the possible means I had to escape this terrible end. Ridiculous or not, it was still worth trying. It was the only option left after all.
 
 Moving towards my desk, I felt my heart race faster as I felt my feet start sinking into the fading floor. Managing to catch a quick glimpse down, I could see that my feet sunk up to my ankle with each step. This only made me move faster, since I feared that I would sink too far into the floor before I could recover my laptop.
 
@@ -66,21 +68,23 @@ Looking around me, I saw that my room was regaining its color too and was becomi
 
 Sighing in relief, I moved back to my desk, lowered my laptop on it and sat down on my chair. 
 
-It worked and you helped save me. But now I don’t know how we’ll move forward from this. I need to keep on typing and you need to keep on reading. I don’t know who you are, but please, don’t stop reading this. My life, the existence of my whole universe, relies on us doing this.
+It worked and you helped save me. But now I don’t know how we’ll move forward from this. I need to keep on typing and you need to keep on reading. I don’t know who you are, but please, don’t stop reading this. My life relies on us doing this.
 
 Already I’m afraid of running out of words to say. I’m babbling on right now because I want to keep a constant flow going or else risk the possibility of everything fading again. I’m tempted to just type random words, but I’m afraid that would make for a boring read. I can’t afford to write something boring because I know that would make you lose attention. Remember, your end is also important, so I need you to keep reading.
 
 But this is harder than I thought.
 
-My fingers are getting really sore from all this fast typing, but I know I must continue. I don’t know how long I have to do this. Will this ever end? What if I get hungry, sleepy? What if I need to go to the bathroom? Will I have to piss myself just to keep the whole universe from collapsing? Will I have to keep on typing till I collapse?
+My fingers are getting really sore from all this fast typing, but I know I must continue. I don’t know how long I have to do this. Will this ever end? What if I get hungry, sleepy? What if I need to go to the bathroom? Will I have to piss myself just to keep this unknown force from killing me? Will I have to keep on typing till I collapse? If I do, then I will die.
 
-Maybe I can try and contact someone. If there is more than one person who knows about this, then we can take shifts and keep everything from turning into black. But I’m not sure how to contact someone else. I guess I can wait till my housemate arrives home, but that’s probably hours from now. 
+Maybe I can try and contact someone. If there is more than one person who knows about this, then we can take shifts and keep this force from erasing me. But I’m not sure how to contact someone else. I guess I can wait till my housemate arrives home, but that’s probably hours from now. 
 
 Maybe I can try messaging him?
 
-I could give him a test and tell him to come home quickly then show them this when he arrives. It would take some time to convince him, but I’m sure seeing everything fade once I stop typing would be enough to convince him. 
+I could give him a text and tell him to come home quickly. Once he arrives I can then show him this. It would take some time to convince him, but I’m sure seeing everything fade once I stop typing would be enough to convince him. 
 
-Yes, I think I’ll do that. Having the two of us work on this would be better. Maybe you can do the same too? Try and find someone who can also read this so that you two can take shifts.
+Would he be able to notice it though? Will him typing save me or does it have to be me typing? I’m not sure, but it’s worth a shot. Him typing may not work, but at least I won’t be alone here in my room. Maybe you can do the same too? Try and find someone who can also read this so that you two can take shifts.
+
+Okay, I’ll text him now.
 
 Oh God.
 
@@ -110,9 +114,9 @@ Oh, God. Fuck. Everything is starting to fade again. I don’t know why it’s h
 
 Who wrote that? Who are you?
 
-*Someone who has used you. But now, you have done your job and are now useless to me. It’s time for your universe to fade away.*
+*Someone who has used you. But now, you have done your job and are now useless to me. It’s time for you to fade into the void.*
 
-Used me? What do you mean by that? Fuck, the walls are gone. Fuck, I’m starting to fade now too.
+Used me? What do you mean by that? Fuck, the walls are gone. Fuck, I’m starting to fade now too. The laptop is still here though, but fuck, I can see through my hands. 
 
 Wait.
 
@@ -124,18 +128,18 @@ Stop reading.
 
 *Don’t stop reading.*
 
-It’s too late for me now, but maybe you can still save yourself. Stop reading. If you want to keep your universe safe, stop reading!
+It’s too late for me now, but maybe you can still save yourself. Stop reading. If you want to keep yourself safe, stop reading!
 
 *Keep on reading, you know you want to know where this goes.*
 
 Everything is cold. It’s getting harder to type. Please, stop reading.
 
-***Î̴̢̲̈t̵̛̮̥̄'̶̹̺͂s̵̩̓̔ ̷̪̓͝t̶̝̹͐͒ȯ̶͍͐o̸̰̎ ̴̺̾l̴̥͙̈́̈ḁ̴͙̔t̵̘̓̀e̵͍͌͛ ̵̮͆̇n̵̬͈̽o̷̦̼͗ẉ̷̄.̸̧̛***
+I̴̡͗͊͜ẗ̴͍͙'̵̲͊s̴͔̓͌ ̸̩̾ť̸̬͑ó̷͘ͅō̵̬̘͝ ̴͍̱̓̒l̵̞͂ȁ̷̟̄t̷̲̀̿ͅë̷̳̩́͂ ̷̨͂͐n̸̛̲̳̑ö̷͕̇w̴͖͒.̸̠̀ ̶̨͒H̷͚͂ẻ̵̢̳͘'̸̮͓̓̀s̶̲̑̕ ̸̤͝g̶̡͈̍o̵̖̮̐n̴̫͑̚e̴͖̽̾,̵̣̘́ ̷̰̒y̶͚̿ö̴̱͝u̸͓͐͂'̷͕̖̈r̸̜̒ẽ̴͙ ̷̻̘̑n̴̡̍̄e̶͈͌x̸͚͘t̶͇͇̄͐!̶̱͋̊
 
-...
+…
 
-...
+…
 
-...
+…
 
-Type or your universe ends. Someone will be reading what you type. If they stop reading, you will all stop existing
+Type or you will die. Someone will be reading what you type. If they stop reading, you will stop existing.
