@@ -63,22 +63,23 @@ I did the only thing I could think of. I started banging on doors, twisting knob
 
 I hesitantly opened my eyes. They were gathered outside, mere inches away on the other side of the glass. They were just standing there motionlessly like horrific wax figures. Their bulbous insectoid eyes seemed to follow me as I backed away. It was the moth things. Several of them must have been chasing me and now they were just... Waiting. They weren't trying to break through, nor reaching for the door.
 
-I didn't know what else to do, so gazed around the room.
+I didn't know what else to do, so I gazed around the room.
 
-A woman was in here with me. She was waiting behind the counter with a concerned look on her face. I'd have gasped if my burning lungs held air. Instead, I simply gestured towards the windows, mouth agape. I felt like crying but I was busy catching my breath. When I could finally speak, I asked her what those things are. She told me that everything is going to be okay. 
+A woman was in here with me. She was waiting behind the counter with a concerned look on her face. I'd have gasped if my burning lungs held air. Instead, I simply gestured towards the windows, mouth agape. I felt like crying but I was busy catching my breath. When I could finally speak, I asked her what those things are - I couldn't think of anything else to say. In response, she told me that everything is going to be okay. 
 
 What? Is she blind??
 
 I pointed to the windows again, refusing to look that direction myself, and repeated myself.
+
 Once again, she reassured me that everything was going to be okay. I was stunned, perplexed, but when I looked over my shoulder... 
 
 There was nothing there. An empty street. 
 
-What was happening? That terrible noise was now absent too. The only thing I could hear was the beating of my pulse and the sound of her shoes on the tile. She approached me like one would approach a wounded animal, whispering sweet nothings.
+What was happening? That terrible noise was now absent too. The only thing I could hear was the beating of my pulse and the sound of her shoes on the tile as she approached me. She came closer like I was a wounded animal, whispering sweet nothings.
 
-I fell to my knees and started to cry. She touched me gingerly on the shoulder, making shushing noises to comfort me. I tried to tell her about what I saw, about what I just experienced, but all I could say was that I thought I was going mad, that I was more afraid that I wasn't. More shush noises, a clicking tongue.
+I fell to my knees and started to sob. She touched me gingerly on the shoulder, making shushing noises to comfort me. I tried to tell her about what I saw, about what I just experienced, but all I could say was that I thought I was going mad, that I was more afraid that I *wasn't*. More shush noises, a clicking tongue.
 
-I wiped my eyes and was preparing to stand, uncertain if my leg would be able to carry the weight, when I noticed something abhorrent that froze the blood in my veins. Her shoes were stained with what looked like ashes. No, no, no...
+I wiped my eyes and was preparing to stand, uncertain if my leg would be able to carry the weight, when I noticed something that froze the blood in my veins. Her shoes were stained with what looked like ashes. No, no, no...
 
 Voice shaking, I pulled myself from the ground and asked about her shoes, internally praying that she'd give me a mundane excuse - the heater, the oven, the dust, the something - but she simply stared at me as if she didn't comprehend. Something in her expression seemed to change. There was no longer any warmth. Was there ever? I wasn't sure.
 
