@@ -1,7 +1,3 @@
-[^Optional ^narration ^here. ](https://youtu.be/ekzPVf4AKWc)
-
-___
-
 I don't know what else to call them. I don't know where they came from or how they got here. I don't know what they want.
 
 They seemingly emerged from nowhere, suddenly appearing without rhyme or reason across the globe. Sightings were sporadic at first. People claimed that it was some sort of ridiculous mass hallucination. And for a time, I believed that. It *seemed* like a hoax. They called it a meme. Mass delirium, they said. Remember?
@@ -89,4 +85,4 @@ This time she opened her mouth as if to speak and from it emerged the sound of a
 
 I blacked out. When I woke up I was in my own bed, but I could tell that someone had been in my home. I could just... feel it. I checked the news, I asked neighbors and friends, but nobody else remembers what happened. Nobody even remembers that it *was* happening. It's like the whole world forgot.
 
-Everyone except me.
+Everyone except [me.](https://youtu.be/ekzPVf4AKWc)

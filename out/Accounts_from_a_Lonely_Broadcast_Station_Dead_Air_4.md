@@ -56,7 +56,7 @@ When would we be just another set of numbers in a list of former emergency broad
 
 All three of us heard a loud, ear-splitting drone. There was a rumble from below us, the stilts of the tower whining and shivering in protest. I braced myself, worried for a second that we were about to topple over before we turned our attention to the front window.
 
-A tree had fallen in the woods, and another was starting to lean. It cracked and fell to the ground with another loud boom that shook our little corner of the mountain. We heard that bellow again, followed by the view of giant, twisted antlers peeking above the distant pines, covered in blood. The terrible, unholy screams of creatures that shouldn't exist drowned out the chirp of birds and the whistle of the wind as the forest cannibalized itself again, the strongest growing stronger. 
+A tree had fallen in the woods, and another was starting to lean. It cracked and fell to the ground with another loud boom that shook our little corner of the mountain. We heard that bellow again, followed by the view of giant, twisted antlers peeking above the distant pines, covered in blood. The terrible, unholy screams of creatures that shouldn't exist drowned out the chirp of birds and the whistle of the wind as the forest cannibalized itself again, the strongest growing stronger.
 
 The beast was hunting again, closer than usual. He was making himself known. I knew it was a sign - the next fog day, he would be waiting, eager to finish what he started and tear the village asunder. We hadn't even finished cleaning up from the last time. It would come for us first.
 
@@ -229,3 +229,5 @@ He was pointing off into the distance now. I followed his gaze until I saw it to
 “I don’t know,” Dan said. “But let’s hope they know what they’re doing.”
 
 This is Evelyn McKinnon at 104.6 F.M. And I think I’m going to take back what I said about burning this place to the ground.
+
+[Next](https://www.reddit.com/r/nosleep/comments/zcj76u/accounts_from_a_lonely_broadcast_station_dead_air/)
