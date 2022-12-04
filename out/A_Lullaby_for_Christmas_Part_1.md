@@ -211,3 +211,5 @@ We always get the crazies on Christmas; that's what I told myself when she walke
   I jerked back in my chair, almost toppling it to the floor, but when my surroundings became clear again after the power flicker regulated, there was no trace of anyone. My heart was still beating wildly while I walked to the door, leaning out like a frightened child, darting my eyes from side to side, I saw nobody; only the empty hallway. 
 
   Whether my mind was playing tricks on me, likely inspired by the unsettling events of the day, or if there was indeed something to the woman's claims, I was not prepared to debate at the time. As it would soon become very clear, this bizarre night still had some surprises in store for me that I never could have predicted.
+
+[Final](https://www.reddit.com/r/nosleep/comments/zcp22a/a_lullaby_for_christmas_final/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
