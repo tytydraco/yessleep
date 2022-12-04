@@ -112,7 +112,7 @@ Without another word, Gertrude ripped off her trench coat, revealing a halter to
 
 “Gertrude!” I squealed. “This is inappropriate.”
 
-She began to grind, twirl, and thrash like an exotic dancer on a four-day meth binge. My eyes bulged in horror, knowing I’d never be the same man again.
+She began to grind, whirl, and thrash like an exotic dancer on a four-day meth binge. My eyes bulged in horror, knowing I’d never be the same man again.
 
 I nudged Becca, but she was out cold.
 
