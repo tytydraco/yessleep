@@ -43,7 +43,7 @@ ___
 
 &#x200B;
 
-*Monday. April 4. 1893.*
+*Monday. April 4. 1953.*
 ___
 
 Recently, I’ve been feeling unwell.
@@ -61,7 +61,7 @@ I do not know when this started. I do not recall the reason I went to Asia.
 &#x200B;
 
 
-*Friday. April 29. 1893.*
+*Friday. April 29. 1953.*
 ___
 
 The symptoms have descended upon me quickly, like a fog. In addition, my recollection has become hazy as well—I am unable to recall what it feels to be without malaise. I have no recollection of my travels now. If it were not for this journal, I would not have known I travelled at all.
@@ -76,7 +76,7 @@ Yet, the tests have been fruitless. Physically, my body is not inconsistent with
 
 
 
-*Wednesday. June 15. 1893.*
+*Wednesday. June 15. 1953.*
 ___
 
 As my condition worsens, more unique symptoms have begun to surface.
@@ -93,7 +93,7 @@ But I am doubtful. Thoughts of the future are becoming hazy also.
 
 
 
-*Sunday. June 19. 1893.*
+*Sunday. June 19. 1953.*
 ___
 
 These visions, they have only grown in vividness and intensity. No longer are they simple distortions of shape and colour in ordinary objects—now, entirely new objects have emerged.
@@ -106,7 +106,7 @@ Like balloon animals being inflated, thin figures billow outwards, creating unev
 
 
 
-*Day uncertain. July 2. 1893.*
+*Day uncertain. July 2. 1953.*
 ___
 
 As I grow more accustomed to these visions, their features become more distinguished. What once were just vague, opaque blobs have now become sharply defined substances, or perhaps even organisms of sorts.
@@ -123,7 +123,7 @@ But enough of this. To categorise hallucinations, like they were some undiscover
 
 
 
-*July 1893.*
+*July 1953.*
 ___
 
 They have begun moving now. Soundlessly, they creep across my sightline—some locomoting like caterpillars, while others slink on wireframe “feet”. These feet, thin feelers reminiscent of ant antennae, poke and probe the ground ahead, as if searching for stable ground. Dozens of these feelers extend from below their “bodies”; globular, ovoid masses, which appear as smooth as they are pliant.
@@ -142,7 +142,7 @@ In these pages, I see that I have once referred to them as flora. I now see that
 
 
 
-*July? 1893.*
+*July? 1953.*
 ___
 
 They are everywhere. I have seen them creep across my page, I have seen them loom outside my window. 
@@ -157,7 +157,7 @@ The one I felt was chewing-gum coloured—it was warm and fleshy to the touch.
 
 
 
-*1893?*
+*1953?*
 ___
 
 Perhaps they have always been there. Silent, numerous, invisible to the human eye.
