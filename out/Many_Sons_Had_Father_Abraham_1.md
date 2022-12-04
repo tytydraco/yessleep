@@ -550,4 +550,4 @@ The kitchen felt quieter than before as that heavy silence settled in again, and
 
 &#x200B;
 
-What the hell kind of town had I just moved [to?](https://www.reddit.com/r/HeadOfSpectre/)
+What the hell kind of town had I just moved [to?](https://www.reddit.com/r/nosleep/comments/zc349l/many_sons_had_father_abraham_2/)
