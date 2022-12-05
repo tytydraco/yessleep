@@ -20,7 +20,7 @@ She beamed, enjoying herself and her new friend. I hated to be the killjoy dad w
 
 "Okay, I'll let you stay up just this once. But *don't* tell your mother."
 
-"Oh, *thank* you!" 
+"Oh, *thank* you!"
 
 "Good night, pumpkin."
 
@@ -88,7 +88,7 @@ Later, Dahlia showed us Frank's secret talent. She stood him on the kitchen tabl
 
 Brooke and I exchanged amused glances, but we played along.
 
-"How are you, Frank?" 
+"How are you, Frank?"
 
 *Kids are so cute,* I thought, expecting nothing to happen.
 
@@ -114,7 +114,7 @@ Later that night, I combed the internet for answers, determined to solve the mys
 
 \- *Language experts…*
 
-The last search yielded several results, but Dr. Rudolph's bio caught my eye. According to his website, he was a local university professor specializing in philology, ancient languages, and paranormal studies.
+The last search yielded several results, but Dr. Randolph's bio caught my eye. According to his website, he was a local university professor specializing in philology, ancient languages, and paranormal studies.
 
 *This is our guy,* I thought. *If he can't help us, nobody can.*
 
@@ -124,7 +124,7 @@ Brooke and I couldn't get there fast enough.
 
 The next morning, we wrapped Frank in a giant Ziploc bag and sealed him up like evidence from a crime scene.
 
-We arrived at Dr. Rudolph's office before lunchtime. He was a short, jolly-looking fellow with ruby cheeks and wire-rimmed glasses. Awards, diplomas, and maps of ancient Mesopotamia hung on his walls.
+We arrived at Dr. Randolph's office before lunchtime. He was a short, jolly-looking fellow with ruby cheeks and wire-rimmed glasses. Awards, diplomas, and maps of ancient Mesopotamia hung on his walls.
 
 Dr. Randolph invited us to sit. "So, tell me about this mysterious addition to your family." He twirled his pen, raptly listening as we explained.
 
@@ -168,7 +168,7 @@ After Frank finished, Dr. Randolph turned to us, his eyes serious. "I'm uneasy w
 
 Dr. Randolph's eyes widened like half-dollars, and he shook his head. "I can't believe it, but your doll is speaking ancient *Sumerian,* a language from Mesopotamia. Not just that, but whatever is inhabiting this doll *isn't* very nice. And frankly, I don't care for the way he talks about *you*, John."
 
-"What did he say about me?" 
+"What did he say about me?"
 
 "He said you grabbed him and threw him on the couch, and now he wants to—and these are *Frank's* words—'teach that asshole a lesson.'"
 
