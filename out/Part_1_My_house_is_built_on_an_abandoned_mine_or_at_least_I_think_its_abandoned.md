@@ -1,0 +1,23 @@
+Let me explain fully, recently, about five months ago, I moved to rural Wisconsin, I'm enjoying my neighbourhood so far and my house is comfortable enough. There's one unique aspect though, in the basement, there's a small hatch that leads to an old mine that's been abandoned since 1928.
+
+You see, the community I live in is built over an old zinc mine, my house specifically was actually the old house of the old overseer, his name was Ross MacDonald and he, as well as 26 other mine employees, were killed in a cave in which resulted in the mine being abandoned. The story itself is already saddening and a little off putting every now and then when I would stop to think that I was living in the house of a man who died a painful death.
+
+But ever since last month, something tells me they're still down there. Lately my dog, Benson, had been very scared of the hatch and refused to go near it. I went to check the hatch and it looked fine, the padlock is still there, untampered with and there's nothing wrong with the hatch itself. I thought he may of been smelling some dead animal and thought nothing of it.
+
+This kept going until one day, last month, when I heard it shaking, ever so slightly, and then it stopped. I didn't know if I was hearing things, but given the fact that my dog is usually a very brave pup, this definitely aroused my curiosity. A few days later, when I was finally getting around to fixing a heating problem, it started shaking again. So, the paranormal investigator in me got to thinking on how to prove it in some way. Then it came to me, I placed salt on the hatch, specifically in the pattern of a smiley face, and made sure to move very cautiously next to it. Next time I heard it move, which was just last week, the salt that was once so happy was now a powdery mess, I now knew it was actually, physically shaking.
+
+Ever since that day I've dedicated a bit of time every day to trying to hear if there's anything down there. I know that sounds stupid, but life in small town Wisconsin is boring, the pub is closed for renovations and the cell service is shit as of late, so the kid in me has taken the wheel and I've resorted to entertaining myself with fake boogeymen. Or, they *were* fake boogeymen, until I heard pained screaming coming from the hatch.
+
+Was it a homeless person? Or maybe a coyote that got stuck down there? I decided that a scream, or even just scream-like noise, wasn't enough to be sure that there was something to be scared of down there. So I went to my local library, to do some research on the mine, and here's what I found of note:
+
+**1:** The mine, formerly known as Wonderhill Mining Co., was a uranium mine, and when the mine collapsed the company behind it automatically closed the mine's doors, even to investigators and coroners trying to recover the bodies, deeming that it was too treacherous to risk going down, despite the fact that the mine some of the most reliable safety procedures, including very expensive elevators, designed specifically to work in the event of a cave-in.
+
+**2:** Out of all 27 of the mine employees killed in the cave-in, only 4 were actually miners, most were higher-ups, and ups had at least a bachelor's degrees in the fields of science and biology.
+
+**3:** In one of the books I checked out, several miners start to look weaker and weaker as time goes on, and most concerningly, a lot of them had several physical deformities which only got worse and worse as the pictures' dates got closer to the date of the cave-in.
+
+When I bought the house, the realtor did tell me about the hatch and the part about the cave-in, including giving me the key if I ever wanted to check it out. So I opened the hatch, very carefully, as I don't want splinters, and aimed my flashlight down there, and I could've sworn on my mother's life I saw something crawling down there, but it was too big to be any type of animal, but too fast to be human, seeing this I automatically slammed the hatch door and locked it. For days after that I heard louder screams from the hatch, but less frequent shaking, until it stopped this morning.
+
+Now I'm tempted to go down there, but I don't know if I'll be happy with what I'll find if I do, and what if I die down there, via paranormal means or otherwise? What if there's nothing down there and I just get bitten by a spider or hit my head on a rock and bleed out? Is going down there legal? Is it trespassing, and if so, who will sue me? What would I need to descend safely?
+
+I don't know what's down there, but I'll try to find out and keep you guys updated in the process. What should I do Reddit?
