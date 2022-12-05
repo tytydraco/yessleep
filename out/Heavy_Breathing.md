@@ -1,135 +1,47 @@
-Ever stare up into the sky and wonder if somewhere out there somebody else is doing the same thing? Does the idea ever weird you out in the best kind of way? It does for me.
+It's been three days since we broke into that house. And I think it's finally caught up to me.
 
+Mick thought it would be easy. The owner of the house had died two days ago. It was some old guy, Dominic or some shit. I didn't know what his name was and don't care. I hope he's burning in hell for this. I hope he isn't waiting for me.
 
-You see, I'm a bit of a goth. Well, how much of one will depend on your perspective I guess. For me, I wear the dark clothes and read the horror books and what's relevant to this story, I sit outside in the dark on nights and admire the way the shadows interact with the artificial light beneath the stars.
+Back to Mick. He was always the one to scout it out for Tom and me. Look, we didn't choose to be thieves, it kind of happened. We needed money and other junk, right? Everyone does. It's not our fault, we just got good at it and couldn't stop. So anyway, Mick told us about this place. Old guy dies alone, no family shows up, it's in a quiet neighborhood, easy pickings. How could we not say yes?
 
+I didn't feel anything when I saw the house. It was this, big, rustic mansion, or some kind of castle, I don't know what it is, I'm not an expert on houses. It was just this single house standing alone and empty. Windows were intact, doors as well, looked like it was just waiting. For anyone.
 
-I especially like doing this when I feel sick during the summer. It's a bit of a routine for me with every other year me coming down with something midsummer. In July 2021, I caught the flu. This led to a sequence of events that have left me unsettled to this day.
+I keep replaying one part of that night in my head, over and over. We were going in through the backdoor, Tom was going to pick the lock, but the instant he stuck the pin into the keyhole, the door just... slide open. I thought it was Tom, who was kneeling there, confused, that his tinkering had made the door open, but the door opened so smoothly. Like it was... I don't know, automatic, or when you open your mouth without thinking. That kind of smooth. It couldn't have wanted us to go inside, that'd-
 
+That'd be just as crazy as why I'm writing this.
 
-The fever, congestion and the cough hit me all at once. Next thing I knew it, I was sitting up in bed listening to my own heavy breathing. I could suck in and feel a light rattle in my chest. The indoors suddenly felt blindingly hot as were my eyelids. Closing them almost seemed to sting.
+The house was pretty damn cold, that was the first thing I noticed when we went inside. How cold it was. I mean, that was normal, nobody been living there for two days, shit gets cold. But God, it felt like solid ice was being dragged over our skin. I think we all had the same idea. That we had to make this quick.
 
+We searched the house room by room. First was the living room. Nothing too special about it. I found a quarter under a carpet. The date on it was 1958, and it looked pretty old. Maybe I could pawn it off. Tom found a book of some kind, but he didn't take it with us. I had just put the coin in my pocket when I saw him standing by the bookshelf, holding this big black tome of some kind. He had it open, in profile to me, and was scrolling through the pages. The look on his face caught me off guard. Tom isn't the squeamish type, I've seen this man outright strangle a dog to death - had to be done, I swear, it had to, it would have woken the owners - but as he kept flipping through the pages, his eyebrows were pushing down over his eyes like a shield.
 
-This was the time when I rose, hearing nothing but the sound of my own breath in the bluish blackness of my room. I stared at the ghost white reflection in the mirror for some time. I looked like a phantom with messy hair draped partially over her eyes. Checked the time on my phone. 2:39pm. At least I got a few hours in, at least.
+I asked him what he was reading, and his face shot up from the book like someone had just stepped out of the wall. His eyes were wide, his shoulders were rising and falling with every breath he took, and I think one of his hands was shaking. He shut the book without a word, threw it to the other side of the room, then told me it was worthless. I asked what was in it, but he just pushed me out of the living room. Mick was gonna pick up the book when Tom snapped at him to hurry his ass up, and I mean snapped. Like he was gonna break someone in two.
 
+Mick did as Tom said, but Tom kept glancing over his shoulder after he went to the next room. And the next. And the next. Something about that book had scared him. I don't know what.
 
-I fumbled through the process of preparing some Theraflu. A couple mild scalds later, I had a thermos in hand and was on the way out the door. The cool night air rushed over me, tickling some goosebumps into my skin before settling. The temperature was much, much better than inside. I sucked in air and gasped it out. I could only breathe from my mouth.
+When we reached the bedroom, we finally made payday. And I mean payday. When we opened up one of the dressers, it was full of tin cans, and in every one was cash. Coins or bills in denominations up to a hundred. Mick was laughing his ass off as he began stuffing shit into a bag, saying how he was gonna buy some hookers and blow the rest on cocaine. Tom was standing by the door, looking into the hallway. I asked if he wanted anything, and he said we'll divide it up tomorrow.
 
+I was about to look under the bed when something white slithered over the wall. My heart skipped a beat, then I went cold. That had been a car's headlights, I was sure. I crouched down and crept to the window, peeking outside. The houses were all lined up in a neat little mismatched row, street lamps were vomiting white light, and the road was empty. There wasn't even the faint red glow of a tailgate. I told the guys we should probably hurry it up. Mick got a bit ticked, asking why the fuck we needed to do that, and when I told his dumb ass because somebody had just driven past, he went pale and asked if it was the cops, then Tom told us both to grab whatever was left so we could leave, and then something moved upstairs.
 
-The California streets were cracked, glinting lightly from the fresh rain which still managed to ease my nostrils with its gentle aroma. Spots of light across the neighborhood highlighted something I loved about it: it was empty. There were three sounds: crickets, the distant running of cars and—loudest of all—the sound of my heavy breathing. The air soothed my ill eyes and I sat down in my lawn chair.
+All three of us looked up at the ceiling, mouths wide open. I'm not sure what we expected to see, but it wasn't the white, peeling plaster or the bricks that were peering through.
 
+Mick asked what the hell that was. I said it was probably some box that had been left in the attic, but I don't think I believed it. Tom just told us to grab the cash and go. We did without asking another question, even Mick. As I left that bedroom, for a moment I thought I saw something. On the ceiling, like a puffy white disk or mask, but when I stared right at it, nothing was there. I realized what had happened. The way the moonlight hit it, it looked like a face. That had to be it. Had to be.
 
-The sky wasn't black. It was a very, very dark blue. Or purple. Yes, I was thinking that while staring into it. My mind just goes places when I do that while sick. Sometimes I think I'm most creative when I do that. Only, I don't want to get snot all over my computer and feel like crap so I never get anything done.
+We were heading back to the car when Tom stopped and spun around, looking at the house. I asked him what was up, even trying to see if I could spot what had him so nervous, but he just shook his head and mumbled about the wind. He kept mumbling about the wind as we drove back to the apartment complex.
 
+Now that I think about it, he wasn't mumbling about the wind.
 
-I absently thought of all the stars, all the alien moons. I imagined the eyes of another girl on some distant world staring at her own constellations. My mind painted such a vivid picture that I couldn't help it, I took out my phone and I started typing on Reddit.
+The really weird crap started up the next day. I called up Mike to ask if I should bring the loot over, but he didn't want to talk about that. He said that Tom wasn't answering his phone. Ask if I'd seen him. I said I hadn't, and asked if we should go check out his place. Mike said yes. So we... we did.
 
+Tom's place was just... empty. Everything was exactly as it had been when we'd left it last night, but it was like it'd been that way for years. I can't explain why, it just felt that way. Empty like a tomb. We searched all over that place, and couldn't find any sign of Tom. That's what I told Mike, anyway. What I found was his phone. He'd left a message on it, a recording. I pressed play when I got home, and...
 
-Well, I only got so far before I lost the plot. Then I was left unable to inspire myself again over the bleary world around me in my yard. It was cars, crickets, and heavy breathing that had no value.
+The video starts with Tom shining a flashlight down his hallway. He was breathing really heavy, or at least I think he was. He kept scanning the whole damn thing, trying to find heads or tails of whatever the hell he was looking for, I don't know, he just kept breathing into the phone. Then... right as the video ended, something appeared on the wall. This white, puffy disk or... or a...
 
+Tom screamed for a moment - but the heavy breathing didn't stop. The video went on for another seven hours or so until it stopped.
 
-So I took myself out of the chair, starting to feel the Theraflu and went for a walk. Usually I try to stay inside my yard. And oh, how I wish I did.
+The next day, I was gonna show it to Mike, but he called me first. Said something was wrong. That someone had broken into his house, and he could hear them breathing. I told him to get out, but he said he wasn't no pussy, that he'd take care of it. That was what he said, he wasn't no pussy. As he kept talking, I began to realize his voice sounded like it was shaking. I asked if he was alright. He said yes, and I could tell he was lying. I said I was about to come over when he screamed - then stopped. Like one minute he was there, then just gone. I said his name, and it was like talking in a void.
 
+I called out his name, begged him to answer me, asked if he was alright... then I heard something. Real faint. But getting slowly louder. And a little closer.
 
-Before I could fully get out of my chair, I heard a light hooting. I froze and searched the empty street for the sound. The sweet sound of the owl echoed through the street. My eyes met the branch above a light post right in front of my yard. Illuminated faintly was an owl, scanning the neighborhood with its large dark eyes.
-
-
-I was a bit too excited about this. I admired it for a bit before going in to take a picture. My first snap didn't go so well, so I walked down the uneven concrete of my driveway and left the yard. It was when I turned around toward my house that the owl was best lit and my phone took a fantastic picture. I scrambled to put it up to a subreddit that I browsed.
-
-
-Riding that high, I was feeling creative again. Not the kind of creative that let me write about aliens, but one that made me want to go over Reddit and start writing about stuff.
-
-
-I rolled into a thread about how I would end a currently ongoing manga if it only had 3 chapters left. My fuzzy mind welcomed the challenge with open arms. I wrote about the current villain being killed shortly and the hero, who was being possessed by a demon of the same kind as the main villain at the time in the manga, pivoting toward being the final boss. Well, the demon inside him anyway. The hero dies by giving his friends an opening to take him down. Morbid, but I thought any other way would've been anticlimactic since the demon had been hiding inside for over 50 chapters.
-
-
-I closed my phone and took a look at the sky again while I walked. The moon seemed to shine especially bright, its rays like threads in my foggy vision. I felt a buzz come from my pocket and saw a message in my inbox. It was titled "WTF is this?"
-
-
-That title was funny enough what I was thinking. Especially as I read the message inside out of that good old flu brain curiosity:
-
-
-"I thought u said u was a writer. If so you're a pretty bad one -_-... u idea of ending sucks. Jhat's this shit about giving Character A and Character B upgrades and killing Protagonist. U don't understand what protagonist means dumb bitch B fan. Just want to be edgy and give B special treatment."
-
-
-If you think that was bad, the grammar and spelling was far worse. This comment style immediately threw me back to a conversation I had before. This guy was a hardliner fan of Protagonist. A month before I'd had a brief altercation where he flamed me for liking B better. It wasn't that which got him banned, however, it was the explicit sexual advances.
-
-
-Now he was back. Thankfully, no sexual remarks anymore. Guessed he'd learned his lesson.
-
-
-"I know what protagonist means," I typed, "the prompt has three chapters left and he's possessed by a demon. Better his friends the other main characters than someone else."
-
-
-"No u just want to suck B's dick -_- do time skip Protagonist get the demon powers and have a final fight with Villain."
-
-
-It was this point that I just zoned them out and kept my neighborhood stroll. It was when I was around the block, I felt another buzz for a notification. Thinking it was my owl post, I opened it and was instead met with another post from that random Redditor.
-
-
-"U worthless cunt that make no sense. He's protagonist he's supposed to be hero. Must've hit head to be so braindead."
-
-
-I stopped and yawned. A pleasant breeze made my muscles ease. I rattled off a list of the different books, movies, comics and shows where the protagonist wasn't the sole hero of the story then started to head back home.
-
-
-"Cunt those don't make sense they weren't actually protagonists u don't know what u taking about."
-
-
-I shrugged. Would need to report this guy, but not before I got back to bed. I shuffled down the street. It was a mistake walking this far. The feel of sweat on my brow told me the Theraflu was doing the job. I yawned, the late night air diffusing the sound. My dragging heels brushed through cool water, offering my aching body the late night's motherly touch. 
-
-
-The journey was slow and relaxing. It felt like I was being comforted by an old friend when I finally saw my house. I opened my rickety gate, stepped inside and didn't even bother to go to my room. I collapsed in my recliner and closed my eyes to the loud rattles of my heavy breathing.
-
-
-The dream showed me visions of worlds, of distant stars. I was floating through the night sky, but as I did so I looked to the ground below and caught a glimpse of my house. I came crashing toward it.
-
-
-Suddenly, I was awake, staring into the light of a digital clock nearby. I sat up and grabbed for something to blow my nose. I sighed after realizing that I'd have to open up my Kleenex bottles first. I peeled myself off from the recliner and grabbed my phone to navigate the house.
-
-
-My heels dragged even worse than when I'd stirred before. It was like something had pulled me out. Feeling my cool forehead, it didn't seem like a fever. Must have been the congestion. Good thing I was already on the way to getting rid of that.
-
-
-I shined my light on my kitchen table and rubbed my eyes annoyedly when I remembered that it was in the back room. I stepped to the side, plunging my foot into icy rainwater. I couldn't help but smile. After all, I could hear the rain come again. It was such a rare commodity out here in California. I didn't even realize that I had trailed so much water.
-
-
-So, I shambled down the straight line of my kitchen and paused to grab a glass of milk. I looked outside to see the vague outline of the lamppost that'd forever be the owl's temporary stop to me. I didn't realize that I had briefly held my breath until I began to cough up a fit. I was so sure that I'd heard heavy breathing.
-
-
-I grabbed the box of tissues, ripped them open like a feral animal and took them out. One by one, I filled them to the brim with snot. I clutched the box and eyed the chair I'd crashed in. I quickly made my way back and sat down, putting my milk and tissue box on an end table.
-
-
-I picked up the milk happily and took a long sip. 
-
-
-The sip was accompanied by the faint sound of heavy breathing.
-
-
-Not my heavy breathing.
-
-
-Suddenly, my pulse was the loudest thing in my ears. I stood up and shined my phone's flashlight across the living room. There wasn't anyone else here. That didn't calm me down for one major reason:
-
-
-My recliner is right next to the wall where my closet is. The walls are very thin there. 
-
-
-I sucked in the night air and pressed my ear up against the wall. There it was, clear as day:
-
+I can still hear it now. Getting just a bit closer.
 
 Heavy breathing.
-
-
-The heavy breathing of a man.
-
-
-There was a man in my house. Inside my closet. I could feel the color drain from my face. Suddenly, I was shaking so hard that I needed to clutch my phone tightly to keep it in my hands as I raised it to message emergency services.
-
-
-As I did so, I looked at the message that Redditor had last sent me only a minute after the last one I'd read:
-
-
-"I know where u live bitch."
-
-Not only did he know, he lived too close for comfort.
