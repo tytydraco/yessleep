@@ -1,63 +1,73 @@
-  
+There’s nothing like a good game of truth or dare with your friends.
 
-Though I call it a cave, it isn’t much of one. It is more of a cavernous opening that stretches maybe ten feet back from the entrance and is very narrow inside. You may be wondering where I live. Well, my wife and I live in a very hilly part of rural Pennsylvania, and we own just barely three acres. Our house is on a main road and the backyard is only a downward slope into a forest like vegetation. Going east past the trees you will find a barbed wire fence almost immediately, which is the border to our neighbor’s property.
+This was our third game, and it took place in the same spot as the last two, underneath the bridge. It would also be our last, unfortunately.
 
-Westbound however, is where our land stretches out for the few acres we have. If you go south-west, you will find this rocky formation, which houses the cave I mentioned. I think we noticed it the first week here while we scoured our new property, excited at it’s mysteriousness. I remember using my phone as a flashlight as we peered into the dark crevice, disappointed to see there wasn’t much there.
+There was me, Carson and Leah. But just like the last two games, we brought someone new to the third. We would walk around our school and ask fellow students if they wanted to participate in our game. The lucky ones would deny. But some were dumb enough to agree. Of course, they don’t know they were making a dumb decision. But we did. And Cameron was one of those kids.
 
-Since then, we’ve often walked by the cave at the bottom of the giant rock that borders properties beyond ours. Sometimes when we were drunk, we would often try and scare each other in the darkness that surrounded us, and it was always my wife who wanted to turn around and head back first. I can’t deny I was always a little bit uneasy at times, but who wouldn’t be in a pitch-dark army of trees. 
+Me and Carson arrived at the spot early to set up while we waited for Leah to arrive with Cameron. Carson set up the camera while I set up the bottle, rigged to always stop where I wanted it to. Now it was just up to Cameron.
 
-The light of our house would always guide us back safely. It seemed like an endless darkness until we would turn around and see the lights behind us and remember we were just in our backyard. I loved these nights, and I would begin to venture out in the daytime by myself. The forest was completely different during the hours the sun was out. There was the same peacefulness, but a different kind of mystery. 
+Him and Leah arrived about 10 minutes later, and the game began.
 
-Today, I made my way through the dense tree line and started my usual decent down the hill westward. Upon first sight of the cave, I could see a light emanating from inside. At first, I thought it might have been the twilight reflecting off the rock, but the sun seemed to already be behind the tops of the trees. 
+‘’Ladies first.’’ Carson said.
 
-Out of blind curiosity I approached the entrance and sure enough, there was a flickering light coming from inside of the cave. I contemplated turning around and going back up the hill to the house, but I also wanted to see what the cause was. 
+Leah reached over and spun the bottle. It landed on Carson.
 
-It looked like firelight, but I didn’t smell or see smoke. I was probably five feet away from the entrance now and I had the instinct to text my wife who was at work. It felt weird, but at the same time, I felt like I would want her to do the same. So, I pulled out my phone and quickly typed. 
+‘’Truth or dare?’’ Leah asked.
 
-“There’s light in the cave, looks like a fire. Hopefully nothing serious, maybe a squatter. Gonna take a look, I’ll let you know in a bit.” 
+‘’Ummm…..dare.’’
 
-I put my phone in my pocket and started to creep forwards, not wanting to make a sound. I wasn’t armed but I wished I was. I knew there was someone in there and I was right. 
+‘’I dare you…to kiss me.’’
 
-As I got close to the entrance, I heard a strained voice.
+‘’Bet.’’
 
-”Come in, please. I beg of you.”
+Carson leaned over and planted a kiss on Leah’s lips. Not an unusual thing for boyfriends and girlfriends to do. But Cameron didn’t know that.
 
-I froze. I hadn’t made a sound or shown myself. How did this person know I was there. Their voice sounded crackly and old.
+‘’Me next.’’ Carson said. As planned, the bottle landed on me.
 
-“This is my property! Whoever you are please come out and leave peacefully, I don’t care who you are or what your reason for being here is, but I can’t have you in there. I will call the authorities if I have to!” 
+‘’Truth.’’ I said.
 
-I could tell I sounded panicked but didn’t care. Then the voice answered back. 
+‘’Is it true, that you wish you could kill someone?’’
 
-“Oh honey, I told you to come in. Why are you being so rude? I can show you that this is a place of welcoming. A place of trust. Please, won’t you show yourself to me?” 
+‘’I mean I would like to do it again, so yeah. That’s true.’’ I replied while looking straight at Cameron. His eyes went wide. The 3 of us started laughing. After a few seconds of looking at each of us, Cameron started laughing too. Just a joke.
 
-I was stunned, this person was crazy. I pulled out my phone and began dialing 911. 
+‘’My turn.’’ I said and spun the bottle. It was time. I reached down and picked up the string attached to the end of the bottle. The string was short enough that when I pulled it, the bottle would stop spinning and point right across from me, where Cameron was placed. He didn’t even notice Carson attaching the string before he spun it.
 
-“Oh, you don’t want to do that sweetheart, by the time anyone gets here, I’ll have never been here.” 
+I tugged on the string as I shifted my seated position, as to not make any weird or sudden gestures with just my arm. The bottle stopped at Cameron.
 
-I stood stone cold, probably looked like a statue. How was this person in my mind? Why were they here and what did they want? 
+‘’Truth or dare?’’ I said.
 
-*Fuck this*
+Cameron chuckled nervously.
 
-“You better get the fuck out of there before I drag you-“ 
+‘’Umm…dare.’’
 
-Then she emerged, a woman seemingly bent in half, almost crawling on all fours but walking on her two bare feet. Clad in a robe or maybe a large coat. It was black and almost ripped to shreds but still somehow covered her. Slowly but surely, she was making her way towards me. I was still standing there paralyzed. I was nauseous but I couldn’t move. I saw the long grayish black strands of her hair dragging on the ground as she paced in slow motion, still in my direction. 
+*Bad choice* I thought. *For you anyway.*
 
-“I told you to come in. This is your fault.”
+‘’See that cave over there?’’
 
-She said this as she looked up. I saw here terrible face. She had black eyes, her skin hanging down so far off her face that it looked as if it was melting off. Blemishes all over and a few blackish bloody teeth that were jagged, the top row piercing her bottom gums as she smiled at me.  
+‘’Yeah.’’
 
-I still couldn’t move, and she was now close enough to touch me when suddenly, there was a flash. A bright light like I had never witnessed. This lasted but a few seconds, and as I refocused there was no one there. 
+‘’It's said to be haunted by the students who have gone missing at the school. I dare you to walk over there and shout something into it.’’
 
-I realized I had had my arm in front of my face and my phone was in my other hand still. There was an unnatural smell in the air. Much like the decaying carcass of an animal, but still, different. I heaved, then turned and sprinted back uphill to the house. 
+Cameron looked at Carson and Leah, who shared the same glare that I did.
 
-My wife was pulling into the driveway. 
+‘’Uhm…okay.’’
 
-She got out of the car obviously hysterical and almost tripped while running towards me. She was sobbing and told me she rushed home after I didn’t reply to her when I first texted her an hour ago.  
+He stood up and started wandering towards the cave. I smiled at my friends. Carson mouthed the words ‘’*got him’’*.
 
-*Was I really out there for an hour?* 
+We followed him and watched as he peered into the entrance, hunched over. It was a small cave, but big enough to fit one person. All we needed.
 
-I embraced her and made sure we quickly made it to the door and inside. I informed her of everything I had seen, and she burst into tears. I asked her what was wrong, assured her I’m here and safe. She didn’t reply at first, but then looked me in the eyes. Tears were still forming and her lips were quivering. I could tell she had something to say, but she couldn’t quite make the words out. 
+The three of us walked up behind Cameron and I looked at Carson, then at Leah. She nodded, and I removed the gun from my pocket. Carson threw me the suppressor from his pocket.
 
-When she finally spoke, the words made me feel cold. I didn’t know why she said them. I didn’t know what they meant. All I knew, was she meant what she said. It was only three words. 
+As Cameron began to shout into the cave, I lifted the gun and aimed at his head. I fired to two shots. He fell forward, his upper body landing a few feet inside the cave.
 
-“You are Cursed.”
+‘’Any second now.’’ Leah said.
+
+And she was right. No more than 5 seconds later, it appeared. We didn’t have an actual name for it, because we didn’t know what it was. So, we just called it ‘’The Being.’’ It was hairy, like a dog, but stood like a man. It was thin but strong. Strong enough to drag a human body deep into the cave. We watched as it did just that. Cameron’s body disappeared into the darkness. I’d usually follow that with ‘’never to be seen again’’, but unless The Being got rid of him in last hour, the police would probably find Cameron’s body. But I doubt they’ll find the others.
+
+Anyway, the policeman is back, and I have to finish this confession. They really shouldn’t let you type these things on a laptop. You never know where they might end up.
+
+Samuel Woods.
+
+December 5th, 2022.
+
+NNPS
