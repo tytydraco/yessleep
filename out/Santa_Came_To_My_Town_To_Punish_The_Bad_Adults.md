@@ -16,29 +16,29 @@ Harry Burns, a manager for the local bank was reported missing by his wife after
 
 His body was discovered the next day by Sue Jones, an employee of the bank.
 
-Someone or something had placed his body inside the bank's vault.
+Someone or something had placed his body inside the vault.
 
-Several more deaths followed and things got even stranger...
+Several more deaths followed and things got even weirder...
 
-Old man Walters 89, came forward and reported seeing a very tall humanoid-like creature lingering around at one of the crime scenes.
+Old man Walters 89, came forward to report a very tall humanoid-like creature lingering around his house
 
 His claim was quickly dismissed.
 
-You see, Old Man Walters was suffering from Dementia so, nobody took him serious.
+You see, Old Man Walters was suffering from Dementia so, nobody took him seriously.
 
-Anyway, rumors began to fly about each of the victims' past misdeeds. 
+Anyway, rumors began to fly about each of the victims' misdeeds. 
 
 It wasn't long before each of their crimes came to light including Joe Miller's vehicular manslaughter charge and Harry Burn's embezzlement charge.
 
-Things started to get even weirder when several of the townspeople began reporting break-ins in their homes. 
+Things started to get even weirder when the Robertsons across the street reported hearing somebody inside their basement. 
 
-Oddly enough, nothing was reported stolen.
+Upon investigation, there was no sign of a break-in.
 
-Anyway, it didn't take long before authorities made a connection between the break-ins and the murders.
+Anyway, it didn't take long before authorities made a connection between the murders.
 
-This was a relatively quiet town and crime was virtually nonexistent, so for all of these things to happen was quite odd.
+This was a relatively quiet town and crime was virtually nonexistent, so for all of these things happening at once was no coincidence.
 
-To make matters worse, mayor Burns (he's Harry Burns older brother) decided to cancel the annual Christmas Eve Parade and implement an 8 O' Clock curfew.
+To make matters worse, mayor Burns (he's Harry Burns older brother) decided to cancel the annual Christmas Parade and implement an 8 O'Clock curfew.
 
 So you can imagine just how disappointed everybody was...
 
