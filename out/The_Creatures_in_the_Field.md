@@ -236,7 +236,7 @@ Curious, I went downstairs to the kitchen and began to read it. And almost immed
 
 **I have now seen a third one. This man’s fucking giant, he’s gotta be at least 6’9” and 300 pounds. He wears a latex mask. I hope it’s latex. Please dear God, let it not be what I think it is.**
 
-**I also found Dad’s home video for Benjamin’s 12th birthday. God I miss him so much. I could use him and Mom right now.**
+**I also found Pops' home video for Benjamin’s 12th birthday. God I miss him so much. I could use him and Mom right now.**
 
 **Troy and the others will be back in a few weeks. You can survive for now, Eddie. You’ll be okay.**
 
