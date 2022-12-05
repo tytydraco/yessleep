@@ -12,7 +12,7 @@ Fortunately for the mayor though he survived his harrowing ordeal.
 
 The next victim wasn't so lucky...
 
-Harry Burns, a manager for the local bank was reported missing by his wife after he failed to show up for their yearly Christmas Party.
+Harry Burns, a manager for the local bank was reported missing by his wife after he failed to show up for their annual Christmas Party.
 
 His body was discovered the next day by Sue Jones, an employee of the bank.
 
@@ -20,9 +20,13 @@ Someone or something had placed his body inside the bank's vault.
 
 Several more deaths followed and things got even stranger...
 
-Witnesses began to come forward with reports of a strange-looking humanoid creature seen at each of the crime scenes.
+Old man Walters 89, came forward and reported seeing a very tall humanoid-like creature lingering around at one of the crime scenes.
 
-Soon, rumors began to fly about each of the victims and their past misdeeds. 
+His claim was quickly dismissed.
+
+You see, Old Man Walters was suffering from Dementia so, nobody took him serious.
+
+Anyway, rumors began to fly about each of the victims' past misdeeds. 
 
 It wasn't long before each of their crimes came to light including Joe Miller's vehicular manslaughter charge and Harry Burn's embezzlement charge.
 
@@ -30,7 +34,7 @@ Things started to get even weirder when several of the townspeople began reporti
 
 Oddly enough, nothing was reported stolen.
 
-Anyway, it didn't take long before authorities begin to find a connection between the break-ins and the murders.
+Anyway, it didn't take long before authorities made a connection between the break-ins and the murders.
 
 This was a relatively quiet town and crime was virtually nonexistent, so for all of these things to happen was quite odd.
 
