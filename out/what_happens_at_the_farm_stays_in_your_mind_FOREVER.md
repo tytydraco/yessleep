@@ -60,7 +60,7 @@ I didn't feel right up here. I quickly took a picture and bolted. I got back dow
 
 There in the foreground was a man, early 40s, overalls and watching me from the back corner! He had a look of complete hatred and disdain. I could feel his rage from just the photo. Thats when I knew, he was the husband of that woman and he's probably coming after me as well.
 
-It was around 4am when I decided to pack up and head for home! I was a very interesting but terrifying night! But apparently that man wasn't going to let me leave without stirring up his own problems.
+It was around 4am when I decided to pack up and head for home! It was a very interesting but terrifying night! But apparently that man wasn't going to let me leave without stirring up his own problems.
 
 As I got up to leave, I noticed a wet area near me I hadn't noticed before! I checked myself to see if I ran into anything and that is when I felt the long scratches on my leg! I quickly shinned my flashlight on them and they were deep! 
 
