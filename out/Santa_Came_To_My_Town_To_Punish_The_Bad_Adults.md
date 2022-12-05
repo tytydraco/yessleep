@@ -26,21 +26,21 @@ His claim was quickly dismissed.
 
 You see, Old Man Walters was suffering from Dementia so, nobody took him seriously.
 
-Anyway, rumors began to fly about each of the victims' misdeeds. 
+Anyway, rumors began to fly about each of the victims' past misdeeds. 
 
 It wasn't long before each of their crimes came to light including Joe Miller's vehicular manslaughter charge and Harry Burn's embezzlement charge.
 
 Things started to get even weirder when the Robertsons across the street reported hearing somebody inside their basement. 
 
-Upon investigation, there was no sign of a break-in.
+Upon investigation though, they found no signs of a break-in.
 
 Anyway, it didn't take long before authorities made a connection between the murders.
 
-This was a relatively quiet town and crime was virtually nonexistent, so for all of these things happening at once was no coincidence.
+This was a relatively quiet town and crime was virtually nonexistent, so all of these things happening at once was no coincidence.
 
 To make matters worse, mayor Burns (he's Harry Burns older brother) decided to cancel the annual Christmas Parade and implement an 8 O'Clock curfew.
 
-So you can imagine just how disappointed everybody was...
+So you could imagine just how disappointed everybody was...
 
 With nothing to do, my parents made me go to bed early with the promise of presents in the morning.
 
@@ -52,26 +52,24 @@ Around midnight, I was awoken by the sound of rustling downstairs.
 
 Thinking it was Santa, I sprung out of bed and quickly ran downstairs only to be greeted by this god-aweful-looking creature.
 
-This thing was massive with its long horns and by god, it was wearing what looked like a Santa suit.
+This thing was massive with its long horns and by god, it grinned at me exposing razor-sharp teeth.
 
 I stood there frozen in place staring at this enormous creature, even peeing on myself because I was so scared.
 
-Anyway, this creature stood there staring at me as it reached into the bag that it was carrying and pulled out what look like a human leg.
+Anyway, this creature stood there staring at me as it reached inside the bag that it was carrying pulling out what look like a human leg.
 
-It then proceeded to devour the leg and I swear, I heard the bones crunch as it ate the leg.
+It then proceeded to devour the leg and I swear, I could hear the bones crunching as it finished it off.
 
-Watching this unfold as a 6-year-old was traumatizing, to say the least.
+As a 6-year-old, watching this unfold in front of me was traumatizing, to say the least.
 
-Anyway, after it was finished devouring the leg, the creature looked straight at me and then placed a finger on its lips gesturing for me to keep quiet. 
+Anyway, after the creature was finished devouring the leg, it looked straight at me, then placed a finger on its lips gesturing for me to keep quiet. 
 
-Then, it flew up the chimney (which was physically impossible for something that size).
-
-In that instant, the creature was gone along with the strange events that plagued the town.
+Then, it flew up the chimney (which was physically impossible for something that size) and in an instant, the creature was gone along with the strange events that plagued the town.
 
 That was 45 years ago...
 
 I'm 51 and now, a mother and grandmother.
 
-Christmas is in a few weeks, and strange things have been happening again in Plattsville. 
+Christmas is in a few weeks, and strange things have been happening in Plattsville again. 
 
-I'm afraid the creature is coming back for me and my family but I'll be ready...
+I'm afraid the creature is coming back for me and my family but I'll be ready for it...
