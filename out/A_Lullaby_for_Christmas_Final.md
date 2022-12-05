@@ -96,7 +96,7 @@
 
   "Even knowing the monsters live in the same world as your little girl?" 
 
-  "It's not easy; knowing that, but I was never dumb enough to think I could stop them all. It was enough, at the time, that I put down the ones I was able to. We're teaching her to defend herself…but, I know life is unpredictable. All we can do is hope, you know?" 
+  "It's not easy; knowing that, but I was never arrogant enough to think I could stop them all. It was enough, at the time, that I put down the ones I was able to. We're teaching her to defend herself…but, I know life is unpredictable. All we can do is hope, you know?" 
 
   "Do you think they deserved what you did to them? The torture, the hours and sometimes days of suffering as you made them beg for death; did they deserve that?" 
 

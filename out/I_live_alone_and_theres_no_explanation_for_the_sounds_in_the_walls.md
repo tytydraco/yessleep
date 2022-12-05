@@ -40,7 +40,7 @@ The delirious part of my mind wondered if I would have to attack something that 
 
 So I pulled back the covers and stepped out of bed. My hands shook. I tried to keep my breaths as quiet as possible, which just left me gasping. 
 
-I resolved not to turn on any lights, because I didn’t want any potential attackers to know were I was.
+I resolved not to turn on any lights, because I didn’t want any potential attackers to know where I was.
 
 So I moved through the dark.
 

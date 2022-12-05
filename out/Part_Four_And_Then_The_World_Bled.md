@@ -41,7 +41,7 @@ I return back into the cave, down and afraid. I tried to put on a good show but 
 And my fear only grew. I wasn’t sure what The Abyss was doing or how it was managing being so weak, but The Abyss had set off some chain of events. I think he’s recovering by literally draining existence's soul. Which means something worse, he’s not just recovering. He’s powering up.
 
 I search into my heart to find the soul of the woman I had locked away and protected, I felt a great heat and energy fill me. I reached out to the world I was currently on and everyone in it, and I sent healing energy. It wasn’t much, but I could feel a small change.  
-
+[Part Six](https://www.reddit.com/r/nosleep/comments/zcqvy0/part_six_and_then_you_stare_back_into_the_abyss/)
 
 [Part Five](https://www.reddit.com/r/nosleep/comments/zb9yey/part_five_and_then_the_hero_died/)
 

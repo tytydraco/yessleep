@@ -42,11 +42,11 @@ But then an even worse thought struck me, whoever that woman was I felt… If I 
 
 And then something, it’s a small connection but I concentrate on it using all my power to block everyone else out. And then something connects and I turn what I’m pretty sure is south. I’m not ready for this, but time to begin.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/z1p68c/part_one_into_the_abyss/)
+[Part Two](https://www.reddit.com/r/nosleep/comments/z2y5ms/part_two_and_then_the_abyss_stares_back_into_you/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/z3tgww/part_three_and_then_the_world_broke/)
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)  
+[Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)
 
-
-[Part Five](https://www.reddit.com/r/nosleep/comments/zb9yey/part_five_and_then_the_hero_died/)
+[Part Five](https://www.reddit.com/r/nosleep/comments/zb9yey/part_five_and_then_the_hero_died/)  
+[Part Six](https://www.reddit.com/r/nosleep/comments/zcqvy0/part_six_and_then_you_stare_back_into_the_abyss/)
