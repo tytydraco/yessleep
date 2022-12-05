@@ -54,7 +54,7 @@ We always get the crazies on Christmas; that's what I told myself when she walke
 
   "Ma'am," I interrupted, "if you calm down, this will all go a lot easier." 
 
-  She shifted in her chair, still glancing from one side to the other, only making eye contact with me in between her constant glances around the small room. 
+  She shifted in her chair, still looking from one side to the other, only making eye contact with me in between her constant glances around the small room. 
 
   "There's nothing to be scared of. Believe me; you are protected here. This may be the safest…"
 

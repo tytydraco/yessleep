@@ -48,7 +48,7 @@ I thought to myself, "*How the fuck is this bag talking to me, let alone hurting
 
 I decided I needed to get rid of that damn thing. I couldn't have it terrorizing me and my family forever.
 
-Yesterday I decided to get rid of the bag. I had my mom drive me to a different thrift shop to give it away. My mom was of course confused as to why I wanted to get rid of the bag I loved so much, but I insisted on going. I hoped it wouldn't have been my problem anymore.
+Yesterday I had my mom drive me to a different thrift shop to give it away. My mom was of course confused as to why I wanted to get rid of the bag I loved so much, but I insisted on going. I hoped it wouldn't have been my problem anymore.
 
 On our way home from the thrift shop, right after we had given the bag away, my mom suddenly felt a sharp pain in her stomach. She screamed and almost crashed the car. I knew right away that she had a gash on her stomach and that the bag was somehow attached to me now. I asked her to drive us back to the thrift shop, and my excuse was that we could maybe find a first aid kit there. She was confused out of her mind, but she agreed anyway.
 
