@@ -20,7 +20,7 @@ I work at a construction company and we are renovating this old monastery into a
 
 My name is Jacob, and I have trained 10 long years as an inquisitor In Madrid, Spain. My talent was exceptional and at the age of 25 I became the youngest inquisitor ever to receive the rank of master.  It was customary once an inquisitor received the rank for them to be blessed by the pope and I traveled to Rome, Italy for the ceremony.
 
-While on paper we answered to Phillip the Fifth, it was Grand Inquisitor Hugo who was really in charge.  The Pope had no actual power and any requests had to go through Phillip, and then Hugo. But as the head of the catholic church Hugo liked to have him do it. I knew Hugo well and he said that it was mainly to give us a presence in Rome. When I met Hugo he was grand inquisitor of the New world, but now he was the head of the who thing. The grand Inquisitor in Spain had been demoted to a Master inquisitor when Hugo took total control of the inquisition. 
+While on paper we answered to Phillip the Fifth, it was Grand Inquisitor Hugo who was really in charge.  The Pope had no actual power and any requests had to go through Phillip, and then Hugo. But as the head of the catholic church Hugo liked to have him do it. I knew Hugo well and he said that it was mainly to give us a presence in Rome. When I met Hugo he was grand inquisitor of the New world, but now he was the head of the who thing. The grand Inquisitor in Spain had been demoted to a Master inquisitor when Hugo took total control of the inquisition.
 
 Before the anointing in Rome I was too be quizzed by Hugo. It was just a customary thing and anyone who reached this rank knew all the answers like the back of their hand. Still this ceremony was all about customs really, and I was ecstatic to have reached this rank so quickly.
 
@@ -32,7 +32,7 @@ The morning before the anointing I walked behind Hugo through the gardens of Rom
 
 "Who are the possible candidates for a person's Jesus?" He responded in rhythm.
 
-"Their parents, children, siblings, lovers and..." I paused. and Hugo turned to look at me. "Business partners" I said with a wink.
+"Their parents, children, siblings, best friends, lovers and..." I paused. and Hugo turned to look at me. "Business partners" I said with a wink.
 
 "Good. " he said, continuing to walk. "Of the layers of hell, which do we currently inhabit?"
 
@@ -40,7 +40,7 @@ The morning before the anointing I walked behind Hugo through the gardens of Rom
 
 "So at birth what is the range of human morality?" Hugo responded in turn.
 
-"The good among us are those who betrayed and killed or destroyed someone they just met. While the wicked are those who killed or destroyed a possible Jesus candidate, that was not their  Jesus. The only other way would be to kill or destroy one of this worlds saviors." I said rhythmically. 
+"The good among us are those who betrayed and killed or destroyed someone they just met. While the wicked are those who killed or destroyed a possible Jesus candidate, that was not their  Jesus. The only other way would be to kill or destroy one of this worlds saviors." I said rhythmically.
 
 "Given that information what exists within the human soul?" He said in rhythm.
 
@@ -64,15 +64,15 @@ The morning before the anointing I walked behind Hugo through the gardens of Rom
 
 "And that's the test! Told you it would be easy! From this point forward this is your day. Your always so tense Jacob. You should try and relax and enjoy yourself." he said, his voice softening as he spoke.
 
-"I'll try and relax but, I've never met the pope before you know?" I said laughing. 
+"I'll try and relax but, I've never met the pope before you know?" I said laughing.
 
 "He's a good pope. Best I've met anyway. And get this, I've got something to tell you. Have a good time tonight. You don't become a master inquisitor every day. We'll talk about it tomorrow." Hugo said with a smile. He opened the door for me and I walked through into the chamber.
 
 Pope Clement the 11th sat on his thrown with a smile. My brother Robbie, cousin Wynken, along with many other Inquisitors and cardinals lined the chamber. Everyone was clapping. I walked to the pope and stood in front of him.
 
-"A master already? At such a young age. There is so much promise in you. Kneel." 
+"A master already? At such a young age. There is so much promise in you. Kneel."
 
-I got down on one knee and bowed my head. The pope took a bible and placed it on my right shoulder. "I hereby grant you the rank of Master Inquisitor and all the luxuries, duties and power that bestows up on you. If you choose to accept this honor you must now swear that you will use what I have given you to serve Yahweh. And that you will not allow the demon of the unpardonable sin or the demon of treachery into your body." The pope recited from memory. 
+I got down on one knee and bowed my head. The pope took a bible and placed it on my right shoulder. "I hereby grant you the rank of Master Inquisitor and all the luxuries, duties and power that bestows up on you. If you choose to accept this honor you must now swear that you will use what I have given you to serve Yahweh. And that you will not allow the demon of the unpardonable sin or the demon of treachery into your body." The pope recited from memory.
 
 "I will serve lord Yahweh in all things and I will not allow the intolerables into my body." I said with a heavenly ring.
 
@@ -90,11 +90,11 @@ I couldn't believe it. After all these years we had finally found her. And right
 
 "We leave at noon" he said with a smile.
 
-We left later that day on the 2 month voyage back to the New World. Before heading to New France we stopped by the Monastery in Louisiana to pick up an old friend. 
+We left later that day on the 2 month voyage back to the New World. Before heading to New France we stopped by the Monastery in Louisiana to pick up an old friend.
 
 Jon was a warrior monk who we I had met on my first trip to this monastery. As fate would have it he was actually my cousin my uncle or the Baronet's son.
 
- The first time we had come to this church Hugo spoke to Yahweh, asking him why he had allowed us to fail. He had been told that all the pieces were not there and to banish Samael from this world forever Jon had to be the one to kill  the Baronet. The fact that she had body swapped thankfully added Wynken to that list because he was his sister. I had already dealt with Jackie but unfortunately Wynken or Jon had to be the one to kill Jill in order to permanently banish Samael. It had to be someone that could be their Jesus. Samael was the angel of the unpardonable sin, so we had to beat him at his own game.
+The first time we had come to this church Hugo spoke to Yahweh, asking him why he had allowed us to fail. He had been told that all the pieces were not there and to banish Samael from this world forever Jon had to be the one to kill  the Baronet. The fact that she had body swapped thankfully added Wynken to that list because he was his sister. I had already dealt with Jackie but unfortunately Wynken or Jon had to be the one to kill Jill in order to permanently banish Samael. It had to be someone that could be their Jesus. Samael was the angel of the unpardonable sin, so we had to beat him at his own game.
 
 I was standing on the deck of the flagship, looking at the sea, as we sailed to New France when Jon approached me.
 
@@ -102,9 +102,9 @@ I was standing on the deck of the flagship, looking at the sea, as we sailed to 
 
 I looked deep into his eyes and felt his mind. As a trained inquisitor it was obvious to me we were thinking the same thing. "So he did it to you too? The broom bear?" I said.
 
-He looked insulted. "your brother? Blynken?" he asked.
+He looked insulted. "your brother? Wynken?" he asked.
 
-"All the boys" I responded. 
+"All the boys" I responded.
 
 There was a common superstition that if you swept dirt over someones bare feet they would never marry. The broom bear was what my father would call it when he grabbed a dirty broom and came looking for feet to sweep.
 
@@ -146,7 +146,7 @@ I stood motionless, studying the illusion. Where was the head? I clutched my Dam
 
 I looked around to see how the others were doing but the visibility in the brush was low. I heard screams in the distance. I could only see Hugo, Robbie and 2 other inquisitors. They all stood in front of dead manhawks. I noted that mine was the biggest. We doubled back to help the others.
 
-In total there 21 dead manhawks. And 13 paralyzed inquisitors. We all said a prayer and lopped their heads off before burning them. 
+In total there 21 dead manhawks. And 13 paralyzed inquisitors. We all said a prayer and lopped their heads off before burning them.
 
 As the sun fell we set up camp for our first night in the woods. Hugo came up to with a knowing smirk. "So did Yahweh give you one?"
 
@@ -158,7 +158,7 @@ I closed my eyes I thought to myself 'I have a halo and I am illuminated' and an
 
 "You take the first watch, I'll take the second one. Master Sean also has a halo, he will take the third watch.
 
-I sat by the fire, scanning the trees with my darkvision. Everything had a purple tint to it when it was dark. It was deafening quiet when I started hearing rustling in the bushes. I could tell the sound was from manhawks, and I wanted to press my advantage. They couldn't see in the dark. 
+I sat by the fire, scanning the trees with my darkvision. Everything had a purple tint to it when it was dark. It was deafening quiet when I started hearing rustling in the bushes. I could tell the sound was from manhawks, and I wanted to press my advantage. They couldn't see in the dark.
 
 I quietly woke Hugo then went to the noise and spotted one quickly. It seemed totally blind in the darkness and stared away into nothingness, listening. I chuckled to myself as I cut off its head. I quickly ran to the noise of a second and did the same thing. Then a third. And a fourth. It seemed like the whole forest was buzzing. How could there be so many? I rendezvoused with Hugo and Sean. Hugo was missing his right arm but he was ambidextrous. Most of the time he had gold prosthetic of him giving the middle finger in, his permanent message to Samael, but during combat he had a Damascus steel prosthetic and a crossbow prosthetic he switched between.
 
@@ -170,7 +170,7 @@ I quietly woke Hugo then went to the noise and spotted one quickly. It seemed to
 
 "I've got 7 so far. Whoever get the least has to buy 10 rounds when we get back!" he chirped, and we were back to work.
 
-I manged too get 2 more before they retreated. Sean didn't get any. As we all regrouped around the fires we did a head count. 7 lay paralyzed by fire with three more found in the bush. We lopped off their heads before adding them to fire. The rest of the night passed without issue. At first light we resumed our travels. 
+I manged too get 2 more before they retreated. Sean didn't get any. As we all regrouped around the fires we did a head count. 7 lay paralyzed by fire with three more found in the bush. We lopped off their heads before adding them to fire. The rest of the night passed without issue. At first light we resumed our travels.
 
 It wasn't long until we came to a large clearing. I was shocked. Acres of land were bare, all that remained were the stumps of thousands of trees. In the middle of the clearing was a huge log structure. Around 2 dozen men were working around the cabin doing all sorts of things. Some were smithing, some were farming, all sorts of things.
 
@@ -214,33 +214,33 @@ Almost everyone fired and the illusion faltered for a second. They stopped, 20 y
 
 Then Hugo appeared outside the wooden structure, with who I presumed was Nod/The Baronet thrown over his shoulder, both her arms and legs appeared to be broken. He turned to me looking alarmed.
 
-"There are giants in there. " he said, obviously shaken. Before I could respond he threw the Baronet on the ground. "Either Blynken or Jon needs to kill her. As well as the finest swordsman in the land I was also the finest dancer."
+"There are giants in there. " he said, obviously shaken. Before I could respond he threw the Baronet on the ground. "Either Wynken or Jon needs to kill her. As well as the finest swordsman in the land I was also the finest dancer."
 
-And then I realized than his arm had regrown. Before I could say anything he grabbed one of the fallen Inquisitors swords and charged into the group of women. 
+And then I realized than his arm had regrown. Before I could say anything he grabbed one of the fallen Inquisitors swords and charged into the group of women.
 
 With a sword in each hand he danced with them. He had a perfect understanding of their movements, perfect timing. He would dance with two at a time for half a second, moving in rhythm with the whole group. After he danced with a woman she would fall to pieces. As he danced the women became wasps.
 
-Jon was sobbing uncontrollably and I could not make him stop, so I got Blynken and took him to the Baronet. She looked up at him with Samael's face. He held his sword looking at her, the resolve vanished from his eyes. He dropped the weapon and fell to his knees.
+Jon was sobbing uncontrollably and I could not make him stop, so I got Wynken and took him to the Baronet. She looked up at him with Samael's face. He held his sword looking at her, the resolve vanished from his eyes. He dropped the weapon and fell to his knees.
 
 The door then burst open again and three giants came out the door. I looked in astonishment, they were maybe 11 or 12 feet tall.
 
-"Mommy!" They all screamed in unison. 
+"Auntie!" They all screamed in unison.
 
-One charged at me, the other at Blynken, the other towards his mother.
+One charged at me, the other at Wynken, the other towards his mother.
 
 As the giant charged at me I rolled between its legs and turned around. It stood there looking around frantically, its back to me. I cut one of it's legs off and it fell to the ground. I jumped on top of it and ran up its back cutting off its head.
 
-I looked towards the other giants. One had torn Blynken in half and was quickly being overpowered by the other inquisitors. The other had grabbed the Baronet and run into the woods to the north.
+I looked towards the other giants. One had torn Wynken in half and was quickly being overpowered by the other inquisitors. The other had grabbed the Baronet and run into the woods to the north.
 
 I looked to Hugo, who danced around a field of dead wasps. The wasps seemed locked in a spell as he slaughtered them. I was rounding up the inquisitors to give chase to the giant when the door burst open again 8 shielded giants came out in a line, followed by four carrying a giant slug like creature on a board. I recognized the burned face as Dora. She had an odd detached look on her face. I wondered if it was Lilith.
 
-The giants came charging with clubs and sticks and shields. One bunted me with a shield and I flew into the wall stunned. I looked over as the giant walked towards me and saw Hugo standing there, not a single wasp left. Then he charged towards the giant, and just as it was about to reach me he cut both of its legs off. It fell to the ground and he ran up its back, cutting its head off. 
+The giants came charging with clubs and sticks and shields. One bunted me with a shield and I flew into the wall stunned. I looked over as the giant walked towards me and saw Hugo standing there, not a single wasp left. Then he charged towards the giant, and just as it was about to reach me he cut both of its legs off. It fell to the ground and he ran up its back, cutting its head off.
 
 Another giant grabbed him as he made the cut, holding him with both hands, pinning his arms to his sides. He phased through its hands, cutting both of them off as he fell. He hit the ground like a feather, drawing his bow and putting an arrow through the giants eye.
 
 It then occurred to me that the house was burning from the inside. Hugo must have set a fire when he was in there.
 
-I got up and looked to the remaining inquisitors. I counted 12 plus me and Hugo. The last of the 8 giants were dead. We looked towards Dora and the 4 remaining giants when a swarm of manhawks came out of the woods from every direction. They flew asynchronously. 
+I got up and looked to the remaining inquisitors. I counted 12 plus me and Hugo. The last of the 8 giants were dead. We looked towards Dora and the 4 remaining giants when a swarm of manhawks came out of the woods from every direction. They flew asynchronously.
 
 I felt my third eye open farther than it ever had before and I saw Samael, in the spirit world. He had a black cloak covering his face, and 12 bat wings on his back. His harem of Valkyries danced about, and came and marked me and every other inquisitor, including Hugo. I knew that Valkyries would mark people before and during battle, deciding who lives and dies. Being able to see the Valkyries was incredibly difficult at the best of times, but they were crystal clear right now.
 
@@ -297,3 +297,7 @@ I made it back to Montreal without stopping, walking through the night. The few 
 When I got to the monastery I wept and begged Yahweh for forgiveness for choosing myself over Hugo. And as I finished writing this down I heard his voice say to me.
 
 "You are blameless"
+
+It is here that I write my story down, so that my contemporaries and future generations may have a true account of how Grand Inquisitor Hugo met his end.
+
+&#x200B;
