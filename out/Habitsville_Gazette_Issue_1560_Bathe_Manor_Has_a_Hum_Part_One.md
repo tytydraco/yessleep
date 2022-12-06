@@ -1,5 +1,7 @@
 [Part Two](https://www.reddit.com/r/nosleep/comments/z1bphd/habitsville_gazette_issue_1560_bathe_manor_has_a/?utm_source=share&utm_medium=web2x&context=3)
 
+[Part Three](https://www.reddit.com/r/nosleep/comments/zdp50i/habitsville_gazette_issue_1560_bathe_manor_has_a/?utm_source=share&utm_medium=web2x&context=3)
+
 Even in the humblest of communities, there is royalty—and Liza Bathe is Habitsville’s.
 
 She lives along the town border, her manor far, far away from the quaintness of our small town, instead nestling between two great hills. Moss spreads across the mounds like mold, but Bathe house remains untouched, towering and gothic, surrounded by immaculate gardens. The mansion is said to house the largest collection of exotic flowers this side of the country. Not that any outsiders, botanists or otherwise, are allowed to see it.
