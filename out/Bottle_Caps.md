@@ -170,10 +170,12 @@ I stumbled down the single flight of stairs and, to my surprise and great relief
 
 They searched the alleyways and then the whole block, but, predictably, discovered nobody matching my intruder's description. Of course, I spared them the more unbelievable parts of my account. They would've probably assumed that I was high if I told them that some Frankenstein's monster-looking bastard had broken into my home and forced me to play Caps with him.
 
-I never heard from Cooper again. He was the one who rang the cops so I can only presume that they had some questions for him as well. If they did, I was never informed of the outcome. He had moved several times since we lost contact, so I had no idea where to find him. For all I know, Mr. Sag could've gone back and finished the job, though I doubt that. If he wanted to just straight up kill either of us he would've done it. In fact, I don't think he was ever the real villain to begin with. He was but a symptom of something far more malevolent that's still out there, preying on the unsuspecting and gullible among us. 
+I never heard from Cooper again. He was the one who rang the cops so I can only presume that they had some questions for him as well. If they did, I was never informed of the outcome. He had moved several times since we lost contact, so I had no idea where to find him. For all I know, Mr. Sag could've gone back and finished the job, though I doubt that. If he wanted to just straight up kill either of us he would've done it. In fact, I don't think he was ever the real villain to begin with. He was but a symptom of something far more malevolent that's still out there, preying on the unsuspecting and gullible among us.
 
 It's been over two decades. I've been through a divorce, married again and had two kids that are currently in their pre-teens. This is the first time I'm telling my story exactly how it happened. Why am I bringing it up now, you ask?
 
 It was my turn to drive the kids to school this morning. My daughter had forgotten her backpack, so I went up to her room to fetch it. When I picked it off the floor, however, I felt something jiggle in one of the side pockets. The sound was all too familiar. I looked inside.
 
-What I found were exactly twenty bottle caps, each with a number written on the inside of it...
+What I found were exactly twenty bottle caps, each with a number written on the inside of it.
+
+I think we'll need to have a talk...

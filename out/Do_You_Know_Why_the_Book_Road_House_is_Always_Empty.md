@@ -94,7 +94,7 @@ So it’s up to me to prove what happened, and to put a stop to this, once and f
 
 Tonight, I’m going back in, armed with recording equipment and a few other items.  A big tank of gasoline and a lighter.  And a sledgehammer in case that door decides to give me trouble again. 
 
-Those ghosts are gonna pay for what they did to my [friend](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
+Those ghosts are gonna pay for what they did to my [friend](https://youtu.be/hzOj0TdHyQ8)
 
 
-[YT](https://youtu.be/rumiJJyA2FM)
+[JG](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
