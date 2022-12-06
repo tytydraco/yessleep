@@ -76,7 +76,7 @@ Panic was starting to set in again.
 
 "Okay, I'll call the cops for you. Just make sure everything's locked tight and find a place to hide. Or—you know what—better yet, go over to your neighbours, but do it fast. You don't wanna be trapped outside when he gets there. Go! Now!"
 
-And just like that, he hung up.  I slowly placed the handset down, shut off all the lights and walked up to the nearest window. Droplets of rain trickled down the glass. Perhaps Cooper's insistence on remaining vague had been the right call, since it made me take the threat way more seriously than I likely would've otherwise. I paced back and forth, considering my options. I lived on the first floor so, while unlikely, it was definitely possible for somebody to break a window and climb in if they wanted to. I glanced down the cramped entrance hall. Our upstairs neighbours were a kindly older couple that would've invited me in without question, especially after explaining the situation to them.
+And just like that, he hung up.  I slowly placed the handset down, shut off all the lights and walked up to the nearest window. It was pitch black outside. Droplets of rain trickled down the glass. Perhaps Cooper's insistence on remaining vague had been the right call, since it made me take the threat way more seriously than I likely would've otherwise. I paced back and forth, considering my options. I lived on the first floor so, while unlikely, it was definitely possible for somebody to break a window and climb in if they wanted to. I glanced down the cramped entrance hall. Our upstairs neighbours were a kindly older couple that would've invited me in without question, especially after explaining the situation to them.
 
 'Screw it' I thought; I had watched enough horror movies to know what happens to that one sceptic guy who insists on ignoring all the warning signs until it's too late. I grabbed the keys off the table and headed for the door. Unfortunately, that was about as far as I got.
 
@@ -130,7 +130,7 @@ To my knowledge, nobody had ever beaten him fair and square. I very much doubted
 
 "Sixty." was his subsequent guess.
 
-"Higher." I replied with even less confidence than before. I should've lied, but my gut told me not to.
+"Higher." I replied with even less confidence than before. I should've lied, but for some reason I once again found myself unable to.
 
 It was my turn again.
 
@@ -144,7 +144,7 @@ If he was being truthful, then my only remaining choices were twenty, which is t
 
 "Seventy"
 
-I was pushed against a corner. How was I expected to keep a straight face with the pale mask of death staring literally right at me? His next turn would've almost certainly been my last if I didn't think of a way to stall him. Suddenly, I recalled something—a detail that I've been clinging onto ever since what happened at that intersection. I doubted that bringing it up was going to make a difference, but it was worth a shot, especially if it bought me some time:
+I was pushed against a corner. How was I expected to keep a straight face with the pale mask of death staring literally right at me? His next turn would've almost certainly been my last if I didn't think of a way to stall him. I could've pretended like he was wrong, but there was this lingering feeling in my gut that he would've known regardless if I was willing to admit it right away or not. Suddenly, I recalled something—a detail that I've been clinging onto ever since what happened at that intersection. I doubted that bringing it up was going to make a difference, but it was worth a shot, especially if it bought me some time:
 
 "Who is... 'she'?"
 
