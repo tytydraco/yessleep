@@ -108,7 +108,7 @@ We always get the crazies on Christmas; that's what I told myself when she walke
 
   "Yeah, chief. It's a whole other thing to be in a room with these fucking monsters. I know what you're feeling." 
 
-  "Just give me a minute, yeah?" I asked, still breathing heavily with the snow melting beneath my knees. 
+  "Just give me a minute, yeah?" I asked, still breathing heavily.
 
   "You got it. Want me to throw her in a cell?" 
 

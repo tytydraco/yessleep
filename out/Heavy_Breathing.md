@@ -38,7 +38,7 @@ The video starts with Tom shining a flashlight down his hallway. He was breathin
 
 Tom screamed for a moment - but the heavy breathing didn't stop. The video went on for another seven hours or so until it stopped.
 
-The next day, I was gonna show it to Mike, but he called me first. Said something was wrong. That someone had broken into his house, and he could hear them breathing. I told him to get out, but he said he wasn't no pussy, that he'd take care of it. That was what he said, he wasn't no pussy. As he kept talking, I began to realize his voice sounded like it was shaking. I asked if he was alright. He said yes, and I could tell he was lying. I said I was about to come over when he screamed - then stopped. Like one minute he was there, then just gone. I said his name, and it was like talking in a void.
+The next day, I was gonna show it to Mike, but he called me first. Said something was wrong. That someone had broken into his house, and he could hear them breathing. I told him to get out, but he said he wasn't no pussy, that he'd take care of it. That was what he said, he wasn't no pussy. As he kept talking, I began to realize something wasn't right. I asked if he was alright. He said yes, and I could tell he was lying. I said I was about to come over when he screamed - then stopped. Like one minute he was there, then just gone. I said his name, and it was like talking in a void.
 
 I called out his name, begged him to answer me, asked if he was alright... then I heard something. Real faint. But getting slowly louder. And a little closer.
 
