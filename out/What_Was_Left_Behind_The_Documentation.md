@@ -2,8 +2,6 @@
 
 >*\*\*Date of Recording: August 17th, 2021\*\**  
 >  
->  ​    
->  
 >Southeastern Nye County, 65 miles Northwest of Las Vegas, sits a site established in 1951 to test nuclear weapons. Approximately it covers over a thousand square miles and the landscape is covered in just about as many craters.  
 >  
 >In 1955 an informational film was made and subsequently released to the public to raise awareness about the dangers of the atomic bomb. News people from different regions, including the UK, got involved. Even those that weren't a part of major news networks managed to get in and find out some unique intel.  
@@ -24,7 +22,7 @@
 >  
 >I think I'll end this here while we finish up packing for the trip. There's something about that number that bugs me, but I'll elaborate once we see it in person. Maybe I'm missing something.‎  
 >  
->‎  ​    
+>‎  ​  
 >  
 >*\*\*Entry Date: July 5th, 2021\*\**  
 >  
@@ -40,9 +38,9 @@
 >  
 >Actually, hold on-  
 >  
->**- . . .    .    - - .    . .    - .**‎  
+>**- . . .**‎  ​‎  ​**.**‎  ​‎  ​**- - .**‎  ​‎  ​**. .**‎  ​‎  ​**- .**  
 >  
->‎  ​    
+>‎  ​  
 >  
 >*\*\*Entry Date: August 22nd, 2021\*\**  
 >  
@@ -52,21 +50,15 @@
 >  
 >October and Diana are doing their best to look like an interested father-daughter duo out on vacation while I can't seem to get my mind off the fact that this doesn't seem familiar. I mean, you would think it should be after all the hours of videos and pictures I've gone through, but these feels new. Something about the terrain formations off in the distance. I can't ignore this nagging at back of my mind, I mean it was a town of 200 some people that once lived in this exact area, a peak of 900 nearly a century ago. Could all that really have existed in this size of a crater? No, there definitely had to have been an intense cleanup. Something to explain what feels so weird about this. Maybe I'm getting paranoid, but I feel as if I'm being watched.  
 >  
->  ​    
->  
 >*3:15 PM*  
 >  
 >Started writing again as we got back in the SUV. October's driving and going on another one of his ramblings while Diana is in the passenger seat, busying herself with a document while having headphones in. Probably to block him out. Eventually she'll learn to listen through a lot of the nonsense he spouts when he gets like this. She may get annoyed, but it's a relief to me because something put him in this state, which must mean he noticed it too.  
->  
->  ​    
 >  
 >October's Ramblings #259:  
 >  
 >"Towers fallen... The falsity is so obvious... Ants in a well..."  
 >  
 >"Did you see... Horizon too perfect... No, too empty..."  
->  
->  ​    
 >  
 >I mean to other vehicles on the interstate he probably looks like an old guy telling a grand story, but in here, hearing what he's saying with that smile of his; Yeah, he's a bit odd. At least he looks like he's having fun with it. Was having fun with it? His smile became less cheerful suddenly. He was smiling still, but it's different, fake, as though he was doing so for a camera.  
 >  
@@ -76,22 +68,16 @@
 >  
 >How long have they been back there?  
 >  
->  ​    
->  
 >*4:48 PM*  
 >  
 >We got off at an exit to refuel, get food, and then get back on the road home taking a different highway to another interstate. Low and behold, that SUV showed up a few vehicles back. Seems to be hanging behind a semi currently. I'm just going to keep watch for now. October is speaking again, but unlike his other cryptic nonsense, this time it's pretty clear to understand.  
 >  
->  ​    
->  
 >October's Ramblings #256:  
 >  
->"Back again... There and back again... Waiting to pounce... Watching, surveilling, reporting..."‎‎  
->  
->  ​  
+>"Back again... There and back again... Waiting to pounce... Watching, surveilling, reporting..."‎‎
 
-  ​  
+&#x200B;
 
 The light from a desk lamp was all that seemed to illuminate the room. A pile of papers, a pricey looking digital camera, and a recently emptied mug cover my old, worn-out wooden desk. Listening to the man in the other room mumble a bit in his sleep, I stretch, prop myself up in the office chair, and start putting away the various pages of notes scrawled on the yellow writing pad as I end my investigation for the night. After gathering my belongings and bag, I head out for the hall, passing the night guard on my way, boots echoing off the tiles and through the silent corridor.
 
-  ​  
+&#x200B;
