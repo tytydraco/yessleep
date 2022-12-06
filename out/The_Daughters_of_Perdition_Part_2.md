@@ -1,10 +1,16 @@
 Part 1 [https://www.reddit.com/r/nosleep/comments/z8hu0j/the\_daughters\_of\_perdition/](https://www.reddit.com/r/nosleep/comments/z8hu0j/the_daughters_of_perdition/)
 
+part 3
+
+[https://www.reddit.com/r/nosleep/comments/zd9mjz/comment/iz0clgu/?context=3](https://www.reddit.com/r/nosleep/comments/zd9mjz/comment/iz0clgu/?context=3)
+
+&#x200B;
+
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found a book that details the true story of the Salem witch trials. After reading it I found this story particularly fascinating and wanted to share it.
 
 &#x200B;
 
-My name is Jacob and I live with my huge family in Salem, New England. My grandmother was appointed Baronet of Salem before I was born and we had move here from farther south in New England. No one in our family would tell me who or why she was appointed, they would always say they would tell me when I was older.
+My name is Jacob and I live with my huge family in Salem, New England. My grandmother Deb was appointed Baronet of Salem before I was born and we had move here from farther south in New England. No one in our family would tell me who or why she was appointed, they would always say they would tell me when I was older.
 
 I was 14 years old, and my little brother Robbie was 11. We used to have a brother named Levi, but he got eaten by wolves a few years back. Then we had our sister Kelly, she was 7. We used to have a sister named Kayla, but she got eaten by wolves a few months back. We also just had another sister, Mary. But the wolves got her a few days back. My mother Jackie and my father Rudolph were quite a pair. My father was like a rabid dog that my mother had on leash. That was my immediate family but it wasn't all the people under our roof.
 
@@ -24,7 +30,7 @@ We got some toast, eggs, bacon and coffee and sat down. As we ate we sat quiet, 
 
 "You don't think the Spanish inquisition is any better than the New England one do you?" Jackie said to Jill with a scowl.
 
-"Of course not. God is not here, our lord Samael is king in these parts. Have faith that he will protect us." Jill chided back with confidence. 
+"Of course not. God is not here, our lord Samael is king in these parts. Have faith that he will protect us." Jill chided back with confidence.
 
 Samael was a name I didn't here very often but I knew who it was. It was who everyone here worshiped secretly in church. On Sunday at midnight they always held a black mass to Samael. Only church higher ups and the invited were allowed to come to those though.
 
@@ -76,11 +82,11 @@ The head of the New England inquisition, Delta, was barking orders and telling p
 
 "Then our worst fears have been realized" one of the Spanish inquisitors stated.
 
-"It would appear so. It really is Samael. Round up all the New England Inquisitors for questioning. We will cut out this treachery at its heart." The grand inquisitor spoke. He then paused for a second. 
+"It would appear so. It really is Samael. Round up all the New England Inquisitors for questioning. We will cut out this treachery at its heart." The grand inquisitor spoke. He then paused for a second.
 
 I felt my heart race. He knew we were here. Just then four inquisitors came around the side of the building. They tied us up and took us inside.
 
-Once we were inside I saw the Grand Inquisitor standing there looking as smug as could be. 
+Once we were inside I saw the Grand Inquisitor standing there looking as smug as could be.
 
 "So we have eavesdroppers do we? Take them to the dungeon. We will question them later."  The Grand Inquisitor smirked.
 
@@ -126,7 +132,7 @@ I walked into the room and Jackie, my mother looked at me with fake fear. "You'v
 
 "I betrayed our family? What about Levi? What about Kayla? What about Mary? What about all the other children the wolves supposedly ate? Hugo told me you used them as human sacrifices in black magic rituals! How could you? You evil witch!" I vented, holding back tears.
 
-She looked at me with that bug eyed look and grimaced. Samael had come right out. Hugo came out of the shadows and handed me a short sword. 
+She looked at me with that bug eyed look and grimaced. Samael had come right out. Hugo came out of the shadows and handed me a short sword.
 
 "Pure, folded Damascus steel. That sword is worth more than 50 common swords. Consider it a gift." Hugo paused for a second. "I can sense that you know what needs to be done. There is nothing left inside of her. It is only Samael. I won't require that you kill her with that sword, but I think it would be best if you did it. If you do you will be a boy no longer, but a man of god. Willing to do his will before all else. In most circumstances killing your mother would allow Beelzebub to enter you. But you have resisted her all your life, you know how truly evil she is. She would have killed you painfully had I not arrived in time. Still, the choice is yours"
 
@@ -160,7 +166,7 @@ I was dumbfounded by this Inquisitor that had clearly taken a liking to me. Just
 
 Hugo stood stoic for a moment then replied "We will not give in to cultists of Samael. We will fight to the last. " He looked to me. "Rogue tonight will be your initiation. Survive and you have a place at my side in the inquisition."
 
- we left Jill in her cell and Hugo left with the other inquisitors. I was alone and I decided to fulfill my role as a rogue. I slipped int othe shadows and prowled silently to a window. It was a full moon and as I looked out I saw hundreds of cultists all wearing black cloaks.  I watched them for what felt like no time at all, and then a volley of arrows flew from the barracks. Cultists dropped to the ground grunting. 
+we left Jill in her cell and Hugo left with the other inquisitors. I was alone and I decided to fulfill my role as a rogue. I slipped int othe shadows and prowled silently to a window. It was a full moon and as I looked out I saw hundreds of cultists all wearing black cloaks.  I watched them for what felt like no time at all, and then a volley of arrows flew from the barracks. Cultists dropped to the ground grunting.
 
 Then I heard the Baronet's voice. "Send in the Lilum."
 
@@ -174,7 +180,7 @@ My arm went numb and hurt like nothing I had ever felt before. I quickly cut the
 
 I scrambled back to the window and looked out. All the cultists stood motionless in the moonlight. Before moving like one being and all charging towards the barracks still chanting.
 
-I moved into the shadows and crept towards the entrance. I heard the front door being hit with a battering ram before giving way. Then hundreds of footsteps. I stood in the dark waiting and a group of 4 cultists passed me. 
+I moved into the shadows and crept towards the entrance. I heard the front door being hit with a battering ram before giving way. Then hundreds of footsteps. I stood in the dark waiting and a group of 4 cultists passed me.
 
 I followed them silently and picked off one, then two, and then the third before being detected. The forth cultist turned to face me, sword drawn. I went for a horizontal slash and he blocked. Thankfully my sword went right through his, cutting him and the sword in half.
 

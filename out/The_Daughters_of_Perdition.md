@@ -1,3 +1,14 @@
+Part 2
+
+https://www.reddit.com/r/nosleep/comments/zbbsgn/the_daughters_of_perdition_part_2/
+
+
+
+Part 3
+
+https://www.reddit.com/r/nosleep/comments/zd9mjz/the_daughters_of_perdition_part_3/
+
+
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found a book with a bunch of stories about how certain monks had come to this monastery. After reading it I found this story particularly fascinating and wanted to share it.
 
 
@@ -11,7 +22,7 @@ As I carted the tombstone around back I remembered back to Sunday at church serv
 
 We had a large family. I'm Jon 12 and my sister is Jackie, I'm 12 she is 9. Then we had the twins, Jack and Jill, who were both less than a year old. My mother and sister were both distraught, even lost , without their matriarch. My father appeared to have gone senile from the stress. He was never a talkative fellow but his brain just seemed broken. 
 
-.  My mother was a hag, just like her mother. Both of them had been accused of witchcraft and granny Dora had even been tried a few years back when the inquisition came to town. I remember being upset when they let her go. The New England inquisitions weren't very thorough, nothing like the Spanish ones.
+.  My mother Deb was a hag, just like her mother. Both of them had been accused of witchcraft and granny Dora had even been tried a few years back when the inquisition came to town. I remember being upset when they let her go. The New England inquisitions weren't very thorough, nothing like the Spanish ones.
 
 After the old witch burst into flames people around town had been talking about how god had done the inquisitions work for them, and that she must have been guilty of some unknown, unspeakable treachery. There were even people now asking for my mother to give a sermon at church, to see if the same thing happens. I was in agreement because I knew how close my mother and Dora had been.
 
