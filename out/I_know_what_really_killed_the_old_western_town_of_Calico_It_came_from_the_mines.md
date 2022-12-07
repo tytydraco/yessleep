@@ -56,7 +56,7 @@ One of the men at the table excitedly roared that they must notify the sheriff. 
 
 My grandfather could remember exactly how Martha described the figure. I, too, can remember the exact wording. She painted a nightmarish picture that is permanently etched into my mind.
 
-“I could scarcely see her in the moonlight,” Martha said. “My joy was fleeting. I soon realised that she had no discernible facial features. Just a mouth. A gaping mouth, black as the night. She was emancipated, yet so much taller than I remember. Her dress was torn. I could see so little of her, but I could hear her. Didn’t you hear that sound last night? It was an inhuman, whistling scream. It sounded like an animal calling to the pack.”
+“I could scarcely see her in the moonlight,” Martha said. “My joy was fleeting. I soon realised that she had no discernible facial features. Just a mouth. A gaping mouth, black as the night. She was emaciated, yet so much taller than I remember. Her dress was torn. I could see so little of her, but I could hear her. Didn’t you hear that sound last night? It was an inhuman, whistling scream. It sounded like an animal calling to the pack.”
 
 Of course, most of the men at the table dismissed Martha, claiming that grief had driven her to lunacy. They hadn’t heard a scream. They might have heard a few animals, but they heard no inhuman screams. My grandfather said that James simply looked at him with a pale expression. He whispered to Harley that he had heard a bloodcurdling scream during the night. He thought he had been dreaming because it was a sound no human could produce, and it was certainly like no animal he had ever encountered.
 
