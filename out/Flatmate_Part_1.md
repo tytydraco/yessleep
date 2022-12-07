@@ -1,3 +1,7 @@
+&#x200B;
+
+&#x200B;
+
 I'm sitting alone in my flat.  Alone - yet not quite. Not at all, in fact. The thought makes me shudder.
 
 I have nothing else to do - well, I do, but it's nothing I *want* to do - so I allow myself to drift, recalling how it all came to this. Beginning with how happy I had been to get my new flat, nearly three years ago.
@@ -28,7 +32,7 @@ Ridiculous I thought. There's no-one else here!
 
 I stood for awhile then shrugged it off. Maybe it was just a subconscious thought popping up about how in times like these, it was a great chance to get re-acquainted with yourself or something. After all, everyone was waxing lyrical about the break from the fast pace of modern life and how wonderful it was that the fishes were coming back into the Venetian canals and everything. Maybe I was getting infected too.
 
-Anyway, lockdown was finally lifted and people started trickling back again to visit and all. Family, friends, the usual deal.  True, the two close friends that had planned to stay before lockdown didn't seem to be so close anymore, at any rate they kept on finding excuses not to show up.  However, caught up in a perfect storm of renewed sociability I allowed a female friend to stay over while I was out of town for a few days, and even invite *her* friends. It all went off swimmingly but about a month later the whole  group abruptly broke up and were no longer friends. I don't know what happened.
+Anyway, lockdown was finally lifted and people started trickling back again to visit and all. Family, friends, the usual deal.  True, the two close friends that had planned to stay before lockdown didn't seem to be so close anymore, at any rate they kept on finding excuses not to show up.  However, caught up in a perfect storm of renewed sociability I allowed one group of friends to stay while I was out of town for a few days. It all went off swimmingly but about a month later the whole  group abruptly broke up and were no longer friends. I don't know what happened.
 
 Then some family  stayed over while I put up on the couch, and again it all went great but a few weeks later they all became ill. They recovered, but that put paid to the chance of them coming over to stay again in a hurry. In fact, I'm pretty sure they felt they had probably caught something in my place. Although they wouldn't openly quarrel with me over it they probably thought I hadn't disinfected all the surfaces properly or something.
 

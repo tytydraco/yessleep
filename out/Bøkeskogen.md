@@ -208,7 +208,7 @@ I rolled over onto my back, crying out in pain and gazing up at the faceless gre
 
 “You are not like me, Louise.”
 
-I groaned, making up my speech as I went along. “Do you think I cared about that stalker? I would’ve killed him myself if I’d had the chance. That’s why I answered the door before you. I was trying to protect you. I didn’t know you were like me.”
+I groaned, making up my speech as I went along. “Do you think I cared about that stalker? Given the chance, I would’ve killed him myself. That’s why I answered the door before you. I was trying to protect you. I didn’t know you were like me.”
 
 John paused. I could almost hear the cogs whirring in his head. I was certain he saw through my lie, but that didn’t matter. All I had to do was entertain him a little longer. If I could keep him interested, I could stay alive. That was my logic.
 

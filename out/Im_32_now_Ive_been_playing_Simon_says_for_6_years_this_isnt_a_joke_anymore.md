@@ -1,0 +1,15 @@
+
+
+
+I live with my girlfriend, Brianna. She's the kindest person I've ever met. Recently Brianna said that she was going to her mom's house for a couple of days. Brianna never gave me a reason why she left, I tried calling her and messaging her but she didn't answer. Suddenly I got a text from an unknown number. "Hello is this Jason?"
+
+I panicked, I couldn't even think. How did this person get my number and know my name? I responded, "Hello, who Is this?"
+I got a response instantly "you know who". Then I heard a voice in my head, it was a Simon says task. My heart skipped a beat, the voice said. "Go in the basement" I was confused, the house didn't have a basement, well that's what I was told. I sat there thinking about where the basement can be, and what can be inside it. 1 week passed, and Brianna still wasn't back. My stomach dropped. I had too many questions. 
+
+I heard a noise, it was my phone, it got another message. This time saying "complete your task or you won't see Brianna again" I felt numb and couldn't process anything. I replied "What basement? Where is it? And give me Brianna back." I felt a chill run down my spine. Then the power turned off and I  fainted. I awoke with the slightest memory of yesterday.  I got out of bed and my feet got soaked, I thought to myself for a while. The house was soaking, I got dressed, and rushed downstairs. It was flooded. I approached my way into the living room. The water was as high as my knee. Not a single inch of it was dry. My phone got a notification, I pulled my phone out of my pocket. It was another message saying "have fun with the water". Which was sent when I walked into the living room. Someone was watching me.
+
+I texted the number "stop with your stupid challenges, it's annoyed me for years and it's ruined my life. Give me Brianna back."
+Just a couple of minutes later they texted back, "it's too late, you can't get Brianna back. She's mine now." I turned pale but I knew what I had to do, I had to find the basement, I got another message "the bookshelf. I tried to keep steady on my feet, but then I had a flashback. When we first moved into the house. Brianna said, "don't move anything in the living room."
+It hit me, she was hiding the basement from me for all these years.
+
+I moved the shelf, revealing a door that needed a 6-digit code I tried Brianna's birth date 7/24/1988, and the lock came right off. I opened the door which revealed a stairwell going downwards. I got to the bottom, revealing a dark, large room. Waiting for me were two dark figures in the distance. "Brianna is that you?" The lights flickered a few times before turning on. "yes it is Jason" I took one glance at her, her face was purple and her body was thin. I was in shock. He starved her.
