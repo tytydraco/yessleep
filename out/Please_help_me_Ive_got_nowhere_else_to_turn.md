@@ -35,3 +35,5 @@ I'm still not sure what to do, and I'm hoping that someone on this subreddit can
 Please, if anyone has any advice or has experienced something similar, I would really appreciate it. I'm at my wit's end and I don't know what to do.
 
 Thank you.
+
+Edit: continues [here](https://www.reddit.com/r/nosleep/comments/zffqwf/please_help_me_ive_got_nowhere_else_to_turn_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

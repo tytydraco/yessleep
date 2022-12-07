@@ -2,7 +2,7 @@ For the early years of my daughter’s life, she insisted on doing everything wi
 
 I worried about her at first, but I soon learned that it was not harming anything. My wife, Cristy, assured me that there was nothing to worry about. She played with them, and they seemed to keep her occupied most of the time.
 
-Every one of her birthdays, I hoped the phase would pass. But it never did. If anything, it got worse and worse. She got more and more friends, and how she described them got more and more disturbing. It went from fun characters that could have been from a cartoon or kid’s show to being things that a kid shouldn’t be able to describe. A man with a head sewn to his shoulder. A thing made of various body parts. 
+Every one of her birthdays, I hoped the phase would pass. But it never did. If anything, it got worse and worse. She got more and more friends, and how she described them got more and more disturbing. It went from fun characters that could have been from a cartoon or kid’s show to being things that a kid shouldn’t be able to describe. A man with a head sewn to his shoulder. A thing made of various body parts.
 
 We took her to a therapist, but it didn’t help. The therapist said that it was probably just a phase that would pass soon. I hoped the same, but they got even worse from there.
 
@@ -72,7 +72,7 @@ I only managed to get a single word out through my fear. “T-T-Tim…”
 
 A confused look spread across her face. “Anna’s imaginary friend?” she asked.
 
-I just shook my head. 
+I just shook my head.
 
 It took almost half an hour for my wife to calm me down enough to be able to tell her what had happened. As I said what I had seen, my wife’s face grew skeptical. She told me I must have had a nightmare, and that what I was saying was ridiculous.
 
@@ -82,6 +82,6 @@ However, my wife and I got divorced soon after that night. I now live alone in a
 
 And now I have. I can feel him behind me as I type this. Growing slowly closer. He will punish me for talking about him. But I feel like this needs to be out there.
 
-I can see him in the reflection of my screen now. Slowly approaching me. I feel his hand on my shoulder. 
+I can see him in the reflection of my screen now. Slowly approaching me. I feel his hand on my shoulder.
 
-I hope thi
+I hope this post makes it out there.

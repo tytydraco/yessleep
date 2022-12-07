@@ -1,0 +1,21 @@
+Since I was around 10-11, I could easily tell how something was feeling. It could be angry, sad, happy - hell, even no feeling has a specific feeling to go along with it. And what I mean by this "feeling" is that there's a physical sensation of emotions I get from other people. This ability also allows me to recognize people, as everyone has different "signatures," if you will. This gets more prominent the longer I feel them for. People get freaked out that I know who's in the room with me without even looking at them. Anger is especially prominent. 
+
+When people walk past me, or are nearby, I can feel it. It radiates from their breath, their body. The air that gets knocked away when they rush past me. I can more or less feel what they feel. It pricks my skin. Psychopaths and Sociopaths are especially strange, but it makes sense in theory. They have a much more dulled feeling than what I feel from most people. Luckily, this allows me to distinguish them from other people.
+
+The first time I actually felt someone else's emotions, my teacher was screaming at me for disrupting her class. All I had done was stand up to go use the bathroom, since she was typing on her computer, and not teaching. She had a very strict policy on not leaving during her class for the bathroom. I was pretty quiet, and since I was near the door and far away from the teacher, I thought I could leave without her noticing. So, I stood up and went to the door. She looked up at me, and furiously walked to where I was standing. She yelled at me. I don't really remember the specifics, since this was quite a while back. However, I do remember her feelings. She had one of joy, and satisfaction. The feeling confused me a bit, but somehow I intuitionally knew that that was what she was feeling. And it disgusted me a little.
+
+Anyways, I was laying down on my couch, mindlessly watching TV and scrolling through my phone, when I heard a knock on my door. Crazy start, I know. I jumped, not expecting it, then I felt that feeling of relief wash over me. I got up from where I was sitting, and sluggishly walked over to the door. I looked through the glass on it, but doing that is a bit difficult, since it's tinted. With what I could see, I made out someone holding something that looked to be a box. This set me off slightly, as I hadn't ordered anything. That was strange, though. Was that the thing that set me off about this guy, or was it something else?
+
+Not thinking about it, I open the door, and faced the man in front of me. He was slightly taller than me (i think?), wearing a black uniform, with white text in the corner of the shirt he was wearing.
+
+I immediately noticed that something was *intensely* wrong with this man, but I couldn't put my finger on it. Wait, was it a woman? That thought made me notice something. For the life of me, I wouldn't be able to tell you any of the specific details about whatever the hell this thing was. Everything from his face, to his clothes, his hair, the color of his eyes. None of it seemed... comprehensible. The letters on his uniform said something, but I couldn't really tell what any of it said, even though I *could* read it. What's weirder, is that all of his features were fully distinguished. I could see his face. His expression. But, I can't describe it. Looking at the man for long periods of time was like looking at one of those stroke simulation images. But he looked completely normal, from what I could tell. Could I be having a stroke?
+
+Then, I realized what initially set me so off - His feeling. *There was no feeling from him.* 
+
+I backed away from the door.
+
+He asked me if I had ordered a package. To which, I quickly said no, and shut the door. I grabbed my firearm. Luckily, it has not come into my house.
+
+It scares me to death. It doesn't seem super scary to you all I wouldn't assume, but everything capable of thought I've ever seen has a feeling. Does that mean it's not capable of thought? What the hell is it?
+
+If there are any updates, I'll edit this post.

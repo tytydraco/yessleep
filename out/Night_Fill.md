@@ -48,7 +48,7 @@ I woke up the next morning, forgetting when I fell asleep, I went to go get read
 
 I thought to myself, thing's are getting really weird, but I couldn't let this new job be put at risk, I waited until 4:00pm and got ready for the Night Fill Shift. 
 
-I arrived at woolworths at 4:40pm, I saw many car's parked outside, I let out a breath of relief that I was not alone. 
+I arrived at Walmart at 4:40pm, I saw many car's parked outside, I let out a breath of relief that I was not alone. 
 
 I pressed on the store ring bell and waited for someone to open the door for me, before I knew it I heard rapid footstep's approach. The door suddenly opened, "hi Danny" said Tom as he held the door open for me, "how is it going" I replied desperately trying to avoid conversation. 
 
