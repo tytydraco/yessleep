@@ -34,18 +34,18 @@ Her hands had to be restrained to stop her from assaulting her skin but she star
 
 
 
-No one could figure out what was happening. Nothing worked on her. Nothing could stop the itch that was driving her mad. She trashed against her restraints so destructively that she broke free. She looked like a madwoman as she chewed and scratched her skin. Her parents were just standing there in the corner, forced to watch their daughter's descent into madness.
+No one could figure out what was happening. Nothing worked on her. We tried to put her in a medically induced coma but it didn't work. Nothing worked. Nothing could stop the itch that was driving her mad. She trashed against her restraints so destructively that she broke free. She looked like a madwoman as she chewed and scratched her skin. Her parents were just standing there in the corner, forced to watch their daughter's descent into madness.
 
 
 
-And then, exactly at one hour, her skin tore, not due to her nails, it tore from the inside and she screamed, she screamed like a man being tortured. 
+And then, exactly 15 minutes before one hour, her skin tore, not due to her nails, it tore from the inside and she screamed, she screamed like a man being tortured. 
 
 
 Every inch of her skin came apart and gave way to tiny white things. They were like maggots, they were white and shiny. They crawled out of the holes, slowly slithered in her skin and blood, crawled in the gore. They came from her scalp, from her face, from her hands and every other surface that had skin. 
 
 
 
-There were so many of them. Hundreds, if not thousands. They never seemed to end, they came pouring out until all you could see of her were her eyes. They covered every inch of her. She tried to swat them away, she tried to chew them so they'd leave her alone but they didn't budge, it was as if they were glued to her. Then, she burst. She burst like a balloon. The sound, so loud it hurt my eardrums. Her body was now just clumps of flesh and bone. Her flesh and blood splattered everywhere. She exploded. She was now nothing but clumps of meat, blood oozed out of the clumps and stained all that it touched. And they were gone. Just as suddenly as they had come, they were gone. There was no sign of them. It was as if they disappeared.
+There were so many of them. Hundreds, if not thousands. They never seemed to end, they came pouring out until all you could see of her were her eyes. They covered every inch of her. She tried to swat them away, she tried to chew them so they'd leave her alone but they didn't budge, it was as if they were glued to her. Then, at one hour on the dot, she burst. She burst like a balloon. The sound, so loud it hurt my eardrums. Her body was now just clumps of flesh and bone. Her flesh and blood splattered everywhere. She exploded. She was now nothing but clumps of meat, blood oozed out of the clumps and stained all that it touched. And they were gone. Just as suddenly as they had come, they were gone. There was no sign of them. It was as if they disappeared.
 
 
 
