@@ -47,4 +47,8 @@ And then something, it’s a small connection but I concentrate on it using all 
 [Part 4](https://www.reddit.com/r/nosleep/comments/z7gl87/part_four_and_then_the_world_bled/)
 
 [Part Five](https://www.reddit.com/r/nosleep/comments/zb9yey/part_five_and_then_the_hero_died/)  
+
+
 [Part Six](https://www.reddit.com/r/nosleep/comments/zcqvy0/part_six_and_then_you_stare_back_into_the_abyss/)
+
+[Part Seven](https://www.reddit.com/r/nosleep/comments/zdxqpr/part_seven_the_diary_of_kyra_finale/)

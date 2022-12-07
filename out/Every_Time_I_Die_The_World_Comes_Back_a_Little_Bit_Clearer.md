@@ -68,4 +68,4 @@ And helplessly, I obeyed. The universe was offering me its secrets, and I was de
 
 And that’s why I’m here, writing to all of you. My name is Veronica Miller, and I’ve died 100 times. 100 times in every way imaginable. And now, all I want, is a real way out. Please. Someone, anyone, tell me how to die for real.
 
-I don’t know how much time I have, but this time when I die, I need to stay dead. Please.
+I don’t know how much time I have, but this time when I die, I need to stay dead. Please. [Part 2](https://www.reddit.com/r/nosleep/comments/zel3vm/every_time_i_die_the_world_comes_back_a_little/)
