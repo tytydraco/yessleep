@@ -1,5 +1,3 @@
- 
-
 Part 1
 
 [https://www.reddit.com/r/nosleep/comments/z8hu0j/the\_daughters\_of\_perdition/](https://www.reddit.com/r/nosleep/comments/z8hu0j/the_daughters_of_perdition/)
@@ -32,7 +30,7 @@ There even seemed to be a brain disease floating around. Inquisitors would start
 
 It took years for the rot to really set in, but when it did it hit hard. The inquisition had become brutal, delighting in the torment of their captives. Samael's presence was small at first but grew and grew.He clearly had a base of operations from where his physical presence in our world was growing.
 
- The inquisition searched for the Baronet, but without Hugo moral was low and it seemed like we would never find her. 
+The inquisition searched for the Baronet, but without Hugo moral was low and it seemed like we would never find her.
 
 Then at last in 1727, 24 years after Hugo had died we finally heard a tale from an Eskimo about her location. It was way up north, father north than we had been searching. But the problem was clearly getting out of hands. Fleeing Eskimos were telling tales of a White Witch, living in a ice palace tended by giants. The Eskimos said squadrons of bird sized wasps raid their villages. Sometimes they would abduct their victim afterwards; sometimes they would just leave them there, filled with eggs waiting to hatch.
 
@@ -78,7 +76,7 @@ After a week we were taken into the throne room. I looked like the Baronet, all 
 
 The inquisitors looked from one to another. then 13 of them dropped on their backs and said in unison "We are Samael's little playthings, and we will serve the white witch" they recited Samael on their faces. I noted Trent was among them. He should never have been made a master.
 
-The ones who still stood started yelling, other than  *Maximillion* who remained stoic. The larvae burst from the standing inquisitors and  *Maximillion* laughed. 
+The ones who still stood started yelling, other than  *Maximillion* who remained stoic. The larvae burst from the standing inquisitors and  *Maximillion* laughed.
 
 "When Yahweh is with me you can cause me no pain, witch" he said callously.
 
@@ -90,7 +88,7 @@ The guards grabbed him and as they pulled him away he spat on her.
 
 "Bring the vessel, bring the vessel. I"m in pain!" the white witch screamed.
 
-The guards looked from one to another then some of them ran out of the room. They came back with a woman dressed in a black robe, eerily similar to Samael's. She seemed comatose and they brought her before the white witch. 
+The guards looked from one to another then some of them ran out of the room. They came back with a woman dressed in a black robe, eerily similar to Samael's. She seemed comatose and they brought her before the white witch.
 
 "Give me your soul!" She screamed
 
@@ -100,7 +98,7 @@ I saw with my third eyes as their souls swapped bodies. The slug started crying 
 
 The woman said "Take them to their rooms." and the guards took me and Blynken away.
 
-I was left in a nice room really, nothing like the cell in was in before. It had no windows but there was a polar bear skin bed framed with bones, and a little bone chest full of cloths. I did not approve of the decorations though. There was a dead manhawk in one of the corners and numerous heads on the walls. Some wasp, some polar bear some human. 
+I was left in a nice room really, nothing like the cell in was in before. It had no windows but there was a polar bear skin bed framed with bones, and a little bone chest full of cloths. I did not approve of the decorations though. There was a dead manhawk in one of the corners and numerous heads on the walls. Some wasp, some polar bear some human.
 
 I sat on the bed envying Hugo's ability to phase through walls. It would really help me out right now. I sat there in thought wondering what time it was.
 
@@ -114,7 +112,7 @@ He took me down the halls to a room with a large bone table where a man and the 
 
 "Cooked" I said in disbelief.
 
-"You youngins and your cooked meat. All the flavor really just comes out when you have it raw" she said. 
+"You youngins and your cooked meat. All the flavor really just comes out when you have it raw" she said.
 
 "We aren't going to wait" The man and Baronet said in unison, Samael on both of their face. The slaves brought in some a bowl of seal eyes for the Baronet and a slap of raw meat for the man. They ate with the demon of gluttony.
 
@@ -190,9 +188,9 @@ Blynken grabbed the glass and took a gulp  and put it down, most of it still lef
 
 The Baronet looked at Blynken "No buts with me Dora!" She giggled.
 
-The strange Eskimo looked at me and said "I brought a present for you" and he handed me a huge glass of milk. 
+The strange Eskimo looked at me and said "I brought a present for you" and he handed me a huge glass of milk.
 
-I looked around the room then grabbed the milk and chugged the who thing. When I put the glass down the Eskimo looked at me with Samael on his face. 
+I looked around the room then grabbed the milk and chugged the who thing. When I put the glass down the Eskimo looked at me with Samael on his face.
 
 "Prick" He said staring off into space.
 
@@ -232,13 +230,13 @@ I almost puked absolutely disgusted. I sat there wishing I could phase through t
 
 Then I heard two voices, one sounded merry and happy, the other sounding like Beelzebub. I looked to the sky and saw two sleighs flying in the air. One was pulled by eight reindeer and had a fat man in a red suit. The other was pulled by 8 skeletal reindeer and had a demon looking thing in a red suit. 'I guess that's Krampus' I thought too myself.
 
-As the two got closer they started firing rainbow lightning at each other. The display lit up the sky for hundreds of miles as the two sleighs fired lightning and occasionally sideswiped each other. 
+As the two got closer they started firing rainbow lightning at each other. The display lit up the sky for hundreds of miles as the two sleighs fired lightning and occasionally sideswiped each other.
 
-"Krampus and Father Christmas duke it out every year on the solstice. Father Christmas is powered by the good in people all across the world, and Krampus is powered by the evil. They are fighting all year round, but on the solstice its decided who has the upper hand for the next year. This is my 27th solstice, and I've never seen Father Christmas win." she said to Blynken.
+"Krampus and Father Christmas duke it out every year on the solstice. Father Christmas is powered by the good in people all across the world, and Krampus is powered by the evil. They are fighting all year round, but on the solstice its decided who has the upper hand for the next year. This is my 24th solstice, and I've never seen Father Christmas win." she said to Blynken.
 
 Blynken was about to respond when his eyes glazed over. "Dora's back baby!" She cackled.
 
-I was appalled. Dora was back again, and this time in hat looked like a young male body. 
+I was appalled. Dora was back again, and this time in hat looked like a young male body.
 
 The two sleighs were getting closer and I could hear Father Christmas and Krampus talking as they fought.
 
@@ -260,17 +258,17 @@ I moved with uncanny quickness at total random. I was so erratic that they had t
 
 I looked up to see Father Christmas and Krampus fighting. Krampus seemed to have the upper hand but Father Christmas was holding his own.
 
-I then noticed a powerful presence from the spirit world, Samael. 
+I then noticed a powerful presence from the spirit world, Samael.
 
 "Well you got away did you? You little shit. How about this? You're so fond of Hugo, why not face my son Beelzebub in single combat, like Hugo faced me, all those years ago." Samael offered.
 
 'Fine, challenge accepted' I thought.
 
-The Sperm Whale covered giant had Beelzebub on his face as we both moved at an angle, circling each other. We went in spiral, both looks for an opening, then giant lunged at me with his spear.  I swung me beam saber vertically, cutting the spear right down the middle. The sides feel uselessly to the side. Beelzebub looked terrified as I charged towards him. He started running backwards and tripped, falling. 
+The Sperm Whale covered giant had Beelzebub on his face as we both moved at an angle, circling each other. We went in spiral, both looks for an opening, then giant lunged at me with his spear.  I swung me beam saber vertically, cutting the spear right down the middle. The sides feel uselessly to the side. Beelzebub looked terrified as I charged towards him. He started running backwards and tripped, falling.
 
 I jumped up on top of him and dragged my saber in a zigzag as I ran across its body. It was lifeless by the time I reached the head.
 
-Just then father Christmas yelled jollily, "I guess I win this year!" and a bolt of lightning hit Krampus. His smoking sleigh crashed somewhere off in the distance. 
+Just then father Christmas yelled jollily, "I guess I win this year!" and a bolt of lightning hit Krampus. His smoking sleigh crashed somewhere off in the distance.
 
 The ground then started to shake as Ice giants rose up from the snow. Their eyes glowed gold and they sung bible verses as they marched towards us. The verses were different than in our current bible, uncorrupted and pure. They were oddly the exact same size and number of the remaining 7 giants.
 
