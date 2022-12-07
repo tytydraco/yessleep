@@ -106,7 +106,7 @@ That  was when I grabbed him by the lapels and shoved him to the ground. I  cons
 
 Buckley  started laughing. What he did next took me by complete surprise. He  patted me on the back with his free hand instead of trying to defend  himself or resist.
 
-“You’ve  proven your point,” he said as he pushed on my chest. “Now get off of  me. I don't want to give the signal to one of my buddies in the next  tower. He has a modded Remington 870 pointed at you.”
+“You’ve  proven your point,” he said as he pushed on my chest. “Now get off of  me. I don't want to give the signal to one of my buddies in the next  tower. He has a modded Remington 700 pointed at you.”
 
 I released him. After he stood and brushed some frost off, he made eye contact with me.
 

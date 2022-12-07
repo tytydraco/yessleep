@@ -10,7 +10,7 @@ I work at a construction company and we are renovating this old monastery into a
 
 &#x200B;
 
-My name is Jacob and I live with my huge family in Salem, New England. My grandmother Deb was appointed Baronet of Salem before I was born and we had move here from farther south in New England. No one in our family would tell me who or why she was appointed, they would always say they would tell me when I was older.
+My name is Jacob and I live with my huge family in Salem, New England. My grandmother was appointed Baronet of Salem before I was born and we had move here from farther south in New England. No one in our family would tell me who or why she was appointed, they would always say they would tell me when I was older.
 
 I was 14 years old, and my little brother Robbie was 11. We used to have a brother named Levi, but he got eaten by wolves a few years back. Then we had our sister Kelly, she was 7. We used to have a sister named Kayla, but she got eaten by wolves a few months back. We also just had another sister, Mary. But the wolves got her a few days back. My mother Jackie and my father Rudolph were quite a pair. My father was like a rabid dog that my mother had on leash. That was my immediate family but it wasn't all the people under our roof.
 

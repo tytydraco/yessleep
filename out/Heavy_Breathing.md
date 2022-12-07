@@ -36,7 +36,9 @@ Tom's place was just... empty. Everything was exactly as it had been when we'd l
 
 The video starts with Tom shining a flashlight down his hallway. He was breathing really heavy, or at least I think he was. He kept scanning the whole damn thing, trying to find heads or tails of whatever the hell he was looking for, I don't know, he just kept breathing into the phone. Then... right as the video ended, something appeared on the wall. This white, puffy disk or... or a...
 
-Tom screamed for a moment - but the heavy breathing didn't stop. The video went on for another seven hours or so until it stopped.
+It looked right at the camera.
+
+Tom screamed for a moment - but the heavy breathing didn't stop.
 
 The next day, I was gonna show it to Mike, but he called me first. Said something was wrong. That someone had broken into his house, and he could hear them breathing. I told him to get out, but he said he wasn't no pussy, that he'd take care of it. That was what he said, he wasn't no pussy. As he kept talking, I began to realize something wasn't right. I asked if he was alright. He said yes, and I could tell he was lying. I said I was about to come over when he screamed - then stopped. Like one minute he was there, then just gone. I said his name, and it was like talking in a void.
 
