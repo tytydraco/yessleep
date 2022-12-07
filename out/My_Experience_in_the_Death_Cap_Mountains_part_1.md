@@ -1,7 +1,3 @@
-The Death Cap Mountains
-
-by J.H. Salem
-
 Every night at 3:33 AM, a hidden road appears near my house. I first noticed it coming home from work last week. I dismissed it as a driveway I hadn’t noticed before until I saw a sign with an arrow pointing down the road, reading: 
 
 “To the Death Cap Mountains

@@ -1,6 +1,6 @@
 &#x200B;
 
-&#x200B;
+Link to Part 2.  [Flatmate. Part 2. : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/zf8oyd/flatmate_part_2/) 
 
 I'm sitting alone in my flat.  Alone - yet not quite. Not at all, in fact. The thought makes me shudder.
 
