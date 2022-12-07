@@ -138,6 +138,8 @@ We didn’t tell Daniel quite everything the next morning over breakfast.  I tol
 
 We have a deadline now.  We need to stop this thing before it metamorphoses. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/zeoek1/how_to_survive_college_the_stabbed_student/)
+
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)

@@ -68,7 +68,7 @@ The morning before the anointing I walked behind Hugo through the gardens of Rom
 
 "He's a good pope. Best I've met anyway. And get this, I've got something to tell you. Have a good time tonight. You don't become a master inquisitor every day. We'll talk about it tomorrow." Hugo said with a smile. He opened the door for me and I walked through into the chamber.
 
-Pope Clement the 11th sat on his thrown with a smile. My brother Robbie, cousin Wynken, along with many other Inquisitors and cardinals lined the chamber. Everyone was clapping. I walked to the pope and stood in front of him.
+Pope Clement the 11th sat on his thrown with a smile.  Phillip the Fifth, my brother Robbie, cousin Wynken, along with many other Inquisitors and cardinals lined the chamber. Everyone was clapping. I walked to the pope and stood in front of him.
 
 "A master already? At such a young age. There is so much promise in you. Kneel."
 
@@ -244,7 +244,7 @@ I got up and looked to the remaining inquisitors. I counted 12 plus me and Hugo.
 
 I felt my third eye open farther than it ever had before and I saw Samael, in the spirit world. He had a black cloak covering his face, and 12 bat wings on his back. His harem of Valkyries danced about, and came and marked me and every other inquisitor, including Hugo. I knew that Valkyries would mark people before and during battle, deciding who lives and dies. Being able to see the Valkyries was incredibly difficult at the best of times, but they were crystal clear right now.
 
-The giants charged as manhawks swarmed. I dodged left and right shield in one hand and sword parrying in the other just fighting for my life. One by one the inquisitors started to fall as Samael laughed from the spirit world.
+The giants charged as manhawks swarmed. I dodged left and right, shield in one hand and sword parrying in the other, just fighting for my life. One by one the inquisitors started to fall as Samael laughed from the spirit world.
 
 "This ends now" I heard Samael's voice in my head. "You have my respect though, for mortals you guys are pretty tough."
 
@@ -256,7 +256,7 @@ I then heard a mad cackle and felt another presence in the spirits world. A blac
 
 "Yeah but that was then! I'm a fraction of that power now!!!" He screamed like an angry toddler. He then doubled over backwards breaking his back.
 
-It was only me, Hugo, Master Sean, Robbie and one inquisitor left but we all started moving in perfect unison. The wasps lost their form and started flying into our swords. We were all dancing like Hugo did, in perfect unison with each other creating a dance of absolute slaughter. An unending supply of wasps came out of the woods as we all danced. I didn't even feel in control of my own body as I killed dozens of wasps.
+It was only me, Hugo, Master Sean, Robbie and Jon left but we all started moving in perfect unison. The wasps lost their form and started flying into our swords. We were all dancing like Hugo did, in perfect unison with each other creating a dance of absolute slaughter. An unending supply of wasps came out of the woods as we all danced. I didn't even feel in control of my own body as I killed dozens of wasps.
 
 Jon danced away from the group and giant came to meet him. It swung it club to the ground and he stepped out of the way. The club hit the ground uselessly as he cut off the giants hands. He jumped on top of Dora the Slug and cut off her head.
 
