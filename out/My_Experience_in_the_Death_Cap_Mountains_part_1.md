@@ -187,3 +187,5 @@ I never got to hear the rest of her idea because at that point Max came back fro
 “On three,” I said. “One… two… *three!”* 
 
 We all ran at once. The three humanoid monsters turned to gaze at us through their opaque eyes but didn’t make a move. Before I knew it we were all in the car, Naomi in the driver’s seat starting the engine, me in the passenger’s seat and Max sprawling across the back. As soon as Naomi had turned the car on and began driving across the parking lot, the three monsters crab-walked into the forest, scattering in all different directions. By the time the headlights turned back onto the dirt road, all signs of the three creatures had faded behind the thick foliage and bushes of the forest.
+
+Part 2 can be found at https://www.reddit.com/r/nosleep/comments/zequ0o/my_experiences_in_the_death_cap_mountains_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
