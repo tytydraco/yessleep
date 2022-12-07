@@ -6,7 +6,9 @@ Part 2
 
 [https://www.reddit.com/r/nosleep/comments/zbbsgn/the\_daughters\_of\_perdition\_part\_2/](https://www.reddit.com/r/nosleep/comments/zbbsgn/the_daughters_of_perdition_part_2/)
 
-&#x200B;
+Part 3
+
+[https://www.reddit.com/r/nosleep/comments/zexlgn/the\_daughters\_of\_perdition\_part\_4/](https://www.reddit.com/r/nosleep/comments/zexlgn/the_daughters_of_perdition_part_4/)
 
 &#x200B;
 
