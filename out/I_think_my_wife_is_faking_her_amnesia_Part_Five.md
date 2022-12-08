@@ -1,5 +1,4 @@
 
-
 [Part Four](https://redd.it/zaywv7)
 
 **** 
@@ -135,6 +134,6 @@ Suddenly the lights went out, plunging the house into darkness.  In my arms, it 
 
 “Wha…what the fuck…”
 
-From the direction the doorway, I heard Cody’s voice from across the dark.
+From the direction of the doorway, I heard Cody’s voice from across the dark.
 
 [“I think it’s time.”](https://redd.it/9ndww5)

@@ -1,0 +1,29 @@
+Might I just start this by saying do not copy what me and my friends did many years ago. We were young, dumb and massive adrenaline junkies. 
+
+Back a few years back on a lovely Summer's day, me and my friends decided to get out of the house in the blazing heat and go explore an abandoned farmhouse a few miles away from my neighbourhood, because hey? You only live once. Anyway, on the way there we were laughing talking about nonsense and my friend, Max, brings up how in this farmhouse, a thirteen year old girl fell out of the attic window back in the 1900s. This unsettled me, but I didn't get to scared because I was raised to believe that such things were just fairy tails or make believe to scare people. And I fully believed that until what happened on this day.
+
+When we got to the actual farm, the first thing we saw was an old, red tractor with a smashed window and some crumbling, old wheels. Behind the tractor was mounds and mounds of hay bales and a shabby, aged rake. The actual farmhouse was an entirely different site to be hold however. It was practically falling apart, and the window the girl apparently fell through, I could see why, there was no glass pane covering the empty hole in the attic. It was the picture definition of a dump, and for that reason I didn't want to be there. I felt it was dangerous, maybe it could collapse on us when we were inside.
+
+"Yo Max, Jay, are we really going in here? I'm not scared or anything, just.. what if it collapses on us? I mean look how old and worn out this place is"
+
+"Shut up and man up, come on, how about we play hide and seek to make it less scary?" suggested Max with Jay in the background agreeing. So with a bit of peer pressure and name calling, I agreed to go and play hide and seek. We walked towards the barn with this atmosphere and overwhelming feeling of someone following us. Infact, we even turned around every 5 or so seconds to check if someone is following us. 
+
+"So, who's hiding and who's counting?" Asked Max the second we stepped foot inside the barn, 
+
+"How about me and Max count and you hide, Sam?" suggested Jay. I agreed and wandered around the barn before choosing a permanent hiding spot. At first, I considered the bathtub in the old, rustic bathroom. But quickly changed my mind because I actually wanted to stay hidden for a long time and become the hide and seek champion. So, I chose a cupboard in the left hand corner of the attic, it stunk of a dead person, or something rotting at least, but hey, gotta do what you gotta do. 
+
+"3,2,1.. COMING!" I heard Jay and Max scream in unison as they dashed up the old, wooden stairs giggling like a child on Christmas. I started laughing as I knew they wouldn't find me, especially after the story Max told about the girl, they wouldn't dare even look in the direction of the attic stairwell. For  about fifteen minutes, Max and Jay were both shouting things like "I guess you're not there!" Or "Hmm, not there either?" I giggled a bit every time they made a sigh or complained about where I was hidden. 
+
+After another five or so minutes, Max screamed as loud as he could "Sam! We're leaving, feel free to come with us if you'd like. Or just stay in this disgusting barn all day we don't care." I felt it was a last minute attempt to get me out of my hiding place so I stayed put.  My thoughts were proved right a few hours later when I heard boots thumping up the stairs towards the attic door. I was going to jump out when I looked on my phone and realised my dad had text me saying:
+
+"Son where are you? Max and Jay are worried sick! They left you about two hours ago and you still haven't returned home! Do I need to call the police?" 
+
+My entire world froze, the sudden realization sinking in. My friends left me in this barn with someone else. I started shaking. Don't get me wrong. I'm not relatively scared of anything, I have a decent build for my age and I was a kickboxer but something told me to stay put because whatever was out there, merely inches away from my sanctuary of this cupboard, was stronger than me. But I calmed myself down after about ten minutes or so and got out of the cupboard guns blazing. But what I was met with wasn't scary or even an ugly site, but a young girl, looking to be about twelve to thirteen with blonde hair and lovely, sapphire blue eyes.
+
+"H-hey, you lost kid?" I asked her, curious about where she had come from or if she was lost in this farm complex. She shook her head and just walked away from me, I was confused so I followed her to wherever she was going, she seemed to know her way around this barn house pretty well. Eventually, she lead me to the exit.
+
+ I was grateful but also confused to who she was, when I asked her however, she smiled and said "Watch this!" I giggled at the sudden outburst of energy from this young lady and watched her with amazement as she ran up the barn stairs and poked her head out of the attic window. Without warning, she jumped out of the window and her face hit the floor metres away from me, all I can remember seeing was her smashed up crumpled up face spraying with blood until I passed out.
+
+I woke up on my dad's bed with Max and Jay surrounding me along with two officers. They asked me to explain the situation as the police and my friends had been looking for me for hours, I did as they pleased and my friends immediately started pressing me about what had happened and bombarded me with questions like "what did she look like?" "was there blood?" "weren't you scared?" "Why didn't you follow us?" My dad on the other hand got me some psycho therapy and antipsychotics as he thought I was psychotic or possibly schizo. 
+
+Ever since that day, I've been going to therapy 4 days a week and taken off the medication as what happened was real. And I think my therapist and dad both finally believe me.
