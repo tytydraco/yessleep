@@ -1,0 +1,43 @@
+I don't know who this is going to reach, but I just want this story to exist once I'm gone. I want it to live on somewhere, even if that place is just an internet forum for spooky experiences. At least the anonymity of reddit should protect me from any real-world consequences of the things I'm sharing here.
+
+To preface, I haven't lived a very successful life. I'm the type that people warn their kids about, the type that lives alone in a tiny apartment and spends all their time on the internet, flitting between part-time jobs in a desperate attempt to stay on top of rent. Maybe I'm making excuses, but I swear it was the things that happened by the old bakery that led to this. I've been alarmingly unsuccessful in everything I've ever tried, so much so that I've been shunned from my own (admittedly very religious) parents for being 'cursed'. I don't believe in curses, but even I don't think this is all just one grand coincidence.
+
+Alright, I've waffled on long enough. The main events of this story took place seventeen years ago, when I was nine years old. About half a year prior, I'd moved out to the countryside of Germany to live with my grandparents. I don't remember the exact reason I moved away from my parents, but I do remember that there was a lot of arguing between them and my grandparents. My grandparents, for whatever reason, were adamant that I go live with them on my ninth birthday. My parents didn't understand, and I didn't either, but eventually they agreed to let me move for the time being.  
+My grandparents lived in a pretty standard old house, on the banks of a river. Opposite the river, about a kilometre away, was a huge sprawling forest. Due to its proximity to the house, it was where we usually went to play. And yes, we, because it wasn't just me staying with my grandparents. There was another kid, a few years older than me. I'll call him Alex. It wasn't his real name, but it feels respectful to keep him anonymous.
+
+I don't remember why Alex was living there. I don't think he was a family member, though I also can't think of any other reason why he would be living with my grandparents. He was there well before me, I think he'd been living there his whole life. This meant he knew the surrounding area, especially the forest, far better than I ever did. He was the most energetic kid I'd ever met, always grinning and tugging at my arm to go investigate whatever new interesting thing he'd just found. He had stark white hair, and piercing blue eyes. I was worried at first that he wouldn't like me, but despite the age difference we immediately became the closest of friends. Within a week he might as well have been my brother.
+
+Like I mentioned earlier, we often played in the old forest. My grandparents warned us constantly of the danger but I think they trusted Alex to keep the both of us safe.  
+When I first arrived, Alex had plenty of places he wanted to show me. There were a bunch of old crumbling ruins that the forest had claimed decades, perhaps centuries ago. We used to sit on the remains of an old fountain and fantasize about what might once have been there, but I think it was pretty clear to both of us that it was just the remnants of a town lost to time.
+
+That fountain was Alex's favourite place in the whole forest. No matter where we went, we always ended up back at the fountain. I never really understood why he liked the place so much, but his joy was contagious enough to keep me content during the many hours we spent there.  
+I, of course, also had a favourite place. The ruins of a bakery, a little ways off from all the other structures. I don't really understand how we knew it was a bakery, but that's what Alex told me and it made sense in my head. This place wasn't quite as ancient as the rest of the town, but Alex hated it.
+
+I didn't really understand why at the time. I told him constantly that he was just being a baby. I only wish I'd taken his apprehension seriously.  
+For the same reasons Alex was afraid of the place, I was intrigued by it. A sickly layer of dark sludge coated the whole place, from the stone bricks to the surrounding trees. The trees themselves looked... stunted, in a sense. That's the only way I can think to explain it.  
+But most notable of all, were the holes and the bugs.  
+Peppered throughout the surrounding like scattered buckshot were holes. Varying in diameter from a few centimetres to about half a metre, they stretched deep into the ground. We never really found out how deep, but deep enough to keep us wary of them. Even despite our young age and my fascination with the place, we knew that falling down the larger ones would be a death sentence.
+
+But the holes weren't always empty. Some of them were filled with hundreds, probably thousands of dead insects. The bugs were *everywhere,* even in the bakery itself. There were some really big ones too, the largest of which lay crushed under a fallen pillar in the centre of the bakery. It was probably the size of a small dog, though everything always seems so much larger in childhood memories.  
+Like I said, the place really freaked Alex out. He never got too close to the ruins, and always insisted that we stay far away from it. But I loved the place. I'd always had a morbid fascination with the supernatural or otherwise unusual, and this place just felt... I don't know, it felt like it belonged to a world outside the one I'd spent the rest of my life living in. It was undeniably evil, and I couldn't get enough of it.
+
+Due to how much Alex despised the place, we never played there. We always spent our time at the fountain, or other various places of interest throughout the forest. Sometimes we'd just walk around with no real destination in mind, taking in the atmosphere of the woods.  
+But one day, I tired of always doing what Alex wanted. I pestered him all morning, and begged him to go with me to play at the bakery. Eventually he agreed, so long as I promised to not tell my grandparents about it.
+
+When we got there, things were going pretty well. The derelict walls of the bakery were pretty fun to balance on, and we pretended to be warriors sparring on a thin bridge. Sticks were our swords, and we yelled battle cries into the still forest. We'd played pretend like this plenty of times, but this time was... different, somehow. It was so much easier to believe in the scenario we'd crafted. I remember seeing it in his eyes, he felt it too. For that brief moment, we weren't two kids playing on an old wall. We really were two knights, battling furiously to the death. We wanted each other dead.
+
+His eyes glowed with a malice I'd never seen before, and his blows grew ever frantic. I was afraid, and in my fear I struck him.  
+The sticks we held were relatively harmless, mere blunt lengths of wood. But when mine connected with his torso, it wasn't a stick anymore. For that instant, it really was a blade. It tore open his shirt, and pierced his flesh. Blood flashed before my eyes, and he tumbled from the wall.  
+I've constantly relived that moment in my dreams ever since. I vividly remember the way his eyes shifted as he fell, from anger to mortal terror. He stared at me pleadingly, but I knew it was already too late.
+
+He hit the ground with a sickening crunch, and shrieked. For whatever reason the sound scared me more than the idea of him being injured, and I jumped down to clamp a hand over his mouth. He looked up at me wildly, surely baffled at my reaction. He kept trying to scream.  
+He didn't seem too hurt, other than his left leg. It stuck out at an unnatural angle, and even with my limited knowledge I could tell that it was broken.
+
+But those cries were painful to me. Not because my best friend was suffering, but because I was afraid that somebody would hear and I would be blamed for his injuries. In hindsight, we were thousands of metres away from anybody. I think I knew that at the time, but it didn't matter.  
+I grabbed Alex, and with a strength I'd never before known lifted him onto my shoulder. I carried him over to one of the larger holes and... and I threw him in.
+
+Grandpa found me hours later, still crying on the ground. I told him it was Alex's idea to come here. He believed me.  
+The police were briefly involved, but they dismissed the case pretty quickly when they heard what had happened. I didn't think much of it at the time, but I guess they knew about the bakery.  
+There's so much more to this story that I'm yet to uncover, but I don't think I want to know. I fucked with things best left alone, and my best friend died. To this day, everybody still thinks it was an accident.
+
+Everybody but me.
