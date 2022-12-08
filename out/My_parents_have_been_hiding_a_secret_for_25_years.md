@@ -20,7 +20,7 @@ He couldn't finish the sentence. I clamp my lips not wanting the sob to escape b
 
 My mother let out a heart-wrenching cry. "I know. I thought it was love but maybe it was selfishness. Selfishness only a parent can have "
 
-The rest of the conversation was drowned in cries. I stood there, not sure I understood anything so I did the only thing I could. I called my brother what happened 25 years ago. 
+The rest of the conversation was drowned in cries. I stood there, not sure I understood anything so I did the only thing I could. I called my brother and asked him what happened 25 years ago. 
 
 "You don't remember?" He said hesitantly.
 
