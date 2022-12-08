@@ -1,5 +1,4 @@
 
-
 [Part Two](https://redd.it/yyvv8q)
 
 **** 
@@ -176,3 +175,7 @@ I was getting back in the car when I got a call from Cody’s number.  I barely 
 I frowned as I cranked up the car.  “Why?  What’s going on?”
 
 [“They got here early!  Our baby’s home!”](https://redd.it/9ndww5)
+
+**** 
+
+[Part Four](https://redd.it/zaywv7)
