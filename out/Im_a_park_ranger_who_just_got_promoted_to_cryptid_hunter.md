@@ -1,18 +1,20 @@
-  
+Part 1
+
+&#x200B;
 
 I wanted to post this so people would know what happened. So the real truth would be known no matter what official sources might say.
 
-I’m a pretty reasonable guy, or at least I think so. I’ve worked in a state park for years now and I have yet to come across any problems I couldn’t handle. 
+I’m a pretty reasonable guy, or at least I think so. I’ve worked in a state park for years now and I have yet to come across any problems I couldn’t handle.
 
 Until the day my boss approached me with an unusual request. Being the calm, cool, individual that I am, I replied in my usual low-key style.
 
-\*\*\* 
+\*\*\*
 
 “You want me to what?” I said, trying to keep my voice under control so my boss didn’t fire me.
 
 “Look, I know this is weird,” Ken said. “I’m having a little problem with it myself, but if it’s true, we need to do something.”
 
-“But why me?” 
+“But why me?”
 
 “Because you’re our best tracker.”
 
@@ -48,11 +50,11 @@ It was my turn to sigh.
 
 “Good luck.”
 
-I shook my head as I stepped out into the cool autumn air. September had been unseasonably warm, but the last week had brought cooler weather and the threat of early winter. 
+I shook my head as I stepped out into the cool autumn air. September had been unseasonably warm, but the last week had brought cooler weather and the threat of early winter.
 
 In other places that might not be such a problem, but here in the mountains, snow could be deadly. I wasn’t looking forward to winter in the least. But then, I never do.
 
-I looked out over the foothills of the mountains that were still green but had just a hint of the leaves about to change. I knew that soon this would be one of the most beautiful places on earth. 
+I looked out over the foothills of the mountains that were still green but had just a hint of the leaves about to change. I knew that soon this would be one of the most beautiful places on earth.
 
 I found Glenn out on the trail. He was bent over examining the ground when I walked up. He stood and looked down at me. At six foot two, he towered over me, and even though he never said anything about it I always got the feeling it gave him a superior feeling. Maybe it was just me.
 
@@ -150,7 +152,7 @@ He pointed them out and I bent down to get a closer look.
 
 “I’ve already found some more, but they all look like these,” I said. “They must’ve been made by the same animal.”
 
-“It’s not an animal,” he said defensively. 
+“It’s not an animal,” he said defensively.
 
 “Ok, look, I get it. You’re young, you haven’t been here very long, what like a year now?”
 
@@ -484,7 +486,7 @@ I looked at him for a moment.
 
 “Couldn’t hurt,” I said with a shrug.
 
-We went to the armory and grabbed the only remaining shotgun. It seemed like the other rangers had the same idea. 
+We went to the armory and grabbed the only remaining shotgun. It seemed like the other rangers had the same idea.
 
 We searched other trails around the area, avoiding the one the dogs would search in the morning, to reduce the chance of us contaminating the scent.
 
@@ -500,11 +502,11 @@ The dog he’d tried to pet reinforced his handler’s statement by staring at G
 
 “Enough,” the handler said, rubbing the dog’s fur. “He’s on our side.”
 
-We showed them the trail and they took the lead. The dogs sniffed all over the trail all the way down to where we first saw the old man. At that point, it was like someone just gave them a triple shot of caffeine. They raced up the hillside, practically dragging their handlers. It was all Glenn could do to keep up. I’m ashamed to say I fell behind. Climbing a steep hillside isn’t something I do every day. I was keeping up until the first time I slipped and nearly rolled down the hill. 
+We showed them the trail and they took the lead. The dogs sniffed all over the trail all the way down to where we first saw the old man. At that point, it was like someone just gave them a triple shot of caffeine. They raced up the hillside, practically dragging their handlers. It was all Glenn could do to keep up. I’m ashamed to say I fell behind. Climbing a steep hillside isn’t something I do every day. I was keeping up until the first time I slipped and nearly rolled down the hill.
 
-It was then that I traded speed for caution. 
+It was then that I traded speed for caution.
 
-When I got to the top, the dogs had found three tents. 
+When I got to the top, the dogs had found three tents.
 
 No one was looking into them they were just looking at them. Even the dogs were pulling to get away from the tents. Their handlers had to tie them to trees to keep from getting dragged back down the hill.
 
@@ -516,11 +518,11 @@ I looked from face to face and saw fear.
 
 I looked at him questioningly and he just walked away.
 
-I took the initiative and opened the flap of the closest tent. 
+I took the initiative and opened the flap of the closest tent.
 
 I wished I hadn’t.
 
-The flies and the stench of decay hit me at the same time. I nearly lost my breakfast. Begrudgingly I went to the next two tents and found a similar scene. 
+The flies and the stench of decay hit me at the same time. I nearly lost my breakfast. Begrudgingly I went to the next two tents and found a similar scene.
 
 No one else seemed to want to do anything other than get as far away from the tents as possible, so I picked up my radio and called Ken.
 
