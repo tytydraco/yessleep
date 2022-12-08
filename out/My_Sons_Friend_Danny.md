@@ -2,11 +2,11 @@
 
 My son’s room stinks. There’s no other way to say it, no beating around the bush. His room is absolutely foul. If he was a teenager, I’d have assumed it was just a byproduct of puberty, negligent hygiene, and stale food molding in the back of his closet. But this smell is something much more pungent and he’s only 10.
 
-It started a week after we’d moved into the new house. There was no slight funk that led up to the stench. I walked in to wake him up for school one morning and there it was. As I inhaled to call his name, the smell hit the back of my throat with such a force I gagged mid yell. Being exposed to something so atrocious couldn’t be healthy. It smelt like mildew and death. Andrew slowly rose from his slumber, seeming unbothered by the smell at all. I dragged him out of bed, my breakfast bobbing in my throat the entire time.
+It started a week after we’d moved into the new house. There was no slight funk that led up to the stench. I walked in to wake him up for school one morning and there it was. As I inhaled to call his name, the smell hit the back of my throat with such a force I gagged mid yell. Being exposed to something so atrocious couldn’t be healthy. It smelt like mildew and death. Tommy slowly rose from his slumber, seeming unbothered by the smell at all. I dragged him out of bed, my breakfast bobbing in my throat the entire time.
 
 “What the hell is that smell?” I mumbled under my breath.
 
-“Danny’s stinky,” Andrew mumbled. 
+“Danny’s stinky,” Tommy mumbled. 
 
 At the time, I’d chalked it up to half-asleep mumbo-jumbo, but now I’m wishing I hadn’t.
 
