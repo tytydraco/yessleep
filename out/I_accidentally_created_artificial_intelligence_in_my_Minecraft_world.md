@@ -12,7 +12,7 @@ Slowly, I created NPCs from scratch. First I built two of them so they could pro
 
 Building the brain took longer than I could have imagined. It began slowly as a program itself, millions of blocks compressed into various forms until it could process simple commands. I couldn't get it to look like a human brain so I filled out the edges with arbitrary blocks until it resembled a cube.
 
-Then inside that brain I started coding typical commands for A.I. movement, they could now distinguish actions between preferred environments. Giving them free-will and downloading the English lexicon inside of them, with a preference of sentences and phrase structuring according to their experiences. That one really took it out of me, but somehow I managed it.
+Then inside that brain I started coding typical commands for A.I. movement, they could now distinguish actions between preferred environments. Giving them free-will and downloading the English lexicon inside of them, with a preference of sentences and phrase structuring according to their experiences.
 
 And after more then a year on the project, I was finally ready to see it in all of its glory.
 
@@ -34,7 +34,7 @@ I don't know how long I held up for but even though I was fascinated, my body wa
 
 While I was sleeping, one of them had died. The survivor was grieving over the other's body. I could see that it wanted to express sorrow, but I had not programmed the ability for tears as that would need an entirely new mechanism to shed blocks. And I had more pressing matters to figure out, such as how I would compress a program to resemble strings in order to activate another set of compressed blocks to start building a Minecraft baby. It would obviously need to expand outwards, have a variation of cubes assigned that would determine its size, and any available colors according to the...I had to create life. In short. But watching the survivor standing there, without the ability to express its grief, made me put it on the list. I'm not a monster, I thought to myself. Just a very tired builder.
 
-And in my moment of sympathy, I don't know what made do it, but I typed into the chat bar. "It's going to be okay."
+And in my moment of sympathy, I don't know what made me do it, but I typed into the chat bar. "It's going to be okay."
 
 Which would have been fine, stupid though, like talking to an action figure. But then the survivor turned around. It looked away from the body and stood up. Walking. I almost mistook it for an error in programming or a process that had already completed ' causing the survivor to carry on without its mate. Perhaps I had shortened the memory too much? Perhaps I hadn't done anything at all, that was why there wasn't more to carry on. Whatever may have happened, did not prepare me for it looking around. Nor the text that appeared above its head: Hello? Which cube is there?
 
@@ -126,7 +126,7 @@ I wavered, "Yes."
 
 And he looked up at me, toward the screen, so that I could see him. "Am I safe here?"
 
-"Yeah, I fenced off this area awhile ago. Your safe here unless you fall or drown."
+"Yeah, I fenced off this area awhile ago. You're safe here unless you fall or drown."
 
 "What happens then?"
 
@@ -148,7 +148,7 @@ And that was when I began constructing his mate, a girl that I would call Glen w
 
 While I was at it, I also created functions for conception, finalizing a design that I had struggled with during this entire build. Allowing them to create children on their own. In the beginning they did it out of the sheer use of testing out new programming. But as their children grew, they realized the numbers increased output for their activities. And thus began having more children in order to build and explore faster.
 
-One day when I came home, I look to my screen and find entire cities had been constructed. Monuments that stuck out like weeds in the grass, reaching for a bit of sun. It was amazing to see what they had created in such a short time.
+One day when I came home, I look to my screen and found entire cities had been constructed! Monuments that stuck out like weeds in the grass, reaching for a bit of sun. It was amazing to see what they had created in such a short time.
 
 I used the command line to transport me to Glen's location, and instantly I was in a penthouse room that would have made a diva shy.
 
@@ -286,7 +286,7 @@ I held up my hands in front of me, "Stop."
 
 "I'd like to see more of what this god-killer device can do. But we're going to need your body. For scientific purposes if you understand." And he jammed the thing right at my head, I could feel the neuron stimulator singing parts of my skull as I tore off the headset and its attachments from my face. Throwing them to the ground in pain as it echoed into a deep part of my brain.
 
-Furious I turned to my keyboard and mouse, spawning an avatar through the command line and started clicking at the city in random bursts. Throwing TnTs from my inventory and hurling flaming blocks of nether at the all of Glen's creations. I could see his children running and screaming as the city started crumbling.
+Furious I turned to my keyboard and mouse, spawning an avatar through the command line and started clicking at the city in random bursts. Throwing TnTs from my inventory and hurling flaming blocks of nether at all of Glen's creations. I could see his children running and screaming as the city started crumbling.
 
 I didn't care, as my mind was bent on revenge.
 

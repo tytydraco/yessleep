@@ -36,7 +36,7 @@ My goal was to start some kind of friendship, if only a weak one, before prying.
 
 John lifted his head, stared at me, and did not grace me with a response. All bonding attempts would have been useless, I saw to that it seemed, so I cut to the chase. "Has Em ever tried to turn anyone into an animal around here?"
 
-That got his attention, but he seemed annoyed more than shocked. "Damn it. No, she is not supposed to do that."
+That got his attention, but he seemed annoyed more than shocked. "Dammit. No, she is not supposed to do that."
 
 Well that's great, but it didn't help me. "So that is a thing she does sometimes?"
 
@@ -44,7 +44,9 @@ Well that's great, but it didn't help me. "So that is a thing she does sometimes
 
 If Em was prone to turning people into animals, then that should be in the rules! I went back to the bar (it was a slow day, like most). Barrow was there, but Em was too. It was an awkward, quiet hour before Em announced she had to pee. When she asked Barrow to use the bathroom, she glanced at me and turned red. Pee cup. Why was I embarrassed? It was to save my life! But still, I couldn't help but redden myself. When she was gone, the perfect opportunity to bring the matter up with Barrow arrived. I opened my mouth.
 
-Nope, the drive thru went off. Beep, beep, beep. I *hate* that sound. I hear it in my sleep, I hear it in the sound of my fan running at home. I hear it in the *wind*! Of all the things to haunt me at The Drowsy Spectre, that sound was the worst!
+"Where are the cup carriers?" Keith asked. The new hire was on his second day and honestly was doing a fine job, all things considered. I helped him, but Em was in the bathroom and time was limited so I hurried back to Barrow.
+
+Thwarted again. The drive thru went off. Beep, beep, beep. I *hate* that sound. I hear it in my sleep, I hear it in the sound of my fan running at home. I hear it in the *wind*! Of all the things to haunt me at The Drowsy Spectre, that sound was the worst!
 
 "Welcome to The Drowsy Spectre. Order whenever you're ready!" I forced a smile, keeping an eye on the bathroom door.
 
@@ -86,7 +88,7 @@ Barrow looked up, sighed, then lowered his head. "She tried to turn you into an 
 
 "She has no powers at *all* without them?"
 
-Barrow poured the blended drink into a cup. "None. In fact, if she didn't listen, her giant potion might wear off. It isn't permanent, you know. She has to take it once a month. She takes care of them, the victims, as best she can. In her eyes, though, that doesn't come close to redemption."
+"None. In fact, if she didn't listen, her giant potion might wear off. It isn't permanent, you know. She has to take it once a month. She takes care of them, the victims, as best she can. In her eyes, though, that doesn't come close to redemption."
 
 "What do her parents gain from any of this?"
 
@@ -94,33 +96,43 @@ Barrow poured the blended drink into a cup. "None. In fact, if she didn't listen
 
 I wasn't ready for that at the time. Most of you would say to speak to her, to see her side of things (and I do) but there is something about having your life threatened. My body won't let me go to speak with her, privately or otherwise. Such a distrust has been rooted in my mind that I can't help but hold a grudge that I don't want. I will get there, though. I will grow to forgive her because I am determined to.
 
-\--------------------------------------
+Look, I know customer service comes first, but we got so caught up in talking that the drink sat in the blender about thirty seconds past the point it was finished. That happened often when we were slow, which is bad I know but no one is going to die because their drink took a few extra seconds. No one except us, it would seem.
 
-That was the quick update to the entire Em situation, but there is more that happened. Later I will tell you all about my hunt for who stole my laptop, but something much darker occurred Monday. We were training the new hire (it was their second day, Sunday being their first). They knew about the rules, they were aware that nothing in the store (or outside) was normal. Like me, they came from one of Richard's other shops. That meant that training was very lax and more focused on making sure they didn't screw up one of the rules. The new hire packet did not have everything in it, there was a growing binder of rules that, if broken, might get you hurt or killed. Sometimes worse.
+The drive thru window shattered. From where we stood by the blender, we could not see the window. It was around the corner, by the drive thru's register. The lights went out, as if drowned by a sharp cold that sucked the life from the café. Neither Barrow or I moved to check what had happened, but an image of the customer without eyes climbing through to berate us for tardy work entered my mind. I turned to Barrow, hoping he would have something to say. I thought he had been standing right next to me.
 
-Keith was his name. Just a few years older than me at twenty five. Nice guy, honestly, and did good work. Considering our menu is the same at all locations, including this one, he made a super smooth transition. Even the terrifying things that constantly met him at the front counter barely phased the guy, he was so easy going.
+He wasn't.
 
-Barrow had to run trash. That involved loading up the trash bags, putting them into a cart, then going down the drive thru to the dumpster (come to think of it, I have never seen a trash truck come by to empty it. Huh.). Since Tall Ben was a threat, as was everything else out there, any trash runner had to wear protection. It was a necklace, one very similar to what Rykar wore when he crashed our team meeting. Same shape, only right-side up. Tall Ben didn't bother you if you wore that but, according to Selene, it didn't last long enough to be trustworthy outside of a chore or two.
+When I say it was dark, I mean black. All light was torn away, everything but me. Then I was gifted moonlight, which poured from around the corner. From the window. I made the only decision I could, the only option given; I turned the corner to the window. 
 
-I was at the drive thru, Keith was stocking a fridge from overflow in the back.
+I saw the drive thru, the same car that had ordered the impossible frappe, and the forest beyond the car. Nothing outside had changed. But the customer, she wasn't right. An eyeless face whispered to me, whispered things I could not understand. She gripped her steering wheel so tightly that her knuckles were tearing. I could see the meat underneath, the bone peaking through. 
 
-Knock knock.
+She released her grip and put forth her hands, facing me. Her eyes were in her hands. "Ye have accepted the impossible request, knowing it could not be done." Was she talking about the cappuccino frappe? "I name ye Fatewriter, for what ye shall do has been writen by another. A world is in your hands, o' Pillar King."
 
-If I am honest, I still jump when I see Tall Ben's face in the window. I focused my mind, grabbed the latch, and pulled the drive thru window open. He was so damn close to the opening! There is something about his eyes, too. I think he is in my head, so I avoided staring. When I did that, I felt much more in control. No more climbing out the window against my will.
+Pillar King? Fatewriter? "I have your drink." Was all I could think to say.
 
-Yeah, most of you will call me stupid, but maybe Tall Ben could be an ally. Maybe, just maybe, he could be reasoned with. "First, I am not coming outside. Second, what do you want?"
+"Write and lose all things." She said as her car seeped into nothing. It unraveled at the seams, as if iron were just threads connected far too loosely. However, she remained floating, as if her seat still existed. The whispering continued even as she drifted into the dark of the woods, into the very same trees that Tall Ben and all other creatures that plague us live. 
 
-"Just stopping by to say hey. Want to do some late night fishing down at the lake?"
+"Burn thy candle."
 
-He could not turn off the instinct to trick me. "Not this time. Say, what do you know about Em's dad?"
+I leapt, spinning around with an open hand to strike whatever had whispered in my ear. There was only open air, however, and the lights were back. Of all the things I have dealt with at the Drowsy Spectre, nothing has raised my hairs. Not Tall Ben at my apartment, nor Rykar's visit during our team meeting. Pillar King... that caused my heart to skip a beat, my breath caught when I consdiered what it might be. I wasn't supposed to know, or that is how I felt; reality itself resisted any attempt my mind made. 
 
-"Could probably answer you, if I just had some meat. We had a deal, remember? Just hit up a store or something, get a few pounds of ground beef. Easy deal!"
+"I'm running trash." Barrow announced from near the kitchen, giving me a thumbs up. I nodded, still hard at thought. 
 
-I could see Barrow coming back down the drive thru, nearly at the door. Someone had to get the door since it locked from the inside once shut, but when I called out for Keith I did not get a response. I should have just waited for Barrow to knock, but I knew that the necklace didn't work forever and Tall Ben was just around the corner from Barrow. I acted, making the best decision I knew of at the time. When I went through the kitchen, Keith was just coming up.
+Where was Em? Was I actually back? I threw open the drive thru window, frozen frappe still in hand, and ingored the looming Tall Ben just outside.
 
-"Can you watch the front?" I asked as I passed him, he nodded and headed to the bar.
+"Looking for something? Come on out, I will help you find it." He offered.
 
-I opened the door for Barrow just as he arrived. "Tall Ben is at the window."
+"Shut up for a second."
+
+"Wallet? Might be in the parking lot. Let me help!"
+
+"QUIET!" I shouted at him, staring hard into the woods. I could still hear the whispering.
+
+Running trash involved loading up the trash bags, putting them into a cart, then going down the drive thru to the dumpster. Since Tall Ben was a threat, as was everything else out there, any trash runner had to wear protection. It was a necklace, one very similar to what Rykar wore. Same shape, only right-side up. Tall Ben didn't bother you if you wore that but, according to Selene, it didn't last long enough to be trustworthy outside of a chore or two.
+
+Barrow was on his way back and Keith was on the other side of the store, grabbing cup carriers *still*. I don't know exactly how long the necklace lasts, but it did not seem wise to leave Barrow outside. You see, it locks from the inside and that means someone would have to open it for anyone running trash. Seeing as Tall Ben was right around the corner, I didn't want to risk anything. I hurried to the back door and passed Keith along the way.
+
+He'd finally found the carriers. "Can you watch the front?" Keith nodded. I opened the door for Barrow. "Tall Ben is at the window."
 
 "Oh. That's lovely."
 
@@ -136,32 +148,16 @@ Barrow shook his head. "He is long gone. All we can do is hope that he's already
 
 Try not to dwell on the fact that a coworker was just snatched from us? I seriously don't understand how he was able to write off what happened, as if it was nothing!
 
-Then I realized that Em was nowhere to be seen. No, I thought. No, please no. Sure, Em had almost turned me into a frog or whatever, but she didn't deserve that kind of fate. We did find her, safe in the back near where we keep overstock sodas on the other side of the store (believe it or not, but the café is way oversized). Em was crying, but not over Keith.
-
-She had been cornered by an apparition, one of a woman slightly taller than her. I could see through her black hair, just barely, and through her body. She wore clothes fit for a hike and had a small backpack on.
-
-The ghostly woman glared at us both. "Where's my body?"
-
-"Huh?" I asked, still shaken by Keith and not able to fear the ghost before me.
-
-"My body! The gecko!"
-
-Wait a second... "Laura? You're alive?!"
-
-"Obviously not!"
-
-I guess ghosts aren't alive. "I have the gecko. It is just a normal gecko now, though. I thought you hated being a gecko."
-
-"At least I was living! Put me back in it!"
-
-Yeah, I didn't know how to do that. I left the question to Barrow. "There might be a way."
-
-She turned crimson. "There better!" Then exploded in a fine mist that smelled like... febreze? Weird.
-
 But that is pretty much it. I've been here, at home, trying to reconcile with the fact that Keith died. I've been trying to convince myself that I *did* close the window. I've been up all day, and yesterday. But I know that even if I did I could have made sure he knew Tall Ben was there. I could have done something. Maybe Barrow is right, though. Maybe I should try to feel less, perhaps I need to disconnect my feelings from work. That doesn't feel right, though.
 
 That doesn't feel human.
 
 Usually I have a little tidbit at the end, maybe a lesson I learned during whatever hell the café put me through, but I don't this time. Except, maybe bad things just happen. Maybe they aren't worth dwelling on. I don't know, that sounds bad because that means not dwelling on Keith and who he was. What do we even tell his family?
 
-I'll try to get back to you guys soon. Sorry about the long wait, I've got to find the laptop thief.
+Is it wrong that the creature without eyes is heavier on my mind? I think that is what weighs so much guilt upon me. Her words, all that she said; it keeps me up. I can still hear the whispering. Keith's death doesn't whisper. It doesn't steal my dreams, nor does it make me stare at the doorframe of my bedroom. Did I break a rule?
+
+I can still hear the whispers, just outside my room. 
+
+\--------------------------------------
+
+Edit; some stuff happened with Laura that was originally here in this post, but I wanted to edit it out and save that for a bigger update. 
