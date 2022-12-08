@@ -1,3 +1,7 @@
+[Previous Story](https://www.reddit.com/r/nosleep/comments/za4iq5/i_do_tech_support_for_the_supernatutural_today_i/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 I was desperately trying to scrub blood out of a microfiber cloth when I got Eli's call. 
 
 "City morgue, you stab em', I slab em'," I answered.
@@ -110,13 +114,13 @@ He grinned up at me and nodded his head. 
 
 I let that one go. I figured I might be able to squeeze one or two more nuggets of information out of this kid by the end of the day, and I didn't want to waste a question on unicorns. I just nodded, blew out a breath, and swept my bag up on the way out the door. 
 
-"My number is on the table, call me if anything happens, okay?" I called as the door clicked behind me. I turned around and flinched. 
+"My number is on the table, call me if anything happens, okay?" I called as the door clicked behind me. I turned around and flinched.
 
 "eeeaaaaghhhh!" I repeated.
 
 Nathan was standing right in front of me on the sidewalk. 
 
-"You've gotta stop doing that," I complained on an outward breath. 
+"You've gotta stop doing that," I complained on an outward breath.
 
 "Uncle Eli told me I had to stay with you."
 
@@ -230,7 +234,7 @@ Black clouds surrounded us, waving irritably to and fro. They took one coordinat
 
 But it was too late, I saw. The exits were covered with people, surrounded by dark splotchy galaxy clouds of dread filing in from every door. 
 
-They marched in sync towards us, filling the space with beige bodies soaked in ink black smoke. 
+They marched in sync towards us, filling the space with beige bodies soaked in ink black smoke.
 
 I bent down and whispered in Nathan's ear.
 
@@ -260,7 +264,7 @@ In response to the tiny wails, every head in the office snapped towards it, and 
 
 Arnie was at the front of the line and snatched the little goblin from the paper and promptly popped it into his rapidly unhinged jaw. The printer repeated this process, Nathan and I flinching at every step, printing a screaming violet monster that then was consumed by one of the monstrous cloud people around us. 
 
-After a few printed snacks, Arnie walked back up to us, this time his aura a pure beige, being fed by droplets of just about every color in the rainbow emanating from his human body. 
+After a few printed snacks, Arnie walked back up to us, this time his aura a pure beige, being fed by droplets of just about every color in the rainbow emanating from his human body.
 
 "Apologies for earlier, mate. I get really hangry," he chuckled heartily and strolled off. 
 
@@ -292,4 +296,7 @@ He giggled, seeming to straighten a bit in his chair, and I was glad I played it
 
 "Now, what do you say we go beat up your uncle?"
 
-His head bobbed up and down as he beamed, happily shoveling in his last glob of ice cream. 
+His head bobbed up and down as he beamed, happily shoveling in his last glob of ice cream.   
+
+
+[Next Story](https://www.reddit.com/r/nosleep/comments/zegykl/i_do_it_for_the_supernatural_today_i_met_the/?utm_source=share&utm_medium=web2x&context=3)

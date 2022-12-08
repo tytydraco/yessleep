@@ -146,7 +146,7 @@ Sweat absolutely poured off me, both due to being a fatass who suddenly had to s
 
 I booked it out the front door, hearing that thing crashing through the hall, stomping though the floorboards. As I scrambled over the lawn, I turned and caught sight of the door, frame included, busting down in a bundle of smoke. 
 
-I turned frontward and sprinted another ten feet before chancing a look behind me, and at this point I realized two facts. One, the many guards posted around were shooting the former Mr. Kline with what looked like tranquilizer darts, but they were cartoonishly large, filled with bubbling purple goo. The second realization was that I was never making it to the gate before he caught up with me. Each of the monsters steps were gobbling up 3 times my height, stomping out the distance between us with each stride. I might have well have been a toddler making an escape at the mall from a tired parent. 
+I turned frontward and sprinted another ten feet before chancing a look behind me, and at this point I realized two facts. One, the many guards posted around were shooting the former Mr. Kline with what looked like tranquilizer darts, but they were cartoonishly large, filled with bubbling purple goo. The second realization was that I was never making it to the gate before he caught up with me. Each of the monsters steps were gobbling up 3 times my height, stomping out the distance between us with each stride. I might have well have been a toddler making an escape at the mall from a tired parent.
 
 The best defense against Demons is some sigil of faith, but as crazy as this is going to sound, I'm an atheist. As many supernatural spooks that I've seen, the big guy in the sky just wasn't one of them I'd ever been moved towards. My brain flooded with every meaningful thing in my life. A picture of my family or friends? My phone? Maybe I could just drop to my knees and pray to whatever listened? 
 
@@ -180,4 +180,8 @@ I'm hoping he'll be calmer when I get back, and that no startup issues bring bac
 
 Because I was lucky this time, but they were shooting him for a solid 30 seconds from several dozen directions before he even slowed down. 
 
-What happens when they run out of goo? 
+What happens when they run out of goo?   
+
+
+  
+[Next Story](https://www.reddit.com/r/nosleep/comments/zcznje/i_do_it_for_the_supernatural_today_i_faced_the/?utm_source=share&utm_medium=web2x&context=3)  

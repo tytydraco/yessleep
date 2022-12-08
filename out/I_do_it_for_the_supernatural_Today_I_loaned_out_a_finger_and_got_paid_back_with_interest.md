@@ -1,3 +1,7 @@
+I was still gaping, swiveling my head around to see if anyone else was seeing this. But the parking lot was enormous and empty, all cars that had previously been parked having fizzled out as well. 
+
+&#x200B;
+
 "City morgue, you stab them, I store them."
 
 "That's...that's not how it goes, Eli. And you have a lot of freaking explaining to do. I just-"
@@ -52,10 +56,7 @@ With that, he hung up and I was left staring at the phone, still embarrassed at 
 
 This is the text he sent me, along with the client information.
 
-
-*Do not wear pink.*
-*Do not lend.*
-*Leave before 6pm.*
+*Do not wear pink.* *Do not lend.* *Leave before 6pm.*
 
 I went the next day, getting there early as to be out by the time limit. I was met at the front desk by a brunette receptionist with blazing blue eyes and a buck-toothed smile. She wore a bright pink blazer and clean white jeans. I wondered if pink designated something here, and that's why Eli told me not to wear it. I decided not to ask, glancing down at my all black outfit and wondering if black indicated something as well. Eli didn't exactly send me a full manual, after all. 
 
@@ -75,7 +76,7 @@ But as I held the keyboard out to her, she simply smiled, nodding her head and t
 
 Shit, I thought as I plopped the keyboard back on it's stack. I completely forgot about the lending rule. Apparently, she'd let me off this time. Maybe she was just gently reminding me of the rules? Did this even count? It's not like they were *my* keyboards, I was just in the way of them. 
 
-I wasn't sure, but as I turned back, I caught a glance at my hand and stopped dead, my acorn brain working at top speed trying to comprehend what I was looking at. 
+I wasn't sure, but as I turned back, I caught a glance at my hand and stopped dead, my acorn brain working at top speed trying to comprehend what I was looking at.
 
 When I finally figured it out, I gasped so hard I choked on my own spit and broke down in a coughing fit, not able to take my gaze off of my cartoon hand. The middle finger, of all fingers, was just...missing. It was GONE.
 
@@ -187,7 +188,7 @@ As I loaded up and hopped into the bucket seat of my truck, I remembered the las
 
 5:58. Just in time, I thought, with satisfaction. I mulled over that rule, wondering it's purpose. No one in the place seemed too purposefully dangerous, even Monica seeming to think she was giving me a gift. Maybe vampires? Or some other kind of ethereal creature who got cranky at 6pm?
 
-Shaking my head, I started up the truck, deciding I probably didn't want to know, when I head a loud snap of thunder. 
+Shaking my head, I started up the truck, deciding I probably didn't want to know, when I heard a loud snap of thunder. 
 
 The tall grey offices I'd just come out of seemed to shine, vibrating slightly, a half-circle rainbow sparkling over the corners. 
 

@@ -1,3 +1,7 @@
+[Previous Story](https://www.reddit.com/r/nosleep/comments/zcznje/i_do_it_for_the_supernatural_today_i_faced_the/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 "So, ah, what did you do once the slime had, um, given birth to you?"
 
 I sighed. My therapist was doing her best with what I was giving her. It's hard when one person is thinking metaphorical and the other literal. 
@@ -54,7 +58,7 @@ I didn't say "You look like a dude to me," because one, well, I'm nonbinary so w
 
 But second and more importantly, the two figures beside him were definitely not human. Crouching back in the shadows, hunched over and poised with a restlessness that said they were ready to spring at a word, lackeys was the only word that could come to mind. A human man wouldn't have paranormal lackeys hanging on his every word.
 
-They were both horrible, but in opposite directions. One was fat and unkempt, his clothes loose and his face stuck in a scowl. 
+They were both horrible, but in opposite directions. One was fat and unkempt, his clothes loose and his face stuck in a scowl.
 
 See? I thought manically, It does get stuck that way.
 
@@ -66,9 +70,7 @@ I had been alternating between gaping up at this guy and nervously sliding glanc
 
 "I am not a 'guy', either. You are a human," his voice was deadpan.
 
-"uh, yes, i, um, am," my glance slid for the first time toward the street, which was odd for me since I'm always looking for an exit plan. I guess I was just flabbergasted by being accosted by Benny and the jets in broad daylight. 
- 
-But a shimmery filter seemed to separate me from the street. Even the light in the bubble we were in seemed replicated, like warm fluorescent lighting. 
+"uh, yes, i, um, am," my glance slid for the first time toward the street, which was odd for me since I'm always looking for an exit plan. I guess I was just flabbergasted by being accosted by Benny and the jets in broad daylight.    But a shimmery filter seemed to separate me from the street. Even the light in the bubble we were in seemed replicated, like warm fluorescent lighting. 
 
 "You have been playing with a man named," he paused, seeming to think as my attention was snapped back to him, "Eli? Is it?"
 
@@ -88,7 +90,7 @@ His glance flicked back to me and the entire power of his cobalt blue gaze hit m
 
 He seemed like the kind of guy who was used to his questions being rhetorical, even the idea of refusing comical. It lit a small fire in me, chasing the cold of fear out for a moment. 
 
-"Listen, not-dude and not-guy, I'm a contractor, okay? I go to who pays me. Keep your quabbles between you," my voice started strong but shrank bit by bit until I was almost whispering the last word. 
+"Listen, not-dude and not-guy, I'm a contractor, okay? I go to who pays me. Keep your quabbles between you," my voice started strong but shrank bit by bit until I was almost whispering the last word.
 
 The goonies behind him had seemed to swell half their size, and the light in the bubble slowly transitioned from the dull blue to a light glowing pink as he stared steadily down into my face. 
 
@@ -204,4 +206,7 @@ Frazzled but out of energy to think about it, I watched them stroll away before 
 
 "You better be dead," read a text from him. 
 
-Oh, don't you worry, Eli, I thought, this was a call I couldn't wait to return.  
+Oh, don't you worry, Eli, I thought, this was a call I couldn't wait to return.    
+
+
+[Next Story](https://www.reddit.com/r/nosleep/comments/zfsgyb/i_do_it_for_the_supernatural_today_i_loaned_out_a/?utm_source=share&utm_medium=web2x&context=3)
