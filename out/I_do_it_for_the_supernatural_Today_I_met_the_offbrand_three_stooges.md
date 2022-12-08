@@ -122,7 +122,7 @@ As I was debating my willingness to pray to the ether, he had come up just about
 
 "You should have listened, Woman."
 
-He raised his hand and I closed my eyes, not wanting to catch sight of any of myself exploding around the alley. Before I could even squeak again, something soft banged against the back of my knees, causing my legs to buckle underneath me. A flash of silver popped up in front of me, topped by a familiar growth of caramel brown.
+He raised his hand and I closed my eyes, not wanting to catch sight of any of myself exploding around the alley. Before I could even squeak again, something soft banged against the back of my knees, causing my legs to buckle underneath me. A flash of silver popped up in front of me, topped by a familiar growth of onyx curls.
 
 I let out a short shriek as I landed on my ass, moaning and rubbing my hip. 
 
