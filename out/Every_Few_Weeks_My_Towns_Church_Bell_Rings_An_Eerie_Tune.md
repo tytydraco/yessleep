@@ -8,6 +8,8 @@ As I explored the town and got to know its inhabitants, I couldn't shake the fee
 
 At first, the townsfolk seemed kind but evasive, reluctant to talk about the bell and its haunting melody. Each time they would distract me, recommending different shops and food places to visit.
 
+&#x200B;
+
 But my persistence paid off when I encountered Old Man H.
 
 He was an old, grizzled man who seemed willing to speak about the malevolent entity that had been plaguing Willow Creek for tens of decades.
@@ -118,7 +120,7 @@ I searched through dusty old books and ancient manuscripts, looking for clues ab
 
 I was about to give up when I came across an old, tattered book she had translated. It contained a passage about the bell and its creation. On the same page was the "Eye of Lucidity".
 
-The Eye of Lucidity was said to have been forged from the same material as the bell as a handle to ring it manually. However, when the entity arrived, the settlers hid it, fearing if they dared ring it again, it would bring more danger. 
+The Eye of Lucidity was said to have been forged from the same material as the bell as a handle to ring it manually. However, when the entity arrived, the settlers hid it, fearing if they dared ring it again, it would bring more danger.
 
 The Eye had been lost for centuries, and nobody knew where to find it. The next page had been ripped off.
 
