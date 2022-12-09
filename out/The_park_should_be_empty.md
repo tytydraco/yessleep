@@ -42,7 +42,7 @@ We said goodbye, and I continued walking for the last minute of my journey. But 
 
 Right up against the fence, clear as day, was a tall, grey...thing. It looked less humanoid this close-up. Less like it was dancing and swaying, and more like it was shaking and convulsing. Its grey skin was pulsing and shifting, in a way that almost made me not notice the complete lack of eyes. I only realised it had no eyes when eyes began to form, right on its face. Its skin seemed to open on the head, allowing for 2 grotesque eyes to pierce through.
 
-I caught myself falling slightly, and got through the building door. I didn't wait for the elevator - I ran up the stairs and didn't look back. I pass
+I caught myself falling slightly, and got through the building door. I didn't wait for the elevator - I ran up the stairs and didn't look back.
 
 I got to the sixth floor, got into my place, and peered out my bedroom window. There was nothing at the fence, and it almost spooked me just as much to see a lack of anything there. Like I was crazy.
 
