@@ -1,4 +1,4 @@
-[read part 1 ](https://www.reddit.com/r/nosleep/comments/zektkp/the_haunted_apartment_the_mirror/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+[read part one](https://www.reddit.com/r/nosleep/comments/zektkp/the_haunted_apartment_the_mirror/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 First off, I wanted to thank you all and for the helpful suggestions everyone had made including naming the weird unnatural cockroach, Phil. And I got a suggestion to use fridge magnets to communicate with the bathroom/mirror spirit. I had thought about it to be honest. But I still don’t know if the ghost can move through my entire apartment, despite those boot prints that seemed to come out of the mirror. And I did thank the mirror ghost for helping with that poor woman who lost her finger who tried to rob me by pretending to be a Psychic Medium. My best friend had suggested I use a Ouija board to communicate with the bathroom ghost or any other entities in the apartment. 
 

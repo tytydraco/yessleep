@@ -40,4 +40,4 @@ That morning when I woke up, I saw wet boot prints facing my bed, as if someone 
 
 Unfortunately, I’m out of time to type this up. If anything, else weird goes on, I might post another update until then hopefully I’ll see you next time. And one more thing, is there anything that can explain the footprints coming out of the mirror? The cockroach is back, and he’s making coffee, such a tiny little cup.
 
-[Laundry day](https://www.reddit.com/r/nosleep/comments/zgm624/the_haunted_apartment_laundry_day/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+[Laundry day](https://www.reddit.com/r/nosleep/comments/zgtzl0/the_haunted_apartment_laundry_day/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
