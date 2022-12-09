@@ -74,7 +74,9 @@ LM: How do you think he got in? What's the security situation in your house?
 
 DC: Nothing fancy. I don't have any cameras or anything. Just one lock on the door. I’ve never really thought about it. 
 
-LM: Were you still awake for those two hours? Could you have heard him get in.DC: I was asleep from there, until Jules came into my room and woke me up. 
+LM: Were you still awake for those two hours? Could you have heard him get in?
+
+DC: I was asleep from there, until Jules came into my room and woke me up. 
 
 LM: To clarify; that was 2am.
 
@@ -110,7 +112,6 @@ DC: Well, no, I turned him round and I saw him and he was just… someone else?�
 * Of normal nourishment, no exact food was found in stomach contents. 
 * No signs the victim received any dental care in his life, but the teeth are  in good condition. 
 * The subject has abnormally long fingers which appear to be growing. EG, the ring finger was 4.5 inches long when first measured, and after four days  is around 25  inches in length.  The rest of his fingers have grown a similar amount. No other part of the body has grown. The palm is still average sized.
-* I don't know what to do. 
 
 =========
 
