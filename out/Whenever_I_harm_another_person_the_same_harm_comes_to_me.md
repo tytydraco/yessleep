@@ -18,19 +18,25 @@ I’m now in my late twenties. I always hoped I’d eventually grow out of this 
 
 Perhaps you need more evidence. I’m only just getting warmed up, okay?
 
-I cooked a meal for my friends. I’m vegetarian, but I didn’t want to force that on my meat-eating pals, so I prepared a chicken tikka masala for them. Foolishly, I didn’t cook the chicken for long enough, and they all ended up with food poisoning. I was fine. Three days later, however, I ended up with food poisoning after eating at a local restaurant.
+I cooked a meal for my friends. I’m vegetarian, but I didn’t want to force that on my meat-eating pals, so I prepared a chicken tikka masala for them. Foolishly, I didn’t cook the chicken for long enough, and they all ended up with food poisoning. I was fine. Three days later, however, I ended up with food poisoning after eating at a local restaurant. I had never felt so helpless. I have emetophobia, and that sort of experience leaves me believing that I might die. I sobbed for hours.
 
-Do you need another example? Okay. My girlfriend tripped over one of the shoes I left in the hallway, and she ended up with a nasty cut on her forehead. Later that evening, I ended up with an identical injury after slipping in the shower.
+Do you need another example? Several months ago, my girlfriend tripped over one of the shoes I left in the hallway, and she ended up with a few nasty cuts on her forehead. Later that evening, I was brushing my teeth, and the bathroom bulb spontaneously blew. The glass shattered above me, shards rained down on my face, and I received a few cuts that accurately mirrored the ones my girlfriend had acquired.
+
+I remember shivering silently in the corner of the bathroom. I wasn’t a child. I was a fully-grown man. Shivering. Crying. I couldn’t dismiss it as coincidence anymore. There was a sinister force at play. Something was judging my every move. It was punishing me for causing harm, whether intentionally or unintentionally.
 
 Are you convinced? Maybe you would believe me if you’d spent the last 29 years in my shoes. These events aren’t coincidences. There are too many to count.
 
-Nevertheless, whilst this thought has always filled me with existential dread, I never saw it as a threatening thing. As I said, I’m a good person. I try not to harm people. Most of the harm I’ve caused has been minor and accidental.
+This thought has always filled me with existential dread. I lie awake at night, staring into the darkness of my bedroom and fully believing that something stares back at me. It is not some benevolent deity. It is something cruel and unholy.
+
+There has always been a sinister aspect to the retribution that the universe has dealt. I have thought that since the very beginning. I remember when I insulted my classmate and first noticed Karma’s cold touch. I remember the boy who insulted me in the same way. There was something emotionless and evil about the vitriol that he spewed from his mouth. It was almost as if he were a puppet for something far greater than either of us.
+
+I have always tried to reassure myself that I can stay safe if I just treat others well. I just have to avoid harming others. I thought I could lead a relatively normal life. As I said, I’m a good person. I try not to harm people. Most of the harm I’ve caused has been minor and accidental.
 
 Last night, however, everything changed.
 
 I was at the local pub with my girlfriend and a few close friends. We were having a merry time. Everyone in the pub was having a merry time. One man, in particular, was a little too merry.
 
-“Hello, gorgeous,” The man said to my girlfriend, Lauren. “Want a drink?”
+“Hello, gorgeous,” The stranger said to my girlfriend, Lauren. “Want a drink?”
 
 I’m not the jealous, over-protective type. I turned my head to face Lauren, and she gave me a look that said she would handle it.
 
@@ -66,4 +72,12 @@ I’ve spent all day in bed. I’m wracked with guilt, obviously. My friends hav
 
 However, that won’t help me beat Karma, will it?
 
-I don’t know how long I have. I just know that I’m going to die in the same way as that man.
+I don’t know how long I have.
+
+As I lay in my bed, staring at the black ceiling above me, I find myself searching in the darkness. I’m searching for the thing that will exact its horrible punishment. Every creak in the house fills me with unimaginable fright. Every time I hear a wisp of wind outside my window, I believe that the glass might break, inviting some terrifying entity into my room.
+
+It is currently 4:49am. I am quaking under my duvet. Now, I’m hearing aggressive knocks on my front door. The person (or thing, perhaps) on my front porch has persisted for the past 10 minutes.
+
+I’m too terrified to move. With every deafening thump on my front door, I retreat a little farther beneath my duvet. I can see what might happen. An intruder barges in, deals a fatal blow to my head, and I meet my end.
+
+I could ring the police, but I know that won’t save me. The universe always finds another way to exact justice.
