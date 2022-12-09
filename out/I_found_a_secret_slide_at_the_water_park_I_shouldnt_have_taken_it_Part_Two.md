@@ -110,6 +110,88 @@ The beast snorts again and raises its head, firelight dancing over its horns and
 
 It eases closer, and a wave of panic sheets through my chest. I can smell the hot rot of its breath. Taste the death hanging in the air. I nudge the girl and nod at the slide. She shakes her head. Her face is paralyzed with fear, her eyes wide and wild. I squeeze her hand and will her to understand\*: If we run, maybe one of us makes it. If we stay here, we die.
 
-And I don’t want to die. God, I don't want to die. Wish me luck...
+And I don’t want to die. God, I don't want to die. 
+
+The woman moves first, a shadow bolting across the floor.
+
+She’s fast. 
+
+The beast is faster. 
+
+It rotates in one smooth motion and shortens the distance between them with horrifying speed. She leaps for the slide, and it snatches her mid-air. Gives her a shake. Her bones snap like gunshots. 
+
+A voice blares inside my head: *Now!* 
+
+I shove the girl forward, and we’re moving, racing toward the slide behind the creature as it whips the woman back and forth. It’s a sound like fabric tearing as she comes apart, a collection of moist weight splattering across a hard surface. 
+
+My feet smack off the stone, my heart expanding further with each step. 
+
+Ten feet to the slide.
+
+Eight.
+
+The beast still lapping entrails from the stone: *It doesn’t see us.* 
+
+Six feet.
+
+The crowd goes ballistic and wails for it to turn around, pointing at us in a forest of sharp, segmented figures. Screaming words I can’t understand.
+
+Four feet. 
+
+Two.
+
+And then it sees us.
+
+I hit the slide first. The girl lands beside me, and the water takes hold, both of us skimming forward. The slide rushing, pulling. 
+
+*We made it! We both—*
+
+The girl jerks to a stop. 
+
+It’s all I can do to reach back and seize her leg before the tube swallows me. She’s shrieking, wailing for me to save her, to keep her safe. The beast has her by the arm, sending thick gouts of blood dripping off her elbow, turning the water around me to rust.
+
+“Don’t let go!” I shout at her. “Look at me! Hold on!” 
+
+She does, her face wracked with pain, her eyes burning in two pale beacons of panic. 
+
+I tighten my grip, but her hand slips an inch. Water spills past my head and tears at my feet. Then, the creature snaps forward, and the rest of her arm disappears into a sea of shining teeth. 
+
+“Champion!” a voice booms.
+
+She cries out as her fingers slip from mine.
+
+\#
+
+I fly from the slide and flop into a swimming pool. There’s a scatter of motion, arcs of light wheeling my way as I swim to the ledge. A man in a Lagoon Island uniform waits to help me from the pool. 
+
+“He’s over here!” 
+
+More workers rush our way as the man heaves me up and onto the cement. I ignore them and glance back for the slide, which is gone. *Was it ever there*? A dull ache floods my chest.
+
+“Garret...oh my God.” I turn around and spot Mom breaking through the crowd. “You’re standing.”
+
+I look down at my legs and nod dumbly. 
+
+*Yes. Yes, I am.*
+
+With a sob, she crashes into me. The twins wrap themselves around my waist a moment later, both of them shouting my name. “Garret! Garret! Garret!”
+
+Mom reaches up and cups my cheeks with both hands, her eyes wet and shining. “How did this happen, Garret? *How?*” 
+
+I can’t answer, and even if I could, she wouldn’t believe me. Luckily, I don’t have to. The man in the uniform takes me by the shoulder and guides me toward my wheelchair, which is sitting right next to the snack shack where I left it. But unlike this morning, there’s no slide, only bare dirt and grass. 
+
+He directs me to sit and then crouches down to assess my foot. Over his shoulder, the sky is nearing dusk, streaked in layers of peach and deep blood orange. 
+
+He slaps a bandage on my heel and gives it a pat. “You’ll probably want to get that checked out, buddy. Looks like it might need some stitches.”
+
+Mom assures him that, yes, of course, we’ll get it looked at. We’ll go to the hospital right away. 
+
+I’m not listening to her. I’m thinking about the girl, about her seafoam eyes, and the way she pulled me off the ground and kept me going when she didn’t have to. The way the beast devoured her instead of me.
+
+*It should have been me.*
+
+It’s the thought that forces my hands to the wheelchair’s armrests. If I really can walk again, if I’m not imagining all of this, I won’t sit here...won’t leave this place hobbled and broken. Not when the price for my legs was her life. 
+
+With a heavy heart, I force my quads to contract and my arms to straighten, the girl’s face still burning hot in my mind. And I stand. 
 
 [**---->**](https://www.reddit.com/user/LordoftheElk/comments/xeb7vx/whats_up/)
