@@ -4,7 +4,7 @@
 
 “Yeah man I’m almost done packing, just hang on a bit!” I exclaimed before ending the call and putting my phone inside my pocket. I double-check everything on my backpack making sure that I have what I need for our five day camping trip. My best friend Randy proposed the idea that Me, him, and my other two friends Zach and Reed should spend the first week of summer in his Uncle’s cabin deep in the woods. The rest of them were pretty excited for the excursion, but I for one wasn’t keen on spending the first week of summer vacation out in the middle of nowhere. I would much rather do what I do best; Stay at home and play video games all day. But with their constant begging and nagging, I caved in. Letting out a deep sigh as I zipped my bag shut, I headed out the front door. I mean the five-day excursion wasn't too bad since right across the cabin was a lake we can swim in.
 
-I began making my way to the black, old G-wagon parked across my house. The distinct roar of the mighty V8 engine was the only noise audible in the area. I see Reed’'s head poke out the window, his wavy blonde hair and thick eyebrows made him easily recognizable even from a distance.
+I began making my way to the black, old G-wagon parked across my house. The distinct roar of the mighty V8 engine was the only noise audible in the area. I see Randy's head poke out the window, his wavy blonde hair and thick eyebrows made him easily recognizable even from a distance.
 
 "Load your things in the back and hop on already!" Reed shouted, who was clearly the most excited for this getaway.
 
@@ -18,7 +18,7 @@ Reed chuckled. "Aww come on man what better way to start off summer than hanging
 
 "Anything that doesn't involve you guys." I retorted with a smirk, Reed punching me lightly on the shoulder.
 
-I met Randy back in 5th grade while I met Zack and Randy in the 7th. Randy grew up quite affluent (hence the G-wagon) but was and still is a humble guy. His parents invested in stocks, bonds and owned a number of establishments. Even with everything given to him he never once was an entitled asshole.
+I met Randy back in 5th grade while I met Zack and Reed in the 7th. Randy grew up quite affluent (hence the G-wagon) but was and still is a humble guy. His parents invested in stocks, bonds and owned a number of establishments. Even with everything given to him he never once was an entitled asshole.
 
 "Zach I told you no vaping in my car!" Randy complained as the scent of blueberry-flavored vapor wafted inside the car.
 
