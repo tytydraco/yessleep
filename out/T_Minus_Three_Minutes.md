@@ -1,0 +1,13 @@
+ 
+
+Another tear rushes from my mother’s cheek. Father tries not to mention it. You can tell though by the shaking of his leg he is bothered. Tyler continues to play one of his games. He is far too young to be aware. I try focusing my mind off the whole situation but how could I not.
+
+The ticking of the clock is off beat. My father mutters, “I wish I had fixed that darn thing.” It would’ve been a lie if I told myself the randomness of the clock didn’t bother me. My mother walks over to pick up and hold Tyler. He just wants to go back to his game, but my mother won’t let him and I don’t blame her.
+
+The minute hand moves another step. My mouth begins to dry out of panic. I glance over my shoulder towards the window. People are running up and down the street. A large blaze has consumed the home of my best friend. I don’t know how to react so I look down and twiddle my thumbs. The alarm is still roaring in an ear piercing tone. Mother has broken down in tears to my right. Father grips harder to my shoulder.
+
+Thoughts are rushing through my mind at what feels like light speed. I bite hard on my tongue to drown them out. My father is becoming more and more annoyed with the clock’s ticking. A banging noise can be heard from the front door. Though it goes away as quickly as it started. I can hear an engine rev up from outside. My thoughts say the person in that car must be foolish, but at least they still have hope. I’ve lost all my hope ever since the war started and it has carried a great weight on me.
+
+The hand on the clock moves again. Another tick of the clock was off. My father was enraged by it. Chucking his phone, my father breaks the clock. The clock falls off the wall shattering into pieces, scattered across the floor. My father puts his arms around all four of us. Peering out the upper window I see a trifecta of planes zoom past. Russian insignias laid on their tail wings. Goosebumps go up and down my body. A sudden rush of coldness hits me hard. The Russian bombers open up their bottoms revealing the nuclear bomb. It is released into the air.
+
+My father’s face is an eerie site of defeat. Pale, like snow. My father gives a kiss on the cheek to my mother. They share a quick look of fear. My restless leg is calm now, my heartbeat has slowed. I utter a quick sentence, “I love you guys.” Breaking the deafening silence. The bomb inches ever closer to the ground. Time passes by slower and slower for me. I can see my father begin to smirk. A mushroom cloud emerges in the distance. First the soundwave shatters the windows. I feel a sharp pain as I am deafened by the wave. A final gasp comes from my mother. The debris knocks us all out cold.
