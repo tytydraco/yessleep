@@ -30,7 +30,7 @@ This thought has always filled me with existential dread. I lie awake at night, 
 
 There has always been a sinister aspect to the retribution that the universe has dealt. I have thought that since the very beginning. I remember when I insulted my classmate and first noticed Karma’s cold touch. I remember the boy who insulted me in the same way. There was something emotionless and evil about the vitriol that he spewed from his mouth. It was almost as if he were a puppet for something far greater than either of us.
 
-I have always tried to reassure myself that I can stay safe if I just treat others well. I just have to avoid harming others. I thought I could lead a relatively normal life. As I said, I’m a good person. I try not to harm people. Most of the harm I’ve caused has been minor and accidental.
+I have always tried to reassure myself that I can stay safe if I just treat others well. I just have to avoid harming people. I thought I could lead a relatively normal life. As I said, I’m a good person. I try not to cause harm. Most of the harm I’ve inflicted has been minor and accidental.
 
 Last night, however, everything changed.
 
@@ -74,7 +74,7 @@ However, that won’t help me beat Karma, will it?
 
 I don’t know how long I have.
 
-As I lay in my bed, staring at the black ceiling above me, I find myself searching in the darkness. I’m searching for the thing that will exact its horrible punishment. Every creak in the house fills me with unimaginable fright. Every time I hear a wisp of wind outside my window, I believe that the glass might break, inviting some terrifying entity into my room.
+As I lie in my bed, staring at the black ceiling above me, I find myself searching in the darkness. I’m searching for the thing that will exact its horrible punishment. Every creak in the house fills me with unimaginable fright. Every time I hear a wisp of wind outside my window, I believe that the glass might break, inviting some terrifying entity into my room.
 
 It is currently 4:49am. I am quaking under my duvet. Now, I’m hearing aggressive knocks on my front door. The person (or thing, perhaps) on my front porch has persisted for the past 10 minutes.
 
