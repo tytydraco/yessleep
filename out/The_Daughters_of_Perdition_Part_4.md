@@ -10,6 +10,10 @@ Part 3
 
 [https://www.reddit.com/r/nosleep/comments/zd9mjz/the\_daughters\_of\_perdition\_part\_3/](https://www.reddit.com/r/nosleep/comments/zd9mjz/the_daughters_of_perdition_part_3/)
 
+part 5
+
+[https://www.reddit.com/r/nosleep/comments/zhjbmp/the\_daughters\_of\_perdition\_part\_5/](https://www.reddit.com/r/nosleep/comments/zhjbmp/the_daughters_of_perdition_part_5/)
+
 &#x200B;
 
 &#x200B;

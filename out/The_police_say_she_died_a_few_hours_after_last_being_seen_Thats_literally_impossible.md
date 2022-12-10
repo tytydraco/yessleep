@@ -6,7 +6,7 @@ A few hours before she was to leave, I head a scream from her room
 
 "Bad cat! Bad cat!"
 
-When I came in the room, she was in a tank top and short pajama pants. One thing I noticed right away was her legs. Her normally thick black hair was gone, showing her pale skin. It was a look I hadn't been used to for almost two months. For the winter, she doesn't shave. After all, her legs would be covered. But because she was planning on wearing a short dress, she had saved. Unfortunately, her cat clawed up the dress. 
+When I came in the room, she was in a tank top and short pajama pants. One thing I noticed right away was her legs. Her normally thick black hair was gone, showing her pale skin. It was a look I hadn't been used to for almost two months. For the winter, she doesn't shave. After all, her legs would be covered. But because she was planning on wearing a short dress, she had shaved. Unfortunately, her cat clawed up the dress. 
 
 "Damnit, guess I'll be wearing the jeans and blouse" she sighed. 
 
@@ -28,11 +28,11 @@ We ended up calling the police, and within a few hours she was officially declar
 
 I was part of the search party which found her. Me, a police officer; and a search dog were walking a few miles off a popular trail in the woods when we found her body. 
 
-“Come, quick!” He shouted. The dog sniffed her, and then ran a few meters away from us before stoping. He pointed his heat to distance, like he wanted us to come with him. 
+“Come, quick!” He shouted. The dog sniffed her, and then ran a few meters away from us before stoping. He pointed his head to distance, like he wanted us to come with him. 
 
 But before I could come over, another party reached us. That parties officer took the dog by the leash and walked him away. 
 
-I won't describe the details, but there is something I must note: the bottom of her pants had been torn; and so I saw her legs: they were covered in thick black hair.
+I won't describe the details, but there is something I must note: the bottom of her pants had been torn; and so I saw her legs: they were covered in thick black hair. Not stubble. This was over an inch long (2.5 cm)
 
 How is this possible? 
 
