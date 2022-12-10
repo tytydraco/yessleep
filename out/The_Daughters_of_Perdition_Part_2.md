@@ -6,6 +6,12 @@ part 3
 
 &#x200B;
 
+part 4
+
+[https://www.reddit.com/r/nosleep/comments/zexlgn/the\_daughters\_of\_perdition\_part\_4/](https://www.reddit.com/r/nosleep/comments/zexlgn/the_daughters_of_perdition_part_4/)
+
+&#x200B;
+
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found a book that details the true story of the Salem witch trials. After reading it I found this story particularly fascinating and wanted to share it.
 
 &#x200B;
