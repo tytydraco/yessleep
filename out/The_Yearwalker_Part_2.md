@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- \[2\] - [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/)
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- \[2\] - [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/)
 
 Cleaning up that bathroom was almost as bad as whatever caused the mess in the first place. The smell was awful, and I had to pay a local carpenter to help me out with some of the messier stuff. The landlord was very understanding, but it was clear that fixing this was not up for debate. She might be nice, but she had no tolerance for destruction of property. I couldn’t blame her. Luckily, Roy the carpenter gave me a fair price.
 

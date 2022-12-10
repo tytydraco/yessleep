@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- \[4\]
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- \[4\] - [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/)
 
 Over the coming weeks, John performed several checks to make sure the Handsome Man had left town. We found a few discarded masks, and we didn’t see any people sneaking into the school after-hours. That was all John needed to put the whole thing to rest, but it was clear that it put him on edge. He wasn’t a frontline kind of guy.
 
@@ -42,7 +42,7 @@ I tried to remember what John had said. If time stood still, I needed to do the 
 
 I closed my eyes, holding on for as long as I could. Stumbling feet, someone dragging themselves forward. Flailing arms, knocking over an IV stand and a box of CDs. Stale limbs crackling from years of inactivity. Dry skin slapping against concrete floor.
 
-I could feel myself grow lightheaded. I couldn’t hold my breath that long. I imagined seeing the snake monster, the goo-man, or the white mask. Anything could’ve walked into this room, ready to tear me apart. 
+I could feel myself grow lightheaded. I couldn’t hold my breath that long. I imagined seeing the snake monster, the goo-man, or the white mask. Anything could’ve walked into this room, ready to tear me apart.
 
 And yet, nothing happened. The moment I stopped hearing movement I had to gasp for air.
 
