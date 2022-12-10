@@ -76,4 +76,6 @@ Yesterday, he painted over what had been his favorite painting of us on vacation
 
 I don’t know what she is or what’s gotten into him, but I’m worried about him. Each day he seems to get worse, and I’ve noticed he’s started wearing a tattered and stained green ribbon tied around his wrist.
 
-How do I get him to stop seeing her?
+How do I get him to stop seeing her[?](https://www.reddit.com/r/JamFranz/)
+
+&#x200B;
