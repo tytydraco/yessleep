@@ -294,9 +294,9 @@ I knew freezing to death wasn't a particularly bad way to go, and I lamented not
 
 'What my lord?' I asked.
 
-"That weapon has no business being in this world. I'll tell you what. I'm going to take it off your hands, and in return I will teleport you back to the monastery in Louisiana, deal?" God asked me.
+"That weapon has no business being in this world. I'll tell you what. I'm going to take it off your hands, and instead of dying in the snow I'll teleport you anywhere you want to go, deal?" God asked me.
 
-I was ecstatic! 'Thank you for letting me use it my lord! Take it away' I thought.
+I was ecstatic! 'Thank you for letting me use it my lord! Take it away and send me back to the monetary in Louisiana' I thought.
 
 I then appeared in the monastery in Louisiana, laughing. The Beam saber was gone.
 
