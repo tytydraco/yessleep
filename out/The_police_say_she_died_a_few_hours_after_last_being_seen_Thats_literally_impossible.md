@@ -41,3 +41,7 @@ The only reasonable explanation is that she has Polycystic Ovary Syndrome, but s
 In addition, the medical examiner determined she had died at one in the morning, meaning she had shaven less than twelve hours before dying. 
 
 As for the cause; that is still being determined.
+
+I don’t understand. 
+
+Do you guys have any theories? Because I’m freaking out right now
