@@ -16,11 +16,11 @@ I work at a construction company and we are renovating this old monastery into a
 
 &#x200B;
 
-When I returned to Spain I could hardly believe my eyes. IT seemed in the relatively short amount of time I had been gone everything had changed. When I returned there was a dark aura around our headquarters in in Madrid. 
+When I returned to Spain I could hardly believe my eyes. IT seemed in the relatively short amount of time I had been gone everything had changed. When I returned there was a dark aura around our headquarters in in Madrid.
 
 At first they almost didn't recognize me, wanting to strip me of my title and authority. For a few days my position was in limbo until the grand Inquisitor Windu returned, recognizing me. He restored my title and I was back to work.
 
-Grand Inquisitor Windu had been promoted from master after the one who took over from Hugo died while I was in captivity. But all the masters knew each other. 
+Grand Inquisitor Windu had been promoted from master after the one who took over from Hugo died while I was in captivity. But all the masters knew each other.
 
 The first thing I did after being reinstated was to go get my lucky bible. I had it stored away for safekeeping, always hoping to return to it. There were lines crossed out and revisions written all through the margins. If this book were to fall into the wrong hands the consequences would be catastrophic. There were some things kept from the common people for good reason.
 
@@ -34,7 +34,7 @@ Taking my bible I went to the meal hall where there were many inquisitors waitin
 
 "We've no time for tale tales today master Jacob" an older inquisitor named Padro chirped. "There's treachery in the inquisition. Some even say Samael is now the grand inquisitor."
 
-"I disappear for 6 months and everyone starts worshiping Samael? When I left it was like 1 in 5. What is wrong with this inquisition! IF only Hugo was here he would know what to do." I said, flabbergasted. 
+"I disappear for 6 months and everyone starts worshiping Samael? When I left it was like 1 in 5. What is wrong with this inquisition! IF only Hugo was here he would know what to do." I said, flabbergasted.
 
 "It runs deeper still master Jacob. Get your food." Padro said stoically.
 
@@ -60,7 +60,7 @@ And I will hold a hearing. I think its time we tried our own inquisition." I sai
 
 I stood in the amphitheater as hundreds of Inquisitors lined the halls. They stood attentively. I heard many gasps oh shock after people saw how I had de-aged.
 
-"Anyone who is still loyal to Yahweh fall on both knees and we will say the lords prayer in unison." I yelled. 
+"Anyone who is still loyal to Yahweh fall on both knees and we will say the lords prayer in unison." I yelled.
 
 Everyone cheered and fell to their knees and started praying aloud.
 
@@ -80,7 +80,7 @@ I looked at the 200 or so inquisitors who remained. "Thee who stand before me ar
 
 "Take no prisoners" I said with a mad blood-lust.
 
-Just then something miraculous happened. My bible flew out of my bag and greeted me. 
+Just then something miraculous happened. My bible flew out of my bag and greeted me.
 
 "I am Grimoire Blanco. I am a tome that contains the entire history of mankind up until a point. You see there's this little gap that we need to fill in in history. You have lived long and your story must be preserved. I will accompany you to document your life and travels for the archives." the book prophesied.
 
@@ -92,7 +92,7 @@ We went to work as one unit charging upon our Samaelian rivals. WE all knew the 
 
 I charged into a room with 7 men. When they saw my sword drawn Samael appeared on 6 of their faces, Beelzebub on the other.
 
-I quickly fired an arrow, killing Beelzebub. As the other inquisitors ran towards me Grimoire Blanka opened up and spewed a firey goo all over 3 of their faces. 
+I quickly fired an arrow, killing Beelzebub. As the other inquisitors ran towards me Grimoire Blanka opened up and spewed a firey goo all over 3 of their faces.
 
 The others suddenly realized that a floating book was breathing fire like a dragon seemingly lost it. I cut them down in their shock.
 
@@ -100,9 +100,9 @@ The others suddenly realized that a floating book was breathing fire like a drag
 
 "Your going to need me to fight the white witch. And you need Hugo to fight the white witch. And you need me to bring Hugo back. So really you need me more than Hugo" Grimoire Blanco rassberried.
 
-As walked into the next room we found numerous inquisitors, locked in Sword combat.	
+As walked into the next room we found numerous inquisitors, locked in Sword combat.
 
-"Burn, whorshipers of the sun lizard, you have chosen your death of fire." Grimoire Blanco screamed. 
+"Burn, whorshipers of the sun lizard, you have chosen your death of fire." Grimoire Blanco screamed.
 
 Blanco was accurate, avoiding friendly fire as he took out the demonic inquisitors.
 
@@ -116,9 +116,9 @@ He flew above the fire, hovering for a second, then fired straight down, causing
 
 "Yahweh is with your troop, the tide is in our favor. We must revive Hugo, before the eclipse is over!" Blanco said, floating back to me.
 
-"Eclipse?" I said, looking up. 
+"Eclipse?" I said, looking up.
 
-The soon was just starting to cover the sun. 
+The soon was just starting to cover the sun.
 
 "What do we need to do?" I asked.
 
@@ -128,15 +128,15 @@ The soon was just starting to cover the sun.
 
 "Cast it into the flames!" he responded.
 
-I hesitated. Wondering for the first time if this book could be trusted. 
+I hesitated. Wondering for the first time if this book could be trusted.
 
 "Have faith child." I heard Yahweh say in my head.
 
 Full of sorrow and confusion I cast the book into the smoldering heap at the center of the flames. Almost instantly all the ashes, coals, bodies along with leaves of trees were all sucked into create a burning ball of light.
 
-Grimoire Blanco then flew through the ball, retrieving the other book. It was totally unscathed. The ball of light then formed into a human shape. I then recognized Hugo. 
+Grimoire Blanco then flew through the ball, retrieving the other book. It was totally unscathed. The ball of light then formed into a human shape. I then recognized Hugo. He seemed younger though, and his skin had a green tint. His eyes glowed gold.
 
-He stood there for second, then fell to his knees coughing out dust and bits of crushed leaves. 
+He stood there for second, then fell to his knees coughing out dust and bits of crushed leaves.
 
 After a few moments he asked. "Where and when are we?"
 
@@ -154,25 +154,25 @@ Rage boiled in Hugo's eyes. "The treacherous swine have taken over the inquisiti
 
 It almost felt like the old days. Except we had magical bibles that were burning and freezing people. Grimoire Negro would freeze people solid like statues.
 
- I really wanted to just sit and talk to Hugo. So much had happened in the past 25 years and I really just wanted to catch up. Unfortunately there was work to be done.
+I really wanted to just sit and talk to Hugo. So much had happened in the past 25 years and I really just wanted to catch up. Unfortunately there was work to be done.
 
-Before long we came out the front gate, following a billow of smoke to see a huge burning blaze of books, surrounded by demonic inquisitors. Grand Inquisitor Windu was there, throwing black powder on the fire. There were also many maidens tied up, seemingly to be sacrificed. 
+Before long we came out the front gate, following a billow of smoke to see a huge burning blaze of books, surrounded by demonic inquisitors. Grand Inquisitor Windu was there, throwing black powder on the fire. There were also many maidens tied up, seemingly to be sacrificed.
 
 Just then, the moon completely covered the sun in a total solar eclipse. Vines of fire came down from the sun and interacted with the blaze. Master Inquisitor Windu then ordered for the virgins to be sacrificed.
 
-Me and Hugo then charged towards then men carrying maidens cutting them down. 
+Me and Hugo then charged towards then men carrying maidens cutting them down.
 
-The men scatted as they were pelted with liquid fire and the freezing liquid. 
+The men scatted as they were pelted with liquid fire and the freezing liquid.
 
-Grand inquisitor Windu was controlling the fire and it was staking shape into a massive salamander. 
+Grand inquisitor Windu was controlling the fire and it was staking shape into a massive salamander.
 
 Just as I cut him down I saw the eyes start to form, and thought all hope was lost. But then it dissipated and the fire returned to normal.
 
-I stood there, with a renewed hope as the eclipse ended. 
+I stood there, with a renewed hope as the eclipse ended.
 
-We rounded up the remaining demonic inquisitors, killing them all. But the Spanish inquisition was not the force it once was. More than half of the inquisitors had turned. 
+We rounded up the remaining demonic inquisitors, killing them all. But the Spanish inquisition was not the force it once was. More than half of the inquisitors had turned.
 
-We left a Skeleton crew in Spain and diverted all available forces to return to the ice palace. We left with 2 Manowar and Hugo's flagship. 150 inquisitors in total. 
+We left a Skeleton crew in Spain and diverted all available forces to return to the ice palace. We left with 2 Manowar and Hugo's flagship. 150 inquisitors in total.
 
 Hugo and I had plenty of time to talk on the almost 2 month voyage to the new world. I told him everything about what had happened. We talked for hours each day, happy just to be together again.
 
