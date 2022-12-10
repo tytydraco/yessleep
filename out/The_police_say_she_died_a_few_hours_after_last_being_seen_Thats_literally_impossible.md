@@ -36,4 +36,8 @@ I won't describe the details, but there is something I must note: the bottom of 
 
 How is this possible? 
 
-Less than 48 hours ago, her legs were freshly shaven. Should I tell someone? I haven’t said anything yet because I worry people might think I’m lying or crazy.
+The only reasonable explanation is that she has Polycystic Ovary Syndrome, but she mentioned a few years ago that her sister had it and she was tested, but did not have it. 
+
+In addition, the medical examiner determined she had died at one in the morning, meaning she had shaven less than twelve hours before dying. 
+
+As for the cause; that is still being determined.
