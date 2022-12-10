@@ -1,7 +1,3 @@
-***NSFW - SOME BODY HORROR***
-
-&#x200B;
-
 With the housing market the way it is right now, I thought it would be years before I could afford to buy my own place.  I couldn't believe it when my cousin told me about stigmatized property, and how murders, suicides, or hauntings could make houses cheaper.  I've never been a superstitious person, so when I saw a house for sale for a stupidly low price in my area, I got excited.  It had been on the market for... a whole year, at this price?  That sounded like stigmatized property to me.  I was eager to  buy, but not stupid about it.  I got my uncle (same cousin's dad) to take a look at the property, and he said it looked sound and didn't seem to have too many problems.
 
 I couldn't believe my luck.  I went from barely paying off my student loans to owning a house in a few months.  Granted, it was a little house.  An ugly little house.  And it came with a basement that was still full of a hoarder's level of ancient mementos from some old lady's life, which I was going to have to clean out eventually.  I guess whoever was selling it couldn't be bothered to clean it themselves.  Still, I had a house!  I threw a housewarming party, and even though it was a little crowded, everyone had a good time.
