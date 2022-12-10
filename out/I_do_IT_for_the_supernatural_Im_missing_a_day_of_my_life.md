@@ -82,13 +82,11 @@ Her form grew huge, muscled. Her body morphed, effortlessly, into that of a larg
 
 She was a sleek, shiny black, her muscular shoulders twitching as she closed her monstrous maw around one of the slices of meat. 
 
-She was a sleek, shiny black, her muscular shoulders twitching as she closed her monstrous maw around one of the slices of meat. 
-
 To my horror, I heard her *purring* as she slurped what was left of Tony up, folding her paws together and lapping up every last drop of blood and crunch of bone. 
 
 I was frozen in place, my heartbeat pounding in my ears, tracing a hard lump through my throat. 'RUN' my brain screamed. 'I can't!' my legs wailed in response.
 
-After licking every last morsel from the ground, she smoothly transitioned back, once more the petite woman I'd greeted no more than an hour ago. It seemed like a lifetime now. 
+After licking every last morsel from the ground, she smoothly transitioned back, once more the petite woman I'd greeted no more than a moment ago. It seemed like a lifetime now. 
 
 Once she'd risen from her squat, her small nude form fully human again, Harry shot a meaningful glance at Moira, then to me and back, clearly asking a question. She simply smiled, wiping a drip of blood from her cheek and popping the finger in her mouth. She must have communicated to him telepathically, because he nodded upwards at me, motioning towards the doors. 
 

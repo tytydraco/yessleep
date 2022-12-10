@@ -1,0 +1,63 @@
+***NSFW - SOME BODY HORROR***
+
+&#x200B;
+
+With the housing market the way it is right now, I thought it would be years before I could afford to buy my own place.  I couldn't believe it when my cousin told me about stigmatized property, and how murders, suicides, or hauntings could make houses cheaper.  I've never been a superstitious person, so when I saw a house for sale for a stupidly low price in my area, I got excited.  It had been on the market for... a whole year, at this price?  That sounded like stigmatized property to me.  I was eager to  buy, but not stupid about it.  I got my uncle (same cousin's dad) to take a look at the property, and he said it looked sound and didn't seem to have too many problems.
+
+I couldn't believe my luck.  I went from barely paying off my student loans to owning a house in a few months.  Granted, it was a little house.  An ugly little house.  And it came with a basement that was still full of a hoarder's level of ancient mementos from some old lady's life, which I was going to have to clean out eventually.  I guess whoever was selling it couldn't be bothered to clean it themselves.  Still, I had a house!  I threw a housewarming party, and even though it was a little crowded, everyone had a good time.
+
+Well, everyone except for my friend Andrea.  At the end of the night, she pulled me aside before leaving and told me to stay out of the basement and away from the northeast corner.  That corner was right above the kitchen, and if Andrea thought I was giving up on Memaw's prize-winning chili recipe because she felt some spooky juju from the room then she was dead wrong, but I just sort of nodded and said "Uh-huh, sure."
+
+"No, Clara.  I'm serious.  Get out.  This place is bad.  I can taste it."
+
+Andrea was what old-fashioned writers would have called "nervous and sensitive" and I chalked it up to that, and eventually blamed her weird feelings on a fan in the kitchen that made the ceiling shake a little.  If I was a nervous person, that tiny little wobble really *would* be unsettling.  I didn't tell Andrea she was spooked by a ceiling fan, though.  That would just make her mad.
+
+Andrea refused to go to my new house again, which hurt a bit, I'm not going to lie.  I did some research into the house to reassure her, and because her worries were starting to spook a few other friends in our group.  What I found didn't exactly startle me, but it wasn't going to reassure Andrea.  At all.
+
+Well, I knew the house was stigmatized because an old lady had died in it, but that didn't scare me.  Old people die.  What I didn't know was that there was, apparently, also a haunting.  Both of them.  Double stigmatized.  No wonder the house was cheap.  Apparently the old lady had talked a lot about ghosts in the house before she died, but I never did believe in ghosts.  It was a little creepy knowing where they found her body and walking past the spot, but I wasn't worried about any specters aside from the looming one of my own mortality, which did pop up unnervingly sometimes when I passed where the old lady died.  Besides, she died of leukemia.  Not exactly a spooky preternatural death there.
+
+It was about three months into my foray into property ownership when I started seeing little shimmers on the edges of my vision in the kitchen.  No problem, I thought; people see weird things when their eyes vibrate at the wrong frequencies.  I assumed the kitchen fan was causing problems, like that one haunted castle that turned out to be an air conditioner or something.  I stopped using the kitchen fan.
+
+It didn't stop the little shimmers.  Then I figured I was developing some kind of migraine disorder, but it didn't seem to progress much beyond the little shimmers in my field of view.  I thought it was weird, but it didn't seem to be doing me any harm.
+
+This was also around the time that I started cleaning the old lady's mementos out of the basement.  And there were a lot of them.  Some old dresses, actually a lot of old dresses, the kind little old ladies at church or bingo or whatever would wear, but there were some cool things in there too.  There was an entire old ship's wheel with a tag on it, but the name was faded almost too much to read.  There was jewelry, some of it probably valuable, and an old steamer trunk, and for some reason a hundred jars of homemade grape jelly labeled between 1967 and 1971.  I don't know why she kept so much jelly, but I sure wasn't eating it.
+
+The shimmers in my vision kept getting worse, little by little, and I braced myself for a massive migraine or possibly some kind of stroke, but nothing really happened.  I hated waiting on edge for it, but waiting was better than actually *having* it.  Still, it's not comfortable to wait around for a massive migraine, or for your brain to suddenly stop working.  I went to the doctor a few times; they stopped taking me seriously at about the third visit.  I wasn't sure I was taking *myself* seriously, for that matter.
+
+It took a long time to finally clean out the basement.  Box after box of old memorabilia passed through my hands.  Some of it would have been legitimately spooky if I was at all inclined to believe in ghosts: the box of old medallions, some kind of bravery medal in what was probably some Eastern European language, and definitely the rosary beads on a disintegrating string or the flaking old paintings of saints.  I thought they were cool, but I knew better than to tell someone like Andrea about them.  She would have lost her mind.
+
+One of the boxes of memorabilia had a little metal box in it.  It was painted red in flaking paint, the kind that's probably got lead in it, with a dark gray inside.  The clasps were tricky, but after a little convincing I got them open.  Inside the box was a little disk of some bright silvery metal; it was astoundingly heavy, and had letters stamped on it in a language I couldn't read.  It was definitely Cyrillic script.  I remember thinking, looking at it, that I had no idea how many countries might use the Cyrillic alphabet and wishing that I could read it.  Instead of picking up what I assumed was probably a particularly important medallion of some kind, I tipped it out of the box into my hand.
+
+The thing was astonishingly heavy, but more disturbingly, it was warm.  If you'd handed it to me and said it was in someone's pocket while they sat in a performance review for hours and they were just now handing it over, I'd have believed you.  For a few minutes I just sat there, hefting it in my hand, before an uncomfortable feeling of... frankly, of *weirdness* took over and I tipped it back into the box and hastily closed the clasps.  You don't have to be a "nervous and sensitive" person to find that thing disturbing.
+
+I finished clearing out the boxes I'd meant to take care of that day, but the red box stayed.  I wasn't sure what to make of it, but just throwing it out didn't feel right to me.  It might have been important to the old lady who'd lived in my house before me, and I figured a long life well-lived deserved some respect.
+
+I don't really remember the next few days, or at least nothing stands out.  I probably went to work, came home, ate whatever was in the fridge, and went to bed.  Same old, same old.  I was maybe a bit more tired than normal, and there was a day I thought I had a stomach bug.  And then a rash popped up on the palm of my hand, round and neatly patterned with reversed Cyrillic script.
+
+I'm not a superstitious person by any means, but my stomach dropped into my shoes.  The flickers at the edge of my vision suddenly seemed a lot more ghostly.  It's hard to refute something staring right at you from the palm of your own hand.
+
+I think I called in sick that day.  I'm not sure.  I remember checking my palm, and checking it again, and again, as if the markings would somehow turn out to be different three seconds later.  They weren't.
+
+And then the next day, or maybe the day after, or the day after that, the rash wasn't a rash anymore.  It was a burn.  The skin had blistered up and was peeling in Cyrillic, leaving raw angry marks behind spelling something that was seeming more and more curse-like with every passing second.
+
+I had to call a friend to take me to an urgent clinic; my hand was burning too much to drive, and everything seemed muddled.  I remember I threw up several times on the road, though there wasn't much in me anymore.
+
+The triage nurse looked at my hand for a second and went pale.  I could literally see the color draining from his face.  People think that's a metaphor, but it's not.  I watched it happen.  And then in a muddle of movement I was in the exam room and people were talking quietly and suddenly I was taking off every stitch of clothing on me and putting on a hospital gown, and I was being sponged down, and people were drawing blood and asking my friend if she'd ever been in my house, and of course she had, and then they were asking *her* to take *her* clothes off too, and over it all was a horrible clicking rattle that everyone knows from the media and no one expects to hear at a medical center.
+
+A Geiger counter.
+
+I don't remember much about my first few days in the hospital; I was either sedated or hopped up on painkillers for a lot of it.  What I do remember is mostly violent retching, and one instance where I started vomiting blood and the nurse hit some kind of button, and then I woke up again feeling a lot colder than before.
+
+At some point several very kind, very understanding, and *extremely* serious people stopped at my bedside and talked to me.  They looked at my hand and talked to the doctors, and then when I woke up again they were gone.  I didn't know what was happening until I heard the nurses talking about it later and the word "plutonium" floated to the surface.
+
+I remember looking at my hand and seeing a black ring of Cyrillic where the burns were turning necrotic.  Then a few days later my whole palm was turning black, and they were talking about a "debridement."  I didn't know then that they meant they'd have to cut out the infected tissue.  I do now.
+
+There was a moment when I got out of surgery and found they'd taken off most of my palm in an effort to save the rest of the hand.  I knew they were doing it, but knowing what the surgery is for isn't the same as waking up and finding you *actually don't have a palm anymore.*  They changed the dressing and I looked at it, like an idiot; it was just... tendon and bone.  I couldn't believe that was my hand.  I twitched at the pressure when they started to apply new dressing and saw the tendons jump and the bones shift.  Nothing can prepare you for that.
+
+They said they were going to try skin grafts when my immune system recovered, but they didn't get the chance.  I lost one finger, and another, and another, and then it started spreading down towards my wrist.  I remember the nurse had tears in his eyes as he looked at me and told me there would have to be another surgery.  By that point I think I was mostly numb to it and just nodded.
+
+Sixty days.  Sixty grueling days in the hospital before they started talking about discharging me.  Sixty-four until I got out.  The house had been scoured top to bottom, but I couldn't live there now.  I couldn't look at the place.  I couldn't think about it.  I'd put in a pinkish-white rosebush by the door; I can't look at that color of roses now.  It's hard to imagine until you're in that situation, how much it hurts, how stupid you start to feel even though you *know* it wasn't something you would know.  Maybe that house took my hand, or maybe I just tell myself that because I don't want it to be my fault.
+
+Sometimes it feels like my brain is only doing half of what I want it to do, but I know that's my own expectations.  The doctors were very happy with my recovery; sometimes I feel like I'm the only one who's not.  But then my family goes quiet, and I know they're remembering what I live with all the time: I might be out of the hospital, but my time is limited.
+
+The old lady in that house died.  Her death was revisited and classified as radiation-induced leukemia.  One day, probably a lot sooner than I'm ready for it, it will be my turn.
