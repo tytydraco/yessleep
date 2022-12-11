@@ -38,7 +38,7 @@ That's when a saw it, under the trash can, it said FOR ###### ELIJAH. Being curi
 
 I don't have the paper on me so I'm writing how I remember it. I wasn't allowed to bring it home. Also P.S there's so many scratched out words I recall, I think its just for my name.
 
-Hello Elijah! We from the management team are glad you made it! Tonight is a special night, you we offered double pay yeah? Well you have to earn it! Follow these simple rules and you'll get through this shift easily.
+Hello Elijah! We from the management team are glad you made it! Tonight is a special night, you were offered double pay yeah? Well you have to earn it! Follow these simple rules and you'll get through this shift easily.
 
 Rule 1: Pay attention to the time! Strangely enough, the clock seems to stop or just seem off sometimes, please immediately call a MANAGER over to fix this issue. If you don't have this issue fixed within TEN MINUTES of this problem occurring. Strange things will happen if you don't fix it, and you will be immediately FIRED.
 
