@@ -30,7 +30,7 @@ What exactly were we walking into?
 
 Our chopper landed in front of the base an hour later. What few trees grew at this altitude whipped around in a frenzy as the pilot landed us. I hopped out and stared in awe at the steel door we’d seen in the photos. It measured fifty feet in height and was wide enough to drive two tanks through side by side. Years of exposure to the elements had turned its silver sheen to a ruddy brown. 
 
-Our commanding officer - a serious-looking woman named Keys - clambered out of the chopper and addressed the twelve members of our squad. “Intel says the last report from this base clocked in a month ago. All it said was, “We’re done.” Then they went silent. We aren’t sure whether they mean they’re done with their project or something else, but we’ve been tasked with going in to check. Given their silence, we’re anticipating a potential hazardous fallout from somewhere in the mountain. Our orders are to observe, report, and treat any potential survivors. Got it?”
+Our commanding officer - a serious-looking woman named Keys - clambered out of the chopper and addressed the six members of our squad. “Intel says the last report from this base clocked in a month ago. All it said was, “We’re done.” Then they went silent. We aren’t sure whether they mean they’re done with their project or something else, but we’ve been tasked with going in to check. Given their silence, we’re anticipating a potential hazardous fallout from somewhere in the mountain. Our orders are to observe, report, and treat any potential survivors. Got it?”
 
 Everyone nodded. We were used to this by now. Sometimes our operations had us combing through towns and villages littered with bodies; many in conditions that defied nature. 
 

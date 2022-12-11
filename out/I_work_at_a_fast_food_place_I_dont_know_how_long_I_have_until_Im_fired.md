@@ -16,7 +16,7 @@ I unlocked my apartment door and instantly, a heavy snowfall came rushing in, li
 
 My hands were feeling extremely cold already, and my car window needed some defrosting and also some time for the windshield wipers to actually clear everything off. 
 
-To speed everything up I do a quick wipe with my right coat arm trying not to get any on my hand on the front side window. Then I move to the back to wipe off the rear side window a bit. After that I just unlock my car and swiftly enter to get away from everything going on outside. I can't believe I am going to work when the weather is like this, well, double pay was worht it at the time.
+To speed everything up I do a quick wipe with my right coat arm trying not to get any on my hand on the front side window. Then I move to the back to wipe off the rear side window a bit. After that I just unlock my car and swiftly enter to get away from everything going on outside. I can't believe I am going to work when the weather is like this, well, double pay was worth it at the time.
 
 I remember thinking. I put my car keys into the ignition and started my car, putting my plastic bag onto the passenger seat as well. I set my AC to blast heat and turned the windshield wipers on.
 
