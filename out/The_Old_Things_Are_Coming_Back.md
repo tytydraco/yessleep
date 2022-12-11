@@ -67,3 +67,5 @@ That morning Jim drove me to my parents' house, who had already called the polic
 I think I know what these things are. They are the creatures of legends, of myths and urban legends and spiritual traditions long since lost. The things that make us feel weak and alone. The things that remind us we are not in control. I think they are coming back. Or maybe they never left and were just hiding or living elsewhere. But they were back in my home now, and everyone I loved was in danger.
 
 I don’t know if anything is happening where you live. Maybe we’re alone in this, maybe we aren’t. But if you’re luckier than us, just remember this the next you go somewhere alone in the dark: We are not alone anymore.
+
+Edit: [part 2](https://www.reddit.com/r/nosleep/comments/zg7aeg/the_old_things_are_coming_back_the_dog_on_the_way/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
