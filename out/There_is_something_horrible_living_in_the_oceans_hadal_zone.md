@@ -38,7 +38,7 @@ Making a note of it in the ship’s log, I directed the *Nautilus* to once again
 
 A moment of static, followed by a reply. “Yes Dr. Schmidt? What news from the briny depths? Over.”
 
-“We are now about…” I double checked the depth gauge “five kilometers down, a little over halfway. So far no signs of life, but we’ve still got quite a way to go so I’ll keep the cameras rolling. How’s the weather up there captain? Over.”
+“We are now about…” I double checked the depth gauge “five kilometers down, a little over halfway. So far nothing too interesting, but we’ve still got quite a way to go so I’ll keep the cameras rolling. How’s the weather up there captain? Over.”
 
 “It looks like a little bit of rain is coming in Dr. Schmidt, but nothing I’d be too worried about. What’s it like down there? Over.”
 
