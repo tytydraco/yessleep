@@ -311,37 +311,3 @@ The skinny cop grabbed it and nodded at me. "Thank you," I said. "I mean it."
 I watched them leave and felt relief wrap me up like a blanket. I didn't hear any music or anything. In fact, I felt a shift within me, too. A sense of normalcy returning. It was like whatever had burrowed into me had swiftly been dug out. I felt like me again.
 
 I also felt tired. I climbed back into bed and drifted off to sleep. My brief foray into the musical world ended that morning. The only music I'd ever play again would be from my phone's speaker. I was fine with that. I had other hobbies to look into, anyway. Model trains looked fun...and not as intense.
-
-\*\*\*
-
-"Hey, Dizzy Gillespie, whatta you gonna do with dat horn?" the fat cop asked his partner.
-
-"Donate it?"
-
-"Why bother? Just huck it in that trash and call it a day, huh?"
-
-"Too nice to just toss it the garbage," the skinny cop said.
-
-"Whatta you gonna do? Gonna learn how to play dat thing and line up your post-cop career?”
-
-“Maybe.”
-
-The fat cop huffed derisively. “You could be Johnny Badge, the horn-playing patrolman," the fat cop said, laughing a little too hard at his dumb joke. “Working for stranger’s pocket change.”
-
-"You'd probably arrest me for busking," the skinny cop said.
-
-"Damn right. Nobody on the train wants to hear a horn playing while they're headin' to work."
-
-The skinny cop chuckled, but something off in the distance caught his attention. He cocked his ears behind him and concentrated on something. "You hear that?" he asked his partner.
-
-"Hear what?"
-
-"It sounds like...someone playing a trumpet in the woods."
-
-"You're insane. All I hear is my gut rumbling," the fat cop said, hefting his body into the car. "Come on, toss the horn in the trash and let's head out. I'm starving."
-
-The skinny cop looked over at the garbage can and then down at the trumpet. It was too lovely to throw away, and now that he thought about it, he'd always wanted to learn to play the trumpet, too. The universe had given him a gift, who was he to turn it down? He placed the horn into the car's trunk and closed it up.
-
-Without realizing where it came from, the skinny cop started humming "When the Saints Go Marching In" as he got into the car. The fat cop drove them away, grumbling about making nothing calls out in the middle of nowhere, but the skinny cop paid him no mind. Deep down in his brain, the skinny cop knew he'd be back. Once he learned how to play, he'd come join the horn player out here, and they'd jam out.
-
-How could he not?

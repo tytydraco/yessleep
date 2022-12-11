@@ -174,7 +174,7 @@ I did my best to put him out of my mind after that and fortunately for me I neve
 
 There were no addresses or postage stamps anywhere on the box or post card, which to my mind could only have meant that someone had to have already known where I lived and dropped it off by hand. The postcard itself contained a short message written in spidery  handwriting with red ink. 
 
-“ Dear Boss, I hope this is enough to convenience you. I’m a lot of things, but I’m no liar. - HA” 
+“ Dear Boss, I hope this is enough to convince you. I’m a lot of things, but I’m no liar. - HA” 
 
 I then somewhat hesitantly took the box into my hands and opened the lid. Once I saw what was inside the box, I immediately vomited all over my front porch and ran back inside to grab my phone and call the police. 
 
