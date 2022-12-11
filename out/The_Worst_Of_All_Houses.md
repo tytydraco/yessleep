@@ -46,7 +46,7 @@ I don't remember much about my first few days in the hospital; I was either seda
 
 At some point several very kind, very understanding, and *extremely* serious people stopped at my bedside and talked to me.  They looked at my hand and talked to the doctors, and then when I woke up again they were gone.  I didn't know what was happening until I heard the nurses talking about it later and the word "plutonium" floated to the surface.
 
-I remember looking at my hand and seeing a black ring of Cyrillic where the burns were turning necrotic.  Then a few days later my whole palm was turning black, and they were talking about a "debridement."  I didn't know then that they meant they'd have to cut out the infected tissue.  I do now.
+I remember looking at my hand and seeing a black ring of Cyrillic script where the burns were turning necrotic.  Then a few days later my whole palm was turning black, and they were talking about a "debridement."  I didn't know then that they meant they'd have to cut out the infected tissue.  I do now.
 
 There was a moment when I got out of surgery and found they'd taken off most of my palm in an effort to save the rest of the hand.  I knew they were doing it, but knowing what the surgery is for isn't the same as waking up and finding you *actually don't have a palm anymore.*  They changed the dressing and I looked at it, like an idiot; it was just... tendon and bone.  I couldn't believe that was my hand.  I twitched at the pressure when they started to apply new dressing and saw the tendons jump and the bones shift.  Nothing can prepare you for that.
 
