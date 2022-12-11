@@ -10,7 +10,7 @@ Officially, the cause of death for both my friend and Kelly was hypothermia, eac
 
 I reached out to Ben over Facebook to say that my friend also died yesterday in the same woods and hopefully give him some comfort. Part way through the conversation, he messaged me. A portion of our conversation:
 
-Him: ”Can I tell you something odd? She was chopping up bacon when the knife slipped and she cut herself. I saw the cut, because I was with her when it happened. It was a nasty cut, so deep that I could see the bone. Yet when I found her, there was no bandage. There was no wound. There was only a scare where the cut had been."
+Him: ”Can I tell you something odd? She was chopping up bacon when the knife slipped and she cut herself. I saw the cut, because I was with her when it happened. It was a nasty cut, so deep that I could see the bone. Yet when I found her, there was no bandage. There was no wound. There wasn’t even a scar."
 
 Me: “oh my god. My friend had shaven her legs less than 12 hours after being found. When I found her, her leg hair had grown back completely. Like an inch long. I though maybe it was a case of Polycystic Ovary Syndrome, but then I remembered she had gotten tested for it and the test came back negative. 
 

@@ -1,0 +1,15 @@
+My friend gave me her Genshin account and I'm scared
+
+Hello. My name is Sakura per my reddit name. It's not my real name though. My friend was obsessed with the Chinese mobile app Genshin Impact. However she lost interest after the wanderer's banner started. She had almost every character including Scaramouche at level 90. I know of various Genshin creepypastas such as Faceless Ayato Kamisato, Coal prince Albedo, ect. 
+
+This one seems... Different. She had two Xiaos. The canon Xiao has dark medium-length hair with teal undertones in a jellyfish haircut, which is swept back in front of his ears. He has two longer locks that frame his face. He has pale skin and golden irises with avian pupils, and dons red eyeshadow similarly to Zhongli and Cloud Retainer. Xiao also has a purple diamond marking on his forehead, and a green tattoo around his right arm.
+
+Xiao wears a white sleeveless shirt with subtle cloud patterns. It has a high black collar with golden accents, with its left side extending further to cover his shoulder. He wears baggy dark purple pants, and wears dark purple boots overtop. Xiao has black and dark turquoise gloves with gold decals and a necklace. Around his left arm, Xiao wears a white and gold sleeve with a red lining. He notably carries an Anemo vision on his left glove and is usually seen carrying his Yaksha mask on the back of his right hip.
+
+The other one is the concept design. This design is similar to Xiao's design you find in fanart and the games but red. He doesn't wear a shirt and has blue eyes rather than gold. This character has never been in the game at all. I don't feel threatened by the game but there's some scary things in the game.
+
+The beta Xiao prefers to be called Yìchèn. It fits when you think about it. Xiao's name depending on how you write it can mean small, demon, elf, or dawn while Yìchèn means moon. The others seem scared of Yìchèn such as Tighnari tucking his tail when he's around, Albedo pulling Klee towards him, and Qiqi crying. When I open the app, I'm greeted by the character asking if I've slept well, eaten, drank enough water, taken my medication, ect. He also says my real name as well. The difference between Xiao and Yìchèn is that Xiao is compared to a Tsundere while Yìchèn is more or less that s/o that makes sure you're doing well every morning 
+
+It gives off Doki Doki literature club vibes with Monika breaking the fourth wall. I'm probably gonna take a break from the game for now and see what happens. I've already emailed MiHoYo and they have not responded but it is 6:55 am in China right now and my email is in English. I don't know if they'll look at it or not. 
+
+My friend is also worried as well since this is VERY strange. I'll try and keep you guys updated. For a game to be that sentient out of nowhere terrifies me.
