@@ -137,3 +137,5 @@ Buckley turned to me.
 “What  is going on here?" I asked. I had the irresistible urge to run  screaming in the other direction. I knew I could not take my chances out  in the harshest cold, but a part of me was willing to at least try.
 
 “This  prison's budget comes from the Vatican. We only take inmates possessed  by something greater than general sadism or psychopathy. In the official  government paperwork, they call this place the house of the daemonium.  If you want to atone for the sins I know you are guilty of, now would be  an excellent time. Help us read the incantation needed to cleanse this  heathen.”
+
+EDIT: Here is part 2: https://www.reddit.com/r/nosleep/comments/ziixne/i_am_a_guard_in_a_hidden_prison_located_in_the/
