@@ -102,7 +102,7 @@ My wife changed. Her pupils vanished, and her eyes turned black. With vice-like 
 
 The high-pitched scream that emanated from the man’s mouth was the most haunting sound I have ever heard. His arms and legs flailed helplessly as his body began to shrivel away. His flesh sagged, clinging tighter and tighter to the ghastly outline of his skeleton with every passing moment. It was as if I had seen the young man age a lifetime in mere seconds.
 
-Emily released what was left of his face, and her eyes returned to normal, though her flesh was just as pale. The worst thing is that her victim, for some reason I do not fully understand, had not yet perished. He lay on the cold tarmac of the car park, futilely gasping for air with his wheezy, deflated lungs. His fragile skin was barely able to stretch across his bones. I believe I even saw the outline of his heart beating beneath his shirt. That macabre image seems to be permanently etched onto my eyeballs.
+Emily released what was left of his face, and her eyes returned to normal, though her flesh was just as pale. The worst part is that her victim, for some reason I cannot grasp, had not yet perished. He lay on the cold tarmac of the car park, futilely gasping for air with his wheezy, deflated lungs. His fragile skin was barely able to stretch across his bones. I believe I even saw the outline of his heart beating beneath his shirt. That macabre image seems to be permanently etched onto my eyeballs.
 
 The man’s face was a nightmarish apparition. It was no more than a skull coated in papery flesh. His eyes were glazed over. If they were the window to his soul, then his soul had most certainly been absorbed by my wife.
 

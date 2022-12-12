@@ -10,6 +10,12 @@ part 4
 
 &#x200B;
 
+part 6
+
+[https://www.reddit.com/r/nosleep/comments/zjhy11/the\_daughter\_of\_perdition\_part\_6\_final/](https://www.reddit.com/r/nosleep/comments/zjhy11/the_daughter_of_perdition_part_6_final/)
+
+&#x200B;
+
 &#x200B;
 
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found a book detailing how the restructuring of the Spanish inquisition. After reading it I found this story particularly fascinating and wanted to share it.
