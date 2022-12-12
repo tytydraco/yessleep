@@ -28,11 +28,9 @@ I buried my face in my hands and exhaled. "Okay."
 
 "Oh... thanks."
 
-I didn't like the way he was so nonchalant.
+I didn't like the way he was so nonchalant. Didn't he burn me, didn't he somehow trap me in his room, didn't he strangle me? 
 
-Didn't he burn me, didn't he somehow trap me in his room, didn't he strangle me? 
-
-Was it better to simply comply with everything he asked me to do or go rogue?
+I was terrified but I didn't know what to do. Was it better to simply comply with everything he asked me to do or go rogue?
 
 I hadn't noticed he had moved but now he was behind me, face a whisper away from my ear. 
 
