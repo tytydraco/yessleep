@@ -2,11 +2,11 @@
 
 I suddenly felt myself sweating. What the fuck? I needed to leave, now. 
 
-I whipped my phone out to try to take a picture of the note. Who would believe me if I didn't have evidence? I entered my passcode and noticed the battery was on two percent. "Well shit."
+I whipped my phone out to try to take a picture of the note. Who would believe me if I didn't have evidence?
 
 My hand was shaky and the photo looked a little blurry, but I did manage to take a photo. I frowned, that wasn't good enough, so I slid the sticky notes pad into my pocket and grabbed a pen from his office.
 
-"You're not crazy, you're not crazy," I closed my eyes and repeated. I knew deep in my bones that what I was experiencing was real. If I was painted as an attention-seeking liar for telling my story, then so be it.
+"You're not crazy, you're not crazy," I closed my eyes and repeated. My story would be told.
 
 I put the thought out of my head and refocused. The only thing I was guilty of was being a nosy and disobedient tenant, who, if nothing else, was well-intentioned.
 
@@ -72,7 +72,7 @@ Fear paralyzed me and instead, I ran to my room and locked the door.
 
 Just as fear had stopped me in my tracks, an intense urgency inside of me said that I needed to write everything down, right now. I whipped out the pen and sticky note pad so quickly I cut my finger in the process. 
 
-"Shit." The cut drew blood. I sucked on my finger and sighed as I began to pen my tale. Whatever happened, someone, anyone, needed to know what had happened to me.
+"Shit."
 
 After I finished, I felt as though my mind had turned to goop. The reality of everything that had happened to me was unbearably scary.
 
@@ -85,3 +85,11 @@ My heart pounded so loudly that I thought I was going to die. I stopped breathin
 That's when I heard his footsteps come closer. I immediately hid under the covers of my bed and breathed heavily. "I don't want to die, I don't want to die!" I said in between sobs. 
 
 I quieted as his footsteps became louder and then stopped. I held my breath. Suddenly, I heard the doorknob for my room unlock and turn.
+
+[part three](https://www.reddit.com/r/nosleep/comments/zeai4k/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part four](https://www.reddit.com/r/nosleep/comments/zfzg6i/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part five](https://www.reddit.com/r/nosleep/comments/zhvvd1/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

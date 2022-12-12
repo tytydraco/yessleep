@@ -28,9 +28,11 @@ I buried my face in my hands and exhaled. "Okay."
 
 "Oh... thanks."
 
-I didn't like the way he was so nonchalant. I had every reason to be scared. He expected me to react this way, but his friendliness was making me feel insane. 
+I didn't like the way he was so nonchalant.
 
-Didn't he burn me, didn't he somehow trap me in his room, didn't he strangle me? Those were “‘punishments’” for my disobedience. And didn't he say those punishments were just beginning? Was it better to simply comply with everything he asked me to do or go rogue?
+Didn't he burn me, didn't he somehow trap me in his room, didn't he strangle me? 
+
+Was it better to simply comply with everything he asked me to do or go rogue?
 
 I hadn't noticed he had moved but now he was behind me, face a whisper away from my ear. 
 
@@ -60,7 +62,7 @@ The fact that I truly couldn't tell scared me because if he was keeping me here,
 
 "Dinner's ready!" Dr. Moskowitz called from the other room. I pulled myself out of my thoughts and quickly finished getting ready. 
 
-Before I entered the kitchen, I grabbed a small recording device from my bedside drawer, carefully placed it in my front pocket, and pressed record. My phone was almost dead but I had a feeling that if I tried to charge it he may retaliate in some way.
+Before I entered the kitchen, I grabbed a small recording device from my bedside drawer, carefully placed it in my front pocket, and pressed record.
 
 As I entered the kitchen he smiled widely at me again. "Well, don't you look like a vision. Sit."
 
@@ -107,3 +109,9 @@ He nodded, "Mm hm, I can assure you," he paused to look me directly in the eyes,
 My heart flipped in my chest and I thought I was going to pass out. This was too much, I needed to call the police, call my dad, call someone, anyone, NOW! But before I could excuse myself, he cleared his throat.
 
 "I ask that you also not leave." He stared intensely again and I felt rigid in my seat.
+
+[part four](https://www.reddit.com/r/nosleep/comments/zfzg6i/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part five](https://www.reddit.com/r/nosleep/comments/zhvvd1/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

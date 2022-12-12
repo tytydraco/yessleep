@@ -43,3 +43,13 @@ I felt myself freeze in place. What did I do now, run back downstairs, and try t
 I scanned the room. No key? Great. But just as I was about to leave, I heard something fall to the floor. I turned around to see a pad of sticky notes had fallen off of Dr. Moskowitz's desk. I picked it up and put it back on the desk. Before I could ruminate on that being kind of weird, I looked at the sticky note. 
 
 "The door will open when you are ready to receive me."
+
+[part two](https://www.reddit.com/r/nosleep/comments/zd46at/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part three](https://www.reddit.com/r/nosleep/comments/zeai4k/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part four](https://www.reddit.com/r/nosleep/comments/zfzg6i/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part five](https://www.reddit.com/r/nosleep/comments/zhvvd1/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

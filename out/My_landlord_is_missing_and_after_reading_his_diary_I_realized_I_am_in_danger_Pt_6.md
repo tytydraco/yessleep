@@ -1,5 +1,3 @@
-Epilogue Part Two:
-
 Tw: Rape/Sexual assault
 
 I can only add the “series” flair, so here is your warning.
@@ -26,13 +24,13 @@ He was silent for a long moment and eventually shrugged.
 
 “Be that as it may,” he smiled ear to ear, “I won.”
 
-His hand wandered down from my neck to my chest and his touch became more aggressive. “Is your device still recording? Why don't we keep it on and let all your little fans know that you're still my whore. You do what I say and you enjoy every minute of it.”
+His hand wandered down from my neck to my chest. “Is your device still recording? Why don't we keep it on so all your little fans can hear you scream.”
 
-Tears fell silently as he began his onslaught of domineering touches and words. I reciprocated when demanded and enjoyed it when he told me to. He pumped in and out of me for what felt like ages and I just laid there silently, taking it. 
+Tears fell silently as I lay there, disassociated from my body.
 
 The “punishment,” the “gift,” it was all the same. I had no autonomy and just wished more than anything that I could feel like a human again.
 
-When it was over, I continued laying there in silence as he held me in his arms. 
+When it was over, I continued laying there in silence as he held me in his arms.
 
 “Enjoy this. It's not every day that I want to cuddle you afterwards. Is intimacy from a monster not better than no intimacy at all, my love?”
 
@@ -60,7 +58,7 @@ He liked to kill right before sex. Perhaps it was intended to unsettle me, I did
 
 He kissed me once more, a long and deep kiss. “Perhaps one day you will grow to love me. But until then,” he stood back and looked at me, “time will come and time will go. I am the only one who stays.”
 
-I looked down sadly. He was wrong, wasn't he? Was he wrong?  
+I looked down sadly. He was wrong, wasn't he? Was he wrong?
 
 I opened my mouth to speak but words failed me. Forever was a long, long time.
 
@@ -84,7 +82,7 @@ He told me that it wasn't possible and that vampires have survived nuclear blast
 
 But if we couldn't be killed, who was going to save me from him?
 
-I clutched my head in my hands and laid on the bed in a fetal position. “You're not giving up, you're not giving up!” 
+I clutched my head in my hands and lay on the bed in a fetal position. “You're not giving up, you're not giving up!” 
 
 I repeated this to myself over and over again, hoping that with each word, I would believe myself a little bit more.
 
@@ -94,6 +92,20 @@ I covered my ears and looked away. I wasn't sure I would ever get used to that, 
 
 But after I looked away, my ears picked up another heartbeat.
 
-I swung my head around but didn't see anyone. I rationalized that it was a fan and turned back around, but before I fully did, I heard a voice.
+Just then I heard a strange rustling outside and smelled a strange smell. It wasn't human but it wasn't blood.
 
-“I can get you out of here.”
+I swung my head around but didn't see anyone. The floorboards beneath me suddenly bowed downwards. 
+
+“What the fuck?”
+
+I stared at the floor and it continued to bend sporadically. When I moved out of the way, I noticed a word appear in blood. 
+
+“Concentrate,” it read.
+
+I started to panic and shake. After a moment, I decided to close my eyes and concentrate.
+
+I opened them to find myself in complete darkness. Where was I, what was happening? I felt myself trembling in fear.
+
+It was then that I heard a voice.
+
+“Come outside.”

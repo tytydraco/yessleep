@@ -3,7 +3,7 @@
 
 
 
-Hi, I won't be saying my name. The previous writer, Elliot, was able to keep my identity safe and I will follow that. Call me Alice, please.
+Hi, I won't be saying my name. The previous writer, Elijah, was able to keep my identity safe and I will follow that. Call me Alice, please.
 
 They will try to track me, but they'll never be able to, and the managers, whoever they truly even are, will not know me, nor where I am.
 

@@ -53,7 +53,7 @@ I clutched my neck in horror. "Forever?"
 He leaned in to kiss me, "Yes."
 
 
-Epilogue:
+...
 
 “Hello,” I said slowly, clicking record, “this is what my life is like now. Some listeners know that it's too late to save me and others will learn to stay away.”
 
@@ -94,3 +94,5 @@ My eyes opened and I stared at him intently.
 “Thank you for supplying us with an endless stream of blood. Your sob story is very convincing.”
 
 He stroked the nape of my neck, his bite marks.
+
+[Part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
