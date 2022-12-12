@@ -121,3 +121,5 @@ Steph bolted from the truck, and blindly ran off into the forest. I looked back 
 I then felt a sharp pain just above my hip, and fell to my knees as Mason quickly fled in the same direction as Steph. When I saw Mason had his blade out, I looked down at my hands that were pressed against where the pain came from, and saw they were coated in blood.
 
 I had been stabbed, I realized. Mason stabbed me.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/zjgfvg/wireface_is_my_hometowns_urban_legend_i_was/)
