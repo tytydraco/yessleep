@@ -19,9 +19,7 @@ A team of archeologists have made a huge discovery on the shore of the Pacific O
 October 28th 2016
 
 
-First day on the job yielded exciting discoveries already. The project is a far greater discovery than anticipated. Let me explain. About two weeks ago, a massive earthquake shook the coast of 
-
-[REDACTED] California. A fissure opened in a cliff face next to the ocean and revealed a chapter of our past that has been forgotten by time. Most of my coworkers are baffled as to how any of the things that they have discovered made their way into this cave because there was no entrance other than the one that just appeared. Inside relics of the past are plentiful with pots and different metal medallions and such. But that isn’t the best part. 
+First day on the job yielded exciting discoveries already. The project is a far greater discovery than anticipated. Let me explain. About two weeks ago, a massive earthquake shook the coast of [REDACTED] California. A fissure opened in a cliff face next to the ocean and revealed a chapter of our past that has been forgotten by time. Most of my coworkers are baffled as to how any of the things that they have discovered made their way into this cave because there was no entrance other than the one that just appeared. Inside relics of the past are plentiful with pots and different metal medallions and such. But that isn’t the best part. 
 
 These findings date back two thousand years or so before the human race was known to have used these items. Stone carvings and pedestals sit expertly designed in their ornate stature. Though it was exhilarating finding all these new yet old things, there was an odd aura inside the “room”. The room resembled a cave more than anything. Everyone else either didn’t feel it or just ignored it. I worked but I was uneasy, something is off about this place.
 
