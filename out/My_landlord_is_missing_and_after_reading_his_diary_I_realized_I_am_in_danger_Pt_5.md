@@ -96,3 +96,5 @@ My eyes opened and I stared at him intently.
 He stroked the nape of my neck, his bite marks.
 
 [Part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part seven](https://www.reddit.com/r/nosleep/comments/zk509r/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

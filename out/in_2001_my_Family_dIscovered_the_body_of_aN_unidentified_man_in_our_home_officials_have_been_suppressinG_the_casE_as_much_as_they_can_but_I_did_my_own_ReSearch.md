@@ -285,7 +285,7 @@ The room was undisturbed. The clerk told us he’d checked in at 10:56 under the
 
 =========
 
-Notes on John Doe 01-0817 - Coroner Francis Troy
+Notes on John Doe 01-0807 - Coroner Francis Troy
 
 The body is a white male in his late 20s or early 30s. No signs of decomposition. I would say the death was less than an hour before he was discovered. He’s 5’9 and 145 pounds. Hair is brown and short. Eyes are also brown. 
 

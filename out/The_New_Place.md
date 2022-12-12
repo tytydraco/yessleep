@@ -2,15 +2,15 @@ Moving into a new house is always difficult, or so I’ve heard. I was subjected
 
 It was a very old house, and must have been Victorian in nature and age. When we moved in, I was 14, and was by then into all the things teenagers like. Blaring music, ignoring my parents, hanging out with the few friends I sometimes made in my short times in various places.
 
-My parents promised that we were going to stay here, in this house, forever. Both of them had found perfect, well-paying jobs in the area. I still didn’t believe them, as this was very similar to what they said at every other house. 
+My parents promised that we were going to stay here, in this house, forever. Both of them had found perfect, well-paying jobs in the area. I still didn’t believe them, as this was very similar to what they said at every other house.
 
-One week passed, then a month. I began making friends there. 
+One week passed, then a month. I began making friends there.
 
 After three months, I realized that maybe they weren’t lying. Maybe we were actually going to live here.
 
 Then, one night, it visited me for the first time.
 
-I woke up suddenly in the pitch black of late night. The soft red glow from my digital clock read 11:59 PM. 
+I woke up suddenly in the pitch black of late night. The soft red glow from my digital clock read 11:59 PM.
 
 I looked around my room for whatever might have woken me up, but saw nothing. Maybe it was a bad dream I just didn’t remember.
 
@@ -52,7 +52,7 @@ I bought a small jar of the mix, and, keeping my skepticism to myself, thanked h
 
 That night, regardless of my skepticism, I put a circle of the herbs around my bed, hoping that whatever the mix was, and whatever was in my room every night, it would help.
 
-I was wrong. 
+I was wrong.
 
 That night, I woke up at 12:00, same as every other night. I heard the breathing, just like every other night. But this time, unlike every other night, it was *right above me*. As if whatever was breathing was right in front of my face. I could even feel a warm, ragged breath against my eyes.
 
@@ -86,6 +86,8 @@ Yesterday, I mustered up the courage to look up and read the newspaper archives 
 
 Here is the article:
 
+&#x200B;
+
 Yesterday, police found the bones of over thirty people under a house in (my town). While doing a search based on a 911 call about a possible intruder scaring the resident’s son, police found a single leg bone sticking up, just barely, under the backyard porch. (con. pg. 6)
 
 Upon further investigation, the police found the full skeletons of over thirty people under the house’s porch. After being informed of this, the residents of the house packed up and moved, leaving the police to do their work.
@@ -94,7 +96,9 @@ None of the bones were found to match any missing persons in the area, or anythi
 
 The case is still being investigated.
 
-There was nothing else in the papers about it, old or new. 
+&#x200B;
+
+There was nothing else in the papers about it, old or new.
 
 All I know is that something bad happened in that house. And until very, very recently, I even managed to shut most of the events out of my memory.
 

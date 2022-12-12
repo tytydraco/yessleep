@@ -53,3 +53,5 @@ I scanned the room. No key? Great. But just as I was about to leave, I heard som
 [part five](https://www.reddit.com/r/nosleep/comments/zhvvd1/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part seven](https://www.reddit.com/r/nosleep/comments/zk509r/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

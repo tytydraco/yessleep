@@ -42,9 +42,9 @@ He lingered a moment and then walked away.
 
 I scrambled to find a nice dress shirt and dress pants. Whatever outfit felt most presentable, whatever outfit felt fitting to plead for my life in.
 
-That's when it hit me. Did he want me to wear something... enticing? I flushed further at the thought. I didn't have any clothes a man would find sexy. But he could see what I looked like and still did all of this, so I supposed it didn’t matter.
+That's when it hit me. Did he want me to wear something... enticing? I flushed further at the thought.
 
-But was seduction the intention? Maybe it wasn't at all. Maybe he wanted to experiment on me. Maybe this was just the beginning of a sick game. I screamed silently to myself, what would that entail? I didn't know but felt a bile rise in my throat. What was his game?
+But was seduction his intention? Maybe it wasn't and he had something more sinister planned. I screamed silently to myself, what would that entail? I didn't know but felt a bile rise in my throat. What was his game?
 
 I ruminated on this and started documenting all of this on the sticky notes pad. “No one is ever going to believe me...” I felt desolate. 
 
@@ -113,3 +113,5 @@ My heart flipped in my chest and I thought I was going to pass out. This was too
 [part five](https://www.reddit.com/r/nosleep/comments/zhvvd1/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part seven](https://www.reddit.com/r/nosleep/comments/zk509r/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

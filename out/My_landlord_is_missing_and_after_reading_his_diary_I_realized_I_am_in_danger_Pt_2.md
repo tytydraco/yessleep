@@ -8,7 +8,7 @@ My hand was shaky and the photo looked a little blurry, but I did manage to take
 
 "You're not crazy, you're not crazy," I closed my eyes and repeated. My story would be told.
 
-I put the thought out of my head and refocused. The only thing I was guilty of was being a nosy and disobedient tenant, who, if nothing else, was well-intentioned.
+I put the thought out of my head and refocused.
 
 As I exited the office, I heard a door creak open. I faced the bedroom door in shock; it was open.
 
@@ -52,7 +52,7 @@ I held up my fingertips and noticed a slight singe. No, I didn't imagine that. "
 
 But in my gut, I knew it was real. The burn, the whisper, the phantom strangulation. It was real.
 
-I felt myself grow stiff as I realized the enormity of my mistakes. Did I deserve this? I didn't think so, but all I truly knew was that I was in danger. 
+I felt myself grow stiff as I realized the enormity of my mistakes.
 
 I steadied my body against the wall and exhaled. As I reached the doorknob and turned, I froze. It was locked, on the inside? That was impossible, there was no lock on the other side.
 
@@ -93,3 +93,5 @@ I quieted as his footsteps became louder and then stopped. I held my breath. Sud
 [part five](https://www.reddit.com/r/nosleep/comments/zhvvd1/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [part six](https://www.reddit.com/r/nosleep/comments/zixkso/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part seven](https://www.reddit.com/r/nosleep/comments/zk509r/my_landlord_is_missing_and_after_reading_his/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
