@@ -1,0 +1,51 @@
+My friend Jonathan had always been a bit of a weird one. You see, we grew up in a small town in northwest Louisiana, and never really had much to do, so I’d oftentimes find myself spending the hours after school, just hanging out and playing video games at his place. Either that or we’d be watching some, at the time, new iDubbbz or Filthy Frank videos on YouTube. During these almost daily visits, our conversations would drift to some odd places.
+
+Jonathan had always been one to tell me about paranormal stories that he claimed happened to him. Things like seeing shadow figures in the corners at night, and hearing footsteps run up and down the hall outside of his bedroom. He had even gone so far as to say he questioned if something supernatural had been following him.
+
+While most of our other friends who had stayed the night with him, would admit to seeing some weird things, some even saying they didn’t want to stay the night again, I on the other hand, never saw anything out of the ordinary. Quite honestly, I found myself questioning if Jonathan was just yanking my chain with half of his stories; at least that was until the summer of 2015.
+
+One day, I was over at Jonathan’s house, just playing video games and talking as usual, when the conversation shifted to the paranormal. He decided to tell me a story I had never heard before. Turning off the game we were playing, he took on a much more serious tone, like whatever he was about to tell me carried a lot more weight than his other ghost stories.
+
+Jonathan told me that when he was younger, maybe eleven or twelve years old, he lived at his old house on the other side of town by the lake. Now this area, despite being directly on the lake, was still in a relatively rural and spread out neighborhood. He, our friend Hunter, and another boy whose name I cannot recall, were all playing inside the house, while his parents were at work, and sister was at daycare, so as far as they knew, they were alone. At one point, the unnamed boy sees something looking in through one of the windows. He tells the others, and all of them look, but whatever it was is now long gone. Regardless, the boy who saw it is legitimately unnerved, and asks the others to stay away from the windows. Jonathan and Hunter try to assure him it was probably just a raccoon or some other animal. Still the other boy is adamant that whatever he saw was no ordinary animal. Now curious, Jonathan and Hunter decide to go outside to see what the third boy was talking about. He begs them not to, but they decide to go out anyway.
+
+With the other boy remaining inside the house. Jonathan and Hunter began surveying the backyard, and didn't see anything. They go to the tree line and over by the lakeshore, but everything seems normal.
+
+At this time, they hear a noise coming from inside the old boathouse. Whatever was in there, sounded like it had just knocked something over. Jonathan and Hunter both decide to make their way out onto the pier, and into the small building. They look around, and don’t see anything at first, but then they notice something moving on the small storage loft above them.
+
+When they looked up, they saw a pair of jet black eyes staring back at them. Whatever it was, had long thin arms with grey, almost white skin, a large bulbous head, and not a trace of hair on its body. It didn’t move, or seem like it wanted to attack, but just sat there, crouching, observing them.
+
+It was at this point the adrenaline finally kicked in, and the two boys ran screaming from the boathouse. They sprinted up the steps to the back door, and slammed it behind them. Frantically, they began making sure every entrance into the home was locked, but as they did so, they realized their friend was nowhere to be seen. Hunter and Jonathan began combing the house, and finally they found him. He was curled up in the fetal position, sobbing in Jonathan’s closet.
+
+Still in a panic from what they had just witnessed, Jonathan and Hunter asked the boy what happened. The boy then said something that made the pair’s blood run cold.
+
+“You were gone for two hours."
+
+Jonathan and Hunter looked at each other, their faces devoid of color. As far as they knew they had only been gone for no more than five minutes. Now in complete panic, all three boys decided to close the blinds and curtains to every window in the house. They all split up, and started going room to room. It didn’t take long for the boys to finish, however only Hunter and the unnamed boy regrouped in the living room. Jonathan was nowhere to be found. They realized the last place they had seen Jonathan go was into his little sister’s bedroom, but when he didn’t reemerge, the two boys knew something was wrong. They considered opening the door to that bedroom, but something in their gut told them to stay away from that door, and so they did. They sat there, waiting for hours in complete silence, too afraid to speak. They waited on anything to happen, even just a sound to come from that room and let them know that Jonathan was alright. The boys would have to wait for four hours to finally hear the thundering sound of panicked footsteps. 
+
+Jonathan burst into the living room, slamming the door behind him. The boys said he looked completely petrified, however when they told him how long he had been gone, his level of fear somehow was able to rise even higher. With his eyes going wide, Jonathan sprinted past his friends, and emptied the contents of his stomach into the kitchen trash can. When Jonathan returned, he sat down with the others, and waited for his parents to come home.
+
+He went on to say, when he went into that bedroom, he made his way over to the window and was about to close the blinds, when he looked down for only a second, and when he looked up, he was face to face with that thing. He says he was no more than a foot away from it, with just the glass of the window separating him from those vacant black eyes, and inhuman expressionless face. He says he looked at it for no more than a second, before darting back into the living room. At least that’s what he remembers.
+
+When Jonathan’s parents finally came home, they would immediately question why all of the blinds were down. When the boys told them what they had seen, they of course didn’t believe them, but the fear on their faces was undeniable, so they knew something must have happened. They went on to try telling them it was probably just some animal, or maybe a neighborhood kid playing a prank on them. This ultimately did very little to relieve the boys of any fear, but eventually they all just accepted that whatever they had just experienced, was probably best to be kept between them.
+
+Now I won’t deny the fact that I was rather invested in my friend’s story, but I still had a hard time believing him. Wanting more, I decided to ask him a favor. I asked him to get in my car, and show me where all of this went down. I could see a little apprehension in his expression, but he did eventually relent.
+
+It was just after sunset when we made our way outside, and by the time we had gotten to the other side of town, it was well and truly night. As we continued into this rural neighborhood, Jonathan directed me down the road. Eventually we came to a turn with a dead end sign posted. He tells me to drive down to the very last house.
+
+As we pull up, we find the property is abandoned, with the concrete pad where his old mobile home once sat and the boathouse being the only things left. The grass was rather tall, definitely well on its way to being totally overgrown. It was probably being maintained by the town, or a new property owner who only visited seldomly.
+
+I pulled into a small concrete pad just off the street, something cars could use to turn around, and we looked out at the property. Even with my brights on, it was still difficult to see much through the grass. I looked over at Jonathan, and he looked very uneasy. He was constantly fidgeting in his seat, with his shifting gaze scanning the property.
+
+I thought for a moment, and decided to turn my headlights off, given they weren’t doing us much good. Our eyes slowly adjusted to the night, and we could see the lake water at the back end of the property reflecting the full moon off its surface. We could notice something down by the water, but couldn’t make out what it was.
+
+After a few more seconds, it hit us like a train what we were looking at. There were people. There must have been twenty or so people all standing at the lake’s edge. There was no mistaking, the clear outline of their heads silhouetted by the light shining off the water. All of them just stood there, completely motionless, seeming to be staring directly at us.
+
+At this time Jonathan became a complete mess. He started screaming for me to drive, looking like he was on the verge of tears. I obliged as my own heart started pounding, and threw the car in reverse, taking off back down the road.
+
+After making it back to his house, we talked for a little while, attempting to calm each other down, and come up with rational explanations for what we saw. Though it is pretty hard to explain over a dozen people standing there in complete darkness in the middle of nowhere. Eventually, I did end up going back home that night, and Jonathan and I never really talked about it much again.
+
+A few months go by, and I end up hanging out with Hunter at a bonfire. He had moved to a new town a few parishes away, and we didn’t run into each other very often. Seeing my opportunity, and still wanting to corroborate Jonathan’s story, I decided to ask him about the incident at the boathouse. I’ll never forget the look on his face when those words left my lips. He went from joking and having a good time to completely pale and deadpan. I almost felt bad, wondering if I had just brought up something he had tried to forget.
+
+All he said was “I’d rather not talk about it."
+
+In reality, he didn’t need to. That expression told me that whatever had happened left a mark on him, and whether or not what Jonathan and I saw was related, we’ll never know. Either way, all I do know is there’s something going on at that property.
