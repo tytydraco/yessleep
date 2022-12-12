@@ -111,3 +111,83 @@ His arms and legs were broken and twisted in ways that I can only imagine must h
 I didn’t go home. I’ve been living in my car. Whatever my wife did to resurrect me, it exacted a vile toll. I’ve conducted online research, but I can’t find anything on the subject. I assume she feeds on the essence of others to sustain herself.
 
 Should I go home? I can’t run and hide for the rest of my life. I think I have to stop her.
+
+____
+My update from the comment section:
+
+You’re right. I can’t run from it. As I received a flood of replies, I found myself overcome with guilt. My wife made a desperate decision, and it came with an unimaginable price. That’s why I’ve been browsing the internet to find some sort of explanation for what happened to her. Perhaps I can stop her. Perhaps I can also save her.
+
+Earlier this morning, I found something.
+
+I was starting to give up on my online research, but a particular forum recommended a gothic bookstore not too far from the city. They have a library section with various books detailing the history of the occult. Apparently, they have things you won’t read on the internet.
+
+Bingo.
+
+I drove straight there and waited for the store to open at 9am. The little old lady seemed shocked to see a customer waiting at the door, bright and early. Her name was Greta. She was warm and helpful, unlike the sinister shopkeeper I’d pictured in my head. I didn’t tell her about my wife, but I asked about a creature that could do the things my wife has been doing.
+
+Greta’s eyes widened. I could swear the bookstore darkened. She asked me how I’d come to know of such an unearthly power. I didn’t answer. I just repeated that I needed to know about it. Greta nodded and beckoned for me to follow her to the shelves of books. She picked up a dusty, leather-bound book that was entitled ‘Veilbreaking’.
+
+“Do you know somebody who has broken the veil?” Greta asked, her eyes swimming with terrified tears.
+
+“It’s just a story,” I replied. “Thank you for helping me. How much will that cost?”
+
+Greta looked at me with sorrowful, pitying eyes. She pushed the book into my arms and patted it. Her gaze suddenly fell to the floor.
+
+“No charge. I fear you have already paid a heavy price,” She whispered.
+
+I left the bookstore, returned to my freezing car, and started to flip through the pages of the nightmarish history book. I won’t write an entire novel here, but I’ll explain Veilbreaking to you. I’ll explain what my wife did.
+
+The book claims, firstly, that every human has a soul. I didn’t used to be spiritual. I didn’t even find any kind of afterlife. After I witnessed my wife’s ghoulish transformation, however, I find myself unable to deny that. All souls exist on the other side of a thin veil, according to the book.
+
+Veilbreaking is the process of recovering said souls and returning them to the physical world. That comes with a price. And there is the process whereby the deceased individual’s body must be restored to perfection. That also comes with a price.
+
+The being that extracts the price is called Det. Many different people have depicted him in many ways. There was one drawing of the entity. It had a bony, contorted, vaguely-human figure (much like that of its victims), and it also had horrible black eyes. Emily’s eyes. There were also bodies at its feet. Shrivelled people were lying in a mangled mess and clinging to their last moments of life, much like the man I saw several nights ago.
+
+There was also this passage:
+
+It is believed that Det can break the veil and restore any lost soul. In return, the entity demands the body of the invoker as a vessel. The vessel must feed on the life essence of others. If it does not, it perishes.
+
+I stopped reading at that point.
+
+It was as I’d feared. My wife had forged a deal with some unholy thing, torturing herself just to bring me back. Foolishly, before I’d even read more of the book, I raced home.
+
+In the early morning light, our snow-covered house glistened. Everything was so still. So calm. I noticed Emily’s car on the driveway. I gentled pulled alongside it. As I stepped out of the vehicle, my feet crunched in snow. It was the only sound on our silent road.
+
+When I reached the front door, I fumbled for my keys, before noticing that it was unlocked and slightly ajar. I timidly pushed it open.
+
+“Emily?” I called out.
+
+Our house was shrouded in darkness. I realised every curtain had been drawn. I expected to not see or hear a thing, but there was a creak on an upstairs floorboard.
+
+Summoning my last ounce of courage, I braved the stairs. Each step groaned beneath my feet, as I ascended towards the lightless void of our upstairs landing. There was the sudden sound of a door slamming. Our bedroom door.
+
+I breathed deeply, tiptoeing towards the bedroom. I coiled my trembling fingers around the door handle and paused.
+
+“Emily,” I hoarsely projected. “I’m going to open the door, okay? I love you. I’m sorry for not coming home. I just had to wrap my head around some things.”
+
+Nothing. Not a peep.
+
+I opened the door.
+
+Inside, I saw something so horrifying that I immediately closed the door again. The scene within our bedroom was a real-life interpretation of the drawing from my Veilbreaking book. My wife, now possessing a fully-white complexion, was standing on our bed, surrounding by a pile of two dozen bony, depleted corpses.
+
+No, that’s not quite right. Not all of them were corpses. Some of them were still writhing on the bed and the floor. One young woman looked at me with the same pupil-less, glazed-over eyes as the first victim I’d seen in the car park. She raised one skeletal arm towards me. It was snapped backwards at the elbow, and her hand hung limply at the wrist. Her flesh was so thin that it had torn around her hand.
+
+I saw all of that horror in the space of a second.
+
+When I slammed the door shut, Emily unleashed an inhuman wail.
+
+“Robert…” I heard her wheeze.
+
+I held the door closed, too frightened to remove my hand from the handle. I heard the bed springs release, crunching footsteps across bones, then an ominous thud on the door.
+
+“You’re home,” She whispered.
+
+“Emily,” I cried. “I love you so much, but I need to figure out how to stop this horror.”
+
+I released the door handle, sprinted down the stairs, darted out of the front door, and retreated to my car.
+
+I’ve been sitting here for the past hour, staring at the open front door to my blackened house. I’m flicking through the Veilbreaking book. I hope to find some answers.
+
+____
+I will update all of you in another post. I still hope I can save my wife.
