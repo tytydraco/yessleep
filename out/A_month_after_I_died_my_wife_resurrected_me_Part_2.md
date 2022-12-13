@@ -1,4 +1,4 @@
-[Here is the first part of my story.](https://www.reddit.com/r/nosleep/comments/zjibz6/a_month_after_i_died_my_wife_resurrected_me/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[Here is the first part of my story, and it might have been updated since you first read it.](https://www.reddit.com/r/nosleep/comments/zjibz6/a_month_after_i_died_my_wife_resurrected_me/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 So many of you have tried to help me. For that, I am truly thankful. This, I’m afraid, will be my final post.
 
@@ -92,9 +92,8 @@ Always yours, even after death parts us.
 
 Robert
 
-\_\_\_\_\_\_
-
-My name is Greta Black, and I am submitting this post at Robert’s request. He said that many of you cared about what was happening to his wife. He couldn’t leave you without answers. I promised him that I would tell everyone what happened. Well, I suppose you can already infer what happened, given that I am the one finishing his story.
+______
+My name is Greta Black, and I am submitting this post at Robert’s request. He said that many of you cared about what was happening to his wife. He couldn’t leave you without answers. I promised him that I would tell everyone what happened. Well, I suppose you can already surmise what happened, given that I am the one finishing his story.
 
 When we arrived at the house, I took the young man’s phone and slipped it into my coat pocket. Robert had a calm, steely disposition. He looked nothing like the frightened little lamb that had first walked into my store. I could see it in his eyes. He was determined to save Emily. That was the only thing which meant anything. He had come to peace with the prospect of death.
 
