@@ -1,3 +1,6 @@
+[Previous](https://www.reddit.com/r/nosleep/comments/zhltj4/i_do_it_for_the_supernatural_im_missing_a_day_of/?utm_source=share&utm_medium=web2x&context=3)  
+
+
 I spent the first few days ranting, throwing a full-time tantrum. I banged my fists against the walls, destroyed the furniture, smashed the art on the ground and stomped on the pieces. I could punch through the wall, but what appeared to be drywall on the other side may as well have been concrete. I bruised my knuckles slamming against them, always waking up the next day healed. I wondered if I killed myself somehow if I'd wake up the next day? If so, would that make the time jump forward?
 
 I guess I hoped whoever was doing this to me could hear me. Best case, they weren't doing it on purpose and maybe I could somehow alert them. That hope died pretty fast, though. Around day 3, the idea occurred to me that I might be being recorded, and embarrassment peeked it's head through the constant terror I was living in. That embarrassment died quickly, as well, the passage of time wearing down my emotions like water over soil. 

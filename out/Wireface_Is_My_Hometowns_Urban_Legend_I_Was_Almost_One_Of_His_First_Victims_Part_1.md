@@ -123,3 +123,5 @@ I then felt a sharp pain just above my hip, and fell to my knees as Mason quickl
 I had been stabbed, I realized. Mason stabbed me.
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/zjgfvg/wireface_is_my_hometowns_urban_legend_i_was/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/zkuyjr/wireface_is_my_hometowns_urban_legend_i_was/)
