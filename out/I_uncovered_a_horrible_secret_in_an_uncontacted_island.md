@@ -24,7 +24,7 @@ His smile morphed into a scowl.
 
 “Alive?! No. It is so much more. It blessed us with this home. But, it demands sacrifice if we wish to continue thriving here.”
 
-He raised the blade and prepared to slit my throat. However, the tension was suddenly broken by a loud gunshot. The leader fell to the ground holding his fresh gunshot wound.
+He raised the blade and prepared to slit my throat. However, the tension was suddenly broken by a loud gunshot. The leader fell to the ground holding his fresh wound.
 
 “Nobody move!” One of my partners stood several meters away from the tribe. I rushed forward towards him, running across the sticky flesh. Two of the natives jumped on my partner, pinning him to the ground and clutching at his arms.
 

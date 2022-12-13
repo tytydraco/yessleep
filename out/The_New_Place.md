@@ -105,3 +105,11 @@ All I know is that something bad happened in that house. And until very, very re
 That was, until last night.
 
 When I woke up at 12:00 AM, to the sound of soft breathing in my room.
+
+UPDATE
+
+Yesterday, I drove back to where I thought the herbal shop was, in the town next to the one where my old house was. All I found was an empty building, with a sign stating that it had been vacant for some time, since soon after the events I described above.
+
+Last night, the thing did something strange. I heard its breathing nearby, but it wasn’t staying still. For the entire minute between 12:00 and 12:01 AM, the noise paced back and forth by my door. Then, it was gone.
+
+Please, help me. I don’t know what this thing wants, but it can’t be good.
