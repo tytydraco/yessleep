@@ -12,13 +12,13 @@ Weeks passed without incident, until one morning a group of tribal members appro
 
 It got worse from there. One night I awoke to hear voices from outside my tent. I thought nothing of it and continued to sleep, but then I heard a loud scream. I jumped up and grabbed my weapon, but when I peeked outside the tent, I saw no one. The moon was bright and I could see the entire camp, and it was empty. Not stopping to wake up the othermissionaries I let my curiosity lead me further into the empty village. I crept through the huts and found nothing out of place except the cutting silence. Defeated and confused I turned back to my camp, as I noticed a light on the inactive volcano. It appeared to be to a group making their way to the top. Ignoring the warning inside me to turn and run I resolved to discover once and for all the truth about the island. What I had thought was a long walk to the base passed within minutes as my head throbbed with the desire to know. Was it my head throbbing? Or was it the ground beneath me, pulsating and squirming underneath the dirt surface. As I neared the summit I began to see more and more of those fleshy lumps poking from the ground, the trees, the plants, everything. I couldn't help but feel as if the earth itself was alive.
 
-I reached the top I was greeted with the sight of the village standing together as if in prayer. A stone alter sat next to the edge, carved with strange symbols. In the haze I could barely make out the figure kneeling at the altar, but it was obvious he was praying. What horrified me far more than this however, was what surrounded me. It was flesh. The entire crater was made of the sticky pink tissue that writhed and wriggled beneath the praying figures. I ducked down to avoid being spotted, but it was too late. The villagers noticed me and shouted angrily. Several of them apprehended me and I struggled to break free to no avail. They dragged me to the altar where the leader was waiting with a knife.
+I reached the top I was greeted with the sight of the village standing together as if in prayer. A stone alter sat next to the edge, carved with strange symbols. In the haze I could barely make out the figure kneeling at the altar, but it was obvious he was praying. What horrified me far more than this however, was what surrounded me. It was flesh. The entire crater was made of the sticky pink tissue that writhed and wriggled beneath the praying figures. The deep hole inside the lump of flesh was full of flailing pink tentacles covered in tooth-like spikes. I ducked down to avoid being spotted, but it was too late. The villagers noticed me and shouted angrily. Several of them apprehended me and I struggled to break free to no avail. They dragged me to the altar where the leader was waiting with a knife.
 
 "You can see it now, can’t you?” He croaked. “The truth of this island. You've seen it."
 
 His eyes widened as he saw the horrified look on my face and he grinned.
 
-“It’s…alive.” I said fearfully. "Is this what's been attacking the tribe?"
+“It’s…alive.” I said fearfully. 
 
 His smile morphed into a scowl.
 
