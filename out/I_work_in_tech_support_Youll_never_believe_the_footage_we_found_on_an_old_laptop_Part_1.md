@@ -4,7 +4,7 @@ Petrov grunted with what I could only assume was agreement, keeping his eyes glu
 
 “Looks pretty bad,” I sighed, nodding in his direction, “That one alone will take ages to fix. We’ll be stuck here for *HOURS*.”
 
-Petrov winced slightly before turning to look at me. A hint of rouge had traveled up his collar and his eyes were darting wildly across my face, the way they always did when our gazes met. I put on my most convincing smile. Petrov was a nice guy, truly. Shy, modest, and a little unorthodox, but kind nonetheless. 
+Petrov winced slightly before turning to look at me. A hint of rouge had traveled up his collar and his eyes were darting wildly across my face, the way they always did when our gazes met. I put on my most convincing smile. Petrov was a nice guy, truly. Shy, modest, and a little unorthodox, but kind nonetheless.
 
 I’d gotten to know him quite a bit since I’d started working here last spring. We’d even gone out for drinks a few times - as *friends* \- during which he let slip about his love for rock-balancing and noodling.
 
@@ -12,7 +12,7 @@ I’d gotten to know him quite a bit since I’d started working here last sprin
 
 That had been my cue to turn red as I racked my brain for a good enough excuse. I wasn’t declining because we were coworkers. No. I generally wasn’t too bothered about corporate rules. It was just that… Well, Petrov really wasn’t… *my type*.
 
-I ended up telling him that my entire summer was booked up. It was my best attempt at sparing his feelings, which were ruthlessly seeping into his cheeks and even the tips of his ears. I also worried I’d been giving him the wrong idea, so we never went out for drinks after that, coming up with excuse after excuse, until he’d finally stopped asking. 
+I ended up telling him that my entire summer was booked up. It was my best attempt at sparing his feelings, which were ruthlessly seeping into his cheeks and even the tips of his ears. I also worried I’d been giving him the wrong idea, so we never went out for drinks after that, coming up with excuse after excuse, until he’d finally stopped asking.
 
 “Perhaps the other ones will be easier?” he uttered, clearing his throat twice, “Why don’t you check the box?”
 
@@ -22,7 +22,7 @@ I squinted at it, an overwhelming sense of disdain bubbling up in my chest. Laur
 
 Petrov let out an awkward giggle, “You’re on.”
 
-I thumbed through the laptops without particular interest. Some were dense with stickers from video games, others covered in what I could only assume was black sharpie. One of them had vents so crusty, they actually made noise when I managed to pry the lid open. 
+I thumbed through the laptops without particular interest. Some were dense with stickers from video games, others covered in what I could only assume was black sharpie. One of them had vents so crusty, they actually made noise when I managed to pry the lid open.
 
 “Gross!” I tossed it back onto the pile, wiping my hands on my jeans, “And to think the people who bring these in look so normal! If I didn’t know any better I’d guess they were pulled straight out of the dumpster.”
 
@@ -30,9 +30,9 @@ I turned to Petrov, my tainted hands outstretched in front of me, but he wasn’
 
 “Hellooo?” I sang, waving my disgusting hands in the air in front of him, “Earth to Petrov?”
 
-Without saying anything, he placed his hands over my shoulders and pushed me aside. I flinched at the unexpected touch, but he was so absorbed in whatever he was looking at, I don’t think he noticed. 
+Without saying anything, he placed his hands over my shoulders and pushed me aside. I flinched at the unexpected touch, but he was so absorbed in whatever he was looking at, I don’t think he noticed.
 
-“What’re you…” I began, bracing myself to face a masked figure on the other side of the counter. Reactions like this were unlike Petrov. He was always so calm and collected, I couldn’t help feeling a pang of fear in my stomach. 
+“What’re you…” I began, bracing myself to face a masked figure on the other side of the counter. Reactions like this were unlike Petrov. He was always so calm and collected, I couldn’t help feeling a pang of fear in my stomach.
 
 But there was no masked man. No grizzly bear, coyote, or… *catfish?* I mean, he said he was into noodling, right? *Could catfish theoretically evoke this sort of reaction?* Relieved there didn’t seem to be any immediate emergency, I snickered at my own joke.
 
@@ -84,7 +84,7 @@ He shook his head, “There’s *nothing* on it. No control panel. No applicatio
 
 Petrov didn’t respond, instead scooping up my hand in his and placing it on top of the mouse, “See for yourself.”
 
-I swallowed, directing the cursor toward the calculator icon. Double-click. *Nothing.* I tried again, this time with the media player, clicking and dragging the cursor until the vein in my thumb bulged, “Maybe it’s just frozen…?” I suggested. 
+I swallowed, directing the cursor toward the calculator icon. Double-click. *Nothing.* I tried again, this time with the media player, clicking and dragging the cursor until the vein in my thumb bulged, “Maybe it’s just frozen…?” I suggested.
 
 “In a way,” Petrov agreed, and then before I could find the ‘delete’ key, added, “It’s a wallpaper.”
 
@@ -92,19 +92,19 @@ I gawked at him, “A wallpaper?”
 
 “Look,” he said, gently reclaiming the mouse, “I can’t move or click anything besides the folder.”
 
-Once he said it, I could clearly see that the icons looked slightly washed out, but I’d thought it was just because of the twenty-five-year-old monitor. 
+Once he said it, I could clearly see that the icons looked slightly washed out, but I’d thought it was just because of the twenty-five-year-old monitor.
 
-For the first time in weeks, my curiosity was piqued. A laptop with *nothing* on it? How was that even possible? 
+For the first time in weeks, my curiosity was piqued. A laptop with *nothing* on it? How was that even possible?
 
 “You wanna do the honors?” Petrov asked, giving me a little side smirk.
 
-I snatched the mouse and double-clicked the rectangular icon. It flew open at once within a large white window that took up most of the screen. Inside, sat a single file with no preview thumbnail, named GPH.avi. Petrov and I exchanged glances. 
+I snatched the mouse and double-clicked the rectangular icon. It flew open at once within a large white window that took up most of the screen. Inside, sat a single file with no preview thumbnail, named GPH.avi. Petrov and I exchanged glances.
 
 “It’s a video,” I said, stupidly.
 
 “It is,” he agreed, “Do you want to watch it?”
 
-I hesitated. Mysterious videos on grubby laptops certainly weren’t my favorite. Hell, I never even clicked NSFW videos on social media, fearing the worst. If it was concealed behind an opaque cover, it probably wasn’t for me. 
+I hesitated. Mysterious videos on grubby laptops certainly weren’t my favorite. Hell, I never even clicked NSFW videos on social media, fearing the worst. If it was concealed behind an opaque cover, it probably wasn’t for me.
 
 “What if it’s…” I gulped, “...something horrifying..?”
 
@@ -114,7 +114,7 @@ I hesitated. Mysterious videos on grubby laptops certainly weren’t my favorite
 
 “Well, er, technically I can’t,” Petrov admitted with dismay, “There’s no media player, remember? I need to transfer it onto one of our computers.”
 
-I nodded, watching him fish out a USB stick from one of the drawers. Now this really seemed like a bad idea. A cold chill crawled up my bare arms and I realized the sky outside was growing dark. It was almost 5 PM. Only ten minutes to go until the end of our shift. Maybe I could still catch up to Lauren and Mildred at the spa? 
+I nodded, watching him fish out a USB stick from one of the drawers. Now this really seemed like a bad idea. A cold chill crawled up my bare arms and I realized the sky outside was growing dark. It was almost 5 PM. Only ten minutes to go until the end of our shift. Maybe I could still catch up to Lauren and Mildred at the spa?
 
 “Here it is,” Petrov’s voice interrupted my thoughts, “Ready to play?”
 
@@ -122,7 +122,7 @@ I chewed my inner lip. I knew Petrov was only doing this because I’d expressed
 
 “I’m ready,” I mumbled, less confidently than intended.
 
-For the first few seconds of the video, the screen was black. 
+For the first few seconds of the video, the screen was black.
 
 “Maybe it’s the forma-?” I began, but was immediately cut off by a faint sound of static. A black and white image came into view. Well, it seemed like an image at first, before I realized it was the feed from the overhead security camera pointed at the counter.
 
@@ -130,19 +130,19 @@ For the first few seconds of the video, the screen was black.
 
 I felt Petrov tensing up beside me. *What the hell was going on?*
 
-I could tell the video was playing by the horizontal lines dancing across the screen, but there were no people in the shot. The store was completely empty. I squinted at the timestamp at the bottom right of the screen. 
+I could tell the video was playing by the horizontal lines dancing across the screen, but there were no people in the shot. The store was completely empty. I squinted at the timestamp at the bottom right of the screen.
 
 **12 / 03 / 2022 Sat  01 : 46 : 14**
 
 Petrov must have had the same idea because before I could even open my mouth he whispered, “It’s from…yesterday?”
 
-Last night, to be precise. The footage was shrouded in darkness and the digital clock at the bottom indicated that no one had set foot into the store for at least seven hours. 
+Last night, to be precise. The footage was shrouded in darkness and the digital clock at the bottom indicated that no one had set foot into the store for at least seven hours.
 
 “What…” my mouth was dry, “Why would… How can last night’s footage be on that laptop…”
 
 It was supposed to be a question, but Petrov didn’t answer. He was leaning forward now, inspecting some invisible speck on the screen.
 
-“What? What is it?” I demanded, leaning in closer to see. 
+“What? What is it?” I demanded, leaning in closer to see.
 
 He pointed to the wall adjacent to the counter, “Look at that.”
 
@@ -154,15 +154,15 @@ I saw. The large, rectangular wall vent that was always such a nuisance when it 
 
 “Maybe Kieran…” I began, but stopped short.
 
-A woman with a short bob and glasses was navigating through the shelves. She moved slowly and awkwardly, her palms outstretched in front of her, as though she was sleepwalking. 
+A woman with a short bob and glasses was navigating through the shelves. She moved slowly and awkwardly, her palms outstretched in front of her, as though she was sleepwalking.
 
-I heard Petrov draw in a whistling breath next to me and my stomach lurched. 
+I heard Petrov draw in a whistling breath next to me and my stomach lurched.
 
-“Is that… you?” he whispered, his voice laced with something…I couldn’t tell what. 
+“Is that… you?” he whispered, his voice laced with something…I couldn’t tell what.
 
 Sweat was pooling under my arms and a lump rising in my throat, “No, it’s…” I croaked, “It couldn’t be…”
 
-We watched in stunned silence as the woman made her way to the counter and disappeared into the vent, pulling the grate cover back into place behind her, and then the screen went black. 
+We watched in stunned silence as the woman made her way to the counter and disappeared into the vent, pulling the grate cover back into place behind her, and then the screen went black.
 
 “I… I don’t understand,” I wailed, turning to face Petrov, “That wasn’t me…”
 
@@ -170,7 +170,7 @@ Petrov looked introspective for a moment, “But the camera…”
 
 “I don’t care about the camera! Last night at 1 AM I was sleeping in my own bed, ten miles away! And -” I added for good measure, “I don’t sleepwalk!”
 
-Silence descended upon us again, and I found myself growing restless and uncomfortable. It was exactly 5 PM now, time to go home. The sky outside was blue-black and a low rumbling in the distance was foreshadowing rain. But Petrov didn’t move. 
+Silence descended upon us again, and I found myself growing restless and uncomfortable. It was exactly 5 PM now, time to go home. The sky outside was blue-black and a low rumbling in the distance was foreshadowing rain. But Petrov didn’t move.
 
 “Well, if it wasn’t you…” he said slowly, as if considering every word, “Then…we must have had an intruder in the store…”
 
@@ -199,3 +199,7 @@ I slid off my chair and headed for the locker room when a metallic rattling stop
 He turned to look at me, a playful smirk on his face, “Well, if you won’t join me, I guess I’ll have to go alone.”
 
 And with that, he disappeared into the [vent.](https://www.reddit.com/r/TerrorTherapy/)
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/zl4fbf/i_work_in_tech_support_youll_never_believe_the/)
