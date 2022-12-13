@@ -1,8 +1,6 @@
-  
-
 I'm sitting alone in my flat. Alone - yet not quite. Not at all, in fact. The thought makes me shudder.
 
-I’ve set myself the task of writing this. I feel I have to, just to get it out, and to – warn others. I’ve got to write this. Starting from when I was so pleased and excited to get my new flat. 
+I’ve set myself the task of writing this. I feel I have to, just to get it out, and to – warn others. I’ve got to write this. Starting from when I was so pleased and excited to get my new flat.
 
 I had bought it, you see. No more renting or staying with family, or even couch-hopping when times were really tough. Of course it goes without saying that it came with a mortgage but the very fact I had been able to secure a mortgage was a good sign wasn't it?
 
@@ -60,7 +58,7 @@ Then, one day, during his lunchbreak, he phoned me.
 
 ‘I got it.’
 
-A weird feeling came over me. 
+A weird feeling came over me.
 
 ‘Got what?’ I asked apprehensively.
 
@@ -88,11 +86,11 @@ Indeed he had, like any friend would. But I only recalled now, vaguely, him text
 
 ‘Sorry man, tomorrow’s out too. Gotta million things to organise.’ I should’ve guessed. ‘But we will definitely meet up soon, maybe just not at your place at the moment.’ True enough, it *was* a bit of a drive for him. ‘Look, gotta get back. I’ll message ya, soon as.’
 
-After the call ended, I sat with my head in my hands for a moment. The way I saw it, David  had come to stay over at my flat just once and now he was moving so damn far away. Not as bad as going abroad again (of course there were continuing flight restrictions these days anyhow) but somehow I was convinced he wouldn’t ever come to my flat again. Like all the other people who’d had the temerity to stay over. During the final month before his departure we met just twice in person, once in town and once at his farewell dinner at a mutual friend’s house. Then he was off to the other end of the country as promised. The grim pattern had reasserted itself. 
+After the call ended, I sat with my head in my hands for a moment. The way I saw it, David  had come to stay over at my flat just once and now he was moving so damn far away. Not as bad as going abroad again (of course there were continuing flight restrictions these days anyhow) but somehow I was convinced he wouldn’t ever come to my flat again. Like all the other people who’d had the temerity to stay over. During the final month before his departure we met just twice in person, once in town and once at his farewell dinner at a mutual friend’s house. Then he was off to the other end of the country as promised. The grim pattern had reasserted itself.
 
 Overreaction, right?
 
-I made an effort to rationalise the situation and decided it was just the responsibility of buying my first property that was weighing me down. Financial responsibility above all. After all I had sunk in a good deal of my money into the project, thrown everything at it. It was affecting me more than I had realised, no doubt. Got to shake myself out of this I thought. Maybe I was getting cabin fever, compounded by the continued effects of working remotely, so I made strict arrangements to take time off work, which I would spend in the loving bosom of my family. Time which would be well spent re-establishing old bonds, after the debacle earlier in the year. 
+I made an effort to rationalise the situation and decided it was just the responsibility of buying my first property that was weighing me down. Financial responsibility above all. After all I had sunk in a good deal of my money into the project, thrown everything at it. It was affecting me more than I had realised, no doubt. Got to shake myself out of this I thought. Maybe I was getting cabin fever, compounded by the continued effects of working remotely, so I made strict arrangements to take time off work, which I would spend in the loving bosom of my family. Time which would be well spent re-establishing old bonds, after the debacle earlier in the year.
 
 Then on the morning I was due to leave, the plumbing system in the flat – which had worked impeccably up until then – suddenly broke down, nearly flooding me out. Well no, that’s an exaggeration, about being flooded out I mean. But it was just enough of a problem that it meant I had to stay and try to get things fixed. In fact if I *had* been flooded out that might almost have been better, in a way, because then I would’ve had a real excuse to go stay someplace else for a while. But I wasn’t going to be allowed to do that.
 
@@ -102,13 +100,15 @@ After that, it was just one thing after another. The boiler broke down next, in 
 
 And dreamed, of a voice saying over and over: *Aren’t you glad you decided to stay? I am.*
 
-It was after all this crazy stuff happened that I began to consider the possibility of my flat being haunted or hexed, or something. Sure, I was under strain and my subconscious fears were probably making shit happen, but what if there genuinely was something more to it?
+&#x200B;
+
+It was after all this happened that I began to consider the possibility of my flat being haunted or hexed, or something. Sure, I was under strain and my subconscious fears were probably making shit happen, but what if there genuinely was something more to it?
 
 It was a pretty old building, almost eighty years old, but of course I’d already looked into all the background details before buying, and there hadn’t seemed to be anything untoward. Although it had been empty for a space before I took it on, there was no history of any dire deeds or tragedies connected with it that I could find. Nothing amiss in the neighbourhood either. Although, as I said, it had needed some upgrading it hadn’t been in the worst condition when I took it over, and things had gone smoothly - to begin with anyway. Finding that my researches turned up nothing, I abandoned my inquiries – at least for the time.
 
 Well, I made tentative plans to re-arrange the family visit, and almost immediately our part of the world went into another lockdown for the winter. It wasn’t as severe as the first time around but still enough to discourage most personal visits. I passed the winter in a kind of stupor, doing my work online as usual, ordering groceries and spent Christmas largely mouthing at loved ones onscreen.
 
-And now it was another year, and as it rolled towards spring, more restrictions were lifted and in many ways things did seem to get back to ‘normal’, although we had all forgotten what that meant. Anyway, for me personally, I hadn’t had to worry about people inviting themselves to stay over and having to be terrified that something would intervene to prevent them ever coming again. But finally I told myself I just had to get my shit together. 
+And now it was another year, and as it rolled towards spring, more restrictions were lifted and in many ways things did seem to get back to ‘normal’, although we had all forgotten what that meant. Anyway, for me personally, I hadn’t had to worry about people inviting themselves to stay over and having to be terrified that something would intervene to prevent them ever coming again. But finally I told myself I just had to get my shit together.
 
 So I made a determined effort to resurrect my social life. I duly paid the family the long-promised visit although I found I had walked into some sort of financial spat between my siblings which made it all very uncomfortable and prompted me to cut my time short. And so I found myself back in my flat far sooner than I’d expected. But never mind, I told myself. I’d start going out regularly too. The result was I met a rather pretty girl in a club who didn’t get too inebriated and who still wanted to see me a couple days later. Her name was Melanie. It seemed a long time since I had been with a girl.
 
@@ -116,19 +116,19 @@ After a few coffee and drink dates, she finally came to my flat one evening. She
 
 Hope she takes up the offer, I thought.
 
-*Don’t push it.* 
+*Don’t push it.*
 
 *Shit,* that voice again.
 
-That crazy voice, which I hadn’t heard in months. The voice in my head, but this time so loud, so … *definite*, it was literally like there was someone right there at my shoulder. 
+That crazy voice, which I hadn’t heard in months. The voice in my head, but this time so loud, so … *definite*, it was literally like there was someone right there at my shoulder.
 
-I promptly dropped the glass I was holding, it shattered on the coffee table which was messy enough but somehow I contrived to cut my stupid self in the process as well. I don’t know *how* it could’ve happened, but it did. Like one of the pieces just flew up or something and sliced into my left wrist. Way to go Jordan, I groaned inwardly as Melanie came running in through from where she had been admiring the river view to see my blood dripping pretty liberally onto the hardwood floor. Although not the deadliest of injuries it wasn’t particularly slight, either, and she played nursemaid for a bit before getting me professionally checked out because the bleeding would not stop. It hurt like hell, too. When her fears had been quelled, she said she could stay the night just to help out, but I pointed out that she’d already done a lot for me, and persuaded her to go home. We met a few times more after that but never again at my place, and then gradually lost contact. 
+I promptly dropped the glass I was holding, it shattered on the coffee table which was messy enough but somehow I contrived to cut my stupid self in the process as well. I don’t know *how* it could’ve happened, but it did. Like one of the pieces just flew up or something and sliced into my left wrist. Way to go Jordan, I groaned inwardly as Melanie came running in through from where she had been admiring the river view to see my blood dripping pretty liberally onto the hardwood floor. Although not the deadliest of injuries it wasn’t particularly slight, either, and she played nursemaid for a bit before getting me professionally checked out because the bleeding would not stop. It hurt like hell, too. When her fears had been quelled, she said she could stay the night just to help out, but I pointed out that she’d already done a lot for me, and persuaded her to go home. We met a few times more after that but never again at my place, and then gradually lost contact.
 
-Talk about a freak accident. Too damn freaky for my liking. 
+Talk about a freak accident. Too damn freaky for my liking.
 
 I didn’t feel much up to going out again after this, and certainly not to try to pick up any other girls. Really I didn’t know what was happening, but looking back it just seemed that there was *something*  \- some unseen force – that always conspired to keep me in the flat as much as possible and not let anyone else stay with me.
 
-In fact my nerves became so frayed that I ended up calling in a psychic. Well no, not really. I mean, she wasn’t a self-styled professional psychic as such – she didn’t take any money for her services. She had a perfectly good paying job and as such she didn’t even need a side hustle. I didn’t exactly call her in either. She was the friend of a friend, who brought her round one day after I’d mentioned I sensed something a bit ‘off’ about the flat. I didn’t want go into too much detail but I obviously divulged enough for the pair of them to spring into action. 
+In fact my nerves became so frayed that I ended up calling in a psychic. Well no, not really. I mean, she wasn’t a self-styled professional psychic as such – she didn’t take any money for her services. She had a perfectly good paying job and as such she didn’t even need a side hustle. I didn’t exactly call her in either. She was the friend of a friend, who brought her round one day after I’d mentioned I sensed something a bit ‘off’ about the flat. I didn’t want go into too much detail but I obviously divulged enough for the pair of them to spring into action.
 
 The psychic was called Stephanie. She was a large, comfortable-looking woman in her thirties, with a nose of a suitable size to sniff out spooks. She proceeded to ask a whole lot of questions about the history of the place first of all then breezed through all the rooms while I trailed after her. I kept on expecting her to stop and tense up and exclaim: There’s something here. I can feel it… Something … ominous …’
 
@@ -146,7 +146,7 @@ She looked me directly in the eyes. ‘I can say quite honestly I’m not pickin
 
 ‘Well – to be honest – nothing really, as such. I’m not really psychic.’
 
-‘Everyone is,’ she said reprovingly. ‘It’s part of being human. Not that everyone *is* human.’ She laughed again. ‘But, yeah, being psychic. It’s not as out there as some people think. It’s just most people choose to ignore that - *innate* \- ability.’ 
+‘Everyone is,’ she said reprovingly. ‘It’s part of being human. Not that everyone *is* human.’ She laughed again. ‘But, yeah, being psychic. It’s not as out there as some people think. It’s just most people choose to ignore that - *innate* \- ability.’
 
 I stared at her for a moment. ‘Well anyway, I can’t say I really sense anything in the atmosphere here, but – sometimes – I don’t know, I kind of hear, or *think* I hear –‘
 
@@ -172,9 +172,9 @@ I was really feeling out of my depth now. ‘What do you mean?’
 
 ‘*Too much* love. That’s when it can start becoming a problem.’
 
-I stared at her baffled until her expression changed back again. She smiled, but this time I didn’t find it reassuring. 
+I stared at her baffled until her expression changed back again. She smiled, but this time I didn’t find it reassuring.
 
-I didn’t know what to make of it. She’d seemed sincere enough. But if she was just putting it on why, exactly? Or was she picking up stuff from *me*? But that didn’t explain the love reference either. 
+I didn’t know what to make of it. She’d seemed sincere enough. But if she was just putting it on why, exactly? Or was she picking up stuff from *me*? But that didn’t explain the love reference either.
 
 &#x200B;
 
@@ -184,15 +184,15 @@ I made another effort to rouse myself out of my apathy, to get away from the fla
 
 I was feeling so generally listless these days, that I couldn’t concentrate much at work either. In a strange way maybe I was hoping I’d be let go so then I couldn’t keep up the mortgage repayments and so I would lose the flat that way. But this never happened either. Even although I started slacking off so much, I didn’t even get a reprimand. Apparently I was such a valued member of the team that my colleagues all preferred to rally round and show sympathy for whatever issues I was presumably going through. You ask me why I didn’t just resign? Say what you will, it’s hard to do that when you actually kind of *like* your job and even your co-workers and the money is constantly coming in. We’re most of us just too much conditioned by society I guess. Actually, I *did* finally muster up the nerve to announce my intention to resign, but on that very morning came word that the boss had suddenly died, of a heart attack or something, and everyone was so upset that I felt I couldn’t add to their troubles. I did make a request to be allowed to come into the office more often, but something always happened to make it more expedient for me to continue just working from home. So once again I just gave in.
 
-Yes, I know you’ll say I should’ve done more to fight this feeling, and the voice, and that strange sensation at my side, all of which were likely manifestations of my own unenviable mental state. I certainly wish that now. Because now has come the point when I *literally* can’t leave my flat. 
+Yes, I know you’ll say I should’ve done more to fight this feeling, and the voice, and that strange sensation at my side, all of which were likely manifestations of my own unenviable mental state. I certainly wish that now. Because now has come the point when I *literally* can’t leave my flat.
 
 I mean, since this morning, the doors and windows won’t open anymore. I’ve tried, and nothing budges. Keys are useless. I can’t even break the glass or shout through the letterbox to the neighbours. I’ve never really seen any neighbours around anyway come to think of it. I even ended up banging on the walls with no appreciable result. And my phone is totally dead – although last night it was still working fine.
 
-And the Voice has taken over. 
+And the Voice has taken over.
 
-There’s no-one left to talk to except the Voice. 
+There’s no-one left to talk to except the Voice.
 
-It sounds so loud now, a sexless kind of voice, monotonous yet with a very strange soft undertone. It seems to echo all around me now. 
+It sounds so loud now, a sexless kind of voice, monotonous yet with a very strange soft undertone. It seems to echo all around me now.
 
 *You’re here for ever. I knew you wouldn’t leave. I knew I could count on you.*
 
@@ -200,7 +200,7 @@ And my response, in panic: *Who are you? What are you? Why are you here?*
 
 *I am here because here is what I am.*
 
- *What is all this fucking crazy shit? Am I just crazy?* 
+*What is all this fucking crazy shit? Am I just crazy?*
 
 *You’re not crazy. This isn’t some crazy shit. Please don’t say that, Jordan.*
 
@@ -210,12 +210,12 @@ What the *fuck is* this?
 
 And the reply, unmistakable. *I am these four walls that surround you.*
 
-Now, once again, it’s that breathy whisper at my shoulder, the pressure at my pulse.  
+Now, once again, it’s that breathy whisper at my shoulder, the pressure at my pulse.
 
-*All the love you put into me. No-one else really gave me love in eighty years.* *All I’m doing is returning it. I want you all to myself, Jordan. Just you.* 
+*All the love you put into me. No-one else really gave me love in eighty years.* *All I’m doing is returning it. I want you all to myself, Jordan. Just you.*
 
 At last, it has all become clear to me. My joy at first getting this place, my first property, the first real sign that I had made it. I remember now how, carried away by euphoria, standing on the threshold, I had rambled on: ‘I’ll give you everything I got. Nothing can stand in our way. I *know* we can make it work. You and me together baby!’
 
-And now I can’t get out. No means of communication. As I said, the phone is dead. Can’t call emergency services  or call or email anyone else from my laptop either. Bizarrely enough, it’s only this old reddit account that seems to be working and only for the purpose of posting my story, not to actually contact anyone. And I have this horrible feeling that once I've posted, the laptop will cut out altogether so I probably won’t even be able to read the comments. I’m hanging on just long enough to get the story out. And that’s the other thing. I can’t post details of my address, so that maybe someone could come to try and rescue me or something, every time I try to type it in nothing comes up. I guess all I’m being allowed to do is get my story out as a warning to others. 
+And now I can’t get out. No means of communication. As I said, the phone is dead. Can’t call emergency services  or call or email anyone else from my laptop either. Bizarrely enough, it’s only this old reddit account that seems to be working and only for the purpose of posting my story, not to actually contact anyone. And that’s the other thing. I can’t post details of my address, so that maybe someone could come to try and rescue me or something, every time I try to type it in nothing comes up. I guess all I’m being allowed to do is get my story out as a warning to others.
 
 So this is my final message. Always be careful what you say. You never know when the walls might be listening. Look what happened to me. I’ve become – in the truest sense of the word – a *flatmate*.
