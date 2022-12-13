@@ -112,20 +112,19 @@ I didn’t go home. I’ve been living in my car. Whatever my wife did to resurr
 
 Should I go home? I can’t run and hide for the rest of my life. I think I have to stop her.
 
-____
-My update from the comment section:
+&#x200B;
+
+UPDATE:
 
 You’re right. I can’t run from it. As I received a flood of replies, I found myself overcome with guilt. My wife made a desperate decision, and it came with an unimaginable price. That’s why I’ve been browsing the internet to find some sort of explanation for what happened to her. Perhaps I can stop her. Perhaps I can also save her.
 
 Earlier this morning, I found something.
 
-I was starting to give up on my online research, but a particular forum recommended a gothic bookstore not too far from the city. They have a library section with various books detailing the history of the occult. Apparently, they have things you won’t read on the internet.
-
-Bingo.
+I was starting to give up on my online research, but a particular forum recommended a gothic bookstore not too far from the city. They have a library section with various books detailing the history of the occult. Apparently, they have information you won’t find on the internet.
 
 I drove straight there and waited for the store to open at 9am. The little old lady seemed shocked to see a customer waiting at the door, bright and early. Her name was Greta. She was warm and helpful, unlike the sinister shopkeeper I’d pictured in my head. I didn’t tell her about my wife, but I asked about a creature that could do the things my wife has been doing.
 
-Greta’s eyes widened. I could swear the bookstore darkened. She asked me how I’d come to know of such an unearthly power. I didn’t answer. I just repeated that I needed to know about it. Greta nodded and beckoned for me to follow her to the shelves of books. She picked up a dusty, leather-bound book that was entitled ‘Veilbreaking’.
+Greta’s eyes widened. I was sure the bookstore darkened. The lady asked me how I’d come to know of such an unearthly power. I didn’t answer. I just repeated that I needed answers. Greta nodded and beckoned for me to follow her. From a shelf in a forgotten crevice of her store, she picked up a dusty, leather-bound book that was entitled ‘Veilbreaking’.
 
 “Do you know somebody who has broken the veil?” Greta asked, her eyes swimming with terrified tears.
 
@@ -137,9 +136,9 @@ Greta looked at me with sorrowful, pitying eyes. She pushed the book into my arm
 
 I left the bookstore, returned to my freezing car, and started to flip through the pages of the nightmarish history book. I won’t write an entire novel here, but I’ll explain Veilbreaking to you. I’ll explain what my wife did.
 
-The book claims, firstly, that every human has a soul. I didn’t used to be spiritual. I didn’t even find any kind of afterlife. After I witnessed my wife’s ghoulish transformation, however, I find myself unable to deny that. All souls exist on the other side of a thin veil, according to the book.
+The book claims, firstly, that every human has a soul. I didn’t used to be spiritual.  After I witnessed my wife’s ghoulish transformation, however, I found myself unable to deny the existence of something greater than me. All souls exist on the other side of a thin veil, according to the book. I believe it.
 
-Veilbreaking is the process of recovering said souls and returning them to the physical world. That comes with a price. And there is the process whereby the deceased individual’s body must be restored to perfection. That also comes with a price.
+Veilbreaking is the process of recovering said souls and returning them to the physical world. That comes with a price. Additionally, there is a process whereby the deceased individual’s body must be restored to perfection. That also comes with a price.
 
 The being that extracts the price is called Det. Many different people have depicted him in many ways. There was one drawing of the entity. It had a bony, contorted, vaguely-human figure (much like that of its victims), and it also had horrible black eyes. Emily’s eyes. There were also bodies at its feet. Shrivelled people were lying in a mangled mess and clinging to their last moments of life, much like the man I saw several nights ago.
 
@@ -189,5 +188,4 @@ I released the door handle, sprinted down the stairs, darted out of the front do
 
 I’ve been sitting here for the past hour, staring at the open front door to my blackened house. I’m flicking through the Veilbreaking book. I hope to find some answers.
 
-____
-I will update all of you in another post. I still hope I can save my wife.
+[II](https://www.reddit.com/r/nosleep/comments/zkilyw/a_month_after_i_died_my_wife_resurrected_me_part_2/)
