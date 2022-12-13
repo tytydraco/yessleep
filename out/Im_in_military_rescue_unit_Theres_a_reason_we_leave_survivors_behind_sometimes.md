@@ -1,3 +1,9 @@
+Part 2: https://www.reddit.com/r/nosleep/comments/zj34y5/im_in_a_military_rescue_unit_theres_a_reason_we/?
+
+Part 3: https://www.reddit.com/r/nosleep/comments/zkfl7t/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
+
+*******************
+
 They said it was nothing. A routine rescue op at a facility known as the Tantalus Site.
 
 But that quickly proved untrue. Terribly, horrifically untrue.
@@ -107,7 +113,3 @@ Something reflected the light of my beam. Two eyes stared back at me through the
 “Anyone down there?” Connors called to me from the main tunnel. 
 
 “No,” I said as I turned around to leave. “No survivors down here.”
-
-
-
-Edit: Part 2: https://www.reddit.com/r/nosleep/comments/zj34y5/im_in_a_military_rescue_unit_theres_a_reason_we/?

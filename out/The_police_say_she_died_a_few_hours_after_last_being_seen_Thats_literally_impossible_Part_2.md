@@ -1,6 +1,6 @@
 [Here](https://www.reddit.com/r/nosleep/comments/zhetcv/the_police_say_she_died_a_few_hours_after_last/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) is part one. 
 
-Hello everyone, recently two more women were found under the same conditions as Sue. 
+Hello everyone, recently two more women were found under the same conditions as Sally. 
 
 Yesterday, police found Kelly. She was camping with her boyfriend Ben. After finishing a card game late at night, she told him that she needed to go to the bathroom. She left the tent to go down to the porta potty a short walk away and he went to bed. That was the last time he saw her. He went back to sleep, awaking in the morning to her being gone. Ben thought she had already woken up and was outside. However, when he went outside, she was nowhere to be found. 
 
@@ -28,7 +28,7 @@ The other woman is Ruby, who was found dead in the same forest today. A cause of
 
 For a time line: 
 
-December 9th, Sue dies and is found later that day
+December 9th, Sally dies and is found later that day
 
 December 10th, Kelly goes missing and is found later that day
 
@@ -73,3 +73,5 @@ Why aren’t people worried?
 Who is following Ben and I, and why? 
 
 But most of all, what really happened to those three women?
+
+Edit: Sally’s nick name was Sue, so I accidentally  put both names in. I clarified it to just Sally.
