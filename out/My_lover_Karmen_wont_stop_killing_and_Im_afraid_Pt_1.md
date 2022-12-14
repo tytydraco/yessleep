@@ -1,6 +1,6 @@
 “Mother, why did we even come here?”
 
-I glared out of the car as the rain pelted our windows violently.
+I glared out of the car and glanced at my phone as the rain pelted our windows violently.
 
 “Because dear,” one of the wheels interrupted with a loud screech, “you are ill. I thought the mountain air would do you good.”
 
