@@ -6,7 +6,7 @@ I was driving home from getting gas when I saw the target that me, mary, and esp
 
 &#x200B;
 
- Lately, I have been seeing things move out of the corner of my eye. I wanted to see if these were just side effects of my new meds so I checked the labels for the side effects. Even though it could've just been me obsessing over my failing marriage. I decided to check the side effects anyways. Said all the same old shit diarrhea, vomiting, sleep paralysis, hallucinations,... Hallucinations! That had to be it. Had to be. Right?
+Lately, I have been seeing things move out of the corner of my eye. I wanted to see if these were just side effects of my new meds so I checked the labels for the side effects. Even though it could've just been me obsessing over my failing marriage. I decided to check the side effects anyways. Said all the same old shit diarrhea, vomiting, sleep paralysis, hallucinations,... Hallucinations! That had to be it. Had to be. Right?
 
 &#x200B;
 
@@ -22,7 +22,7 @@ I haven't seen this thing yet, or at least not fully. I've only seen the silhoue
 
 &#x200B;
 
-I heard footsteps walking down the halls I told Jessica to hide and when she just stood there looking confused I heard it coming closer so I grabbed her ad told her this was and tried my best to make her know that I was serious so I ran and threw her in the same closet where I hid the doll that I wanted to give her as a gift for her birthday. Up to this point I had tried to keep her away and keep this hidden but at this point, it wouldn't matter if it was a secret if she wouldn't even make it to her birthday. I ran back down to face this thing. Looking even more distorted than before I took tried to make it back down and could tell it was looking for Jessica but I wasn't going to let that thing take my everything. It was all silent as I stared at it. Stared at that thing for I don't even know how long. 
+I heard footsteps walking down the halls I told Jessica to hide and when she just stood there looking confused I heard it coming closer so I grabbed her ad told her this was and tried my best to make her know that I was serious so I ran and threw her in the same closet where I hid the doll that I wanted to give her as a gift for her birthday. Up to this point I had tried to keep her away and keep this hidden but at this point, it wouldn't matter if it was a secret if she wouldn't even make it to her birthday. I ran back down to face this thing. Looking even more distorted than before I took tried to make it back down and could tell it was looking for Jessica but I wasn't going to let that thing take my everything. It was all silent as I stared at it. Stared at that thing for I don't even know how long.
 
 &#x200B;
 
@@ -34,4 +34,4 @@ I heard the door creek open. I heard little footsteps that resembled Jessica’s
 
 &#x200B;
 
-I was confused about what it meant by that, or at least I was before I saw another one of them around the corner dragging a limp ad bloodied Jessica with a chunk of her face just gone. The Othe gave me a sinister bloody smile when I put things together and immediately knew that what I heard wasn't Jessica’s footsteps, but her shoes hitting the uneven wooden floor while being dragged down the hallway by the other. All I knew I didn't matter if I died or not. My life. Was over.
+I was confused about what it meant by that, or at least I was before I saw another one of them around the corner dragging a limp and bloodied Jessica with a chunk of her face just gone. The Othe gave me a sinister bloody smile when I put things together and immediately knew that what I heard wasn't Jessica’s footsteps, but her shoes hitting the uneven wooden floor while being dragged down the hallway by the other. All I knew I didn't matter if I died or not. My life. Was over.
