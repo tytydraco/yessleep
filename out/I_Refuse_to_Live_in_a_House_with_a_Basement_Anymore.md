@@ -18,7 +18,7 @@ Well, not completely dark. The sun was beaming through most of the windows, and 
 
 But there was one place in the house that was always dark. One that I had dared not to enter, not even for such mundane tasks like moving boxes around the house. And that was, of course, the basement.
 
-After wandering through the house, I went past the kitchen over to the door leading into the basement, and I was faced with a dilemma. Test my courage and go downstairs? Or act like a wimp and give up?Of course, my mind had to fight an internal battle. And obviously, the stupid part of my brain won out. So I took a deep breath, and walked over to the basement door to take the plunge.
+After wandering through the house, I went past the kitchen over to the door leading into the basement, and I was faced with a dilemma. Test my courage and go downstairs? Or act like a wimp and give up? Of course, my mind had to fight an internal battle. And obviously, the stupid part of my brain won out. So I took a deep breath, and walked over to the basement door to take the plunge.
 
 My head was peering over my shoulder every 2 seconds, with my eyes twitching all over the place. My fingers lightly gripped the doorknob, and with a slight twisting, the door creaked open.It was dark. Pitch-black dark. It almost looked like a black hole, and that's the kind of dark I’m talking about. I took one step at a time, reaching the bottom slowly but surely. Every creak made me flinch, and think of what things could lie underneath. After reaching the bottom, I took one step into the black abyss, and turned on my flashlight.
 
