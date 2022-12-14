@@ -1,4 +1,4 @@
-Earlier this month, I moved into a new apartment due to not being able to afford it, because inflation sucks. It's completely new and it has an in-unit washer and dryer plus a dishwasher. It's a one-bedroom. *And* it only costs $800 per month. I mean, seriously, it can't get any better than this.
+Earlier this month, I moved into a new apartment due to not being able to afford my previous apartment, because inflation sucks. My new apartment is, like I said, completely new and it has an in-unit washer and dryer plus a dishwasher. It's a one-bedroom. *And* it only costs $800 per month. I mean, seriously, it can't get any better than this.
 
 However, there is one slight, teeny tiny issue.
 

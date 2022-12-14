@@ -146,7 +146,7 @@ As we arrived at the entrance of the asylum, the air was heavy with a sense of f
 
 First, we grabbed the stuff we left in the trunk. Headlamps, flashlights, cameras, phones, and some water. We also brought an EMF, Spirit box, and some GoPROS.
 
-Then we started recording the first shot of our video. Our fans like it when Bianca starts from our comments, so we usually let her do that stuff of course.
+Then we started recording the first shot of our video. Our fans like it when Bianca starts, we know from our comments calling her funny or interesting, so we usually let her do that stuff of course.
 
 Maeve holds the camera still, Frank sets up his audio, and John just watches as he is somewhat our director I guess.
 
@@ -160,11 +160,11 @@ I'm the editor so I just watch.
 
 She continues, "And GAAHH DAAMN!! This place is craaazyyy, I don't think the ToS will let me explain what happened so you can either search it up… Orrrrr watch our video on Patreon! Feel free to also join our community to unlock cool emotes and see some of our videos early ,enjooooooyyyy!!~" Bianca takes a deep breath of air.
 
-"And cut! Fantastic work as always Bianca" John says and Maeve stopping the recording. Maeve also follows up.
+"And cut! Fantastic work as always Bianca." John says and Maeve stopping the recording. Maeve also follows up.
 
 "For reals! Great work girl!" She says enthusiastically.
 
-Frank sighs puts his audio recording device down.
+Frank sighs , and puts his audio recording device down.
 
 And I only nod.
 
@@ -176,7 +176,7 @@ We cautiously made our way inside, our footsteps echoing through the empty corri
 
 Bianca looked at me and smiled, "What? Think Gah damn is funny Colbs?"
 
-I look somewhat frustrated, "Don't call me Colbs! I hate being called that."
+I look somewhat frustrated, "Don't call me Colbs, I hate being called that."
 
 "Be for real broo.." Maeve sighs and we continue onwards.
 
@@ -199,13 +199,13 @@ As he walked within a few feet of the door, it seemed as if he didn't have to. A
 The thing had long, slender fingers that seemed to stretch out from beyond the door. Its skin was a sickly green colour and it had sharp, pointed nails at the ends of its fingers. Its eyes were large and bulging, and they glinted with an otherworldly intelligence. It had a mouth full of razor-sharp and gaunt teeth and a long, thin tongue that flicked out to taste the air. As it moved closer, the door behind it seemed to stretch and warp, as if the monster was somehow able to move through dimensions at will. It was a terrifying sight, and anyone who encountered it would surely be filled with fear.
 
 Frank was frozen, we all were.
-John made the first room.
+John made the first move.
 
 "Im fucking out." And so he was the first to get out of that room. And everyone else followed but me and Frank, both still.
 
 The monster lunged at Frank, its long fingers extended and ready to tear into his flesh. I watched as Frank screamed in terror as the creature's sharp nails dug into his skin, slicing through his clothing and exposing the raw meat beneath. The monster's mouth opened wide, revealing his rows of jagged teeth, and it bit down on his arm, tearing off a large chunk of flesh. Blood spurted from the wound as he struggled to break free from the creature's grasp, but it was no use. The monster continued to rend and tear at Franks body, each bite and scratch causing more and more damage. In a matter of moments, the man was reduced to a bloody, mangled heap on the ground, his screams silenced forever. I immediately started gagging as I fucking ran. I made my way the fuck out of there as vomit flowed from out my mouth and all over my clothing.
 
-Bianca looked at my in disgust in confusion, "Where the fuck is Frank?? What fucking happened to you?"
+Bianca looked at me in disgust in confusion, "Where the fuck is Frank?? What fucking happened to you?"
 
 I pant heavily, coughing, I feel like the air has been sucked dry from my body.
 
@@ -217,7 +217,7 @@ Wheeze
 
 "Fucking dea-"
 
-I can't speak, I can't breath, that thing, what is it??
+I can't speak, I can't breathe, that thing, what is it??
 
 Everyone looks in horror. Maeve backs up against the wall, a hole above her and camera in hand.
 
@@ -225,9 +225,9 @@ Everyone looks in horror. Maeve backs up against the wall, a hole above her and 
 
 Maeve struggled and fought against the creature, but it was too strong for her. In a matter of moments, the creature had lifted her to the floor above and, with one swift movement, it decapitated her with its sharp claws.
 
-The girl's lifeless body fell back to our floor, and we heard a wrapped chuckle I can only think.
+Maeve's lifeless body fell back to our floor, and we heard a warped chuckle.
 
-We all stay frozen in fear, I'm traumatised, I can't move. They got Frank and Maeve, we are dead.
+We all stay frozen in fear, I'm traumatised, I can't move. They got Frank and Maeve, we are all dead for sure.
 
 John panics and starts running again. He tried his best cannot as a hand from a door reaches out and pulled him into the room, the door locking John inside.
 
