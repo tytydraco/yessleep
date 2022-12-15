@@ -1,6 +1,6 @@
 I've known about their existence for as long as I can remember. Just like the sky that ran over us and the land that tethered us and the trees that gave us air, they've always been there. Their existence was just another constant like many other things in our lives. 
 
-They don't know but we're always there, watching. They can't see us but we can see them. Some believe in our existence, some don't. They call us 'Ghosts'. I've heard many tales of us, written by them.Tales and songs about our grotesque bodies and our lust for blood and our hatred for them. Songs and tales that send their children shrieking and hiding, as if their wails and flimsy covers could truly protect them from our kind, from our so-called sharp teeth and all-knowing minds. 
+They don't know but we're always there, watching. They can't see us but we can see them. Some believe in our existence, some don't. They call us 'Ghosts'. I've heard many tales of us, written by them. Tales and songs about our grotesque bodies and our lust for blood and our hatred for them. Songs and tales that send their children shrieking and hiding, as if their wails and flimsy covers could truly protect them from our kind, from our so-called sharp teeth and all-knowing minds. 
 
 
 I've always been fascinated by their kind. Though most of my peers outgrew their curiosites and have come to terms with humans, I couldn't, for the life of me, look past their world, the human world. So different, yet so close. 
