@@ -1,0 +1,29 @@
+I wanted to share one of my most scariest experiences in my life. I’ve told this to family and friends and I’m always given a skeptical look or it brings chills to their spine. It sounds farfetched, but Honestly, it was as real as it can get for me, and that’s all that matters.
+
+I was around 10 or 11 at the time and was in my old home in Millmont PA. It was after school and I spent a few hours just gaming in the 1st floor living room. It was only me and my older brother home at the time since my parents worked 2nd shift until around 11 pm. It was around 7-8 pm when I began to crave one of my favorite snacks. I walked in the kitchen and opened some blueberry pop tarts and sat down at the kitchen table. I was facing away from the living room at the end table. Now I need to explain the layout so you better understand. 
+
+Before entering the kitchen there is a small archway with no door. It leads straight from the kitchen to the living room, extending to around 2 feet of open space on either side after the archway. From the living room continuing straight there is a staircase to the left facing away from kitchen view.
+
+I was mid bite of my pop tart when all of a sudden I began feeling what I can only describe as dread mixed with the feeling of being watched. I kinda shook it off because of it being so random. It made no sense as to why I felt that way so I just kept eating. I was a few more small bites in when the feeling intensified and I only had a gut instinct to turn around. 
+
+I decided to do so when I should have not... 
+(I’m going to try my best to describe the finite details of what I saw) 
+
+When I turned around I was immediately focused on 3/4ths of a face peeking out completely sideways on the right side of the archway. Now this face was completely solid and not transparent at the least. It was the face of my older brother Jonathan. His eyes were opened unnaturally wide, unblinking, and staring directly into my own. his face was far enough out to see he had an absolute sinister smile. An ear to ear smile that was almost too far stretched out to be normal. My brothers skin was normally pale, but this face was an extreme pale being for sure a few shades lighter, almost like a slightly cream porcelain. The face’s eyes were same color as Jon being bright blue, but it seemed almost glossy. It made no noise and never attempted to speak, it just stared at me unmoving. 
+
+Now I have a condition where I get heart palpitations from a murmur I’ve had since birth.  if I am surprised or get excited too quickly, I get several quick palpitations. I’ve had it for as long as I remember. 
+When I suddenly saw that face I had to clutch my chest as an immense immediate fear, and surprise caused my heart to palpitate several times. I also got a huge lump in my throat. I couldn’t scream or yell. I just stared widely back in a paralyzed horror.
+
+What was around 5 seconds felt more like an eternity. The face then pulled back behind the archway at an angle you wouldn’t think possible. For a few seconds I was terrified but then I just began trying to rationally think of what I saw in an attempt to pull myself back to earth. 
+
+In my own mind I knew it was my brother, it’s just his features were a bit oblong and that smile was more sinister than anything I’ve seen before. I was already used to him pranking me on a weekly basis so I convinced myself that it was another one of his stupid pranks. I thought to myself that I can also sneak to the archway myself and scare him back since he didn’t walk back to the living room. I knew he was just hiding on the right side of the archway. So I slowly and silently got up from the chair and sneaked my way to right side of the archway from the kitchen. I reached the edge of it, waited a few seconds and then jumped out and yelled “BOO!!!” 
+
+However to my confusion there was nothing there.... there was no way that my brother could have moved away from that position without me seeing as that part of the wall only came out about 2 feet. I still had visible access to the rest of the living room from the kitchen. I was in shock/confusion when all of a sudden I hear quick walking coming from the staircase on the left side of the living room. I slowly turned towards the staircase and looked up at the sight of my older brother looking back at me with a confused expression. 
+
+“Dude who the hell are you yelling at?” My brother said as he peeked over the stair rail at me. [He was 13 at the time.]
+
+I was in just utter shock. I tried to make out words but I just couldn’t. My lip was only quivering. I instead just turned back around went back into the kitchen and sat down at the kitchen table again just staring into my pop tarts for about a minute or two. My brother came down the stairs and Into the kitchen and saw the blank look on my face and pressed on his question. I told him everything I saw and he somehow believed me. Maybe due to the fear and panic I had when he first saw my face. 
+
+I was researching online what I could have possible seen and I have only been pointed to what is known as a doppelgänger. But I saw that they are an “exact” copy of a living person. That thing was very close to being exact but was not 100% I would say 90% at best with that stretched smile and the skin tone. Also my research showed that they are not sinister or evil, but can be a sign of bad luck. But I swear the only feeling I got off of it was dread and a sense of sinister evil. I never saw it again after that day.
+
+So what exactly was it then? I have no idea... I have other experiences from my 30 years of life and will continue posting them. But that was the scariest out of all of them and I just wanted to see if anyone has any idea what I witnessed..
