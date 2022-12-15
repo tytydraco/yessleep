@@ -46,7 +46,7 @@ After he tied me to the chair. He walked towards the fireplace and added wood to
 
 Then he turned around and spoke.
 
-"Your lucky there's no signal here so I can't call the cops right now. And because of the weather outside, it's too dangerous to carry you to the police station myself."
+"And because of the weather outside, it's too dangerous to carry you to the police station myself."
 
 "So you will be forced to stay here until then," he smirked 
 
