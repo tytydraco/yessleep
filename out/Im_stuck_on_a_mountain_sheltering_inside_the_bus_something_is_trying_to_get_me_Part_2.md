@@ -1,3 +1,4 @@
+
 [Part 1](https://www.reddit.com/r/nosleep/comments/yw9r8u/im_stuck_on_a_mountain_sheltering_inside_the_bus/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 A snowstorm had started outside, and I watched thru the window looking for the monster. As long as the weather outside doesn't change for the better I'm forced to stay inside this cabin.
