@@ -2,6 +2,8 @@ Part 1: https://www.reddit.com/r/nosleep/comments/zhez4u/im_in_military_rescue_u
 
 Part 3: https://www.reddit.com/r/nosleep/comments/zkfl7t/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
 
+Part 4: https://www.reddit.com/r/nosleep/comments/zm5zza/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
+
 I work with an Aeromedical evac unit for the military. Our job is to treat and evacuate wounded soldiers in dangerous situations. Recently, my unit was assigned to a military facility known as the Tantalus Site where they developed a deadly biological toxin that wrought unimaginable havoc on their test subjects. A leak at the compound was reported before the entire place went dark.
 
 When we arrived, we encountered a mess of people torn apart by something monstrous and the last thing I remember was seeing eyes in the dark.
