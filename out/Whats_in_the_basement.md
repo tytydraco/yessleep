@@ -196,7 +196,7 @@ Linda smiled endearingly at him as Pastor Dylan checked the basement door. He ji
 
 "Suit yourself," I said, kicking my legs up on the couch.
 
-Graham sat in a chair next to the living room window and occasionally peered at the street. I figured if something dangerous was close by, he would notify us. Mara laid on the floor; II couldn’t imagine it was comfortable.
+Graham sat in a chair next to the living room window and occasionally peered at the street. I figured if something dangerous was close by, he would notify us. Mara laid on the floor; I couldn’t imagine it was comfortable.
 
 Linda and Ed kept as quiet as they could in the kitchen. Sometimes the banging of pots and pans would ring out. Each time put me further on edge, but Graham never said anything, so the sound must have been quiet enough. My stomach rumbled when the pleasant smell of beef cooking wafted through the air.
 
@@ -218,7 +218,7 @@ Graham shook me awake about two hours later, or so the clock said. For some reas
 
 "Yes, Father," I said, groggily rising to my feet.
 
-BANG, BANG, BAAANG, BANG! 
+BANG, BANG, BAAANG, BANG!
 
 "Shit! There it is again," I said.
 
@@ -268,7 +268,7 @@ Mara was asleep on the floor, Ed and Linda sat on the other end of the couch, Ma
 
 "It's good to have optimism," he began timidly. “Take a place by the window, and if anything happens, alert us \**quietly\**."
 
-"Will do," I said as he smiled reassuringly. The wooden chair next to the window wouldn't make for comfortable sitting, but its hardness meant I wouldn't fall asleep quickly. 
+"Will do," I said as he smiled reassuringly. The wooden chair next to the window wouldn't make for comfortable sitting, but its hardness meant I wouldn't fall asleep quickly.
 
 Things had been progressing rapidly. I hadn't had a moment to think about the eerie turn of events. Our town of Ridgewood had gone mad. It was as if lunacy was carried on the winds, infecting the minds of many. Why were we unaffected? I couldn't say, and I wasn't sure I believed Pastor Dylan's proclamation of holy war.
 
@@ -386,7 +386,7 @@ BANG, KNOCK, KNOCK, BAAAAANG!
 
 Matt ducked and punched Ed in the thigh, causing him to howl in anguish. Pastor Dylan tried to get between them, but it was no use. Ed and Matt began grappling down the hall, knocking each other into the walls and against low-hanging paintings.
 
-It wasn't long until blood smeared speckled their faces. All the while, the banging from outside *and* inside continued. Mara tried to console Linda, but she was overwrought, shaking, and crying like a scared child. Pastor Dylan stared at Graham and me; it looked like he was about to run out the front door.
+It wasn't long until blood smear speckled their faces. All the while, the banging from outside *and* inside continued. Mara tried to console Linda, but she was overwrought, shaking, and crying like a scared child. Pastor Dylan stared at Graham and me; it looked like he was about to run out the front door.
 
 Suddenly, a separate door in the hall burst open, and more than five individuals poured into the hallway. The grunting and huffing from Matt and Ed transitioned into terrifying cries of agony. Linda ran from Mara into the hall, and within seconds, her blood-chilling screams entered the air.
 
@@ -542,7 +542,7 @@ Me.
 
 My body was decaying amongst the festering. That was the real reason I ran out so quickly.
 
-Am I real? Am I still Danny Haronfield? How could this happen? \**When\** did this happen? 
+Am I real? Am I still Danny Haronfield? How could this happen? \**When\** did this happen?
 
 They just moved closer.
 
