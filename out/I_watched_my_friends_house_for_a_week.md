@@ -1,0 +1,13 @@
+So, I am currently hiding in the bathroom, hiding from whatever the hell is outside this door. Its not human.
+
+It all started on a casual Wednesday, my friend called me, asking for me to watch over his place while he goes camping for 3 days. I agreed and when I got there, he handed me a simple list of rules, for example, keep all the doors locked, and dont go outside durning nighttime. As soon as he left, I booted up his xbox, we had basically all the same games, since we played alot. I sat on the xbox for a good 1-2 hours before I got something to eat. 
+
+I had brung my own snacks, so I took out a bag of chips and started eating. It was around 7:30 pm, when I noticed tapping on the window shutter. My friend had his window shutters and the blinds closed, so it freaked me out a little bit. I ignored it, and it stopped. Not even 2 minutes went by and the tapping started, it sped up when I ignored it. It eventually started banging on the shutter. I quickly got up, walking towards kitchen, grabbing a knife. I gone slowly back to the living area, creeping up to the window, once I got next to it, it stopped banging. Only for it to move from the living space to one of the guest bedrooms, I grabbed my bag and phone, rushing to the bathroom and locking myself in. 
+
+There was no windows in the bathroom thankfully. I sat down, back to the door, trying to message my friend if he was messing with me. Unfortunately, he probably was in the middle of nowhere and didnt respond. The tapping in the guest bedroom turning into banging. This lasted to around 11pm, when it broke in. It was fast, and loud. It knocked almost everything down in the guest bedroom. Now it wss trying to kick down the bedroom door, since it was closed when I got here. 
+
+The guest bedroom was around 2 rooms away from me. I had stayed quiet until it broke down that door. It went up to the bathroom door, seeming like it knew I was here. I closed my eyes, as it started tapping, the tapping became into scratching at the door. It tried sticking its fingers underneath the door. All that accomplished was the things fingers being sliced off. The fingers looked decayed and rotten which made the bathroom smell horrible. As soon as I cut off its fingers, it started banging on the door.
+
+ After 10 minutes it stopped, lingering outside the door. I tapped on the door twice to see if any reaction would happen. I instantly regretted it as it started banging, and screaming. Picture the screams you hear in horror movies, and multiply it by 2. After a good hour of my ears being tortured, it stopped. I am still in the bathroom. It is 8 am, and whatever the hell is out there, is still there.
+
+Part 2 soon

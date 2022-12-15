@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/zl8uis/we_destroyed_a_gravestone_in_new_orleans_at_mardi/)
+
 I watched those gold eyes of the braided man look to a hallway behind me lined with doors. Then I looked back at the braided man. 
 
 *He was gone.* I was twisting the knife into nothing, standing in the room by myself. 
