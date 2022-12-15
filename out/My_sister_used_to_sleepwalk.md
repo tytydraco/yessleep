@@ -1,0 +1,13 @@
+So as the title suggests, my sister used to sleepwalk when she was a kid. Well most of the episodes involved her walking in to rooms and turning the lights on and walking out. She did this to me a couple times. One time she walked into the basement and screamed, which woke everyone up.
+
+I should also mention that my sister and I haven't had a good relationship since she was 3 or 4. She was always hurting me or trying to get me in trouble. I never defended myself because of how i was raised. Loved breaking my toys or my die-cast model cars. When she got older she even started destroying my homework and my parents would have to tell my teachers about it. 
+
+Anyways, I was in 8th grade when this episode occurred. 
+
+So I'm in my room asleep. Iirc it was the weekend so I didn't have to worry about school the next morning. I'm sleeping when I was violently awoken. I felt someone jump on top of me, their knees in my chest. That's when the screaming started. Not from me, but from the assailant. I had my covers over my face, which I never usually did. I couldn't immediately tell it was my sister. But once I realized it was her I went to scream back. It was at that point I realized I couldn't.  I couldn't breathe. Because my sister had wrapped her hands around my throat and had started choking me. The way I sleep, I have my hands on my lower chest/stomach. So she was on top of them which made them useless. Well she loosened her grip at which point I was able to inhale and promptly scream. 
+
+Then all of the sudden, the pressure is off my chest and I can move my arms. I pull the covers off and see that my parents had rushed into my room and restrained her. I had never breathed such a beautiful breath before or since. My mom checked on me to make sure I was OK, I said I was. My dad then came in to ask the same. They both looked like they had seen a ghost. They then went back to their room and I somehow went back to sleep. After locking my door, of course. 
+
+The next morning they asked if I was still alright. Again, I said I was alright. Well my mom starts to tell me that my sister had first gone into their room before attacking me. She had woken my parents up by walking in and talking, not to them, but to someone else. Of course there was no one there. My mom then tried to talk to her, which caused my sister to scream, run into my room and attack me. 
+
+This happened about 16 years ago. She has not had a sleepwalking episode since. But I still lock my bedroom door on the off chance she has an episode.
