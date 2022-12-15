@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/zbqagi/my_friend_told_us_an_evil_was_going_to_kill_us/)
+
 It wasn’t like Bo to be late. Ever. 
 
 Mike, Rochelle, and I sat at our usual table in the back corner of the Starbucks, not drinking coffee, and wondering what was going on. 

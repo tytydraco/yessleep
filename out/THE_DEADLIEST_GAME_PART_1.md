@@ -1,4 +1,5 @@
  
+[Part 2](https://www.reddit.com/r/nosleep/comments/zmnk5o/the_deadliest_game_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 It was late at night when I pulled up to the property, buried deep in a forest of skeleton-bare trees.  My headlights had been off for a while, and I quieted the engine’s rumble with a backwards twist of the key in the ignition.  Once the car was still, I breathed a sigh of relief.  No lights were turning on, no people were waking up inside the house.  
 
@@ -165,6 +166,8 @@ Now I knew it was true.
 There really was a World Championship of Assassination.  And I was the underdog in the newest class of twenty contestants.  
 
 With that thought in mind, I put on the shoes, filled up the canteen with water, strapped the knife to my belt, and started moving.  Keeping my head low, I crossed the narrow creek bed and made my way deeper into the unknown forest, preparing myself mentally for the fight of my [life.](https://youtu.be/rumiJJyA2FM)  
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/zmnk5o/the_deadliest_game_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
  [JG](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)
 

@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/zmag6u/we_destroyed_a_gravestone_in_new_orleans_at_mardi/)
+
 I couldn’t believe we actually went to Mardi Gras for John’s bachelor party. It was one of those ideas I thought everyone would always talk about being great, but then realized it would be too expensive and difficult, especially for a bunch of men now in their 30s. 
 
 Like every bachelor party trip I had ever been on, it was multiple days when it should have just been one when you reached our age. Yet, we were in New Orleans for four days and nights and I was fucked, having gotten black out drunk the first night of the trip. I knew I was going to be dehydrated with simmering bubble guts the rest of the fucking time. 

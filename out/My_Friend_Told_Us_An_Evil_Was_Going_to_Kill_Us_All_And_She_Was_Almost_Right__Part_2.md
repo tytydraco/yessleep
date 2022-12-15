@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/z9zmnd/my_friend_told_us_an_evil_was_going_to_kill_us/)
+
 It was a long, dark, steep, and slippery drive up the foothills of the mountains to Maye’s house. She had no address. She lived on a logging road that snaked up into endless forest in a little cabin.
 
 Smoke billowed out the top of the house. There were no lights on. We worried the old man had beaten us there and possibly already burned down the place with Maye inside. 
