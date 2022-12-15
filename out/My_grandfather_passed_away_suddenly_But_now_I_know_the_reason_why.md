@@ -62,3 +62,5 @@ Mother offered to bring my food up to me. And as much as I felt bad, knowing the
 "Okay, I'll go set the dinner table then" and made her way downstairs. Grandmother was about to do the same when she suddenly stopped in the doorway, and yelled:
 
 "Ungrateful child, I put in so much effort so that our family could be one with your grandfather forever." and stormed off as the realization of what happened to grandfather finally set in.
+
+First Post!! Hope it wasn’t too bad :))
