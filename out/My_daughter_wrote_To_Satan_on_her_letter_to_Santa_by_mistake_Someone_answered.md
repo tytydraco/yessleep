@@ -188,7 +188,7 @@ Here I paused.
 
 “I’ll tell you later, there’s more to the note.” Clearing my throat I carried on. “Don’t open it until christmas, and remember if you die it will be waiting for you in heaven just like I promised.”
 
-There comes a scream from upstairs. Susie’s shrill and panicked voice. “Katie! Katie no!”    
+There came a scream from upstairs. Susie’s shrill and panicked voice. “Katie! Katie no!”    
 
  In a state of supreme terror I lead the way up the stairs, my wife and father and law thundering along behind me. Susie was screaming the entire time and doing so triggered William to start crying from his crib, creating a cacophony when combined with our booming footsteps and Susie’s continued panicked screams.
 

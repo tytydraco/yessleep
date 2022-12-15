@@ -16,7 +16,7 @@ Anton took his seat next to Chris cross legged, coke in his left as always. You 
 
 “Just my bird brained partner Nick, he...dude, what’s up with your eyes!? Did you get any sleep last night?”
 
-I looked up from my book. He looked like a sith lord.
+I peered up from my book. He looked like a sith lord.
 
 “Oh that?” he said with a coy smirk. He took another infuriatingly long sip before speaking.
 
@@ -32,7 +32,7 @@ Anton scoffed.
 
 “Obviously you two don’t know what a secret is. It’s just one of those things, you're in the know or you're not. You guys simply weren’t *elite* enough is all. It’s sad really.”
 
-Chris and I exchanged glances, our bullshit meters were off the chart. Anton picked up on our comms. “What? You don’t believe me?”
+Chris and I exchanged glances, our bullshit meters were off the charts. Anton picked up on our comms. “What? You don’t believe me?”
 
 Anton Shaw lies like a duck swims. For years he’d fib to dodge a good grounding, or a trip to the principal’s office. He’d lie so much that he’d habitually slip them in everyday conversations, even with us. It was pathological.
 
@@ -72,7 +72,7 @@ We were to meet at the red and yellow park by the woods at 9:55. Sneaking out wo
 
 “You came early.”
 
-“Well I wouldn’t want to miss this now would I.” I replied, rolling my bike over to the racks.
+“I wouldn't miss this for the world.” I replied, rolling my bike over to the racks.
 
 “Clearly. So how’d your great escape go.”
 
@@ -112,7 +112,7 @@ We were awestruck all the way up to the booth where the old man handed us velcro
 
 We examined the watches, it was circular, ghost white, and the lit up numbers were a bright crimson. 01:54:53, and counting down. “Yes sir!” said Anton.
 
- “Good, may you have a wonderful night!” he spoke smiling.
+“Good, may you have a wonderful night!” he spoke smiling.
 
 “Wait, that’s it? We just put on the watches and we can just head in?” Chris inquired.
 
@@ -126,7 +126,7 @@ The man laughed, “Free of charge.” he said with his hand over his heart.
 
 Anton got tired of our disbelief and yanked us in.
 
-“**Boo hooo**! It’s FREE! Get over it, let’s have some fun already!”
+“**Boo hooo!** It’s FREE! Get over it, let’s have some fun already!”
 
 We couldn’t argue with that. Anton ferried us down the cobbled path.
 
@@ -194,7 +194,7 @@ Then I banged out a 70 out of 100.
 
 Bang.
 
-“So remember when I asked you where the park goes on the weekdays."
+“So remember when I asked you where the park goes that one time?"
 
 “Yeah, what about it?”
 
@@ -324,7 +324,7 @@ We laughed.
 
 “Damn right.” we shook hands
 
-I had convinced him*.*
+I had convinced him\*.\*
 
 We hid in the grounded carriage on the Ferris wheel and waited. 00:01:23, turned to 00:01:00 turned to 00:00:20, till finally the watches read 00:00:00. We waited and waited for what felt like minutes on end yet nothing happened. Anton was getting restless.
 
@@ -344,13 +344,11 @@ We hid in the grounded carriage on the Ferris wheel and waited. 00:01:23, turned
 
 “Yeah,” he said groggily. “I think I have a headache now but, other than that I’m good. Hold on.” He unzipped his pants pocket and a few seconds later his phone lit up the area. “And god said let there be light.”
 
-“Shut up.” I said through a smile.
-
-“Okay, bets over,” I said.
+“Shut up.” I said through a smile. “Okay, bets over.”
 
 “What, why? Was this not your idea?”
 
-“Yeah but I didn’t account for a freaking earthquake waking up the entire neighborhood. My parents are gonna explode when they check up on an empty bedroom. Don’t worry about the number, I was always gonna hold up my end anyways.”
+“Yeah but I didn’t account for a freaking earthquake waking up the entire neighborhood. My parents are gonna explode when they check up on an empty bedroom. Don’t worry about Chen's number, I was always gonna hold up my end anyways.”
 
 “Huh, that’s fair. No, You’re right.” Anton said “Let’s go, I’ll lead the way.”
 
@@ -366,7 +364,7 @@ I strained my eyes staring all the way down at the booth, and for a second, I th
 
 Anton stepped forward.
 
-**“**Hello.” There was no response.
+“Hello.” There was no response.
 
 **“Hello Good sir.**” He turned to me, “Is he dead or something?”
 
@@ -426,7 +424,7 @@ A moment of silence passed.
 
 I picked up his phone and suggested we find a place to sit. He shrugged, “Lead the way.”
 
-It must have been 10 seconds after we passed the booth, when the lights flashed back on. I jumped back startled. Anton laughed, “Yes!”
+Maybe 10 seconds after we passed the booth, the lights flashed back on. I jumped back startled. Anton just laughed, “Yes!”
 
 He put away his phone. I took a seat at the lounging area followed by Anton who held a bag of popcorn in his left. “What? The popcorn machine still worked.” he said.
 
@@ -464,7 +462,7 @@ It was rare to see him so serious. Not knowing what to do I simply nodded.
 
 “The future. For everyone’s yap about it, all these people saying we should give a damn, it’s not real. It never was. It’s all in our heads. Remember in the past, when we *planned* to do a stake out, I don’t even know what we're doing now. Everyone’s got all these plans and at any moment it can just get taken? I don’t need that. Slaving away for some bullshit in ‘*the future*’ with no guarantee you’ll get there, and they call me a gambler.”
 
-“Come on, that’s just self-defeating. We’d be cavemen without that *bet*.”
+“Come on, that’s just self-defeating. We’d be cavemen without that big *lie*.”
 
 “I never said lies were a bad thing. I dabble in them sometimes. But if you pick anyone off the street that puts their life into something and you ask them ‘was it all worth it?’ How many people could say yes. How many people lived thinking they had a plan, when what they really had was a bet that blew their balls off. What makes you so certain that you’ll end up in that special group satisfied with what they’ve got. What makes *YOU* so special that all you do'll pay off when for so many, there’s just failure. See, I’d be able to answer that first question with no hesitation. Because every decision I make brings returns, everything I choose is without this lofty Tomorrowland fogging my brain. I enjoy the now, I enjoy what’s real. I don’t care for future plans.”
 
@@ -488,7 +486,7 @@ Then out of the blue…
 
 “Dude I’m not joking, god **damn**. Do I lie that much?”
 
-“You’re asking me? Fine, but I swear to god if you say ‘made you look’ I’m liable to punch you dead in your mouth.”
+“You’re asking me? Fine, but I swear to god if you say ‘made you look’ I’m liable to punch you dead in the mouth.”
 
 “Deal.”
 
