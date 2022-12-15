@@ -90,7 +90,7 @@ And finally, the most recent one:
 
 This last email was five days ago, and I admit I've not received any similar messages since. But somehow I feel it isn't the end of the matter. I just have this terribly uneasy feeling.
 
-And as to who's behind it all  - well, the way some of these messages are framed, it really does suggest something pretty weird .... Anyone thinking what I'm thinking?
+And as to who's behind it all  - well, the way some of these messages are framed. Especially, the reference to the coffee - really makes me wonder. It really does suggest something pretty weird to me. And 'the ultimate cyber stalker'?
 
 I'd really be grateful for any advice and suggestions. I'm keeping this pretty open at the moment, and there's very likely to be a Part 2, because like I said I can't help feeling that's definitely not over yet - that it's maybe only the start. It's bothered me quite a lot, but it's helped just to post this, helps to collect my thoughts. I didn't have much else to do tonight. I'm waiting for Jake, my boyfriend, to come back from the office. He was going to pick up some stuff from there for me.
 
