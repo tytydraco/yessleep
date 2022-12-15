@@ -1,4 +1,6 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/zjzdml/i_work_in_tech_support_youll_never_believe_the/?utm_source=share&utm_medium=web2x&context=3)  
+[Part 1](https://www.reddit.com/r/nosleep/comments/zjzdml/i_work_in_tech_support_youll_never_believe_the/?utm_source=share&utm_medium=web2x&context=3) [Part 3](https://www.reddit.com/r/nosleep/comments/zmkez0/i_work_in_tech_support_youll_never_believe_the/?utm_source=share&utm_medium=web2x&context=3)  
+
+
 The aluminum flooring creaked and groaned in protest as I crawled through the vent. It felt as if I were traveling through a portal to a new realm. And maybe I was…
 
 The path was impossibly dark. I slipped my pen light from my belt and clicked it on. I expected to see the tunnel end at some point but it didn’t. Not before the light was swallowed up by the abysmal darkness at least. 
