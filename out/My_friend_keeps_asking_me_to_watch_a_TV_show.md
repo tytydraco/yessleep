@@ -34,4 +34,4 @@ Guess when that was sent.
 
 I finally blocked her halfway through writing this account of everything, when the messages started saying *STOP WRITING ABOUT IT AND FINISH WATCHING THE VIDEOS YOU CUNT.* I’ve taken screenshots of everything, and when I saw that last variation of messages, I grabbed my necessary shit and got the fuck out. I called the police, made a frantic report, and they told me they’d look into it and that I should stay somewhere else for the time being.
 
-Dude what the fuck. [I'm so freaked out by all of this.](https://www.reddit.com/r/nosleep/comments/zn6zsm/someone_who_is_maybe_not_my_friend_keeps_asking/?utm_source=share&utm_medium=web2x&context=3)
+Dude what the fuck. [I'm so freaked out by all of this.](https://www.reddit.com/r/nosleep/comments/zn8e3w/my_friend_keeps_asking_me_to_watch_a_tv_show_part/?utm_source=share&utm_medium=web2x&context=3)
