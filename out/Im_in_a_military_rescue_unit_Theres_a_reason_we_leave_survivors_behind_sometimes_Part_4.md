@@ -4,6 +4,8 @@ Part 2: https://www.reddit.com/r/nosleep/comments/zj34y5/im_in_a_military_rescue
 
 Part 3: https://www.reddit.com/r/nosleep/comments/zkfl7t/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
 
+Part 5: https://www.reddit.com/r/nosleep/comments/zn0aea/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
+
 ***************
 
 “Where the fuck is he?” I repeated. The table where his lifeless corpse had laid was now empty save for a circle of blood at one end. 
