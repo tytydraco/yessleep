@@ -4,7 +4,7 @@ Not after what happened to the Rain Chasers.
 
 Because the more involved I get, the more I think I’m making myself a target.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 I’ve mentioned that the geology building is right next to the graveyard, right?  I can’t remember.  With the graveyard being in the middle of campus, there’s quite a few buildings right next to it, so maybe I didn’t list them all out.  There’s not a lot of campus lore surrounding the graveyard, surprisingly, so I’ve been thinking that maybe it’s not accumulated its own creatures.  It’s kept locked so students can’t get in, so it’s taken on the role of a landmark rather than a source of stories.
 
@@ -26,7 +26,7 @@ The building is divided roughly in two.  On one side are the classrooms and the 
 
 I’d just turned down the corridor that ran between the two rows of offices and was making my way to Professor L.’s room when I realized I wasn’t alone.
 
-There were footsteps behind me.  Not far.  Close enough that I felt a jolt of fear, for I hadn’t heard them approaching.  
+There were footsteps behind me.  Not far.  Close enough that I felt a jolt of fear, for I hadn’t heard them approaching.
 
 I turned, like anyone would have.  I turned, hoping that it would just be another student and I’d laugh at how I’d been startled over nothing and then go on about my day.  But that’s not how it works for me.  I was alone in the hallway and the sky was overcast and there’s something wrong with *me*, I’ve seen too much and now I was tied to the inhuman.  I saw them wherever I looked and they saw me.  We recognized each other and they were drawn to me like moths to a flame because they need people like me and you, people who make them *real*, who make them *last*, even as they consume us to sate their endless hunger.
 
@@ -58,11 +58,11 @@ I put a hand to the side and pushed on the door.
 
 My professor had the poor sense to leave his office unlocked.
 
-I didn’t hesitate.  I dove inside and shut the door behind me as quickly as I dared, trying not to make any noise.  It didn’t have eyes, but that wasn’t a guarantee that it couldn’t see me.  I had to balance speed with silence and hope for the best.  I quietly crawled away from the door, putting the desk between me and the entrance.  I listened intently to the shuffling footsteps out in the hallway.  They were coming closer.  They were definitely coming closer.  I clasped both hands over my mouth to stifle my breathing.  
+I didn’t hesitate.  I dove inside and shut the door behind me as quickly as I dared, trying not to make any noise.  It didn’t have eyes, but that wasn’t a guarantee that it couldn’t see me.  I had to balance speed with silence and hope for the best.  I quietly crawled away from the door, putting the desk between me and the entrance.  I listened intently to the shuffling footsteps out in the hallway.  They were coming closer.  They were definitely coming closer.  I clasped both hands over my mouth to stifle my breathing.
 
-Quiet.  I had to be quiet.  
+Quiet.  I had to be quiet.
 
-It couldn’t see me, I desperately told myself, trying to hold back panic.  It sat thick in my throat like a stone.  
+It couldn’t see me, I desperately told myself, trying to hold back panic.  It sat thick in my throat like a stone.
 
 The footsteps continued to approach.  They paused just outside the door.  It was like everything went blank in my head.  I sat there, not thinking, not feeling, lost in my own private world of helpless terror.  For the door handle was turning and then a sliver of light spilled into the office.
 
@@ -123,6 +123,8 @@ It should have been empty.  Maria hadn’t renewed the club’s paperwork and th
 Yet there were a handful of students in there and from the handful of words I could hear through the thin walls I could tell they were talking about the graveyard and whether they could get inside after dark to see what might be lurking inside.  I didn’t recognize any of them but I knew exactly why they were here.
 
 Someone had found new recruits and rebuilt the Rain Chasers. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/zn68ab/how_to_survive_college_everyone_hates_the/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 

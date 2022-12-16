@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/zn6gng/my_dad_bought_a_video_game_called_the_real_world/) \- Part III
+
 “I’m selling it,” My dad said.
 
 “I can buy it from you!” I pleaded. “I’ve saved up a bit of money.”
@@ -225,3 +227,5 @@ I’m trapped in the hospital. My left leg has been patched up, but it certainly
 I have two options: I get home to ‘The Real World’, or I find a way to break this curse.
 
 Time is running out.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/zn6gng/my_dad_bought_a_video_game_called_the_real_world/)
