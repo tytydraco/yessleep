@@ -1,12 +1,12 @@
 My room had been smelling for weeks. I didn’t think much of it because my mom hates spending money on things she doesn’t “have” to, so our septic tank can sometimes be smelled throughout our house. 
 
-It constantly smell like shit and it makes me feel sick every day. And it doesn’t help that my anxiety has been skyrocketing. Sometimes I’ll black out part of my days without even realizing. Like I’ve drunk way too much, and can only begin to remember when I’ve sobered up. Now, if I’m not at work I’m lying in bed getting more queasy with every hour.
+It constantly smell like shit and it makes me feel sick every day. Now, if I’m not at work I’m lying in bed getting more queasy with every hour.
 
 My mom gets angry at me because she says she needs emotional support during the rough patch she’s going through. We found out recently that her live in boyfriend has been cheating on her in our house. 
 
 I don’t know at what time of the day this had been going on, but I swore to her I had no clue. Or at least that I hadn’t seen anything. 
 
-Truth is he’s always been an asshole and the fact that he could cheat was no a huge surprise. My mom’s always been the generous type, so when she let the guy move in after a few days of dating I knew it was because she thought she was saving a lost soul.
+Truth is he’s always been an asshole and the fact that he could cheat was no a huge surprise. My mom’s always been the naive type, so when she let the guy move in after a few days of dating I wasn’t surprised.
 
 Apparently, when she found them she went a little crazy. Throwing things, trashing his stuff, punching his mistress kind of crazy. Now he comes back every so often to yell at her through the front door, but I never know what he’s saying cause I’m always in bed.
 
@@ -32,4 +32,4 @@ It was bright red and I could see liquid pooling at the bottom. I grabbed the st
 
 A woman shoved into a container. Stored under my bed. Who I had sleeping over for who knows how long. I threw up again and again, trying to get the image out of my head, but it’s no use. My mother gets home in an hour and I don’t know what to do.
 
-She’s my mother… I love her. She couldn’t have done something like this, right? And if it was her then why under my bed? Unless it wasn’t her—
+She’s my mother… I love her. She couldn’t have done something like this, right? And if it was her then why under my bed?
