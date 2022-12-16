@@ -14,7 +14,7 @@ We always get the crazies on Christmas; that's what I told myself when she walke
 
   I had been on the Lullaby case for the better part of five years; something I had to assume this mad woman to be fully aware of when she asked for me. The station at which we were currently located was not where we had originated, but one that served as more of a central hub for such investigations. 
 
-  Not only had everything we had learned about this killer led us to believe it was a man who had murdered eleven children and six families across the country, but this lady looked barely capable of picking out her groceries for the week, let alone evading the authorities for half a decade. In addition, Lullaby had been inactive for close to a year by this point, which led more credence to my assumption that this woman was off her rocker. 
+  Not only had everything we had learned about this killer led us to believe it was a man who had murdered eleven children and six families across the country, but this lady looked barely capable of picking out her groceries for the week, let alone evading the authorities for half a decade. In addition, Lullaby had been inactive for close to a year by this point, which lent more credence to my assumption that this woman was off her rocker. 
 
   I was honestly not too happy about being assigned this case at first, as I had spent the previous four years tracking who we dubbed the Conscience Killer, who had tortured and murdered around fifteen people. Before that, there was a serial murderer we named Jasmine, as that was something of a calling card for that one. It only took us around six months to track him down, but Conscience and Lullaby were far more meticulous.
 
