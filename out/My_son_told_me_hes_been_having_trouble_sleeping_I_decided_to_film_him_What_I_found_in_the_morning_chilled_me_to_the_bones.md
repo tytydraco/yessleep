@@ -1,3 +1,7 @@
+[Part 2 can be found here.](https://www.reddit.com/r/nosleep/comments/zodacc/my_son_told_me_hes_been_having_trouble_sleeping_i/)
+
+&#x200B;
+
 For starters, I'm a single father of a 14 year old teenager.
 
 His mother unfortunately passed away during child birth, and so I was left with my biggest sorrow, and joy at once.
