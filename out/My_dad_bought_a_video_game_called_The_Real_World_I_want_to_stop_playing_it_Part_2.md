@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/zmcf75/my_dad_bought_a_video_game_called_the_real_world/) \- **Part II** \- Part III
+[Part I](https://www.reddit.com/r/nosleep/comments/zmcf75/my_dad_bought_a_video_game_called_the_real_world/) \- **Part II** \- [Part III](https://www.reddit.com/r/nosleep/comments/znyv6w/my_dad_bought_a_video_game_called_the_real_world/)
 
 I left the hospital.
 
@@ -224,3 +224,5 @@ The motionless silhouettes were facing the window. They were facing *me*.
 Pulling me back into the ‘real’ world, my phone buzzed.
 
 riprip78 had replied.
+
+[Part III](https://www.reddit.com/r/nosleep/comments/znyv6w/my_dad_bought_a_video_game_called_the_real_world/)

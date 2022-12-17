@@ -1,4 +1,4 @@
-**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/zn6gng/my_dad_bought_a_video_game_called_the_real_world/) \- Part III
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/zn6gng/my_dad_bought_a_video_game_called_the_real_world/) \- [Part III](https://www.reddit.com/r/nosleep/comments/znyv6w/my_dad_bought_a_video_game_called_the_real_world/)
 
 “I’m selling it,” My dad said.
 
