@@ -52,7 +52,7 @@ I woke up with him sleeping beside me as was usual these past few weeks, I slipp
 
 He stayed up late again, three AM, I considered scolding him for staying up so late on a school night, as I shifted through the footage, strangely though, the closet door never cracked open during the entire night. I coincidentally decided to look through the old camera's that still were set up everywhere else, including my room.
 
-And that's when my jaw dropped and I saw it. Clear as day, a shadowy skeletal hand, hovering right above my son, the entire. fucking. night. I ran to my room and tried to wake him gently as I did every morning, but he didn't budge. Then I tried violence, I shaked him and screamed at him to wake up. He didn't. I called the ambulance having nothing else left to do.
+And that's when my jaw dropped and I saw it. Clear as day, a shadow of a skeletal hand hovering right above my son, on the wall behind him, the entire. fucking. night. I ran to my room and tried to wake him gently as I did every morning, but he didn't budge. Then I tried violence, I shaked him and screamed at him to wake up. He didn't. I called the ambulance having nothing else left to do.
 
 He was diagnosed in a coma.
 
