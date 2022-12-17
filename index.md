@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 10280
+file count: 10281
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
@@ -4224,6 +4224,7 @@ file count: 10280
 * [If hell has a name it is déjà vu](out/If_hell_has_a_name_it_is_déjà_vu.md)
 * [If I dont go to sleep tonight I will die](out/If_I_dont_go_to_sleep_tonight_I_will_die.md)
 * [If I fall asleep he might kill me](out/If_I_fall_asleep_he_might_kill_me.md)
+* [If I knew the sinister purpose behind this dating service I wouldve never signed up](out/If_I_knew_the_sinister_purpose_behind_this_dating_service_I_wouldve_never_signed_up.md)
 * [If I let him go with that child I could never forgive myself](out/If_I_let_him_go_with_that_child_I_could_never_forgive_myself.md)
 * [If I wasnt born with a small penis I wouldnt know what corpses taste like](out/If_I_wasnt_born_with_a_small_penis_I_wouldnt_know_what_corpses_taste_like.md)
 * [If I where to tell anyone what I saw they would not believe me](out/If_I_where_to_tell_anyone_what_I_saw_they_would_not_believe_me.md)
@@ -4580,8 +4581,8 @@ file count: 10280
 * [Im an investigator for strange creatures What I saw in a forest in the mountains changed me Part 1](out/Im_an_investigator_for_strange_creatures_What_I_saw_in_a_forest_in_the_mountains_changed_me_Part_1.md)
 * [Im An Overnight Stocker at Dollar General and Someone Is Hunting Me](out/Im_An_Overnight_Stocker_at_Dollar_General_and_Someone_Is_Hunting_Me.md)
 * [Im an Uber driver and one of my passengers invited me into their home](out/Im_an_Uber_driver_and_one_of_my_passengers_invited_me_into_their_home.md)
-* [Im at War with my Best Friend Part 1](out/Im_at_War_with_my_Best_Friend_Part_1.md)
 * [Im at war with my Best Friend Part 1](out/Im_at_war_with_my_Best_Friend_Part_1.md)
+* [Im at War with my Best Friend Part 1](out/Im_at_War_with_my_Best_Friend_Part_1.md)
 * [Im at war with my Best Friend Part 2](out/Im_at_war_with_my_Best_Friend_Part_2.md)
 * [Im at war with my Best Friend Part 3](out/Im_at_war_with_my_Best_Friend_Part_3.md)
 * [Im Back From The Cursed Playlistand Maybe Truth Is Stranger Than Fiction](out/Im_Back_From_The_Cursed_Playlistand_Maybe_Truth_Is_Stranger_Than_Fiction.md)
@@ -6319,8 +6320,8 @@ file count: 10280
 * [My son got a sock monkey for his birthday from my grandmother Im scared now because of what its done to him](out/My_son_got_a_sock_monkey_for_his_birthday_from_my_grandmother_Im_scared_now_because_of_what_its_done_to_him.md)
 * [My son grew from a pumpkin I wish he had stayed in the ground PART 2](out/My_son_grew_from_a_pumpkin_I_wish_he_had_stayed_in_the_ground_PART_2.md)
 * [My son grew from a pumpkin I wish he had stayed in the ground](out/My_son_grew_from_a_pumpkin_I_wish_he_had_stayed_in_the_ground.md)
-* [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
 * [My son has a new girlfriend and I am afraid for his life part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_part_2.md)
+* [My son has a new girlfriend and I am afraid for his life Part 2](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life_Part_2.md)
 * [My son has a new girlfriend and I am afraid for his life](out/My_son_has_a_new_girlfriend_and_I_am_afraid_for_his_life.md)
 * [My son has become obsessed with a disturbing childrens book](out/My_son_has_become_obsessed_with_a_disturbing_childrens_book.md)
 * [My son has been gone for 2 weeks He recently came back home and I dont think this is my son Part 1](out/My_son_has_been_gone_for_2_weeks_He_recently_came_back_home_and_I_dont_think_this_is_my_son_Part_1.md)
@@ -7174,8 +7175,8 @@ file count: 10280
 * [sI work as a PI and a Government Agent approached me to help with a case Part 30](out/sI_work_as_a_PI_and_a_Government_Agent_approached_me_to_help_with_a_case_Part_30.md)
 * [Sibling feud Part 1](out/Sibling_feud_Part_1.md)
 * [Side Effects](out/Side_Effects.md)
-* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden Pt2](out/Silence_is_Golden_Pt2.md)
+* [Silence is Golden pt2](out/Silence_is_Golden_pt2.md)
 * [Silence is Golden pt3](out/Silence_is_Golden_pt3.md)
 * [Silence is Golden Pt3](out/Silence_is_Golden_Pt3.md)
 * [Silence is Golden](out/Silence_is_Golden.md)
