@@ -250,7 +250,7 @@ It was harder to lie to Darcy’s parents. They told me that she’d gone missin
 
 Right now, I’m lying in a hospital bed, typing this story. My left eye socket is bandaged, so I’m relieved I don’t have to see the gory mess beneath. My left wrist has been fitted with a metal rod to match the one in my left ankle.
 
-This morning, I asked one of the paramedics whether the disc had been destroyed. They said the *entire microwave* had been destroyed. That sounds promising to me.
+This morning, I asked one of the paramedics whether the disc had been destroyed. She said the *entire microwave* had been destroyed. That sounds promising to me.
 
 I don’t think I’ll ever find out where my dad bought ‘The Real World’. I want to know. I want to find whoever sold it to him. Right now, I’m back on the ‘XI’ Discord. In honour of Darcy and Steve, I’m looking for answers.
 
