@@ -44,7 +44,7 @@ The next two days, I continued observing the footage, the second night Jason nev
 
 Once the new cameras arrived, I installed them in his room again, and rewatched the footage the following morning. Jason stayed up very late that night, almost to two AM, and he never went to bed in his room, he came straight to mine. This time, I watched the closet with such intensity that I thought even I could open it just by thinking about it, and sure enough, two or three minutes later, it cracked open. I zoomed in as much as possible, and slowed down the footage, and thats when I saw it. A shadow moved across the room in a split second, and past the closet, and the next split second, the closet cracked open. I slowed it down even more, rewatched it again and again, I couldn't make out the figure, it was simply a blob of a shadow.
 
-I sighed and went to my room to wake up Jason, those last days I had to wake him up, because he'd sleep in for as long as he could.
+I sighed and went to my room to wake up Jason, those last days I had to wake him up, because he'd sleep in for as long as he could, and even after sleeping for twelve+ hours he'd still look tired, bags under his eyes.
 
 The next night was the last night Jason was awake.
 
