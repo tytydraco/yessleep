@@ -114,4 +114,4 @@ I laughed hysterically, I didn’t have to worry about my mom finding out we wer
 
 He spoke when I went silent. “I was hoping you’d choose the other house. But it’s good that you ate, depending on your choices, it’s going to be a long game."
 
-And it was, it lasted all night, and we were both crying in the end. He let me go; I called my mom who called the cops. He was locked away in psychiatric care after it was proven his mother died of natural causes. As for me, I went to bed everyday the next few weeks without supper. I guess you could say I'd lost my appetite. I still have a hard time eating tomato soup too. I just can't bare the thought that my brain conjures whenever I see it on the shelf. The thought that it will never be as delicious as the soup I chose on my adventure.
+And it was, it lasted all night, and we were both crying in the end. He let me go; I called my mom who called the cops. He was locked away in psychiatric care after it was proven his mother died of natural causes. As for me, I went to bed everyday the next few weeks without supper. I guess you could say I'd lost my appetite.
