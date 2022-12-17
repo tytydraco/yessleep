@@ -64,4 +64,7 @@ I, too have started feeling a presence.
 
 I, too have started seeing the shadow looming, at the corner of my eye, and I, too have started having it inching closer to me as I sleep, every single night. I frantically put together a timeline today, and judging by it, today is the last day I'll be able to wake up on my own, which means unless I'm awoken tomorrow, I won't wake up again.
 
-I drove to my parents house today and am going to spend the night here, they have very specific instructions to wake me, I want to see if this thing will follow me all the way here too, and I still need to figure out how to wake up my son, and figure out what this thing did to him.
+I drove to my parents house today and am going to spend the night here, they have very specific instructions to wake me, I want to see if this thing will follow me all the way here too, and I still need to figure out how to wake up my son, and figure out what this thing did to him.  
+
+
+[**XXXXXX**](https://www.reddit.com/user/Coureherritt/)  

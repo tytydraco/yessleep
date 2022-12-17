@@ -1,6 +1,6 @@
 Last week, my and my wife decided to go snowshoeing in Algonquin park. It’s really fun exploring the park in the winter because you’re allowed to go and camp anywhere, you aren’t limited to marked trails, portages and campsites. We also like to bring our husky because she loves the snow and rolling around in it. The three of us set out from Thompson lake road which borders the far north of the park.
 
-It was a little nippy but we had lots of layers. We made our way across Thompson lake until we hit a small unnamed creek. We followed it through 3 small ponds and shit out bearings towards wild goose lake, which occupies a small valley that’s opened up by Lauder creek. We arrived on day 2.
+It was a little nippy but we had lots of layers. We made our way across Thompson lake until we hit a small unnamed creek. We followed it through 3 small ponds and set our bearings towards wild goose lake, which occupies a small valley that’s opened up by Lauder creek. We arrived on day 2.
 
 When we got there the sun was setting. We set up camp, started making food, and went to sleep when it was dark. In the middle of the particularly cold night, our dog started growling and woke us up. We just assumed she heard and animal and tried to get her to calm down, but the growling eventually turned in barking. To figure out what was freaking her out, I grabbed my flashlight and poked my head outside the tent 
 
