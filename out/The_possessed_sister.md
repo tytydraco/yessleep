@@ -1,5 +1,3 @@
- 
-
 I was a 911 call taker 10 years ago when I received one of the creepiest calls ever. It was freezing that night, which usually equaled a calm, quiet shift due to even the criminals not wanting to go outside. Around 3am my call box popped up green and as usual I asked what the emergency was. A man started frantically screaming that he still was possessed by a demon and tried to cut his heart while he slept. He had run when the attack started and locked himself in his bathroom. I ask him a series of questions trying to figure out what the hell is going on.
 
 I ask him a series of questions trying to figure out what the hell is going on. Everytime he tried to answer I heard what sounded like scratching and banging on the bathroom door. He whispered “There is a demon in my sister’s body, it has been battling me for days. It got free from the chains…” I swear what I heard next chilled me to the core. This unearthly voice began taunting my caller through the door. It didn’t sound like a 20-something woman. It was low and guttural, like she had gargled razor blades before speaking. She continued to growl and speak in a strange sounding language until police arrived. She let out a terrifying scream when the officers broke in, then dead end.
@@ -16,8 +14,18 @@ Also, while on sight an officer reported his camera going off on its own after t
 
 It managed to take 1 photo of the scene after it was cleaned up.
 
-What do you guys think? I'll add the photo here: [The camera shot](https://mail.google.com/mail/u/0?ui=2&ik=d45b4f97b9&attid=0.1.1&permmsgid=msg-f:1752359034658621238&th=1851a141f3c60736&view=fimg&fur=ip&sz=s0-l75-ft&attbid=ANGjdJ_wrckEPSOK5UO7OdnLfJ1X9QeexdGMZ-xP0qOoRjFMZNs0xURmXcuftd9nhRWfDZCKbp0IhX1I6Ki59iX-cWSCL_bzwRxEqVtXLLzVqx5EDMBdCiAUKVLEgfo&disp=emb)
+What do you guys think? I'll add the photo below
 
 What's creepy about it is not because of how the photo was taken all by itself, but because it was taken after the crime scene was cleaned up.
 
 What do you guys think?
+
+&#x200B;
+
+[The camera shot](https://drive.google.com/file/d/18wLzpaDl2BXne9mL-QM5GtYIkMYcNCN7/view?usp=share_link)
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
