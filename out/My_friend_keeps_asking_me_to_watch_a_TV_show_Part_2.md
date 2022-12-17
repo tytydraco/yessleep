@@ -46,4 +46,4 @@ Above all, the biggest fear: am I alone in this?
 
 I don’t have my phone on me tonight, but I have energy drinks from the vending machine and plan on staying awake long enough to go back to the police station tomorrow and voice some more of my concerns. Assuming I don’t get any more messages today somehow. I mean, this computer was combed, so it should be fine.
 
-All my adrenaline in this situation should last me until the morning, and I’ve pulled all-nighters before. I’m equally scared and just…shocked at this all. I never imagined anything like this would happen to me.
+All my adrenaline in this situation should last me until the morning, and I’ve pulled all-nighters before. I’m equally scared and just…shocked at this all. [I never imagined anything like this would happen to me.](https://www.reddit.com/r/nosleep/comments/zo0g6o/my_friend_who_kept_asking_me_to_watch_a_tv_show/?utm_source=share&utm_medium=web2x&context=3)
