@@ -12,7 +12,7 @@ That was the last thing Darcy said before hanging up. When she stopped replying 
 
 I had to go home.
 
-As I hobbled out of the building on crutches, I looked down at my left foot, which was being held together by a metal road. Still, there was no physical evidence that, less than a day prior, it had been a mangled mess. And yet, I experienced a phantom sensation. My foot still felt as if it were twisted around. I still endured excruciating pain. *Maybe I need to take my injured character to the medical centre, too*, I thought.
+As I hobbled out of the building on crutches, I looked down at my left foot, which was being held together by a metal rod. Still, there was no physical evidence that, less than a day prior, it had been a mangled mess. And yet, I experienced a phantom sensation. My foot still felt as if it were twisted around. I still endured excruciating pain. *Maybe I need to take my injured character to the medical centre, too*, I thought.
 
 The taxi driver attempted to engage in small talk about my injury, but my mind was vacant. My eyesight had become hazy, and I had a throbbing headache. I was experiencing dehydration, starvation, sleep-deprivation, and (possibly) blood loss. My character was suffering, so I was suffering.
 

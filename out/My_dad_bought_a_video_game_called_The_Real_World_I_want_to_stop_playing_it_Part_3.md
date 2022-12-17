@@ -34,7 +34,7 @@ Caterpillars. Hundreds and hundreds of caterpillars, wriggling and drowning in t
 
 With my sleeve, I wiped the repulsive bile from my lips and finally picked up my phone. I opened Discord.
 
-riprip78: Firstly, don’t delete the game. It needs to be destroyed with a ritual. We’re not just trying to destroy the effigy. We’re trying to severe the connection. I read your message, and I’m sorry for the late reply, but I’ve spent the last few hours developing a game extension for you. It’s essentially a virus. Put the attachment in the main folder for ‘The Real World’. I know you shouldn’t download files from a stranger, but you don’t really have a choice. Time is not your friend. You’re gonna have to trust me.
+riprip78: Firstly, don’t delete the game. It needs to be destroyed with a ritual. We’re not just trying to destroy the effigy. We’re trying to sever the connection. I read your message, and I’m sorry for the late reply, but I’ve spent the last few hours developing a game extension for you. It’s essentially a virus. Put the attachment in the main folder for ‘The Real World’. I know you shouldn’t download files from a stranger, but you don’t really have a choice. Time is not your friend. You’re gonna have to trust me.
 
 *ritual.gc*
 
@@ -214,7 +214,7 @@ My heart pounded ferociously. I closed my eye and saw Darcy’s face. Her luscio
 
 On the verge of passing out from a mixture of traumatic stress, pain, and excessive blood loss, I moved my character forwards, striding into the lake.
 
-A piercing synth note rang through the speakers, pummelling my ear drums. I’m not sure what caused it, but it sounded as if the game itself were crying in agony. I ignored it, continuing to submerge my character into the depths of the lake.
+A piercing synth note rang through the speakers, pummelling my ear drums. I’m not sure what caused it, but it sounded as if the game itself were crying in agony. I ignored it, continuing to stride into the watery pool before me.
 
 I submerged my character beneath the surface of the lake, and the synth screech faded away. His black outline slowly started to break up in the water, and the white silhouetted body faded. In a matter of moments, there was nothing left of the effigy. I collapsed to the floor from my desk chair, barely clinging to life, and I realised it might have been pointless. I was free, but I might still die.
 
