@@ -35,3 +35,6 @@ My dad had taken pictures of the painting and has later shown them to me, which 
 
 
 This leads me to now, I am 25 years old and am just about to move into my new house with my partner. We have received some house warming gifts from friends and family. Most are things like plates and cups. Useful things. But one of our friends handed as large rectangular parcel. He didn't tell is what it was so we assumed it was a mirror. It was only when I opened it that I saw what it was. Inside the parcel was the painting of the crying boy.
+
+EDIT 1: https://imgur.com/a/6Wjjzju
+My dad took this picture soon after he got it.

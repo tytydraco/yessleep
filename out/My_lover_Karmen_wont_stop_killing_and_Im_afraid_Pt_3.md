@@ -28,13 +28,15 @@ I calmed myself down as best as I could and walked inside.
 
 Just as before, no one was inside. This time, however, the candy was a variety of colors. I exhaled, yes, it had just been a dream.
 
-I scanned the store and found a paper card on the front desk that read, “out to lunch, come back at noon.”
+When I approached the candy and decided to pick a piece up, I suddenly fell down a pit of darkness. 
 
-For some reason, I felt compelled to pick up the paper. The ink… looked as though it was dripping. It looked fresh, it was red.
+My senses went ablaze and I was too shocked to scream. I was surrounded by complete darkness and stumbled around, looking for some kind of exit to this hell. 
 
-I dropped the paper like it was on fire and screamed. I ran out of the shop again and kept running. 
+I felt myself bump up against something, it was metal. I could recognize by the feel that it was the wrought iron cemetery gate. I put my hand out to get a feel for the gate and moved towards the end of it. When I reached the end, I felt around the brick, for something, anything.
 
-Would running straight on lead me to the cemetery again? I wasn't sure but felt compelled to keep running.
+When my hand flitted to the cemetery placard, it was wet and smelled of iron. It was blood. Before I could process this, I was back in the candy shop. To my horror, there was blood on my hand from the sign.
+
+I ran out of the shop and kept running. 
 
 “Lorelei!” A voice called from behind me.
 

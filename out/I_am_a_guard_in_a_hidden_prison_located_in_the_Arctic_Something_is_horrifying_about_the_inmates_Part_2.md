@@ -141,3 +141,5 @@ I made my way to the threshold. I faced him as I began to turn the knob.
 “One question,“ I said. “Most of the time inmates come shipped here in groups. Anna arrived alone. Why was she given special treatment during her transport? Is she a celebrity? The daughter of a famous politician? It’s within my rights to know as someone who has to check up on her.”
 
 “Anna is my daughter,” Buckley said as he scribbled on a pad and motioned me to leave.
+
+EDIT: Part 3: [https://www.reddit.com/r/nosleep/comments/zoxjey/i\_am\_a\_guard\_in\_a\_hidden\_prison\_located\_in\_the/](https://www.reddit.com/r/nosleep/comments/zoxjey/i_am_a_guard_in_a_hidden_prison_located_in_the/)

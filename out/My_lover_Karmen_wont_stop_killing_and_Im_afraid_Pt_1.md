@@ -138,4 +138,4 @@ I grabbed the Bible on my dresser and a pen. My hand shook as I wrote out all of
 
 [part two](https://www.reddit.com/r/nosleep/comments/zmp7y0/my_lover_karmen_wont_stop_killing_and_im_afraid/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
-[part three](https://www.reddit.com/r/nosleep/comments/znimpf/my_lover_karmen_wont_stop_killing_and_im_afraid/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[part three](https://www.reddit.com/r/nosleep/comments/zoxs72/my_lover_karmen_wont_stop_killing_and_im_afraid/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
