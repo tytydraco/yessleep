@@ -4,8 +4,6 @@ But on this particular night, something felt different. The air was heavy with a
 
 I had been searching for a missing goat all day, following its tracks through the woods as I called out its name. The goats were invaluable to our small farm, and I knew my parents would be devastated if anything happened to it. As the sun began to set, I reluctantly decided to head back home and continue the search in the morning.
 
-But as I made my way through the woods, I couldn't shake the feeling that I was being watched. I had heard reports of coyotes in the area, and their eerie howls echoed through the trees at night. I quickened my pace. 
-
 The moon was full and high in the sky as I made my way through the dense and quiet woods, its pale light casting shadows among the trees. But as I made my way through the woods, I couldn't shake the feeling that I was being watched. I had heard reports of coyotes in the area, and their eerie howls echoed through the trees at night. I quickened my pace, my heart racing as I imagined the sharp teeth and glowing eyes of the predators stalking me through the darkness.
 
 At first, I told myself it was just my imagination. But then I heard a rustling in the underbrush, and I knew I was no longer alone.
