@@ -66,7 +66,6 @@ I stayed in the hallway the rest of the night until it turned daytime, and the e
 
 I am back home as I write this, and it has already gotten dark. I can see dark shadows moving around the house, working on some devious plan. As for my plan, stay up all night and keep the lights on no matter the cost, because as I learned, it can't exist where light prevails, I only hope it is enough.
 
-[I can't let it get to me, whatever it is, it has followed me back, and wants me dead.](https://www.tiktok.com/@coureherritt/video/7178559005365636358?is_from_webapp=1&sender_device=pc&web_id=7142183827602703878)
+I can't let it get to me, whatever it is, it has followed me back, and wants me dead.
 
-  
 [**XXXXX**](https://www.reddit.com/user/Coureherritt)
