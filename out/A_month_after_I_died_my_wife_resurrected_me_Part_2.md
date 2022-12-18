@@ -50,7 +50,7 @@ I nodded.
 
 “What do I need to do?” I asked.
 
-Greta did not answer. She rose to her feet and strolled over to an old black-and-white framed photograph on the mantle above her fireplace. She stretched out a withered, ancient hand and gingerly stroked the picture of a large, happily family.
+Greta did not answer. She rose to her feet and strolled over to an old black-and-white framed photograph on the mantle above her fireplace. She stretched out a withered, ancient hand and gingerly stroked the picture of a large, happy family.
 
 “That little girl is me,” Greta said, tapping the frame. “My family has a long history with the occult. My parents and I were simply intrigued by the history of the supernatural, but some of my ancestors used to practice horrendous things. My grandfather told us a story of his great-great-aunt, Jane. That was when I first learned of veilbreaking. The story, passed from generation to generation, is that Jane had invoked Det to save her brother. She slaughtered an entire town of people to satiate the malevolent entity, and Det fully claimed her body.“
 
