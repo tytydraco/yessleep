@@ -114,7 +114,7 @@ I immediately moved my character over to one of the candles. The option ‘Set s
 
 “Penalty.”
 
-Without any instructions or offers, the toll was exacted. My left wrist suddenly snapped backwards. I yelped in pain, and one meagre tear trickled from my remaining eye. I had nothing left to give. Even the horrifying torture was no longer evoking powerful reactions from me. I was gradually fading into the icy embrace of death.
+Without any instructions or offers, the toll was extracted. My left wrist suddenly snapped backwards. I yelped in pain, and one meagre tear trickled from my remaining eye. I had nothing left to give. Even the horrifying torture was no longer evoking powerful reactions from me. I was gradually fading into the icy embrace of death.
 
 My left hand was flopped backwards over my wrist. It was completely incapacitated. *I don’t need it*, I weakly thought to myself, as I continued moving my mouse with my right hand. I clicked on the option to ‘Set self ablaze’.
 
