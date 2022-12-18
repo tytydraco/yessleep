@@ -238,7 +238,7 @@ We explored this building for a fair bit of time. It was an old Victorian style 
 
 It was like a more realistic version of Hogwarts castle from the inside, but instead of masonry and statues it was incredibly well crafted wood work, and suits of armor. Swords were hung on the walls, along with candles that dimly lit each hallway. The carpet on the stairs was this greenish color mixed with patterns of brown and  yellow. 
 
-We found another set of mirrors, and the girl wanted to try that truck again. So we placed our hands on the mirror, and she looked at me before we figured out where to go. 
+We found another set of mirrors, and the girl wanted to try that trick again. So we placed our hands on the mirror, and she looked at me before we figured out where to go. 
 
 Once again, we focused on where we wanted to go, heard the mirror shatter and between a hazy fog of purple, green, and pink. We were put into a concert. 
 
@@ -250,7 +250,7 @@ Loud pops and bangs rang out, and the crowd started to scream. The lights began 
 
 I couldn't hear myself think, and covering my ears did next to nothing to help. The girl grabbed my arms and was shouting something at me I couldn't hear, and that feeling in my gut became pure terror. We heard this loud roar that both literally, and metaphorically shook me to my core. 
 
-I could feel my vary bones and insides vibrating at the sound grew louder and louder. When I looked in the direction it was coming from I noticed this impossibly large figure rising from behind the stage set. 
+I could feel my vary bones and insides vibrating as the sound grew louder and louder. When I looked in the direction it was coming from I noticed this impossibly large figure rising from behind the stage set. 
 
 People started scattering and running away, their screams growing silent in comparison to the indescribable noises whatever this thing was making. The girl pulled my arms and drug me to a bathroom. We did that mirror trick again, and went back to that mansion. 
 
@@ -280,7 +280,7 @@ The alarm started to hurt my ears, and the girl I was with clung to my arm. Shou
 
 Keeper suddenly appeared, and with a wave of his hand began closing these sliding glass doors. One after another Infront of these two shadowy figures; slowing them down, but not stopping them. They'd break through the glass and bolt towards us as another would close. 
 
-The figure with a hat seemed to stretch it's arms out wide. Far wider than should even be possible in dreams. As it tried to reach toward us Keeper turned to us and say "I'm sorry, but I think you two should head home" in a surpringly calm, and soft tone. 
+The figure with a hat seemed to stretch it's arms out wide. Far wider than should even be possible in dreams. As it tried to reach toward us Keeper turned to us and said "I'm sorry, but I think you two should head home" in a surpringly calm, and soft tone. 
 
 The girl jerked my arm and pleaded for me to follow her out of the exit doors. Once again the realization I was asleep began to stir me from my dream, but not before I took one last glance back at Keeper. Noticing him charging toward these figures in an attempt to contain the situation. 
 
