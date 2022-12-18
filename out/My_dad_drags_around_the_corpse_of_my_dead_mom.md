@@ -134,4 +134,6 @@ I tucked my dad into his bed, right next to mom. I hadn’t touched mom in weeks
 
 “Night night. Sleep tight. Don't let the bedbugs bite. Dad, say goodnight to me, too.” I waited for a while, but he didn’t respond.
 
-“Dad?
+“Dad?"
+
+edit: hey guys, for whatever reason i can't open messages at all, if you're looking to narrate my story, just go ahead, anyone here has my permission as long as they credit me.
