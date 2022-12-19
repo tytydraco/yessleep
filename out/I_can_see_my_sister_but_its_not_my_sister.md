@@ -1,5 +1,4 @@
 
-Okay guys this is my first time writing so please let me know if I made some mistakes.
 
 I live in a joint family. For safety reasons there is a small glass window at the top of the wall which separates my uncle and our part of the house. You can easily see if someone is on the stairs from that window. I am currently in my room. From where I am sitting I can clearly see that window. It's been a few minutes, I am scrolling through tiktok and my baby brother is sleeping right beside me.  I suddenly feel cold. I cannot shake the feeling of being watched. Out of reflex, I looked at that window. I saw something..... Something or someone is staring right at me but who?. I looked for a minute without moving. It's my sister. Oh my god she literally scared the shit out of me Jesus. "Hey jaaz can you make something to eat? I am starving." I said to my sister. She didn't respond.  "I don't know what's wrong with her" I mumbled.
 
@@ -10,4 +9,4 @@ It moved... It smiled at me. I can't look at it anymore. It doesn't look like my
 
 *DING*. I just got a text from my dad, "something happened we'll be late, eat something and sleep in time." FUCK IT WHY TODAY. It tapped in the glass and smiled. I think she knows that now I am all alone. It knows no one will save me. It's calling me. She sounds like my sister. I don't want to go. I don't want to look at her but something.. something in my body is forcing me to get up and move towards her. I am at the door right now. I don't want to go. I know the moment I open that window I won't be alive. What about my brother.. he is 6. 
 
-*Ding* "honey we'll be there in 10 minutes" mom texted. I have to hang on for 10 minutes. Just 10 minutes and everything will be okay. It'll be okay. Everything will be okay. Everything will be okay.....right??. Everything will b....
+*Ding* "honey we'll be there in 10 minutes" mom texted. I have to hang on for 10 minutes. Just 10 minutes and everything will be okay. It'll be okay. Everything will be okay. Everything will be okay.....right??. Everything will be okay.
