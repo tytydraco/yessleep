@@ -1,6 +1,4 @@
-It all started off so harmless. Chris and I had taken our seats in the corner of the cafeteria.
-
-It was one of the more serene locales but in high school that wasn't saying much.
+It all started off so harmless. Chris and I had taken our seats in the corner of the cafeteria. It was one of the more serene locales but in high school that wasn't saying much.
 
 “Nick fucked up his part so badly, I was pinching myself to not laugh.”
 
@@ -112,7 +110,7 @@ We were awestruck all the way up to the booth where the old man handed us velcro
 
 We examined the watches, it was circular, ghost white, and the lit up numbers were a bright crimson. 01:54:53, and counting down. “Yes sir!” said Anton.
 
-“Good, may you have a wonderful night!” he spoke smiling.
+“Good, may you have a wonderful night!” he spoke, smiling.
 
 “Wait, that’s it? We just put on the watches and we can just head in?” Chris inquired.
 
@@ -324,7 +322,7 @@ We laughed.
 
 “Damn right.” we shook hands
 
-I had convinced him\*.\*
+I had convinced him.
 
 We hid in the grounded carriage on the Ferris wheel and waited. 00:01:23, turned to 00:01:00 turned to 00:00:20, till finally the watches read 00:00:00. We waited and waited for what felt like minutes on end yet nothing happened. Anton was getting restless.
 
@@ -555,3 +553,5 @@ We reached the lounge area down the road when Anton spotted-
 Anton sprung forward and past me pumping his arms, hitting the ground with the balls of his feet and with every stride almost kicking his ass with how fast he brought his leg up under him. I tried my best to follow suit but he was way faster. The closer we drew to the arcade tent, the wider our gap. Anton slipped through the flaps. I skidded inside after and spotted him all the way at the back, pulling up the bottom of the tent’s wall. I ran his way. “Quick, get under!” He shouted, straining to keep it up. I slid halfway through, before having to wiggle the rest of my body outside. I was free. I looked back in, right as the flaps parted and that *thing* stepped through the entrance. “Meet me at the booth.” He said, before dropping it. “Wait!”
 
 I moved to lift it back up, “Anton get-” I stopped mid sentence. There was something in my peripheral vision, *Oh god no*. Another one off to my right, standing a hundred feet away. It took one step forward. And that was it. One step, and like the coward I am, I spun on my heel, and abandoned my best friend without a second thought.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/zn4umi/the_twilight_amusement_park_part_2/)
