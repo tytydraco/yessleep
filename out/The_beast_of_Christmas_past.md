@@ -18,6 +18,10 @@ He came in the night, that bitter Christmas Eve. I suppose 'it' came in the nigh
 
   Maybe then…I can go home.
 
+  I've been here for many years at this point, so I've gotten to know just about everyone quite well. We do have internet access here, which we are given access to in a case by case basis. I'm not suicidal; well, not anymore, so I am one of the numerous 'tenants' of this home away from home who can use some of the luxuries that some of the more disturbed aren't permitted to, so I chose to post this here. 
+
+  Ross told me to write all of this down; he didn't say it had to be with pen and paper. I apologize in advance for perhaps using this platform as a device in my healing, but perhaps anyone reading these words can provide some insight the doctors can't. It may be a long shot, but if there's anyone out there who has been through something similar, I would be very grateful for anything you may be able to offer on the subject. 
+
   Late December 2012. That's when it happened. My parents weren't exactly well off. They would still scrimp and save every penny they could to ensure my sister and I had at least something under the tree, but that wasn't a big deal to us. Katie was twice my age, but she would still get excited around the holidays, even being a cynical and sarcastic teenager. 
 
   My folks both worked pretty grueling schedules, so I was left in my sister's care most days. Sure, we'd bicker sometimes, as siblings often do, but I looked up to her and I loved her. That's how it was, right? Yes, I loved her and my parents. They were everything to me. 
