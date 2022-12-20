@@ -75,3 +75,47 @@ It’s been a rough year.
 There’s nothing I can do about my fears though.  They’re coming for me and there’s nothing I can do to stop it.
 
 I need to stop typing and get ready.  I’ve got my route picked out, a nice even street with smooth pavement, well-lit, and quite deserted at this time of night.  I should get my running gear on and head over.  If this is where the post stops… well, you know I didn’t run fast enough.
+
+ 
+
+Hey.  I’m alive.  I’m fine.  I made it back.
+
+I just got done checking the camera.  Nothing, as I kind of expected.  But the mirror… the mirror did the trick.
+
+I almost wish it hadn’t.
+
+Let me start at the beginning.  Midnight.  I felt the void open behind me, this twisting sensation in my gut that made all the hair on the back of my neck stand up.  It felt like waking up from a nightmare, when you’re paralyzed in your bed trying to discern what’s real and what isn’t, and it’s like your entire room is coated with the terror of the dream.  Like that, except it’s not a lingering memory, it’s real, and it’s coming for you.
+
+I was already jogging to make sure I didn’t have to do a cold start.  As soon as my watch beeped and as soon as I felt that presence behind me, I broke into a sprint.  The fear accelerated my heart in time with my pace and I hit my stride almost instantly, stretching my legs as far as I could to eat up the ground beneath me.  I’ve made that run so so many times.  I had plenty of pavement to make my run on and plenty more to slow down after I hit the twelve minute mark.
+
+It felt like my body was perfectly in sync with itself.  Like my heart was beating in time to my feet hitting the ground.
+
+The presence behind me kept coming.  I felt it just behind me, its frustration almost palpable against my skin.  Like tiny needles scratching at my forearms, at the back of my neck.  It *wanted* me.  It’s always felt malevolent to me, but I attributed that to my own perceptions of dying.  But tonight, with my body moving perfectly as it had done hundreds of times before, my mind seized on what I felt emanating from my pursuer.
+
+Hunger.  Need.  And… anger.  Senseless, consuming, anger.
+
+I raised my wrist.  I looked in the mirror.
+
+And I saw something new, something I’ve never seen before.  Not when the void was dragging me in as a child and I faced it and kicked and fought, not when I tried to drag my friend out, and not when I was inside it last year at the hospital.
+
+Mirrors, after all, reveal to us the things we cannot normally see.
+
+I saw people.  Those arms that stretch out towards me, all those grasping hands - they aren’t an extension of the void at all.  They might look that way, flat shadows of empty darkness that swallow up everything they touch.  But that’s not what they *are*.
+
+Behind me was a mass of people, of different ages and genders and appearance, all stretching out their hands, their mouths open in silent screams, their eyes white and wide with terrified, ferocious, *need.*
+
+It was their anger I felt.  It radiated off of them in waves.
+
+I couldn’t handle what I was seeing.  I flung my arm to the side with a sobbing gasp, and the mirror snapped off and smashed somewhere on the pavement.  I ran with terrified desperation, because now I knew what I was being pursued by, and then the watch on my wrist beeped to let me know I had only a minute left and I realized that I was going to survive this.  I was still faster than the void.
+
+Still faster than all those people trapped inside.
+
+Because while I stood there, panting and catching my breath once I was alone and the window of opportunity had closed once again, I realized a small detail that I’d seen but not fully understood while I was still sprinting.
+
+Some of them, the ones about my age, were naked.  But the majority of them - especially the ones that were older or younger - wore hospital gowns.
+
+I escaped.  They didn’t.  *They* are what have been pursuing me all these years, growing up as I grew up, increasing in numbers as more people die within that hospital.  The void doesn’t care about me.  It is indifferent death, uncaring oblivion, and as horrifying as that it is - it doesn’t harbor malice or hate or desperation or any of the other emotions that I felt battering my back as I ran.
+
+But the people trapped inside?  *They* have a will.
+
+And those twelve minutes may be their only window to act on it.
