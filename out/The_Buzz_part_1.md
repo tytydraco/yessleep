@@ -2,7 +2,7 @@ Hello there. Bless you.
 
 &#x200B;
 
-From Helena the Clown. Finally I decided to share something on my own. It was about time. Some of you know me from stories posted by other people, especially by my friend Ruxandra.  Who, in modern vampire fiction, is what they shall call, my familiar. And yes, I am a Vampire.
+From Helena the Clown. Finally I decided to share something on my own. It was about time. Some may know me from stories posted by other people, especially by my friend Ruxandra.  Who, in modern vampire fiction, is what they shall call, my familiar. And yes, I am a Vampire.
 
 &#x200B;
 
@@ -210,4 +210,4 @@ I wanted to get home. to my place. Where I could feel stable. And, most probably
 
 &#x200B;
 
-This was just the start. Even worse was to come. Check out part 2, I shall post it soon.
+This was just the start. Even worse was to come.
