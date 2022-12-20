@@ -118,4 +118,4 @@ He held up the orange cat, clearly lifeless, and I heard Connie gasp behind me. 
 
 Connie and I both glanced towards the top of the stairs, where our son was standing, looking triumphant. He was holding something up that was terribly familiar.
 
-\["There's a new story in here, Daddy!"\]([https://www.reddit.com/r/asdeathbeckons/comments/zqgh19/my\_son\_has\_become\_obsessed\_with\_a\_disturbing/](https://www.reddit.com/r/asdeathbeckons/comments/zqgh19/my_son_has_become_obsessed_with_a_disturbing/))
+"There's a new story in here, Daddy!"
