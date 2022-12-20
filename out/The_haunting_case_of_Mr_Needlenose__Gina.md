@@ -454,4 +454,4 @@ Things got a bit hazy after that. Most of the immediate aftermath of the inciden
 
 While I was there, I caught the media coverage of the incident. Gina, obviously being a minor, and given the questionability of her mental condition at the time, was sentenced to a minimum of six months in a children's psychiatric hospital. Her parents spoke on camera, too, although not to rail on me, but instead to express just how shocked and scared they were for their daughter's condition. That was the last I'd heard about Gina or her parents, though I think she might be improving.
 
-It's because of what happened next that I say this. That was the last I'd hear of or from Gina, but not Mr. Needle-nose. And from what I found out, he clearly had no problem ditching Gina in only a relatively short time frame.
+It's because of what happened next that I say this. That was the last I'd hear of or from Gina, but not [Mr. Needle-nose](https://www.reddit.com/r/nosleep/comments/zonoci/the_haunting_case_of_mr_needlenose_the_boy_and/?utm_source=share&utm_medium=web2x&context=3). And from what I found out, he clearly had no problem ditching Gina in only a relatively short time frame.

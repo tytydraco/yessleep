@@ -1,3 +1,5 @@
+**Hi all, I booked a couple of nights at the Pine Creek Lodge, however I found a journal in one of the drawers and after reading I'm not sure if I should take it seriously. I feel like the police wouldn't take it seriously but I feel uncomfortable. Maybe it's a sick prank? Anyway here's what the entry reads...**
+
 My eyes peeled open from a deep slumber, body rooted into the mattress. Expecting the embrace of morning sunshine, but I was surprised to find there was no light at all, it was still pitch black. Staring blankly at the ceiling my eyes strained, gradually revealing more detail and eventually reaching as far as the old wooden beams that ran across the single-story cabin.
 
 An owl hooted from a nearby tree. The Cabin sat still, deep within the Pine Creek forest, tall proud trees for miles of all shapes and ages, providing a sanctuary for those within and an eery presence for those outside.
