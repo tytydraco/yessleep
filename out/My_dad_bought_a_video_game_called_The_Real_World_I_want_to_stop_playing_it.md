@@ -28,9 +28,9 @@ I read the front cover of the game as I walked to the study.
 
 ‘The Real World: *A simulation*’
 
-Hardly a descriptive title.
+It was hardly a descriptive title.
 
-The picture on the front displayed a man’s black silhouette on a white background. It was hardly a vibrant or enticing graphic, but of course it had been enough to catch the attention of my dullard dad.
+The picture on the front displayed a man’s black silhouette on a white background. It wasn’t a vibrant graphic, but of course it had been enough to entice my dullard dad.
 
 I slotted the disc into my computer’s CD drive and installed the game. The main menu was a blank screen with only one button: ‘Play’. There were no options for settings, help, or even basic information about ‘The Real World’.
 
