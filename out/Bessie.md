@@ -46,7 +46,7 @@ I sat in silence for a moment, thinking I misheard. My heart fluttered; a sudden
 
 “Baby, I know you’re upset… but whatever you saw can’t hurt you, ok? It was on your phone, it’s not real.” 
 
-“I know.” She sucked a snot bubble back into her nostril as she loosened her muscles. A slight tinge of relaxation washed over her as she scooted back over to me. 
+“I know.” She sucked a snot bubble back into her nostril as she loosened her muscles. A slight tinge of relaxation came over her as she scooted back over to me. 
 
 “I’ll show you.” She crossed her pajama-covered leg over my own as she opened her Tik-Tok and pulled up whatever had bothered her. She covered her eyes with her palm as she handed her phone over to me, the massive glitter case was slippery from her greasy hand lotion.
 
