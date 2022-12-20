@@ -2,7 +2,7 @@ Hello there. Bless you.
 
 &#x200B;
 
-From Helena the Clown. Finally I decided to share something on my own. It was about time. Some may know me from stories posted by other people, especially by my friend Ruxandra.  Who, in modern vampire fiction, is what they shall call, my familiar. And yes, I am a Vampire.
+From Helena the Clown. Finally I decided to share something on my own. It was about time. Some may know me from posts or articles posted by other people, especially by my friend Ruxandra.  Who, in modern vampire fiction, is what they shall call, my familiar. And yes, I am a Vampire.
 
 &#x200B;
 
