@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/zqmc4d/i_found_a_room_that_shouldnt_exist_pt2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 I was always curious about the old house that my family had inherited from my great-grandparents. There were so many nooks and crannies to explore, and I was convinced that there must be some secret rooms hidden away. One day, I decided to investigate a strange bump in the wall of the attic. To my surprise, I discovered a hidden door behind a stack of boxes.
 
 I carefully opened the door and peered inside. The room was small and cramped, and it was filled with all sorts of strange objects. There were old dolls with glassy eyes, dusty books with strange symbols on the cover, and a cabinet filled with strange potions.
