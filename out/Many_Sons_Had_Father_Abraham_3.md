@@ -527,3 +527,5 @@ I wasted no time in packing a bag. I took the laptop with me and headed downstai
 &#x200B;
 
 I should’ve known it wouldn’t be that easy…
+
+[4](https://www.reddit.com/r/nosleep/comments/zqoypr/many_sons_had_father_abraham_4/)
