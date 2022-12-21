@@ -287,3 +287,7 @@ With that, I heard his footsteps fading away into the distance and when he was g
 &#x200B;
 
 The only window in the room, which was barred with what looked like iron showed nothing but darkness outside, and the darkness swallowed me up, making it easy for me to slip into an empty, dreamless sleep as my new life began.
+
+&#x200B;
+
+[5](https://www.reddit.com/r/nosleep/comments/zrprg8/many_sons_had_father_abraham_5/)
