@@ -50,7 +50,7 @@ I’ll be the first to admit that I’m no tracker, but even I can tell when foo
 
 Max won’t even go anywhere near it; he’ll start whining as soon as we start approaching that part of the trail. Mind you, this is a dog that I’ve had to, on multiple occasions, wrestle inside the cabin because he was so incensed that a pack of wolves dared wander too close to his territory. For all of his small stature, he doesn’t seem to have the self-preservation gene that tells him when he should be afraid of something. But not the overlook, though – that’s a different story altogether. Even Max has his limits, I guess.
 
-I have more stories, but I’m getting a little tired and it’s about time for me to get some sleep; tomorrow I need to head out to the cabins by the frozen lake and make sure their roofs are clear. Maybe if you guys are interested, next time I’ll tell you about the dead bears.
+I have more stories, but I’m getting a little tired and it’s about time for me to get some sleep; tomorrow I need to head out to the cabins by the frozen lake and make sure their roofs are clear. I'll write more later. Next time I’ll tell you about the dead bears.
 
 That’s a strange one.
 

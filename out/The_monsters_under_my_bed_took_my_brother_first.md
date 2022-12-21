@@ -62,13 +62,9 @@ She bent down and looked under the bed. She sat there for a long time.
 
 Without getting back up, she jerked her head and looked at me. She raised a finger to her lips.
 
-"Shhhh. They're listening"
+"Shhhh. They're listening."
 
-"Mama"
-
-"Shhhh. They'll hear you."
-
-"There's a monster?"
+"There's really a monster?"
  
 "We told you to be quiet. They'll get you if you're not quiet."
 
@@ -142,9 +138,7 @@ I watched with my neighbour from his fence, as the policemen rang the bell on my
 
 "We'll go collect your things now kid."
 
-As we walked through the house and the policemen began putting things in bags, he said that it was all over
-
-It was all over.
+As we walked through the house and the policemen began putting things in bags, he said that it was all over.
 
 He talked about how the they were going to find my big brother soon. And we would put be in a new proper family this time.
 
