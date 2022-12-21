@@ -211,3 +211,7 @@ I wanted to get home. to my place. Where I could feel stable. And, most probably
 &#x200B;
 
 This was just the start. Even worse was to come.
+
+&#x200B;
+
+Update, check [Part 2](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zr4d2x/the_buzz_part_2/) and [Part 3](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zr4ecw/the_buzz_part_3/) of my experience that night.
