@@ -2,13 +2,13 @@ Most people spend Christmas morning sitting in the living room surrounded by fam
 
 Not me. I’ve got an ex-wife and kids. They do all of that without me.
 
-I spend every Christmas morning taking some unlucky kid to the police station for an interview followed by an uncomfortable drive to drop them off with Child Protective Services. 
+I spend every Christmas morning taking some unlucky kid to the police station for an interview followed by an uncomfortable drive to drop them off with Child Protective Services.
 
 That’s my gift. A new missing person case and a terrified child who can’t understand why their mom vanished.
 
 I’ve been a homicide detective for eleven years. When you take the job, you do it with an understanding that a work/home life balance is no longer on the table. You do your best, but when calls come night and day, it ends up being a work/work setup. Sprinkle in a little home life just to make you miss being there.
 
-For the past eight years, a single mother has been reported missing by her young children every Christmas morning. 
+For the past eight years, a single mother has been reported missing by her young children every Christmas morning.
 
 The local papers call him *The Silent Night Killer* since the women disappear during the evening. Leave it to the media to add a holiday twist to the name. I guess that kind of stuff sells more copies.
 
@@ -98,7 +98,7 @@ Fear and panic boiled in my gut like bile.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-By 2021, eight women in our city had gone missing. Aside from Anna Gillum’s statement of a late-night visit from Santa, we had failed to collect any actionable evidence. Each scene remained the same. A small amount of blood, an unlocked back door, and no prints. 
+By 2021, eight women in our city had gone missing. Aside from Anna Gillum’s statement of a late-night visit from Santa, we had failed to collect any actionable evidence. Each scene remained the same. A small amount of blood, an unlocked back door, and no prints.
 
 The investigation treated the witness statement seriously. No, we didn’t believe Santa Claus had sprung to life and committed a series of grisly murders, but a man disguising himself as Santa was very believable. You could find Santa impersonators ringing bells by charity buckets on every street corner. Family members dressed up to surprise their young relatives during holiday get-togethers.
 
@@ -116,7 +116,7 @@ Maybe one day I could go for Christmas. Maybe Shaye would fall in love with me a
 
 After the divorce, I spent Christmas Eve and Christmas Day at the station. Melvin’s marriage had survived the ups and downs, so I made sure he stayed home. If a call or tip comes in, I’d be there to take it. No need to bail water out of my sinking boat into his.
 
-It was quiet that night for the most part. There were a few people in the dispatch center, but the night-shift receptionist had the day off. All but one officer were out on patrol. Some young buck drew the short straw to stay in the station on standby. He was snoozing at a desk in the bullpen. I’d let him rest. 
+It was quiet that night for the most part. There were a few people in the dispatch center, but the night-shift receptionist had the day off. All but one officer were out on patrol. Some young buck drew the short straw to stay in the station on standby. He was snoozing at a desk in the bullpen. I’d let him rest.
 
 My eyes felt heavy but sleep wouldn’t come. It was about 2:30 AM and I knew in a matter of hours a frightened child or their grandparents would call and report a missing woman. Melvin and I would spend Christmas Day as we always do. Another fruitless investigation and another broken family.
 
@@ -124,10 +124,12 @@ Suddenly I thought I heard the soft thud of feet on the thin carpet of the hallw
 
 “Sir, we just received a call,” the young woman said. “A six-year-old boy just called and said Santa Claus just dragged his mother out of the house. We’ve received multiple calls from the neighborhood reporting gunshots and a white cargo van fleeing the scene.”
 
-“Do we have an address?” I asked as I jumped from my seat and grabbed my coat from the hook by the door. 
+“Do we have an address?” I asked as I jumped from my seat and grabbed my coat from the hook by the door.
 
 She handed me a yellow sticky note with an address scribbled on it.
 
 “I want all available units to that location immediately,” I shouted as I ran down the hallway. “Have dispatch call Melvin Garcia and tell him to haul ass there! Maybe we can get this guy.”
 
 I burst through the back door and sprinted toward my cruiser. Fat white snowflakes drifted through the quiet night sky. They looked almost beautiful as they danced in the street [lights.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
+
+[\[FINAL\]](https://www.reddit.com/r/nosleep/comments/zrlbe1/a_single_mother_vanishes_every_christmas_eve_ive/)
