@@ -46,13 +46,13 @@ He reached his wrinkly hand over the table and squeezed my shoulder. "I don't th
 
 "What the hell?" I said, on the verge of tears, absolutely disgusted.
 
-"Bill, I've been in this business for over ten years - I've known you almost as long - and I've grown to respect you and what you've had to deal with. And I know it's unprofessional so forgive me for saying this, but I love you. But I've encountered many clients with your condition. And, while it isn't outside the realm of possibility that you indeed suffering from some kind of illness, I believe there may be another explanation."
+"Bill, I've been in this business for over ten years - I've known you almost as long - and I've grown to respect you and what you've had to deal with. And I know it's unprofessional so forgive me for saying this, but I love you." He swallowed. "I've encountered many clients with your condition. And, while it isn't outside the realm of possibility that you are indeed suffering from some kind of illness, I believe there may be another explanation."
 
 "No." I kept repeating the word over and over again. "No, no, no." Drowning out the rest of his words, until I finally got up and left.
 
 I remember being outraged for the rest of the week at the pure bile of this sick, misguided old man who I had once deeply respected and trusted. After I explained the experience to my mother, she moved me to another psychiatrist and tried to have Tom struck off. Unfortunately, there was no evidence of what he said to me.
 
-I didn't hear the voice for almost a year after that. I began to feel much better - like a normal person. I slept much better. Days got sunnier. The dark got brighter. It were as if a weight had been lifted from my shoulders. 
+I didn't hear the voice for almost a year after that. I began to feel much better - like a normal person. I slept much better. Days got sunnier. The dark got brighter. It were as if a weight had been lifted from my shoulders.
 
 I remember that time so vividly. So filled with sunshine and laughter. Events flowing like a seamless stream. My mother's smile, and her wavy brown hair swaying in the breeze. Silly jokes with my best friend, and young love - that's another story altogether.
 
@@ -70,7 +70,7 @@ A tiny part of me warned that my condition was taking ahold, but it was too powe
 
 It was that same night in the hospital that I heard the voice again. The son of a bitch was behind the cubicle curtain. I could even see the fucker's silhouette. "Billyyyyyy." Its faint and raspy tone came through clearer than ever. "Time to extract your soul, Billyyyyy." Unfortunately, it walked away before I could pull back the curtain.
 
-When I was back at home a few nights later, I heard the bastard again. "Billyyyyy. I'm getting closer to opening this door, you know. I can't wait to rip you limb from limb. Billyyyyyyyyyy" It was really going hard this time, but I didn't care anymore.
+When I was back at home a few nights later, I heard the bastard again. "Billyyyyy. I'm getting closer to opening this door, you know. I can't wait to rip you limb from limb. Billyyyyyyyyyy."
 
 I gently peeled the covers, snatched a screwdriver I kept under the mattress and tiptoed across my bedroom floorboards. In one fell swoop, I snapped the light switch, retracted my arm and swung the door open, full-force.
 
