@@ -1,3 +1,5 @@
+
+
 First of all this all started last summer i was on holiday at New york. The hotel was at a bad place at down town New York, but you can explain that because of the price
  
 

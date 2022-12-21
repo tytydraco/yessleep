@@ -1,10 +1,10 @@
-When I was only six years old, I was diagnosed with schizophrenia, because of a voice that has haunted me for as long as I can remember. It was a low, malevolent voice, barely a whisper, that called my name in the dark, after I'd gone to bed. "Billyyyyy." 
+When I was only six years old, I was diagnosed with schizophrenia, because of a voice that has haunted me for as long as I can remember. It was a low, malevolent voice, barely a whisper, that called my name in the dark, after I'd gone to bed. "Billyyyyy."
 
 At least, that's how it began.
 
 My memory of the early years is hazy at best, but I know when I was very young, it didn't phase me at all. I thought it may have even been my mother, hushing me to sleep. Whenever I told her about it however, she always gave me this look; it was the same frown she made when I was being silly or I'd done something wrong. When I was four or five, I pieced it together and realised the voice wasn't normal at all. A little while later, I was diagnosed with schizophrenia and prescribed anti-psych meds.
 
-It was around this time I began to be afraid of the voice inside my head. It felt so real to me. 
+It was around this time I began to be afraid of the voice inside my head. It felt so real to me.
 
 "Billyyyyy."
 
@@ -44,7 +44,7 @@ My psychiatrist - his name was Tom - leaned back on his armchair and stroked his
 
 He reached his wrinkly hand over the table and squeezed my shoulder. "I don't think you have schizophrenia." I felt sick as he said those words.
 
-"What the hell?" I said, on the verge of tears, absolutely disgusted. 
+"What the hell?" I said, on the verge of tears, absolutely disgusted.
 
 "Bill, I've been in this business for over ten years - I've known you almost as long - and I've grown to respect you and what you've had to deal with. And I know it's unprofessional so forgive me for saying this, but I love you. But I've encountered many clients with your condition. And, while it isn't outside the realm of possibility that you indeed suffering from some kind of illness, I believe there may be another explanation."
 
@@ -52,7 +52,11 @@ He reached his wrinkly hand over the table and squeezed my shoulder. "I don't th
 
 I remember being outraged for the rest of the week at the pure bile of this sick, misguided old man who I had once deeply respected and trusted. After I explained the experience to my mother, she moved me to another psychiatrist and tried to have Tom struck off. Unfortunately, there was no evidence of what he said to me.
 
-I didn't hear the voice for months after that. I began to feel much better - like a normal person. I slept much better. Days got sunnier. The dark got brighter. It were as if a weight had been lifted from my shoulders. But, of course, it had to return. I had a mental illness, after all. They don't just go away like a cut or a bruise. They're married to you for life. Something Tom clearly never understood despite his years of study in the field.
+I didn't hear the voice for almost a year after that. I began to feel much better - like a normal person. I slept much better. Days got sunnier. The dark got brighter. It were as if a weight had been lifted from my shoulders. 
+
+I remember that time so vividly. So filled with sunshine and laughter. Events flowing like a seamless stream. My mother's smile, and her wavy brown hair swaying in the breeze. Silly jokes with my best friend, and young love - that's another story altogether.
+
+But, of course, it had to return. I had a mental illness, after all. They don't just go away like a cut or a bruise. They're married to you for life. Something Tom clearly never understood despite his years of study in the field.
 
 Soon enough things were back to normal. I would be laying awake, or almost asleep, when that soft, eerie whisper trickled its way under the door. "Billyyyyyy." And I was plunged back into my nightmares, into terror, isolation.
 
@@ -66,16 +70,16 @@ A tiny part of me warned that my condition was taking ahold, but it was too powe
 
 It was that same night in the hospital that I heard the voice again. The son of a bitch was behind the cubicle curtain. I could even see the fucker's silhouette. "Billyyyyyy." Its faint and raspy tone came through clearer than ever. "Time to extract your soul, Billyyyyy." Unfortunately, it walked away before I could pull back the curtain.
 
-When I was back at home a few nights later, I heard the bastard again. "Billyyyyy. I'm getting closer to opening this door, you know. I can't wait to rip you limb from limb. Billyyyyyyyyyy" It was really going hard this time, but I didn't care anymore. 
+When I was back at home a few nights later, I heard the bastard again. "Billyyyyy. I'm getting closer to opening this door, you know. I can't wait to rip you limb from limb. Billyyyyyyyyyy" It was really going hard this time, but I didn't care anymore.
 
-I gently peeled the covers, snatched a screwdriver I kept under the mattress and tiptoed across my bedroom floorboards. In one fell swoop, I snapped the light switch, retracted my arm and swung the door open, full-force. 
+I gently peeled the covers, snatched a screwdriver I kept under the mattress and tiptoed across my bedroom floorboards. In one fell swoop, I snapped the light switch, retracted my arm and swung the door open, full-force.
 
-I jab, jab, jabbed into the space beyond, but couldn't see anything as my eyes were still adjusting to the light. I knew I'd hit something though, because I'd felt it in a big way. Heard it - too. 
+I jab, jab, jabbed into the space beyond, but couldn't see anything as my eyes were still adjusting to the light. I knew I'd hit something though, because I'd felt it in a big way. Heard it - too.
 
 Finally, I was face-to-face with the creature that had tormented me my entire life.
 
 My mother was knelt down, her forehead impaled by the screwdriver I had flailed moments ago. Her motionless eyes, through streams of blood like thick syrup, stared back with cold malevolence.
 
-It was then I realised what Tom was trying to tell me.
+It was then I realised what Tom was trying to tell me. What I had suspected myself in flashing moments but dared never admit.
 
 I wasn't sick. My mother was.
