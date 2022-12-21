@@ -16,7 +16,7 @@ And so, last Friday, I found myself partying in the corner of the room with my B
 
 “Don’t worry about it,” Jerry said. “The Yanks will get over it next year when one of them no doubt wins the Dozen Minus award for something. Just savour your moment in the sun.”
 
-“It does kind of suck, though,” Mia sighed. “I was working on that fusion energy project with Dr Carlson, and he just replaced me with one of his ‘better-suited’ LA colleagues.”
+“It does kind of suck, though,” Mia sighed. “I was working on that NASA project with Dr Carlson, and he just replaced me with one of his ‘better-suited’ LA colleagues.”
 
 “At least Bert is still talking to me,” I chuckled.
 
