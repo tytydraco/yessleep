@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/zsiv5a/i_remember_people_who_dont_exist_part_2/)
+
 It started with Kyle.
 
 We were going to meet up later that morning for a gaming session, but I had something at work come up and couldn't make it. I called Kyle's cellphone to tell him of the news, but it went straight to an answering machine with an automated voice telling me, "The number you have called has not been recognised."
@@ -82,15 +84,15 @@ As usual, when I woke up the next day, I went to the kitchen to make myself brea
 
 "The number you have called has not been recognised." Came the automated reply.
 
-"WHAT. THE. HECK." 
+"WHAT. THE. HECK."
 
 I ran back to his room. Everything he owned. Gone. I wen through the entire house. There wasn't a trace of hime left. Even the hole in the wall he made when moving a chair was gone. A smooth section of wall in its place. It was like he never even existed.
 
 I couldn't take it anymore.
 
-I slumped against a wall and started crying. The last time I had cried was at my grandmother's funeral, and even then I had kept my composure. Now, the tears fell freely. I must have sat sobbing there for at least an hour before my phone vibrated. It was Meg. 
+I slumped against a wall and started crying. The last time I had cried was at my grandmother's funeral, and even then I had kept my composure. Now, the tears fell freely. I must have sat sobbing there for at least an hour before my phone vibrated. It was Meg.
 
-She had texted, *Do you want to chat about yesterday?* 
+She had texted, *Do you want to chat about yesterday?*
 
 I did want to chat.
 
