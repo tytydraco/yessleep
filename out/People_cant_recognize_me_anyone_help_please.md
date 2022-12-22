@@ -33,3 +33,5 @@ After I left and got in my car I called my parents numbers to see what would hap
 Now it's today and my childhood firend is starting to forget me, her memories are fading of me, and my ID is starting to disapear. But me and my friend came up with an idea for her to remember me. But we have no idea how I can keep my identity.
 
 So to anyone reading this, please help me find out whats going on? Because, I think I'm running out of time.
+
+Edit: The the link to my second post, which is an update to this one [Post 2](https://www.reddit.com/r/nosleep/comments/zsgj37/update_people_still_no_longer_recognize_but_i/)
