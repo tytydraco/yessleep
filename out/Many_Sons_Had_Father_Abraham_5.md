@@ -621,3 +621,5 @@ Not yet…
 &#x200B;
 
 Slowly, I dragged myself back to the truck so that Patrick could take me back to my cabin.
+
+[6](https://www.reddit.com/r/nosleep/comments/zszreo/many_sons_had_father_abraham_6/)
