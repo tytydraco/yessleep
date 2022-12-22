@@ -1,0 +1,19 @@
+Our family never really celebrated christmas. Me and my sister received no gifts and our mother never decorated the house. Mother didn't allow christmas music or movies to be played. It felt like she hated the holiday.
+
+We never understood why mother punished us like this when christmas was the best day of the year for other kids. When I turned six and my sister was four she told us this: "I'm really sorry we can't celebrate. I'm worried you haven't been nice enough and Santa will punish naughty kids." Of course we debated and insisted we have behaved well enough. "It is not nice enough. John, you broke our back yard fence last summer by hanging on it and Kate broke the tv while running around the house. I'm sorry children, not this year."
+
+We cried and pleaded for mother to forgive us and let us have a real christmas but she refused. Kate blamed me and I blamed her, we hated eachother for ruining the holiday by not being nice enough. We later made peace and decided to be the nicest kids on the planet next year.
+
+Next november we were ecstatic. Mother had just told us we had behaved really well and it was possible to have a christmas this year. We jumped in the air together with Kate and hugged mother. All of us were crying.
+
+On december mother started decorating the house. We insisted on helping her and started placing ornaments on the tree. Mother went outside to hang lights on the house and we continued indoors. We were having so much fun, this was all new to us and exciting. While hanging the ornaments Kate dropped a glass ball on the floor and it shattered. We both gasped. Kate was beginning to cry. I told her to be silent and started cleaning up. "Kate, we can't tell mother." She nodded and wiped her eyes. I picked the glass pieces and hid them on the bottom of the trash bin. Just then our door opened and mother came in. She looked at us and asked "John, what's going on?" "Nothing mother, I was just gonna take out the trash." "Oh, thank you son." I looked at Kate and we nodded at each other.
+
+At christmas eve morning we were thrilled. There were presents under the tree, christmas music on the radio and mother was cooking in the kitchen. We had never been happier. We insisted opening our presents but mother refused. "We open the presents in the evening after dinner, be patient. You have behaved so well." Kate and I hesitantly agreed.
+
+We had just had dinner and we were sitting in front of the tree with Kate. "Wait children, I'm going to the store to get us milk with the cookies. I'll be back in fifteen minutes and then we open our presents." Mother went out and her car started. When she drove out Kate whispered: "John, I was naughty." "It's ok Kate, mother didn't see." She looked at me and then the floor. "We behaved really well Kate, we deserve this." She didn't react.
+
+***
+
+Rubble came down our chimney. We look at eachother and then at the fire place. "Santa!" Kate shouted excited. "But we already got presents.." I thought out loud. The fire place thudded and ash dust filled the room. We coughed. Something big was crawling out. I saw the outfit of Santa but something was not right. He breathed really heavily. I couldn't see well but his face looked crooked, the eyes were dark and his mouth was too big for a human. It walked slowly towards us. "Naughty.." it growled. We screamed and tried to get up but we couldn't move. The thing opened his bag and picked Kate up with one hand. I saw she tried to scream but we couldn't move a muscle. The thing climbed up the chimney with Kate in it's bag. I never saw her again.
+
+I cried and shouted, told mother everything when she came back. She didn't respond to me, just cried and wailed "Not again, not again..."
