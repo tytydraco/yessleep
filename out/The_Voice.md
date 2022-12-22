@@ -28,13 +28,13 @@ I also developed theories about what it could be. At first came the image of a g
 
 I told my mother about the theories, but she always said not to dwell on it, since it only gave fuel to my condition. I would do it anyway. I couldn't help it. When you hear a voice almost every night, it has a habit of consuming a lot of your energy.
 
-I would also discuss my thoughts with a psychiatrist, which I saw fortnightly - or weekly, in times where the condition was out of control. He would always remark how strange it was that my condition only flared up in certain conditions; when it was dark, after I'd gone to bed, only if I was alone, etc. Since, by the time I was eleven, I'd had multiple friends around and never once heard the voice those nights. And, of course, only ever at night, in bed.
+I would also discuss my thoughts with a psychiatrist, which I saw fortnightly - or weekly, in times where the condition was out of control. He would always remark how strange it was that my symptoms only presented themselves under very particular situations; when it was dark, after I'd gone to bed, only if I was alone, etc. Since, by the time I was eleven, I'd had multiple friends around and never once heard the voice those nights. And, of course, only ever at night, in bed.
 
 When he asked me why I thought that was, I couldn't really answer. "Well, unless..."
 
 "Go on..."
 
-Sitting on the beige couch in my psychiatrists office at thirteen years old, a cold shiver snaked its way up my spinal cord and tickled the fear centre of my brain. "No, no. It's nothing." I said, staring at the table.
+Sitting on the beige couch in my psychiatrist's office at thirteen years old, a cold shiver snaked its way up my spinal cord and tickled the fear centre of my brain. "No, no. It's nothing." I said, staring at the table.
 
 "Go on. What is it?" My psychiatrist leaned a little closer.
 
