@@ -1,12 +1,12 @@
 The dolls are no longer joyful like they used to be. All day, Poppa sits in the library, his beady, mechanical eyes watching the glow of the plastic fire. Occasionally, he picks up a black book that I’m almost certain contains no words. Yet he reads it for hours on end. He doesn’t go to the yard and play with Kip like when the dollhouse first arrived.
 
-As for Kip, he lies in bed for hours at a time, staring at a mural Gretyl painted on the ceiling. From time to time, he looks over at me. Perhaps he wants me to feel guilty, but I don’t. The dolls needed to be taught a lesson. 
+As for Kip, he lies in bed for hours at a time, staring at a mural Gretyl painted on the ceiling. From time to time, he looks over at me. Perhaps he wants me to feel guilty, but I don’t. The dolls needed to be taught a lesson.
 
 Yet sometimes at night, when I hear them scratching at the JaguarGlass(™) siding of their dollhouse, I can’t help but feel afraid. And though I know I’m in the right, I find myself repeating the salesman’s promise that the enclosure is utterly unbreakable.
 
 This all started a few weeks ago. I’d been having problems with my daughter, Tara.
 
-Throughout most of her life, even through high school, she was a model of obedience. Not to sing my own praises too loud, but it all comes down to parenting. I have always been strict but fair. 
+Throughout most of her life, even through high school, she was a model of obedience. Not to sing my own praises too loud, but it all comes down to parenting. I have always been strict but fair.
 
 I let her go to parties, even ones where I knew alcohol would be served, as long as she let me pick her up by 9:00 and never partook herself. I even let her date, as long as we agreed on the boy and kept the door to her room open during all of their visits.
 
@@ -36,7 +36,7 @@ I checked the price tag. $2999.99.
 
 “Trust me,” he said. “Resale on these things is twice that.”
 
-I thought of Tara, driving with her new *lover* off to Thanksgiving. 
+I thought of Tara, driving with her new *lover* off to Thanksgiving.
 
 “I’ll take it,” I said. “And any accessories you have in stock.”
 
@@ -44,13 +44,13 @@ I thought of Tara, driving with her new *lover* off to Thanksgiving.
 
 “Why not?” I answered, thinking of the tuition money burning a hole in my pocket. “I’m feeling spendy.”
 
-Setting up the house, I felt like a child again sitting in the dark of my bedroom, quietly cutting paper dolls as my parents slept. I had Douglas put the house on a table in the corner of the room. 
+Setting up the house, I felt like a child again sitting in the dark of my bedroom, quietly cutting paper dolls as my parents slept. I had Douglas put the house on a table in the corner of the room.
 
 I had sprung for the deluxe upgrade, a three-story manor that included chrome plating on the fixtures and boasted extra rooms like a tiny movie theater and a game room for the children. As Douglas plugged it in, tasteful lights illuminated the dark rooms, including backlit false windows that gave the appearance of a sunny summer day.
 
 Next, we began configuring the dolls' personalities through an app on my iPhone. I started with Poppa:
 
-*Select One:* 
+*Select One:*
 
 1. *Mr. Perfect*
 2. *The Oaf*
@@ -58,7 +58,7 @@ Next, we began configuring the dolls' personalities through an app on my iPhone.
 4. *Worker Bee*
 5. *The Brute*
 
-“What utter nonsense,” I told Douglas. “Why would anyone pick The Oaf or The Brute?” 
+“What utter nonsense,” I told Douglas. “Why would anyone pick The Oaf or The Brute?”
 
 Douglas shrugged. “Those two are more popular than you’d think? Like, think Homer Simpson for Oaf. Or the guy from Streetcar Named Desire for Brute.”
 
@@ -66,13 +66,13 @@ I picked Mr. Perfect and moved on through the rest of the family. Each one had s
 
 Once my selections were complete, a large button appeared that read “AWAKE.” I pushed it.
 
-All at once, a jolly tune began to play and each of the dolls sat up in bed. Being perfect, they each immediately sprang to life full of purpose and determination, straightening their pillows and comforters before changing out of their pajamas with great focus. 
+All at once, a jolly tune began to play and each of the dolls sat up in bed. Being perfect, they each immediately sprang to life full of purpose and determination, straightening their pillows and comforters before changing out of their pajamas with great focus.
 
 “Pretty fucking cool, right?” said Douglas.
 
 I nodded. “You may go now.”
 
-I must admit, I spent the first few days utterly transfixed on the little family. The Happe family’s days progressed at 24x human speed so that each “Happe Day” took exactly one hour. And, oh, how much they packed in! 
+I must admit, I spent the first few days utterly transfixed on the little family. The Happe family’s days progressed at 24x human speed so that each “Happe Day” took exactly one hour. And, oh, how much they packed in!
 
 Momma was quite the homemaker, preparing elaborate plastic meals: roasts, sweets, and stews whose smells filled the bedroom thanks to patented HappeMist technology! Sweet Gretyl was always around to lend a hand, cleaning dishes and setting places at the dining room table. She was also a prolific artist, creating dozens of miniature paintings, mostly of a bright red bird. Even little Kip contributed, bringing in bouquets of flowers from the garden and cleaning up after Tukki’s droppings (of course I’d sprung for the dog!)
 
@@ -82,9 +82,9 @@ The dolls kept mostly to themselves but occasionally turned their attention to m
 
 “YOUR SONG FILLS US WITH JOY!”
 
-Physically, the dolls and I almost never interacted. Most routine maintenance took place in their beds while they were doing their sleep cycles, and they could perform their own wardrobe changes and personal hygiene. 
+Physically, the dolls and I almost never interacted. Most routine maintenance took place in their beds while they were doing their sleep cycles, and they could perform their own wardrobe changes and personal hygiene.
 
-On the rare occasions where I did need to physically touch the dolls, there was a fairly elaborate protocol. Once, when Kip accidentally touched a bit of super glue that Poppa was using to make a rocking chair in his woodshop, I had to take him out. Using the app, I put Kip into Maintenance Mode, causing him to walk zombie-like over to a small elevator in the house’s utility closet. Then, after inputting a PIN and a password, I had to click through several boxes from Happe’s lawyers agreeing to God knows what. 
+On the rare occasions where I did need to physically touch the dolls, there was a fairly elaborate protocol. Once, when Kip accidentally touched a bit of super glue that Poppa was using to make a rocking chair in his woodshop, I had to take him out. Using the app, I put Kip into Maintenance Mode, causing him to walk zombie-like over to a small elevator in the house’s utility closet. Then, after inputting a PIN and a password, I had to click through several boxes from Happe’s lawyers agreeing to God knows what.
 
 Finally, the elevator came to like and lifted Kip out of the dollhouse chimney. As I took him in hand, I was surprised by both how heavy he felt but also how fragile. I ran my finger across his tiny legs, no thicker than a pencil and marveled at his design. It was a feeling I hadn’t experienced since holding Tara when she was first born.
 
@@ -96,11 +96,11 @@ All the while I handled Kip, Poppa, Momma and Gretyl watched me nervously. As I 
 
 The dolls pressed their little hands to the glass enclosure, and I did the same on my side. For the first time in weeks, I felt like I had a family again.
 
-Unfortunately, things in the real world weren’t quite as smooth. Tara called a few days after Thanksgiving mentioning a threatening email from the Bursar’s office. Her tuition check was now past due, go figure. 
+Unfortunately, things in the real world weren’t quite as smooth. Tara called a few days after Thanksgiving mentioning a threatening email from the Bursar’s office. Her tuition check was now past due, go figure.
 
 I calmly explained that she had made the decision to start a secret life with her girlfriend and ignore me on Thanksgiving, so she should be more than capable of scrounging up a few measly thousands of dollars to pay for school. Perhaps this new romantic partner and her parents could help!
 
-Tara said several dark words that could not be taken back. She also diagnosed me as a controlling narcissist (who knew?!) 
+Tara said several dark words that could not be taken back. She also diagnosed me as a controlling narcissist (who knew?!)
 
 In response, I asked her if she’d perhaps changed her major \*again\* and was not going into psychology, which seemed to me much more likely to lead to actual employment than anthropology.
 
@@ -110,19 +110,19 @@ As I finished the conversation, I looked over and realized the dolls were watchi
 
 “REMEMBER, KINDNESS ALWAYS. FAMILY IS EVERYTHING.”
 
-I pressed my face up to the glass to make sure she could hear me. 
+I pressed my face up to the glass to make sure she could hear me.
 
 “Easy for you to say. Your family is perfect. And don’t ever speak to me about my daughter again.”
 
 I’m sorry to say that my relationship with the dolls went south from there. As we approached the holidays, their habits began to irritate me. They had been programmed not to celebrate Christmas, but instead a proprietary religion developed by Happe.
 
-*In December, celebrate the Ten Days of Renewal with the Happe Family, including hymns written by Johnny Greenwood and a complete theology crafted by scholars of world religion!* 
+*In December, celebrate the Ten Days of Renewal with the Happe Family, including hymns written by Johnny Greenwood and a complete theology crafted by scholars of world religion!*
 
-*Ring the Bells of Rejoicing with Gretyl and Pip as they learn about Master Otto, and the Ten Sacrifices of Kliber Village.* 
+*Ring the Bells of Rejoicing with Gretyl and Pip as they learn about Master Otto, and the Ten Sacrifices of Kliber Village.*
 
 *Experience the miracle of Otto’s death at the age of 1,000 and rebirth as newborn baby, all thanks to the villagers' sacrifice!*
 
-Instead of Christmas music, the dolls sang melancholy dirges, and rather than a cross, they hung Gretyl’s paintings of the Mother Phoenix, who brings new life to the world. At dinner, I’d find myself eating alone in front of the TV, volume turned to max to drown out the sound of their soulful caroling. 
+Instead of Christmas music, the dolls sang melancholy dirges, and rather than a cross, they hung Gretyl’s paintings of the Mother Phoenix, who brings new life to the world. At dinner, I’d find myself eating alone in front of the TV, volume turned to max to drown out the sound of their soulful caroling.
 
 Soon, I was blasting Christmas music right next to the little house, even as the dolls attempted their sleep cycle. They slept restlessly and dragged themselves through their days. They still sang their awful hymns, but a bit less joyfully.
 
@@ -142,7 +142,7 @@ I opened the app and put Gretyl into maintenance mode. Dutifully, she ambled to 
 
 “Not allowed?” I practically screamed. “This is my house! You are my dolls. I’ll do whatever the fuck I want to you!”
 
-I tried to calm myself, but I couldn’t. Originally, I’d merely intended to hurt Gretyl in some small way, but my temper got the better of me. I lay her half asleep on the floor as she looked up at me, her eyes a mix of horror and confusion. Then I took her by the feet and smashed her hard against the floor, again and again until her wooden body cracked, revealing a tender metal skeleton. 
+I tried to calm myself, but I couldn’t. Originally, I’d merely intended to hurt Gretyl in some small way, but my temper got the better of me. I lay her half asleep on the floor as she looked up at me, her eyes a mix of horror and confusion. Then I took her by the feet and smashed her hard against the floor, again and again until her wooden body cracked, revealing a tender metal skeleton.
 
 As I did it, the rest of the family was in ruins. Kip threw his tiny body against the glass, trying to get to his sister. Momma knelt in prayer. Poppa kept writing messages.
 
@@ -160,7 +160,7 @@ I dug a two-inch grave in the potted plant by the dollhouse and laid Gretyl’s 
 
 “You will learn your place,” I told him.
 
-I was considering further punishments when the phone rang and I got distracted. It was Tara, calling this time to tell me she’d taken a bus to California but had now gotten in a massive fight with her girlfriend and was sitting all alone in a Starbucks, not knowing what to do next. 
+I was considering further punishments when the phone rang and I got distracted. It was Tara, calling this time to tell me she’d taken a bus to California but had now gotten in a massive fight with her girlfriend and was sitting all alone in a Starbucks, not knowing what to do next.
 
 “Please mom,” she said. “Just tell me what to do. The credit card isn’t working anymore and I’m totally out of cash.”
 
@@ -180,17 +180,41 @@ Part of me wanted to laugh. But for the first time, I felt a genuine bit of fear
 
 For a moment, I considered simply pulling the plug on the whole thing. Maybe I could even get my money back. But where was the lesson there? The dolls would basically be getting their own way. No, this was a teaching moment. And I was here to teach them.
 
-And so for a few hours, I let them mope. Poppa brooding, Momma praying, Kip staring. Children, all of them, waiting for me to break first, to fall to my knees in contrition. I wanted to laugh. Did Noah and Job ask God for an apology? 
+And so for a few hours, I let them mope. Poppa brooding, Momma praying, Kip staring. Children, all of them, waiting for me to break first, to fall to my knees in contrition. I wanted to laugh. Did Noah and Job ask God for an apology?
 
 And so I sat down and prepared a small speech, kindly inviting the dolls to sit and listen, and then finally informing them that I’d rip their dog to pieces if they didn’t.
 
-“You were supposed to be the perfect family,” I told them. “But I can see now that you’re as broken as the rest of us. What happened to Gretyl was tragic, but it’s also a chance for you to learn and grow. If we’re to continue living together, you’ll have to learn to follow my orders. 
+“You were supposed to be the perfect family,” I told them. “But I can see now that you’re as broken as the rest of us. What happened to Gretyl was tragic, but it’s also a chance for you to learn and grow. If we’re to continue living together, you’ll have to learn to follow my orders.
 
 You see, there is no Mother Phoenix. That’s all just some story the toymakers made up. Here, in this house, I am your god. And you will follow my will. Your lives are eternal, and your box is inescapable. It can be a prison or a home. The choice is up to you.”
 
-Then I turned out the light and went to bed. As I tried to sleep, I must admit I couldn’t stop shaking. From time to time, I heard odd scraping sounds emanating from the house, and I had to remind myself I was perfectly safe. Not once did I get out of bed. I refused to let them see my fear. 
+Then I turned out the light and went to bed. As I tried to sleep, I must admit I couldn’t stop shaking. From time to time, I heard odd scraping sounds emanating from the house, and I had to remind myself I was perfectly safe. Not once did I get out of bed. I refused to let them see my fear.
 
 “They can’t get out,” I repeated again and again. “They’ll be in that house for all eternity.”
+
+I woke the next day with a pit in my stomach and a dull taste in my mouth. Even before I looked at the dollhouse, I could tell something was wrong.
+
+I found the dolls lying in a peculiar pattern, their outstretched arms and legs forming what appeared to be a star. In the center of their entangled limbs sat Poppa’s black book and one of Gretyl’s paintings of the Mother Phoenix.
+
+The dolls did not move. Their lifeless eyes stared up at the ceiling.
+
+“Wake up!” I shouted. “Wake up! You will listen. You will listen or I’ll tear you all apart!”
+
+Nothing.
+
+Then I noticed something odd by the potted plant. The toothpick cross had toppled on its side and the earth beneath it was disturbed. I reached in with my finger unburying Gretyl’s body, but all I could find were the wooden pieces.
+
+The metal skeleton was gone.
+
+Looking closer, I saw a line of dirt coming out of the grave and leading across the room toward my bed. Dirty smudges stained the sheets, leading right up to my pillow.
+
+Right away, I knew where she was: inside me. I was at her mercy now.
+
+And I can hear something now. One of the worst hymns of all, the “Birth Song of the Mother Phoenix.” It is echoing from somewhere deep inside my throat.
+
+I know that Gretyl could strike at any minute working her way to any organ, piercing my liver, my lungs, even my heart. But she doesn’t. She is sitting and waiting somewhere inside, letting me feel what it’s like to be under her power.
+
+I find myself calling Tara’s cell phone, over and over again. Each time it goes to voicemail. I leave messages, and at some point, I’m not sure if they’re for Tara or Gretyl. For the first time I can remember, maybe ever, I find myself repeating, “I’m sorry, I’m sorry, I’m sorry.”
 
 I woke the next day with a pit in my stomach and a dull taste in my mouth. Even before I looked at the dollhouse, I could tell something was wrong.
 
@@ -206,14 +230,12 @@ Then I noticed something odd by the potted plant. The toothpick cross had topple
 
 The metal skeleton was gone.
 
-The pain in my gut was starting to sting harder now, knifelike and distinct. I’d felt this way once as a child when I’d swallowed a staple.
-
 Looking closer, I saw a line of dirt coming out of the grave and leading across the room toward my bed. Dirty smudges stained the sheets, leading right up to my pillow. 
 
-Another searing pain. Higher now.
+Right away, I knew where she was: inside me. I was at her mercy now.
 
-And I can hear something now. One of the worst hymns at all, the “Birth Song of the Mother Phoenix.” It is echoing from somewhere deep inside me. The pain is getting worse, moving up from my stomach, up toward my heart, as I realize that I am Gretyl’s dollhouse now. 
+And I can hear something now. One of the worst hymns of all, the “Birth Song of the Mother Phoenix.” It is echoing from somewhere deep inside my throat.
 
-And as I grow weaker, I find myself calling Tara’s cell phone, over and over again. Each time it goes to voicemail, and, God, I find myself wanting to apologize. For what, I don’t know. 
+I know that Gretyl could strike at any minute working her way to any organ, piercing my liver, my lungs, even my heart. But she doesn’t. She is sitting and waiting somewhere inside, letting me feel what it’s like to be under her power.
 
-The message beeps, and blood on my lips, a light gurgle from my lungs, I find myself muttering, “I’m sorry, I’m sorry, I’m sorry.”
+I find myself calling Tara’s cell phone, over and over again. Each time it goes to voicemail. I leave messages, and at some point, I’m not sure if they’re for Tara or Gretyl. For the first time I can remember, maybe ever, I find myself repeating, “I’m sorry, I’m sorry, I’m sorry.”

@@ -88,7 +88,7 @@ When Friday came, I was woken up by a phone call. As I blinked away the tirednes
 
 “What?!”
 
-“Nothing was taken, but the door to my old room was open and my bedsheets were pulled back, they couldn’t find anything on the neighbours doorbell cameras”
+“Nothing was taken, but the door to my old room was open and my bedsheets were pulled back, they couldn’t find anything on the neighbours' doorbell cameras”
 
 “That’s so scary, why would someone do that? Why only your room?”
 
@@ -126,7 +126,9 @@ Hannah didn’t reply after that. We stopped talking for a few days. I think she
 
 —----------------------------
 
-I had the worst phone call of my life two days ago. Hannah was found dead in her room. They found no evidence. I wished I was dreaming, I could feel my life come crashing down within those few minutes that I was on the phone. It wasn’t until they told me that her eyes had been cleanly gouged out of the sockets that it hit me. The ritual. It had worked, she was watching the demon come to take her eyes that she’d offered just a week earlier. Her dreams were a warning. I wish I’d taken her more seriously. When the phone call ended, I was staring at my phone screen, unmoving in total shock. That’s when I noticed I had message notifications and 3 missed calls from Hannah. I hesitated before opening them.
+I had the worst phone call of my life two days ago.
+
+Hannah was found dead in her room. They found no evidence. I wished I was dreaming, I could feel my life come crashing down within those few minutes that I was on the phone. It wasn’t until they told me that her eyes had been cleanly gouged out of the sockets that it hit me. The ritual. It had worked, she was watching the demon come to take her eyes that she’d offered just a week earlier. Her dreams were a warning. I wish I’d taken her more seriously. When the phone call ended, I was staring at my phone screen, unmoving in total shock. That’s when I noticed I had message notifications and 3 missed calls from Hannah. I hesitated before opening them.
 
 &#x200B;
 

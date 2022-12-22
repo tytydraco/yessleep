@@ -275,3 +275,5 @@ I realised the implications of this ghastly creation. I realised what dangerous 
 The looping programme is a great ‘reset button’, but it hasn’t fixed anything.
 
 I’ve simply bought time.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/zs72ox/i_work_for_an_experimental_tech_company_my_brain/)
