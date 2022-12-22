@@ -34,4 +34,4 @@ Now it's today and my childhood firend is starting to forget me, her memories ar
 
 So to anyone reading this, please help me find out whats going on? Because, I think I'm running out of time.
 
-Edit: The the link to my second post, which is an update to this one [Post 2](https://www.reddit.com/r/nosleep/comments/zsgj37/update_people_still_no_longer_recognize_but_i/)
+Edit: The the link to my second post, which is an update to this one [Post 2](https://www.reddit.com/r/nosleep/comments/zsudrs/update_people_still_no_longer_recognize_but_i/)
