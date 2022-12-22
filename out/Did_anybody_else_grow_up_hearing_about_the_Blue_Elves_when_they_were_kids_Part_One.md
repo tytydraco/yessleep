@@ -321,3 +321,5 @@ The whole time he spoke, my body was a statue, completely hollow and lifeless. N
 "How did you come across all of this?"
 
 "After the night your momma died, I started looking for them. I wanted to see where they were and what they were, so I started reachin' out to anyone that was willin' to listen and might know a little something. So far, that's all it there."
+
+[Next](https://www.reddit.com/r/nosleep/comments/zsbs1m/did_anybody_else_grow_up_hearing_about_the_blue/?utm_source=share&utm_medium=web2x&context=3)
