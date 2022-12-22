@@ -74,7 +74,7 @@ When I was back at home a few nights later, I heard the bastard again. "Billyyyy
 
 I gently peeled the covers, snatched a screwdriver I kept under the mattress and tiptoed across my bedroom floorboards. In one fell swoop, I snapped the light switch, retracted my arm and swung the door open, full-force.
 
-I jab, jab, jabbed into the space beyond, but couldn't see anything as my eyes were still adjusting to the light. I knew I'd hit something though, because I'd felt it in a big way. Heard it - too.
+I ferociously trashed into the space beyond, but couldn't see anything as my eyes were still adjusting to the light. I knew I'd hit something though, because I'd felt it in a big way. Heard it - too.
 
 Finally, I was face-to-face with the creature that had tormented me my entire life.
 

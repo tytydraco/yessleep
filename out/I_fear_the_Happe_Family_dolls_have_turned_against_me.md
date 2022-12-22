@@ -215,27 +215,3 @@ And I can hear something now. One of the worst hymns of all, the “Birth Song o
 I know that Gretyl could strike at any minute working her way to any organ, piercing my liver, my lungs, even my heart. But she doesn’t. She is sitting and waiting somewhere inside, letting me feel what it’s like to be under her power.
 
 I find myself calling Tara’s cell phone, over and over again. Each time it goes to voicemail. I leave messages, and at some point, I’m not sure if they’re for Tara or Gretyl. For the first time I can remember, maybe ever, I find myself repeating, “I’m sorry, I’m sorry, I’m sorry.”
-
-I woke the next day with a pit in my stomach and a dull taste in my mouth. Even before I looked at the dollhouse, I could tell something was wrong.
-
-I found the dolls lying in a peculiar pattern, their outstretched arms and legs forming what appeared to be a star. In the center of their entangled limbs sat Poppa’s black book and one of Gretyl’s paintings of the Mother Phoenix. 
-
-The dolls did not move. Their lifeless eyes stared up at the ceiling. 
-
-“Wake up!” I shouted. “Wake up! You will listen. You will listen or I’ll tear you all apart!”
-
-Nothing.
-
-Then I noticed something odd by the potted plant. The toothpick cross had toppled on its side and the earth beneath it was disturbed. I reached in with my finger unburying Gretyl’s body, but all I could find were the wooden pieces. 
-
-The metal skeleton was gone.
-
-Looking closer, I saw a line of dirt coming out of the grave and leading across the room toward my bed. Dirty smudges stained the sheets, leading right up to my pillow. 
-
-Right away, I knew where she was: inside me. I was at her mercy now.
-
-And I can hear something now. One of the worst hymns of all, the “Birth Song of the Mother Phoenix.” It is echoing from somewhere deep inside my throat.
-
-I know that Gretyl could strike at any minute working her way to any organ, piercing my liver, my lungs, even my heart. But she doesn’t. She is sitting and waiting somewhere inside, letting me feel what it’s like to be under her power.
-
-I find myself calling Tara’s cell phone, over and over again. Each time it goes to voicemail. I leave messages, and at some point, I’m not sure if they’re for Tara or Gretyl. For the first time I can remember, maybe ever, I find myself repeating, “I’m sorry, I’m sorry, I’m sorry.”
