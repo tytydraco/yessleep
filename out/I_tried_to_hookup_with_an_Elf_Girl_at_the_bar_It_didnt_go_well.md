@@ -12,7 +12,7 @@ Despite the time of the year—and her outfit, which she’d yet to even play at
 
 But she was my guest, so I complied. I brought up the streaming services I use and went through them all, sorting by Christmas-themed movies, and eventually she found one she thought would be “the most cheerful.”  
 
-I had—disdainfully—expected her to spend the whole movie glassy-eyed and smiling, perhaps even making me join her in some song; but after only twenties minutes her face had assumed an expression of what I can only describe as grim repulsion. I asked her what’s wrong, and practically on the verge of tears she said, “This isn’t right. None of this is right. We’re not short and stupid. And Santa isn’t some bumbling idiot. Sure, he’s harsh, even a bit cruel at times; but he’s no idiot—he's a wise and calculating autarch, if anything.”  
+I had—disdainfully—expected her to spend the whole movie glassy-eyed and smiling, perhaps even making me join her in some song; but after only twenty minutes her face had assumed an expression of what I can only describe as grim repulsion. I asked her what’s wrong, and practically on the verge of tears she said, “This isn’t right. None of this is right. We’re not short and stupid. And Santa isn’t some bumbling idiot. Sure, he’s harsh, even a bit cruel at times; but he’s no idiot—he's a wise and calculating autarch, if anything.”  
 
 At first, I thought she was referring to some other movie; that maybe the one we’d been watching was actually a remake, and they’d got everything wrong. But then I realized that she was still doing the *elf bit,* only it was obvious—by her genuinely pained face—that it was no bit; that sitting beside me, dressed in a perfectly fitting elf costume, was an actual, bona fide elf of the North Pole.  
 
