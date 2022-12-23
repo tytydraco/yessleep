@@ -82,4 +82,4 @@ My work is still open, but some of my locally based coworkers have stopped loggi
 
 I don't know what's happening, but I don’t think my town is in for a merry Christmas this year. 
 
-Oh, and I’m never leaving my house again[.](https://www.reddit.com/r/JamFranz/)
+Oh, and I’m never leaving my house again.

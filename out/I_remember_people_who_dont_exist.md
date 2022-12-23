@@ -86,7 +86,7 @@ As usual, when I woke up the next day, I went to the kitchen to make myself brea
 
 "WHAT. THE. HECK."
 
-I ran back to his room. Everything he owned. Gone. I wen through the entire house. There wasn't a trace of hime left. Even the hole in the wall he made when moving a chair was gone. A smooth section of wall in its place. It was like he never even existed.
+I ran back to his room. Everything he owned. Gone. I went through the entire house. There wasn't a trace of him left. Even the hole in the wall he made when moving a chair was gone. A smooth section of wall in its place. It was like he never even existed.
 
 I couldn't take it anymore.
 
