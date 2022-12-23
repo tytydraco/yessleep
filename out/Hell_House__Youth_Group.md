@@ -1,4 +1,3 @@
-
 My hometown is a Middle American no-place. That sort of typical Midwestern that the freeway bypassed decades ago. During the autumn, the emerald green corn and soybean plants fade into a brittle gold. The city itself–if we might call it such a thing–has the spidered broken asphalt and bombed-out husks of factories that characterize the rust belt. Post-war. Post-boom. Post-life. 
 
 By the time I was born, it was long past its prime, with little more than understaffed retirement homes, slot shops, and enough churches to make God blush. Every street corner was blessed with a rising spire of Christendom that cast its pointed shadow over the collapsing bars next door. It wasn’t a choice whether one grew up a Christian. It was simply expected.
@@ -38,11 +37,17 @@ But what at first felt like hanging out with a thin veneer of scripture soon tur
 
 I still get chills when I recall the refrain from one song:
 
-O sacred lamb, thou sacred lamb
-Your shed blood purified the soil below
-We drink deep from thy bleeding hand
-And are made pure and white as snow
-Pure and white as snow…
+
+*O sacred lamb, thou sacred lamb*
+
+*Your shed blood purified the soil below*
+
+*We drink deep from thy bleeding hand*
+
+*And are made pure and white as snow*
+
+*Pure and white as snow…*
+
 
 
 My mood brightened when we pulled onto a rough, gravel road. We drove under the red glow of a welcoming sign: Hell’s Gate. The words burned like napalm against the clouded, starless night. I felt a surge of adrenaline as we wove through the gnarled wooded trees that shrouded a former elementary school.
