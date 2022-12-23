@@ -1,8 +1,8 @@
-My name is Adam. Im writing this from my car, I will be dead till morning but I just have to tell someone about what we found. We woke something inside that cave and it killed all of my friends... 
+My name is Adam. Im writing this from my car, I will be dead till morning but I just have to tell someone about what we found. We woke something inside that cave and it killed all of my friends...
 
 &#x200B;
 
-A few hours ago and my friends had an amazing idea to go for a trip to some nearby caves here in the Czech Republic. Of course, we didn't want to pay an entrance fee and it was already after the opening hours. But dump as we are, we still went, intending to sneak inside. We set off at around 10 pm looking to be there at about 11 pm. Only 4 of us went Me, Peter, David and Matyas. We left the others at Matyases weekend house and took off. 
+A few hours ago and my friends had an amazing idea to go for a trip to some nearby caves here in the Czech Republic. Of course, we didn't want to pay an entrance fee and it was already after the opening hours. But dump as we are, we still went, intending to sneak inside. We set off at around 10 pm looking to be there at about 11 pm. Only 4 of us went Me, Peter, David and Matyas. We left the others at Matyases weekend house and took off.
 
 &#x200B;
 
@@ -20,7 +20,7 @@ After a few minutes of walking through the woods, we finally saw the entrance at
 
 After 10 minutes of trying not to slip while climbing the old paths and stairs, we arrived at the deepest part of the accessible cave. There was an opening with a wooden platform where the guide would speak to the visitors. "Looks like that's it. We are probably not going to get any lover than this." Peter said while looking around the opening. "Would be so sure about that" David said while climbing the railing around the platform.
 
-He pointed to a small hole in the other side of the cave and said while grinning: "That goes deeper." 
+He pointed to a small hole in the other side of the cave and said while grinning: "That goes deeper."
 
 &#x200B;
 
@@ -32,7 +32,7 @@ He pointed to a small hole in the other side of the cave and said while grinning
 
 &#x200B;
 
-After some chatting about the size of this tunnel we moved forward. While walking all of us got quiet, we could feel something was wrong. This place not only didn't look like the other cave we just went through, but it was too perfect like a machine made it but ancient and visibly weathered from time. 
+After some chatting about the size of this tunnel we moved forward. While walking all of us got quiet, we could feel something was wrong. This place not only didn't look like the other cave we just went through, but it was too perfect like a machine made it but ancient and visibly weathered from time.
 
 &#x200B;
 
@@ -52,7 +52,7 @@ Slowly the paintings of humans become crude as if a child painted them but more 
 
 &#x200B;
 
- When the light from our flashlights disappeared we were greeted by darkness as our eyes adjusted we could see the light he was talking about too. A flickering light from somewhere inside the room. Then as all of us were pushing against the door something in the old doors gave away and they fell open with a loud crash. We all froze looking into the darkness that was behind that door. Everybody jumped when we saw movent. That light we saw was now visible. It was a small fire in the middle of the room. Unfortunately, I was the first one to turn on my flashlight and I shouldn't have done that.
+When the light from our flashlights disappeared we were greeted by darkness as our eyes adjusted we could see the light he was talking about too. A flickering light from somewhere inside the room. Then as all of us were pushing against the door something in the old doors gave away and they fell open with a loud crash. We all froze looking into the darkness that was behind that door. Everybody jumped when we saw movent. That light we saw was now visible. It was a small fire in the middle of the room. Unfortunately, I was the first one to turn on my flashlight and I shouldn't have done that.
 
 &#x200B;
 
@@ -60,7 +60,7 @@ There was a room with wooden walls. With wood and fur scattered all around. In t
 
 &#x200B;
 
-The first of us to break from the daze was Peter and he booked it the way we came. I tried to run after him with David but the second I started to turn it launched at us. Matyas was the closest to it and with one fast swoop, it crushed his head on the floor and took a big bite out of his right side, tearing his arm and breaking every rib in the way of those hideous teeth. The worst thing wasn't the truth I just lost a friend but that I could hear the sound of every bone snaping and the slashing of all his organs spilling on the floor. Then we ran, I thought a was the slowest runner in existence, but after seeing what has happened to Matyas I ran faster than ever. 
+The first of us to break from the daze was Peter and he booked it the way we came. I tried to run after him with David but the second I started to turn it launched at us. Matyas was the closest to it and with one fast swoop, it crushed his head on the floor and took a big bite out of his right side, tearing his arm and breaking every rib in the way of those hideous teeth. The worst thing wasn't the truth I just lost a friend but that I could hear the sound of every bone snaping and the slashing of all his organs spilling on the floor. Then we ran, I thought a was the slowest runner in existence, but after seeing what has happened to Matyas I ran faster than ever.
 
 With tears in my eyes, I was sure I was going to die.
 
@@ -78,16 +78,14 @@ That thing went for him and started to rip him to shreds. Taking bites and ripin
 
 &#x200B;
 
-I remember waking up with rocks all around. I pulled myself from the rubble and tried to stand up, but I fell instantly and shrieked with pain. When I looked at my stomach there was enough blood to fill up a pool. I slowly crawled up the path. When I crawled outside I was relieved but I knew I im not gonna live for long.
+I remember waking up with rocks all around. I pulled myself from the rubble and tried to stand up, but I fell instantly and shrieked with pain. When I looked at my stomach there was enough blood to fill up a pool. I slowly crawled up the path. When I crawled outside I was relieved but I knew Im not gonna live for long.
 
 &#x200B;
 
-Right now it's about 3 am. Im sitting in my car bleeding to death. I don't have the keys to start it, they were inside my bag and my phone has no reception, so im writing this hoping that after someone finds me and moves me so my phone will get some reception and this is going to send.
+Right now it's about 3 am. Im sitting in my car bleeding to death. I don't have the keys to start it, they were inside my bag. I already called help but it will take them at least another hour to get here. I don't think I will live long enough for them to help me. That's why I had to tell my story here. 
 
-&#x200B;
+Please, don't go inside those caves.
 
-Don't go inside those caves. 
-
-And if we woke it and it's going to leave the cave. 
+And if we woke it and it's going to leave the cave.
 
 IM SORRY

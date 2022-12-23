@@ -40,7 +40,7 @@ The next day at breakfast my father ate his eggs and commented "Your grandmother
 
 "She really did" Deb chanted.
 
-"I saw her last night and that's what she said" I said with a smile.
+"I saw her last night and that's what she said" I said with a confused smile.
 
 "She'll be back, she always is" Deb chanted.
 
@@ -48,17 +48,17 @@ That night when I was getting ready for bed I saw Dora behind me in the mirror. 
 
 "I love you" she said, forked tongue moving about.
 
-I saw her again as I was falling asleep. This time her head her head was halfway up the bed. Her Needle like teeth glistened in the moonlight. 
+I saw her again as I was falling asleep. This time her head her head was halfway up the bed. Her Needle like teeth glistened in the moonlight.
 
 "I love you" she said with an demonic ring.
 
 "I love you too granny" I said in a trance.
 
-The next day at breakfast I ate my bacon and asked. "Has anyone else seen Dora? She appeared to me last night too." I said in a trance.
+The next day at breakfast I ate my bacon and asked. "Has anyone else seen Dora? She appeared to me last night too." I said in a terrified trance.
 
 "She loved you so much" my mother chanted. "That's why only you can see her. She will get you soon."
 
-That night as I got ready for bed I looked in the mirror, Dora was right behind me this time. She put her hand on my shoulder.
+That night as I got ready for bed I looked in the mirror, Dora was right behind me this time. She put her hand on my shoulder. I had never been more terrified in my life.
 
 "Tonight is the night. I love you" She chanted like a demon.
 
