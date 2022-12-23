@@ -152,7 +152,7 @@ It was 6:52pm. It was earlier than our stoppage on the first day, but we’d mad
 
 “Thanks.” Just then, Desmond’s eyes lit up.
 
-“We could help you look for your cousin, my man!” All of the other college fellas affirmed this idea with asynchronous agreements. We decided to let them help, and after sharing some pre-made’s and stories, the nine of us took to our respective tents and hit the hay.  I didn’t sleep as soundly  as the night  before. Around three o’clock am, I was woken up by a loud splashing noise. I tried not to think about it too much, being that you expect woods to be filled with animals.  but when I heard the muffled scream, and the wet smack, I had all the evidence I needed that something was wrong. I grabbed my gun, opened my tent, and rolled out, ready to put holes in whoever or whatever was out there.  But nothing was out there. Nothing seemed wrong either. I walked around camp to make sure nothing was out of order, even looked through the treeline behind us, to no avail. Everything was perfectly fine… save for the missing kayak.
+“We could help you look for your cousin, my man!” All of the other college fellas affirmed this idea with asynchronous agreements. We decided to let them help, and after sharing some pre-made’s and stories, the nine of us took to our respective tents and hit the hay.  I didn’t sleep as soundly  as the night  before. Around three o’clock am, I was woken up by a loud splashing noise. I tried not to think about it too much, being that you expect woods to be filled with animals.  but when I heard the muffled scream, and the wet smack, I had all the evidence I needed that something was wrong. I grabbed my gun, opened my tent, and rolled out, ready to put holes in whoever or whatever was out there.  But nothing was out there. Nothing seemed wrong either. I walked around camp to make sure nothing was out of order, even looked through the tree line behind us, to no avail. Everything was perfectly fine… save for the missing kayak.
 
 I checked the vicinity once more to make sure I hadn’t over looked it… but my senses hadn’t lied to me. Things were out of order.  There was not only a missing kayak, but the zipper of Xavier’s tent was open as well. I made my way over to the structure, just to see if he was still there,  but all I found were his belongings. Not a sign of him anywhere. I went back to my tent, and went to sleep.
 
@@ -168,9 +168,9 @@ Five of them.
 
 Theo was the next to  chime in.
 
-“I think that orange one is Sauce’s” As we got closer to the shore, couldn’t help but think of Brett again. I was hoping this wouldn’t be a regular thing. It was then that my eyes saw, what looked like… Xavier’s feet.  They were poking out from behind the Kayak.
+“I think that orange one is Xavier's” As we got closer to the shore, couldn’t help but think of Brett again. I was hoping this wouldn’t be a regular thing. It was then that my eyes saw, what looked like… Xavier’s feet.  They were poking out from behind the Kayak.
 
-“Holy shit, guys, I think sauce is over there!” Shouted Jimmy.
+“Holy shit, guys, I think Xavier is over there!” Shouted Jimmy.
 
 “Xavier! Xavier it’s Ky–” Kyler stopped mid sentence. We pulled up to the bank behind him and– “Jesus fucking Christ…” I saw what he saw.  There was a puddle of blood around the Kayak. *Come the fuck on,* I thought to myself. Kyler was the first one out of his boat.  “XAVIER? DUDE?!”  He shouted as he ran to the orange kayak resting in still fresh blood. He got to the other side of the boat by the time we all got out of our crafts.
 
@@ -308,6 +308,4 @@ BAM!
 
 I hit it in the shoulder and it dropped its axe, wailing in pain… but Kyler stayed still, frozen in fear.
 
-“RUUUUUN!” Kyler just started shaking and the humanoid beast was able to gain it’s composure. It brought its foot to Kyler’s chest, kicked him back, and stepped on him. I could hear his spine and ribs crack from all the way down stream. He was done for. I holstered my gun and cursed myself before I got back to paddling. I started to row, but as I looked over my shoulder one last time, I watched something happen that would forever be cemented in my mind like some sick twisted gif: The giant pulled Kyler’s head right off of his body like he was picking a grape off a vine.
-
-TO BE CONTINUED.
+“RUUUUUN!” Kyler just started shaking and the humanoid beast was able to gain it’s composure. It brought its foot to Kyler’s chest, kicked him back, and stepped on him. I could hear his spine and ribs crack from all the way down stream. He was done for. I holstered my gun and cursed myself before I got back to paddling. I started to row, but as I looked over my shoulder one last time, I watched something happen that would forever be cemented in my mind like some sick twisted gif: The giant pulled Kyler’s head right off of his body like he was picking a grape off a vine...
