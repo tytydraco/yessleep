@@ -1,0 +1,19 @@
+First off all i think i should introduce myself i live somewhere in Us im 26 tho my name is not as important right now.
+
+The figures firstly started appearing 2 months after my fathers death tho i didnt know it would get much worse. Every single year it happened at exactly 4pm, to this day i am still not sure why. I was always a nice person and i never thought this would happen to me. Some people would even say i wouldnt hurt a fly and i went to church everyday, but i guess god cant help me anymore.
+
+After my father passed away in 2011 i started having wierd vision of me standing between two dark figures repeating the exact same sentence until i woke up "Ur gonna join him soon." it had always creeped me out but i always thought of it as a bad dream.
+
+ And there it is december 29th 2012 the first time it has happened. I was in the middle of my class about to do a test, and then it happened i lost my consciousness as i felt floor beneath my feet dissapear. i gained back my consciousness after hours or minutes i dont even remember it anymore, The first thing i saw after regaining consciousness was a dark figure he was about 6'2. He stepped away so i could see the terror i cant even describe on this app. As i was still looking at it trying to calm myself down he spoke "He did such a terrible thing, just because of you. Ur time is coming soon" by the time i could makeup a few words i have already lost consciousness.
+
+ I woke up in the hospital, after speaking to some people i realise its been a day. i texted my friends they replied in a few minutes. As he send the message i swear i could see the same dark figure watching over me in a corner, but by a time i realised it he was already gone. After speaking to a therapist about it he told me it was probably just a hallucination caused by the hit on my head. After speaking to my friends they told me the second i got "dragged into there" i fell onto the ground and started talking in an fluent language no one could understand.
+
+ As the time went by i saw the dark figure more and more. The third time it happened i realised i was in a constant loop of this but this time it was somewhat different. he said something else that still haunts me to this day. He said in a calm deep voice "This is you're last time you're coming for a visit. U will be traped" From that day i started seeing less and less figures for the next years.
+
+ Fast forward to 2020. I am now 26 i thought it has went away and that it has found another pray to torture. I have started seeing them again. i started hearing whispers saying "its time" coming from nowhere. i see them more than ever and the voices wont stop.
+
+He is watching me right now, i feel his presence, i am currently going throught my dads files, that i found in the basement, i also found a file named "the deal with the devil" it is inside a transparent box protected with a lock. After alot of struggle i managed to break the lock, after taking a look inside i saw what a true terror my father did. He made a deal with the devil, if he only got 10 more years to live he would murderer a family of 4. The reason said was that he wanted to see me grow up, so thats why i am apart of this?
+
+ Fast forward to 3 months later it is now 29th of december 2:30pm i am scared to death not knowing what will happen to me next. Well guys it was nice knowing u all the clock is about to strike 4pm wish me luck and i hope i will be able to continue this story.
+
+Hi to the [r/nosleep](https://www.reddit.com/r/nosleep/) community this is my first ever story and i hope u have enjoyed it. And as always sleep well (:
