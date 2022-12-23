@@ -306,3 +306,6 @@ I chuckled under my breath.
 “My apologies.” I said. 
 
 Crixus only exhaled.
+
+
+Part 2/3: https://www.reddit.com/r/nosleep/comments/zt88y0/i_served_in_the_9th_roman_legion/?
