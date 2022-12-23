@@ -27,3 +27,5 @@ I don't know why, but I kept going. I kept following the screams. Until I stood 
 The door was open, and darkness flooded the room inside. I entered the room and hit the light-switch next to the doorway. The light flickered and died. But in that brief moment of light, I had glimpsed my worst nightmares. Trails of blood across the floor, as if a body had been dragged, towards the center of the room. On a table in the middle of the room, for a brief moment, I could swear I saw my teacher. I heard something drop and what sounded like glass shaterring. And I ran, down the stairs, towards the gate. I ran until I couldn't anymore.
 
 I never went back to that school. We moved a few weeks later, and I transferred schools. I never heard from those kids again. To this day, I have no idea what happened on the fifth floor, and I don't think I want to know.
+
+[Part 2](https://old.reddit.com/r/nosleep/comments/ztewil/i_went_back_to_my_old_school/?)
