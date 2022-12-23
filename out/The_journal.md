@@ -1,0 +1,15 @@
+I (27f) recently was asked by my mother to help clean up and old cabin in the woods so she can use it as an air bnb apparently my great grandmother used to own it. 
+
+As I was cleaning up the master bedroom I noticed a book underneath the bed while tucking in the sheets. curiosity got the better of me and I began to read it was basic and bland until the last page it read as follows:
+
+"Its been a very hard winter, recently my husband unfortunately passed away he went hunting and didn't come back, we found him the next day unfortunately the cold got to him before we could. I've been left alone with 5 children Jane (6), Mary (8), Jackson (6), Fred (9) and Charles (4) its been hard keeping us all fed as my husband was the only one who bought home food while I watched our children. I've had to resort to sending Fred and Mary out to hunt although they are not good at it, the first time I sent them out they lost their fathers hunting knife. Sadly I know that they hate hunting as the walls of our quaint log cabin are not good at concealing their voice but we need food so I've decided to help out.
+
+Recently jane went missing I told them that she probably saw something outside and went to chase it "she will be back" I told them, but she never did come back I suppose I should be happy, after all one less mouth to feed. 
+
+we hunt once a week and try to make it work this week Fred and Mary bought back berries... berries I know in my heart that they are trying but I cant help but be angry do they want to see their siblings starve? but I know I could make this work out after all I have meat I could use.. 
+
+we sat at the dinner table a lovely pork soup surrounds us we have berries for dessert I close my eyes and eat waiting for the complaints to come flooding "too warm", "too bland", "not enough pork" I've heard it all before they never fail to complain. they are ungrateful and rude I would have liked to pretend we raised them better but their father was too soft on them, they got away with everything and anything. he didn't believe in punishments for them, it was quite annoying one of the only things I did not like about him.
+
+its late the children are fast asleep no one can bother me now I walked to my book shelf and moved it a small door reveals itself. behind the door is room it has all of my husbands old tools the saw has been the most help. I walked in its high time to start cutting jane up she's quite small and probably wont last long perhaps Fred would have been better? but ill have to wait until next week. as for jane I'll have to use jane and her father after all he has a little left on those bones. "
+
+this was the last page the date was smudged perhaps water had damaged it my head was spinning my heart was pounding was this fake? real? just as all these thoughts ran through my head my mother walked in I put the book back and left leaving my mother behind. I'm now here writing at my desk I'm scared and confused perhaps it was fake I do hope it was.
