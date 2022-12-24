@@ -214,4 +214,4 @@ This was just the start. Even worse was to come.
 
 &#x200B;
 
-Update, check [Part 2](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zr4d2x/the_buzz_part_2/) and [Part 3](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zr4ecw/the_buzz_part_3/) of my experience that night. Second update: [Part 4](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zs4x3e/the_buzz_part_4/)
+Update, check [Part 2](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zr4d2x/the_buzz_part_2/) , [Part 3](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zr4ecw/the_buzz_part_3/) , [Part 4](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/zs4x3e/the_buzz_part_4/) , [Part 5](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/ztxa6j/the_buzz_part_5/) of my experience that night.
