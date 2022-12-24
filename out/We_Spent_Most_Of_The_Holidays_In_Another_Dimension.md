@@ -104,7 +104,7 @@ I squinted and could see them covering buildings and other decorations on proper
 
 &#x200B;
 
-He didn’t have to say that twice. If any of us saw him, it would be lights out for us mentally. On top of that, who knew what else we’d have to deal with? I looked up and didn’t see any kind of way back from where we came. While not surprising, it was disappointing. 
+He didn’t have to say that twice. If any of us saw him, it would be lights out for us mentally. On top of that, who knew what else we’d have to deal with? I looked up and didn’t see any kind of way back from where we came. While not surprising, it was disappointing.
 
 &#x200B;
 
@@ -164,7 +164,7 @@ That was both a good and bad thing. Good because it meant moving around wasn’t
 
 &#x200B;
 
-He was right. Even with Zohl, going up against that many at once would be walking into a slaughter. 
+He was right. Even with Zohl, going up against that many at once would be walking into a slaughter.
 
 &#x200B;
 
@@ -194,13 +194,13 @@ We could only hope our next course of action wouldn’t be our last. Closing my 
 
 &#x200B;
 
-They swarmed us and if that wasn’t bad enough the long neck monsters were still on our asses. Nonetheless, we still fought, firing and stabbing. Despite our efforts, we were quickly being driven back to the edge. We couldn’t jump either since we needed a running start. Thankfully, we were aided. 
+They swarmed us and if that wasn’t bad enough the long neck monsters were still on our asses. Nonetheless, we still fought, firing and stabbing. Despite our efforts, we were quickly being driven back to the edge. We couldn’t jump either since we needed a running start. Thankfully, we were aided.
 
 &#x200B;
 
 &#x200B;
 
-Shots rained down from nearby roofs, eliminating most of the returned and wounding the long-neck creatures. We seized the opportunity and finished them off. 
+Shots rained down from nearby roofs, eliminating most of the returned and wounding the long-neck creatures. We seized the opportunity and finished them off.
 
 &#x200B;
 
@@ -228,7 +228,7 @@ It was Chuck, along with Sam and other cops. Our relief was immense.
 
 &#x200B;
 
-We made our way to them and they lead us to the police station. I should clarify when I mention any place that was back in our real town, it isn’t actually that place. Rather, it’s a replica of it. Everything was a lot closer together so at least we wouldn’t have to do a lot of running. We reached the station which was covered in Christmas lights. 
+We made our way to them and they lead us to the police station. I should clarify when I mention any place that was back in our real town, it isn’t actually that place. Rather, it’s a replica of it. Everything was a lot closer together so at least we wouldn’t have to do a lot of running. We reached the station which was covered in Christmas lights.
 
 &#x200B;
 
@@ -440,7 +440,7 @@ Chuck led us outside and we followed him, hopping over the void as necessary. Th
 
 &#x200B;
 
-You see, my mom and dad both worked for some crime lords. Through a series of events they ended up meeting and eventually falling in love. Obviously, by the time they realized yours truly was on the way,  it wasn’t a good idea for them to raise a child with a target constantly on their backs. Therefore, they got away, far away, eventually finding out about our town and moving to it. Unfortunately, while they managed to escape the mob, the law was another story. 
+You see, my mom and dad both worked for some crime lords. Through a series of events they ended up meeting and eventually falling in love. Obviously, by the time they realized yours truly was on the way,  it wasn’t a good idea for them to raise a child with a target constantly on their backs. Therefore, they got away, far away, eventually finding out about our town and moving to it. Unfortunately, while they managed to escape the mob, the law was another story.
 
 &#x200B;
 
@@ -470,13 +470,13 @@ I was so fortunate to be working for some honest people. Nowadays, I know that�
 
 &#x200B;
 
-I know this will sound horrible to some. I didn’t mention I would be going here to them. How could I? You probably wouldn’t either. I understand not knowing can be the worst experience for people. 
+I know this will sound horrible to some. I didn’t mention I would be going here to them. How could I? You probably wouldn’t either. I understand not knowing can be the worst experience for people.
 
 &#x200B;
 
 &#x200B;
 
-However, if they knew what we were going up against and what might happen to us while we were here, something tells me they’d want to forget immediately. We made our way to the front door of the pizza shop and went in.  Zohl told us he’d stay outside and keep watch for us. 
+However, if they knew what we were going up against and what might happen to us while we were here, something tells me they’d want to forget immediately. We made our way to the front door of the pizza shop and went in.  Zohl told us he’d stay outside and keep watch for us.
 
 &#x200B;
 
@@ -490,7 +490,7 @@ The Formaggio’s mouths fell open upon seeing us and then they rushed over for 
 
 &#x200B;
 
-“My god, is it really you guys?” Alonzo asked in disbelief. 
+“My god, is it really you guys?” Alonzo asked in disbelief.
 
 &#x200B;
 
@@ -502,7 +502,7 @@ The Formaggio’s mouths fell open upon seeing us and then they rushed over for 
 
 &#x200B;
 
-“Wasn’t easy we can tell you that,” Carl responded. 
+“Wasn’t easy we can tell you that,” Carl responded.
 
 &#x200B;
 
@@ -666,7 +666,7 @@ He put his radio away. Then we headed outside.
 
 &#x200B;
 
-I glanced at Nick who returned my gaze and we kept our hands on our guns. A noise like moaning static came from below us. Carl put a finger to his lips and we inched closer with our weapons raised. Suddenly, something shot up in the air and landed in front of us. It was Zohl and he was all kinds of fucked up. 
+I glanced at Nick who returned my gaze and we kept our hands on our guns. A noise like moaning static came from below us. Carl put a finger to his lips and we inched closer with our weapons raised. Suddenly, something shot up in the air and landed in front of us. It was Zohl and he was all kinds of fucked up.
 
 &#x200B;
 
@@ -706,7 +706,7 @@ That question was answered by multiple tentacles shooting over the edge of the p
 
 &#x200B;
 
-“Oh shit, I hate these things,” Chuck said. “Don’t let it touch you.” 
+“Oh shit, I hate these things,” Chuck said. “Don’t let it touch you.”
 
 &#x200B;
 
@@ -724,13 +724,11 @@ Its tentacles shot toward us. We were quick to react, raising our weapons and fi
 
 “There’s a certain spot on it you have to hit,” Sam replied. “The issue is exposing it.”
 
- 
-
 &#x200B;
 
 &#x200B;
 
-By squinting we could see a faint pulsing red light under its stomach. It was a safe bet to assume that was its weak spot. 
+By squinting we could see a faint pulsing red light under its stomach. It was a safe bet to assume that was its weak spot.
 
 &#x200B;
 
@@ -758,13 +756,13 @@ Seeing this, the creature attempted to swipe at them. I ran, squeezing off more 
 
 &#x200B;
 
-I could hear the others running to help me. Unfortunately, they weren’t fast enough and I was as vulnerable as an upside-down tortoise. The monster wrapped a tentacle around my waist, lifting me. I willed for any part of my body to move to no avail. Its mouth opened wide, exposing its weak spot. 
+I could hear the others running to help me. Unfortunately, they weren’t fast enough and I was as vulnerable as an upside-down tortoise. The monster wrapped a tentacle around my waist, lifting me. I willed for any part of my body to move to no avail. Its mouth opened wide, exposing its weak spot.
 
 &#x200B;
 
 &#x200B;
 
-I had another gun attached to my belt. If I could just grab it, I would be able to finish this thing off. Suddenly, I felt a small pinch in the back of my neck. Some feelings returned to me. I could move again. 
+I had another gun attached to my belt. If I could just grab it, I would be able to finish this thing off. Suddenly, I felt a small pinch in the back of my neck. Some feelings returned to me. I could move again.
 
 &#x200B;
 
@@ -782,7 +780,7 @@ Feeling the back of my neck, I pulled something from it that turned out to be a 
 
 &#x200B;
 
-“It’s to counteract the paralysis,” Chuck explained. 
+“It’s to counteract the paralysis,” Chuck explained.
 
 &#x200B;
 
@@ -796,7 +794,7 @@ Feeling the back of my neck, I pulled something from it that turned out to be a 
 
 &#x200B;
 
-Zohl was helped back inside the restaurant along with the bag of orbs and we were treated to some special pizza while Carl tended to his injuries. 
+Zohl was helped back inside the restaurant along with the bag of orbs and we were treated to some special pizza while Carl tended to his injuries.
 
 &#x200B;
 
@@ -856,4 +854,8 @@ I also have a laptop that was brought to me from home on which I’ve downloaded
 
 &#x200B;
 
-I need to get to bed before the drugs wear off. Good night, everybody.
+I need to get to bed before the drugs wear off. [Good](https://www.reddit.com/r/StoriesFromRose/) night, [everybody.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/zu7y1y/we\_spent\_most\_of\_the\_holidays\_in\_another/](https://www.reddit.com/r/nosleep/comments/zu7y1y/we_spent_most_of_the_holidays_in_another/) (Thanks to those who have been with me on this crazy as fuck journey.)
