@@ -71,3 +71,7 @@ He turned on his heels and strolled out of the store before I could accept or de
 &#x200B;
 
 I'm now sitting in the back booth of the Denny's, drinking my third pop. So far he hasn't shown. I'm thinking I was stood up.
+
+&#x200B;
+
+Next: [https://www.reddit.com/r/nosleep/comments/ztysnt/my\_boss\_has\_been\_taking\_women\_into\_his\_office\_and/](https://www.reddit.com/r/nosleep/comments/ztysnt/my_boss_has_been_taking_women_into_his_office_and/)

@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- \[6\] 
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- \[6\] - [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/)
 
 After that first tangle with the strange item… things, my time at Evan’s place went pretty smooth. I stayed there all throughout April. John came by to double-check my blood values at one point, and I was eventually allowed to roam free throughout most of the house; except for the basement. Later on, as we grew more confident that there were no immediate threats, we agreed that it was okay for me to leave the house every now and then. We had a few security checks, like a check-in and check-out, but I didn’t have to use it. Going for a walk or getting a hot dog is usually not that dangerous.
 
@@ -212,7 +212,7 @@ But I had to run, so I ran.
 
 Up the stairs, through the main hall, out the front door.
 
-That’s when it hit me that it was still dark, even though I was standing outside. 
+That’s when it hit me that it was still dark, even though I was standing outside.
 
 Wasn’t it early morning?
 
@@ -314,7 +314,7 @@ I didn’t want to take any more chances. I couldn’t stay there.
 
 I just ran. I followed a small dirt road north. First I ran, then I jogged. After what felt like hours, I was just dragging my feet along, trying to keep myself upright. I had no food, no water, and no idea where I was going. I could still taste the ammonia.
 
-I don’t know how long I kept going. The sky started to go dark, and I could almost see the slithering clouds overhead. Was it just night, or was it that *other* place? 
+I don’t know how long I kept going. The sky started to go dark, and I could almost see the slithering clouds overhead. Was it just night, or was it that *other* place?
 
 I was on my own, and there was no telling what could find me out in the middle of nowhere.
 

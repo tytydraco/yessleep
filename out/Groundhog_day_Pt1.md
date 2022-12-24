@@ -22,12 +22,14 @@ I wake up on a regular sunday morning. I feel my head. What just happened? What 
 ‘Nah I need to head out to Asda now’ I lie
 ‘Kk’ he reply’s
 As I get out of my house after 10 minutes of sitting in my room then getting ready. I lock my door and get into my BMW. When I sit in and close the door. I feel a rope wrap around my neck. I struggle and try pulling the rope off but the harder I resist the harder it pulls back. I feel my lungs yelling for air but none comes. I feel myself loosing consciousness…
+
 I wake up on a strange Sunday morning. I think to myself ‘what the hells going on’. 
 My phone dings and a message appears after half an hour of laying there. 
 ‘Yo you up for coming out?’
 ‘No i am going to stay into today’ I reply to Jack
 ‘Kk’ 
 I get up and walk downstairs. I sit on my couch with my clothes one re-evaluating what’s going on. ‘Is it a dream?’ I think. After 5 minutes of sitting I hear the safety catch release on a gun… 
+
 I wake up on a strange Sunday morning. 
 ‘How does this person know where I am?’ I think
 After half an hour of thinking a ding comes off my phone. And I have a thought. Jack? No he is my friend. I’ve known him for 18 years. We are friends… Aren’t we?

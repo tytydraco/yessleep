@@ -4,7 +4,7 @@ As I walked into the misty field by the seaside, I tripped on an oddly shaped st
 
 I took off my silver-rimmed glasses and rubbed my eyes before looking at it again, but the crumbling, mossy words etched into the stone read no differently.
 
-The fog seemed to have cleared slightly, and when I moved to look at the other tombstones, most of them were people I recognized, or even talked to on a daily basis. At first, I thought it was some sick prank the bored teenagers had set up, but I reached a grave that made me almost nauseous. The name on it was Oliver Stone.
+The fog seemed to have cleared slightly, and when I moved to look at the other tombstones, most of them were people I recognized, or even talked to on a daily basis. At first, I thought it was some sick prank the bored teenagers had set up, but I reached a grave that made me almost nauseous. The name on it was Oliver Anderson.
 
 When I moved to the small, idyllic seaside town of Goldcrest, I never thought I would get to know anyone in this town, except for my best friend, Lena, who I had been talking with online for almost a year before the move. But, when I went to the local bookstore to read, her brother, Oliver, had to tell me to get out, but when he saw me at Lena's later that week, he asked me if I wanted a job. His shy smile and glittery golden-green eyes held my attention even then, when there wasn't much that did, and after that, we kinda just started hanging out. I had never been a social person, but his smile was so otherworldly, it was almost contagious. Lena, Oliver, and I would hang out after work, and I remember thinking it was the best time of my life.
 
@@ -46,7 +46,7 @@ I never thought I would see my mother again. My eyes filled with tears, but I pu
 
 Her voice sounded distorted and musical, just like Lena and Oliver's voices. I faintly registered that she finally used my name. I stepped back carefully, the ground damp from the recent rainfall, but I slipped on fallen leaves and fell backwards, mud slowly seeping through my jeans and my jacket sleeves.
 
-I scrambled back as fast as I could, but my back came up against one of the only gravestones still intact, the one that read Oliver Stone, beloved brother, 2002-2016. The one that proved that my best friend, my boyfriend, my boss, and everyone else in this town were dead, and something else had taken their place.
+I scrambled back as fast as I could, but my back came up against one of the only gravestones still intact, the one that read Oliver Anderson, beloved brother, 2002-2016. The one that proved that my best friend, my boyfriend, my boss, and everyone else in this town were dead, and something else had taken their place.
 
 I turned around frantically, looking around at everyone. They were all smiling, and their eyes glowed with an awful malice.
 
