@@ -28,7 +28,7 @@ After what felt like an eternity, someone picked up.
 
 "Okay, ma'am, lock yourself in the nearest room and tell me your address" the man said.
 
-"438 stockholm street", I told him, "and I'm in my bathroom" 
+"XXX stockholm street", I told him, "and I'm in my bathroom" 
 
 As I shook in fear I heard glass shatter from my kitchen. I put my phone down on the floor, silently, and covered my mouth as I sobbed.
 
