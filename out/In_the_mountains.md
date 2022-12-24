@@ -23,8 +23,3 @@ But as the night wore on, the hikers began to realize that the old man was not w
 And as the storm raged on outside, the hikers realized with growing horror that they were not alone in the cabin. There were other beings in the room with them, shadowy figures that seemed to move just out of the corner of their eye.
 
 As dawn broke, the hikers fled the cabin and ran for their lives, never looking back. They never spoke of their terrifying encounter in the Appalachian Mountains, but the memory of that dark and stormy night stayed with them for the rest of their lives.
-
-This story is based on the true events of the "Melon Heads," a legend that originated in Connecticut in the 1950s. According to the legend, the Melon Heads were a group of deformed and mutated human beings who lived in the woods and were known for attacking and harassing hikers and campers. While there is no concrete evidence to support the existence of the Melon Heads, the legend has persisted for decades and continues to be a source of fear and fascination for many.
-
-
-This story was generated buy ChatGBT
