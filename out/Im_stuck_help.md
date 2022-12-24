@@ -1,3 +1,5 @@
+
+
 I work as a business executive for a well known company and we had a deal that we were about to close with this other company located in Japan so I had to go to Japan as I kissed my two daughters Maddie (5f) and sibby (12f) goodbye Maddie said
 
 “Where is daddy going” 
@@ -55,5 +57,3 @@ UPDATE
 We have been rescued I finally saw people I yelled for kobeni and she opened the door and saw someone behind me and ran up to them and hugged them and started crying 
 
 I finally got on a flight home and I’m going to see my daughters it’s weird that it’s 1 day after the meeting I was definitely there for 7 days but at least I’ll see my daughters again
-
-(This story is based off of the hotel arc in chainsaw man)

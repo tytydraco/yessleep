@@ -34,7 +34,7 @@ When he asked me why I thought that was, I couldn't really answer. "Well, unless
 
 "Go on..."
 
-Sitting on the beige couch in my psychiatrist's office at thirteen years old, a cold shiver snaked its way up my spinal cord and tickled the fear centre of my brain. "No, no. It's nothing." I said, staring at the table.
+Sitting on my psychiatrist's couch at thirteen years old, a cold shiver snaked its way up my spinal cord and tickled the fear centre of my brain. "No, no. It's nothing." I said, staring at the table.
 
 "Go on. What is it?" My psychiatrist leaned a little closer.
 
