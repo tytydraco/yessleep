@@ -1,4 +1,4 @@
-Fuck Santa bullshit.  Embrace nature.  Repeat.  That was our idea of winter fun.  We believed in Christmas alright, believed it was nothing but a stupid, materialistic holiday that completely missed the point of spirituality.  It always pissed us both off whenever people used the holiday as nothing but a way to market toys and shit.  In order to get our minds off this cash grabbing garbage, my friend and I decided that it would be a wise idea to have some good old fashion fun in the ice caves of Svalbard.
+Fuck Santa bullshit.  Embrace nature.  Repeat.  That was our idea of winter fun.  We believed in Christmas alright, believed it was meant for spending time with family and friends only.  It always pissed us both off whenever people used the holiday as nothing but a way to market toys and shit.  In order to get our minds off this cash grabbing garbage, my friend and I decided that it would be a wise idea to have some good old fashion fun in the ice caves of Svalbard.
 
 The night was cold enough to make the air turn into nothing but crystals with each breath.  Above the white tipped and eerily still forest was a sky clothed in a dark brown hue from what I assumed was invisible moonlight illuminating the surroundings.  Perfect imprints of our boots were left in the snow, smooth and thick as mashed potatoes.  Our vehicles were not far off from the caves.  Scott’s obsidian black hair flew ever so slightly when a gentle breeze passed by.  He had a light mounted directly on his helmet and a pair of steampunk goggles for “aesthetic purposes.”  Since this whole thing was Scott’s idea in the first place, he was in charge of taking the lead down the caves and providing commentary that mostly involved really shitty jokes and things that would only make a stoner laugh.
 
@@ -8,11 +8,11 @@ Scott activated the light on his head and we paced forward.  I cocked my head do
 
 “You know the drill, you dolt.  Let’s get a-movin’!” I said.
 
-Scott raised an eyebrow, poking me in the chest.  
+Scott raised an eyebrow, poking me in the chest.
 
-“Phil, you’re cold-hearted,” Scott snickered.  
+“Phil, you’re cold-hearted,” Scott snickered.
 
-I replied with a thumbs down and a sarcastic “booooooo!” 
+I replied with a thumbs down and a sarcastic “booooooo!”
 
 “Tally-ho, you motherfucker!” he said.
 
@@ -24,15 +24,15 @@ Scott gave me a nod.
 
 After spraying to mark our location God knows how many times, the cave passage started to close up to around the height of a semi-truck.  Our breaths continued to form miniature puffs against the cobalt blue ice.  Accompanying us were the sounds of water splattering on the floor and flowing through unseen chasms and the sounds of our spiked boots.  I marked another glowing slash against the leftmost wall.  When Scott shined a torch and pushed back the darkness, a fork in our path revealed itself.
 
-A light, almost human moaning resonated through the caverns.  
+A light, almost human moaning resonated through the caverns.
 
 My hair stood on end.  “Did you hear that?” I said.
 
-We both put an ear to the walls.  The source of the vibrations appeared to originate to the left.  My friend rested his hands on his hips.  Claw marks were on the sides of the walls. 
+We both put an ear to the walls.  The source of the vibrations appeared to originate to the left.  My friend rested his hands on his hips.  Claw marks were on the sides of the walls.
 
 “Sounds like wind is roaring through the caverns.” Scott assumed.
 
-I pulled out an ice pick, pointing it to the right chamber.  “Or a sign of the cave walls weakening on the left.  We should go this way.”  
+I pulled out an ice pick, pointing it to the right chamber.  “Or a sign of the cave walls weakening on the left.  We should go this way.”
 
 As we went down my suggested path, the floor unexpectedly lost its friction.
 
@@ -46,9 +46,9 @@ As I dusted the frost off my pants and dug out the snow from the soles of my boo
 
 A handprint.
 
-My dad was a cop and had seen multiple dead bodies and gore before, so seeing blood wasn’t that much of a scare.  The apple didn’t fall far from the tree, I suppose.  
+My dad was a cop and had seen multiple dead bodies and gore before, so seeing blood wasn’t that much of a scare.  The apple didn’t fall far from the tree, I suppose.
 
-Scott on the other hand, not so much.  His excited demeanor started to vanish.  His light flickered and shook every which way, spotting more pools of hardened blood in dozens of bodies.  
+Scott on the other hand, not so much.  His excited demeanor started to vanish.  His light flickered and shook every which way, spotting more pools of hardened blood in dozens of bodies.
 
 “What the hell happened here?” Scott exclaimed, stepping back, hands to his chest in defense mode.
 
@@ -60,7 +60,7 @@ Then, the beam reflected off a shiny surface.
 
 “Maybe we could melt it down into raw metal and sell it?  It most likely wouldn’t be worth much at a pawn shop.”
 
-“Do you think we should go down the-” as I spoke, the flashlight shone over several of the decayed carcasses.  
+“Do you think we should go down the-” as I spoke, the flashlight shone over several of the decayed carcasses.
 
 We both jumped back before leaning in to see if our eyes deceived us.
 
@@ -88,11 +88,11 @@ With a ravenous bellow, it pounded its chest.  We turned the opposite direction 
 
 We both turned on our lights.
 
-To distract the beast, I punctured a hole in one of the fluorescent cannisters and threw it at the ground.  It exploded into a cloud of arsenic green, making the headless goliath lurch back.  It clawed at the dense mist.  
+To distract the beast, I punctured a hole in one of the fluorescent cannisters and threw it at the ground.  It exploded into a cloud of arsenic green, making the headless goliath lurch back.  It clawed at the dense mist.
 
 Scott and I kept sprinting through the battlefield.  He tried searching for any possible weaponry for a second.  Like the hilt, every last sword was ground down to nothing but a hilt, as if the beast knew others would try and enter this cave.
 
-“Forget about weaponry, Scott! Run for it!” I shouted.  
+“Forget about weaponry, Scott! Run for it!” I shouted.
 
 Then, the bodies stopped appearing.  For several meters, the floor was mostly clear.  The beast continued to pursue us.
 
@@ -126,7 +126,7 @@ Beasts?  That was just great.  One of them was a big enough threat already.  “
 
 “They were cursed to remain in this cave forever.  Father Christmas’ curse is weakened each year on December 25th and must be restored.  Until dawn, the curse remains in a state of uselessness, allowing them to escape.  He comes down to restore it and sends us elves to slay the beasts before they can wreak havoc on this world.  But they have gotten smarter, reduced our weaponry to nothing but stumps, bred my comrades like pigs and fed them nothing but any wildlife that dared enter here.  And they have developed grudges.”
 
-Scott looked at me, teeth clenched before his eyebrows furrowed and we nodded in agreement.  We may be Scrooges, but we were not assholes.  
+Scott looked at me, teeth clenched before his eyebrows furrowed and we nodded in agreement.  We may be Scrooges, but we were not assholes.
 
 “We can’t just leave your friends to die in here!  We can save them!”
 
@@ -190,9 +190,9 @@ Checking the depths below, I spotted some of the creatures beginning to rise fro
 
 The banging came closer and I watch Scott hide in a fissure, still keeping the rope attached.
 
-The panting from the beast grew louder.  Its fingers crunched down on the ice.  I clenched my jaw to prevent my teeth from chattering and alerting the beast.  Ten technicolor tentacles arose from the treacherous trench, analyzing my movements.  One of the tentacles dripped blood from a fresh kill, the residue dripping on the ice.  I balled my fists as this hideous appendage slunk inches away from my face.  
+The panting from the beast grew louder.  Its fingers crunched down on the ice.  I clenched my jaw to prevent my teeth from chattering and alerting the beast.  Ten technicolor tentacles arose from the treacherous trench, analyzing my movements.  One of the tentacles dripped blood from a fresh kill, the residue dripping on the ice.  I balled my fists as this hideous appendage slunk inches away from my face.
 
-I glanced at my watch.  
+I glanced at my watch.
 
 The time was 11:00. Reinforcements wouldn’t come out until midnight.  Even if they came out now, there’s no way in hell they would reach us in time.
 
@@ -200,7 +200,7 @@ The barbs from its tentacles scratched against the ice in delight.  Right as it 
 
 “This isn’t going to work. I’m getting out of here.” I thought.  Scott gave me a shrug.
 
-“What are you doing?” He mouthed. 
+“What are you doing?” He mouthed.
 
 I make a slicing motion across my neck.  Putting my ear to the ice, I waited for the tremors to decrease.  Then, I scooted myself up the ice.  Right when I was about ten feet away from the platform, I got out of my crouch.
 
@@ -268,7 +268,7 @@ I gave my watch a look.  11:40. I began to rub my hands.  My teeth chattered whe
 
 “Is the safety off for all of them?” I asked.
 
-Scott gave me a thumbs up.  
+Scott gave me a thumbs up.
 
 11:58. I alerted the soldiers, teaching them how to fire a gun.  The knights threw away their swords and aimed the weapons at the entrance of the cave.
 
