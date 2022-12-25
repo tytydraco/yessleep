@@ -38,10 +38,10 @@ I know that this is just a small matter
 
 however, I am the type of person who wont stop overthinking things unless  i know what's happening  behind it. Added to the fact where this creepy cafeteria lady is also involved with it.
 
-As the day passed by this so called "MUTTON" burgers becomes super popular at our school. But me and my friend lets call her karla  ( this is not her actual name ,  privacy reasons) me and karla were obviously not a fan of the famous burger. And we often experience the uncanny gaze of the old lady in the cafeteria.
+As the day passed by this so called "MUTTON" burgers becomes super popular at our school. But me and my friend (lets call her karla) me and karla were obviously not a fan of the famous burger. And we often experience the uncanny gaze of the old lady in the cafeteria.
 
 Me and karla were totally convinced that there is something going on within this infamous burger. Eversince the new cafeteria staff joined the school everything changed. Karla noticed it too , so im not really that mentally deranged cause of the burgers.
 
-Hey guys would you like me to continue this? would you guys like another part? Im so sorry if this has story parts but i just really want to tell you the story in great details for you all  to understand
+Hey guys would you like me to continue this? would you guys like another part?
 
-But if you guys want another part i will post it immediately , i will not left you hanging i promise
+But if you guys want another part i will post it immediately lol

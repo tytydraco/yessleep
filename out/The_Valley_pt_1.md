@@ -46,7 +46,7 @@ She never called, so I assumed something was wrong.
 
 My bosses were surprisingly ok with my “sabbatical.” Chuck, the director of my field office, was the kind of guy who believed “ there was nothing more important than spending time with family (or, looking for them, in my case). I continued packing my bags as I threw on some podcast about the history of the area.
 
-Apparently, it only had about a thousand annual visitors every year. Partially due to it’s nickname, partially due to its colorful history of disappearances, possible murders, corpse mutilations, etc. Mainly, and most practically, the reason for so few visitors was because the only ways to actually enter the park was by kayak/boat, helicopter, or grueling hike. I found some other wild stuff too about the valley being occupied by the Nahanni people for centuries, until they all mysteriously disappeared. All these haunting facts confirmed my suspicion: my adrenaline junkie cousin was a fucking moron for even considering camping in this place… and yet there I was, preparing myself to embark on the same stupid ass suicide trip he headed out on. Issac went with a pretty large group, seven folks is what Lauren said. He had the right idea there. I sure as shit wasn’t trying to go alone myself. Trouble is, I didn’t know anyone I hated enough to bring into harm's way like this… so I had to settle for two people I liked. Three of my best friends from high school, who not only had an affinity for camping in the Commonwealth, but for hunting too.
+Apparently, it only had about a thousand annual visitors every year. Partially due to it’s nickname, partially due to its colorful history of disappearances, possible murders, corpse mutilations, etc. Mainly, and most practically, the reason for so few visitors was because the only ways to actually enter the park was by kayak/boat, helicopter, or grueling hike. I found some other wild stuff too about the valley being occupied by the Nahanni people for centuries, until they all mysteriously disappeared. All these haunting facts confirmed my suspicion: my adrenaline junkie cousin was a moron for even considering camping in this place… and yet there I was, preparing myself to embark on the same stupid ass suicide trip he headed out on. Issac went with a pretty large group, five folks is what Lauren said. He had the right idea there. I sure as shit wasn’t trying to go alone myself. Trouble is, I didn’t know anyone I hated enough to bring into harm's way like this… so I had to settle for two people I liked. Three of my best friends from high school, who not only had an affinity for camping in the Commonwealth, but for hunting too.
 
 Cooper said yes before I was even able to tell him the stakes. Jimmy was a bit of a tougher sell, being that he was the only one of us with a missus and kids at home, but his brother, Ethan, was able to convince him to come along for the trip. I told them I’d need them to bring guns, camping gear, and about a week and a half of their time.
 
@@ -58,7 +58,7 @@ But Brett, One of the pilots from the Park’s Commission that he’d called for
 
 “Yeah, the internet did a hell of a job of making this place seem freak–”
 
-“The fuckin’ internet don’t know half of what’s lumberin’ around in these woods. The fact that this little mission of yours even got green lit should be a sign that yer boss don’t care aboot ya as much as ya think he do.”
+“The internet don’t know half of what’s lumberin’ around in these woods. The fact that this little mission of yours even got green lit should be a sign that yer boss don’t care aboot ya as much as ya think he do.”
 
 “What’s that supposed to mean?”
 
@@ -76,13 +76,13 @@ The four of us got out of the two planes, which took to the sky once more after 
 
 “Don’t you think that should be a group decision?” Cooper rolled his eyes at this.
 
-“Jim, the guy’s kid cousin is fucking missing, we’re gonna need all the daylight we can get, and we have to stay moving–” I interjected before a conflict could arise.
+“Jim, the guy’s kid cousin is missing, we’re gonna need all the daylight we can get, and we have to stay moving–” I interjected before a conflict could arise.
 
 “Jim’s right, Coop. You all are the one’s doing me a favor. Group decision.” Jim smiled at that. He spoke next.
 
 “While we’re blowing the boats up, I can make us some pre heat meals.” Ethan hit his brother on the arm.
 
-“We ate bagels in the fucking plane! How are you as skinny as you are when you eat more than all of us combined!”
+“We ate croissants in the plane! How are you as skinny as you are when you eat more than all of us combined!”
 
 “Alright alright! I can wait to eat, let’s hit the river.” I laughed as the brothers squabble came to an end.
 
@@ -104,7 +104,7 @@ The next morning, I was the second to rise. I hopped out of my tent to see Coope
 
 “Hear what?”
 
-“Something was fucking around in the woods last night, Frank.” His tone shocked me a bit. I’d never really seen my friend ‘scared’ in the twenty-seven years I’d known him… but the look on his face told me everything I needed to know about how he was feeling.
+“Something was rumbling around in the woods last night, Frank.” His tone shocked me a bit. I’d never really seen my friend ‘scared’ in the twenty-seven years I’d known him… but the look on his face told me everything I needed to know about how he was feeling.
 
 “What kind of something?”
 
@@ -112,7 +112,7 @@ The next morning, I was the second to rise. I hopped out of my tent to see Coope
 
 “You know, you’ve got a way with words, Coop, I think a side hustle as a poet may be a good-”
 
-“Frankie, I wanna strike camp and get the fuck out of here as quickly as possible.” He wasn’t spooked, he was scared. Fear found its way into his face, his voice, his eyes… My friend was scared straight.
+“Frankie, I wanna strike camp and get out of here as quickly as possible.” He wasn’t spooked, he was scared. Fear found its way into his face, his voice, his eyes… My friend was scared straight.
 
 “O-ok. Let’s wake up the guys and hit the water again. We’re gonna have to get through First Canyon *today*, cuz there’s no embankments for us to stop on.”
 
@@ -172,7 +172,7 @@ Theo was the next to  chime in.
 
 “Holy shit, guys, I think Xavier is over there!” Shouted Jimmy.
 
-“Xavier! Xavier it’s Ky–” Kyler stopped mid sentence. We pulled up to the bank behind him and– “Jesus fucking Christ…” I saw what he saw.  There was a puddle of blood around the Kayak. *Come the fuck on,* I thought to myself. Kyler was the first one out of his boat.  “XAVIER? DUDE?!”  He shouted as he ran to the orange kayak resting in still fresh blood. He got to the other side of the boat by the time we all got out of our crafts.
+“Xavier! Xavier it’s Ky–” Kyler stopped mid sentence. We pulled up to the bank behind him and– “Jesus fucking Christ…” I saw what he saw.  There was a puddle of blood around the Kayak. *There's no way,* I thought to myself. Kyler was the first one out of his boat.  “XAVIER? DUDE?!”  He shouted as he ran to the orange kayak resting in still fresh blood. He got to the other side of the boat by the time we all got out of our crafts.
 
 Kyler’s face turned white and he screamed louder than I thought was possible. He vomited right there on the spot.
 
@@ -182,9 +182,9 @@ Xavier’s headless body, laid still in a pond of his own blood. The others bega
 
 “WHAT THE FUCK?”
 
-“Who the hell did this?”
+“Who-- Who did this?”
 
-“Why would he just fucking leave camp and come here?” The questions just kept coming. I looked past the corpse of the college student though… and found another one poking out of the first tent down the way.
+“Why the hell did he think it was a good idea to leave camp?!” The questions just kept coming. I looked past the corpse of the college student though… and found another one poking out of the first tent down the way.
 
 *Oh God.*
 
@@ -194,7 +194,7 @@ The first of the five corpses wasn't only headless. He was charred to a crisp.
 
 The second one was missing its head as well, but sitting by what was once a lit campfire.
 
-It was decayed as all hell.
+I could tell it had been decaying for a bit.
 
 So was headless corpse three (which was also missing an arm), corpse four (which was missing EVERYTHING from the ribcage up), and corpse five (which was a torso and arms, without a head or legs).
 
@@ -204,7 +204,7 @@ That's when dinner from the night before left my mouth.
 
 I found my cousin.
 
-I couldn’t even sob. I emptied my stomach of whatever else remained in it. I heard the  group finally making their way over to Issac and his friend’s final resting place. I heard their footsteps replaced by their horrified screams, but I couldn’t manage to look away from what remained of my cousin’s mutilated corpse. I remembered holding him when he was a new born baby. We weren’t close, but we were family. The reckless kid I watched grow up was now a decomposing torso with a missing arm. The worst part was, I couldn’t even see his face one last time… because I had no clue where the fuck it was.
+I couldn’t even sob. I emptied my stomach of whatever else remained in it. I heard the  group finally making their way over to Issac and his friend’s final resting place. I heard their footsteps replaced by their horrified screams, but I couldn’t manage to look away from what remained of my cousin’s mutilated corpse. I remembered holding him when he was a new born baby. We weren’t close, but we were family. The reckless kid I watched grow up was now a decomposing torso with a missing arm. The worst part was, I couldn’t even see his face one last time… because I had no clue where his face was.
 
 “Frank-” I cut off Coop before he could even ask.
 
@@ -212,11 +212,11 @@ I couldn’t even sob. I emptied my stomach of whatever else remained in it. I h
 
 “I’m sorry brother, this… this is fucking horrendous.” I finally looked up to Jimmy, who was mortified.
 
-“I… I just don’t understand what the fuck could’ve done all this? WHY someone would’ve done this.” Desmond asked the next question.
+“I… I just don’t understand what could’ve done all this? WHY someone would’ve done this.” Desmond asked the next question.
 
-“Why the fuck did would Xavier leave camp man? It just doesn’t make sense? I mean how the hell did he even make the trip over night?”
+“Why-- how the hell did Xavier  even make the trip over night?”
 
-“I don’t think we're ever gonna get an answer for either of those, Dez” I said. “The only guy who could answer them is missing his Goddamn head.” I was a little harsh, and I forgot I wasn’t the only one mourning until Sauce said,
+“I don’t think we're ever gonna get an answer to that, Dez” I said. “The only guy who could answer them is missing his Goddamn head.” I was a little harsh, and I forgot I wasn’t the only one mourning until Sauce said,
 
 “How about a little sympathy man, that guy was our friend.” I nodded.
 
@@ -230,7 +230,7 @@ I couldn’t even sob. I emptied my stomach of whatever else remained in it. I h
 
 “Why wouldn’t they?” asked Jimmy. Brett’s warning popped into my head again. I decided to finally share my experience with the crew.
 
-“Brett… the service ranger who flew us in… he uh… he said the woods had like, something in them. Something I think that even the Rangers don’t want to fuck around with.” Kyler butt in.
+“Brett… the service ranger who flew us in… he uh… he said the woods had like, something in them. Something I think that even the Rangers don’t want to mess around with.” Kyler butt in.
 
 “What… what kind of something–”
 
@@ -240,7 +240,7 @@ I couldn’t even sob. I emptied my stomach of whatever else remained in it. I h
 
 “Then how DID you get up here?” asked Jimmy. Desmond chimed in.
 
-“Xavier’s dad paid for boat planes to drop us down. They have a chauffeur waiting in a hotel to meet us in twelve days.” I could not believe the level of stupidity some people had. The woods are in the middle of nowhere, have a history of deaths and disappearances and IT’S CALLED THE VALLEY OF HEADLESS MEN for fuckssake! How could that not mean anything to ANYBODY?! I managed to keep my anger on the inside by walking away from the camp for a moment.
+“Xavier’s dad paid for boat planes to drop us down. They have a chauffeur waiting in a hotel to meet us in twelve days.” I could not believe the level of stupidity some people had. The woods are in the middle of nowhere, have a history of deaths and disappearances and IT’S CALLED THE VALLEY OF HEADLESS MEN for God's sake! How could that not mean anything to ANYBODY?! I managed to keep my anger on the inside by walking away from the camp for a moment.
 
 I walked over to the headless body of Xavier who was still… in a puddle of his own blood.
 
@@ -268,7 +268,7 @@ Which meant– *Jesus Christ*
 
 “What’s that? Asked Sauce.
 
-“GET IN THE FUCKING BOATS!” screamed Cooper to us. I didn’t want to wait to find out what was heading toward us. Apparently neither did Jimmy and Ethan because they were already ahead of me down the river by the time I started rowing. I turned to see that Desmond, Theo, and Kyler had a similar plan, but Sauce… Sauce kept his eyes glued to the woods.
+“GET TO THE BOATS!” screamed Cooper to us. I didn’t want to wait to find out what was heading toward us. Apparently neither did Jimmy and Ethan because they were already ahead of me down the river by the time I started rowing. I turned to see that Desmond, Theo, and Kyler had a similar plan, but Sauce… Sauce kept his eyes glued to the woods.
 
 I began to make out what exactly was coming out of them. It looked like…
 
