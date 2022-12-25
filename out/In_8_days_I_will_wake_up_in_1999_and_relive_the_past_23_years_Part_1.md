@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/zun2s4/in_6_days_i_will_wake_up_in_1999_and_relive_the/)
+
 I’m trapped in a perpetual Groundhog Day, but it’s more than a ‘day’.
 
 The world feels a little grislier with every reset. I’ve always known that some sort of higher power was the architect of my eternal torture. What other explanation could there be? But I no longer simply ‘know’ of that power. I’ve *seen* it.
@@ -37,3 +39,5 @@ I have considered letting go. My fight is fading. Perhaps I should embrace the e
 But what if it delivers a *worse* fate? Every time I see the Glassy-Eyed Man, I feel my chest coil into a clove hitch. He isn’t good. He isn’t trying to save me.
 
 I need to figure out how to reach January 1st, 2023.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/zun2s4/in_6_days_i_will_wake_up_in_1999_and_relive_the/)
