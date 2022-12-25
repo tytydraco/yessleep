@@ -37,4 +37,4 @@ The graveyard is surrounded by deep forest, I know my way around. Suddenly I tri
 
 But then I got up and realized I was 2 minutes away from the station, I was running as fast I can but then I saw my... mom, slapped myself told myself I was hallucinating, but i don't know if I was. I was outside the station when he gave up and he yelled "Wait till you come back". I went into the station and I reported him for cannibalism, murder, and stalking. I showed them all the evidence and they said they would look for him.
 
-But i still wasn’t done, not in I find my parents
+But i still wasn’t done, not until I find my parents
