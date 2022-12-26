@@ -94,9 +94,9 @@ I tentatively peered down to see a black limb, flesh composed of *night itself*,
 
 When I woke, I was in my 13-year-old body. Of course. Death would’ve been too easy. The man was right. Time. We all have it. *Some of us have all of it.*
 
-Sighing deeply, I prepared to experience Y2K for the ten-thousandth time, but my body was in agony. Blood was soaking into the bedding from the wound on my left shoulder.
+Before I could fully process my surroundings, I realised that my body was in agony. Blood was soaking into the bedding from the wound on my left shoulder.
 
-*My body didn’t reset.*
+*My wound was still there.*
 
 Immortality was no longer a foregone conclusion. The Glassy-Eyed Man could end me. Following a hospital visit with my bewildered and traumatised parents, I resolved to change. I would no longer accept this existence. I might not survive my next encounter with the Glassy-Eyed Man. And who knows where he might send me if he were to ‘kill’ me? After all, there might be an eternal torture worse than my current one. I couldn’t rid my mind of that petrifying thought.
 
