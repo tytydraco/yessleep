@@ -17,3 +17,5 @@ Kinda wish I grabbed food before I shut myself in but chocolate from Christmas s
 Even now, the banging wont stop and I think I hear more banging and hooves running through the woods. I hope this reaches the correct people before they get to me.
 
 Reach out to me if you have any method of keeping them off. I hope you understand the message hidden. If not, remember what comes before second. I'm sorry I can't tell you more.
+
+[(info)](https://www.reddit.com/user/NyxCantSpell/comments/zvw8e4/info/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
