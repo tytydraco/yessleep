@@ -1,6 +1,4 @@
- 
-
-My sister was really into the occult and supernatural, even called herself wiccan when she was in her late teens. She made me do a lot of weird shit with her, cut our hands and give our blood to bond with a tree, try to talk to the dead in abandoned buildings or on train tracks. Those memories seem almost fun if it weren't for the fact she'd hit me if I didn't go along with her. 
+My sister was really into the occult and supernatural, even called herself wiccan when she was in her late teens. She made me do a lot of weird shit with her, cut our hands and give our blood to bond with a tree, try to talk to the dead in abandoned buildings or on train tracks. Those memories seem almost fun if it weren't for the fact she'd hit me if I didn't go along with her.
 
 Once she brought me to a building half submerged in the earth in the middle of the woods. Shrubs, flowers, and vines were trying to cover the roof. A tiny stream running through the forest, caused by a recent rainstorm, slipped into the building and somehow trickled out the other side. A rotting wooden door the size of a window led into the attic. We crawled through.
 
@@ -73,3 +71,5 @@ My sister's mood brightened, told me I was cool, like a transformer. She didn't 
 I was still in agony, all the pain was just tucked away inside my body now, ibuprofen helps a little.
 
 If you want to try this ritual, I'd recommend you bring something meaningful as an offering if you don't want them to take you. Some other life might work, something significant they don't have might work. I haven't heard of someone trying it, but from what I know I think they'd accept a cell phone. Baby teeth will suffice for the bone in the tin, the more the better.. Always bring a friend you trust with you that won't be in the circle, in case they'll be looking after you. And you probably shouldn't do it in the woods, because of forest fires. Don't worry, there are bones everywhere.
+
+ [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/zvfk5w/ive_been_a_part_of_many_rituals_and_supernatural/)

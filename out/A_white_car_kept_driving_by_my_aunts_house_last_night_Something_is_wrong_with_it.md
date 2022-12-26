@@ -101,3 +101,7 @@ The door connecting the garage to the house now had several fresh dents and scra
 We were of course extremely shaken up, so the police stationed an officer across the street from the house for the rest of the night. After they left, we all tried to go back to bed, but Dana and I could not sleep. We were both thinking the exact same thing.
 
 This wasn’t over. Whatever that creature is will be coming back.
+
+Part 2:
+
+https://www.reddit.com/r/nosleep/comments/zvf3es/the_white_car_came_back_the_driver_tried_to_take/
