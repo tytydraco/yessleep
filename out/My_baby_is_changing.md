@@ -1,0 +1,37 @@
+(TW; VERY BRIEF MENTION OF ABUSE)
+
+I'll start by saying, I (20) think I'm a good dad. I've done everything in my power to raise my daughter right. We've struggled, I've lost jobs, food has sometimes been scarce; I've always made sure she's healthy and happy. Being a single parent is hard, but it's so rewarding watching your little one grow and thrive. I'd die for her. 
+
+My daughter, Emi (2), has always been a wonder. She was born two weeks early due to complications. Despite our initial fears, she came out making sure we knew her lungs were in tip-top shape. She got above the weight we thought she'd be. A perfectly healthy newborn that went against all odds. She was quiet at first; The three days in the hospital were mostly spent in silence. She didn't fuss even when she needed fed or changed, we just had to keep up a rhythm by our own time. She didn't scream in reply to the baby that was born in the room next to us (he was a wailer.) She didn't cry while being poked and prodded, didn't struggle through her examinations, all but fell asleep during her first bath. What little noises she did make were mostly in response to being bothered when she wanted to be alone. 
+
+A perfect, sweet angel. 
+
+My ex partner left the day after Emi turned five months old. They were an alcoholic, often times got physical with me. At first I just took it. With the baby in the picture, I guess it spurred me to start fighting back. It was the first time I ever raised my voice to them and they just left. At first it was horrible. The peaceful infant I'd cared for was a wreck. She screamed and bawled for hours on end if she wasn't eating or sleeping. She wouldn't play with her toys or sleep in her own bed. She was absolutely heartbroken, and my ex partner didn't want anything to do with her. Not that I wanted them around Emi with their problems, anyways. 
+
+This lasted for weeks. I was dealing with a sudden and heavy divorce, had suddenly become a single parent and watching my baby's heart get ripped out like that... I'm sure you can understand how much it added to the stress. I lost so much sleep. But, she settled down eventually. 
+
+It was going fine after that. Emi grew like a weed. She consistently stayed in the 90th-99th percentile for height, was a thin baby, but her doctor said she was perfectly healthy. Her weight was just evenly distributed over all of that length. She wasn't picky with food at all, ate everything put in front of her and would make it clear when she was full. Had a certain fascination with music that blew my mind. She had a favorite song that I'd sung to her since she was born, though I stopped when she started falling asleep on her own around eight months. Emi started smiling, babbling, laughing. Crawling and mastering interactive toys at a speed I'd never thought possible. She began to walk and pick her own videos on YouTube when I asked. 
+
+It only kept getting better. She was shy with strangers at first, as any developing infant/toddler is expected to be. She grew to be more independent and determined who she liked and who she didn't. I never forced her around people she didn't like, never forced her away from those she did. She's a genius in my eyes. She knows herself and is comfortable making her feelings known. She'll come to me with whatever she needs. She's polite, friendly and quiet, as she's always been, while also setting her own boundaries. I don't even think I can take credit for the overly mature toddler she's become. 
+
+Now, to the problem. Today is Christmas, 2022. Her birthday was December 7th. It was a good day; Emi got loaded down with new dinosaur toys, a dino smash cake that she absolutely tore into, was surrounded by family and friends that she happily played with. When bed time rolled around she went straight to sleep like she usually does. All in all, a normal day. 
+
+I woke up that night to Emi at the end of my bed. She was just... staring. Her beautiful blue eyes had dulled into something grey and scary, she didn't even seem to be looking at me specifically. She was looking through me. I stared back, just for a few seconds, before telling her to go back to bed. She turned away, pet the dog next to her bed and went right back to sleep. 
+
+She doesn't like touching animals. She's always hated touching animals. 
+
+This could be chalked up to sleep walking. Almost every child does it at one point or another in the early years. Even as it kept on through the week, even as she crawled into my bed to sit on top of me, it could be chalked up to sleep walking. That didn't make it any less creepy. And she always, always lingered on her way back to bed just to pet the dog. The dog, as always, would let her. It was like a new little ritual. A mutual understanding between the two. 
+
+Sleepwalking can't explain the sudden pickiness with food. Since that night she's slowly started eating less. I figured this is normal. Kids go through phases, they get bratty, they might not like the taste or texture of something like they used to; It's just a part of growing up that every parent has to work through.  Her favorite foods (spaghetti, fresh ham, marshmallows, veggie straws) all dropped off her radar in the matter of a week and a half. I got her to stick with french fries and pizza rolls up until now, taco meat if I have the money to buy the ingredients. We're now down to french fries. 
+
+The sleepwalking hasn't really gotten any better. Some nights Emi stays at the end of the bed, some nights she crawls up and sits on me. One night I caught her playing with my hair. Usually what wakes me up is her weight on my chest. I'm very small and slim, it's where she got her genes, but she's 38lbs and I can't quite breathe under that. I typically won't move her, just let her move herself when I tell her to get to bed, and that's all that's really spoken besides a simple 'I love you, goodnight.' The rest is just wordless, cold staring. 
+
+Last night was the peak. I woke up to her on my chest again, staring down at me, as is now the norm. I was finally starting to get used to it. Until I heard it, felt it; She was petting my cheek and singing that old song in the cutest little voice. Every word, every note, was perfect. I was in honors choir from middle school until graduation. Under any other circumstances it would've been a dream come true. 
+
+Except, Emi is completely non-verbal. She's never spoken a single word. 
+
+She looped through the song three times before she finally went back to bed. I honestly can't figure out if I was just dreaming or not. It took hours for me to get back to bed. The weirdest part is that, over the day, she's been her old self. She was smiling, giggling and happy, unwrapped her presents like nothing else in the world mattered. Played with everything to her heart's content and ate absolutely everything on her plate, then asked for seconds. Got tilted when the dog got too close to her or her things. It was surreal. 
+
+It's currently nearing 3:30AM on December 26th. I haven't slept. I'm too scared to sleep. Usually her waking routine would happen around midnight, yet she hasn't stirred a bit. I can't help but wonder if it's because I'm not asleep. 
+
+Other parents, is this normal? Should I be this scared? I'm not an expert on kids, I never took classes and Emi wasn't planned. I feel so horrible fearing my own loving toddler. Please, if you can, give me some advice.

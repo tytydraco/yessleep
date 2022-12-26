@@ -4,18 +4,17 @@ As a child, we didn't live in a good neighborhood. The houses were shambles and 
 
 Slowly, our parents began to change. Day by day, they were growing cold and erratic. Their skin became soggy and taut, like wet bread moulded onto bones. Their eyes lost focus. They looked less humans and more like scratched up toys. 
 
-And they wouldn't talk to us anymore.. My brother and I became orphans, more alone in the house. I think that's why it came for us.
+And they wouldn't talk to us anymore.. My brother and I became practical orphans, more alone in the house than outside. I think that's why it came for us.
 
 The day my brother disappeared, it was freezing in the house. There was no fire, but Mama and Papa just sat in the living room, their scratched up faces in front of the empty fireplace.
 
-That morning, I didn't see my brother. It wasn't unusual for him to hide away in the woods from the house. But when night fell, he wasn't back.
-
+That morning, I didn't see my brother. It wasn't unusual for him to stay away from the house til late. But when night fell, he wasn't back.
 
 As the house grew dark, I approached my parents. They sat still, staring at nothing. I said Mikey wasn't here.
 
 At first, they wouldn't talk. Then, Mama whispered.
 
-"Be quiet. Mikey didn't go anywhere"
+"Be quiet."
 
 "Mama, he's not here."
 
@@ -25,9 +24,7 @@ She turned to me. Her pupils were dead and floated in the whites of her eyes.
 
 She kept staring at me, with those zombie eyes, until finally she turned to the empty fireplace again. I stayed quiet.
 
-That night, I saw what took him. It was waiting for me. 
-
-When I went up to my room, I saw its long pale hand coming out under my bed. 
+That night, I saw what took him. It was waiting for me. When I went up to my room, I saw its long pale hand coming out under my bed. 
 
 I stood, in the entrance. I wouldn't let myef believe there was a stranger in my room.
  I even began to think, to hope, it might be my brother, hiding there. But the flesh were too grey and black around the fingernails
@@ -40,9 +37,9 @@ I bent down and peeked under the bed.
 
 Someone grinned back at me.
 
-I tried to scream when I saw it but panic clogged my throat.  The horrible smile pulled lips back deep into chin and up to their ears. They had no eyes or nose, just empty sockets and a bloody slit in the pale skin. 
+  The horrible smile pulled lips back deep into chin and up to their ears. They had no eyes or nose, just empty sockets and a bloody slit in the pale skin. 
 
-Trying to get away from the stare, I scrambled across the floor, pushing myself to stand up. I ran into my Mama. 
+I tried to scream but panic clogged my throat. Trying to get away from the stare, I scrambled across the floor, pushing myself to stand up. I ran into my Mama. 
 
 She was standing behind me, blocking the exit to my room. 
 
@@ -50,7 +47,7 @@ She was standing behind me, blocking the exit to my room.
 
 First, I blathered and pointed, trying to get any words out. Then I just went quiet and hugged her in sheer fright.
 
-"There's a monster under my bed."
+"Th..there's a monster under my bed."
 
 I pointed at the floor. The grey corpse hands were gone.
 
@@ -58,13 +55,11 @@ I pointed at the floor. The grey corpse hands were gone.
 
 I wanted her to tell me it was gone, that it wasn't real.
 
-She bent down and looked under the bed. She sat there for a long time.
-
-Without getting back up, she jerked her head and looked at me. She raised a finger to her lips.
+She bent down and looked under the bed. She sat there for a long time. Without getting back up, she jerked her head around and looked at me. She raised a finger to her lips.
 
 "Shhhh. They're listening."
 
-"There's really a monster?"
+"Th..there's really a monster?"
  
 "We told you to be quiet. They'll get you if you're not quiet."
 
@@ -74,17 +69,17 @@ She got up and walked past me. Before she closed the door, she looked back into 
 
 " If they hear you, they'll crawl out and get you. "
 
-She shut the door. I heard the lock click.
-
-I wanted to call out for her. I wanted to knock on the door. I wanted 
+The door shut. I heard the lock click.
 
 I stayed quiet. I crawled into the corner of a room and tried to stay quiet while I cried.
 
-It was dark, but you don't know what it's like to be a child in that room. What your eyes can see.
+It was dark, but you don't know what i was like to be a child in that room. What your eyes can see.
 
 I could still see the hand. *It was there* . *I knew it was waiting for me.*
 
-And it kept waiting. It waited for me all those horrible, cold nights. It was always there, hiding in my room, after they locked me inside.
+And it kept waiting. 
+
+It waited for me all those horrible, cold nights. It was always there, hiding in my room, after they locked me inside.
 
 The house was falling apart, inside and out. My parents were becoming monsters, pale and thin and long fingernails.
 
