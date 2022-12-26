@@ -1,4 +1,4 @@
-I had always enjoyed being outside in nature and the woods, until that fateful day. Our last class was a boring history class about how the Duke of Wellington was defeated by Napoleon at Waterloo. I any my two friends went to the old forest to the south of town to drink some bears to celebrate the ending of school and welcome the summer holiday.
+I had always enjoyed being outside in nature and the woods, until that fateful day. Our last class was a boring history class about how the Duke of Wellington was defeated by Napoleon at Waterloo. I and my two friends went to the old forest to the south of town to drink some beers to celebrate the ending of school and welcome the summer holiday.
 
 Also, we had already made plans for the upcoming summer vacation.
 
