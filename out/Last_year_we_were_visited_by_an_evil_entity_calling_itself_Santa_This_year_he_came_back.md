@@ -160,7 +160,7 @@ Below that, the second. 
 "Grown ups can be put on the naughty list too." 
 
 
-Then, the animated blanket *flew*, like a magic carpet reminiscent of Aladdin. I screamed as it flew at me and instinctively squeezed off a round. The thundering gunshot rang in my ears. I either missed or it didn't do any good. The evil blanket soared over my head and flew towards the stairs.
+Then, the animated blanket *flew*, soaring like some evil bird. I screamed as it flew at me and instinctively squeezed off a round. The thundering gunshot rang in my ears. I either missed or it didn't do any good. The evil blanket soared over my head and flew towards the stairs.
 
 
 I chased after it, but it was fast. I watched as it reached the kid's room and slipped in through the gap between the door and the floor. 
