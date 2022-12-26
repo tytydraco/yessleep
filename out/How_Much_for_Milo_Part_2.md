@@ -216,7 +216,7 @@ My two loved ones could not speak. They were not tied or gagged. Not in a physic
 
 “Where is Milo?” I sobbed.
 
-“That is up to you,” The man replied, repeating his question. “Patrick or Lucy?”
+“That is up to you,” The man replied, repeating his question. “Patrick or AJ?”
 
 “I don’t…” I trailed off, closing my eyes, trying to end this ghastly nightmare.
 
@@ -244,7 +244,7 @@ The man smiled. At long last, he had abandoned any semblance of warmth or kindne
 
 But I did. The jigsaw was complete. I could see the full picture. This was a test. It had always been a test. And I had reached the final round.
 
-“Patrick or Lucy?” The man asked.
+“Patrick or AJ?” The man asked.
 
 “What am I choosing?” I quietly asked.
 
@@ -254,7 +254,7 @@ My *own* heart thumped, as dread encompassed me.
 
 “Whose heart will you eat?” The man nonchalantly enquired, as if he were simply asking for the time.
 
-Patrick and Lucy, my mouthless loved ones, began to wriggle and squirm more desperately in their chairs. AJ leant forwards, putting her head in her lap and moaning loudly.
+Patrick and AJ, my mouthless loved ones, began to wriggle and squirm more desperately in their chairs. AJ leant forwards, putting her head in her lap and moaning loudly.
 
 “Please…” I cried.
 
