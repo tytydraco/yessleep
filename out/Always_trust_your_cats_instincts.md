@@ -30,8 +30,8 @@ Nobody believed me, I started thinking that maybe I imagined things, that what h
 
 Until tonight. 
 
-Under my cover, reading stories on my phone, U.B jumped under my cover, looking at me from under it with insistence, and I immediately understood, I covered us both from head to toe, tucking every corner of the cover so that not even air could come from outside. Soon enough I felt the same feeling, however this time, I could move, breathe, talk even (even though I do no want to try). 
+Under my cover, reading stories on my phone, U.B jumped under my cover, looking at me from beneath it with insistence, and I immediately understood, I covered us both from head to toe, tucking every corner of the cover so that not even air could come from the outside. Soon enough I had the same feeling, however this time, I could move, breathe, talk even (even though I do no want to try). 
 
-I am writing this to you guys, because I am terrified, I do no know what to do, I have been hiding under the covers for two hours now. And five minutes ago I felt the bed dip by my side. He talked to me again through is chuckles. 
+I am writing this to you guys, because I am terrified, I do no know what to do, I have been hiding under the covers for two hours now. And five minutes ago I felt the bed dip by my side. He talked to me again through its chuckles. 
 
 "I can be really patient when the meal is worth it."
