@@ -42,9 +42,9 @@ Before the pointer could have moved, Amy pushed my hands away.
 
 At that moment we heard crying in the air but we could not locate where the voices were coming from. But they were the desperate crying of a small boy.
 
-'Oh my God!' Amy said and she jumped up, sending the Ouija board tumbling to the floor.
+'Oh my God!' Amy said and she jumped up, sending the Ouija board tumbling to the floor. Those voices just made us more sorrowful and we felt the urge to do something.
 
-The following day in the kitchen, Amy and I discussed the tragedythat had befallen the boy.
+The following day in the kitchen, Amy and I discussed the tragedy that had befallen the boy.
 
 "We must come forward with what we know," Amy suggested. "Maybe we should contact the police."
 
@@ -76,9 +76,7 @@ That was very strange and a red flag to me. Amy and I just could not get our hea
 
 The more we thought about it, the more worried we became. We tried to forget about it for the remainder of the night, but eventually, we decided that we had to tell Kai how his family made us feel unsafe and that we didn't want to reach out to them again.
 
-So we started using the Ouija board again and presented him with the above. At that moment, objects in the room started flying.
-
-We decided to try and use the Ouija board again and I presented him with what had happened. At that moment, objects in the room started flying around.
+So we started using the Ouija board again and presented him with the above. At that moment, objects in the room started flying, so he seemed very angry.
 
 We were all in shock, but I knew we had to get Kai some closure. I asked him "Did your family hurt you? Did they do something bad to you?"
 
@@ -86,7 +84,7 @@ Kai remained silent for a few moments before he slowly moved the pointer on the 
 
 My heart broke for him as we realised what had happened and why he wanted us to help him. He wanted us to seek justice for his death and make sure that his parents were held accountable for their actions.
 
-Amy immediately called Henry again and asked him if he could help us find out more about Kai's family. I told him about our story as well, Although he did not believe in the paranormal, he was willing to help me as he was a close friend of mine. He agreed and promised to dig deep into their pasts, no matter how long it would take and he would pay a visit to his family.
+I immediately called Henry again and asked him if he could help us find out more about Kai's family. I told him about our story as well, Although he did not believe in the paranormal, he was willing to help me as he was a close friend of mine. He agreed and promised to dig deep into their pasts, no matter how long it would take and he would pay a visit to his family.
 
 I offered to go with Henry because I felt like I needed to be there if any evidence of wrongdoing was found. So, the next day, we started making our way towards the address provided by Henry - a small house on the outskirts of our town. It was a long drive, and a sombre mood hung in the air as we both thought about what could have happened to Kai.
 
@@ -138,7 +136,7 @@ We both hesitantly glanced at the door that led to the basement, and Henry's gri
 
 I pulled out my phone and used the flashlight function to light our way. The beam flickered against the damp stone walls as we made our way down. Even in the light, I could feel an icy chill settle over us with each step.
 
-We cautiously climbed down the rickety stairs, gripping the handrail with white-knuckled fear. As our eyes adjusted, a chill swept through us as we saw the sinister red letters dripping down the wall:
+We cautiously climbed down the rickety stairs, gripping the handrail with white-knuckled fear. As our eyes adjusted, a chill swept through us as we noticed a piece of paper on a chair with a message written in crayons:
 
 I HAVE FOUND MY NEW FAMILY.
 
