@@ -4,9 +4,9 @@ Fresh out of business school, I got a job working in corporate for a chain of co
 
 “Great for workers, bad for business,” I said, quoting one of my professors.
 
-“I knew I liked you,” said Tommy. “Coffee?” 
+“I knew I liked you,” said Tommy. “Coffee?”
 
-“I actually don’t drink coffee,” I said, and Tommy raised his eyebrows. 
+“I actually don’t drink coffee,” I said, and Tommy raised his eyebrows.
 
 “Anyway, let’s talk about your first assignment. As you know, your first year is all rotations. We’re gonna make sure you’re really out there in the jungle, you know? First assignment is down in Grants Pass. Real shitshow. We’ve lost two managers to suicide in the last year.”
 
@@ -20,7 +20,7 @@ I walked into the Grants Pass location to find a single old man with a massive b
 
 “What can I get you, Chief?” asked the old man, whose name tag read “Norman.”
 
-“Tea,” I said. 
+“Tea,” I said.
 
 Whistling some old John Denver song, the old man gestured to a wall of teabag options.
 
@@ -44,7 +44,7 @@ He wagged his finger at me and smiled.
 
 “At some point, you’re one or the other.”
 
-The next day, I summoned the full staff to arrive first thing in the morning and introduced myself. I spent the rest of the day watching them work, occasionally pulling them aside for one on one conversations. No one wanted to talk unions, about their coworkers, or what had happened with the old bosses. 
+The next day, I summoned the full staff to arrive first thing in the morning and introduced myself. I spent the rest of the day watching them work, occasionally pulling them aside for one on one conversations. No one wanted to talk unions, about their coworkers, or what had happened with the old bosses.
 
 I called up Tommy, who started by screaming at full volume into the phone.
 
@@ -90,7 +90,7 @@ Laila snatched the sign out of my hands, threw on her coat, and headed outside. 
 
 “I’m realizing you never learned to make steamed milk,” said Norman, his voice strangely soothing. “Isn’t that why you’re here? To learn the place inside and out.”
 
-“Actually…” I started to say, but even as I spoke the words, I felt myself walking toward the machine. 
+“Actually…” I started to say, but even as I spoke the words, I felt myself walking toward the machine.
 
 “Main thing about the steamer is you gotta be careful not to get burned,” said Norman, starting the steam cycle. “This contraption is designed to get that milk boiling in twenty seconds flat. So you don’t. Want. To. Touch. The. Metal.”
 
@@ -128,7 +128,7 @@ Norman shook his head.
 
 “It’s not up to you.”
 
-He smiled. 
+He smiled.
 
 “Let’s go outside, boss. It’s a beautiful day. We should get some sunshine.”
 
@@ -156,20 +156,20 @@ I jumped forward into the next lane as the semi swerved slightly to avoid me.
 
 “I’m a man,” I said, the words lost in the traffic noise. I was almost in the fourth lane now. Another semi was coming in the opposite direction. “I’m a man,” I shouted. Suddenly I found myself sprinting forward. I leaped forward out of the way, the semi missing me by inches.
 
-I looked back over my shoulder at Norman, who gave me a quick smile and a nod. 
+I looked back over my shoulder at Norman, who gave me a quick smile and a nod.
 
 “Good choice, boss.”
 
-I was still shaking later that day when I called Tommy to resign. 
+I was still shaking later that day when I called Tommy to resign.
 
-I didn’t know then that I’d go on to find a new job just a few days later, an entry-level job at a little software company, where a few years later I’d be voted “World’s Nicest Boss” at the company Christmas party. 
+I didn’t know then that I’d go on to find a new job just a few days later, an entry-level job at a little software company, where a few years later I’d be voted “World’s Nicest Boss” at the company Christmas party.
 
-I also didn’t know that I’d still wake up years later, and see a vision of Norman’s face in the dark, asking me that same old question, and I’d catch myself whispering, “I’m a man. I’m a man. I’m a man.” 
+I also didn’t know that I’d still wake up years later, and see a vision of Norman’s face in the dark, asking me that same old question, and I’d catch myself whispering, “I’m a man. I’m a man. I’m a man.”
 
 All I knew then was that I was leaving.
 
 “I knew you were a pussy the moment you walked into my office,” shouted Tommy over the phone. “You couldn’t even fire a 70-year-old man without pissing your pants.”
 
-“I guess you’re gonna have to come down here and do it yourself,” I said. Then I hung up the phone. 
+“I guess you’re gonna have to come down here and do it yourself,” I said. Then I hung up the phone.
 
-I never saw Tommy again.
+I never saw Tommy [again](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
