@@ -2,7 +2,7 @@ Cats are weird. That's a fact I think we can all agree on.
 
 That's the first thing I thought when I found my cat Ugly Betty, aka U.B, standing really still in my bedroom. I watched him from my door a few seconds, he was breathing, as his long fur moving up and down indicated. A minute passed and he still didn't move an inch, remaining at the same position, looking at the corner of the room, I glanced at it, nothing. I thought it was maybe an insect, maybe he was on hunting mode, the would explain why he was still as a statue. Yet another minute went by and he still didn't move, I called his name, he did not even move his ears. At this point, I got worried.
 
-Going into my room, I walked to him. There and then, I don't know what it was, my instinct ? More like a spider sens, but I felt it, the imminent danger, the need not to move. Halfway through my step I stopped, becoming as motionless as my beloved pet. A few seconds later, I heard it, an eerie sound, the sound of someone whistling in the corner.
+Going into my room, I walked to him. There and then, I don't know what it was, my instinct ? More like a spider sens, but I felt it, the imminent danger, the need not to move. Halfway through my step I halted, becoming as motionless as my beloved pet. A few seconds later, I heard it, an eerie sound, the sound of someone whistling in the corner.
 
 It was simple, musical, something that I may have appreciated under different circumstances, but at this point, my body went into survival mode, my breath grew quieter and quieter, I knew without a doubt that if I was noticed I would be done for.
 
@@ -30,8 +30,8 @@ Nobody believed me, I started thinking that maybe I imagined things, that what h
 
 Until tonight. 
 
-Under my cover, reading stories on my phone, U.B jumped under my cover, looking at me from beneath it with insistence, and I immediately understood, I covered us both from head to toe, tucking every corner of the cover so that not even air could come from the outside. Soon enough I had the same feeling, however this time, I could move, breathe, talk even (even though I do no want to try). 
+Under my cover, reading stories on my phone, U.B jumped under my cover, looking at me from beneath it with insistence, and I immediately understood, I covered us both from head to toe, tucking every corner of the cover so that not even air could come from the outside. Soon enough I had the same feeling, however this time, I could move, breathe, talk even (even though I do not want to try). 
 
-I am writing this to you guys, because I am terrified, I do no know what to do, I have been hiding under the covers for two hours now. And five minutes ago I felt the bed dip by my side. He talked to me again through its chuckles. 
+I am writing this to you guys, because I am terrified, I do not know what to do, I have been hiding under the covers for two hours now. And five minutes ago I felt the bed dip by my side. He talked to me again through its chuckles. 
 
 "I can be really patient when the meal is worth it."
