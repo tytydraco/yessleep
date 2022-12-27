@@ -30,7 +30,7 @@ I laughed as it was finally over, but nothing could have been further from the t
 months later, my son was born, and I cried happy tears for the first time in years. He was the most beautiful human in my eyes, and i could feel his gaze of love and trust. It was the most wonderful feeling i had ever felt.
 
 
-We left the hospital after after the doctors checked everything.
+We left the hospital after  the doctors checked everything.
 
 After only a couple minutes of driving, i saw it again, but this time it felt stronger. Its smile was even creepier. its lips went from eye to eye, and they began to blacken, its whole body became black, and only his eyes were visible.
 It walked to me, and I sat there frozen in fear. It entered my gaping mouth, i felt every vein in my body explode every nerve dying out. It took everything over, except my eyes, it left my eyes, so that i could see the light dying in the eyes of my newborn son as it choked him to death, it left my eyes so that i could feel the loving warmth of my wife's eyes turn into ice cold fear as it ripped the stomach of my wife apart. It wanted to feel the despair in my eyes as i was sent in the backroom of my own head to see me kill my own family again.

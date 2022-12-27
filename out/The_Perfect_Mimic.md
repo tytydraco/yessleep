@@ -96,7 +96,7 @@ I gritted my teeth. I could feel the bile rising in the back of my throat.
 
 I took off for school and didn’t look back. Jakob called out; “Hey where are you going? I thought you wanted to talk.”
 
-I hid in the bathrooms and balled my eyes out for what must have been half an hour. This intruder, whatever, whoever he is, burrowed into my life and has everyone I know wrapped around his finger like a bandage. It’s unnatural, it's not right. It’s like everyone’s trying to pull some sick prank on me.
+I hid in the bathrooms and bawled my eyes out for what must have been half an hour. This intruder, whatever, whoever he is, burrowed into my life and has everyone I know wrapped around his finger like a bandage. It’s unnatural, it's not right. It’s like everyone’s trying to pull some sick prank on me.
 
 I pulled myself together and washed up before heading for the next class by the time the bell rang.
 
