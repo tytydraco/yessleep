@@ -78,7 +78,7 @@ They kind of were. Along with Kenji Cato, these three were going to be professio
 
 Sure, I couldn’t prove this. Because it sounded insane. But it made sense.
 
-The victims were only in our class, and the kidnapper clearly had connections to us. I had suspected Eleanor Caine ever since she stammered during a group interrogation, and when she failed to provide a concrete alibi for the night of Rowan’s disappearance. The police investigation was private, but that didn’t stop us openly discussing our alibi’s (Which brought us together a lot more). When Eleanor was asked, she stumbled through an account of her visiting her friends to hang out.
+The victims were only in our class, and the kidnapper clearly had connections to us. I had suspected Eleanor Martinez ever since she stammered during a group interrogation, and when she failed to provide a concrete alibi for the night of Rowan’s disappearance. The police investigation was private, but that didn’t stop us openly discussing our alibi’s (Which brought us together a lot more). When Eleanor was asked, she stumbled through an account of her visiting her friends to hang out.
 
 That was a lie.
 
@@ -332,7 +332,7 @@ Winding itself around my throat.
 
 Squeezing my eyes shut, I forced myself to breathe. I stopped looking, stopped searching for what was slowly slipping its way into my reality, and the pooling blackness sinking into my flesh was gone. I climbed out of my car, checked to see if anyone was lurking around, and took slow, shaky steps toward the trunk of my car. 
 
-The muffling grew louder until I couldn’t call it incoherent anymore. This was shouting. Screaming. A mouth which had clearly been gagged. When I yanked open the trunk, I was greeted to what I expected. The trash bags I’d been planning to get rid of, full of old childhood toys, old bed covers, a pile of comic books I was supposed to donate to the local thirst store—and something wriggling in between all of it, a very human looking figure lying face down on my mom’s ancient rug. 
+The muffling grew louder until I couldn’t call it incoherent anymore. This was shouting. Screaming. A mouth which had clearly been gagged. When I yanked open the trunk, I was greeted to what I expected. The trash bags I’d been planning to get rid of, full of old childhood toys, old bed covers, a pile of comic books I was supposed to donate to the local thrift store—and something wriggling in between all of it, a very human looking figure lying face down on my mom’s ancient rug. 
 
 Something snapped inside me, and I reached out, rolling them onto their front. Kenji Cato. I almost slammed the trunk in his face. 
 
