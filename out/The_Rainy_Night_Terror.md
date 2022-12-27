@@ -4,7 +4,7 @@ She had tried to call a cab, but her phone had died just as the dispatcher answe
 
 She had always been a bit of a nervous person, prone to imagining dangers that weren't really there. But tonight, the darkness and the rain seemed to amplify her fears. She couldn't shake the feeling that someone - or something - was lurking just out of sight, ready to pounce at any moment.
 
-She quickened her pace, eager to get home and lock the door behind her. But as she turned down her street, she realized with a sinking feeling that she had left her keys at the diner. Swearing under her breath, she fumbled in her bag for the spare set that Jessica kept hidden under a flowerpot by the front door.
+She quickened her pace, eager to get home and lock the door behind her. But as she turned down her street, she realized with a sinking feeling that she had left her keys at the diner. Swearing under her breath, she fumbled for the spare set that Jessica kept hidden under a flowerpot by the front door.
 
 As she crouched down to retrieve the keys, she heard a noise behind her. She spun around, heart racing, but there was nothing there. Just the empty street, the rain, and the shadows.
 
