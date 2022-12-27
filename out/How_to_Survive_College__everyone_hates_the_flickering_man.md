@@ -1,6 +1,6 @@
-I went to talk to the professor that sponsors [the Rain Chasers](https://www.reddit.com/r/nosleep/comments/zeoek1/how_to_survive_college_the_stabbed_student/).  Professor Beatrice.  The folklore professor.  On one hand, it seems a little suspicious that the professor that specializes in folklore also sponsors the Rain Chaers, doesn’t it?  But on the other hand, she’s the only professor that specializes in folklore so her interest in the club is kind of obvious.  
+I went to talk to the professor that sponsors [the Rain Chasers](https://www.reddit.com/r/nosleep/comments/zeoek1/how_to_survive_college_the_stabbed_student/).  Professor Beatrice.  The folklore professor.  On one hand, it seems a little suspicious that the professor that specializes in folklore also sponsors the Rain Chaers, doesn’t it?  But on the other hand, she’s the only professor that specializes in folklore so her interest in the club is kind of obvious.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 She seemed happy to see me, even though I’m not certain she remembered who I was.  My tentative plan is to take one of her classes as an elective next semester so that I’ll have an even better reason to drop in on her office hours.  For now, however, she seemed like most professors - the door is open, her own students don’t make enough use of her time, so why not talk with a random person that clearly has an interest in her subject?
 
@@ -54,7 +54,7 @@ Maybe I’m putting too much on myself.  Even the devil said I wasn’t that imp
 
 I was brooding through these thoughts when I heard a door slam somewhere up ahead on the sidewalk.  Two people had just come out of a side entrance for one of the dormitories.  One was struggling.  The other was dragging him behind her by the wrist.  I opened my mouth, about to yell at them and draw some sort of attention to the situation, but then I got a good look at the lady and my voice died in my throat.
 
-The laundry lady.  It was the laundry lady, dragging off some hapless student, and I wasn’t the only person here - there were other students walking along the sidewalk - and not one of them noticed the terrified student struggling to free himself from her grip.  
+The laundry lady.  It was the laundry lady, dragging off some hapless student, and I wasn’t the only person here - there were other students walking along the sidewalk - and not one of them noticed the terrified student struggling to free himself from her grip.
 
 Just me.  Only me.  Because I know the inhuman and it knows me and we can’t hide from each other any longer.
 
@@ -116,11 +116,11 @@ I couldn’t watch.  I couldn’t stop it and I couldn’t watch.  I threw mysel
 
 I wished I could sink into the earth.  Just let it swallow me up and be gone, be senseless, be like the dead, until it was all over.
 
-I crouched there for I don’t know how long.  The only sound was that of my own breathing, echoing in my ears.  
+I crouched there for I don’t know how long.  The only sound was that of my own breathing, echoing in my ears.
 
 Then a finger tapped my back.
 
-I didn’t scream.  I don’t react that way.  I don’t panic.  I just… freeze.  My body sort of went rigid and I think if the person had pushed me any harder, I’d have simply fallen over.  
+I didn’t scream.  I don’t react that way.  I don’t panic.  I just… freeze.  My body sort of went rigid and I think if the person had pushed me any harder, I’d have simply fallen over.
 
 Like cow tipping.  Which… isn’t a thing, I know, I did grow up in a rural area after all.
 
@@ -160,7 +160,7 @@ I stumbled to my feet, somehow managing to stammer out something along the lines
 
 “Of course I did.  Hiding only works on us in very specific circumstances.  Oh, you don’t need to worry about him,” she hastily amended, seeing the look on my face.  “He’s a special circumstance all of his own.  Specifically, he’s so busy being full of himself that he wouldn’t see anything that wasn’t directly in front of his face.”
 
-I laughed.  It just sounded so absurd, hearing something like that coming from something like her.  And yes, my laugh bordered on hysteria, but I just felt so relieved to hear that maybe there was another inhuman thing that had the same enemy as me and it wasn’t just me depending on the devil to save my stupid butt anymore.  Dangerous, I know, letting my guard down around *anything* inhuman.  But the laundry lady might be the unholy union of a crotchety boomer and your favorite mom figure, who just *ripped a student in half*, but she was still one of the few things around here that wasn’t trying to kill me or get me killed. 
+I laughed.  It just sounded so absurd, hearing something like that coming from something like her.  And yes, my laugh bordered on hysteria, but I just felt so relieved to hear that maybe there was another inhuman thing that had the same enemy as me and it wasn’t just me depending on the devil to save my stupid butt anymore.  Dangerous, I know, letting my guard down around *anything* inhuman.  But the laundry lady might be the unholy union of a crotchety boomer and your favorite mom figure, who just *ripped a student in half*, but she was still one of the few things around here that wasn’t trying to kill me or get me killed.
 
 So far.
 
@@ -189,6 +189,8 @@ Benefit.
 She gleefully rubbed her hands together, her eyes glinting with ill intention.
 
 “The flickering man,” she said.  “This time, we’re going to get *him* in trouble.” [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/zw5djj/how_to_survive_college_obviously_i_get_to_be_bait/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
