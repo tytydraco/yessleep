@@ -18,73 +18,73 @@ After the kids went to sleep, and my wife signed off to bed, I just couldn't. It
 
 The ringing stopped. I pulled the phone away, looking at the screen in shock. The call timer was still ticking, it was the screen of being on call. I heard some shuffling and other weird sounds on the other side, trying to listen in closer I put it back to my ear.
 
-Hello? I said in a shaky voice.
+"Hello?" I said in a shaky voice.
 
-P? A female voice responded, my mom's voice. P was the nickname she always used for me.
+"P?" A female voice responded, my mom's voice. P was the nickname she always used for me.
 
-Mom? I broke into a sob. She didn't say anything for a long while.
+"Mom?" I broke into a sob. She didn't say anything for a long while.
 
-I'm sorry mom.
+"I'm sorry mom."
 
-I'm here. She said.
+"I'm here." She said.
 
-I miss you. I replied, clutching the phone harder, as if doing so would get me closer to her. I couldn't really understand how this was happening, maybe I was hallucinating.
+"I miss you." I replied, clutching the phone harder, as if doing so would get me closer to her. I couldn't really understand how this was happening, maybe I was hallucinating.
 
-It's your fault. The voice rang from the other end. What?
+"It's your fault." The voice rang from the other end. What?
 
-Mom? I was confused, what did she mean by that? Her voice was weird, it was hers, but somehow broken, distorted, maybe the connection was bad, I mean she was below the ground.
+"Mom?" I was confused, what did she mean by that? Her voice was weird, it was hers, but somehow broken, distorted, maybe the connection was bad, I mean she was below the ground.
 
-Its your fault. It said again, even more distorted than before.
+"Its your fault." It said again, even more distorted than before.
 
-You killed me! You killed me! You killed me! It started repeating, screaming at me, I dropped the phone and started sobbing louder, covering my ears.
+"You killed me! You killed me! You killed me!" It started repeating, screaming at me, I dropped the phone and started sobbing louder, covering my ears.
 
 I stayed like that for a long while, until my tears dried out. I opened my eyes again and looked at the phone on the ground, the call was still running, now at 15 minutes. It was silent again.
 
-Mom? I asked in a shaky voice
+"Mom?" I asked in a shaky voice
 
-I'm outside. Her voice was back to normal, but it no longer sounded like her, it sounded like an immitation almost.
+"I'm outside." Her voice was back to normal, but it no longer sounded like her, it sounded like an imitation almost.
 
-What? I asked, not believing what I'm hearing. A loud knock suddenly resounded at the front door, a single loud knock, startling me.
+"What?" I asked, not believing what I'm hearing. A loud knock suddenly resounded at the front door, a single loud knock, startling me.
 
-Open.. She whispered, and another knock came.
+"Open.." She whispered, and another knock came.
 
-This is not real, I'm just hallucinating. I said out loud, now rocking back and forth again. I was crazy, I was going out of my mind.
+"This is not real, I'm just hallucinating." I said out loud, now rocking back and forth again. I was crazy, I was going out of my mind.
 
-Another knock, louder than the one before. Then another, and another, and soon someone was just banging on the door, faster and faster, building up momentum. Stop! I screamed. Stop! I repeated, covering my ears and closing my eyes.
+Another knock, louder than the one before. Then another, and another, and soon someone was just banging on the door, faster and faster, building up momentum. "Stop!" I screamed. "Stop!" I repeated, covering my ears and closing my eyes.
 
-I could still hear the banging on the door, and then a hand on my shoulder, I shook it away in shock, shouting. No!
+I could still hear the banging on the door, and then a hand on my shoulder, I shook it away in shock, shouting. "No!"
 
-Peter? What's wrong? It was my wife, her worried eyes peering down into mine, I was now on the ground flaying my hands like a crazed man. I could no longer hear the knocking.
+"Peter? What's wrong?" It was my wife, her worried eyes peering down into mine, I was now on the ground flaying my hands like a crazed man. I could no longer hear the knocking.
 
-Did you open the door? Was it her?
+"Did you open the door? Was it her?"
 
-Door? What? She looked extremely worried. Are you okay Peter? I looked around frantically, using my hands to feel for the phone. When I found it I looked on the screen, I was still on call. Mom, see, I'm on call with her, she talked with me! I tried explaining to her.
+"Door? What?" She looked extremely worried. "Are you okay Peter?" I looked around frantically, using my hands to feel for the phone. When I found it I looked on the screen, I was still on call. "Mom, see, I'm on call with her, she talked with me!" I tried explaining to her.
 
-Let me in.. Another whisper came from the phone. My wife was shaking her head. Go to sleep Peter, you're not well.
+"Let me in.." Another whisper came from the phone. My wife was shaking her head. "Go to sleep Peter, you're not well."
 
-Did you not hear that? See? She's speaking! I shoved the phone into her face.
+"Did you not hear that? See? She's speaking!" I shoved the phone into her face.
 
-Her eyes widened. How is this..? Another loud knock at the front door interrupted her.
+"Her eyes widened. How is this..?" Another loud knock at the front door interrupted her.
 
-What the hell? Who's knocking at such a late hour. She started walking over to the front door.
+"What the hell? Who's knocking at such a late hour?" She started walking over to the front door.
 
-No don't! I screamed at her, but she didn't open it, all she did was look through the peephole. There's nobody here.
+"No don't!" I screamed at her, but she didn't open it, all she did was look through the peephole. There's nobody here.
 
-Another loud knock. My wife jumped back startled. What the hell, whoever this is, it's not funny, we're calling the police!
+Another loud knock. My wife jumped back startled. "What the hell, whoever this is, it's not funny, we're calling the police!"
 
-It's me.. The voice whispered again. Another knock. That's it, I'm calling the cops. My wife walked up stairs, probably to get her phone.
+"It's me.." The voice whispered again. Another knock. "That's it, I'm calling the cops!" My wife walked up stairs, probably to get her phone.
 
-Please let me in, it's cold.. It pleaded, no longer sounding like my mother, not even an immitation, it sounded like something.. inhuman.
+"Please let me in, it's cold.." It pleaded, no longer sounding like my mother, not even an immitation, it sounded like something.. inhuman.
 
-I slowly and shakily walked over to the front door and looked through the peephole while still holding my phone. I saw a figure in the treeline across the street, taller than any cars parked on the side of the road. It screeched loudly and started running to our house. Will you leave me out here to freeze P? The voice said simultaneously. I backed away from the door as it got to our yard. Please no! I screamed, it started banging on the front door. Let me in! It tried immitating my mother's voice, but it wasn't her.
+I slowly and shakily walked over to the front door and looked through the peephole while still holding my phone. I saw a figure in the treeline across the street, taller than any cars parked on the side of the road. It screeched loudly and started running to our house. Will you leave me out here to freeze P? The voice said simultaneously. I backed away from the door as it got to our yard. Please no! I screamed, it started banging on the front door. "Let me in!" It tried immitating my mother's voice, but it wasn't her.
 
-I called the police, you better run while you still can! My wife warned as she started coming down the stairs, while also holding a large huntsman knife.
+"I called the police, you better run while you still can!" My wife warned as she started coming down the stairs, while also holding a large huntsman knife.
 
 The bangs stopped. I built up the courage to look through the peephole again, but this time it was all black, I couldn't even see our front yard, even though the yard light was on.
 
-Then I saw something move, something shifted. I realized it was it's eye, it was looking inside the house. I screamed and backed off the door. What, what is it? My wife asked, I just kept screaming while pointing at the door, trying to form words in my mouth, to warn her, but I couldn't.
+Then I saw something move, something shifted. I realized it was it's eye, it was looking inside the house. I screamed and backed off the door. "What, what is it?" My wife asked, I just kept screaming while pointing at the door, trying to form words in my mouth, to warn her, but I couldn't.
 
-That's it asshole, I have a knife, I'm coming out, you better be gone by then! She warned while walking up to the door full of fake confidence.
+"That's it asshole, I have a knife, I'm coming out, you better be gone by then!" She warned while walking up to the door full of fake confidence.
 
 I tried to tell her, tried to explain to her, but the words wouldn't come out, I was whimpering.
 
