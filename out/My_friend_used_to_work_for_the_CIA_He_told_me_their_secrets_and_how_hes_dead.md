@@ -20,7 +20,7 @@ As I ran, I kept thinking about The Watcher. Who were they, and why were they do
 
 I spent the next few weeks on the run, hiding in cheap motels and trying to stay one step ahead of the CIA. They were smart, but I knew their secrets. I knew the strategies they used, where they would look first, and even *what* they would do to me if they caught me. It was a dangerous game, but I was determined to stay alive.
 
-Finally, after what felt like an eternity, I stumbled upon a clue that led me to The Watcher's true identity. It was someone I never would have suspected – someone I thought I knew and trusted. My childhood best friend — a janitor at a nearby high school. Or so I thought. 
+Finally, after what felt like an eternity, I stumbled upon a clue that led me to The Watcher's true identity. It was someone I never would have suspected – someone I thought I knew and trusted. My childhood best friend — a janitor at a nearby high school. Or so I thought.
 
 I confronted them, demanding to know why they had dragged me into this mess. And that's when they revealed the truth.
 
@@ -34,19 +34,19 @@ As I stood on the steps of the courthouse, ready to reveal the truth about the C
 
 But I was ready. I had spent weeks on the run, dodging the CIA and uncovering the truth about their secrets. And now, it was time for the world to know the truth.
 
-I stepped up to the microphone, my hands shaking as I began to speak. I told the reporters about The Watcher, about the hacked files and documents, and about the illegal activities the CIA had been involved in. I saw faces of shock, jaws dropping, as reporters quickly scribbled down notes. 
+I stepped up to the microphone, my hands shaking as I began to speak. I told the reporters about The Watcher, about the hacked files and documents, and about the illegal activities the CIA had been involved in. I saw faces of shock, jaws dropping, as reporters quickly scribbled down notes.
 
 I had done it. Despite the cost and my now probably-impending death, I had brought justice and exposed the corruption of America's worst agency.
 
-Yet, the next day, it was business as normal. No reports in the newspapers. No widespread protests. Not even a single tweet about what I had exposed just the day before. 
+Yet, the next day, it was business as normal. No reports in the newspapers. No widespread protests. Not even a single tweet about what I had exposed just the day before.
 
-Huh? What had happened? 
+Huh? What had happened?
 
-I quickly scrambled into my car, and drove to the office of my local newspaper--one I was *certain* had been at the conference yesterday. And yet, it seemed no one had any recollection of what had happened. The reporting team who had apparently left on a job the day before was missing — no phone calls, no emails, not a trace. No leads or bodies, but I knew what had happened. 
+I quickly scrambled into my car, and drove to the office of my local newspaper--one I was *certain* had been at the conference yesterday. And yet, it seemed no one had any recollection of what had happened. The reporting team who had apparently left on a job the day before was missing — no phone calls, no emails, not a trace. No leads or bodies, but I knew what had happened.
 
-I went online, trying to get a hold of The Watcher. But they too, had mysteriously disappeared. Profile gone, erased from the internet, along with the files and messages I had been sent. Dead, I presumed. 
+I went online, trying to get a hold of The Watcher. But they too, had mysteriously disappeared. Profile gone, erased from the internet, along with the files and messages I had been sent. Dead, I presumed.
 
-Everyone involved had mysteriously disappeared, including my childhood friend, whose number now rang a dead tone. Everyone except for me. 
+Everyone involved had mysteriously disappeared, including my childhood friend, whose number now rang a dead tone. Everyone except for me.
 
 Why did the CIA leave me alive? Maybe because they felt that I couldn't do anything by myself. No one would believe, without any evidence. I was just another off-the-rails anarchist, maybe a Russian spy bent on destroying the institutions of justice. I was harmless. Or so they think.
 

@@ -180,7 +180,7 @@ I came home an hour later than usual but mom didn’t seem to mind much.
 
 I headed for my room and tried to decompress.
 
-He waltzes into my home, picks leeches off us and I'm just supposed to be cool with it? Everything in me is just screaming to drive this imposter as far away from us as possible. I’ve never seen him stressed out for a single moment these last two days. Every time I look at his perfect face, nothing but that dumb smile. He’s just so comfortable. So snug, warping reality. He thinks he’s in complete control. He *knows* he’s in control. But not for long.
+He waltzes into my home, leeches off us and I'm just supposed to be cool with it? Everything in me is just screaming to drive this imposter as far away from us as possible. I’ve never seen him stressed out for a single moment these last two days. Every time I look at his perfect face, nothing but that dumb smile. He’s just so comfortable. So snug, warping reality. He thinks he’s in complete control. He *knows* he’s in control. But not for long.
 
 Dinner time. Billy passed by as I head out into the hall. I followed him to the stairs. I thought about pushing him down but even the elderly survived that, and his hand was clasping the rail. I took my seat at the table. We said our prayers, and started eating. I struggled to hold it down. 
 
