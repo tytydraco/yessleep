@@ -88,7 +88,7 @@ So, I got a hold of myself. I dropped my arms to my sides and heaved in a breath
 
 I must have waited a long time, playing with the words in my mouth, seeing how they would taste and feel on my tongue. They felt foreign. Because they weren’t mine. They were hers. “For the kidnap and…and murder of my five classmates.”
 
-I waited for her reaction, but she didn’t have one. So, I continued. With bile creeping its way up my throat, I named them in a singular breath.
+I waited for her reaction, but she didn’t have one. So, I continued. With barf creeping its way up my throat, I named them in a singular breath.
 
 “Rowan Carlisle, Imogen Rode, Tao Aster, Eleanor Martinez, and…” I drifted off, my voice breaking out into a shattered sob.
 
