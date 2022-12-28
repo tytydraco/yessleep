@@ -1,18 +1,20 @@
 Back in the later 90s, I grew up in the middle of nowhere. The nearest town, thirty miles away, had maybe five hundred people living there. My parents had been hippies, craving a life in nature, living off the land. Now they just drank and worse, and by the time I was thirteen, they’d disappear for days at a time.
 
-“Self-reliance,” my dad told me once, when I’d come home beaten to a pulp by a pair of bullies. “Be like Thoureau. Emerson.” 
+“Self-reliance,” my dad told me once, when I’d come home beaten to a pulp by a pair of bullies. “Be like Thoureau. Emerson.”
 
-I spent most of my days ranging the woods near my house, trying to sneak up on deer and building imaginary fortresses by leaning branches on fallen redwoods. The only spot I never tried was just to the north of us, where there was a massive illegal grow operation. 
+I spent most of my days ranging the woods near my house, trying to sneak up on deer and building imaginary fortresses by leaning branches on fallen redwoods. The only spot I never tried was just to the north of us, where there was a massive illegal grow operation.
 
-I was all alone one night, making a pot of Annie’s mac and cheese when the sky lit up like the 4th of July, and I saw a glowing orb the size of the moon spiral down in the sky and crash into the north woods. 
+My dad, who wasn’t scared of much, was terrified of the growers, and my childhood nightmares were full of stories of gangs that dissolved their rivals in massive vats of acid and made crude necklaces of men’s teeth.
 
-Like I said, I’d never been up that way, but I sure as hell wasn’t going to skip this. I put on a black t-shirt and jeans and ventured out. 
+I was all alone one night, making a pot of Annie’s mac and cheese when the sky lit up like the 4th of July, and I saw a glowing orb the size of the moon spiral down in the sky and crash into the north woods.
 
-I left at maybe eight, but I didn’t reach the crash site for at least three hours. The terrain was uneven and unfamiliar, and my dollar store flashlight kept going out whenever I jiggled it wrong. 
+Like I said, I’d never been up that way, but I sure as hell wasn’t going to skip this. I put on a black t-shirt and jeans and ventured out.
+
+I left at maybe eight, but I didn’t reach the crash site for at least three hours. The terrain was uneven and unfamiliar, and my dollar store flashlight kept going out whenever I jiggled it wrong.
 
 Usually, cruising through the woods at night, I thought of myself as a ranger from D&D or maybe a ninja sneaking up on some unsuspecting daimo. But that night, I was keenly aware that something could be out there, stalking me. Whenever I stumbled on a root or accidentally stepped on a banana slug, I just about jumped out of my skin.
 
-The crashed UFO was a near-perfect sphere about 12-feet in diameter and colored blacker than black. When I shined my flashback beam at its surface, it didn’t reflect at all, like the light had been sucked into a black hole. 
+The crashed UFO was a near-perfect sphere about 12-feet in diameter and colored blacker than black. When I shined my flashback beam at its surface, it didn’t reflect at all, like the light had been sucked into a black hole.
 
 I walked the perimeter and spotted an open door, a circular portal.
 
@@ -22,9 +24,11 @@ The interior was strangely cozy, with a soft rubbery seat that jiggled under my 
 
 I picked up a little black orb from the couch that I figured must be some kind of remote control, but when I tried to press it, it didn’t respond. I slipped it into my pocket and kept looking around. Surrounding the seat were a few dozen open containers that reeked of alcohol and seawater.
 
-I was about to try drinking out of one when a loud voice shouted to put my hands on my head and turn around. 
+Then I found the bones. They were definitely human, though some had been crushed beyond recognition. They stood in a disgusting pile on top of some filthy bowls. I took a step back, ready to sprint.
 
-Shit, I thought, cops. 
+That’s when a loud voice shouted to put my hands on my head and turn around.
+
+Shit, I thought, cops. I was half freaking the fuck out, and half relieved it wasn’t ET popping in to make me its next dinner.
 
 But it was a hundred times worse. Staring back at me were two guys in their twenties, both wearing blue bandanas and pointing handguns at me, cocked to the side like they’d just watched Pulp Fiction.
 
@@ -36,13 +40,13 @@ But it was a hundred times worse. Staring back at me were two guys in their twen
 
 “Fine then. Bring him back to the camp. We’ll let your dad figure out what to do with him.”
 
-Okay, I’ll admit it. I pissed my pants. I’d never had a gun pointed at me before, and I’d heard a thousand fucked up rumors about these guys. Like how there were a dozen easy ways to dispose of a corpse in the deep woods. 
+Okay, I’ll admit it. I pissed my pants. I’d never had a gun pointed at me before, and I’d heard a thousand fucked up rumors about these guys. Like how there were a dozen easy ways to dispose of a corpse in the deep woods.
 
 The men led me back through the dark of the forest to a clearing where I spotted an old Airstream Trailer with boards nailed over the broken windows, its tires sinking deep into the mud. Inside, I heard a horrific growl, like an elephant getting strangled.
 
-“Ready to meet your new roommate?” asked the fat one. 
+“Ready to meet your new roommate?” asked the fat one.
 
-“What if it rips him apart?” 
+“What if it rips him apart?”
 
 “Then that solves a problem, and you can keep your clean conscience.”
 
@@ -50,13 +54,21 @@ For a second I thought about sprinting for the trees, but I figured if I did tha
 
 Inside, everything was black, save for the sparse slants of moonlight peeking in from cracks between the boards. At first, all I noticed was the smell. The creature’s breath reeked of bile and booze, like the worst whiff I’d ever caught off my hungover dad times a thousand.
 
-Of course, there was also the screaming. The alien bellowed at the top of its lungs as it pulled at clanking chains, and for a moment I thought my ears would bleed. 
+Of course, there was also the screaming. The alien bellowed at the top of its lungs as it pulled at clanking chains, and for a moment I thought my ears would bleed.
 
-As my eyes adjusted, I finally caught the first few glimpses of my fellow prisoner. The alien was chained loosely to the far side of the airstream and looked like the 200-pound baby of a sunflower and an octopus. 
+As my eyes adjusted, I finally caught the first few glimpses of my fellow prisoner. The alien was chained loosely to the far side of the airstream and looked like the 200-pound baby of a sunflower and an octopus.
+
+It moved slowly toward me, tensing and ready to pounce. I knew that I was completely at its mercy. I’d once seen a baby deer torn apart by a mountain lion. The cat had grabbed it by the neck, twisting it at an impossible angle, so that the life went right out of its eyes. Then it dragged it back into the woods. A few hours later, I’d find its bloody corpse, half-eaten and still steaming in the snow. I was that deer now, waiting to be torn apart.
 
 Not knowing quite what to do, I held my arms up in surrender. To be honest, I could barely look at the thing. It was like my mind couldn’t make sense of the information my eyes were giving it. If I hadn’t already pissed myself fifteen minutes earlier, I would have right then.
 
-Slowly, the alien stopped screaming and slowly moved toward me reaching the limit of its chains. Then it reached out a tentacle. I put out my hand, and for a minute we touched. Holding hands, the thing seemed to calm down, and I did too, at least a little. 
+Slowly, the alien slowly moved toward me reaching the limit of its chains. Then it reached out a tentacle and twisted it around my arm, gripping it tighter than any human hand. I knew that at its slightest whim, it could pull my arm from its socket.
+
+But it didn’t.
+
+The tip of its tentacle found my hand, and for a minute we touched.
+
+Holding hands, the thing seemed to calm down, and I did too, at least a little.
 
 “We’re in this together,” I whispered. “I help you. You help me.”
 
@@ -72,7 +84,7 @@ Then, and I’m still not 100% sure this really happened, the alien made this cr
 
 I almost wanted to laugh.
 
-“Who the hell am I going to ask for help?” I said. “I’ve got no one. No one. You think I’ve got a fucking cell phone? I barely get breakfast.” 
+“Who the hell am I going to ask for help?” I said. “I’ve got no one. No one. You think I’ve got a fucking cell phone? I barely get breakfast.”
 
 I pushed him away and then turned my pockets inside out, trying to demonstrate how fucking empty they were. Instead, the little black ball popped out and rolled across the floor to him.
 
@@ -88,7 +100,7 @@ Suddenly, the entire roof of the trailer peeled off like a tin can, and a tentac
 
 Around me, the two guys from earlier and their older friend screamed as they writhed in other tentacles. Then, the one around the taller guy constricted, and he just fucking exploded, his body turning to mush, and his head popping clean off like a champagne cork. The whole mess of him fell down into the spinning mouth.
 
-The second guy got tossed in the air, arcing cleanly into the gaping mouth like my dad throwing my old dog a piece of popcorn. He screamed and screamed as he flew through the air and then was suddenly silent. 
+The second guy got tossed in the air, arcing cleanly into the gaping mouth like my dad throwing my old dog a piece of popcorn. He screamed and screamed as he flew through the air and then was suddenly silent.
 
 As for the older guy, he went limp in the tentacle. The alien dropped him into his mouth. He fell like a rag doll, and then disappeared in a faint mist of blood.
 
@@ -106,4 +118,4 @@ I’m older now. I actually live in one of the biggest cities on the planet, Tok
 
 But it’s always been nice to know that I’m walking through life with a trump card in my pocket. Every once in a while, when shit gets real, I reach into my pocket and feel the black ball, thinking about popping it into my mouth.
 
-I guess we could all use a little help sometimes.
+I guess we could all use a little help [sometimes](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
