@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/zsiv5a/i_remember_people_who_dont_exist_part_2/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/zsiv5a/i_remember_people_who_dont_exist_part_2/) . [Part 3](https://www.reddit.com/r/nosleep/comments/zwzyoy/i_remember_people_who_dont_exist_part_3/)
 
 It started with Kyle.
 

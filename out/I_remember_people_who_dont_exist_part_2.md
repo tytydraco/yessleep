@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/znwb3y/i_remember_people_who_dont_exist/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/znwb3y/i_remember_people_who_dont_exist/) . [Part 3](https://www.reddit.com/r/nosleep/comments/zwzyoy/i_remember_people_who_dont_exist_part_3/)
 
 Since I've last spoken to you, three more people have disappeared.
 
