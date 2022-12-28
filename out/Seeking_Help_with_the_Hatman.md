@@ -1,0 +1,15 @@
+I hate having to post on reddit again, and no offence, but I hate having to post on a subreddit like this one, but my post got removed from r/ paranormal and now I'm more desperate than ever for someone to help me. All I ask is that you watch and give me if you can. My title is misleading, I don't think that this is the Hatman that other people have seen. I don't know what it is or what to do. That's why I need you.
+
+Back in late October I started seeing a man with a wide brimmed hat watching me from across the street. That's when I made the posts I mentioned above, you can find them on my profile. I decided to film the next time I saw it but when I uploaded the video to reddit it got removed. I still uploaded it to youtube and have updated there since.
+
+Things have gotten worse now. Now I can barely stand the thought of going outside because getting close to him makes me vomit black ichor that tastes likes ash and blood. I tried to show him to my partner but we just wound up arguing. The first time I told her to leave me alone because she kept on trying to console me like I was crazy which I'm pretty sure I'm not. I brought her out to the woods with me in the middle of the night, someone on the op suggested I take its hat, which is a challenge because I can't get close to it but I hoped that she would be able to.
+
+After walking in the woods for a little bit I spotted him through the trees and tried to get her to approach it but she freaked the fuck out and basically told me I was wasting my life and that all of our friends thought I was just crazy. Then she left me in the woods, alone. I don't know why but I stayed out there. Walking through the snow, still trying to chase it down even though I couldn't fight it on my own. I was sad, and angry and I wanted to fight it.
+
+I saw it again through the trees and chased it but when I pulled out my phone to record it had vanished and I was faced with nothing but my own thoughts. It didn't take me long to realize that I was now lost in the woods. I'm not sure what was real after that point, my mind spiraled into the worst possible contingencies of what would happen to me. I charged through underbrush, freezing cold and feeling abandoned. I swear I heard voices whispering to me then, I can't remember what they said and I think even in the moment they were indistinct but I just felt this horrible crushing feeling that I was going to die out there. That everything was lost.
+
+I was screaming at that point but then, breaking through the underbrush and the chaos came someone. Like an angel she extended her hand and helped me up. She helped me find my way out of the forest and I'm grateful she did but I can't help but wonder as to how she found me out there. She avoided my questions and eventually left me alone once we got to the edge of the forest, asking if I could find my way home from there.
+
+Here's the video I've described: [https://www.youtube.com/watch?v=xd9i-c2WMk4](https://www.youtube.com/watch?v=xd9i-c2WMk4)
+
+Can you help me?
