@@ -1,4 +1,4 @@
-Previously: [https://www.reddit.com/r/nosleep/comments/zs58rc/my\_boss\_has\_been\_taking\_women\_into\_his\_office\_and/](https://www.reddit.com/r/nosleep/comments/zs58rc/my_boss_has_been_taking_women_into_his_office_and/)
+ [Previously](https://www.reddit.com/r/nosleep/comments/zs58rc/my_boss_has_been_taking_women_into_his_office_and/)
 
 &#x200B;
 

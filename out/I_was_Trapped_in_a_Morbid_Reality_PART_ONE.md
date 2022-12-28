@@ -1,4 +1,4 @@
- 
+&#x200B;
 
 The story I'm about to tell will be the last one I share with anyone. Just a warning, this is not a story with a happy ending, and there are some disturbing descriptions of the experience that I had witnessed. That being said, here is my tragic experience.
 
