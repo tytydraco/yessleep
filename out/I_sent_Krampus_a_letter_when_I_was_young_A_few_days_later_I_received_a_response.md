@@ -14,7 +14,7 @@ But the story I’m about to write has nothing to do with him.
 
 He did, however, help me remember it.
 
-For some context, I’ve always been uneasy during Christmas time, and I only really started to celebrate it when my wife, on her death bed, told me to make sure our son would always have a grand Christmas. 
+For some context, I’ve always been uneasy during Christmas time, and I only really started to celebrate it when my wife, on her death bed, told me to make sure our son would always have a grand Christmas.
 
 She died on Christmas eve, and every year since then, I’ve always made sure to go all out on Christmas.
 
@@ -80,7 +80,7 @@ The embarrassment I felt at that moment has yet to be matched, even now, nearly 
 
 I got angry and charged at him, but that pubescent boy had no trouble shoving me to the ground like a rag doll.
 
-I laid on the tarmac, crying both out of pain and out of embarrassment, but mostly the latter. 
+I laid on the tarmac, crying both out of pain and out of embarrassment, but mostly the latter.
 
 I don’t remember much about what happened afterwards.
 
@@ -162,11 +162,11 @@ I read each and everyone (even though it took all of my effort to do so) and, in
 
 &#x200B;
 
-The signature was horrendous. 
+The signature was horrendous.
 
 But also beautiful.
 
-If I had to compare it to something, it would be as if Mozart or Beethoven were stricken by a seizure mid performance but they still continued to play, producing a beautifully vile sound as their genius would not allow for anything less. 
+If I had to compare it to something, it would be as if Mozart or Beethoven were stricken by a seizure mid performance but they still continued to play, producing a beautifully vile sound as their genius would not allow for anything less.
 
 The date was December the 16th, 1992.
 
@@ -242,7 +242,7 @@ I heard the sound of paper rustling, and a deafening silence ensued.
 
 The voice was shaking my insides as though I’d swallowed a speaker playing heavy metal.
 
-“I will leave in due time. I just not with this present.”
+“I will leave in due time. Just not with this present.”
 
 “The hell you are.”
 
