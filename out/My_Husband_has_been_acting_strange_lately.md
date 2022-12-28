@@ -57,3 +57,17 @@ I give up. I have to surrender. I ate every roach, scrap of food, and rat in my 
 
 Day 31:
 I am turning myself in. In two hours, I will give up. I can't stand this anymore. I might as well believe them. Maybe I am destined for more.
+
+Updated Section:
+
+Day 1:
+I need to stop these nightmares. Last night I dreamt that I was killed and sacrificed to a higher being of sorts. My husband isn't here either. Reckon, I hear no man made sounds.
+
+Day 2:
+I don't think it was a dream, there is no evidence of civilization other than my house. The world outside is non-existent.
+
+Day 3:
+I know the truth now. It wasn't a dream. I am in a state of being beyond life. I still don't know where I am. I can't tell if I'm in Heaven, Hell, Purgatory, Asphodel, or something inbetween.
+
+Day 4:
+I send to the world, a final attempt of contact. A digital record of this journal. I hope someone finds this.
