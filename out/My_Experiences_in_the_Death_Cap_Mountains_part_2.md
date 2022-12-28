@@ -1,5 +1,9 @@
 This is part 2 of "My Experiences in the Death Cap Mountains." Part 1 can be found here: [https://www.reddit.com/r/nosleep/comments/zdrmav/my\_experience\_in\_the\_death\_cap\_mountains\_part\_1/](https://www.reddit.com/r/nosleep/comments/zdrmav/my_experience_in_the_death_cap_mountains_part_1/)
 
+&#x200B;
+
+Part 3 can be found here: [https://www.reddit.com/r/nosleep/comments/zwtvvb/my\_experiences\_in\_the\_death\_cap\_mountains\_part\_3/](https://www.reddit.com/r/nosleep/comments/zwtvvb/my_experiences_in_the_death_cap_mountains_part_3/)
+
 “I have a feeling that we haven’t seen the last of them,” I said morosely. Max shook his head.
 
 “As you go farther down the road, they only get worse,” Max replied.
@@ -8,7 +12,7 @@ This is part 2 of "My Experiences in the Death Cap Mountains." Part 1 can be fou
 
 “I’d like to hear about you, Max. I know you gave us the short version of how you ended up here, but I think there’s more to that story.” She looked over her shoulder at the backseat as she drove slowly along the road. Max nodded grimly.
 
-“Well, I guess there is,” Max said brusquely. “The truth is, I did kind of stumble on the road while I was driving around Idaho. But the story starts earlier than that. I used to work for the FBI, after doing top secret work during my military career. Hell, I guess I still do work for the FBI, but I’m sure they are wondering where I’ve been for the past couple months. MIA or KIA, they probably just put me down as another statistic by now. 
+“Well, I guess there is,” Max said brusquely. “The truth is, I did kind of stumble on the road while I was driving around Idaho. But the story starts earlier than that. I used to work for the FBI, after doing top secret work during my military career. Hell, I guess I still do work for the FBI, but I’m sure they are wondering where I’ve been for the past couple months. MIA or KIA, they probably just put me down as another statistic by now.
 
 “We had received reports of strange creatures, including some reports of our friends back there in the woods, but also much more horrific and deadly monstrosities. We even found a snake skin that, if it was from a real snake, would have to be over a hundred feet long and weigh thousands of pounds. How could someone fake such a thing? Crop circles are one thing, but creating a fake snake skin twenty or thirty times longer than a human being is quite another.
 
@@ -30,7 +34,7 @@ As if his words had brought it into existence, the visitor’s center building r
 
 “When I came back out the next morning, someone, or something, had slashed my tires. And that was the end of my car. Seeing as I was about out of gas, it didn’t make much of a difference by that point.
 
-“Whenever I wake up in the visitor’s center, whatever trash I left is gone, muddy footprints are cleaned up and the food and drink is restocked. The bathrooms even look cleaned. But there is never anybody there. I’ve woken up in the middle of the night and searched for these hidden workers but never found anything. Maybe it is some sort of automated process but I think it is more like the magic that sustains the road. It seems to reset and clean the building, for whatever bizarre reason.” 
+“Whenever I wake up in the visitor’s center, whatever trash I left is gone, muddy footprints are cleaned up and the food and drink is restocked. The bathrooms even look cleaned. But there is never anybody there. I’ve woken up in the middle of the night and searched for these hidden workers but never found anything. Maybe it is some sort of automated process but I think it is more like the magic that sustains the road. It seems to reset and clean the building, for whatever bizarre reason.”
 
 By now we had parked in front of the building and just sat in the car, thinking. Max lit a cigarette in the backseat. I pulled out my cell phone and checked the time. 4:49 AM. All of that had happened in just over an hour. It felt much longer to me.
 
@@ -82,7 +86,7 @@ They had no faces. Where their faces should have been was just pure white skin, 
 
 “They’re no friends of ours, I guarantee you that,” he said. “Be ready to put them down. They are not on our side and will likely blow us away the first chance they get. Those things, whatever they are, belong to the road.”
 
-“But how do they see? How do they hear? How do they even breathe? I don’t understand…” I began, but Max shushed me with a slash of his hand. 
+“But how do they see? How do they hear? How do they even breathe? I don’t understand…” I began, but Max shushed me with a slash of his hand.
 
 “Don’t worry about any of that,” he said quietly. “The fact is that, obviously, they can see, and probably can hear too. Otherwise they wouldn’t have been able to drive in here. Don’t underestimate them. They are likely just as dangerous as any normal person with a gun, and maybe much more so, for all we know.”
 
@@ -100,7 +104,7 @@ Rising slowly, I peered through the bottom of the circular window. The SWAT offi
 
 With the element of surprise on our side, the battle went quickly. Max’s first round exploded the bulbous head of the nearest tactical officer, while I fired buckshot at the other SWAT cop. Both fell in a spray of blood. The other two officers tried to retreat behind the aisles holding junk food and snacks, but Max kept firing his AR-15, ripping the aisles apart. I saw one of the regular police try to run but his legs were cut out beneath him as Max and Naomi fired in tandem towards his legs and torso. The other faceless cop army-crawled under the line of fire and raised his gun at us from his prone position on the floor.
 
-“Look out!” I screamed, ducking back into the inventory room. I heard a gunshot and a scream of pain. I got back on my feet and peered out through the window, where I saw a trickle of blood running down Max’s leg. 
+“Look out!” I screamed, ducking back into the inventory room. I heard a gunshot and a scream of pain. I got back on my feet and peered out through the window, where I saw a trickle of blood running down Max’s leg.
 
 “I got him,” Naomi said. Looking across the lobby, I saw a small bullethole in his forehead. The other officer with no legs continued to crawl towards the door, before Naomi walked briskly over and put a shot in the back of his skull. He instantly stopped moving. the pool of blood rapidly widening around him. Pieces of brain matter and shards of skull reflected the harsh fluorescent lights of the visitor’s center.
 
@@ -116,7 +120,7 @@ With the element of surprise on our side, the battle went quickly. Max’s first
 
 \*\*\*
 
-After we had cleaned up with a first aid kit and filled the car with snacks and drinks, we discussed what the next step in our plan should be. I was feeling rather sick and light-headed, and sat down on a stool inside the visitor’s center. 
+After we had cleaned up with a first aid kit and filled the car with snacks and drinks, we discussed what the next step in our plan should be. I was feeling rather sick and light-headed, and sat down on a stool inside the visitor’s center.
 
 “We need to go forward,” Naomi said. “If we can’t get out of here by going back, then we have to keep going and hope we find an exit or at least more information. There must be other people on this road, maybe whole communities of them for all we know.”
 

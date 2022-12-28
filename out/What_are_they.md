@@ -1,6 +1,6 @@
 Give me a moment to explain.
 
-My name is Clay Thompson. I live with my sister and brother-in-law in a large house that sits outside of Synder, Texas. I've been doing remote work ever since the pandemic hit, and have grown accustom to spending most of my time alone. Ever since I went through a bad break-up, I've preferred things this way. For the last few years everything has remained the same for me. I get up, shower, work, and play video games until I fall asleep.
+My name is Clay Thompson. I live with my sister and brother-in-law in a large house that sits outside of Snyder, Texas. I've been doing remote work ever since the pandemic hit, and have grown accustom to spending most of my time alone. Ever since I went through a bad break-up, I've preferred things this way. For the last few years everything has remained the same for me. I get up, shower, work, and play video games until I fall asleep.
 
 At least, until a few days ago.
 
