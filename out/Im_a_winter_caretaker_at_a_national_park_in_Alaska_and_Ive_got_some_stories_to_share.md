@@ -54,4 +54,6 @@ I have more stories, but I’m getting a little tired and it’s about time for 
 
 That’s a strange one.
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/zxm55o/im_a_winter_caretaker_at_a_national_park_in/?utm_source=share&utm_medium=web2x&context=3)
+
 [\->.<-](https://www.youtube.com/@dark_night_tales)

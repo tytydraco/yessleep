@@ -4,7 +4,11 @@ Part 1
 
 [https://www.reddit.com/r/nosleep/comments/zlblgq/comment/j04qhsk/?context=3](https://www.reddit.com/r/nosleep/comments/zlblgq/comment/j04qhsk/?context=3)
 
+part 3
+
 &#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/zxmnv3/the\_sisters\_of\_perdition\_part\_3/](https://www.reddit.com/r/nosleep/comments/zxmnv3/the_sisters_of_perdition_part_3/)
 
 &#x200B;
 
@@ -72,7 +76,7 @@ When we got home for lunch my mother was standing beside her cauldron, with a po
 
 In our house we always had to label our food and their were rules about who could eat who's food too.
 
-If anyone ate my mothers food they got stung by the tarantula hawk fairy in their sleep. My mother would come with a fork and poke you while you slept. My mother was of course allowed to eat whosoever's food she wanted. 
+If anyone ate my mothers food they got stung by the tarantula hawk fairy in their sleep. My mother would come with a fork and poke you while you slept. My mother was of course allowed to eat whosoever's food she wanted.
 
 My father would always say that he never touched anyone else's food, but always did. He even liked to give you things then eat them in front of you.
 
@@ -154,7 +158,7 @@ Recollection dawned in her eyes and she sneered a knowing smile.
 
 "Honey there is some jam in the cellar, could you go get it for breakfast?" she said with a veneer of sweetness.
 
-I went down into the cellar and the door closed behind me locking me in the dark. 
+I went down into the cellar and the door closed behind me locking me in the dark.
 
 "Mom what are you doing let me out!" I called a few times, there was no response. I grappled around in the dark for a few minutes and found a lantern, lighting it.
 

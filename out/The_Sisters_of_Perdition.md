@@ -1,3 +1,13 @@
+part 2
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/zuhbad/the\_sisters\_of\_perdition\_part\_2/](https://www.reddit.com/r/nosleep/comments/zuhbad/the_sisters_of_perdition_part_2/)
+
+&#x200B;
+
+&#x200B;
+
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found the journal of someone named Kyle. After reading it I found this part particularly fascinating and wanted to share it.
 
 RIP Dora Duskwood 1766- 1839 the tombstone read.
