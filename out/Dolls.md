@@ -1,3 +1,5 @@
+[Fear of holes.](https://www.reddit.com/r/nosleep/comments/zvli1w/trypophobia/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 (Video starts rolling)
 
 Clint: "Aaaand we are live. Cass, could you tell us more about what we're doing today?"
@@ -10,7 +12,7 @@ Cass: "Ugh, fine. Just cut this part out later. Today we'll find out on the firs
 
 (Video shows them walking on a lonely street. No one is around except them)
 
-Cass: "As you can see here, no one is around. A few people have gone missing or gotten injuries on this street, and many people think that it's because of this man. Locals call him the Deceiving Gifter, because although he gives gifts, he is also suspected to cause all those missing people and injuries on this street. Turn on the night vision, Clint. We're going into his territory now."
+Cass: "As you can see here, no one is around. A few people have gone missing or gotten injuries on this street, and many people think that it's because of this man. Locals call him the Deceiving Gifter, because although he gives gifts, he is also suspect to cause all those missing people and injuries on this street. Turn on the night vision, Clint. We're going into his territory now."
 
 (The screen now becomes green with more clarity in the footage)
 
@@ -67,4 +69,4 @@ Cass: "Clint! JUST KEEP RUNNING!"
 (The camera is dropped as we see Cass and Clint run away. The Gifter kicks the camera away while chasing them and turns it off)
 
 POLICE REPORT:
-A teenager by the name of Clint Dempsey reported being chased by an entity on [REDACTED] St. known as the Deceiving Gifter. He claimed that another teenager, Cassidy Shay, was with him, but he did not know where she was as he was focused on running. When police went to investigate, they found a camera belonging to Clint Dempsey on the street. In an alleyway between blocks [REDACTED], multiple dolls were found. Each doll was noted to capture the likeliness of a kid or teenager that lived in [REDACTED], with all the dolls being different. When Cassidy Shay's home was searched, a doll resembling her was found on her bed, which was neatly made despite her mother saying that no one had gone into her room since she left. Police are still investigating the street for suspicious characters, and missing persons posters have been put up for Cassidy Shay.
+A teenager by the name of Clint Dempsey reported being chased by an entity on [REDACTED] St. known as the Deceiving Gifter. He also claimed that another teenager, Cassidy Shay, was with him, but he did not know where she was now as he was focused on running. When police went to investigate, they found a camera belonging to Clint Dempsey on the street. In an alleyway between blocks [REDACTED], multiple dolls were found. Each doll was noted to capture the likeliness of a kid or teenager that lived in [REDACTED], with all the dolls being different. When the home of Cassidy Shay was searched, police found a doll resembling said teenager on her bed, which was neatly made. Her parents claimed that no one was seen entering or exiting her room after she left. Police are still investigating the street for suspicious characters, and missing person posters for Cassidy Shay have been put up.
