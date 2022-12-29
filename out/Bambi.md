@@ -244,3 +244,5 @@ My blood runs cold as my eyes dart across the faint sentence left behind on the 
 
 
 *'You're smooth too.'*
+
+Part Two : [here.](https://www.reddit.com/r/nosleep/comments/zyan7i/bambi_part_2/)
