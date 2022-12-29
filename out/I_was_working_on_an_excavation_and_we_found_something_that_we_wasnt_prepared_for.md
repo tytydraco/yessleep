@@ -167,5 +167,3 @@ He grabbed her with one hand, he smashed her into the ground three times breakin
 I woke up in a hospital in the same room as Sam. One of my legs missing, scars and burnmarks over my body. Sam wasn't better, as she told me she needed a surgery because of how much wood debris drilled into her abdomen. She said my left leg was in a worse shape, so it was amputated, the debris is also the cause of our scars. We spent a whole month in the hospital recovering, and planning for the future.
 
 As I'm writing this I'm out of the hospital and gearing up for a trip to end an unfinished business. Let's go to the Bakony! Who's coming?
-
-(Thank you for reading! It's my first time posting here and English isn't my first language, so there are plot and grammar mistakes plus over explanation. I want your honest opinion and critics are welcome, at least it's a learning opportunity.)
