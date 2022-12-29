@@ -82,5 +82,5 @@ I really didn't want to find it out. I had to scape.
 
 -Not taking so long, my time arrived, the doors opened and I run as fast as an olympic runner, when I heard a voice telling me to stop. It was that girl. I started to pale when I saw where I had run through. A cash register with the number "87" above it was right on my way. I fainted. 
 
--Now, I'm here, alone, waiting for something to happen I guess, in an endless room with the supermarket's appearence, just that and me. I hope that if this messagge reaches a sane person, it will be enough for them to stay away of this place. 
+-Now, I'm here, alone, waiting for something to happen I guess, in an endless room with the supermarket's appearence, just that and me. I hope that if this messagge reaches a sane person, it will be enough for them to stay away from this place. 
 I don't know if I will return, but if I do, my life will surely be a nightmare, I still have this stupid paper with me.
