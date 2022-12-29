@@ -81,9 +81,3 @@ The beautiful woman Pete had been walking with literal moments before was sprawl
 &#x200B;
 
 After another minute of me adding to the mess on the ground, Boston grabbed some of the newspaper that littered the ground and used it to clean my mess before calling the police. It was smart, we didn't want any evidence that we had been here when the cops showed up. My head was spinning as we walked together towards the university, where my car was waiting. My throat burned. I was exhausted. I was beginning to regret getting involved. Then I remembered Heather. Finding her dead like that, and how little the cops put in to investigating it. To this day it's still unsolved, a cold case. I couldn't make myself drop this. I guess my curiosity is just too strong.
-
-&#x200B;
-
-&#x200B;
-
-[Next](https://www.reddit.com/r/nosleep/comments/zxip0j/my_boss_has_been_taking_women_into_his_office_and/)
