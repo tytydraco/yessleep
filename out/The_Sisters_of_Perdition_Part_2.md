@@ -8,7 +8,7 @@ part 3
 
 &#x200B;
 
-[https://www.reddit.com/r/nosleep/comments/zxmnv3/the\_sisters\_of\_perdition\_part\_3/](https://www.reddit.com/r/nosleep/comments/zxmnv3/the_sisters_of_perdition_part_3/)
+[https://www.reddit.com/r/nosleep/comments/zxpsz6/the\_sisters\_of\_perdition\_part\_3/](https://www.reddit.com/r/nosleep/comments/zxpsz6/the_sisters_of_perdition_part_3/)
 
 &#x200B;
 
