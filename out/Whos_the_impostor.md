@@ -1,0 +1,19 @@
+I know I have to post this soon because I'm slowly starting to forget my time in that space. The title must have been weird, but I could not think of anything more appropriate than that. I'm going to try to make this as comprehensible as possible, but every time I think about "that," my hands are so heavy that even typing this would probably take a very long time. So please, please, I'm begging you, help me. 
+
+I have always hated mirrors. No, that's not right; it's not the mirror that I hate, but my reflection that stares back at me in the mirror. I don't know why, but something just feels off when I stare at myself....somehow...*I don't think that's me.*.. would always pop out in my mind... 
+
+One time, I decided to finally face this unfounded fear that I have. I mean, I can't just live my life fearing my own reflection in the mirror! that's crazy! Nowadays, we see our reflection almost everywhere: in mirrors, on cameras, in the reflection on the floor, in the car, on any reflective surface... I couldn't avoid it forever, so I did... I stared back at my reflection in the mirror... 
+
+I smiled, and she smiled back; I put on a sad face, and she did the same; I was supposed to be relieved that it was following whatever I did, but the longer I stared at my reflection, the more terrified I became, and then I blacked out. 
+
+When I regained consciousness, I was in a very dark place. I could not see anything except a small window of light. I saw my own bathroom, the door, the curtains beside it, and my bathtub through that window. But my perspective was weird. It did not take me long enough to panic and realize I was inside my mirror. I tried going out of that window, but I could not. It was like an invisible force was keeping me there, and I could not break it. 
+
+Then I saw her. She briefly looked at the mirror, *or maybe she looked at me* and then smirked. I saw how that person tried to avoid looking at the mirror as best she could. I don't know how many days I've been trapped in that place, but I saw how she slowly adapted my life. She, like me, was initially wary of the mirror or any reflective surfaces, but it appears that as time passed by she had forgotten I even existed. 
+
+I overheard her mumbling and telling herself that she is so silly that she is afraid of her own reflection in the mirror... Her recollection of her time in that space seemed to fade gradually... then it happened, my only opportunity to go back outside... she did what I did at the time: stare at the mirror for an extended period of time... so I mimicked her gestures in front of the mirror...I saw her fear grow the longer she stared at me. Then she blacked out. 
+
+I pulled her inside the mirror and then got back out. When I did, I covered all the mirrors in my house and any reflective surfaces that I could find. Now, as I'm writing this, I've set my laptop to the highest brightness so that I cannot see any sort of reflection in the screen, but I'm scared. I'm starting to forget bits and pieces of what had happened, and I'm starting to wonder: who is the "real" one? Who's the impostor between the two of us? What if this is not the only time this has happened? What if I'd been in that space before, come out, and forgotten? What if I forget this experience as well and stare at my reflection in the mirror again? I don't want to go back and experience that again. 
+
+I have kept a diary of what happened, but I feel like I would have a higher chance of not forgetting if other people also knew about my experience and if i post this on a social media. But not just any social media, somewhere that other people would not find my experience weird or call me crazy...
+
+I came across this page...the rules and regulations fits what i need.... Please help me remember, or I will forget and go back into that space again and she will be here...in my place
