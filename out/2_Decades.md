@@ -1,5 +1,11 @@
 2 Decades.
 
+I’ve been hesitant to post this anywhere because the police could find it so easily, I’m currently stuck in the hospital for recovery. They gave me devices that they hand out to patients, you know, like the stuff they give to people before they supposedly die. I’ve tried to spread this for years, and I felt like this could get it out further.
+
+My mental health has been declining, and they thought that maybe trying to contact my friends and talk to them could help. Well, I guess I’m betraying their trust then. I’ve been documenting it for so long just to write this, I only have a few hours though.
+
+I’ve tried to warn everyone, but nobody believes me. I hope the people here can understand and spread this quickly as possible, or it might be too late. They all think I’m going to die soon, this is my last chance to get it out. But it might just be too late.
+
 It’s been 20 years since I’ve seen my family. I don’t know how or where they’ve gone but I can’t seem to find any of them anywhere. The last place they went to was a church in Boston. We’ve always lived in the suburbs, but barely went to the city. I could never find even a single trace of any of them anywhere. I was beginning to question my whole life because of it.
 
 I checked everywhere, every restaurant, every building, every campus, people were beginning to think I was insane. My family was gone and there was nothing I could even do about it. I tried to scour my mind to find a hint, or maybe just a reason why they would’ve ditched me. But all I could think about is if they’re dead or not. I couldn’t think of any reason why or any single thing that could’ve made this happen.
