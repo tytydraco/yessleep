@@ -1,6 +1,6 @@
- [Part 1](https://www.reddit.com/r/nosleep/comments/zr7t7b/im_a_winter_caretaker_at_a_national_park_in/?utm_source=share&utm_medium=web2x&context=3)
+[Part 1](https://www.reddit.com/r/nosleep/comments/zr7t7b/im_a_winter_caretaker_at_a_national_park_in/?utm_source=share&utm_medium=web2x&context=3)
 
-Hey, all. It’s me again. 
+Hey, all. It’s me again.
 
 First of all, wow. I didn’t expect this sort of response.
 
@@ -20,7 +20,7 @@ Since I mentioned it in my previous post, I’ll start off with the bears.
 
 So, you probably already know this, but Alaska has some of the largest and most dangerous bears in the entire world. Fortunately, the Kodiak and the Polar bear aren’t generally found inland up here, but we still have more than our fair share of Grizzlies and large Black bears, both of which are apex predators and will make quick work of the unwary or unprepared.
 
-Now, since my contract covers the colder winter months, most of these bears are hibernating during my time here. That being said, not all bears hibernate, especially if they’re in an area of plentiful food supply. Also, even when they are hibernating, they’ll still become active from time to time, so you definitely can’t let your guard down if you want to stay on this side of the grave. It's a pretty safe bet that anyone who works up here, especially alone, tends to carry a rifle as well as a large-caliber handgun whenever they’re outside of their cabin. I’m no exception to that. I carry a 45-70 lever-action over my shoulder and a .500 magnum revolver in a chest holster. 
+Now, since my contract covers the colder winter months, most of these bears are hibernating during my time here. That being said, not all bears hibernate, especially if they’re in an area of plentiful food supply. Also, even when they are hibernating, they’ll still become active from time to time, so you definitely can’t let your guard down if you want to stay on this side of the grave. It's a pretty safe bet that anyone who works up here, especially alone, tends to carry a rifle as well as a large-caliber handgun whenever they’re outside of their cabin. I’m no exception to that. I carry a 45-70 lever-action over my shoulder and a .500 magnum revolver in a chest holster.
 
 At first glance, it may seem like overkill. That is a tremendous amount of firepower, after all.
 
@@ -30,9 +30,9 @@ The reason I mention all this isn’t to give you the impression that they’re 
 
 So, all that being the case, I’m sure you’ll understand what it means when I tell you that *something* is killing big Grizzlies out here. I’m not talking about poachers or indigenous hunters or anything like that. I’m talking about *something*. As in, *not* humans and definitely not hungry wolves.
 
-But let me back up a step. My first season up here as a winter caretaker was a hell of a learning experience. Just trying to figure out the necessary maintenance routines and learning to navigate around my area of responsibility was a little overwhelming. One day, I was returning from making my rounds out to one of the ranger stations that was shut down for the winter and ended up taking a wrong turn on the trail. By the time I realized my mistake, I was already a fair distance along the new path and wandering into unfamiliar territory. 
+But let me back up a step. My first season up here as a winter caretaker was a hell of a learning experience. Just trying to figure out the necessary maintenance routines and learning to navigate around my area of responsibility was a little overwhelming. One day, I was returning from making my rounds out to one of the ranger stations that was shut down for the winter and ended up taking a wrong turn on the trail. By the time I realized my mistake, I was already a fair distance along the new path and wandering into unfamiliar territory.
 
-Just as I was getting ready to turn around and retrace my steps, I topped a rise and was suddenly faced with the unmistakable form of a Grizzly, not thirty feet along the path ahead and facing away from me. 
+Just as I was getting ready to turn around and retrace my steps, I topped a rise and was suddenly faced with the unmistakable form of a Grizzly, not thirty feet along the path ahead and facing away from me.
 
 I’ve got to tell you – I almost pissed myself as I fumbled to unsling the rifle from my shoulder. It’s a damned good thing I didn’t actually need it at that moment, because I discovered to my dismay that I had stupidly slung my shoulder pack over top of the rifle sling, effectively trapping it against my body.
 
@@ -40,7 +40,7 @@ Stupidity and complacency are what get you killed out here, folks, and I could h
 
 As it turns out, the bear wasn’t moving. It was just standing there perfectly still, its hind quarters facing me, and I knew instinctively that something was wrong with it. Giving up on my rifle, I grabbed my handgun from its holster and cautiously approached the Grizzly, my eyes intent on the bear and prepared for the slightest hint of movement. The closer I got to it, though, the more I certain I became that it wasn’t going to suddenly lunge at me and give me a lesson on exactly where on the food chain I placed.
 
-Here's where it gets surreal. Before I got close to it, I had already recognized that it was dead. What I couldn’t explain was why it was still standing. 
+Here's where it gets surreal. Before I got close to it, I had already recognized that it was dead. What I couldn’t explain was why it was still standing.
 
 It had clearly been there a while, as there were no paw prints leading up to it in the snow and, as I rounded to the front of it, I could see the flesh around its muzzle was already starting to decompose and pull back from its skull. When I got a good look at it, I could also see that it was missing tufts of fur here and there. Despite all that, it was still standing, like it had died and just forgotten to fall down.
 
@@ -50,25 +50,25 @@ It was then that I realized a couple of things: firstly, that there were Grizzli
 
 I reported the find to the ranger station and heard back later from Rick that there had been nearly a dozen other similar discoveries within that general area in the last two months. The NPS had even brought in some fancy zoological pathologists from Anchorage to figure out what had killed the bears. They spent two weeks in the field with the rangers examining the carcasses and then one morning they were just gone – they had apparently been abruptly recalled without so much as a ‘by your leave’. Immediately after that, the carcasses were destroyed, and the investigation shut down.
 
-A week later, a rushed and astonishingly brief report came back indicating, “death by natural predation – no further investigation indicated”. 
+A week later, a rushed and astonishingly brief report came back indicating, “death by natural predation – no further investigation indicated”.
 
 *Natural predation.* I’m not sure how a predator could have killed the bear I found without leaving a single mark on it or trace of blood, let alone somehow keep it standing upright after death and then deciding it wasn’t even going to feed on the kill.
 
 I call bullshit, and so did the rangers.
 
-Rick told me his boss had tried to contact the pathologists for more information but was told that they had all been reassigned and were no longer working with the Parks Service. 
+Rick told me his boss had tried to contact the pathologists for more information but was told that they had all been reassigned and were no longer working with the Parks Service.
 
 Not one to easily give up, Rick’s boss tried calling a private cell number he had gotten from one of the pathologists during their visit. It went to a disconnected message indicating the phone was no longer in service. This was strange, because he had just spoken to the investigator using that very number only a couple weeks prior, so he knew it was a good number.
 
-But, late that night, he received a call from an unknown caller. When he answered it, he recognized the hushed voice of the pathologist he had befriended, sounding like they were whispering into their phone. 
+But, late that night, he received a call from an unknown caller. When he answered it, he recognized the hushed voice of the pathologist he had befriended, sounding like they were whispering into their phone.
 
-“Leave it alone. Forget about it,” was all they said before the line went dead. He tried calling the number back several times, but it just went to dead air each time. That was the last time he heard anything about it. He tried following up within the NPS, but somehow nobody was able to find records that such an investigation had ever existed or even that any reports of the dead bears had been filed in the first place. 
+“Leave it alone. Forget about it,” was all they said before the line went dead. He tried calling the number back several times, but it just went to dead air each time. That was the last time he heard anything about it. He tried following up within the NPS, but somehow nobody was able to find records that such an investigation had ever existed or even that any reports of the dead bears had been filed in the first place.
 
 Rick told me that, for a while, it was all his boss wanted to talk about – it had become like a splinter in his hand that he couldn’t ignore. He called anyone he could think of in the chain of command at the NPS and any other agencies he thought might be able to provide some clue about what was going on but couldn’t make an inch of headway.
 
 Then, one day, he just stopped talking about it, like a switch had been thrown. One evening, Rick and his boss were having beers at a local bar after their shift and talking about how strange the whole thing was.
 
-And then the next morning, his boss walked in, looking a little shaky and out of sorts, went into his office and closed the door, and didn’t say two words to Rick that day. 
+And then the next morning, his boss walked in, looking a little shaky and out of sorts, went into his office and closed the door, and didn’t say two words to Rick that day.
 
 He never mentioned the incident again. A few times Rick had brought it up in conversation with him later on and his boss just brushed the whole thing off and changed subjects, looking very uncomfortable about the whole thing.
 
@@ -90,7 +90,7 @@ An hour later, we came upon the place. I was surprised to see this perfectly pre
 
 Something about the place seemed off, though. Somehow, I knew that nobody lived there – that nobody had lived there in a long time. I can’t explain it, but at that moment, I had this strange feeling that we weren’t welcome here, like something was telling me to turn around and head back while I still could.
 
-Before I had the chance to open my mouth about it, Rick turned to me and pointed towards the closed front door, where I could clearly see the boot prints at its threshold. 
+Before I had the chance to open my mouth about it, Rick turned to me and pointed towards the closed front door, where I could clearly see the boot prints at its threshold.
 
 “Come on,” he said over the wind that had just blown up, and I could see the grim set to his expression before he turned away from me and started making his way towards the door.
 
@@ -104,7 +104,7 @@ I nodded at him, more confused than anything else, but that wasn’t good enough
 
 We stepped through the doorway into the darkened room beyond. As soon as we did, I was overwhelmed by the stench of decay, mixed with the strong scents of herbs and something else, something sickly riding just under the surface of all that.
 
-My eyes had just started to adjust to the dim light of the interior, and I was able to make out the sparse furnishings of the room – an old rickety table with a solitary low-backed chair in front of a cold stone fireplace. Along the far wall, I thought I could just make out a cot, but I couldn’t be sure. 
+My eyes had just started to adjust to the dim light of the interior, and I was able to make out the sparse furnishings of the room – an old rickety table with a solitary low-backed chair in front of a cold stone fireplace. Along the far wall, I thought I could just make out a cot, but I couldn’t be sure.
 
 “*Dammit. It’s happened again*,” Rick said, almost under his breath, and the tone of warning in his voice drew my attention immediately. I turned to find him kneeling next to the desiccated husk of a man’s body, dressed in gray snowpants and a red down jacket, slumped back against the wall. It looked like it had been there for years, and I stumbled backwards in shock without realizing it.
 
@@ -114,7 +114,7 @@ Rick picked up something that was resting on the floor near the man’s skeletal
 
 I was more than a little confused. The body we were looking at was almost mummified – it had clearly been there a long time, and I told him as much. Not to mention the fact that there was only one of them; if it was possible that this *was* the father, that still meant that the son was somewhere out here.
 
-“It’s too late, John,” was all he said, pressing something into my hands as he passed me and stepped out the door. I looked down and realized I was holding a small notebook, like the kind a person might keep in their pocket just in case they needed to write something down. 
+“It’s too late, John,” was all he said, pressing something into my hands as he passed me and stepped out the door. I looked down and realized I was holding a small notebook, like the kind a person might keep in their pocket just in case they needed to write something down.
 
 Numbly, I flipped it open. It was mostly empty, except for the first two pages, which were scrawled in a sloppy cursive in pencil. I don’t have it anymore, so this is going to be as well as I remember it, but it should be close enough that you get the gist of it:
 
@@ -132,7 +132,7 @@ Numbly, I flipped it open. It was mostly empty, except for the first two pages, 
 
 As it turns out, we did end up heading back to my cabin. Rick radioed the S&R team that he’d found the hikers in the *lodge*, and the person on the other end paused a long moment before replying with a simple acknowledgement.
 
-No questions. 
+No questions.
 
 Nothing else.
 
@@ -140,11 +140,11 @@ Just, “Acknowledged, Rick.”
 
 We didn’t say much to each other that night. We just sat in front of my fire and drank the rest of my Jameson until we both passed out.
 
-When I returned to consciousness the next morning, Rick had already gotten up and left. 
+When I returned to consciousness the next morning, Rick had already gotten up and left.
 
 We haven’t spoken about it since that day. The notebook was gone when I awoke, so I assume he took that with him. Clearly, he knows something about what happened, about that cabin, but I’ve never asked him about it.
 
-I’m not too sure I really want to know. 
+I’m not too sure I really want to know.
 
 It’s hard enough to sleep at night out here sometimes.
 
@@ -154,6 +154,4 @@ I’d rather not have to deal with the damage if the roof collapses, so I’d be
 
 I’ll write some more soon.
 
-Good night, all.
-
- [\->.<-](https://www.youtube.com/@dark_night_tales)
+[Good night, all.](https://www.youtube.com/@dark_night_tales)

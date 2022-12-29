@@ -52,8 +52,8 @@ Max won’t even go anywhere near it; he’ll start whining as soon as we start 
 
 I have more stories, but I’m getting a little tired and it’s about time for me to get some sleep; tomorrow I need to head out to the cabins by the frozen lake and make sure their roofs are clear. I'll write more later. Next time I’ll tell you about the dead bears.
 
-That’s a strange one.
+[That's a strange one.](https://www.youtube.com/@dark_night_tales)
+
+&#x200B;
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/zxm55o/im_a_winter_caretaker_at_a_national_park_in/?utm_source=share&utm_medium=web2x&context=3)
-
-[\->.<-](https://www.youtube.com/@dark_night_tales)
