@@ -304,7 +304,7 @@ The vessel pulled up to the dock and the crew disembarked. They rushed about, de
 
 'So you haven't heard of anybody ever set foot here.'
 
-'Nope. Unless you are talking about Baldur and Hadur.'
+'Nope. Unless you are talking about Baldur and Hodur.'
 
 'You said Baldur?' My jaw dropped in shock.
 
@@ -314,7 +314,7 @@ I swallowed.
 
 'Who...who are they? I haven't heard of them but it sounds interesting,' I lied.
 
-'They are divine twin brothers, the sons of Odin. Baldur is the God of Light, Hadur is the God of Darkness. Baldur is a beloved God who was always mocked by his jealous brother. Hadur believed that humanity fight, destroy, and kill, they are greedy and corrupt and never change. Baldur on the other hand believed that humanity has a good nature inside. To prove their point, they agreed they would be willing to die at the hand of a human one day so they would leave the decision to a human based on his morals. The one left alive would be set free and leave this island.
+'They are divine twin brothers, Baldur is the God of Light, Hodur is the God of Darkness. Baldur is a beloved God who was always mocked by his jealous brother. Hodur believed that humanity fight, destroy, and kill, they are greedy and corrupt and never change. Baldur on the other hand believed that humanity has a good nature inside. To prove their point, they agreed they would be willing to die at the hand of a human one day so they would leave the decision to a human based on his morals. The one left alive would be set free and leave this island.
 
 You see, they cannot kill each other. They can torture each other, they can inflict wounds and cause physical pain to each other but they will heal and cannot die. Neither can they leave the island together. It's either one of them or none of them. As long as they are on this island, the world is in balance and the duality of good and bad is maintained. But of course, there are many other versions of this legend, this is just one of the many.'
 
@@ -340,6 +340,6 @@ Of course, both of them claimed to be Baldun. The evil brother tricked me. Two t
 
 But it is also possible that he was Hodun and he pretended to be the victim. Which means that I killed the real Baldun and now the evil one is free. This idea sends chills down my spine.
 
-I have become obsessed and I have been combing through the island since that night, searching for whatever they had left behind. So far, I have found nothing. My hope that I will find a treasure chest is fading away. Neither did I find anything on the Internet about this. However, an article mentioned that they could sometimes appear in storms as electricity had something to do with their materialisation.
+I have become obsessed and I have been combing through the island since that night, searching for whatever they had left behind. So far, I have found nothing. My hope that I will find a treasure chest is fading away.
 
-At the same time, I am watching the worldnews to find a clue about the future waiting for us and to find out which one of them I murdered that night.
+At the same time, I am watching the worldnews to find a clue about the future waiting for us and to find out which one of them I accidentally killed that night.
