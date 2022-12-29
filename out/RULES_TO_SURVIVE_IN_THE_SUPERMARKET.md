@@ -56,3 +56,31 @@ Please, do not make things difficult neither for you nor our clients and follow 
 -  I was aghast… What the heck did I just read? I stopped looking at the paper just to find out that I was alone. I couldn't get where would have people gone until my brain decided to pay attention to was I was listening through the speakers:
 
 8… 7… 6… 5… 4… 3… Shit.
+
+-All lights suddenly turned off. I couldn't believe they weren't joking. 
+Alone against the unknown I tried to keep calm, firstly, checking my cellphone to call for some help. No signal was there. I started to feel that I had to run, but I couldn't move until I heard strong footsteps coming directly to me, but it was too late.
+
+-I was taken by hands with a texture I find very hard to describe. Those were the longest 2 minutes of my life, until the light came back. 
+I had no clue where was I, but according to what I difficultly saw through the windows, I was at that damn office the rules mentioned, sat on a chair.
+
+-I could recognise a human voice in the room next to me, when the door it connected them both opened. The ugliest and most terrifying man I had ever seen appeared just to sit on his desk. He started to write on some kind of documents, but without taking an eye off me. It was a long time ago since I was that scared.
+
+-Although I spent hours inside that office, I couldn't relax at any moment, I was starting to feel really tired,  my body and mind demanded to me some rest. That sense of tiredness was suddenly interrupted by screams, followed by the light turning off again. How was i handling it all that preassure? I have no idea, but it surely helped when I saw a girl right next to me, we both were in the same situation. Some may think that it's arrogant, but one part of me was happy to have some "human" company with me.
+
+-The supermarket closed, and the man writing the documents stood up of his chair. I was amazed when I found out I ignored how enormous he was.
+He grabbed us with his hands to go to other place. How could we escape from such beast? 
+
+-Appearently, we were on the zone where meat was produced. The first thing which caught my attention were the jars. Hundreds of them were through all the place, filled with, as you may think, meat. Was it human? Were those jars the products the rules said  "humans would not consume"?
+I really didn't want to find it out. I had to scape.
+
+-Every scenario I imagined ended in a fatal way, but I had to try. I didn't want to became food for who knows what. Only two "cheffs" were with us, they were as horrific as the man who brought us here. We had the advantage that we were able to move, we were sitting only with the limit of our fear.
+
+-I could beat it, I standed up and started running to the only window being there, plannig to break it with the chair. Those creatures seemed not to be concious at all, it was the perfect opportunity, until I remembered about the girl. I yelled at her to hurry up once, twice, she didn't react. Anyways, I don't know about her, but I wanted to live. 
+
+
+-Again where all started, I had to find an exit, but everything was locked. It couldn't had been that easy. I heard some vehicles outside, they were being received by some employees to get some new products. I only had to wait. 
+
+-Not taking so long, my time arrived, the doors opened and I run as fast as an olympic runner, when I heard a voice telling me to stop. It was that girl. I started to pale when I saw where I had run through. A cash register with the number "87" above it was right on my way. I fainted. 
+
+-Now, I'm here, alone, waiting for something to happen I guess, in an endless room with the supermarket's appearence, just that and me. I hope that if this messagge reaches a sane person, it will be enough for them to stay away of this place. 
+I don't know if I will return, but if I do, my life will surely be a nightmare, I still have this stupid paper with me.
