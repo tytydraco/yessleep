@@ -1,8 +1,16 @@
- part 2
+part 2
 
 &#x200B;
 
 [https://www.reddit.com/r/nosleep/comments/zuhbad/the\_sisters\_of\_perdition\_part\_2/](https://www.reddit.com/r/nosleep/comments/zuhbad/the_sisters_of_perdition_part_2/)
+
+&#x200B;
+
+part 4
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/zylaes/the\_sisters\_of\_perdition\_part\_4/](https://www.reddit.com/r/nosleep/comments/zylaes/the_sisters_of_perdition_part_4/)
 
 &#x200B;
 
@@ -36,9 +44,9 @@ I started yelling at Kyle and Sean came out of the shadows
 
 "Is that any way to speak to your brother?" he scolded.
 
-I was dumbfounded. I felt attacked and betrayed by my whole family. There was no allies in the room. 
+I was dumbfounded. I felt attacked and betrayed by my whole family. There was no allies in the room.
 
-I stood there yelling with my entire immediate family staring back at me with scornful, blank stares. 
+I stood there yelling with my entire immediate family staring back at me with scornful, blank stares.
 
 I eventually got tired of yelling and sat down to eat the food I did have.
 
@@ -92,6 +100,6 @@ After that it was back to plan A and I headed to Auntie Die’ and uncle Mike’
 
 I had walked for hours on the road by this point, but didn't see anyone and got an eerie feeling. I was so tired by the time I got to their house and knocked on the door that I could hardly breath.
 
-When the door opened my mother and autie Die were standing there cackling. My mother clubbed me in the head and knocked me out.
+When the door opened my mother and auntie Die were standing there cackling. My mother clubbed me in the head and knocked me out.
 
 I woke up in Auntie Die's basement. There are no windows in this one. All that's down here is a lantern with a journal and a bunch of mirrors. Dora is watching me and it really scares me.
