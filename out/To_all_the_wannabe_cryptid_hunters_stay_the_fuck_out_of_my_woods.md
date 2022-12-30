@@ -152,3 +152,5 @@ First off, if you happen to be the person who first discovered these woods and s
 Secondly, and this is for all the others, if you’ve heard of my or any other haunted woods for that matter, don’t go exploring. It’s not worth it. Since you’re so curious to see what’s in here, I'll tell you online, at a safe distance.
 
 [X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/zyzp01/a_warning_to_the_wannabe_cryptid_hunters_yuletide/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
