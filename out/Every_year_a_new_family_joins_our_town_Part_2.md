@@ -196,7 +196,7 @@ Finally, I whispered.
 
 With a sudden move, he turned around and our eyes met. I can't say which of us looked more distressed. 
 
-"They are growing corpses, you die the second you step foot here," he said. 
+"They are growing corpses, you die the second you set foot here," he said. 
 
 "Wha-?" 
 

@@ -154,4 +154,6 @@ I’d rather not have to deal with the damage if the roof collapses, so I’d be
 
 I’ll write some more soon.
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/zzc6c6/im_a_winter_caretaker_at_a_national_park_in/?utm_source=share&utm_medium=web2x&context=3)
+
 [Good night, all.](https://www.youtube.com/@dark_night_tales)
