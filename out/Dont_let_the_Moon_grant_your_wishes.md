@@ -1,4 +1,4 @@
-The year was 2002. I was a young man who had become detached from a tour group in the midst of the Australian Outback. After a few hours, I started to succumb to dehydration. I was envisioning a plodding, laboured death in the heart of nowhere, but that didn’t happen. It seemed like a mirage, but \*the Moon spoke to me\*. Looking upon me with far-flung craters, which felt like remote eyes, the talking rock said it could save me. I followed a misty, moonlit trail across the arid landscape, and I eventually stumbled onto the town I’d been trying to find.
+The year was 2002. I was a young man who had become detached from a tour group in the midst of the Australian Outback. After a few hours, I started to succumb to dehydration. I was envisioning a plodding, laboured death in the heart of nowhere, but that didn’t happen. It seemed like a mirage, but *the Moon spoke to me*. Looking upon me with far-flung craters, which felt like remote eyes, the talking rock said it could save me. I followed a misty, moonlit trail across the arid landscape, and I eventually stumbled onto the town I’d been trying to find.
 
 Later that night, in my hotel bed, the Moon called to me. It offered three wishes. I rushed to the window, confused as to how my replenished body, now fed and watered, could still be hallucinating. And yet, I somehow knew that it was real. I knew the Moon had saved me from the desert. *What do I have to lose by making some wishes to find out?*
 
@@ -24,7 +24,7 @@ The ideal wishes seemed obvious.
 
 More money than anyone could ever need. Obviously, I couldn’t shower loved ones with wealth. I kept my job to support my family, but I used the riches to support my own needs.
 
-*There’s always a catch with wishing. Becoming the wealthiest man on earth will make me a target.*When I realised that, I had the idea for my second wish.
+\*There’s always a catch with wishing. Becoming the wealthiest man on earth will make me a target.\*When I realised that, I had the idea for my second wish.
 
 **Safety.**
 
@@ -86,6 +86,6 @@ That explained the lightness in my chest, but it didn’t explain the fear on my
 
 “- Maisie,” My wife interrupted, now bawling. “This evening, she was in an accident. She… She… She didn’t…”
 
-Wendy didn’t need to finish any of her sentences. I knew what had happened to my daughter. I knew whose heart was in my chest.
+Wendy didn’t need to finish any of her sentences. I knew what had happened to our daughter. I knew whose heart was in my chest.
 
 I knew what the Moon had done to grant my wish.
