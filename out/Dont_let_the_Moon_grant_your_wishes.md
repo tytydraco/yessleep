@@ -24,7 +24,7 @@ The ideal wishes seemed obvious.
 
 More money than anyone could ever need. Obviously, I couldn’t shower loved ones with wealth. I kept my job to support my family, but I used the riches to support my own needs.
 
-\*There’s always a catch with wishing. Becoming the wealthiest man on earth will make me a target.\*When I realised that, I had the idea for my second wish.
+*There’s always a catch with wishing. Becoming the wealthiest man on earth will make me a target.* When I realised that, I had the idea for my second wish.
 
 **Safety.**
 
@@ -68,7 +68,7 @@ Fear gripped me.
 
 Before the creature evaporated, its white, lifeless lips curled upwards into a malevolent grin. The almost-human expression filled me with a feeling of terror which cannot sufficiently translate to words.
 
-Suddenly, I realised the dread in my heart was more than dread. *Oh, no*, I thought, as I clutched my chest. *It’s happening.* An invisible blade twisted into my heart, and I felt my body seize. Blackness swallowed my surroundings. My vision faded. *Just one more time*, I remember thinking. *Let me see Wendy and Maisie one more time.*
+Suddenly, I realised the dread in my heart was more than dread. *Oh, fuck*, I thought, as I clutched my chest. *It’s happening.* An invisible blade twisted into my heart, and I felt my body seize. Blackness swallowed my surroundings. My vision faded. *Just one more time*, I remember thinking. *Let me see Wendy and Maisie one more time.*
 
 When I woke, I was in a hospital room. My chest felt light. It was the healthiest I’d felt in weeks. Wendy was sitting at my bedside, tears flooding her vacant eyes, and a smile was forcefully painted on her pale face.
 
