@@ -156,7 +156,7 @@ One day, I may forget the beast. But I will never forget the look in my mother's
 
 &#x200B;
 
-I watched the creature grab her by the torso, hooking the teeth embedded into its hands into her flesh, and drag her toward it. I saw it begin to stuff her down its throat, and I heard the sound of her flesh squishing as it chewed her with a horrible, undulating motion. I could see its neck pulsating as it crushed her and I could hear her garbled, miserable cry of pain as it ate her alive. I couldn’t watch any more… All I could do was turn and run, and as I did I saw the creature's beady black eyes move slightly to focus on me.
+I watched the creature grab her by the torso, hooking the teeth embedded into its hands into her flesh, and drag her toward it. I saw it begin to stuff her down its throat, and I heard the sound of her flesh squishing as it chewed her with a horrible, undulating motion. I could see its neck pulsating as it crushed her and I could hear her garbled, miserable cry of pain as it ate her alive. I couldn’t watch any more… All I could do was turn and run, and as I did I saw the creature's head tilt slightly in my direction.
 
 &#x200B;
 
