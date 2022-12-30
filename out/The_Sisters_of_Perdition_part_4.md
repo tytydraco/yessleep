@@ -60,7 +60,7 @@ A bunch of klansmen gathered around her and her three sons, who stood there shir
 
 6 klansmen came out of the crowd with saws and they started cutting off their limbs.
 
-“Scott’s strong neck and back, Sean’s strong arms, and Kyle’s strong legs! The perfect son we will create!” she screamed.
+“Scott’s strong neck and back, Kyle burly arms, and Sean’s stocky legs! The perfect son we will create!” she screamed.
 
 They then started assembling their monster and sewing the pieces on.
 
