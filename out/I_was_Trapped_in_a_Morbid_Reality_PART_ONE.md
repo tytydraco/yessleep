@@ -1,4 +1,4 @@
-&#x200B;
+[FINALE PART](https://www.reddit.com/r/nosleep/comments/zysw71/i_was_trapped_in_a_morbid_reality_final_part/?utm_source=share&utm_medium=web2x&context=3)
 
 The story I'm about to tell will be the last one I share with anyone. Just a warning, this is not a story with a happy ending, and there are some disturbing descriptions of the experience that I had witnessed. That being said, here is my tragic experience.
 
