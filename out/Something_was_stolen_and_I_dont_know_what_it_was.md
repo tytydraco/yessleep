@@ -1,10 +1,10 @@
-Back when I was in high school in the early 2010s, I bought all of my clothes from Target and JC Penny. My family wasn’t exactly poor, but Macy’s was definitely out of the question. 
+Back when I was in high school in the early 2010s, I bought all of my clothes from Target and JC Penny. My family wasn’t exactly poor, but Macy’s was definitely out of the question.
 
 Since most of the kids in my school were in the same boat, it was basically fine, but it didn’t stop me from lusting after the gowns I saw women wearing at the Oscars and the MTV music awards or whatever.
 
 Sometimes, though, I’d go to the mall on the rich side of town and try shit on, just to know what it was like. They had a Nordstrom there, with racks of designer clothes going for two or three grand a pop. I’d try them on and pose for selfies in the dressing room and send them to my friends.
 
-Usually, I wouldn’t dare venture out of the dressing room, but sometimes I’d get bolder and walk around the store, vamping a little bit and taking videos. 
+Usually, I wouldn’t dare venture out of the dressing room, but sometimes I’d get bolder and walk around the store, vamping a little bit and taking videos.
 
 The last time I ever did that was when I walked around a tall rack and bumped into a tall, thin man in a finely-tailored suit. With his high cheekbones and scraggly beard, he looked like he’d walked out of a catalog.
 
@@ -18,7 +18,7 @@ He laughed, and took my hand.
 
 “Come with me,” he said, walking to the salesclerk. Then he laid a heavy-looking credit card on the table.
 
-“I… can’t,” I said. 
+“I… can’t,” I said.
 
 “Of course, you can,” he said. “And then you’ll wear it to lunch with me. Fair?”
 
@@ -28,13 +28,13 @@ We are at an upscale steakhouse a block down the street from the mall. I opened 
 
 “She’ll have the ribs,” he said. “And please remove her silverware.”
 
-The waiter obeyed without comment. 
+The waiter obeyed without comment.
 
 A few minutes later, a bottle of wine showed up. I wasn’t sure if I’d remembered him ordering it. He poured me a large glass.
 
 “I trust you’d had a cabernet before?” he asked.
 
-Not knowing what to say, I nodded. In truth, I’d never even tried wine that didn’t come out of a box, and that was only once at my friend Gabriella’s quinceanera. 
+Not knowing what to say, I nodded. In truth, I’d never even tried wine that didn’t come out of a box, and that was only once at my friend Gabriella’s quinceanera.
 
 “The best practice with an older vintage like this would be to decant it for a few hours, but given our limited time, we’ll have to improvise a bit. Here, swirl it like this.”
 
@@ -46,7 +46,7 @@ I took a sip, trying to feel sophisticated, but all I could really taste was the
 
 “You should be careful,” he said after a minute. “Certain men. Certain evil men would do all kinds of things to a tipsy girl if they got the chance.”
 
-He stared into his wineglass, still swirling it furiously. Finally, he took a drink. 
+He stared into his wineglass, still swirling it furiously. Finally, he took a drink.
 
 “Sometimes even good men do the wrong thing,” he added. “I’m sure you know all about that, though. I’m sure the boys in your class have taken their shots.” He took a long breath in and finished his glass. “But you. I can tell you’re a good girl. I bet those boys beg and beg for it, and you just keep telling them no.”
 
@@ -74,9 +74,9 @@ I picked up a rack of ribs and tore it into pieces as gently as I could, but my 
 
 “More,” he demanded.
 
-In life, there are moments when you just say fuck it and do your thing. And this, honestly, was my first Fuck It moment. If he wanted to watch me eat, I decide to let him. And so I did. I ate. Rib after rib. My face and hands got filthy. I sipped wine between bites, choking down the meat until I’d emptied both my plate and my glass. 
+In life, there are moments when you just say fuck it and do your thing. And this, honestly, was my first Fuck It moment. If he wanted to watch me eat, I decide to let him. And so I did. I ate. Rib after rib. My face and hands got filthy. I sipped wine between bites, choking down the meat until I’d emptied both my plate and my glass.
 
-Then, finally, when everything was gone I stopped and took the napkin, wiping my hands and face. 
+Then, finally, when everything was gone I stopped and took the napkin, wiping my hands and face.
 
 The man looked over at me.
 
@@ -90,7 +90,7 @@ He opened the box to reveal a red velvet interior. Then, carefully, like he was 
 
 “Can I go now?” I asked, but he didn’t respond. He just stared at the box, transfixed. I stood and walked slowly out of the restaurant, but when I hit the street, I broke into a run. I didn’t stop until I’d reached my car, tears streaming down my face.
 
-I picked up the phone, thinking I’d call my mom, but instead, I dialed 911. 
+I picked up the phone, thinking I’d call my mom, but instead, I dialed 911.
 
 *What is your emergency?*
 
@@ -100,4 +100,4 @@ I picked up the phone, thinking I’d call my mom, but instead, I dialed 911.
 
 “I don’t know,” I said. “I don’t know.”
 
-And I still don’t.
+And I still [don’t](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
