@@ -73,7 +73,7 @@ It had been a year since my excursion into the cemetery, and my senior year was 
 
 I was more than happy when me and my parents finished packing and finally drove off. Of course, I couldn’t help but peek at the cemetery one last time.
 
-Nothing. There was nothing there, and if it hadn't been a dream. If I hadn't just imagined it, at least I had gotten away. I was going far from the cemetery. I let out a breath that I didn't realize I had been holding in for the better part of the year.
+Nothing. There was nothing there. If I hadn't just imagined it, at least I had gotten away. I was going far from the cemetery. I let out a breath that I didn't realize I had been holding in for the better part of the year.
 
 At least, that’s what I thought. 
 
