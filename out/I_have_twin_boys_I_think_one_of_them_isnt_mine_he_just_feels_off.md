@@ -1,0 +1,39 @@
+ I'm a father of twins, and ever since they were born, one of them always felt somehow different. I never acted on this feeling, I mean who would believe me if I said I felt like one son wasn't mine? Was that even possible?
+
+All my life I've played favorites with my son's for that sole reason. We named them Josh and Luke. Josh was my son, the son I loved. I tried to love Luke, I really did, but it was just so hard, he was, and still is such a weird kid, always going out of his way to cause trouble. My wife disagrees with me and because of that we have gotten into numerous fights. She thinks I should love both of them equally despite their differences, which is ironic. Shouldn't twins be the same? And I always argue that I can't love them the same because they aren't, despite them being twins.
+
+We still live together, but it has gotten to the point that there's no longer any spark between us two. The only reason we even still live together is for our kids, or in my case for Josh. I don't want him to grow up without a mother, or father.
+
+The twins both turned 16 this november. Luke has been absolutely horrible. He's been acting out any and every way he can since his 16th birthday. And thats because I got Josh a brand new car, and Luke a bike. I guess that was a little unfair, but Josh really did deserve it. The entire year of 2022 he's been so respectful, so helpful around the house, doing chores, helping me out in the garage. He's even taken an interest into mechanic's profession, just like his dad. Meanwhile Luke was the complete opposite. Taking interest in music, in piano. Disguisting.
+
+He asked his mom to enroll him into music school, and get him a piano. I said no. He screamed and shouted, which didn't help his case. Eventually he calmed down and went to his room. I never agreed to any music school, or a piano. But I know that his mother takes him to those classes every wednesday and saturday. Josh told me.
+
+December was my breaking point with Luke. Josh came into the garrage late one night crying, which was very rare to see Josh do, he was a very tough kid. I asked him what's wrong, and then he told me, or better yet showed me. Luke had stolen Josh's car keys, and because of his stupidity, completely totaled it. I calmed Josh down, told him to man up and that we'd fix the car.
+
+I went into Luke's room. He was studying, which I'd give him credit for, if it wasn't fucking music. That made me even angrier. His mom wasn't home. I was never a violent father, I still am not, but something just snapped in me. I grabbed him by his collar and threw him onto his bed. I screamed at him, shouted. Pointed fingers. "Why can't you just be normal like Josh? Why do you have to ruin our lives?" He was crying. He was talking back, he was good at that, talking back. I walked over to his desk, started mocking his interest in music. I picked up the sheets of music on the desk, and tore them into a million pieces. He screamed at me that he hates me. He ran out of his room. That's when I noticed Josh, peeking into Luke's room, he had the widest grin on his face.
+
+I wasn't proud of the way I handled the situation. I let my emotions get the better of me. So it wasn't surprising that my wife got me a folder for christmas. The folder had our divorce papers in them. She took Luke and left the house without saying another word. We've been texting back and forth, her asking me if I signed the papers yet, and me saying that I will not. I want her to stay for atleast another two years, until Josh moves out for college, then it doesn't matter anymore.
+
+We repaired Josh's car. It was left abandoned in a ditch beside one of the dirt roads leading out of town. Which was weird, Luke would have no reason to go out of town, meanwhile all of Josh's friends lived outside of it. When I asked Josh about it, he broke down crying. He said he lied that Luke stole it because he was scared that I'd beat him. I was a little upset at that, how could Josh think that I'd beat him? I told him that it was okay, and to man up and stop crying. But also warned him to never lie to me again. He said he loved me, which warmed my heart.
+
+My wife and I decided to try and spend new years together, our kids included too. I had to promise I'd apologise to Luke, which I'm finding a difficult task, because I'm just full of pride like that. I hate to admit when I'm wrong, but it must be done.
+
+When they arrived at the house, me and Josh had already prepared a delicious dinner. Once Luke came into the house, I hugged him reluctantly, and told him that I'm sorry. He held me tight, which was uncomfortable, but I let him. He told me he forgives me. My wife was happy to see that, but then she motioned to Josh. We never agreed that Josh should apologise, and we broke into another argument. Eventually Luke said its fine, and that we should just eat. So we did.
+
+My wife had some news for us, for me. I was excited, I thought they were moving back in, my wife was moving back in. But instead my wife told me that she got a call from the hospital the other day. When I asked what it was about, she said that once our twins were born, one of them was accidentally switched with a different child. My blood turned cold, so thats why Luke was always so weird. I nodded, giving myself an imaginary high five for being right all along.
+
+Then Luke spoke up, he said he also had some news. I rolled my eyes, but maybe this was good, maybe he'd say that he's finally giving up on music. But no, what came out of his mouth made me want to hate him even more, kill him even. "Dad, I'm gay." Is what he said. I couldn't believe my ears. "What in the fuck is wrong with you?" I said out loud. Josh laughed at that. I gave him a look to shut up.
+
+Luke looked at his feet, my wife's eyes were bulging with surprise, both at me, and at Luke. "Luke I thought we talked about this." My wife said trying to console him. "You knew!?" I spat out at her. "That's it, we're leaving." She said. "You're not going anywhere." I replied, rushing to the front door to block the path. Luke was trembling, but I didn't care. I could see Josh grinning in the background, still eating his chicken.
+
+"Kill him dad!" He encouraged. Maybe I will. "He's your son!" My wife screamed at me. "No he isn't! You just told me he's been switched!" I shouted back, pointing fingers. She shook her head. "It's not Luke that's been switched." She said calmly. "Shut up!" I screamed at her, lunging at Luke, I pushed him to the ground and began strangling him. My wife tried to get me off him. I pushed her away. "Kill him! Kill him! Kill him!" Josh yelled with excitement. I could see the light leave Luke's eyes, and then he stopped strugling. I let go.
+
+"Luke?! Luke!" My wife screamed, going to his side. I sat back down at the dinner table, continuing to eat. "Good job dad." Josh said. I looked at him. Really looked at him. He was grinning. His eyes were hazel, mine were blue and my wife's brown. He had curly blonde hair. My and my wife's hair were always brown. Josh's nose was pointy, mine was fleshy, and my wife's was buttoned. The more I compared our features to his, the less everything fit together. Josh looked nothing like us.
+
+We had actually noticed them looking different a couple weeks after birth, our doctor assured it was normal, and that twins don't always look identical. "You're a monster!" My wife screamed at me as she held up Luke's limp arm over her shoulder and began walking out.
+
+"You're letting them go?" Josh questioned curiously.
+
+"What have I done?" I said under my breath.
+
+Josh grinned even [wider.](https://www.reddit.com/user/Coureherritt)
