@@ -20,7 +20,7 @@ I nodded in agreement. I eyed my watch, staring it down as if that would spur th
 
 I wearily sighed. Uncle Bryant could read me like a book. He’d always excelled at pulling the truth out of people.
 
-“Okay, so it hasn’t been what I was hoping for. The pay isn’t what I wanted and I’ve been putting in long hours just to keep my head above water. Even though I just started, they expect my numbers to be similar to everyone else’s.” 
+“Okay, so it hasn’t been what I was hoping for. The pay isn’t what I wanted, and I’ve been putting in long hours just to keep my head above water. Even though I just started, they expect my numbers to be similar to everyone else’s.” 
 
 Something soft smacked into my forehead. I glanced down just in time to watch a foam football roll to the ground. A chorus of elated giggles emanated from the opposite end of the table as my younger cousins sneered at me.
 
@@ -36,7 +36,7 @@ I’d only been to Uncle Bryant’s a handful of times. He was right. He *did* h
 
 “Alright, let me know. I’m always a call away if you need anything.”
 
-I furiously stomped on the brakes as I pulled into my garage.
+I furiously stomped on the brakes as I pulled into my garage. 
 
 “*Fuck, fuck, fuck* I hate him so fucking much,” I raged, slamming my fists into the steering wheel. 
 
@@ -86,7 +86,7 @@ I gawked at him, eyes wide as dinner plates while he nonchalantly plopped down i
 
 “Alright, I know how fucking insane this is going to sound, but I’m you from the future. I came from the year 2032. That’s the year that nuclear fallout will occur and it’s up to us to stop it. I won’t be able to stay long. That’s why I need your help. You’re the only one I can trust to see this through. Now, I know you have a ton of questions, so ask away. But try to keep it short. I don’t have much time left,” he explained to my utter amazement. 
 
-I pondered for a moment. After I had a chance to really soak in his appearance, I began to notice subtle differences in our features. His hair was significantly more gray and crows feet were apparent around his eyes. I also noted that he had a small scar on his cheek, unlike me. 
+I pondered for a moment. After I had a chance to really soak in his appearance, I began to notice subtle differences in our features. His hair was significantly more gray and crow's feet were apparent around his eyes. I also noted that he had a small scar on his cheek, unlike me. 
 
 “Okay, okay. This is *definitely* a bit overwhelming. But I guess, why now? Why is Uncle Bryant’s house ten years in the past the ideal time and place to tell me this?” I questioned as the reality of the situation sunk in.
 
@@ -168,4 +168,8 @@ I watched in abject horror as the imposter’s entire body began to writhe and s
 
 I let out a soul-piercing shriek as it reached a handful of mangled gnarled digits toward my face. 
 
-That’s the last thing I remember before everything went dark. I awoke in Uncle Bryant’s basement. I still have my phone, but I’m shackled to the wall and there’s no service. I’m terrified. I don’t know what to do. But I have a sinking feeling that it does. And that we are all in imminent danger.
+That’s the last thing I remember before everything went dark. I awoke in Uncle Bryant’s basement. Fortunately, I still have my phone, so I've been able to call for help. I’m terrified. I don’t know what to do. But I have a sinking feeling that it does. And that we are all in imminent danger. 
+
+&#x200B;
+
+&#x200B;
