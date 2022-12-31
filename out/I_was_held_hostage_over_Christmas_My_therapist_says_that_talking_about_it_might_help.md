@@ -53,7 +53,28 @@ The blonde woman was right:
 
 There are many degrees of “terrible.”
 
-In hindsight, I can obviously type with a missing finger. I wish that was the worst of it. Of course, things were about to get much more painful than the garden shears, but I’ve reached my limit for today. The valium’s kicking in, and that’s the only way I can sleep at this point. I’ll share more later if I can, but this process is extremely painful for me.
+Dirty Santa looked over at the man with the slicked-back hair, who reached out a trembling hand for a blue bag with orange ribbon. He could just reach far enough to stare into it, eyes wide.
+
+“I’d… I’d like to change gifts,” he whispered.
+
+Before I could ask what that meant, Dirty Santa had plucked the gift from my hands, done a pirouette, and switched our bags. I looked down at the new present. 
+
+‘I’m for an eye!’ read a tag that was tied to an ice pick. 
+
+“You need to play with your toy right now!” Dirty Santa chanted in a voice that was an octave too high. 
+
+“No,” I whispered.
+
+His attitude changed very, very quickly. 
+
+I can’t bring myself to go into the details, but we’ve all popped grapes between our teeth.
+
+Most of us have never considered what it feels like to be the grape. 
+
+I thought the pain would be unbearable. But when I had no choice but to sit and watch what came next, my mind warped under a new threshold of “impossible.”
+
+In hindsight, I can obviously type with a missing eye. I wish that was the worst of it. Of course, things were about to get much more painful than the ice pick, but I’ve reached my limit for today. The valium’s kicking in, and that’s the only way I can sleep at this point. I’ll share more later if I can, but this process is extremely painful for me.
+
 
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 

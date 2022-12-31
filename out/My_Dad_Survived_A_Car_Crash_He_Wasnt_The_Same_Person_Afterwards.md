@@ -96,7 +96,7 @@ She soon discovered that Dad had also forgotten how to use a toothbrush. He had 
 
 The biggest glimpse of some of the few flaws still left in his brain was one morning while we were having breakfast. My parents’ anniversary was just three days away.
 
-“So Walter, what are you thinking about doing?” Mom asked, taking a sip of coffee from her mug.
+“So Sam, what are you thinking about doing?” Mom asked, taking a sip of coffee from her mug.
 
 Dad was munching away at the eggs and sausage on his plate. Then he finally glanced up at her.
 
