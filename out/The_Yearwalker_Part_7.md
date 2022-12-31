@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- \[7\]
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- \[7\] - [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/)
 
 It was a long and lonesome road, and the night never seemed to end. No matter how long I sat down to catch my breath, and no matter how long I walked, the dark just seemed to get darker. You lose all perception of time when you move forward and nothing seems to change.
 
@@ -10,9 +10,9 @@ I followed.
 
 &#x200B;
 
-The forest opened into a clearing. An open space with log cabins, garden plots, apple trees, and a small jetty for fishing. The roofs were partly covered in solar panels, and there was a communal toolshed down by the riverbank. There was a water pump at the edge of the clearing, so I figured the river water wasn’t safe to drink. 
+The forest opened into a clearing. An open space with log cabins, garden plots, apple trees, and a small jetty for fishing. The roofs were partly covered in solar panels, and there was a communal toolshed down by the riverbank. There was a water pump at the edge of the clearing, so I figured the river water wasn’t safe to drink.
 
-I could tell there had been a community of people living here at some point. Right now, however, there was no one around. 
+I could tell there had been a community of people living here at some point. Right now, however, there was no one around.
 
 &#x200B;
 
@@ -174,7 +174,7 @@ She was right, of course. Names weren’t important. Not right now.
 
 “I want whatever version you’re willing to share.”
 
-We talked for hours. 
+We talked for hours.
 
 &#x200B;
 
@@ -196,7 +196,7 @@ She thought about it for a while, looking out the window.
 
 &#x200B;
 
-We called it a night and agreed to talk in the morning. 
+We called it a night and agreed to talk in the morning.
 
 Strangely enough, I still had that feeling that something wasn’t quite right. That shiver down my spine never went away, and I could feel my body tensing up.
 
@@ -308,7 +308,7 @@ She was having a *nightmare*.
 
 &#x200B;
 
-I blinked, and I was in a different place. 
+I blinked, and I was in a different place.
 
 An old house, somewhere in the Canadian countryside. There’d never been a Saint Gall. I’d come there looking for a friend, but all I’d found was horror. A house full of teeth, hiding like insects behind every nook and cranny. An awful wet smell, like the inside of a wooden mouth. A man with a face full of broken teeth looked up at me, on his knees, begging me to kill him.
 
