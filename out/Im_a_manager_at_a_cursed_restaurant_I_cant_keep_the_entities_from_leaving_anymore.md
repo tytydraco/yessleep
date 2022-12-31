@@ -69,3 +69,6 @@ Before I could ask my next question, Mr. Morbid appeared besides us, running at 
 He slammed into us, causing the van to sway and shake. But I slammed right back and he went flying. But I noticed that now, there were no buildings and streets. Just a bunch of starry black. 
 
 I handed this to the person next to me, and he is finishing writing this while I am actually escaping Mr. Morbid. This will be a log of our experiences. If we do not make another part, assume we didn’t make it out alive. Hope to write you all soon.
+
+
+[P2](https://www.reddit.com/r/nosleep/comments/zzkgtp/im_a_manager_at_a_cursed_fast_food_restaurant_we/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

@@ -1,4 +1,4 @@
-**The following journal entries were found in the home of Duane Findley of Ashbyburgh, Kentucky. Mr. Friday, in addition to four neighbors, has been missing since December 2018. Based on entry dates, it is believed that he left or was removed from his residence on Christmas day. If you or anyone you know has any information that may lead to the location of** ***The Ashbyburgh Five*****, please contact the Hopkins County Sheriff's Office.**
+**The following journal entries were found in the home of Duane Findley of Ashbyburgh, Kentucky. Mr. Friday, in addition to four neighbors, has been missing since December 2018. Based on entry dates, it is believed that he left or was removed from his residence on Christmas day. If you or anyone you know has any information that may lead to the location of** ***The Ashbyburgh Five***\*\*, please contact the Hopkins County Sheriff's Office.\*\*
 
 *12/22/2018*
 
@@ -10,7 +10,7 @@ Just for the record: You were right, Dot. I should have asked for vacation leave
 
 My cellphone died yesterday and… well… we got rid of the landline years ago. Not that it would do much good anyway. The lines running by the road are drooping: a telltale sign that it has broken somewhere down the line.
 
-Doesn’t bother me too much, but I miss Dot and the kids. This storm doesn’t look like it will let up soon so I can’t imagine I’ll see them until well after Christmas. 
+Doesn’t bother me too much, but I miss Dot and the kids. This storm doesn’t look like it will let up soon so I can’t imagine I’ll see them until well after Christmas.
 
 Oh well. It is what it is.
 
@@ -32,7 +32,7 @@ Until tomorrow,
 
 Duane
 
-*12/23/2022*
+*12/23/2018*
 
 The snow is even deeper today and still falling. Two feet when I measured it last night. I ended up bringing a shovel in from the garage and digging it into the ground just off the porch. It’s about four feet tall so I can just look out at it to get an idea of how deep it has gotten.
 
@@ -40,7 +40,7 @@ Didn’t sleep as well last night. Part of it is sleeping on the couch near the 
 
 That wasn’t really the biggest problem though. It sounded like something was bumping against the house last night. Not knocking or slamming, just bumping. You know, like when a tree limb gets a little too long and taps against a house in a strong wind.
 
-Only there are no trees close to the house. Nothing close to the house, as a matter of fact. 
+Only there are no trees close to the house. Nothing close to the house, as a matter of fact.
 
 The first few times I heard it, I kind of ignored it. Tried to go back to sleep. It wasn’t constant, so it didn’t worry me too much. Closer to midnight though, it started to become more frequent. I timed it in my head. Something would thump against a different part of the house roughly every five minutes.
 
@@ -58,7 +58,7 @@ I laughed and finished checking outside of the windows. There was nothing to see
 
 I tossed a few more logs on the fire and curled up on the couch.
 
-The soft bumps continued for the rest of the night, but I did my best to ignore them. 
+The soft bumps continued for the rest of the night, but I did my best to ignore them.
 
 Hoping for better sleep tonight. Just finished up two bowls of Dot’s tomato soup with a couple of slices of stale bread. Maybe a full stomach will help me sleep more deeply.
 
@@ -74,7 +74,7 @@ The snow is up to two and a half feet. Most of the shovel handle is gone. I’m 
 
 Almost no sleep last night. The bumping noises were much louder and more frequent. Maybe every two or three minutes. I’d jump from the couch and look out the window on the side of the house where I had just heard the noise, but when I get there, there was not a damn thing to be seen. Undisturbed snow as far as the eye can see.
 
-New snowmen, too. A half dozen of them. 
+New snowmen, too. A half dozen of them.
 
 They aren’t just by the neighbor's houses anymore. No, some of them look like they are in the middle of the unplowed road or out in the Stanley’s soy fields. Just random places. Farther away from the house than anyone would want to get in this God-forsaken storm.
 
@@ -104,7 +104,7 @@ Merry Christmas, I guess.
 
 There were no noises last night so I slept like a log. Wish I hadn’t, though. When I woke up this morning, I nearly pissed my pants.
 
-Staring in through both living room windows were two massive snowmen. Heavy coal eyes beamed at me and a grizzly maw of twisted sticks made up the horrifying mouths. I fell onto the hearth and nearly shoved my hand into the fireplace trying to push myself away before I realized what it was. 
+Staring in through both living room windows were two massive snowmen. Heavy coal eyes beamed at me and a grizzly maw of twisted sticks made up the horrifying mouths. I fell onto the hearth and nearly shoved my hand into the fireplace trying to push myself away before I realized what it was.
 
 When it registered in my mind they were just snowmen, I started to laugh. I laughed until I cried, but not in that overly amused way. My tears were genuine panic and anxiety.
 
@@ -114,7 +114,7 @@ Yet there wasn’t a single damn track in the snow.
 
 I’ve got to get the hell out of here. Maybe if I get up enough speed in the barn, the old four-wheel drive can plow through this mountain of snow. I feel like if I stay here another minute, I’ll go mad.
 
-Dot, I love you and the kids. I’ll call as soon as I get to a phone. 
+Dot, I love you and the kids. I’ll call as soon as I get to a phone.
 
 Love,
 
