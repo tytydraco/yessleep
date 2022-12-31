@@ -187,7 +187,7 @@ When Mina sat down she was shaking, her hands trembling in her lap. But still, s
 
 Bad. 
 
-When she shuffled uncomfortably next to me, I could feel sweat dripping from her sweater. Her head found my shoulder, and it should have been comfortable. Flirty. But Mina was clearly sick. I couldn’t understand why she was hiding it. The movie credits were rolling when Charlie lifted Maisie off of his lap with a groan. “Alright. I am in need of more wine.”
+When she shuffled uncomfortably next to me, I could feel sweat dripping from her shirt. Her head found my shoulder, and it should have been comfortable. Flirty. But Mina was clearly sick. I couldn’t understand why she was hiding it. The movie credits were rolling when Charlie lifted Maisie off of his lap with a groan. “Alright. I am in need of more wine.”
 
 Gently settling my startled looking cat on the carpet, the brit  jumped to his feet, turning to us. “Want some?”
 
@@ -273,7 +273,7 @@ And with that movement came one final quake under my feet. I couldn’t call tha
 
 He was alive, and yet it made no sense how he was alive. So much blood. It painted him and the toilet bowl. When I left him, his arms were twitching beneath him, fingers curling into a fist. I was diving for my bag and phone to call an ambulance, when I noticed something was very wrong. 
 
-Charlie was on his knees, coughing violently into blood soaked hands, and Mina lying on her back. Her eyes were flickering, lips opening and closing, a thin line of red seeping down her chin. But looking closer, her body wasn’t quite on the floor. No. It was… hovering. Levitating. Several feet from my favourite rug.
+Charlie was on his knees, coughing violently into blood soaked hands, and Mina lying on her back. Her eyes were flickering, lips opening and closing, a thin line of red seeping down her chin. But looking closer, her body wasn’t quite on the floor. No. It was… hovering. Levitating. Several feet from my favorite rug.
 
 Mina was unresponsive. When I shook her, tried to pull her back to the ground, her body seemed to shake me off.
 
@@ -321,7 +321,7 @@ She cut me off. “Just the age category is fine.”
 
 At the corner of my eye, Charlie’s body writhed for a few seconds, and next to him, fibres of carpet began to slowly catch alight.
 
-I stamped it out. “18 to 25.” I told her. “What do you mean, extraction? What’s wrong with them?” I swallowed. “Are they dead?!”
+I stamped it out. “18 to 25.” I told her. “What do you mean, extraction? What’s wrong with them?” I swallowed. “Are they going to die?"
 
 “Just blossoming.” Katy said. “I advise you to stay away from them. If you are in the room with them now, I would like you to step out. Do not make any sudden movement. If they are experiencing any physical symptoms, please restrain your friends with rope with rope."
 
@@ -335,7 +335,7 @@ I could feel myself taking slow steps back.
 
 “I mean…” Katy paused. “Your friends… they won’t exactly be themselves when they break from the blossoming stage.”
 
-“They’re dead?”
+“They’re dead?” I said again. 
 
 “Well… yes and no. Not dead in the brain.”
 

@@ -1,4 +1,4 @@
-Back when I was in high school in the early 2010s, I bought all of my clothes from Target and JC Penny. My family wasn’t exactly poor, but Macy’s was definitely out of the question.
+Back when I was in high school in the early 2010s, I bought all of my clothes from Target and JCPenney. My family wasn’t exactly poor, but Macy’s was definitely out of the question.
 
 Since most of the kids in my school were in the same boat, it was basically fine, but it didn’t stop me from lusting after the gowns I saw women wearing at the Oscars and the MTV music awards or whatever.
 
@@ -14,9 +14,9 @@ I looked down at the gown I’d chosen for the day. It was a sheer and white lac
 
 “It’s a little more than I want to spend today,” I said, trying to play coy.
 
-He laughed, and took my hand.
+He laughed and took my hand.
 
-“Come with me,” he said, walking to the salesclerk. Then he laid a heavy-looking credit card on the table.
+“Come with me,” he said, walking to the sales clerk. Then he laid a heavy-looking credit card on the table.
 
 “I… can’t,” I said.
 
@@ -46,11 +46,11 @@ I took a sip, trying to feel sophisticated, but all I could really taste was the
 
 “You should be careful,” he said after a minute. “Certain men. Certain evil men would do all kinds of things to a tipsy girl if they got the chance.”
 
-He stared into his wineglass, still swirling it furiously. Finally, he took a drink.
+He stared into his wine glass, still swirling it furiously. Finally, he took a drink.
 
 “Sometimes even good men do the wrong thing,” he added. “I’m sure you know all about that, though. I’m sure the boys in your class have taken their shots.” He took a long breath in and finished his glass. “But you. I can tell you’re a good girl. I bet those boys beg and beg for it, and you just keep telling them no.”
 
-“I think I should go,” I said quietly. “I told my mom I’d–”
+“I think I should go,” I said quietly, my body starting to tense. “I told my mom I’d–”
 
 “Your mother will be fine,” he said, topping off his glass and adding a splash more to mine. “It would be a shame if you didn’t finish your drink. And your food isn’t even here yet.”
 
@@ -62,19 +62,29 @@ I took another sip as a waiter approached with the plate of ribs. I couldn’t h
 
 “Do be careful not to soil that dress,” he said. Then he took a silk handkerchief from his pocket and passed it to me. “Please, allow me. As a gentleman, I must insist.”
 
-I wondered what might happen if I ran. In my mind, a scenario played out where I sprinted for the door, only for him to catch up to me, pressing me into some dark booth where he rip the dress from my body, forcing himself on me as the waitstaff pretended nothing was happening.
+I wondered what might happen if I ran. In my mind, a scenario played out where I sprinted for the door, only for him to catch up to me, pressing me into some dark booth where he’d rip the dress from my body, forcing himself on me as the waitstaff pretended nothing was happening.
 
 “Eat,” he said, all kindness drained from his voice.
 
 “If I could just…”
 
-“Do remember our agreement,” he said, his eyes boring into me. His gaze warned of consequences.
+“Do remember our agreement,” he said, his eyes boring into me. His gaze warned of consequences. “I heard about a girl who came to this very restaurant just a few weeks ago, even younger than you. She told her date she had to go to the bathroom, but instead, she ran away. They found her body just a few days later, knifed a hundred different ways, barely a drop of blood left in her.”
 
-I picked up a rack of ribs and tore it into pieces as gently as I could, but my hands were a mess. Then I pressed the flesh to my lips and ate. His breathing quickened as he watched me.
+I felt my breathing quicken and my vision blurred. I put a hand down to steady myself from falling over. I imagined what it might feel like to be stabbed over and over again.
 
-“More,” he demanded.
+He leaned forward, and whispered, his breath smelling of fresh vanilla.
 
-In life, there are moments when you just say fuck it and do your thing. And this, honestly, was my first Fuck It moment. If he wanted to watch me eat, I decide to let him. And so I did. I ate. Rib after rib. My face and hands got filthy. I sipped wine between bites, choking down the meat until I’d emptied both my plate and my glass.
+“I would be disappointed if you broke our arrangement. But not *that* disappointed.”
+
+Timidly, I picked up a rack of ribs and tore it into pieces as gently as I could, but my hands were a mess. Even with my life on the line, I couldn’t help but keep looking at my white dress, trying to make sure I didn’t dirty it.
+
+I pressed the flesh to my lips and ate methodically. His breathing quickened as he watched me.
+
+“More,” he demanded. And as he said it, a single drop of sauce dribbled off my hand, staining my dress at the hip. The damage was done.
+
+In life, there are moments when you just say fuck it and do your thing. And this, honestly, was my first Fuck It moment. If he wanted to watch me eat, I decided to let him.
+
+And so I did. I ate. Rib after rib. My face and hands got filthy. I sipped wine between bites, choking down the meat until I’d emptied both my plate and my glass.
 
 Then, finally, when everything was gone I stopped and took the napkin, wiping my hands and face.
 
@@ -88,9 +98,9 @@ He reached down and opened his leather satchel, removing a small wooden box.
 
 He opened the box to reveal a red velvet interior. Then, carefully, like he was handling a work of art at a gallery, he gently took the napkin and placed it inside, before resealing the box carefully.
 
-“Can I go now?” I asked, but he didn’t respond. He just stared at the box, transfixed. I stood and walked slowly out of the restaurant, but when I hit the street, I broke into a run. I didn’t stop until I’d reached my car, tears streaming down my face.
+“Can I go now?” I asked, but he didn’t respond. He just stared at the box, transfixed. I stood and walked slowly out of the restaurant, but when I hit the street, I broke into a run. I didn’t stop until I reached my car, tears streaming down my face.
 
-I picked up the phone, thinking I’d call my mom, but instead, I dialed 911.
+I picked up the phone, thinking I’d call my mom, but instead I dialed 911.
 
 *What is your emergency?*
 
@@ -100,4 +110,4 @@ I picked up the phone, thinking I’d call my mom, but instead, I dialed 911.
 
 “I don’t know,” I said. “I don’t know.”
 
-And I still [don’t](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
+And I still don’t.
