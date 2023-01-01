@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/zt60s7/in\_8\_days\_i\_will\_wake\_up\_in\_1999\_and\_relive\_the/) - **Part II**
+[Part I](https://www.reddit.com/r/nosleep/comments/zt60s7/in\_8\_days\_i\_will\_wake\_up\_in\_1999\_and\_relive\_the/) - **Part II** - [Part III](https://www.reddit.com/r/nosleep/comments/1006f9g/tonight_i_will_wake_up_in_1999_and_relive_the/)
 
 Merry Christmas.
 
@@ -141,3 +141,5 @@ The stranger paused. “Based on things I’ve ‘experienced’, I’d say it�
 When the man explained that I’d have to venture into the Hawthorne house at 11pm, I trembled in horror. I’ve spent Christmas Eve watching my family with teary eyes. Can I avoid the flesh-searing limbs of the Glassy-Eyed Man for *six days*? I keep seeing those lifeless eyeballs in the darkest crevices of my house.
 
 Even now, as I write, I could swear I just heard shushing from our wardrobe.
+
+[Part III](https://www.reddit.com/r/nosleep/comments/1006f9g/tonight_i_will_wake_up_in_1999_and_relive_the/)
