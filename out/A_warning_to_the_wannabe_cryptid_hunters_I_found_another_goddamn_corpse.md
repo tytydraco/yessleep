@@ -1,4 +1,4 @@
-[This time of year is really something.](https://www.reddit.com/r/nosleep/comments/zyzp01/a_warning_to_the_wannabe_cryptid_hunters_yuletide/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button) Frost is painting the windowpanes, the snowflakes look like tiny stars falling from the sky and I found a corpse on my property today. Or rather, one of the security guards did. He called me right away, talking in that sort of low, empty tone. He sounded dead inside, for lack of a better word.
+This time of year is really something. Frost is painting the windowpanes, the snowflakes look like tiny stars falling from the sky and I found a corpse on my property today. Or rather, one of the security guards did. He called me right away, talking in that sort of low, empty tone. He sounded dead inside, for lack of a better word.
 
 "Miss Novak.'' He fell silent for a few seconds, like he hadn't really thought of what to say next. "Uh, you should come to the red meadow, I think."
 
@@ -96,7 +96,7 @@ The air felt even colder all of a sudden. I yearned for a dry, warm blanket to w
 
 I sighed. "Yes, Sir. I will."
 
-X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
+[X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/zy4auu/to_all_the_wannabe_cryptid_hunters_stay_the_fuck/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
