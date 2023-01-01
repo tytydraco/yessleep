@@ -85,3 +85,5 @@ Recounting this has been painful, obviously. I hope you'll take it as another wa
 [X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/zy4auu/to_all_the_wannabe_cryptid_hunters_stay_the_fuck/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/100lj37/a_warning_to_the_wannabe_cryptid_hunters_i_found/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
