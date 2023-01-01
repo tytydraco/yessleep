@@ -1,6 +1,6 @@
-|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|Part 2|
+|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|Part 2|[Part 3](https://www.reddit.com/r/nosleep/comments/100k3e2/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|
 
-We huddled next to the tablet tracking Aurora’s location, excited at there finally being a way to stop her and bring her back. 
+We huddled next to the tablet tracking Aurora’s location, excited at there finally being a way to stop her and bring her back.
 
 “Where is she again?”
 
@@ -70,11 +70,11 @@ As we approached the room labelled ‘#05-011’, I raised my hand to knock at t
 
 Ok, not no one at all, but…
 
-“Oh my god! Who is that!”, I shrieked as I looked up. From the fan, a body was hanging from a noose, eyes bulging out from its sockets. His hair, too, was matted with blood from some sort of head injury. 
+“Oh my god! Who is that!”, I shrieked as I looked up. From the fan, a body was hanging from a noose, eyes bulging out from its sockets. His hair, too, was matted with blood from some sort of head injury.
 
 Diana, too, seemed sufficiently shocked. Mouth agape, she stared at the gory scene above. “What did she even do here?”, she muttered. In our shock, we didn’t notice Aurora creeping in.
 
-“Looking at something?”, she asked from behind me.  
+“Looking at something?”, she asked from behind me.
 
 “You- get her!”, I yelled, startled as we whirled around and aimed at her.
 
@@ -88,9 +88,9 @@ Out of the corner of my eye, I saw Diana take aim at Aurora again.
 
 She flicked her green eyes up dismissively. “Nothing much. I have all his stuff and he outlived his usefulness anyways.”.
 
-“Anyways, now I’m done with getting my passport.”. She flashed a maroon passport that said ‘European Union, Republic of Bulgaria’. 
+“Anyways, now I’m done with getting my passport.”. She flashed a maroon passport that said ‘European Union, Republic of Bulgaria’.
 
-“...W- w- what the hell? Y- you need to stop and come with us now!”, I stuttered, finally finding my voice. 
+“...W- w- what the hell? Y- you need to stop and come with us now!”, I stuttered, finally finding my voice.
 
 “Oh, really? And waste the effort I took finding someone to counterfeit this?” she responded, waving the passport in my face. “Oh, and like the name here? Jane Mulligan?”, she asked Diana mockingly, putting particular emphasis on the ‘Mulligan’.
 
@@ -118,7 +118,7 @@ Grabbing onto the wall of the hotel compound, Aurora deftly scaled over it and t
 
 “We can’t chase her like this! Get a taxi or something!” Raj suggested as he ran for the exit. The rest of us, too, began running for the exit in our pursuit to find her before she got too far away.
 
-“Sam!” I yelled when I saw him still standing at the back of the hotel, shell-shocked. “Come with us!”. Startled, he too followed us out. 
+“Sam!” I yelled when I saw him still standing at the back of the hotel, shell-shocked. “Come with us!”. Startled, he too followed us out.
 
 “Taxi!” Diana yelled out. The white car she gestured at immediately stopped, and the driver poked his head out. “Where going?”
 
@@ -134,7 +134,7 @@ However, when we turned there was no sign of anyone having been there.
 
 “Look at the tracker! She ran off the main roads!” Diana alerted. “We have to do this on foot!”.
 
-Immediately, we bolted out of the car after Diana hurriedly fished out some peso notes from her pocket for the driver. In the muggy midday Cancún heat, we scampered around shady run-down alleys and narrow side roads lined with houses in an attempt to follow the tracker, but we never saw Aurora anywhere! 
+Immediately, we bolted out of the car after Diana hurriedly fished out some peso notes from her pocket for the driver. In the muggy midday Cancún heat, we scampered around shady run-down alleys and narrow side roads lined with houses in an attempt to follow the tracker, but we never saw Aurora anywhere!
 
 Next thing we knew, she was kilometres away from us and at the airport. Or, at least, that’s what the tracker said. As the estimated altitude on her tracker rose higher and higher, we knew that she had once again given us the slip and ran.
 
