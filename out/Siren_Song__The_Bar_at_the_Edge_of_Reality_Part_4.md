@@ -6,9 +6,9 @@ Now, I know what you’re thinking: I literally help my griffin uncle run a bar 
 
 See, it was nearing *a month* since Henri had confined me to Griffin’s Edge following my last…[incident](https://www.reddit.com/r/nosleep/comments/z9e6kc/fire_and_destruction_the_bar_at_the_edge_of/?utm_source=share&utm_medium=web2x&context=3). Full disclosure: I’ve been getting increasingly stir crazy. Not to mention that I still hadn’t convinced anyone to bring me Thai food (thanks a lot for the help, you guys. Not).
 
-So when a very plastered pair of college boys begged me to go find their dwarf friend and bring him to the bar to celebrate—I slowly pieced their haphazard words to together to determine that one of them had just gotten engaged—I pleaded with Henri to let me go. 
+So when a very plastered pair of college boys begged me to go find their dwarf friend and bring him to the bar to celebrate—I slowly pieced their haphazard words to together to determine that one of them had just gotten engaged—I pleaded with Henri to let me go.
 
-*Look at how excited they are to celebrate with their friend!* I’d insisted, stepping to the side to block Henri’s view of one of the boys actively puking into a cauldron. *And his house is* already *in Neverland, so you don’t have to worry about me jumping there!* 
+*Look at how excited they are to celebrate with their friend!* I’d insisted, stepping to the side to block Henri’s view of one of the boys actively puking into a cauldron. *And his house is* already *in Neverland, so you don’t have to worry about me jumping there!*
 
 Henri was hesitant, but once I threw in the puppy-dog eyes, he caved. (Listen, I may be eighteen and not nearly as cute as I once was, but big brown eyes can still come in handy. I’m like a sad golden retriever). He made me promise to bring Milo along, which was fine with me.
 
@@ -44,7 +44,7 @@ He snorted. “You sound like my mom.”
 
 “*Someone* has to.”
 
-“And that someone is my sister. You’re supposed to be a *bad* influence. You know, give me some fun in life, make me look like a very well-behaved individual with shockingly good control over his own atoms.” 
+“And that someone is my sister. You’re supposed to be a *bad* influence. You know, give me some fun in life, make me look like a very well-behaved individual with shockingly good control over his own atoms.”
 
 I held a hand to my chest, feigning offense. “*Me?* A bad influence? How dare you.”
 
@@ -58,17 +58,17 @@ Milo had followed my stare, and his expression immediately turned serious. Almos
 
 “Works for me,” I said, tightening my grip on Sgrios. “Let’s…go in, I guess.”
 
-“Having a better police force around here would be *really* helpful right about now,” Milo whispered as we carefully started up the path. 
+“Having a better police force around here would be *really* helpful right about now,” Milo whispered as we carefully started up the path.
 
-I nodded but didn’t respond. We were almost at the front door now, and I had no idea what to expect. It *could* be nothing. But I’d never seen something like this before, and I was worried. Plus, when is anything I run into *ever* ‘nothing’? 
+I nodded but didn’t respond. We were almost at the front door now, and I had no idea what to expect. It *could* be nothing. But I’d never seen something like this before, and I was worried. Plus, when is anything I run into *ever* ‘nothing’?
 
-With a deep breath, I led the way across the threshold, Milo a step behind. And, like every stereotypical horror movie character ever, I called out, “Hello?” 
+With a deep breath, I led the way across the threshold, Milo a step behind. And, like every stereotypical horror movie character ever, I called out, “Hello?”
 
 No answer. In fact, it was surprisingly, eerily quiet. Nothing looked out of place as we moved into the living room; torches on the wall illuminated intricately-carved stone furniture, a fireplace in the corner was still smoldering from a recently-extinguished fire, and a half-empty bottle of whiskey sat on the table. Whatever had happened here must have been *very* recent.
 
-Unease prickled down my spine. Milo’s shoulder brushed mine as we stood side-by-side, staring at the room by the dancing light of the torches. “This is creepy,” he whispered. 
+Unease prickled down my spine. Milo’s shoulder brushed mine as we stood side-by-side, staring at the room by the dancing light of the torches. “This is creepy,” he whispered.
 
-“Yeah,” I agreed quietly. “I don’t like it.” 
+“Yeah,” I agreed quietly. “I don’t like it.”
 
 I made my way around the couch and into the kitchen, where the unease only grew. The old-fashioned woodburning stove was still smoldering, too, as if it had just been snuffed out. A platter of turkey sat on the counter, half-eaten.
 
@@ -78,7 +78,7 @@ When I rounded the corner from the kitchen to the dining room, though, it got wo
 
 Immediately, he squeaked and grabbed my arm. The dwarf was lying on the floor of the dining room—dead. Blood pooled outwards beneath him, spreading across the stone floor and seeping into its cracks. Natural death by a heart attack or something similar would still be extremely unfortunate—and not on my bucket list to discover like this—but this was no natural death, which I think made it even worse. The blood was seeping from two visible wounds: one that looked like a jagged stab wound in his side, made by some kind of large, serrated blade, and a second straight through his forehead—a bullet hole.
 
-Say what you will about the monsters of Neverland’s darkest places, but at least they kill for food. You’d never find a body like this if one of them attacked—they *eat* their prey. This? This was the work of a murderer, someone who had killed the dwarf for motive and left his body here to rot. Probably only hours ago, by the looks of it. 
+Say what you will about the monsters of Neverland’s darkest places, but at least they kill for food. You’d never find a body like this if one of them attacked—they *eat* their prey. This? This was the work of a murderer, someone who had killed the dwarf for motive and left his body here to rot. Probably only hours ago, by the looks of it.
 
 And believe it or not, murderers aren’t common in Neverland. Most of its inhabitants are too busy trying not to get eaten by the real monsters to turn on each other. In my eighteen years, I’d heard of maybe a handful of inhuman murders. And most of those, like human crimes, were personally motivated; you know, a jealous lover, a spiteful ex, family rivalries. Not an apparent home invasion like this.
 
@@ -88,7 +88,7 @@ I shook my head. “I don’t know. I think we should go back, tell Henri, and�
 
 I never finished the thought, because something flashed past the window. Something fast-moving and vaguely human-shaped. I swear my heart stopped. What if the murderer was *still here?* Milo apparently had the same idea, because he squeaked again and dug his nails in still deeper, enough that I flinched in pain—
 
-And jumped. 
+And jumped.
 
 You’d think the concern would now be that I had Milo with me in the human dimension, right? Since I was jumping from Neverland? Yeah, that *would* make sense.
 
@@ -96,7 +96,7 @@ But my life isn’t really in the business of making sense, because suddenly I f
 
 Now, if you’re thinking, *Ian, how did you end up in the dark forests of Neverland if you were already* in *Neverland? Like you told Henri at the beginning, I thought that didn’t happen. I thought you only jumped between dimensions, not* within *dimensions!*
 
-Well, so did I. Join the club. 
+Well, so did I. Join the club.
 
 Milo looked at me with wide blue eyes, making no move to release his grip. “Are we where we think we are? Since when did you start jumping between places in one dimension?”
 
@@ -108,7 +108,7 @@ The growls and whispers from the trees seemed to be growing louder. Unlike the d
 
 Luckily, we weren’t near the river. Not so luckily, there are still plenty of things in the rest of the forest that are just as deadly. And moments later, one of them stalked out of the trees.
 
-It was very similar to a saber-tooth tiger, complete with fangs as long as my forearm, except that instead of fur, its body was covered in black-tipped quills. Kind of like a porcupine. Its eyes glowed gold, bright against the darkness of the dense trees. And with my luck, its quills were probably venom-tipped. 
+It was very similar to a saber-tooth tiger, complete with fangs as long as my forearm, except that instead of fur, its body was covered in black-tipped quills. Kind of like a porcupine. Its eyes glowed gold, bright against the darkness of the dense trees. And with my luck, its quills were probably venom-tipped.
 
 My fingers tightened around Sgrios. I was pretty sure I’d read about these monsters, and I was pretty sure this tiger wouldn’t be a fan of the ash in my knife. Not that I really wanted to get close enough to find out, but it didn’t look like I’d have much of a choice.
 
@@ -118,9 +118,9 @@ I met its eyes and waved the knife. “You want the nice, tasty merman, you’re
 
 “It *already* wants to eat us; I hardly think what I tell it makes a difference!” I shouted back as it lunged forward and I charged to meet it.
 
-Look, sometimes it’s best to face these things head on. And I’ll be honest, it was easier to be brave with Milo there—to know that not only my life, but *his* life depended on my actions. 
+Look, sometimes it’s best to face these things head on. And I’ll be honest, it was easier to be brave with Milo there—to know that not only my life, but *his* life depended on my actions.
 
-The tiger, obviously, was a lot stronger than me. In hindsight, I really should have seen that coming. Despite my slashing attempts, it hit my shoulders with the force of a freight train and knocked me onto my back, pinning me to the muddy ground. 
+The tiger, obviously, was a lot stronger than me. In hindsight, I really should have seen that coming. Despite my slashing attempts, it hit my shoulders with the force of a freight train and knocked me onto my back, pinning me to the muddy ground.
 
 Hot drool dripped onto my cheek—and by the smell, I doubted this tiger had ever even *heard* of mouthwash—as it began to claw at my chest. I gasped in pain as my shirt and skin sliced open like butter, continuing to wave Sgrios wildly to try and make contact. “MILO, RUN!” I shouted.
 
@@ -138,7 +138,7 @@ Until I was jerked awake by hands roughly pulling me to my feet, propping me up 
 
 A familiar voice broke through my half-asleep mind. “I’m sorry, Ian! I only wanted to affect the monster, but it affects everyone who hears it!”
 
-“Whaaryoutalkinbout,” I said sleepily, nearly falling over again. I couldn’t focus; I heard the words, but they weren’t registering. 
+“Whaaryoutalkinbout,” I said sleepily, nearly falling over again. I couldn’t focus; I heard the words, but they weren’t registering.
 
 The person groaned, dragging me forward, away from the sleeping tiger. Its snores faded behind us as I stumbled across dirt and wet leaves, blinking blurrily with each step, trying to clear the exhaustion from my eyes. “The song! Doesn’t matter. We need to get out of here before it fades.”
 
@@ -148,7 +148,7 @@ Something was following us in the trees; I saw flashes of movement between blink
 
 “Donwana,” I groaned. “Wanasleep.”
 
-“I know, and it’s my fault! I’m sorry,” he said desperately. “But you gotta shut up.” 
+“I know, and it’s my fault! I’m sorry,” he said desperately. “But you gotta shut up.”
 
 The melody had faded fully now, and my mind was beginning to clear, my eyes feeling less sleepy. And so I was sure that I saw movement in the shadows, and that I heard a roar behind us—the tiger must have woken up too. My companion—Milo, goddammit! He was Milo, my best friend! — cursed. “I was really hoping to have found a gap by now.”
 
@@ -166,9 +166,9 @@ I propped myself up on my elbow, immediately wincing as I felt the pain in my ch
 
 He glanced at my chest and made a face. “Yeah, speaking of, I should probably go get Henri.”
 
-I groaned and fell back to the ground. “He’s never gonna let me leave the bar again.” 
+I groaned and fell back to the ground. “He’s never gonna let me leave the bar again.”
 
-“I think we have bigger problems,” said Milo quietly. 
+“I think we have bigger problems,” said Milo quietly.
 
 I said nothing, because he was right. I could handle the disappointed stare from Uncle Henri as he healed my wounds—lord knows it wouldn’t be the first time, nor the last—but there was also the matter of me jumping to the dark forest when I was already *in* Neverland, which had never happened before. *And* the matter of the murdered dwarf.
 
@@ -182,7 +182,7 @@ And when I’d finished, he sighed and stared into the fire, which continually t
 
 “You don’t seem…surprised,” I said.
 
-His lilac eyes met mine. “I can’t say that I am,” he said slowly. He opened a drawer of his desk and took out a glossy piece of paper, laying it on the wood in front of him and pushing it towards us. “Here.” 
+His lilac eyes met mine. “I can’t say that I am,” he said slowly. He opened a drawer of his desk and took out a glossy piece of paper, laying it on the wood in front of him and pushing it towards us. “Here.”
 
 Milo and I leaned over to look. It was a photo, seemingly taken in a Neverland yard, based on the dark dirt and sky, split by a bright green fence. But that wasn’t the interesting part: the interesting—and horrifying—part was that a fairy was nailed to that fence, iron stakes driven through her hands, feet, and neck. Like she’d been crudely crucified.
 
@@ -194,7 +194,7 @@ Milo’s eyes were wide. “Is there a serial killer on the loose, killing peopl
 
 “I know,” said Henri. “I’ll pass the word to my contacts, have them keep an eye out for anyone suspicious. It may be nothing. Just two personal vendettas within days of each other. But it doesn’t hurt to investigate. You’ll be safe, Milo. If you feel more comfortable here, you and your family are welcome at Griffin’s Edge as often as you’d like.”
 
-Milo nodded, looking slightly less nervous. But I knew Henri better, and I knew he was more concerned than he was letting on. I could see it in the creases around his eyes, in the tightness around his smile as he hugged Milo goodbye. 
+Milo nodded, looking slightly less nervous. But I knew Henri better, and I knew he was more concerned than he was letting on. I could see it in the creases around his eyes, in the tightness around his smile as he hugged Milo goodbye.
 
 And as soon as Milo had gone home, I sat across from Uncle Henri once again. “You’re scared,” I said.
 
@@ -206,4 +206,4 @@ Henri ignored this and instead stared at me, his lilac eyes seeming to burn all 
 
 I wanted to argue and say that confining me to Griffin’s Edge *again* wasn’t fair, that surely I could go to the human dimension to get some Thai food, because if I jumped between, say, Canada and Mexico, who cares? and also because an inhuman killer couldn’t *be* in the human realm. But I knew better than to argue with Henri. So I just said, “Okay,” and told him good night.
 
-But lying in bed last night, I couldn’t sleep. Every time I closed my eyes, I saw the dwarf’s body, saw the fairy crucified to her own fence; I heard the rustling in the bushes as something followed me and Milo, heard Milo’s haunting song. My thoughts whirled at a million miles per hour, trying to piece together a puzzle that had no picture on the box. And somehow, despite no evidence, I couldn’t shake the feeling that it all tied to something much bigger, and that it all had something to do with me.
+But lying in bed last night, I couldn’t sleep. Every time I closed my eyes, I saw the dwarf’s body, saw the fairy crucified to her own fence; I heard the rustling in the bushes as something followed me and Milo, heard Milo’s haunting song. My thoughts whirled at a million miles per hour, trying to piece together a puzzle that had no picture on the box. And somehow, despite no evidence, I couldn’t shake the feeling that it all tied to something much bigger, and that it all had something to do with [me](https://www.reddit.com/r/nosleep/comments/100d7js/eyes_of_coal_the_bar_at_the_edge_of_reality_part_5/?utm_source=share&utm_medium=web2x&context=3).

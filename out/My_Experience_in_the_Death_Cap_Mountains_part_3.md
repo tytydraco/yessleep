@@ -119,3 +119,5 @@ I fell down to the observation deck, looking through the metal grating down fift
 I tried to get back to my feet but first, I threw up through the metal vents. My heart was beating so fast that I thought it would explode. I focused on my breathing and slowly calmed myself down.
 
 Naomi had brought up some water and protein bars. We sat and ate and drank in silence as I wrote this up and posted it. In the distance, I could see the massive mountains beckoning me on. From up here, they looked so close that I felt I could jump from here to there with long enough legs. But of course, it was just an optical illusion, as they still had to be at least twenty or thirty miles away.
+
+Continue to Part 4: [https://www.reddit.com/r/nosleep/comments/1005v9g/i\_traveled\_on\_the\_death\_cap\_mountain\_road\_and/](https://www.reddit.com/r/nosleep/comments/1005v9g/i_traveled_on_the_death_cap_mountain_road_and/)
