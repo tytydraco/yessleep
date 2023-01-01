@@ -1,10 +1,10 @@
- I don't go to Yellowstone.  Well, at least not since 2001.  I know what you might be thinking.  Why avoid a place for over 20 years when there's no evidence of it erupting? I mean, there's plenty of things to do in the National Park.  Plenty of sites to see, including the ever so famous Old Faithful, and even some bears and other wildlife to view and snap shots of for family albums you'll spend over an hour scrapbooking.   
+I don't go to Yellowstone.  Well, at least not since 2001.  I know what you might be thinking.  Why avoid a place for over 20 years when there's no evidence of it erupting? I mean, there's plenty of things to do in the National Park.  Plenty of sites to see, including the ever so famous Old Faithful, and even some bears and other wildlife to view and snap shots of for family albums you'll spend over an hour scrapbooking.   
 
 
 But for me my vow to never enter that place again started when I took a road trip with a college friend.  We had both finished our second year and wanted to start off our summer driving to Malibu all the way from Jersey.  We had seen way too many advertisements for it and thought it would be a good chance to maybe meet some girls and check out a few food stands. Corny as it sounds.  We were young and didn't really have a plan. But we did make enough time to map out where our relatives were from Point A to Point B. We would be visiting my relatives first in Ohio and his relatives second in Wyoming. Then after a resting point in Nevada, we would do a straight shot to California. And probably dunk ourselves in the water from all the sweat that accumulated in the car.   
 
 
-Well least to say we were exhausted from exiting Ohio and tag teaming each other to take the wheel in order to get to Wyoming. After a mutual decision, we both agreed to rent a cabin and do some sight seeing for a few days before marching back to my 1990 Toyota Corolla to head to his relatives for some half cooked peach pie or something like that.  I can't really remember what dish my friend detested but told me to just be polite and discretely get rid of it since his grandma was sweet and didn't know any better when she baked it.   
+Well least to say we were exhausted from exiting Ohio and tag teaming each other to take the wheel in order to get to Wyoming. After a mutual decision, we both agreed to rent a cabin and do some sight seeing for a few days before marching back to my 1990 Toyota Corolla to head to his relatives for some half cooked peach pie or something like that.  I can't really remember what dish my friend detested but he told me to just be polite and discretely get rid of it since his grandma was sweet and didn't know any better when she baked it.   
 
 
 What I did remember is him mentioning the kill zone.   
@@ -58,7 +58,7 @@ If it wasn't for the smell.
 "Urgh, God. What is that?" I coughed, covering my nose. The smell still crept in, permeating my nostrils with that awful stench. It smelled like burning iron, like pus, like being next to a vat of disposable chemicals. I almost felt sick.  Like I wanted to throw up.   
 
 
-My friend could be so strange, but I miss him.  He just offered his extra mask he had brought and started to put one on himself.   
+My friend could be so strange.  He just offered his extra mask he had brought and started to put one on himself.   
 
 
 "I wanted to bring you here to get your opinion. You're studying this stuff, right?" he asked.   
