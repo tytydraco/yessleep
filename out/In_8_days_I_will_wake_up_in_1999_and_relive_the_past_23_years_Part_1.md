@@ -2,7 +2,7 @@
 
 I’m trapped in a perpetual Groundhog Day, but it’s more than a ‘day’.
 
-The world feels a little grislier with every reset. I’ve always known that some sort of higher power was the architect of my eternal torture. What other explanation could there be? But I no longer simply ‘know’ of that power. I’ve *seen* it.
+The world feels a little grislier with every reset. I’ve always known that some sort of higher power must be the architect of my eternal torture. What other explanation could there be? But I no longer simply ‘know’ of that power. I’ve *seen* it.
 
 Let me rewind. I’m used to doing that, after all.
 
