@@ -1,4 +1,4 @@
-|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|Part 2|[Part 3](https://www.reddit.com/r/nosleep/comments/100k3e2/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|
+|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|Part 2|[Part 3](https://www.reddit.com/r/NightbringerWrites/comments/101dwug/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|[Part 4](https://www.reddit.com/r/nosleep/comments/101dotx/aurora_part_4/?utm_source=share&utm_medium=web2x&context=3)|
 
 We huddled next to the tablet tracking Aurora’s location, excited at there finally being a way to stop her and bring her back.
 
