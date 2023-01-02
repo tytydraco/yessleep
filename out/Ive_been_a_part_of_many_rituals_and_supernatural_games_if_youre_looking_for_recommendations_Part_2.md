@@ -8,9 +8,9 @@ But when it happened, during recess, having slipped into the woods while the tea
 
 Orders from them weren't like orders from my sister, I didn't have to do it no matter what I thought, I wanted to do it. It almost felt like hunger, but I've mostly forgotten what that felt like. It was something that would satisfy me, maybe closer to solving a Rubik's cube. I could tell I was only a few turns away from solving it, I wanted to so bad. My master's emotions filled my soul, pushed all other thoughts away.
 
- I fell behind them as they trudged through the fallen leaves, talking of magical destinies. My magical destiny was getting closer. The sun filtered through the trees, casting us in dim light. The farther we got from the school, the more it fit into place. Amir looked back, asked if I was okay, if I wanted to go back. I shook my head and smiled.
+I fell behind them as they trudged through the fallen leaves, talking of magical destinies. My magical destiny was getting closer. The sun filtered through the trees, casting us in dim light. The farther we got from the school, the more it fit into place. Amir looked back, asked if I was okay, if I wanted to go back. I shook my head and smiled.
 
-I look back on this memory a lot, try to transplant melancholic and loving thoughts into my head. Imagine a version of me that understood the gravity of what was happening. I just felt good. 
+I look back on this memory a lot, try to transplant melancholic and loving thoughts into my head. Imagine a version of me that understood the gravity of what was happening. I just felt good.
 
 As soon as we could no longer see the school, I took off my beanie, and started to peel my skin down, even the pain felt good. My friends didn't notice for a few moments, until Jay glanced back at me. My skin was down to my shoulders, my bones were unfolding and reaching out of me, grabbing onto trees, taking over the peeling. They screamed and ran, smart enough to try to circle back towards the school, with a headstart too as I finished correcting my skin. But I moved so quickly through the trees, propelling myself between them with my bones. I caught Jay first, screaming at the sight of my body, upside down and inside out. I stuffed him into the earth, he slipped so easily between the grass, didn't leave a trace. Amir wasn't too far away, he begged for me to remember that we were friends, then vanished into the ground. My master would come for what was theirs, my friends flesh and blood fed the grass and trees.
 
@@ -137,3 +137,5 @@ She almost wanted to get caught herself, but I told her it only didn't kill me b
 She did make me go back a few more times after that. I tried to get Eudice to drown me out when I did, but it didn't work. Eventually she stopped bringing me and went with whatever boy she was fucking. I was relieved, and worried for them.
 
 If you want to try this ritual, I'd recommend you do it with someone you love, or at least trust, and that you both know exactly what's going to happen. You should probably only do this if you're an adult, but I think that should be obviously true of all of these.
+
+ [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1014m4i/ive_been_a_part_of_many_rituals_and_supernatural/)
