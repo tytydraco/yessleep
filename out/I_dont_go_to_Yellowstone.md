@@ -97,7 +97,7 @@ It was then we heard someone talking from a distance.  Something in a different 
 I just stood there rooted. I couldn't go.   
 
 
-"They're not here yet," I begged, "Let's just - "   
+"They're not here yet," I begged. "Let's just - "   
 
 
 There was the crack of some twigs on the ground that sounded closer. About 50 feet away. Then the sound of someone unfurling plastic could be heard.   
@@ -112,7 +112,7 @@ He put his hand up in a thumbs up signal.
 I bolted as fast as I could.  What took 30 minutes turned into ten and it wasn't until I was firmly at the beginning of the trail that I ripped off my mask and I wheezed. I didn't even care how I looked, but thankfully I was to myself in that moment.  I shuddered and knew whatever I encountered had been the death of him and I let out a small sob before crawling into my Carolla.   
 
 
-I turned on my engine and drove out of there like a bat out of hell. The cabin we had stayed at had a telephone where I then called the police stumbling over sentences to tell them what I could.  I told them I lost my friend on the trail where we had encountered some guys who did something to him and told them exactly where that trail was.  They told me to wait where I was and I would be questioned about it.  After some very frustrating interrogating practically painting me as the culprit, they sent a search party 17 hours later.  After 8 hours, they found the clearing.  They said there was no remnants of metal or my friend. Just a dead squirrel laying on top a patch of dried grass next to a small campfire.   
+I turned on my engine and drove out of there like a bat out of hell. The cabin we had stayed at had a telephone where I then called the police, stumbling over sentences to tell them what I could.  I told them I lost my friend on the trail where we had encountered some guys who did something to him and told them exactly where that trail was.  They told me to wait where I was and I would be questioned about it.  After some very frustrating interrogating practically painting me as the culprit, they sent a search party 17 hours later.  After 8 hours, they found the clearing.  They said there was no remnants of metal or my friend. Just a dead squirrel laying on top a patch of dried grass next to a small campfire.   
 
 
 "Squirrels die all the time, son.  It doesn't mean there's anything abnormal about the area.  Sorry to hear about your friend though," one of them had said to me.   
@@ -145,4 +145,4 @@ I never made it to Malibu, nor do I intend to head that out west again.  I inste
 They walked by my car and he chuckled, "Hot spring." They then broke into giggles and something about it set me off.  That whatever was left of my friend,  there wouldn't be a body.   
 
 
-I couldn't get out of there faster.  I became a hermit and kept to my studies far away from that place.  But it didn't matter.  Whoever realized I don't pry tried to taunt me in my purgatory.  They sent an anonymous letter addressed to me that an eruption could start at Yellowstone with the help of nuclear bombs. I just crumpled it up and it remained in my hand until I regained my senses and placed it on my desk.  It is now that I realize I have a bound contract with my silence.  It sounds so strange when you first hear it. But it's only when you get sucked into the madness that you can see it for what it truly is.  Whatever you want to chalk this up as, I don't go to Yellowstone.  Not anymore.
+I couldn't get out of there faster.  I became a hermit and kept to my studies far away from that place.  But it didn't matter.  Whoever realized I don't pry tried to taunt me in my purgatory.  They sent an anonymous letter addressed to me that an eruption could start at Yellowstone with the help of nuclear bombs. I just crumpled it up and it remained in my hand until I regained my senses and placed it on my desk.  It is now that I realize I have a bound contract with my silence.  It sounds so strange when you first imagine it. But it's only when you get sucked into the madness that you can see it for what it truly is.  Whatever you want to chalk this up as, I don't go to Yellowstone.  Not anymore.
