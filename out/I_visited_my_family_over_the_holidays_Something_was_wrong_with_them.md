@@ -19,3 +19,5 @@ I was puzzled for a moment and everything went cold. I wanted to throw up and sc
 I couldn’t contain myself and broke down explaining everything through tears. Eventually I calmed down. We didn’t know what to do or who to call. On the way out of town one of the thin roads had a fallen tree laid across it. We stopped to get out and halfway through trying to move the log I heard something behind me. It was my father approaching me, wearing that furious yet despondent face. I didn’t hesitate I jumped into the seat and we rammed the log out of the way, destroying our front bumper. We got away and thats what was important. 
 
 Arriving home we learned I had hundreds missed calls from my family.
+
+Update: https://www.reddit.com/r/nosleep/comments/1019vv0/i_visited_my_family_over_the_holidays_something
