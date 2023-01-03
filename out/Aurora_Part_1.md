@@ -1,4 +1,4 @@
-|Part 1|[Part 2](https://www.reddit.com/r/nosleep/comments/zzszpr/aurora_part_2/?utm_source=share&utm_medium=web2x&context=3)|[Part 3](https://www.reddit.com/r/NightbringerWrites/comments/101dwug/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|[Part 4](https://www.reddit.com/r/nosleep/comments/101dotx/aurora_part_4/?utm_source=share&utm_medium=web2x&context=3)|
+|Part 1|[Part 2](https://www.reddit.com/r/nosleep/comments/zzszpr/aurora_part_2/?utm_source=share&utm_medium=web2x&context=3)|[Part 3](https://www.reddit.com/r/NightbringerWrites/comments/101dwug/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|[Part 4](https://www.reddit.com/r/nosleep/comments/101dotx/aurora_part_4/?utm_source=share&utm_medium=web2x&context=3)|[Part 5](https://www.reddit.com/r/nosleep/comments/1029lfp/aurora_part_5_final/?utm_source=share&utm_medium=web2x&context=3)| 
 
 Awakening, I lifted my head up from the lab table, the side of my face sticky with sweat. My fellow colleague, Dr. Raj, stopped shaking me as I slowly got up.
 

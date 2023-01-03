@@ -1,4 +1,4 @@
-|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|[Part 2](https://www.reddit.com/r/nosleep/comments/zzszpr/aurora_part_2/?utm_source=share&utm_medium=web2x&context=3)|[Part 3](https://www.reddit.com/r/NightbringerWrites/comments/101dwug/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|Part 4|
+|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|[Part 2](https://www.reddit.com/r/nosleep/comments/zzszpr/aurora_part_2/?utm_source=share&utm_medium=web2x&context=3)|[Part 3](https://www.reddit.com/r/NightbringerWrites/comments/101dwug/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|Part 4|[Part 5](https://www.reddit.com/r/nosleep/comments/1029lfp/aurora_part_5_final/?utm_source=share&utm_medium=web2x&context=3)|
 
 “Leh?”, Diana asked, stepping out of the shower. “Where is that?”
 
