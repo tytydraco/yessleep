@@ -122,7 +122,7 @@ And you never know exactly when she’s going to show up.
 
 I’m heading into work for another night shift now.  Wish me luck.  
 
-I’m gonna need [it.](https://youtu.be/rHcK2TpBeG4)
+I’m gonna need [it.](https://youtu.be/_W_pBLz6164)
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
