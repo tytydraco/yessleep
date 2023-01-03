@@ -1,0 +1,16 @@
+ 
+
+We arrived at the location that Dr. Camber told us about. We looked around and saw a frozen lake and not much else. We were in the arctic circle of Northern Canada. We walked over to the lake and examined it. It didn’t propose much about what we were looking for. We cautiously stepped on the frozen water, testing to see if it would hold our combined weight. Once we were sure it could, we walked out into the middle. We were in the exact coordinates Dr. Camber sent us too. Nothing. We set up our supplies, and started making our way out, slowly looking around the lake. The ice was so thick, we couldn’t see the bottom. One member reached the edge of their area. “Falcon 1 this is Foxtrot 3, I have reached the edge. Nothing to see here.”
+
+“Foxtrot 3 this is Falcon 1, head on back over.” Falcon 1, our team leader responded. Foxtrot 3 started walking back, then fell through the ice. I was the closest to his position and ran over. I stopped a few feet from the hole and slowly made my way over to make sure the edge would hold my weight. Once I was sure it would, I leaned over and stuck my head under water. What I saw blew the breath from my lungs. It was a pristine, white city. Shifting. Changing. Buildings combined, and broke apart. They changed shape. What amazed me most was that it was moving towards me. I saw foxtrot 3 trying to swim back up. “Foxtrot 3 this is Bluejay 2, do you copy?”
+
+“Bluejay 2 this is foxtrot 3, I do copy. Something is pulling me in. Send back up.”
+
+“Bluejay this is Falcon 1, leave foxtrot 3. Come back and tell us what you saw.” I looked back at the white city, realizing it looked frozen for the first time. It had come closer, and a vortex was starting to form under the water. I noticed that weirdly the water was warm, while everything else was cold. Foxtrot 3 was directly in the middle of the vortex. The city still crept closer, and the pull of the vortex was starting to reach me. I pulled my head up and backed away. 
+
+“This is Bluejay 2, calling out to everyone, back off the ice.” 
+
+“This is Falcon 1, calling to everyone, you heard Bluejay 2. Pack it up and move.” Once all the supplies were packed up and moved safely away from the water, I started to explain what I saw to Falcon 1. “What did you see Bluejay?”  
+“You wouldn’t believe me if I told you Falc. It was a city… A frozen city that was moving… Not just moving like locations but it was shifting. Changing… The buildings would combine, or break. And there was this… this weird vortex that started pulling Foxtrot in. The water was also warm, maybe like 26.6 degrees celsius. It was weird Falc. I don’t understand it. How did Dr. Camber know what was here?” 
+
+“Those answers are above my paygrade Blue. But you did just start here right? This is your first field mission?” I nodded my head. “Well what you’re gonna see is only gonna get more weird Blue. Trust me.” I just stare at him, confused, worried, and most of all frightened. How could he be so calm about it? What had he seen before?

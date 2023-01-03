@@ -80,11 +80,11 @@ The rain intensified and people kept chanting that, over and over until a bolt o
 
 “Samael! What has he told you, my precious? What must we do?” Deb cooed.
 
-“No, we now have a new, more powerful dark lord than Samael. The red dragon Sarensetsu is the one who guides us now. He was closer to Yahweh when he fell from grace; and unlike Samael he has a plan to reach godhood still.” She prophesied in an unearthly deep tone.
+“No, we now have a new, more powerful dark lord than Samael. The red dragon Saren is the one who guides us now. He was closer to Yahweh when he fell from grace; and unlike Samael he has a plan to reach godhood still.” She prophesied in an unearthly deep tone.
 
 Deb fell to her knees before Dora. “What must we do? What must we call you?”
 
-“I am Dora, first Grand Wizard of the KKK. And from this point forward grand dragon will be the highest rank below me.” She ordered. “And what we must do. AS you have given me a body we must give our lord Sarensetsu a body. That is the first step he must take to overthrow Yahweh.” She lamented.
+“I am Dora, first Grand Wizard of the KKK. And from this point forward grand dragon will be the highest rank below me.” She ordered. “And what we must do. AS you have given me a body we must give our lord Saren a body. That is the first step he must take to overthrow Yahweh.” She lamented.
 
 “How can we construct a body befitting our new lord?” She cried.
 
@@ -102,7 +102,7 @@ I then saw a golden dragon floating in place moving around rapidly. No one else 
 
 Before I could even respond I was brought back to reality where Dora was talking.
 
-“Deb, one of your sons in a future life will be the reincarnation of Julius Caesar. He is a being called a changeling, and in order to reach the power of level of Yahweh Sarensetsu must eat both him and the reincarnation of Cleopatra. Only then will he be able to overthrow Yahweh. We need to find the Changeling, our god must have food!” She screamed. “We need to do a practice run! A dress rehearsal! We must be ready when that awful man comes back! You!” She screamed pointing right at me. “I don’t like you!”
+“Deb, one of your sons in a future life will be the reincarnation of Julius Caesar. He is a being called a changeling, and in order to reach the power of level of Yahweh Saren must eat both him and the reincarnation of Cleopatra. Only then will he be able to overthrow Yahweh. We need to find the Changeling, our god must have food!” She screamed. “We need to do a practice run! A dress rehearsal! We must be ready when that awful man comes back! You!” She screamed pointing right at me. “I don’t like you!”
 
 “Run straight towards her and grab those three journals” Yahweh ordered.
 
