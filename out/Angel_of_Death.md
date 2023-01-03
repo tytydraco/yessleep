@@ -20,7 +20,7 @@ Mr. Lebrun frowns. "About two years. I came here after my daughter got married. 
 
 \- "Very well, very well. Past 3 o'clock already. Shall we begin?", my boss interrupts.
 
-\- "Where's the rest of the staff?"
+\- "Where's the rest?"
 
 \- "What do you mean?"
 
@@ -38,11 +38,11 @@ I step to the operation table and whisper into the patient's ear: "Tell me, Mr. 
 
 The look of surprise on his face is delicious.
 
-\- "I, for myself, have always found it difficult to believe. But if there's a God, I should be damn grateful", I say, glancing at the calendar. "For today, Wednesday, the 23rd of September 1964, is the happiest day in my life. This is the day I cut you open, rip your heart out, eviscerate you and extract every single of your organs that might be good for anything before tossing your worthless body away and erasing you from this earth. That's what I'm going to do now, you old fuck."
+\- "I, for myself, have always found it difficult to believe. But if there's a God, I should be damn grateful", I say, glancing at the calendar. "For today, Wednesday, the 23rd of September 1964, is the happiest day in my life. This is the day I cut you open, rip your heart out, eviscerate you and extract every single of your organs that might be good for anything before tossing your worthless body away and erasing you from this earth, you old fuck."
 
 The man's eyes fill with fear. It must have occured to him that he can still hear me.
 
-\- "And the best part of it? You will be awake for the most of it. You don't think we actually induced narcosis, do you? Thanks to Sophie here slipping you a strong muscle relaxant instead, you won't be able to move, you won't be able to scream, yet you're going to feel all of it. Every. Single. Cut.
+\- "And the best part of it? You will be awake for most of it. You don't think we actually induced narcosis, do you? Thanks to Sophie here slipping you a strong muscle relaxant instead, you won't be able to move, you won't be able to scream, yet you're going to feel all of it. Every. Single. Cut.
 
 But from doctor to doctor: You would be proud of me right now, wouldn't you?"
 
