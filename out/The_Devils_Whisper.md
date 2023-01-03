@@ -1,4 +1,4 @@
-  
+ 
 
 As I walk through the school hall, I feel like I'm the only one here. Everyone else is in their own little groups, talking and laughing. I feel like an outsider, like I don't belong.
 
@@ -20,7 +20,7 @@ The entire class was silent, and I could feel everyone's eyes on me. I was embar
 
 I can't believe I did this. I'm running away from class. I can feel my heart pounding in my chest as I sprint out of the classroom and down the hallway. I can hear the teacher calling after me, but I don't stop. I keep running until I'm out of the school and into the safety of the street. I take a few moments to catch my breath and try to calm down. I know I have to go back eventually, but for now I just need to get away.
 
- I was walking home from school, feeling a little bit guilty about what I had done. I had taken a sh\*t in my friend's backpack!, and I knew I was going to get in trouble for it.
+I was walking home from school, feeling a little bit guilty about what I had done. I had taken a sh\*t in my friend's backpack!, and I knew I was going to get in trouble for it.
 
  When I got home, my dad was waiting for me. I was so embarrassed as I stood there in front of my dad, feeling the heat of his anger radiating off of him. He had just gotten off the phone with my school principal, who had informed him of my latest misdeed.
 
@@ -36,13 +36,13 @@ I had expected it to be angry or dismissive, but it was neither.
 
 The voice was silent again, then it said, "You must steal your father's car and go meet me in the forest". "Why do I need to do this?" I ask the voice. The voice responds, "It is the only way. Do not hesitate, do it now!"
 
-I'm lying in bed, my mind racing with ideas. I can't believe I'm actually considering stealing my dad's car. I know it's wrong, but I'm desperate. I glance at the clock. It's almost midnight. I know my dad will be asleep by now, so I should be able to get away with it. I take a deep breath and get out of bed. I'm going to do this. I crept out of my room and down the stairs. 
+I'm lying in bed, my mind racing with ideas. I can't believe I'm actually considering stealing my dad's car. I know it's wrong, but I'm desperate. I glance at the clock. It's almost midnight. I know my dad will be asleep by now, so I should be able to get away with it. I take a deep breath and get out of bed. I'm going to do this. I crept out of my room and down the stairs.
 
 My dad kept his car keys in the top drawer of his desk, so i snuck into his office and opened the drawer. I grabbed the keys and quickly ran out of the room, feeling a rush of adrenalin. I was shaking with excitement and fear as I opened the garage door.
 
 I had never driven a car before, but I figured it couldn't be too hard. I got in the driver's seat. I turned the key in the ignition and the engine roared to life. I was off! I slowly put my foot on the gas pedal and the car started to move.
 
-I was driving down the highway, my hands gripping the steering wheel tightly as I tried to focus on the road ahead. Suddenly, a voice in my head spoke up, startling me. "Turn left at the next intersection," it said. "Turn left," it repeated, this time with more urgency. My heart raced as I slowly turned the wheel, following the voice's instructions. 
+I was driving down the highway, my hands gripping the steering wheel tightly as I tried to focus on the road ahead. Suddenly, a voice in my head spoke up, startling me. "Turn left at the next intersection," it said. "Turn left," it repeated, this time with more urgency. My heart raced as I slowly turned the wheel, following the voice's instructions.
 
 I glanced in the rearview mirror, expecting to see someone following me, but there was no one there. The voice continued to guide me, telling me when to turn and when to speed up. I felt like I was in a trance, unable to control my own actions.
 
@@ -50,12 +50,12 @@ I glanced in the rearview mirror, expecting to see someone following me, but the
 
 I stepped out of the car and were immediately surrounded by a thick fog that seemed to be coming from nowhere. I looked around but couldn't see more than a few feet in front of me.
 
-I was walking through the forest, feeling the cool breeze on my skin and the crunch of the leaves beneath my feet. Suddenly, I heard a voice in my head. It was deep and menacing, and it said, "Go deeper into the forest. You will find what you seek." I hesitated, feeling a chill run down my spine. I wanted to turn around and run away, but something compelled me to keep going. 
+I was walking through the forest, feeling the cool breeze on my skin and the crunch of the leaves beneath my feet. Suddenly, I heard a voice in my head. It was deep and menacing, and it said, "Go deeper into the forest. You will find what you seek." I hesitated, feeling a chill run down my spine. I wanted to turn around and run away, but something compelled me to keep going.
 
 The voice in my head kept talking, guiding me through the trees. It told me to turn left, then right, then left again. I followed its instructions, feeling a strange sense of dread as I went.
 
  Finally, I reached a clearing in the forest. In the center of the clearing was a large, ancient temple. The voice in my head said, "This is the way. Go inside and you will find what you seek." I can feel the power emanating from the structure, as if it has been here for centuries. I take a few steps closer and run my hand along the cold stone. I can almost feel the history of the temple, and I'm filled with a sense of reverence.
 
- I took a deep breath and stepped inside.
+I took a deep breath and stepped inside.
 
 Part 2 is coming soon.

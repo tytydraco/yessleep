@@ -99,3 +99,5 @@ And the word on the street is that they’ve got a limo here too. Once or twice,
 Because I know who I am, and I know who I’ve been. But I don’t know who I’m going to be. And the limo is always there, cruising the streets, waiting for me to knock again.
 
 You see, the one thing everyone says is that most of the people who knock on the limo’s door are repeat customers. Even people like me who drew a queen. Even people who survived drawing an [ace](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
+
+[Update!](https://www.reddit.com/r/scarymaxx/comments/102kh4b/pray_you_never_draw_the_joker_rscarymaxx_exclusive/)
