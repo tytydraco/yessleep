@@ -6,7 +6,7 @@ I planned on staring out my shitty apartment window and watch all the fireworks 
 
 And sure enough, I saw fireworks launching up and promptly exploding into fabulous colors. I gazed in awe. Actually I didn't notice the buzzing from my phone at first, which I picked up and saw another warning message.
 
-"WARNING! This is not a test, this is an official warning from the EMBC. A being of unknown origin is on our planet. We advise you all to stay inside, turn off all lights, lock everything, stay in a room that can be locked AND has no windows, and do not light any fireworks. May god help us all."
+"WARNING! This is not a test, this is your warning. A being of unknown origin is nearby. We advise all citizens to stay inside, turn off all lights, lock everything, stay in a room that can be locked AND has no windows, and do not light any fireworks. May god help us all."
 
 My hand was shaking. A being of unknown origin, an alien probably, this was just so unbelievable. My apartment had no blinds, but my bathroom was the safest place, so I ran there immediately, swiftly locking the door.
 
@@ -34,11 +34,11 @@ Struggling to get up, I grabbed the container of pills left on my bathroom sink,
 
 When I woke up, there was no screams, and my phone buzzed immediately, it knew when I was going to wake up.
 
-"To all survivors, please, go outside and light some fireworks, we need to be able to find you, whoever is left. Thanks."
+"If you are still alive, please immediately step outside and light some fireworks or make your presence known. Thank you."
 
 I shook my head, that's bullshit. That must be the beings, it's the aliens. They want to find us, they want to find the remaining people left alive.
 
-So to anyone still left, don't light any fireworks. You can't trust the EMBC, you can't trust the news, don't even trust your friends.
+So to anyone still left, don't light any fireworks. I can"t trust these warnings, and don't even think that you can trust your friends.
 
 My mom and dad keep messaging me but I know they died, the monster's got them, I already blocked them both.
 
