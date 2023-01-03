@@ -12,7 +12,7 @@ I was hooked. And what a strange line. “Yes, sometimes. This morning even.”
 
 “Do you fear death?”
 
-I clocked her red shirt. Right. Same colour as the sign, bright red with a red name tag to boot. Was too busy eyeing her elongated sneer so the get up went unnoticed initially. She had a hollow look to her. Greasy bob hung on the sides of her face like limp arms off a fresh corpse. “Yes, I suppose I do. Hasn’t stopped me yet though.” I pointedly took another drag on my cigarette - I thought that was kind of funny, and it had been quick, but she didn’t even give me a wrinkle.
+I clocked her red shirt. Right. Same colour as the sign, bright red with a red name tag to boot. Was too busy eyeing her elongated sneer, so the get up went unnoticed initially. She had a hollow look to her. Greasy bob hung on the sides of her face like limp arms off a fresh corpse. “Yes, I suppose I do. Hasn’t stopped me yet though.” I pointedly took another drag on my cigarette - I thought that was kind of funny, and it had been quick, but she didn’t even give me a wrinkle.
 
 She leaned in close, and thickened the atmosphere with her perfume. Conspiratorial lean. I’ve-got-a-secret type of lean. “There is no need to fear death.” She bared her teeth, an attempt at a smile, and placed her hand on my shoulder. She was even more unpleasant up close. She took my cigarette with her other hand, took it down to the butt with one tight pull, and blew all the smoke in my face. “Would you like to *wake up*?” She asked, face looming out of the fog she’d created, and answered herself before I had chance. “Come with me.” She ran a finger down my arm and it jumped into my hand, pulling me into the alley.
 
