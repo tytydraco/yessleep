@@ -93,9 +93,9 @@ If we were at work behind the Starbucks counter, I would have hit him by now. Bu
 
 “Thank you.” I gestured inside. “Come on in!”
 
-The two of them followed by inside. In true Charlie fashion he went to hunt down Maisie. He was probably the only human besides me she could maybe tolerate if he didn’t overly stroke her. While Gabe made himself useful, setting up the table. 
+The two of them followed me inside. In true Charlie fashion he went to hunt down Maisie.
 
-The two of us vibed to Christmas music. He still wasn’t taking off his apron. I was starting to think he liked wearing it. 
+He was probably the only human besides me she could maybe tolerate if he didn’t overly stroke her. Gabe made himself useful, setting up the table. The two of us vibed to Christmas music. He still wasn’t taking off his apron. I was starting to think he liked wearing it. 
 
 “So, who is this Mina girl?” Gabe set down four plates, side-stepping to a pop song. I was leaning against the counter, frowning at the Hello Fresh instructions. According to them, everything should have been going okay. Though I was worried about the asparagus. It hadn’t specified whether I needed to roast or boil them.
 
@@ -237,13 +237,17 @@ There was something floating above me. Right over my head. Initially, I thought 
 
 I was almost trance-like, staring at this thing in the air, this thing that didn’t make sense, before my friend turned back to the toilet seat, this time speaking through sharp breaths. “I’m okay.” He hissed out. 
 
-Except this time he barfed, bright red escaped his mouth, dribbling down his chin, and he collapsed over the toilet seat. “Okay.” Gabe slurred in a laugh which choked into a sob.  
+Except this time he barfed, bright red escaped his mouth, dribbling down his chin, and he collapsed over the toilet seat. “Okay. Maybe I'm not okay. ” Gabe slurred in a laugh which choked into a sob. His body jolted again, and with him, so did the room. I wasn’t imagining it.
 
-His body jolted again, and with him, so did the room. I wasn’t imagining it. The room began to shake and tremble, shampoo bottles raining down from the shelves. I thought it was an earthquake until Gabe hung onto the toilet bowl, squeezing hard. He twisted around to face me with wide eyes. His frenzied gaze found the corner of the bathroom, and bottles of my body wash were exploding, colourful froth spattering the walls. Before it found the shower, the nozzle growing a mind of its own, twisting itself up the wall before dropping back onto the tiles.
+The room began to shake and tremble, shampoo bottles raining down from the shelves. I thought it was an earthquake until Gabe hung onto cold porcelain, squeezing hard. He twisted around to face me with wide eyes.
+
+His frenzied gaze found the corner of the bathroom, and bottles of my body wash were exploding, colourful froth spattering the walls. Before it found the shower, the nozzle growing a mind of its own, twisting itself up the wall before dropping back onto the tiles.
 
 Gabe turned back to the bowl, hissing out a breath. “I don’t think I’m okay, Luce. Fuck. I think you need to… to get someone.”
 
-As soon as the words had left his mouth, the room stopped shaking.  I was quick to soak towels in cold water. Ignoring spiralling red spattering the porcelain white of the toilet bowl, I struggled to press them onto his forehead. “I’m going to get you help, okay?” I managed to get out.
+As soon as the words had left his mouth, the room stopped shaking. 
+
+Ignoring spiralling red spattering the porcelain white of the toilet bowl, I struggled to press them onto his forehead. “I’m going to get you help, okay?” I whispered. "Just hold on."
 
 “Mmm. Just gimme a sec.” Gabe slurred. “I’m okay. I’m gonna be…” He hiccupped, more red hitting white. “I’m gon be okay.”
 
@@ -389,7 +393,7 @@ The smell of fried onions, as well as a sharp, intense pain writhing in the palm
 
 I found myself lying on my back on my dining room table. When I tried to move, tried to get up, I couldn’t. I twisted my head to seek out where the pain was coming from. The first thing I saw through frayed vision was the wooden edge of a knife trembling mid-air. Blinking rapidly, I thought I was hallucinating. Nope. 
 
-The knife was definitely real, and definitely suspended in mid-air. Panic started to ignite inside of me—and before I could speak, the air was moving in front of me. Suddenly, the knife wasn’t as clumsy as I thought it was. It didn’t tremble and shake. It cocked to the left and then the right. Like it could sense my fear. There was a figure blooming behind the knife. 
+The knife was definitely real, and definitely suspended in mid-air. Panic started to ignite inside of me—and before I could speak, the air was moving in front of me. Suddenly, the knife wasn’t as clumsy as I thought it was. It didn’t tremble and shake. It cocked to the left and then the right. Like it could sense my fear. There was a figure blooming behind it. 
 
 Gabe. 
 
