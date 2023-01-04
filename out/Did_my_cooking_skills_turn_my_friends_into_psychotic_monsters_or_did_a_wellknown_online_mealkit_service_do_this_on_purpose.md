@@ -67,7 +67,7 @@ As usual, the two of them looked like they had just rolled out of bed. Which sui
 
 I could see it. They had fairly similar facial structures and dark brown hair, but while Gabe was an extroverted joker with a strong Boston accent, Charlie was a soft spoken Brit who we had to force into social situations.
 
-Peering at me through thick strands of dark hair, Gabe cocked his head. A cigarette was curled between his lips. He took a drag, exhaling smoke in my face. “Good evening to the girl who doesn’t know how to make basic meals attempting to have a whole ass dinner party.”
+Peering at me through thick strands of dark hair, Gabe cocked his head. A cigarette was curled between his lips. He took a drag, exhaling smoke in my face. “Good evening to the girl who can't make basic meals attempting to have a whole ass dinner party extravaganza."
 
 I could tell from the slight snorts between the cigarette, he’d been waiting to say that line all day.
 
@@ -79,9 +79,9 @@ Charlie shoved him back. “Behave.” He said, shooting me a smile. “Are you 
 
 “Terrified.” I admitted.
 
-“Relax!” Gabe handed over bright yellow bag,  grabbing my shoulders gently. “We’re here so you don’t burn down your house.”
+“Relax!” Gabe handed over a bright yellow bag,  grabbing my shoulders gently. “We're here so you don’t burn down your house.”
 
-“Ignore him.” Charlie rolled his eyes, pocketing his phone. “We’re here to help.” He nodded at me reassuringly. “Everything okay so far?”
+“Ignore him.” Charlie rolled his eyes, pocketing his phone. “We’re here to help. ” He nodded at me reassuringly. “Everything okay so far?”
 
 My ideal scenario was to have the boys arrive last. Dinner would be ready by then, and they wouldn’t have to open their mouths. I could tell Gabe had foreseen this—and was determined for the exact opposite to happen. I don’t think he was trying to ruin the night, but definitely wanted to make sure things didn’t go squeaky clean. I was 100% sure he was ready to tell Mina my most embarrassing stories—and alcohol would induce that. It was too late to send them away. I had already told Mina they were tagging along. So, I was going to grin and bear it.
 
@@ -251,7 +251,7 @@ I could barely breathe.
 
 “How are you doing that?” I whispered.
 
-Gabe’s gaze flicked to the state of the bathroom, to tiles still lightly quivering under my feet. “I have no idea. But… fucking cool, right?" He blinked slowly, and the faucet exploded, showering us in ice cold water. 
+Gabe weakly lifted his head, his gaze flicking to the state of the bathroom, to tiles still lightly quivering under my feet. “I have no idea. But… fucking cool, right?" He blinked slowly, and the faucet exploded, showering us in ice cold water. 
 
 When his eyes rolled back, his body going limp against the toilet seat, I found myself stiff.
 
@@ -327,7 +327,7 @@ What? Didn’t I call 911? I didn’t have time to question it. Before I could c
 
 Clutching the phone to my ear, I tried to pry Mina’s eye open. Several feet away, Charlie was completely out. “I think they’re dead.” I whispered in a hiss. “Did I kill them? It was just a chicken recipe. But I can’t understand…” My chest felt like it was on fire. “They’re not experiencing… normal symptoms.” I couldn’t stop myself from crying, then. “Can you help them? There’s something wrong. My friends…"
 
-The woman hummed. She seemed remarkably calm. “No, they’re not dead,” she said. “This is just the ingesting phase. Following that is the Blossoming phase.” Katy paused and cleared her throat. “Which we have appeared to have gone wrong. Please provide your home address.”
+The woman hummed. She seemed remarkably calm. “No, they’re not dead,” she said. “This is just the ingesting phase. Following that is the Blossoming phase.” Katy paused and cleared her throat. “Which has appeared to have gone wrong. Please provide your home address.”
 
 “What?” I shrieked. “Why do you want my address?”
 
@@ -347,13 +347,13 @@ I could feel myself taking slow steps back.
 
 “What are you… talking about? You did this?”
 
-“Yes. The food your friends ingested is the cause of their current symptoms. I’m talking about the blossoming stage. After ingesting, their bodies will go into a sort of… hibernation, by either going to sleep or simply sitting or standing. They will not be showing any emotion, due to second stage taking over their brain. They may utter speech but it will be slurred or incomprehensible. Laughing has also been reported.”
+“Yes. The food your friends ingested is the cause of their current symptoms. I’m talking about the blossoming stage. After ingesting, their bodies will go into a sort of… hibernation, by either going to sleep or simply sitting or standing. They will not be showing any emotion, due to the second stage taking over their brain. They may utter speech but it will be slurred or incomprehensible. Laughing has also been reported.”
 
 “What do you mean by that?”
 
 “I mean…” Katy paused. “Your friends… they won’t exactly be themselves when they break from the blossoming stage.”
 
-“They’re dead?” I said again. 
+“They’re dead?”
 
 “Well… yes and no. Not dead in the brain.”
 
@@ -361,7 +361,9 @@ Another step back.
 
 Her words weren’t registering.
 
-In front of me, Mina’s head jerked from side to side, her eyes snapping open, lips curling into an animalistic snarl revealing incisors which definitely weren’t there before. I took a slow breath and took slow steps, backing away towards the door. “Why is this happening to them?”
+In front of me, Mina’s head jerked from side to side, her eyes snapping open, lips curling into an animalistic snarl revealing incisors which definitely weren’t there before. I took a slow breath, backing away towards the door. 
+
+“Why is this happening to them?”
 
 “Well, miss—”
 
