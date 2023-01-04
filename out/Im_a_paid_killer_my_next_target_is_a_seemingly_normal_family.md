@@ -18,7 +18,7 @@ It was my client, did he actually just pay me to kill him and his entire family?
 
 Did they spot me, was it a glint from my scope? No matter, it was 12:59, I held my breath, and took the shot. I cocked my rifle as I exhaled and got ready to aim for the mother. My eyes widened. The father was still standing, a clear shot through the head, no blood even came out from his wound.
 
-I was quick get up and swing my rifle over my shoulder to get out of there. That family is not human, and I got paid to do the impossible. I got into my truck and started the ignition. 
+I was quick get up and swing my rifle over my shoulder to get out of there. That family is not human, and I got paid to do the impossible. I got into my truck and started the ignition.
 
 When I slammed on the gas pedal to leave the vicinity, I didn't get far. My tires were slashed, definitely.
 
@@ -45,3 +45,5 @@ If I ration my supplies properly, I'd say I have a week to survive. As in advanc
 Still though, this whole thing kind of scares me. What is that family, how didn't the father die, why did my client pay for me to kill him and his wife and kids, and if they aren't human, what are they?
 
 I have a bad feeling, something is definitely close.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/102v0nm/im_a_paid_killer_and_my_next_target_wasnt_a/?utm_source=share&utm_medium=web2x&context=3)
