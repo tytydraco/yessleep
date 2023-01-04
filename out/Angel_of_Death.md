@@ -46,7 +46,7 @@ The man's eyes fill with fear. It must have occured to him that he can still hea
 
 But from doctor to doctor: You would be proud of me right now, wouldn't you?"
 
-Mr. Lebruns eyes dart around in panic, but all he can do is slowly open his mouth, unable to mutter a syllable.
+Mr. Lebrun's eyes dart around in panic, but all he can do is slowly open his mouth, unable to mutter a syllable.
 
 \- "I might have lied to you previously. We do, in fact, know each other. It's been 20 years, give or take, but I recognized you the moment you stepped through our hospital door for your first appointment. Nice job you did with the beard. And Lebrun? A French name? Creative. But I know your name, Doctor. Your soulless eyes gave you away."
 

@@ -251,9 +251,15 @@ I could barely breathe.
 
 “How are you doing that?” I whispered.
 
-Gabe’s gaze flicked to the state of the bathroom, to tiles still lightly quivering under my feet. “I have no idea. But… fucking cool, right?" He blinked slowly, and the faucet exploded. When his eyes rolled back, his body going limp against the toilet seat, I found myself stiff. I couldn’t move.
+Gabe’s gaze flicked to the state of the bathroom, to tiles still lightly quivering under my feet. “I have no idea. But… fucking cool, right?" He blinked slowly, and the faucet exploded, showering us in ice cold water. 
 
-I couldn’t speak. Gabe wasn’t moving. His skin was shining with sweat. He was so pale. So, fucking pale.
+When his eyes rolled back, his body going limp against the toilet seat, I found myself stiff.
+
+ I couldn’t move.
+
+I couldn’t speak. 
+
+Gabe wasn’t moving. His skin was shining with sweat. He was so pale. So, fucking pale.
 
 “Charlie!” I didn’t realise I was screaming. I was numb.
 
@@ -267,17 +273,19 @@ No, I couldn’t have killed him! It wasn’t me. I cooked the chicken! And even
 
 “Mina!”
 
-Charlie’s panicked voice cut through my thoughts, and I snapped out of it. I waited for several painstaking moments waiting for Gabe to move—to tell me he was still alive. He did. But not in the way I wanted. Instead, his body writhed, jolting erratically. 
+Charlie’s panicked voice cut through my thoughts, and I snapped out of it. I waited for several painstaking moments waiting for Gabe to move—to tell me he was still alive. He did. But not in the way I wanted. Instead, his body writhed. And with that movement came one final quake under my feet. I couldn’t call that a sign that he was still alive, but it was something. Slowly, I made my way over to him.
 
-And with that movement came one final quake under my feet. I couldn’t call that a sign that he was still alive, but it was something. Slowly, I made my way over to him. He was still breathing. But his heartbeat was erratic. Putting him in the recovery position, I noticed his skin was ice-cold. It’s weird. Like his body was dead. His face was white, slight bruising under his eyes. But Gabe still had a pulse. 
+He was still breathing. But his heartbeat was erratic. Putting him in the recovery position, I noticed his skin was ice-cold. It’s weird. Like his body was dead. His face was white, slight bruising under his eyes. But Gabe still had a pulse. He was alive, and yet it made no sense how he was alive. So much blood. It painted him and the toilet bowl. When I left him, his arms were twitching beneath him, fingers curling into a fist. Gabe should have been dead. 
 
-He was alive, and yet it made no sense how he was alive. So much blood. It painted him and the toilet bowl. When I left him, his arms were twitching beneath him, fingers curling into a fist. I was diving for my bag and phone to call an ambulance, when I noticed something was very wrong. 
+But he wasn't. 
 
-Charlie was on his knees, coughing violently into blood soaked hands, and Mina lying on her back. Her eyes were flickering, lips opening and closing, a thin line of red seeping down her chin. But looking closer, her body wasn’t quite on the floor. No. It was… hovering. Levitating. Several feet from my favorite rug.
+I was diving for my bag and phone to call an ambulance when I noticed something was very wrong. Charlie was on his knees, coughing violently into blood soaked hands, while Mina lay on her back. Her eyes were flickering, lips opening and closing, a thin line of red seeping down her chin. But looking closer, her body wasn’t quite on the floor. No. It was… hovering. 
 
-Mina was unresponsive. When I shook her, tried to pull her back to the ground, her body seemed to shake me off.
+Levitating. 
 
-“Charlie.” I spoke softly, already dialling 911 with trembling hands. “What… what happened to her?”
+Several feet from my favorite rug.
+
+Mina was unresponsive. When I shook her, tried to pull her back to the ground, her body seemed to shake me off. “Charlie.” I spoke softly, already dialling 911 with trembling hands. “What… what happened to her?”
 
 His next cough exploded from him. And the tissue paper he was spluttering into burst into startling orange.
 
@@ -291,13 +299,19 @@ I found Charlie’s unfocused eyes. There was something alive around his iris. S
 
 I almost laughed. 911 was taking a while to connect, and I found myself wondering how. It shouldn’t have taken that long.
 
-“Dizzy?!” I hissed, gesturing to the flickering flame between his fingers.
+“Dizzy?!” I hissed, gesturing to the flickering flame.
 
- It took me a second to realise blurry orange was writhing across the tips of his fingers. I don’t think he was fully aware of what was happening. “You can see it too?” His eyes widened, and his head cocked, eyes illuminated orange light flickering across mesmerising flame crawling across his flesh. “Well, shit.”
+It took me a second to realise blurry orange was writhing across the tips of his fingers.
+
+I don’t think he was fully aware of what was happening. “You can see it too?” His eyes widened, and his head cocked, eyes illuminated orange light flickering across mesmerising flame crawling across his flesh. “Well, shit.”
 
 He choked out a laugh, swaying slightly.  “I thought I was tripping.” Another bloody cough spluttered from his lips. Behind me, the holiday decorations I had strung across the wall burst into flames. Everything happened in slow motion, and somehow I was reacting like I knew what was going on. 
 
-Grabbing a glass of water, I put the mini fire out with the phone pressed to my ear. I didn’t see Charlie’s knees hit the ground. I didn’t see him drop to the ground. Instead, I was pacing the room, desperate to get to the emergency services. Even when there was no way to explain what I had seen. This wasn’t food poisoning. It couldn’t be. This was way more advanced than a virus.  When a woman’s friendly voice finally sliced into my ear, a shiver rocketed down my spine.  A thud made me jump.
+Grabbing a glass of water, I put the mini fire out with the phone pressed to my ear. I didn’t see Charlie’s knees hit the carpet. Instead, I was pacing the room, desperate to get to the emergency services. Even when there was no way to explain what I had seen. 
+
+This wasn’t food poisoning. It couldn’t be. This was way more advanced than a virus.  
+
+When a woman’s friendly voice finally sliced into my ear, a shiver rocketed down my spine.  A thud made me jump.
 
 Mina had hit the ground, gravity finally yanking her body down. I crawled over to her. She was alive. Just freezing cold.
 
@@ -323,7 +337,7 @@ At the corner of my eye, Charlie’s body writhed for a few seconds, and next to
 
 I stamped it out. “18 to 25.” I told her. “What do you mean, extraction? What’s wrong with them?” I swallowed. “Are they going to die?"
 
-“Just blossoming.” Katy said. “I advise you to stay away from them. If you are in the room with them now, I would like you to step out. Do not make any sudden movement. If they are experiencing any physical symptoms, please restrain your friends with rope with rope."
+“Just blossoming.” Katy said. “I advise you to stay away from them. If you are in the room with them now, I would like you to step out. Do not make any sudden movement. If they are experiencing any physical symptoms, please restrain your friends with rope or chains."
 
 I could feel myself taking slow steps back.
 
@@ -437,7 +451,7 @@ I nodded dizzily.
 
 “Are you sure you’re okay?”
 
-I was pretty sure I wasn’t. The woman left me with a promise to contact me when my friends were “better” but I wasn’t thinking about her words. I couldn’t get the image out of my head. The look of mania, of unbridles madness in Mina’s eyes as she prepared me to be skinned.
+I was pretty sure I wasn’t. The woman left me with a promise to contact me when my friends were “better” but I wasn’t thinking about her words. I couldn’t get the image out of my head. The look of mania, of unbridled madness in Mina’s eyes as she prepared me to be skinned.
 
 There were two men standing outside the van, watching guards throw Mina, Gabe, and Charlie into the back.
 
