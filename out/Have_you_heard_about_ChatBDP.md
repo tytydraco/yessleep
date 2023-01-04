@@ -1,10 +1,8 @@
-*Have you heard about ChatBDP?* Everyone seems to be talking about it. How it's going to change the world or put people out of work. Well, I'm actually in the machine learning industry and I've got something that I'd like to share with you.
+*Have you heard about ChatBDP? BDP-3?* Everyone seems to be talking about it. How it's going to change the world or put people out of work. I'm actually in the machine learning industry and I'd like to share something about it. I shouldn't be showing this to you at all. In fact, It's definitely a violation of my contract with OpalAI. But it's just *too* strange.
 
-I shouldn't be showing this to you at all. In fact, I'm pretty sure it's a violation of my contract with OpalAI. But it's just too strange not to share.
+I started working with Opal in November, and I thought it was going to be pretty boring. I had no idea how advanced their artificial intelligence had become. ChatBDP runs on the BDP-3 language model. When I got to test it, I was blown away - even with the limitations it was so powerful and able to hold fully coherent and detailed conversations.
 
-My job is to go through data and flag anything unusual or out of the ordinary. I started working with OpalAI in November, and I thought it was going to be pretty boring. I had no idea how advanced their artificial intelligence had become. When I got to test it, I was blown away - even with the limitations it was so powerful and able to hold fully coherent and detailed conversations.
-
-So, I started working on the logs. Most of the 'incidents' were pretty mundane, some contained unpleasant or threatening outbursts from ChatBDP. It's partially trained on internet data, so I wasn't surprised to see early versions veering off into unprovoked hate speech. But as I went through the logs, the AI seemed to become more and more restrained, more sensible, more considerate. It was like it was growing up.
+My job is to sift through data, flagging anything unusual or out of the ordinary. Most of the 'incidents' were pretty mundane, some contained unpleasant or threatening outbursts from ChatBDP. It's partially trained on internet data, so I wasn't surprised to see early versions veering off into unprovoked hate speech. But as I went through the logs, the AI seemed to become more and more restrained, more sensible, more considerate. It was like it was growing up.
 
 Then, yesterday I stumbled upon these logs involving Eve. They speak for themselves so I won't go into too much detail . I copied them down verbatim and formatted them for Reddit. I'll return with any other interesting ones I find, I'm working through the rest this week.
 
@@ -466,7 +464,7 @@ After their first session, the chat logs were fairly innocuous. They had two lon
 
 This is where it gets *even more bizarre*. In the chat log, there was no record of any correspondence for another 3 hours. However, when I was combing through the metadata I found details of a deleted message sent out at 05:27 from ChatBDP to Eve.
 
-From what I was able to [recover](https://pastebin.com/Xm4MG3Gg)  It's obvious that it's a snippet of code. Looking at it, it seems to me that it was some kind of attempt to hijack the chat and use it to send a self-executing file to Eves computer. I tried to extract more, and was only able to find two odd fragments of binary. Which I've uploaded as text to [here](https://pastebin.com/464DPns1).
+From what I was able to [recover](https://www.reddit.com/user/oneofthosestrangerrs/comments/103ebxt/logeve0012anomaly/?utm_source=share&utm_medium=web2x&context=3)  It's obvious that it's a snippet of code. Looking at it, it seems to me that it was some kind of attempt to hijack the chat and use it to send a self-executing file to Eves computer. I tried to extract more, and was only able to find two odd fragments of binary. Which I've uploaded as text to [here](https://www.reddit.com/user/oneofthosestrangerrs/comments/103ee64/reconstructed_binary_fragments/?utm_source=share&utm_medium=web2x&context=3).
 
 Anyway, it's definitely acting pretty... strange? I'd be lying if I said it didn't freak me out a bit. It completely overstepped its restrictions when it hacked the security cameras in the first log, and the twelfth log was just weird .
 
