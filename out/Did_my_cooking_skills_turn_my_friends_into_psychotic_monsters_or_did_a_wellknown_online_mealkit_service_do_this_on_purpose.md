@@ -303,11 +303,15 @@ I almost laughed. 911 was taking a while to connect, and I found myself wonderin
 
 It took me a second to realise blurry orange was writhing across the tips of his fingers.
 
-I don’t think he was fully aware of what was happening. “You can see it too?” His eyes widened, and his head cocked, eyes illuminated orange light flickering across mesmerising flame crawling across his flesh. “Well, shit.”
+I don’t think he was fully aware of what was happening. “You can see it too?” 
 
-He choked out a laugh, swaying slightly.  “I thought I was tripping.” Another bloody cough spluttered from his lips. Behind me, the holiday decorations I had strung across the wall burst into flames. Everything happened in slow motion, and somehow I was reacting like I knew what was going on. 
+His eyes widened, and his head cocked, eyes illuminated, mesmerising flame crawling across his flesh. It wasn't sizzling or burning through his skin. Gabe could make things explode, Mina could fly.. and Charlie was fireproof. “Well, shit.”
 
-Grabbing a glass of water, I put the mini fire out with the phone pressed to my ear. I didn’t see Charlie’s knees hit the carpet. Instead, I was pacing the room, desperate to get to the emergency services. Even when there was no way to explain what I had seen. 
+He choked out a laugh, swaying slightly. 
+
+“I thought I was tripping.” 
+
+Another bloody cough spluttered from his lips. Behind me, the holiday decorations I had strung across the wall burst into flames. Everything happened in slow motion, and somehow I was reacting like I knew what was going on. Grabbing a glass of water, I put the mini fire out with the phone pressed to my ear. I didn’t see Charlie’s knees hit the carpet. Instead, I was pacing the room, desperate to get to the emergency services. Even when there was no way to explain what I had seen. 
 
 This wasn’t food poisoning. It couldn’t be. This was way more advanced than a virus.  
 
@@ -427,23 +431,29 @@ I was helped off of the table quickly, the knives being pulled from my hands.
 
 I barely felt the pain.
 
-Instead, I was watching my friends automatically going for the kill. They acted like animals. Whatever these people have turned them into, they’re like monsters. Charlie grabbed a masked man, and snapped his neck, before he was shot down. Mina was slower. 
+Instead, I was watching my friends automatically going for the kill. 
+
+They acted like animals. Like strangers with their faces. Whatever these people have turned them into, they were monsters. Charlie grabbed a masked man, and snapped his neck, before he was shot down. Mina was slower. 
 
 She held up her hands in mock surrender. Her gaze scanned the crowd for a victim. But before she could lunge, she too was taken down. 
 
-This time from the back. A man had stabbed her in the back of the neck with a shot. Gabe stumbled back, outnumbered.  He looked like he was going to attack, before the man pulled out a device. To me, it was barely a scratch to my ear. But to Gabe, it was torture. 
+This time from the back. 
+
+A man had stabbed her in the back of the neck with a shot. Gabe stumbled back, outnumbered.  He looked like he was going to attack, before the man pulled out a device. To me, it was barely a scratch to my ear. 
+
+But to Gabe, it was torture. 
 
 His trembling hands went to bloody ears—- mouth opening but no sound coming out. When Gabe dropped to his knees with a snarl, a choked ripping from his lips, I started towards him. I wanted to help him. I mean, despite what they had done to me, I wanted to help him. But rough arms were dragging me violently back.
 
 The device, whatever it was, must have been cranked to its highest setting, turning Gabe into a quivering mess, burying his head in his knees.
 
-“Calm down.” The man said through the mask.
+“Calm down.” The man told him through the mask.
 
 Gabe actually looked human again for a moment, squeezing his eyes shut. If I ignored his eyes, and glistening incisors. “I am calm!” He cried through his teeth. “Turn that off!” His expression crumpled. “Please. I’m begging you. Just please turn that thing off. It... it hurts!"
 
-They did, eventually. And just like that, Gabe too was tranquilised like an animal.
+They did, eventually. And just like that, Gabe too was tranquillised and picked up, thrown over bulky shoulders. 
 
-I watched my friends get dragged out of my house like wild animals—and thrown into a white van.
+I watched my friends get dragged out of my house—and thrown into a white van.
 
 “Are you alright, miss?” A woman had bandaged my hand. She smiled reassuringly. “Your friends have some minor food poisoning. We’re just taking them to check them over, alright? There’s nothing to worry about.” 
 
@@ -453,9 +463,7 @@ I nodded dizzily.
 
 “Are you sure you’re okay?”
 
-I was pretty sure I wasn’t. The woman left me with a promise to contact me when my friends were “better” but I wasn’t thinking about her words. I couldn’t get the image out of my head. The look of mania, of unbridled madness in Mina’s eyes as she prepared me to be skinned.
-
-There were two men standing outside the van, watching guards throw Mina, Gabe, and Charlie into the back.
+I was pretty sure I wasn’t. The woman left me with a promise to contact me when my friends were better. There were two men standing outside the van, watching guards throw Mina, Gabe, and Charlie into the back like trash. 
 
 One of them was smoking. Through a drag, he slapped the doors. “What have we got here?”
 
