@@ -1,4 +1,4 @@
-|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|[Part 2](https://www.reddit.com/r/nosleep/comments/zzszpr/aurora_part_2/?utm_source=share&utm_medium=web2x&context=3)|[Part 3](https://www.reddit.com/r/NightbringerWrites/comments/101dwug/aurora_part_3/?utm_source=share&utm_medium=web2x&context=3)|[Part 4](https://www.reddit.com/r/nosleep/comments/101dotx/aurora_part_4/?utm_source=share&utm_medium=web2x&context=3)|Part 5|
+|[Part 1](https://www.reddit.com/r/nosleep/comments/zyz010/aurora_part_1/?utm_source=share&utm_medium=web2x&context=3)|[Part 2](https://www.reddit.com/r/nosleep/comments/zzszpr/aurora_part_2/?utm_source=share&utm_medium=web2x&context=3)|[Part 3](https://www.reddit.com/r/NightbringerWrites/comments/102sktn/aurora_part_3_full_updated/?utm_source=share&utm_medium=web2x&context=3)|[Part 4](https://www.reddit.com/r/nosleep/comments/101dotx/aurora_part_4/?utm_source=share&utm_medium=web2x&context=3)|Part 5|
 
 The next thing I knew, I was in a cave of some sort, lying down. The cave looked like it had been just settled, with items strewn haphazardly around on the bare, rocky ground without any semblance of a layout. Just one detail was distinguishable: A pink sign hung from the wall, with ‘Aurora’ spelled out in gold calligraphy lettering.
 
@@ -26,7 +26,7 @@ Well, she was right.
 
 “What?”, I nervously asked. Now, there were storage areas and labs we forbade her from going into, so this question made me incredibly nervous.
 
-“This!”, she said, holding up a triangular flask of black liquid. 
+“This!”, she said, holding up a triangular flask of black liquid.
 
 “What’s that?”, I asked.
 
@@ -76,11 +76,11 @@ Well, knowing what I knew then, it sounded plausible.
 
 “A patrol reportedly went missing last week. Of course, they weren’t missing. They were found by me! Ha ha!”
 
-The men ushered me into the helicopter on the cliff, and the rotors began beating as the helicopter rose. 
+The men ushered me into the helicopter on the cliff, and the rotors began beating as the helicopter rose.
 
 “Bye dear!” Aurora called out after me. I opted not to respond to her, happy to be away.
 
-Multiple planes later, I was back in sunny Florida. 
+Multiple planes later, I was back in sunny Florida.
 
 All of this is not recent, rather, it happened four years ago. I could have gone back, maybe moved to the region to observe Aurora. But I’ve always been a coward, no matter what facade I put up. Instead, I simply moved back to my hometown in Georgia, picked up a couple part-time jobs here and there, subsisted on my savings and put my head down. I simply didn’t have the will to do anything else.
 
@@ -96,4 +96,4 @@ All of them had the same distinguishing feature, though. Their eyes looked rathe
 
 So all I’m saying is, something big is going to happen soon. I tried my best, but I couldn’t stop it. Be prepared.
 
- [X](https://www.reddit.com/r/NightbringerWrites/)
+[X](https://www.reddit.com/r/NightbringerWrites/)
