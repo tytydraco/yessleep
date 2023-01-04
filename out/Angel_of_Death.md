@@ -68,7 +68,7 @@ Dr. Levin clears his throat. "Sorry to interrupt your big moment, old chap, but 
 
 \- "Alright then, take your time", he says and lights a cigarette. "Take your time."
 
-\- "So, where was I? Right. You might be asking yourself why I, of all people, am doing this to you. I'm doing this for my father whose hand I held as he starved away. I'm doing this for my brother I last saw as you took him into your lab, promising him sweets if he would sit still like a good little boy. I'm doing this for my mother who arrived at the camp with a bad cold only for you to send her into the 'showers' without batting an eye. And I'm doing this for the countless and countless others."
+\- "So, where was I? Right. You might be asking yourself why I, of all people, am doing this to you. I'm doing this for my father whose hand I held as he starved away. I'm doing this for my brother I last saw as you took him into your lab, promising him sweets if he would sit still like a good little boy. I'm doing this for my mother who arrived at the camp with a bad cold only for you to send her into the gas chamber without batting an eye. And I'm doing this for the countless and countless others."
 
 I pick up the scalpel with a big grin.
 
