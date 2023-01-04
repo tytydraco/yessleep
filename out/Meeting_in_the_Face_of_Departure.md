@@ -374,7 +374,7 @@ The government would puppet what I told them. I’d see it on the news: The acti
 
 It was exhilarating and addicting.
 
-It was also my preferred facet for pushing back the memories of that chest. In full clarity, what I needed then was therapy, but who would believe a man living on the brink of his dead father’s name with a bank-account of a billionaire.
+It was also my preferred facet for pushing back the memories of that chest. In full clarity, what I needed then was therapy, but who would believe a man living on the brink of his dead father’s name with a bank-account of a billionaire?
 
 That was a big plus, too. I bought anything you can imagine, since money was nothing but a number for me, that number being infinity. 
 
