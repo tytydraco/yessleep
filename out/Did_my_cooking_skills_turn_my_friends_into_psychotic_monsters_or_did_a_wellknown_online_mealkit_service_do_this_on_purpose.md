@@ -247,7 +247,7 @@ Gabe turned back to the bowl, hissing out a breath. “I don’t think I’m oka
 
 As soon as the words had left his mouth, the room stopped shaking. 
 
-Ignoring spiralling red spattering the porcelain white of the toilet bowl, I struggled to press them onto his forehead. “I’m going to get you help, okay?” I whispered. "Just hold on."
+Ignoring spiralling red spattering the porcelain white of the toilet bowl, I struggled to press wet towels onto his forehead to bring down his raging fever. “I’m going to get you help, okay?” I whispered. "Just hold on. Please. You're okay." 
 
 “Mmm. Just gimme a sec.” Gabe slurred. “I’m okay. I’m gonna be…” He hiccupped, more red hitting white. “I’m gon be okay.”
 
