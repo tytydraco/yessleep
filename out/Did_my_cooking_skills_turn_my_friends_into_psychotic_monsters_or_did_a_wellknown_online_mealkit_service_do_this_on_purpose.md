@@ -379,15 +379,15 @@ Katy left me in silence before hitting me with a bombshell. “This mutation is 
 
 Katy’s voice exploded into nothing when something smashed into the back of my head, sending me spiralling.
 
-The smell of fried onions, as well as a sharp, intense pain writing in the palms of my hands woke me up.
+The smell of fried onions, as well as a sharp, intense pain writhing in the palms of my hands woke me up.
 
-I found myself lying on my back on my dining room table. When I tried to move, tried to get up, I couldn’t. I twisted my head to seek out where the pain was coming from. The first thing I saw through frayed vision was the wooden edge of the knife trembling mid-air. Blinking rapidly, I thought I was hallucinating. Nope. 
+I found myself lying on my back on my dining room table. When I tried to move, tried to get up, I couldn’t. I twisted my head to seek out where the pain was coming from. The first thing I saw through frayed vision was the wooden edge of a knife trembling mid-air. Blinking rapidly, I thought I was hallucinating. Nope. 
 
 The knife was definitely real, and definitely suspended in mid-air. Panic started to ignite inside of me—and before I could speak, the air was moving in front of me. Suddenly, the knife wasn’t as clumsy as I thought it was. It didn’t tremble and shake. It cocked to the left and then the right. Like it could sense my fear. There was a figure blooming behind the knife. 
 
 Gabe. 
 
-He looked… better. I guessed. There was something fucked with his eyes, but he didn’t look dead anymore. At least that was my logical brain talking. It wasn’t fully registering dead and empty eyes, and a grinning mouth full of teeth ready to rip me apart. I finally found my voice when Mina loomed over me with wide, unseeing eyes. “You’re okay.” I rasped when Mina’s tongue flicked out, grazing her lips. 
+He looked… better. I guessed. There was something messed up with his eyes, but he didn’t look dead anymore. At least that was my logical brain talking. It wasn’t fully registering dead and empty eyes, and a grinning mouth full of teeth ready to rip me apart. I finally found my voice when Mina loomed over me with wide, unseeing eyes. “You’re okay.” I rasped when Mina’s tongue flicked out, grazing her lips. 
 
 She was stiff. When I tried to move, her claw-like fingernails grasped hold of me, like I was territory. The girl didn’t speak. She just shook her head. Gabe didn’t look at me. His gaze was on my legs and arms. I glimpsed a thin slither of drool pooling from his lip.
 
@@ -399,25 +399,25 @@ His eyes seemed to flicker to life.
 
 “Oh no, I’m perfectly fine,” Gabe shrugged with a smile. “I’m just… really fucking hungry, Luce. We’re all hungry.”
 
-“Mmm.” Charlie mumbled, echoing his words. “Hungry.”
+“Mmm.” Charlie mumbled, echoing his words. He was standing close by, panting like a dog. 
+
+“Hungry.”
 
 “Let me go.” I wrenched against the pain holding me.  “Let me go!”
 
 “Shh.”
 
-Gabe only had to blink  before a carving knife was hovering inches from my face. “You need to eat, Luce.” His lips broke out into a grin. “And then we’re eating you.”
+Gabe only had to blink  before a carving knife was hovering inches from my face. “You need to eat, Luce.” His lips broke out into a grin. “And then we’re eating you! Fun, right?"
 
 Behind him, Mina was standing at the stove. She was cooking onions, humming to herself. The smell was twisting my gut.
 
 I screamed, a deep and guttural screech sending my thoughts into a tailspin.
 
-At the same time though, the knife dropped. But not like it was supposed to. It dropped with purpose, blade first.
-
-Piercing my hand to the table, it didn’t stop, this sentient blade digging deeper and deeper through flesh and bone  until it was perforating me. Pinning me to the table. I screamed again, my cry choking between my clenched teeth. This time I barely made a noise, just a breath.
+At the same time though, the knife dropped. But not like it was supposed to. It dropped with purpose, blade first. Pinning my hand to the table, it didn’t stop, this sentient blade digging deeper and deeper through flesh and bone  until it was perforating me. I screamed again, my cry choking between my clenched teeth. This time I barely made a noise, just a breath.
 
 Another knife was hanging, almost comically. Before it followed suite, successfully immobilising my body. I was aware of red spurting, pooling across the surface. 
 
-But he wasn’t finished. A third knife hung above me and made a sweeping motion. I watched it come close to my leg, the blade nicking my skin. He was playing with me. I was aware of Charlie hovering by. I could sense the heat of the flame on his fingers, a fire he was playing with. Gabe disappeared for a moment before bending over me. Something was clenched between his teeth. A marker pen. He plucked the lid off, and used the marker, marking my stomach, then my legs and arms. The knives seemed to follow him, eager, like they were ready to get to work. Thankfully, they didn’t.
+But he wasn’t finished. A third knife hung above me and made a sweeping motion. I watched it come close to my leg, the blade nicking my skin. Gabe was playing with me. I was aware of Charlie hovering by. I could sense the heat of the flame on his fingers, a fire igniting on the tips. Gabe disappeared for a moment before bending over me. Something was clenched between his teeth. A marker pen. He plucked the lid off, and used the marker, scrawling on my stomach, then my legs and arms. The knives seemed to follow him, eager, like they were ready to get to work. Thankfully, they didn’t.
 
 The three were going to skin me. Eat me. Their eyes held no life except unbridled greed, a craving I couldn’t understand. Charlie held a plate, and Gabe ran his fingers up and down my legs, squeezing excess skin through his fist.
 
@@ -427,7 +427,9 @@ I was helped off of the table quickly, the knives being pulled from my hands.
 
 I barely felt the pain.
 
-Instead, I was watching my friends automatically going for the kill. They acted like animals. Whatever these people have turned them into, they’re like monsters. Charlie grabbed a masked man, and snapped his neck, before he was shot down. Mina was slower. She held up her hands in mock surrender. Her gaze scanned the crowd for a victim. But before she could lunge, she too was taken down. 
+Instead, I was watching my friends automatically going for the kill. They acted like animals. Whatever these people have turned them into, they’re like monsters. Charlie grabbed a masked man, and snapped his neck, before he was shot down. Mina was slower. 
+
+She held up her hands in mock surrender. Her gaze scanned the crowd for a victim. But before she could lunge, she too was taken down. 
 
 This time from the back. A man had stabbed her in the back of the neck with a shot. Gabe stumbled back, outnumbered.  He looked like he was going to attack, before the man pulled out a device. To me, it was barely a scratch to my ear. But to Gabe, it was torture. 
 

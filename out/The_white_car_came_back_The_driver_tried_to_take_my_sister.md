@@ -98,3 +98,7 @@ I know I should be resting, but I wanted all of you to know that we’re all sti
 I’m going to try to rest, but first I have to message u/need_a_nightlight. This Dullahan is not something that Deirdre can handle by herself since she isn’t a full blooded Cú Sidhe.
 
 We need an exterminator.
+
+Part 3:
+
+https://www.reddit.com/r/nosleep/comments/1034ykd/i_am_an_exterminator_for_the_supernatural_and_im/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
