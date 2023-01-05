@@ -42,7 +42,7 @@ I quickly began speed-walking between the lines of horrifying plants, wondering 
 
 “By the way,” I said, gasping between breaths, “my name is Jay.”
 
-“Angela,” she said. At the end of the field, I saw a paved road. It had countless potholes and cracks running through it, and some parts of it had been wiped out and fallen into that ran parallel to it on the farther side, but I was still glad to see some sign of a trail.
+“Angela,” she said. At the end of the field, I saw a paved road. It had countless potholes and cracks running through it, and some parts of it had been wiped out and fallen into a stream that ran parallel to it on the farther side, but I was still glad to see some sign of a trail.
 
 “A road!” I cried, pointing in excitement. “Maybe that road leads somewhere out of this hellhole.” She shook her head in amazement at my stupidity, but I ignored her. I had to hope there was some way out, that this wasn’t just a never-ending landscape of horrors under a blood-red sky.
 
