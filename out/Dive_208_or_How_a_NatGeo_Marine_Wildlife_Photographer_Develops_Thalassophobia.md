@@ -1,4 +1,4 @@
-Holding my mask against my face with my right hand and my Nikon Z7 underwater camera with my left I stepped off the edge of the small trawler, and with a splash I found myself in a new world: blue, endless, and empty.
+Holding my mask against my face with my right hand and my Nikon Z7 underwater camera with my left, I stepped off the edge of the small trawler, and with a splash I found myself in a new world: blue, endless, and empty.
 
 I'd been a professional marine wildlife photographer for almost a decade, but this trip checked a lot of "first time" boxes, and I was more nervous than I'd been in years. With only a handful of exceptions, every one of my 207 professional dives since signing with National Geographic had been from the deck of one of the many ships in the well-maintained fleet employed by their usual contractors. If you'd asked me a year ago whether I'd ever be 200 miles off the coast of Guam in a rusted fishing trawler from back when World War One was still known as The Great War, I would have asked for some of whatever you were smoking.
 
