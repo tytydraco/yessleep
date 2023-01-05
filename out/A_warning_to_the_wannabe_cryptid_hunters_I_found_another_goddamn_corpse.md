@@ -105,3 +105,5 @@ I sighed. "Yes, Sir. I will."
 [Part 4](https://www.reddit.com/r/nosleep/comments/101n4rg/a_warning_to_the_wannabe_cryptid_hunters_my/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/102jqcy/a_warning_to_the_wannabe_cryptid_hunters_theres/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/103yryr/a_warning_to_the_wannabe_cryptid_hunters/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
