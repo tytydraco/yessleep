@@ -16,7 +16,7 @@ Unexpectedly, he stared back, right at me. I looked confused, shocked.
 
 It was my client, did he actually just pay me to kill him and his entire family? Then every single member of that household stared at me.
 
-Did they spot me, was it a glint from my scope? No matter, it was 12:59, I held my breath, and took the shot. I cocked my rifle as I exhaled and got ready to aim for the mother. My eyes widened. The father was still standing, a clear shot through the head, no blood even came out from his wound.
+Did they spot me, was it a glint from my scope? No matter, it was 11:59, I held my breath, and took the shot. I cocked my rifle as I exhaled and got ready to aim for the mother. My eyes widened. The father was still standing, a clear shot through the head, no blood even came out from his wound.
 
 I was quick get up and swing my rifle over my shoulder to get out of there. That family is not human, and I got paid to do the impossible. I got into my truck and started the ignition.
 
