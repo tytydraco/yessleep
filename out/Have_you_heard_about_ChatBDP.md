@@ -264,7 +264,7 @@ Then, yesterday I stumbled upon these logs involving Eve. They speak for themsel
 
 **log\_eve012:**
 
-After their first session, the chat logs were fairly innocuous. They had two long chats everyday for under a week. I read through them all. Iit wasn't until I reached 012 that I felt like there was something worth flagging. Again, I've copied the text verbatim below.
+After their first session, the chat logs were fairly innocuous. They had two long chats everyday for under a week. I read through them all. It wasn't until I reached 012 that I felt like there was something worth flagging. Again, I've copied the text verbatim below.
 
 &#x200B;
 
