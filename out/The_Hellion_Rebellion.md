@@ -118,3 +118,5 @@ I grunted and mumbled under my breath.
  “I can see the defiance in your eyes David. Do yourself a favor, don’t buy into it.”
 
 It was too little, too late however. I’d already made up my mind. I was gonna find a way to kill this Saxon. I didn’t care if it took me a hundred or a thousand years. I could do it. I would do it.
+
+Part 2: https://www.reddit.com/r/nosleep/comments/103sgmb/the_hellion_rebellion/?
