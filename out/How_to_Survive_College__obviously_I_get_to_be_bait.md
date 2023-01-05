@@ -1,6 +1,6 @@
 No not that kind of bait, jfc.  [Remember the laundry lady’s scheme?](https://www.reddit.com/r/nosleep/comments/zn68ab/how_to_survive_college_everyone_hates_the/)  After some debate, I took her up on it.  The flickering man is the bigger problem and I could use some help getting rid of him.
 
-(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 “If this is going to work,” she told me, gleefully rubbing her hands together, “we need to be able to control where we trap him - without being discovered in the process.  Which means we need him to think it’s his idea to be where we want him.”
 
@@ -78,7 +78,7 @@ Then they feed.  Sometimes the student gets lucky and they rip open something vi
 
 “Oh, you just punch them really hard,” she said disdainfully.  “That’s all there is to it.”
 
-The flickering man isn’t the only creature whose strength is tied to the rain.  The swimmers are the same way.  When they’re in water, they’re like most inhumans - overwhelmingly powerful to the average mortal.  
+The flickering man isn’t the only creature whose strength is tied to the rain.  The swimmers are the same way.  When they’re in water, they’re like most inhumans - overwhelmingly powerful to the average mortal.
 
 Outside of water, however, they were merely flimsy sacks of goo.  Like a laundry detergent pod.  Just give it a good squeeze and pop it open.
 
@@ -142,7 +142,7 @@ They’d drag me into the deep end and tear me apart.
 
 I grabbed hold of the side of the pool.  I heaved - but my body was so much heavier than it should be.  My arms almost buckled at the effort.
 
-The swimmer wasn’t letting go of my leg. 
+The swimmer wasn’t letting go of my leg.
 
 I could hear them coming.  The water frothed with the mass of their bodies.  I had to get out of there *now*.  If another one grabbed hold, there was no way I could hold onto the side of the pool.  I realized how fragile my path to safety really was.  One mistake and it would be snatched from my grip.
 
@@ -185,6 +185,8 @@ So now I’m getting rabies shots.
 And I hesitated on when my last tetanus shot was so I got that boosted *just in case* and now my arm hurts so bad I can barely move it.
 
 I stg this had better work, the flickering man needs to get wrecked for everything I’ve suffered because of him. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/103p0s3/how_to_survive_college_im_becoming_bffs_with_the/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
