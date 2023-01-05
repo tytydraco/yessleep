@@ -1,7 +1,3 @@
- 
-
-For some this story might sound FAKE but i am sure what I saw.
-
 I'm a car mechanic from Toledo, Ohio i was visiting family in Lakewood Colorado when i drove trough a forest at around 2:15 AM. I left my home late so i knew i would need to drive trough the night but i didn't expect do need to drive a 2 hour detour because of road works. What the hell kinda road works need a 2 hour detour, i didn't think much of it anyways. I should have arrived at my parents house at around 9 AM but i didn't make it and this is why.
 
 It was 1:56 AM when i drove past a sign that read: "beware animals might cross road unexpected" by that I knew i would be driving trough a forest or a field. About 10 minutes later I arrived at the entrance of the forest and once again there was the same sign that said: "beware animals might cross road unexpected" so i made sure to turn on my fog lights so i would see if an animal crossed the road.
@@ -18,4 +14,4 @@ Waiting about 10 minutes and i heard a stick break so I knew it was the mysterio
 
 My car did eventually start again and i called my parents saying i couldn't make it, I drove home and decided to tell my story.
 
-THE END.
+&#x200B;
