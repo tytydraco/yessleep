@@ -26,7 +26,7 @@ Huh, I thought. So mystery shadow guy must have been a Wilder kid.
 
 I was told to not get too excited, though. Apparently, Mrs Wilder was very protective over her children and home-schooled them. 
 
-So, there was no chance of me making friends or even getting to know them. On our second day on Baker Street, mom told me over breakfast that Mrs Wilder had sent out a polite notice to the neighbourhood that her children were not to be disturbed or talked to. Which was crazy. I thought that was weird. But mom understood it—and to my annoyance, accepted the woman’s notice. I was warned not to talk to the Wilder children. 
+So, there was no chance of me making friends or even getting to know them. On our second day in our new home, mom told me over breakfast that Mrs Wilder had sent out a polite notice to the neighbourhood that her children were not to be disturbed or talked to. Which was crazy. I thought that was weird. But mom understood it—and to my annoyance, accepted the woman’s notice. I was warned not to talk to the Wilder children. 
 
 And if I did, that was an automatic week grounding. Which meant no diner, no seeing friends after school, and my phone privileges taken away. According to her, she figured they were just a private family and wanted to accept that. She theorised the kids had been bullied at public school and had to be home-schooled. But I was sceptical. “All of them?” I’d asked her through a mouthful of cereal.
 
@@ -362,7 +362,7 @@ Gesturing for him to open up his window, he struggled with the latch for a momen
 
 I stuck my head out of my own window, cold air hitting me in the face. “I’m going to help you.” I managed to choke out. “Hold on, okay?”
 
-Casper clawed at his face. "Help me." His voice was a sharp hiss. "Please help me. i don't know who I..." His fingernails ripped into the flesh of his cheeks, but he barely seemed to feel it, to be fazed. They kept going, digging into layer after layer. "I don't know who I am." He jumped up suddenly trashing his desk and throwing his laptop against the wall. He reminded me of a child having a tantrum. In this case though, it was more than acting out. I was sure that Casper Wilder didn’t exist.  "I don't know who I am. I don't know... fuck... I don't know who I am!”
+Casper clawed at his face. "Help me." His voice was a sharp hiss. "Please help me. I don't know who I..." His fingernails ripped into the flesh of his cheeks, but he barely seemed to feel it, to be fazed. They kept going, digging into layer after layer. "I don't know who I am." He jumped up suddenly trashing his desk and throwing his laptop against the wall. He reminded me of a child having a tantrum. In this case though, it was more than acting out. I was sure that Casper Wilder didn’t exist.  "I don't know who I am. I don't know... fuck... I don't know who I am!”
 
 His eyes found mine, and I could have sworn I saw something there, buried deep, deep inside his pupil.
 
@@ -398,9 +398,7 @@ That was it.
 
 I stumbled downstairs to tell her to call the cops, but a shadow was already looming behind the corner. Before I knew what was happening, a wet rag stinking of pool cleaner was being pressed over my mouth and nose. 
 
-I don’t remember passing out. When I woke up, I was lying on my mom’s couch. It was dark outside, but the curtains were open. My foggy thoughts drunk in slithers of moon poking from between the clouds before registering I wasn’t alone. Sitting up, my stomach galloped. There was no sign of mom. But I recognised each of the faces surrounding me. Mrs Beck was sitting with her legs crossed, delicately sipping from a cup. And next to her, wearing a smug smile, was Mrs Wilder. She wasn’t looking at me. 
-
-Instead, her eyes were lovingly glued to something which had been built over mom’s coffee table. It was made completely out of paper. The scraps of paper I had been using to talk to her son. Though there weren’t just my messages. I glimpsed Casper’s writing too. It was a house. I was staring at a perfect paper rendition of the Wilder house. And next to it stood four little paper dolls.
+I don’t remember passing out. When I woke up, I was lying on my mom’s couch. It was dark outside, but the curtains were open. My foggy thoughts drunk in slithers of moon poking from between the clouds before registering I wasn’t alone. Sitting up, my stomach galloped. There was no sign of mom. But I recognised each of the faces surrounding me. Mrs Becker was sitting with her legs crossed, delicately sipping from a cup. And next to her, wearing a smug smile, was Mrs Wilder. She wasn’t looking at me. Instead, her eyes were lovingly glued to something which had been built over mom’s coffee table. It was made completely out of paper. The scraps of paper I had been using to talk to her son. Though there weren’t just my messages. I glimpsed Casper’s writing too. It was a house. I was staring at a perfect paper rendition of the Wilder house. And next to it stood four little paper dolls.
 
 There were no faces. No expressions. Just four dolls. Two boys, and two girls.
 
@@ -408,7 +406,7 @@ Though in her lap were more. Mrs Wilder’s nimble fingers were working to make 
 
 “Phoebe, is it?”
 
-Her voice was smooth like chocolate. I could almost make it for kind.
+Her voice was smooth like chocolate. I could almost mistake it for kindness. 
 
 I nodded, my heart in my throat. I was watching her create another doll. She folded a piece of paper in half, cut it in two, and started to fold sections, bringing the doll-form to life. This one, unlike the other, did have attention put into it. She had even added the birth mark on my right temple, following that, colouring in my dark blonde hair, and finishing with my jean jacket. Mrs Wilder didn’t have to spell it out for me. When she got to the doll’s head, she shocked me, by tearing it off. Then she ripped off its arms and legs and tearing its torso in half.
 
