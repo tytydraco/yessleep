@@ -8,6 +8,12 @@ Part 3
 
 [https://www.reddit.com/r/nosleep/comments/zxpsz6/the\_sisters\_of\_perdition\_part\_3/](https://www.reddit.com/r/nosleep/comments/zxpsz6/the_sisters_of_perdition_part_3/)
 
+part 5
+
+[https://www.reddit.com/r/nosleep/comments/10582du/the\_sisters\_of\_perdition\_part\_5/](https://www.reddit.com/r/nosleep/comments/10582du/the_sisters_of_perdition_part_5/)
+
+&#x200B;
+
 &#x200B;
 
 &#x200B;
