@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- \[8\]
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- \[8\] - [\[9\]](https://www.reddit.com/r/nosleep/comments/104xf3u/the_yearwalker_part_9/)
 
 I had never seen these people before, but beggars can’t be choosers. I was hitchhiking, and they’d stopped, it was as easy as that. I needed to get somewhere more civilized, and the company of a man and his son was probably better than to stay out in the middle of nowhere. The car itself was an older icy blue Volvo-model; one of those cars with a box-like shape. That thing had probably been around longer than I had.
 
@@ -38,7 +38,7 @@ A cold silence sunk over me as I realized this was something else entirely. And 
 
 &#x200B;
 
-Now that I thought about it, I had no idea. I didn’t recognize the area, and the air felt a bit different. Then again, it was too dark to see anything properly. Running into the wild here might be a stupid idea; especially in the dark. Then again, I didn’t want to take my chances with ‘Alan’ and ‘Fred’. 
+Now that I thought about it, I had no idea. I didn’t recognize the area, and the air felt a bit different. Then again, it was too dark to see anything properly. Running into the wild here might be a stupid idea; especially in the dark. Then again, I didn’t want to take my chances with ‘Alan’ and ‘Fred’.
 
 “You’re in Arizona,” said Alan. “About six miles from Phoenix.”
 
@@ -124,7 +124,7 @@ I just saw his outline, but he was quick. There was a little pitter-patter of fe
 
 “Hold on, uh, I think there’s a- no, wait…”
 
-We were both fumbling in the dark. I could hear him move across the counter, knocking over a display. Little plastic toys scattered across the floor. 
+We were both fumbling in the dark. I could hear him move across the counter, knocking over a display. Little plastic toys scattered across the floor.
 
 I headed for the door.
 
@@ -280,7 +280,7 @@ Alan was trying to navigate a series of small roads, passing by dozens of identi
 
 As I slept through the day, I kept having these weird dreams. They’d be normal at first, but at some point I started noticing that Fred was in them. And not like, someone I was actively dreaming of, it was as if he was standing beside me; looking at my dreams and judging me from afar. It was so lifelike and distracting that I started to wake up after noticing him. But after a dozen or so times, I just stopped caring. He was simply there, no matter what I did.
 
-After a few hours of sleep, I started to expect Fred to be there. It felt stranger *not* to have him there. I started to look for him, and I felt anxious when I couldn’t see him. He *was* there. He *had* to be there. 
+After a few hours of sleep, I started to expect Fred to be there. It felt stranger *not* to have him there. I started to look for him, and I felt anxious when I couldn’t see him. He *was* there. He *had* to be there.
 
 &#x200B;
 
