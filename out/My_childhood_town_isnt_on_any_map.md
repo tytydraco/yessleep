@@ -113,3 +113,5 @@ As we drove further away from the sea, and I saw outside of that small town for 
 Sonder is still out there.
 
 I hope somebody can find it.
+
+[Part 2 - My childhood town isn't done with me yet.](https://www.reddit.com/r/nosleep/comments/104u2ce/my_childhood_town_isnt_done_with_me_yet/)
