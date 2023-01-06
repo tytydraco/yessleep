@@ -14,7 +14,7 @@ The lift to the lower floors was old - *really* old. Like, fold-out grate door l
 
 Just as I was beginning to question it all, I heard the bell ring. Steeling myself, I stepped forward. The place was a fucking shambles - mannequins everywhere, no sign of stock for the clothing department or the food hall, and cobwebs occupying damn near every crevice of the place. On the wall, the only clean thing in the room was a plaque, listing a set of rules.
 
-Rule 1: Clock in at exactly 8pm. Clock out at exactly 2pm.
+Rule 1: Clock in at exactly 8pm. Clock out at exactly 2am.
 Rule 2: Leave lights on in rooms you are not occupying at all times.
 Rule 3: The security cameras are not ours. Avoid them.
 Rule 4: If you hear movement, leave the room. Do not investigate. Do not turn around.
@@ -36,3 +36,5 @@ I continued to work, despite my nerves. My workflow was the same - sweep, tidy, 
 Then I remembered. The light. I had forgotten the light.
 
 Taking a deep breath to settle my nerves, I walked back through the other room - making sure to turn the lights on as I left. As I looked around, I began to process something. The room was in a worse state than when I had first entered.
+
+EDIT: this whole situation has me fucked in terms of sleep, fixed a typo in one of the rules
