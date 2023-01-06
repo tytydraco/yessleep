@@ -18,7 +18,7 @@ Another thing to note is that the caller and dispatcher are referred to as ‘8�
 
 6: Okay. Police are on their way. What is happening, ma’am?
 
-8: Someone is at my door. They’re trying to get in. 
+8: Someone is at my door. They’re trying to get in.
 
 6: Okay, listen to me. Make sure the door is locked, okay?
 
@@ -181,3 +181,7 @@ The tapestry being woven by these files is not only concerning to me, but terrif
 Sincerely,
 
 Julius Klein
+
+&#x200B;
+
+[Part 3 (file-004)](https://www.reddit.com/r/nosleep/comments/104uuws/jesse_pt_3/)

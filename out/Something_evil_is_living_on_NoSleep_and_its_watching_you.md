@@ -20,7 +20,7 @@ I was reading one of many NoSleep posts on rules for dealing with certain unnatu
 
 *Rule 11: It is unkind to joyfully read true horror. Sticks and stones will break your bones.*
 
-There was an almighty sound of smashing glass in my room. Soul vacating my body for a brief moment, I twisted my desk chair around to face numerous shards that were scattered across my carpet. In the centre of the wreckage was a small stone that had seemingly been hurled at my window, breaking it. I sprung to my feet and peered through the now-glassless frame. There was something on the other side of the road. I don’t think I’ll ever be able to scrub that mortifying image from my mind.
+There was an almighty sound of smashing glass in my room. Soul vacating my body for a brief moment, I twisted my desk chair around to face numerous shards that were scattered across my carpet. In the centre of the wreckage was a small stone that had seemingly been hurled at my window, breaking it. I sprung to my feet and peered through the now-glassless frame. There was something on the other side of the road. I don’t think I’ll ever be able to scrub that haunting image from my mind.
 
 Wedged between two hedges, slightly illuminated by the dim glow of a nearby lamppost, I was watched by a shadowy figure. His form was emaciated and blackened. Upon closer inspection, I realised that it wasn’t a person. It was a stick figure.
 
@@ -36,7 +36,7 @@ I browsed NoSleep, looking for clues. The ‘Rule 11’ comment had vanished wit
 
 I sent out requests for help from people who had endured unexplainable supernatural experiences. Somebody by the name of Archie Bolton replied:
 
-*This has the hallmarks of greycode (a type of code that connects occult things to the digital world). After receiving your initial message about the mattress image, I started to notice similar things on* r/nosleep*. Strange comments appeared from a poster with no username. The site description read: “I’m watching you, Archie. No sleep for you? That makes me unhappy.” And I saw two long, shadowy lines stretch towards me from the darkness of my bedroom. They looked like arms. Stick arms.*
+*This has the hallmarks of greycode (a programming language that connects occult things to the digital world). After receiving your initial message about the mattress image, I started to notice similar things on NoSleep. Strange comments appeared from a poster with no username. The site description read: “I’m watching you, Archie. No sleep for you? That makes me unhappy.” And I saw two long, shadowy lines stretch towards me from the darkness of my bedroom. They looked like arms. Stick arms.*
 
 His reply was one of many messages I received. People purported to experience similar things. After reading this post, you might notice strange things, too. I think, once it has been pointed out, it’s hard to un-notice the malevolent thing that is observing us.
 

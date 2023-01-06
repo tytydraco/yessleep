@@ -54,7 +54,7 @@ Rick: A week later, after we had gone back to our respective homes, she called m
 
 John: Did she?
 
-Rick: The next day. We met at a fancy restaurant. 
+Rick: The next day. We met at a fancy restaurant.
 
 John: Did you tell her you were married?
 
@@ -111,3 +111,7 @@ I will try to share as many of these files as possible before I am found out.
 Sincerely,
 
 Julius Klein
+
+&#x200B;
+
+[Part 2 (file-003)](https://www.reddit.com/r/nosleep/comments/103zkhu/jesse_pt_2/)
