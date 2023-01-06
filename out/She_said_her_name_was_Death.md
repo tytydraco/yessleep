@@ -43,8 +43,7 @@ Then she walked towards him. I wish I could hear them speak.
 I could swear he recognised her, in between the emotions of defeat and fear. He seemed panicked and I thought perhaps… it was a good sign. Perhaps it meant he didn’t want to die. From what I had read, the ones who are sure, have no more fight left in them. It even seemed like he was about to come down, the safe way.
 
 But then, in the blink of an eye, she pushed him.
-
-\-------------------------------------------------------------------------------------------------------------------------------------
+————————————————————————-
 
 I had been in the police station for hours before they finally spoke to me. Apparently an older woman living in the apartment block across from ours had seen the man being pushed, though not by whom.
 

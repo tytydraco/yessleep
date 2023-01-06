@@ -1,5 +1,3 @@
-
-
 Some years ago a squelch was heard. It came from a wok which contained some minced goat meat. 
 
 I was the one prepping the meat. I added the salt, some turmeric, drizzled some ground-nut oil, the chili, fresh ginger-garlic paste and some curd to tenderize this mix. 
