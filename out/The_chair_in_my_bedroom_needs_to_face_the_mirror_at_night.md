@@ -1,3 +1,5 @@
+**minor update at the end because the word limit was too short for an individual post**
+
 Throwaway account because my friends do not need to know about this. 
 
 We're talking a modern office chair from IKEA. Not some sofa I purchased from an antique store with bloody scratches along the back - no, this thing is bright blue with wheels for fuck's sake. In the light of day it couldn't be more unremarkable, to the point that I'm sitting on it as I type this. That's part of the problem. 
@@ -25,3 +27,36 @@ I hope I don't need to state that this is not what my OCD feels like, or has eve
 Before anyone asks - no, it is not sexual. I don't want to do anything with the chair other than sit in it. Or maybe no one was going to ask that. I  did think of it though, and a few horrified hours of Googling later, knew enough to rule out the possibility. I also now know a lot more about objectophillia than I have ever wanted to. 
 
 Does someone have any clue what I should do now? Please don't suggest that I get rid of the chair, I truly can't. No, I haven't tried, I feel too guilty just considering it. I'm begining to worry that this unwillingess to leave it behind will either end in me never leaving my apartment, or in bringing it out with me wherever I go. Both situations I would like to avoid.
+
+
+
+**MINOR UPDATE:**
+
+Okay, 2 days later and I've got an update.
+
+First of all, I'm sorry for being so unresponsive. I've just woken up. 
+
+Yes, I've slept nearly 48 hours straight - and I could go even longer. I've forced myself to start on this fairly uneventful update just so that I can keep my eyes open. I really don't think there's anything physically wrong with me, but just in case I've made an doctor's appointment for later today. Honestly, I'm sort of hoping something *is* wrong so at least I can apply for sick-leave.
+ 
+In other news, I've seen a lot of comments suggesting that the mirror is the issue, not the neon blue bit of demonic plastic I am for some reason emotionally attached to. I've never really thought of that, mainly because I brought it with me from my parent's house when I moved out. It's been hanging in my childhood bedroom ever since I was...six? seven? Needless to say, I didn't experience these symptoms (which is what I'm calling them now) back then.
+
+Still, I'm willing to try it out. I couldn't claim to be an expert on the occult by any strech of the definition, who knows how this shit might work? Maybe the mirror's pissed at being relocated after all this time, I don't know. 
+
+So, here's my plan going forward:
+
+1. I'll cover up the mirror before turning the chair towards it. 
+
+2. If that doesn't produce anything interesting, I'll sit in my chair all night staring into the mirror. 
+If I actually end up seeing someone other than myself in there, this method has the added benefit of making the chair unusable. Because I will 100% piss myself. I hope to God that even a poltergeist or whatever wouldn't bother possesing the thing after that.
+
+3. If nothing changes even after that, I'll get a friend of mine to stay over with me and see if they have the same urge to reposition the chair. Honestly, there's still a part of me that still thinks this is my OCD on steroids. If someone without it feels the same way, I can rule that out at least.
+
+4. I'm not sure why I'm bothering to list this, because the odds of me being capable of actually doing it are negligible. As a last resort, I will attempt to take the chair apart. 
+
+It's hard to explain how difficult it is to even imagine doing that. Like, if you've ever had say...a cat. A cat you've had ever since it was a kitten, one that's followed you around, slept on your bed, cuddled with you on the couch. Could you envision taking it...*apart* without wincing? That's how I feel now. I feel sick just thinking of it. 
+
+On the other hand if I don't do it now, I never will. I can tell that the window of time where I can actually take action about this is about to slam shut. Remember that doctor's appointment I mentioned? Yeah, it took me three tries to finally make it through the call. Now that I've spent 2 peaceful days alone with my chair, the idea of not seeing it for even a couple of hours just...fuck, I'm crying again. 
+
+That's how the first two calls with that poor, confused hospital receptionist ended: I started full-on sobbing. She ended up asking if I wanted to speak to the Palliative Care Unit, that's how bad it was. 
+
+As for actually making it to the hospital, I'm thinking I'll ask one of my friends to take me, that way I won't be able to overthink my way out of it.
