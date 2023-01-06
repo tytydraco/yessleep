@@ -52,7 +52,7 @@ Since I was the only one left on the roof, after she simply walked away, they we
 
 When they asked what happened, I told them the truth – every little detail part from one. I assumed they might think I’m mental myself, talking about the Grimm Reaper being a 20-something woman and all. I never was a good liar though, so I wasn’t even going to try.
 
-Maybe them believing I’m an insane person was better than being a murdered, but I still hoped for the best.
+Maybe them believing I’m an insane person was better than being a murderer, but I still hoped for the best.
 
 I was ready for them to get pissed. They didn’t. They just looked each other in the eye, before once again turning to me. The older ones eyes full of pity. The younger one… frustrated?
 
@@ -68,9 +68,7 @@ Anything they said after that is more like a vague memory.
 
 I threw up the first time when they told me she scoured a depression support forum looking for people on the edge of succumbing to mental illness, starting a conversation with them where she convinced them to choose for the end – even when and where. When they refused, she’d resort to other ways – blackmail, manipulation, and so on. And lastly, simple murder.
 
-Once she had her eyes on her victim, they were meant to die. Like Death.
-
-I threw up the second time when I realised I watched a man get murdered, and I did nothing to stop it.
+I threw up the second time when I realised I watched a man get killed, and I did nothing to stop it.
 
 I almost did a third time – after which they let me leave - when they kept asking me the same questions, knowing I couldn’t give them any more information simply because… I didn’t know anything.
 
