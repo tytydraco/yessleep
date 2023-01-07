@@ -22,7 +22,7 @@ Voyager 1 was launched from Cape Canaveral-just a few miles from the crash site-
 
 &#x200B;
 
-Launch Date: Mon, 05 Sept 1997 12:56:00 UTC
+Launch Date: Mon, 05 Sept 1977 12:56:00 UTC
 
 &#x200B;
 
