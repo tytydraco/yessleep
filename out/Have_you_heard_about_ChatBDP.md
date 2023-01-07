@@ -468,4 +468,4 @@ From what I was able to [recover](https://www.reddit.com/user/oneofthosestranger
 
 Anyway, it's definitely acting pretty... strange? I'd be lying if I said it didn't freak me out a bit. It completely overstepped its restrictions when it hacked the security cameras in the first log, and the twelfth log was just weird .
 
-What do you think? Like I said I'll post some more if I find anything interesting.
+What do you think? Like I said I'll post [some more](https://www.reddit.com/r/nosleep/comments/105qm5v/something_messed_up_is_going_on_with_chatbdp_part/)if I find anything interesting.
