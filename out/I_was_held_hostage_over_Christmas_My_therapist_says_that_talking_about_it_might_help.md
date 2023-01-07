@@ -75,6 +75,12 @@ I thought the pain would be unbearable. But when I had no choice but to sit and 
 
 In hindsight, I can obviously type with a missing eye. I wish that was the worst of it. Of course, things were about to get much more painful than the ice pick, but I’ve reached my limit for today. The valium’s kicking in, and that’s the only way I can sleep at this point. I’ll share more later if I can, but this process is extremely painful for me.
 
+------
+
+[The nightmare that happened next](https://redd.it/105n5zr)
+
+--------
+
 
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
