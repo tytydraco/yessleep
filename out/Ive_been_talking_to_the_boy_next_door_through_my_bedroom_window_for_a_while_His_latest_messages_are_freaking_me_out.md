@@ -122,7 +122,7 @@ He was intrigued.
 
 I grabbed an old notebook and a pen and sat on my bed, scribbling a message. I wrote: “Hello! So, you’re the kid under house arrest lmao.”
 
-When I held it up, his smile pricked. He laughed. I couldn’t hear it, it was nice to see. I could tell he had a dorky kind of laugh. The guy held up a hand for me to wait and rummaged on his desk. He quickly wrote out a message and held it up with a grin. He looked almost proud of his own message, and I couldn’t resist my own smile. I expected him to curse his mother, maybe apologise for the lack of communication.
+When I held it up, his smile pricked. He laughed. But I couldn’t hear it. I could tell he had a dorky kind of laugh, a nasally one. The guy held up a hand for me to wait and rummaged on his desk. He quickly wrote out a message and held it up with a grin. He looked almost proud of his own message, and I couldn’t resist my own smile. I expected him to curse his mother, maybe apologise for the lack of communication.
 
 But instead, he simply wrote: “Hello! What’s your name?” Followed by a slightly smudged smiley.
 
@@ -226,7 +226,7 @@ Before his eyes finally found the cord-thing. His smile seemed to dampen, eyes g
 
 “Casper?” I hurriedly wrote when he didn’t move for a while. His gaze was glued to the chord. I watched his eye follow it around the room, before his hand slowly raised, trembling fingers moving to his neck, and then the back of his head. Was there an insect? That’s what I thought. It must have been a spider, or some kind of bug which had startled him. I could only describe his expression as close to catatonic. He stood up, but then quickly slumped back down. But not like it was his choice. As if he was being dragged back down by an unseen force. Like one minute I was looking at Casper Wilder, and then I was seeing a stranger. A completely different person take over a rapidly paling face. Something snapped inside my gut when he moved forwards suddenly, his arms lunging out to close the curtains. 
 
-But that wasn’t the end of what I saw. The boy had unknowingly left a splinter, a tiny gap allowing me to glimpse. I expected him to react to whatever had freaked him out. But instead, he simply flopped back onto his bed. This time, I noticed the silver chord jolt with his movement. He was already asleep, his eyes closed. I watched him, my heart diving into my throat. There was no way he just fall asleep like that. It was too fast.
+But that wasn’t the end of what I saw. The boy had unknowingly left a splinter, a tiny gap allowing me to glimpse. I expected him to react to whatever had freaked him out. But instead, he simply flopped back onto his bed. This time, I noticed the silver chord jolt with his movement. He was already asleep, his eyes closed. I watched him, my heart diving into my throat. There was no way he just fell asleep like that. It was too fast.
 
 Mrs Wilder came into his room soon after. But I only got a glimpse of her because she was already striding over to the window. I ducked behind my bed, panic creeping up my spine. I expected the woman to start yelling at me through the window, but instead she simply pulled the curtains properly shut. Mrs Wilder definitely saw me. And even if she didn’t, Casper’s messages to me were still piled on his bedsheets. I was left completely in the dark, then. I stood and pressed my face against the window, fully aware that I was addicted to the mystery surrounding my neighbour.  
 
