@@ -16,7 +16,7 @@ My heart is honestly still in terrible shape. Now it was probably going 200 beat
 
 “Please,” I said. “Don’t kill me. I’ve tried so hard to…”
 
-I hadn't felt this scared since the heart attack. I'd only been 32, but there it was, like a fallen tree pressed against my chest. But this was worse, because back then I'd had less to lose. 
+I hadn't felt this scared since the heart attack. I'd only been 32, but there it was, like a fallen tree pressed against my chest. But this was worse, because back then I'd had less to lose.
 
 The thing let out a belching laugh.
 
@@ -37,6 +37,8 @@ Then the thing put a tendril down my throat, reaching down into my guts. At firs
 “You could be so happy,” it whispered.
 
 Almost like I was a marionette, I felt my hands lifting toward the door of the freezer, where I knew a carton of Ben and Jerry’s was lurking. It was supposed to be for my cheat days, and only a few scoops here and there.
+
+My hands shook with fear. Because I knew the thing was stronger than me, that its will would trump mine. It was a 400 pound monster, and I was only a 250 pound guy with a weak heart.
 
 “Just be happy,” the thing whispered. “What’s so wrong with being happy?”
 
