@@ -248,7 +248,7 @@ FADE IN:
 The reader sits motionless at their computer, their blank stare focused on the creepy-pasta website.
 
 
-The reader sits in front of their computer and stares at the screen. All they can hear is the wind and the eerie typing coming from their keyboard as they write. Their thoughts have been consumed by the cursed screenplay as they write.
+The reader sits in front of their computer and stares at the screen. All they can hear is the wind and the eerie typing coming from their keyboard as they write. Their thoughts have been consumed by the cursed screenplay.
 
 
 Suddenly, their bedroom lights turn off, the only light coming from the dimly-lit computer screen. 
