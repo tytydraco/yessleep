@@ -238,7 +238,7 @@ I made myself a coffee and got to work. I managed to get about 3 minutes of norm
 
 After reading all that, I stopped looking through the logs and decided to search online for information about the events that ChatBDP predicted. The facility I work at is off-grid in terms of power and the internet, so I went to my car and got my phone. I clung on to the hope that it was some strange role-play between the two of them, but unfortunately, both of the events it predicted were real.
 
-In the UK, scandals involving politicians are about as common as rain, but predicting both that and a plane crash is just insane. I searched further for more [information](https://www.reddit.com/user/oneofthosestrangerrs/comments/105p56g/the_coverup_chronicles_230922/) about the crash, I found news articles, photos and even conspiracy videos about it on youtube. Very real.
+In the UK, scandals involving politicians are about as common as rain, but predicting both that and a plane crash is just insane. I searched further for more [information](https://www.reddit.com/user/oneofthosestrangerrs/comments/105owgh/article_on_flight_935/) about the crash, I found news articles, photos and even conspiracy videos about it on youtube. Very real.
 
 That’s when I started to think about the comments on my first post; "b\_ambie" pointed out that the translated binary seemed to be garbled snippets of some kind of malicious code. At the time, the idea that ChatBDP would literally crash a plane just to mess with a random person seemed *crazy*, but to be honest I have no think about that now. And "oneeyecheeselord" had said that they wanted to talk to the AI, which got me thinking. I can go and talk to it. I can go and talk to it whenever I want.
 
