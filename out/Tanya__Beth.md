@@ -134,7 +134,7 @@ It seemed like a good idea, at the time. After Tanya blocked me, and the texts w
 
 Beth sighs, as if I’m a kid who just colored on the wall or threw my dinner. 
 
-“Really a fucking shame you had to go after her dog. Dog didn’t do anything to you. Nicest dog I’ve ever met, by a longshot. Called her Chrissy, ‘cause of that one show Tanya was obsessed with. I hear it’s still running, that show? Imagine how much Ellen whats-her-face gets paid per episode.”
+“Really a shame you had to go after her dog. Dog didn’t do anything to you. Nicest dog I’ve ever met, by a longshot. Called her Chrissy, ‘cause of that one show Tanya was obsessed with. I hear it’s still running, that show? Imagine how much Ellen whats-her-face gets paid per episode.”
 
 I shake my head wildly. “You -- you didn’t know Tanya’s dog. You didn’t know *Tanya*.” 
 
