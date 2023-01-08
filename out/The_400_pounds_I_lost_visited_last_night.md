@@ -42,7 +42,7 @@ My hands shook with fear. Because I knew the thing was stronger than me, that it
 
 “Just be happy,” the thing whispered. “What’s so wrong with being happy?”
 
-And I might have caved then and there. Except at that moment, I looked at the refrigerator door and saw the picture my wife and taped there just a week before: a sonogram. The little girl she’s growing inside right now.
+And I might have caved then and there. Except at that moment, I looked at the refrigerator door and saw the picture my wife had taped there just a week before: a sonogram. The little girl she’s growing inside right now.
 
 “I can’t,” I said, wiping away my tears. “I can’t eat for two anymore.”
 
