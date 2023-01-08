@@ -1,4 +1,5 @@
-[Part 1] (https://www.reddit.com/r/nosleep/comments/zsastv/i_think_was_featured_on_an_unaired_episode_of/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+[Part 1](https://www.reddit.com/r/nosleep/comments/zsastv/i_think_was_featured_on_an_unaired_episode_of/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 [Part 2]
 
 
@@ -53,7 +54,7 @@ Continuing researching off the flash drives, I found a document listing assets o
 
 
 
-Now I constantly feel like I’m being followed, I definitely think they’re tracking my phone. I see things out of the corner of my eye that I can’t explain. Like earlier this morning, I KNOW I saw a face peeking into my bedroom window. I didn’t know how to feel, like I’ve never really ruffled and feathers before. I’m not exactly sure if I like this feeling, I 100% feel like I’m in real danger here. I’m very isolated, I don’t have a lot of friends or family to rely on, definitely none I can trust with this crazy shit. Are they keeping tabs on me, who’s they? Remember the other time I said I wanted to give up, now I dunno again. My hard headed side wants to push through regardless of what happens to me. Guys, I’m totally freaked the hell out, just a couple of minutes ago, there was an overly aggressive knock on my door, I waited about 10 minutes or so before I reluctantly went to check the door. There of course was nothing there, but I did notice a freshly graffitied eye ball on the power pole next to my driveway. Was this a warning, damn sure seems like one. I know I’ve made a handful of decent connections already, but still no confirmation if any of it includes me. Did I make a huge mistake with all of this? 
+Now I constantly feel like I’m being followed, I definitely think they’re tracking my phone. I see things out of the corner of my eye that I can’t explain. Like earlier this morning, I KNOW I saw a face peeking into my bedroom window. I didn’t know how to feel, like I’ve never really ruffled any feathers before. I’m not exactly sure if I like this feeling, I 100% feel like I’m in real danger here. I’m very isolated, I don’t have a lot of friends or family to rely on, definitely none I can trust with this crazy shit. Are they keeping tabs on me, who’s they? Remember the other time I said I wanted to give up, now I dunno again. My hard headed side wants to push through regardless of what happens to me. Guys, I’m totally freaked the hell out, just a couple of minutes ago, there was an overly aggressive knock on my door, I waited about 10 minutes or so before I reluctantly went to check the door. There of course was nothing there, but I did notice a freshly graffitied eye ball on the power pole next to my driveway. Was this a warning, damn sure seems like one. I know I’ve made a handful of decent connections already, but still no confirmation if any of it includes me. Did I make a huge mistake with all of this? 
 
 
 
