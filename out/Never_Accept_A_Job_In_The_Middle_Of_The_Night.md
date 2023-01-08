@@ -132,6 +132,6 @@ My mail looked almost the same as always. Some podcast announcements, NBA news, 
 
 I would normally have been very happy. Really, I would have been ecstatic. But I only felt like that other feeling I previously mentioned, like when you finally see the thing that’s been watching you while you stumble around in the dark. The moment where the yellow eyes come out the corner of your peripheral vision.
 
-“This… It has to be another thing entirely. I must have sent it to someone else I don’t remember.”
+“This… It has to be another thing entirely. I must have sent my CV to someone else I don’t remember.”
 
 “Oh by the way, babe”, Claire’s voice came through the living room. “Don’t panic if you don’t find your ID, ok? I put it right on the kitchen table. You almost left it by the bottles in the nightclub. Weird, huh?”
