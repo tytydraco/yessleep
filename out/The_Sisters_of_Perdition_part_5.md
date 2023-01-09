@@ -4,7 +4,11 @@ part 4
 
 [https://www.reddit.com/r/nosleep/comments/zylaes/the\_sisters\_of\_perdition\_part\_4/](https://www.reddit.com/r/nosleep/comments/zylaes/the_sisters_of_perdition_part_4/)
 
+part 6
+
 &#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/107rrdu/comment/j3o21st/?context=3](https://www.reddit.com/r/nosleep/comments/107rrdu/comment/j3o21st/?context=3)
 
 &#x200B;
 

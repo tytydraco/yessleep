@@ -1,5 +1,3 @@
- 
-
 part 5
 
 [https://www.reddit.com/r/nosleep/comments/10582du/the\_sisters\_of\_perdition\_part\_5/](https://www.reddit.com/r/nosleep/comments/10582du/the_sisters_of_perdition_part_5/)
@@ -236,7 +234,7 @@ They had apprehended two of the Dora’s and had them tied up.
 
 Max  and Abraham both took a jug of holy water from a spring Jesus had  blessed down in South America and poured it on the Dora’s. They totally  melted into a puddle of nasty smelling puss.
 
-“We have been repelled today, but we will return with 10 times as many troops!” Abraham Lincoln screamed. Rallying the troops.
+“We have been repelled today, but we will return with 10 times as many troops!” Abraham Lincoln screamed, rallying the troops.
 
 We  left with our tails between our legs and I wondered about the  cesarians. It certainly didn’t seem like they sent an entire legion.  Perhaps they had realized our ploy and sent a smaller force?
 

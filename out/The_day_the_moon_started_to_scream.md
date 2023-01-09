@@ -2,7 +2,7 @@ When I was a child, me and my friend, Donan, were always considered the weirdos 
 
 At the time, things like anime, the supernatural and occultism weren't exactly famous, and we were probably the only people in class that liked them. After school, we'd usually stay at Donan’s house, since my parents were mostly out working until late afternoon. His mother was usually locked inside her office, and his father, working outside. This meant that, while we didn’t make much of a mess, we had the place to ourselves.
 
-There was only one rule that both him and his parents insisted on following at all times; it was to never mention his older sister, Elora. She was locked in her room, in silence most of the time, with just the vocational visits of her mother. I’d only seen her face once. It was in a family picture, almost three years ago, when she was happily smiling. She was really pretty at the time, I’ll be honest.
+There was only one rule that both him and his parents insisted on following at all times; it was to never mention his older sister, Elora. She was locked in her room, in silence most of the time, with just the ocational visits of her mother. I’d only seen her face once. It was in a family picture, almost three years ago, when she was happily smiling. She was really pretty at the time, I’ll be honest.
 
 Thanks to the occasional and vague conversations I had with Donan and his mother about Elora, she used to be a really good sister. She loved to talk to younger Donan about the night sky, and how she wished to live there one day; that was until she mysteriously fell into insanity across a long period of time, to the point of blinding herself with a kitchen fork.
 
