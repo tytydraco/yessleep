@@ -1,20 +1,31 @@
-“Bye” Emily yelled, waving after the school bus, waiting for it to go out of her sight before walking to her house down the street. Once she got there she walked into the house and right to her room, with her 2 fluffy cats following her. She shut and locked her door when her cats slowly walked in, nobody was home and a lot of weird things happen in her house when she's home alone.
+  
 
-She sat on her bed and immediately put her headphones in and turned on her music as she pulled out her computer. She wanted to get right on her homework so that she didn't have to do any later, it was already late in the evening because she had to stay after school for some math tutoring. 
+The violent red light presses against my eyelids as I’m dragged in the day like a screaming stillbirth. I look around the quad and hitch my backpack up higher and stride across campus towards the library. I still needed to study for Professor Derleth’s final and the statue had kept me up into the wee hours of the morning. I hustled forward with my head down and thought about the light, the pain and the Maiden. 
 
-Her computer shined bright in her face when she opened it and got right into her school account. She opened her English class first because she was doing the worst in that class. She opened her homework and got straight to writing. 
+I opened the door to the library as it exhaled a breath of stale lepidopteran kisses into my face, and I smiled at the memories of tomorrow night. I went in and sat down at my usual spot, dragging out several books and a bloody rosary. I opened up the first book and set to studying but before I could even properly get into it I feel twin pulses of yearning battering against the top of my head. I looked across the room to see a girl in a normal school uniform with straight black hair and wide pale eyes. She had eyes only for me and licked her luscious lips lustily. She coyly lowered her eyes and bit her lip as I turned away and turned my attention back to the book. 
 
-She had been working for a couple hours before she actually got all of her work done, it took a while but it was worth it. When she closed her computer and looked out the window, she saw something standing in the forest. A tall dark figure, she stared for a while because she thought it was her imagination before she realized it was really there. She  stood there in shock before slamming her window shut and closing the curtains. 
+*The Haminoptrin* *butterfly (Rhopalocera Weisz-Fraserin) is the only known insect to commit suicide. After fertilizing the eggs, the male eats the effluence of the female to spare the hatching brood as this is poisonous and would invariably be their first meal upon hatching if he did not consume it, dying in agony.*
 
-“Nothing. Is. There.” Emily told herself, curling up on the floor in fright. Shaking on the floor, she kept staring at the window. She didn’t know what to do after she saw that. She didn't wanna leave the room or anything. She kept herself locked in with her cats. 
+The girl was in front of me, her small gentle hand pushing the book down while the other grasped the shirt at her collar in a twisting grip. She stood over me, a smoldering gaze burning into my jaded heart, and her teeth biting deep into her lower lip. She continued pulling her collar open and began to unbutton the first button as she leaned down over me.
 
-She slowly stood up and walked to the window again, slowly opening the curtains in fright. When she looked, she realized the figure was gone. She sighed in relief, putting her head down and laughing. 
+Her voice roiled in my ear as though it was a squirming maggot seeking to devour my diseased and infected brain. “Here,” she breathed, “and now.” She flicked electric kisses down my neck and jolted me as her perfect white teeth pierced my jugular and a flood of crimson swept through the library.
 
-“I’m so childish.” She giggled. After, she heard a huge bang on the door, making her jump. It kept going.
-“BANG! BANG! BANG!” Continuing over and over until the door handle started to shake. Then it stopped. Hearing the creek of her front door opening. Slowly, but it was opening. Then she heard footsteps, slowly coming towards her room. Step after step, Emily slowly crawled under her bed and hid. She didn't want anyone to know she was here. She knew it wasn't her parents because their car wasn't there. 
+*The female leaves and never returns to care for the abandoned children and many of them are destroyed by the evil predators. But one survives and eats and eats until it is full…*
 
-Then she saw a shadow under her door, there weren't any feet, just a shadow. A shadow bigger than anything she had seen. The door handle started turning slowly to the left. Then slowly to the right. Back and forth over and over. Until it stopped, and she heard a small knock, and then the door handle started turning again. 
+She threw her head back and laughed as she touched the arm of the man sitting next to her. Tall and dark, he was a study in contradictions to her petite porcelain physique. She gazed into his ears and the blood boiled up into my eyes as the rage at her betrayal boiled inside me. I shook my head and chalked it up to another wicked jezebel that the Maiden had warned me against. 
 
-Emily shut her eyes tight and held her breath. She was scared for her life, but it only got worse when the door slowly opened. She didn't know how, she knew she had locked her door. Then the shadow started walking towards her, but it was more like floating. 
+*of hate, dreams, and laughter. Then he spun himself up in the empty skin of his fallen brethren and slept…*
 
-“That’s all I remember.” She said to the mirror. “That's the last thing I saw.” Then she laughed and started slowly walking out the door. Trying to find her next victim….
+I knew I had to pass this exam, but her laughter grated on me as she writhed atop the stupid jock.
+
+*the sleep of the justified. He emerges changed through the Maiden and is now a true butterfly coming through into what was always his.*
+
+Slamming the book shut I smiled. I had finally learned my lesson. I left the bag and the books there. I had no need for them. I followed them out of the library and watched them walk slowly across campus. I kept my head down watching from under my eyelids and saw them keep a safe distance between them **LEAVE ROOM FOR THE HOLY GHOST!** as though she hadn’t been thrashing like the whore of Brooklyn just moments before. He turned off before she did and didn’t even give her the respect of a proper goodbye despite her fervent gyrations. I chose the clear winner knowing the Maiden would lead me back to her when it was time.
+
+The dusk loomed as I followed him to a dorm room and then inside. He turned to me and said, “Man, you have been acting really weird lately.” I struck him in the forehead with the onyx gloriousness of the Maiden and she bathed in vermillion fervor. Screaming, I brought her down again and again on the face of this pestilent purloiner of pilfered passions. I felt someone behind me, and she whispered a warning as they stood dumbfounded in the doorway.
+
+Yes, our journey wasn’t complete. I turned to the young man in the door and smiled with my blood splattered smile. “It’s ok. She was so very thirsty. A thirsty thirsty gurl,” I chuckled. She flew across the room and pierced his eye as I closed the gap and dragged him in the dorm room. 
+
+*The new male knows better than to mate as females are death.*
+
+Gripping the Maiden tightly I cross the manicured lawn towards my destiny as the sirens grow louder. Oh yes, she will finally be all mine.

@@ -3,7 +3,7 @@ I was passing a homeless man in a hurry because i was late for work.
 He was a tall old man somewhere between 65 to 70 years old.
 He looked like he had been homeless for sometime now.
 He had a long, like really long beard that was dirty white. 
-He had ripped cardboard sign. On it with messy handwriting was written 
+He had a ripped cardboard sign. On it with messy handwriting was written 
 ,, Please spare some spare change ,,.
 I was practically running to the door when he pulled my purse. 
 I quickly turned around because i thought he was trying to steal it.

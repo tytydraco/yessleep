@@ -1,0 +1,13 @@
+ My father is a Professor of Anthropology. He had been very excited a few days ago when he was able to bring home a large crate from the University. He had been going on and on that night that he was about to make a name for himself; that he would change our understanding of our existence or whatever. He wouldn’t stop talking. Mom just kept smiling and nodding.
+
+Since then, I’ve only heard him at night when he turns on his record player and starts banging around. When he’s on the verge of something he thinks is monumental, it's always loud, but this time it sounds like a construction zone. My room is directly above his study, so I haven’t been getting much sleep.
+
+At first, my mom seemed annoyed about how much time he was spending in his study. She would go in to check on him and bring him food, but that stopped two days ago. She’s been acting very distant. Her face is drawn and her skin is ashy. I’ve tried to talk to her and every conversation is very short. The other night, I heard dad laughing. He didn’t stop for almost an hour. 
+
+This morning, a disgusting smell woke me up. Like something really sweet that’s starting to turn and it’s making the air hard to breathe. I walk down to the kitchen and before I can grab something to eat on my way out, I hear a strange noise from the study. I knock on the door and I hear the noise again. Something that sounds like a bunch of mice running along the wood floor.
+
+There’s a hard knock at our front door, and it’s Brandtly, my father’s research assistant. He hurries past me, talking about something my dad took from the university. Something he shouldn’t have taken. He runs to the door of the study and pounds his fist against it. He tells me to stand back and busts the door in. The smell is overpowering. I want to scream when we walk inside, but I’ve lost the ability to do anything but shake. I’m trying to catch my breath.
+
+My mother is in the corner, hanging from a rope. Her eyes are missing. One of my father’s arms is sitting in a pool of blood on his desk next to an open empty crate. Blood and dirt are everywhere. Pages torn from my father’s books have been tacked up all over the walls with notes scribbled on them. Above the fireplace in a white dripping paint, are a bunch of symbols that look like an ancient language, and large mounds of dirt are on either side of the fireplace. He’s dug a tunnel downward in the fireplace. 
+
+The smell is coming from the hole and there’s a faint light coming from somewhere in the darkness. I can hear my father’s laughter coming from somewhere deep inside the hole followed by other voices and sounds that don’t sound human at all.
