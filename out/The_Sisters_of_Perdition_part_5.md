@@ -1,5 +1,3 @@
- 
-
 part 4
 
 &#x200B;
@@ -38,7 +36,7 @@ Me and Zackariah waded into the water and the orca’s came up under us and befo
 
 As we surfed along I saw a number of simple octopus gathering and eyeing us suspiciously.
 
-At the monastery we spent a great deal of time unlearning all the falsehoods that had been taught to us in school. We called them anti truths, things that meant the opposite of what they said. 
+At the monastery we spent a great deal of time unlearning all the falsehoods that had been taught to us in school. We called them anti truths, things that meant the opposite of what they said.
 
 “What was the world like when Julius Caesar was around?” I asked Zackariah.
 
@@ -64,7 +62,7 @@ He took the first sealed letter off of the table and opened it. His eyes bulged 
 
 “Remember the Alamo is all it says.” Max spat on the ground. “Godless heathens”
 
-He took the next sealed letter from the table. 
+He took the next sealed letter from the table.
 
 “Next the Cesarians.” He opened it and read it. “They won’t arrive until they see someone turned to stone, as always.” Max said with a smirk.
 
@@ -80,7 +78,7 @@ And with that we were off. From our one monastery we had a force of 75 monks, so
 
 We knew we were getting close when we started seeing strange things. Deer with alligator jaw sewn on, cows with alligator jaws sewn on, and even buffalo with alligator jaws sewn on.
 
-When we reached the rendezvous point we set up camp and waited. 
+When we reached the rendezvous point we set up camp and waited.
 
 Before long we were spotted by some klansmen. We would have fired upon them but they came waving a white flag. Their alligator jawed dogs had their tails between their legs.
 
@@ -88,9 +86,9 @@ Before long we were spotted by some klansmen. We would have fired upon them but 
 
 We gathered our rifles and went to investigate. What we saw made me want to vomit. They had not only roasted up the whole farm, along with buffalo, iguana and fish. But they had a giant vat of soup cooking.
 
-Jeff sat there tasting and salting the soup. 
+Jeff sat there tasting and salting the soup.
 
-Then I saw Dale come out of the shadows holding a black child. He threw him in the soup. 
+Then I saw Dale come out of the shadows holding a black child. He threw him in the soup.
 
 “Changeling soup is my favourite” Dale belched.
 
@@ -106,7 +104,9 @@ We got in a circle and were firing wildly in all directions, shooting down klans
 
 I fired, loaded, fired over and over as hooded klansmen dropped like dead flies.
 
-They reminded me of ghosts coming with their swords. 
+They reminded me of ghosts coming with their swords.
+
+Klansmen chopped down monks with their swords and hit the occasional one with a gunshot. I saw gator dogs tear monks apart and I was terrified. Thankfully none came right at me.
 
 Eventually the klansmen fled to regroup and we did a head count. We were down to 52 monks.
 
@@ -120,15 +120,15 @@ There was a large number of klansmen as well as gator dogs, gator bears and some
 
 When they got closer, Dora took out a megaphone and screamed into it.
 
-“Allow me to introduce you to my latest creations! MAn bear pig, Pigman bear and man bear pig!” Dora screamed.
+“Allow me to introduce you to my latest creations! Man bear pig, Pigman bear and man bear pig!” Dora screamed.
 
 I noted the pig man bear hybrids that lined their ranks as they charged into firing range.
 
-We fired all together at first then started firing at will. 
+We fired all together at first then started firing at will.
 
 The monstrosities charged at us in waves and many were killed before they came close.
 
-But once they did they decimated our ranks. Gator bears tore through us like butter, ripping people apart. IT was every man for himself as monks and braves fought back with sword, bow and arrows, rifles and clubs.
+But once they did they decimated our ranks. Gator bears tore through us like butter, ripping people apart. It was every man for himself as monks and braves fought back with sword, bow and arrows, rifles and clubs.
 
 I fired a shot through the man bear pigs eye and loaded my rifle, then fired through the eye of a gator bear. It was utter chaos, but Yahweh favoured me that day and nothing came right at me.
 
@@ -146,6 +146,10 @@ They then turned into beautiful women and started moving across the ground on th
 
 I fired right through where he said and the woman turned into a wasp I had shot it in the head.
 
+Other monks were stung by the wasps along with many braves. They lay paralyzed and the wasps quickly stung them multiple times, laying their eggs.
+
+I knew that within a few days they would hatch and the larvae would eat the men. IT was better to kill them and burn them to avoid such a grisly death. Manhawks they called them. Wasps that laid their young in people. I felt changed by the horrifying decision the stood before the paralyzed men.
+
 Before long we had dealt with the wasps.
 
 We started doing a headcount, seemingly losing at least half of our troops in all the chaos.
@@ -154,14 +158,14 @@ Then the monstrosities and klansmen came back for round two.
 
 We unloaded into them as they charged towards us but they hit our reduced ranks hard.
 
-Chaos ensued again as monks and braves were eaten.
+Chaos ensued again as monks and braves were eaten. The gator bears chomped braves in half. The gator dogs swarmed around monks and tore them apart.
 
 We fought valiantly but it seemed all hope was lost, but then there was a lull in the fighting and I turned towards the sunset.
 
-Over the hill I saw Abe and his cavalry. They charged into our midst and I saw Abe behead Dora.
+Over the hill I saw Abe and his cavalry. They charged into our midst and shot the gator bears and dogs. Abe charged right towards Dora, beheading her.
 
 Before long what was left of the klan was fleeing. There was not a single monstrosity left from the force we had battled.
 
 The next day we parlayed with the KKK and they agreed to stop abducting changelings. AT least for the time being. We headed back to the monastery with our heads held high.
 
-I record this here so that my contemporaries and future generations may have a true account of what happened during the first changeling crisis.
+I record this here so that my contemporaries and future generations may have a true account of the horrors of the first changeling crisis.
