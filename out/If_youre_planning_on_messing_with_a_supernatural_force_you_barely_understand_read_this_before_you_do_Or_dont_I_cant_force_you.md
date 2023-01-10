@@ -352,7 +352,7 @@ The party was going great for a while. I was hanging out with Louise, having a g
 
 One of Shelly’s old friends that she’d immediately dropped once she started dating William was holding a knife to a girl’s throat. Two more people with knives were standing beside him.
 
-“Where. Are. Shelby. And. William.”
+“Where. Are. Shelly. And. William.”
 
 Everyone panicked. Some people tried to run, but most either froze up or hid somewhere. I hid behind a counter.
 
@@ -376,7 +376,7 @@ For once, I didn’t have to hide a pained scream when I pulled out one of my la
 
 I snapped out of the vision, still hidden behind the counter. The girl who’s being held hostage is still alive.
 
-“IF YOU GUYS DON’T TELL ME WHERE WILLIAM AND SHELBY ARE, I’M GOING TO KILL HER!”
+“IF YOU GUYS DON’T TELL ME WHERE WILLIAM AND SHELLY ARE, I’M GOING TO KILL HER!”
 
 Nobody says anything.
 
