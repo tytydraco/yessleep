@@ -123,4 +123,4 @@ As I am writing this post, Grandma took out a match, lit it on fire, and threw i
 
 " Finally... He's dead. His flesh - melted off... His bones, visible... 
 
-***"Drive slow and follow the rules, or face the perils!" - Grandma***
+***Drive slow and follow the rules, or face the perils!" - Grandma***
