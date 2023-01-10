@@ -255,3 +255,5 @@ I always pretended like I didn't see Jacek watching from his window. Just for th
 [Part 6](https://www.reddit.com/r/nosleep/comments/103yryr/a_warning_to_the_wannabe_cryptid_hunters/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 7](https://www.reddit.com/r/nosleep/comments/105nlp7/a_warning_to_the_wannabe_cryptid_hunters_some/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/1085qzf/warnings_to_the_wannabe_cryptid_hunters_heres_why/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

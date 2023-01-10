@@ -42,7 +42,7 @@ I followed after him and before long we were surfing on the orcas as we did 4 ye
 
 “Bonus  question!” Zackariah chirped. “Get this one for extra credit! What layer  of reality was the human race before the watchers turned against Yahweh  and corrupted us?”
 
-“The fourth layer of purgatory” I responded with a grin.
+“The fifth layer of purgatory” I responded with a grin.
 
 “You  sly devil you! You did the math didn’t you? Most people don’t actually  do the math…” Zackariah responded, surprised. He faltered for a second,  almost falling off the orca.
 
