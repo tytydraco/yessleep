@@ -80,7 +80,7 @@ Something didn’t feel right. I ushered her back in and locked the door.
 
 But as I did, I saw something in the corner of my eye, something standing just beyond the entrance to my roommate’s bedroom. Even in the darkness of the room, its figure was distinct, like a person… When I turned, though, nothing was there. I thought it was my mind playing tricks on me, so I shook it off and sat on the couch.
 
-My eyes then drifted to the open book before me.
+My gaze then drifted to the open book before me.
 
 *Once you let it in, it’ll never leave.*
 
