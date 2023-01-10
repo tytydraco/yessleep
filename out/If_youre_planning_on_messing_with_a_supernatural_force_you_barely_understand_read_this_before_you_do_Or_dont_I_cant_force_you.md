@@ -1,6 +1,6 @@
- There’s a payphone in the empty lot behind my high school that still hasn’t been demolished even though it hasn’t had power in years, ‘cause nobody can be bothered to take it down until someone buys the property and builds something on it, which is never going to happen. Our town is small enough that most businesses wouldn’t bother, and even if someone living here wanted to open one, there are other empty lots in much better locations.
+There’s a payphone in the empty lot behind my high school that still hasn’t been demolished even though it hasn’t had power in years, ‘cause nobody can be bothered to take it down until someone buys the property and builds something on it, which is never going to happen. Our town is small enough that most businesses wouldn’t bother, and even if someone living here wanted to open one, there are other empty lots in much better locations.
 
-There is also a playground rumor that if you put a quarter in the machine, and dialed a specific number while you were alone in the booth, you would be able to talk to a spirit called Amaryllis that would grant you any ability you desired. 
+There is also a playground rumor that if you put a quarter in the machine, and dialed a specific number while you were alone in the booth, you would be able to talk to a spirit called Amaryllis that would grant you any ability you desired.
 
 There were a couple caveats- You can only use the phone once in your lifetime, and you can’t change or get rid of the ability once you’ve got it. You also take on a curse that you’ll be stuck with forever, and you have no say in what it is- the spirit chooses it.
 
@@ -152,8 +152,7 @@ I glared at him for a second.
 
 “Fifteen?”
 
-“No. I’ll do it for thirty. That’s my final offer, take it or fuck off.”  
-
+“No. I’ll do it for thirty. That’s my final offer, take it or fuck off.”
 
 He rummaged through his pockets, mumbling something (probably an insult) under his breath, pulled out a twenty and a ten dollar bill, and threw them at my face.
 
@@ -245,8 +244,7 @@ Facetime me.
 
 I did, and sure enough, William’s stupid smirk greeted me.
 
-“What do you want?”  
-“Jeez. You can stop with the sass. Anyways, Shelly wants to use the phone. Check to see if it’ll work or not.”
+“What do you want?”“Jeez. You can stop with the sass. Anyways, Shelly wants to use the phone. Check to see if it’ll work or not.”
 
 I sighed, grabbed a bandaid and pliers, and pulled.
 
@@ -264,27 +262,23 @@ I sighed, grabbed a bandaid and pliers, and pulled.
 
 *“Oh, hello William! Unfortunately, I can only give one gift!”*
 
-*“I am not William.”*  
-*“Ah, but you’re being controlled by him! That means you were instructed by him to do so! Sorry, but you can’t ask for gifts for other people! Goodbye!”*
+*“I am not William.”“Ah, but you’re being controlled by him! That means you were instructed by him to do so! Sorry, but you can’t ask for gifts for other people! Goodbye!”*
 
 *She hangs up.*
 
 “It won’t work.”
 
-“Why?”  
-“You only get one gift. That’s what Amaryllis said.”  
-William sighed, looking frustrated, and hung up.
+“Why?”“You only get one gift. That’s what Amaryllis said.”William sighed, looking frustrated, and hung up.
 
 My hand stung, but I had a knot in my stomach. I didn’t want to do any more favors for this douche, and I *needed* to know whether or not he was going to bother me again.
 
 I yanked out another nail.
 
-“Show me if William asks me for another favor.”  
-*I’m sitting in my room, playing a game on my computer. My phone buzzes.*
+“Show me if William asks me for another favor.”*I’m sitting in my room, playing a game on my computer. My phone buzzes.*
 
 *Hey, Future Girl. I need another vision. I’m throwing a party at my house, and I’m worried one of my neighbors will call the cops to complain or something.*
 
-Alright. So he *was* going to bother me again. Maybe I could block his number? Actually, yeah, why don’t I just do that? 
+Alright. So he *was* going to bother me again. Maybe I could block his number? Actually, yeah, why don’t I just do that?
 
 I quickly found his number and blocked it.
 
@@ -314,8 +308,7 @@ So I pulled my nail off, trying to ignore the fact that having five nail beds co
 
 *“I uh, didn’t get it.”*
 
-*“Whatever. I’m here now, and I need a vision.”*  
-
+*“Whatever. I’m here now, and I need a vision.”*
 
 So he was going to find me in person. Great. At least he didn’t immediately mind-control me. I didn’t really want to see him in person, so I left the number unblocked, and waited for the inevitable text.
 
@@ -333,8 +326,7 @@ So I asked if the cops interrupted William’s party, and I saw a vision of a bu
 
 “You only have four body parts left?”
 
-“SACRIFICEABLE ONES, YEAH! EVERY TIME I USE MY POWER I HAVE TO GIVE THAT STUPID GHOST BITCH SOMETHING MORE IMPORTANT!  SHE STARTED WITH TAKING A FINGER OR A TOE, AND THEN SHE STARTED TAKING THINGS THAT ARE WAY MORE VITAL! SHE TOOK AN EAR AND ONE OF MY ARMS! SHE FUCKING SCAMMED ME, JUST LIKE ALL THE OTHER GIRLS IN THIS TOWN!”  
-
+“SACRIFICEABLE ONES, YEAH! EVERY TIME I USE MY POWER I HAVE TO GIVE THAT STUPID GHOST BITCH SOMETHING MORE IMPORTANT!  SHE STARTED WITH TAKING A FINGER OR A TOE, AND THEN SHE STARTED TAKING THINGS THAT ARE WAY MORE VITAL! SHE TOOK AN EAR AND ONE OF MY ARMS! SHE FUCKING SCAMMED ME, JUST LIKE ALL THE OTHER GIRLS IN THIS TOWN!”
 
 “Sounds like you should stop using your power, then.”
 
@@ -348,7 +340,7 @@ But then I did something stupid.
 
 William decided he was going to throw the party anyway, he just made it a lot less wild than he’d planned. And he invited a bunch of people from his and my school, including me.
 
-I should’ve said I couldn’t come. But I was invited to a party with a bunch of the most popular kids in both my school and his, and there are barely any parties thrown in town. Plus, it seemed like William couldn’t use his power without taking a huge risk, and I could probably spend the whole party avoiding him- he’d be busy hanging out with all the other people he invited, right? 
+I should’ve said I couldn’t come. But I was invited to a party with a bunch of the most popular kids in both my school and his, and there are barely any parties thrown in town. Plus, it seemed like William couldn’t use his power without taking a huge risk, and I could probably spend the whole party avoiding him- he’d be busy hanging out with all the other people he invited, right?
 
 So I went to the party.
 
@@ -364,7 +356,7 @@ One of Shelly’s old friends that she’d immediately dropped once she started 
 
 Everyone panicked. Some people tried to run, but most either froze up or hid somewhere. I hid behind a counter.
 
-I was close to the window. So close, I might have had the chance to run out of it, but I wasn’t sure. 
+I was close to the window. So close, I might have had the chance to run out of it, but I wasn’t sure.
 
 For once, I didn’t have to hide a pained scream when I pulled out one of my last three remaining nails. There was plenty of screaming covering mine up.
 
@@ -420,7 +412,7 @@ She managed to tackle the one, but the other one stabbed her before she could do
 
 William sent another person to try and fight them, but he spoke a bit too loudly, because they realized where he was, and rushed toward him.
 
-He started screaming at all of the people nearby. 
+He started screaming at all of the people nearby.
 
 “JOIN ME, MY DEAR! PROTECT ME FROM THEM! KEEP ME ALIVE NO MATTER WHAT! TAKE AWAY THEIR KNIVES! FIGHT THEM AND-”
 
@@ -430,7 +422,7 @@ I grabbed Louise’s hand.
 
 “We might have a chance to make a break for it. Just let me see.”
 
-The adrenaline coursing through my veins completely blocked the pain of ripping another nail out. 
+The adrenaline coursing through my veins completely blocked the pain of ripping another nail out.
 
 “Show me what happens if we run.”
 
@@ -442,9 +434,9 @@ The adrenaline coursing through my veins completely blocked the pain of ripping 
 
 We sprint out the door. It was fifty-seven degrees outside, and I’d left my coat behind, but I’d never been more relieved to feel the cold air stinging against my skin.
 
-Some people stood by the doorway, waiting for their friends to come out. Some drove away in their cars, or call the police on their phones.
+Some people stood by the doorway, waiting for their friends to come out. Some drove away in their cars, or called the police on their phones.
 
-I’m separated from Louise while she looks for her brother in the crowd outside. Most of them are halfway down the block by now, but I’ve frozen up in front of the house, which has gone completely silent.
+I was separated from Louise while she looked for her brother in the crowd outside. Most of them are halfway down the block by now, but I’ve frozen up in front of the house, which has gone completely silent.
 
 A group of people with glazed over eyes leave the house, carrying something. No, *someone.* A boy that I can barely recognize.
 
@@ -496,7 +488,6 @@ A couple hours later, the doctors gave me the all clear to go home, telling me I
 
 I whispered as quietly as I could so my parents didn’t hear.
 
-  
 “Show me if William will ever be found.”
 
 *I’m in a locked room, that appears to be a basement.*
