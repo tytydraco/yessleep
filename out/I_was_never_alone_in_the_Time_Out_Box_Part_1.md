@@ -99,3 +99,5 @@ For a few minutes, I lay there. The voice gone, silence all around me. As I lay 
 Around me, the air grew hot and stale. I prepared myself to escape. I thought of my dead grandparents, and my friend Alive, who’d dived the wrong way into a swimming hole. I thought of my 3rd grade teacher, Mrs. Chu, who’d fallen from a ladder while hanging Christmas light.
 
 I found myself gasping. Then I reached out, scrambling to find the dime-sized button. And I [pushed](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/108gsog/i_was_never_alone_in_the_time_out_box_part_2/)
