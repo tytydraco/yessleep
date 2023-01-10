@@ -6,7 +6,7 @@ My phone buzzed and I saw the name of my boss on the screen. 'Watts? Get to the 
 
 I was still groggy, it being 5:30 in the morning, earlier than when I'd normally wake up.
 
-I wondered what my boss was doing at the station that early and I had a feeling that something was off; Nevertheless, I proceeded to get ready so that I could join him.
+I wondered what my boss was doing that early, especially at a hotel and I had a feeling that something was off; Nevertheless, I proceeded to get ready so that I could join him.
 
 By the time I arrived at the spot, the sun was already up. The Hotel Lion glimmered in the morning sun, its tall windows reflecting off the cobblestone streets of central London. Sleek and modern, it stood out among the other grey brick buildings, its shimmering facade a testament to human ambition.
 
@@ -18,7 +18,7 @@ My footsteps echoed down the third floor hallway. As I rounded the corner, I not
 
 My stomach dropped. 'What do you mean? What room?' I asked.
 
-Brown gestured towards the open door to go inside. With a heavy sigh, I followed his instructions and I turned my gaze to the door, feeling a sudden chill race down my spine. 'What am I looking for?' I asked, although I knew the answer before he said it.
+Brown gestured towards the open door to go inside. With a heavy sigh, I followed his instructions and turned my gaze to the door, feeling a sudden chill race down my spine. 'What am I looking for?' I asked, although I knew the answer before he said it.
 
 The first thing that caught my eye was a dead body on the floor. The body had no marks or evidence of struggle around him. The only clue to this mystery was that he had carefully folded up his clothing in one neat pile beside him - as if for some ritual purpose before taking off into the afterlife. His face showed signs of extreme shock as if something inhuman had suddenly possessed itself upon him just moments before passing away from this life forever.
 
@@ -26,7 +26,7 @@ The air was thick with tension as I carefully surveyed my surroundings -- a sing
 
 'He registered under a fake ID. Larry Smith and the address he gave doesn't exist, the guys have already checked it.' - Brown added.
 
-'I see. So someone was here beside him? Could have been murdered?' I asked the CSI investigators, my voice raising in confusion.
+'I see. So someone was here beside him? Could he have been murdered?' I asked the CSI investigators, my voice raising in confusion.
 
 'Yes and no,' a voice replied from behind me and I stumbled back in surprise. Our medical examiner Susan stepped out of the private bathroom, her eyes wide and her posture tense.
 
@@ -34,11 +34,11 @@ The air was thick with tension as I carefully surveyed my surroundings -- a sing
 
 Susan crouched down to the body.
 
-'Discoloration around the lips, ears and nails. These are the signs of cyanosis, which is a blue discolouration of the skin due to a lack of oxygen. Oh, honey, you must have suffered quite a bit,' she said and adjusted her hair.
+'Discoloration around the lips, ears and nails. These are the signs of cyanosis - the skin turned blue due to a lack of oxygen. Oh, honey, you must have suffered quite a bit,' she said and adjusted the hair of the dead body.
 
 'So he was strangled?'
 
-'No because there are no marks or bruises around his neck.'
+'No, because there are no marks or bruises around his neck.'
 
 'Pillows?' My gaze diverted to the bed and I caught sight of a few pillows
 
@@ -64,7 +64,7 @@ I knew why Susan said that. The bed was immaculate as if nobody had ever slept o
 
 'Absolutely. There was somebody in the bathroom taking a shower and he was humming a song.'
 
-'You said he?'
+'He?'
 
 'The voice was more like a male than female.'
 
@@ -76,11 +76,11 @@ I need every single one of these if I’m going to be able to analyze them prope
 
 I had almost finished up my work in the hotel room, but as I rounded the bed, I caught sight of my reflection in the mirror. A chill ran down my spine as I noticed a figure standing behind me.
 
-He had on a olive green raincoat, and his face was hidden in shadows. All I could make out were his eyes – they were a bright, piercing blue that seemed to penetrate right through me with an intensity that made my heart skip a beat. He seemed to be staring at something, but what?
+He had on an olive green raincoat, and his face was hidden in shadows. All I could make out were his eyes – they were a bright, piercing blue that seemed to penetrate right through me with an intensity that made my heart skip a beat. He seemed to be staring at something, but what?
 
 I jumped back in surprise and fear.
 
-"You all right, sweetheart?" Susan asked me.
+'You all right, sweetheart?' Susan asked me.
 
 I realized that nobody else could see it besides me, which terrified me even more.
 
@@ -126,7 +126,7 @@ My pulse raced as I stumbled out of the station, my gaze darting from window to 
 
 I made a beeline for the pub down the street. I was in desperate need of something to take my mind off this case and the strange figure that seemed to haunt me. I ordered my favourite drink—Jim Beam—in a plastic cup of course, which weirded the waiter out a bit. Then I sat down at an empty table in the corner of the room.
 
-The pub was surprisingly lively and full of people, but it was also calming at the same time. The sound of laughter and chatter filled the air, accompanied by soft music playing in the background. I sipped slowly on my drink, letting its warmth seep through my veins as I watched all around me.
+It was early in the morning and the pub was surprisingly lively, but not too crowded as many patrons were on their way to work. The atmosphere was calm and soothing, with the sound of soft music playing in the background and the gentle murmur of laughter and conversation filling the air. I sipped slowly on my drink, letting its warmth seep through my veins as I watched all around me.
 
 Just as I was about to take my last sip, my phone started ringing. I glanced at the caller ID and saw it was DCI Brown.
 
