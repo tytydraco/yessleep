@@ -1,6 +1,6 @@
 Hello, if you are reading this because I give it to you, please do not continue reading, if you do, they will get you. If these rules appeared on your bed or on your table, its safe for you to read. No, it's essential for you to read. If you disobey any of these rules, they will get you.
 
-RULE 1: Do not greet my family at the doorstep or front poach, wait until we let you in.
+RULE 1: Do not greet my family at the doorstep or front poarch, wait until we let you in.
 
 RULE 1a: If we insist you come in for more then 25 second, walk away and never look back. It's not me or my family.
 
