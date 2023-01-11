@@ -1,4 +1,4 @@
-I am a detective inspector in London and the cases transferred to me are, in a way, usually the subject of the paranormal. Earlier, I shared my first paranormal case with you. This time I am going to tell you about an ongoing murder investigation, which is, to be honest, freaking me out.
+I am a detective inspector in London and the cases transferred to me are, in a way, usually the subject of the paranormal. [Earlier](https://www.reddit.com/r/nosleep/comments/zzdn5r/i_witnessed_an_unexplained_death_that_surpassed/), I shared my first paranormal case with you. This time I am going to tell you about an ongoing murder investigation, which is, to be honest, freaking me out.
 
 My phone buzzed and I saw the name of my boss on the screen. 'Watts? Get to the Hotel Lion right away, I've got a case for you,' he said.
 
