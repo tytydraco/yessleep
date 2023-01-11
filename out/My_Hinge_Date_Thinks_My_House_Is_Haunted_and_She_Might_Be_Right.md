@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/108s7ow/my_hinge_date_thinks_my_house_is_haunted_and_she/)
+
 Nicole was the best sex I ever had. So good it ruined just about any woman I ever had after. 
 
 So imagine my glee when Nicole showed up at my door late one night, unannounced. I’ll spare you the details and let you know it was just as good as I always remembered. 
@@ -72,7 +74,7 @@ I had to do something. I couldn’t hide. I went to the door. 
 
 I could recognize her just from the silhouette. I could smell her familiar scent of gardenia perfume through the door. 
 
-My mom was outside. *My mom had died five years before.* 
+My mom was outside. *My mom had died five years before.*
 
 I opened the door and saw her standing there in her typical posture, smiling, happy, looking full of life. 
 
