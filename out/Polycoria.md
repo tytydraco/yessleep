@@ -1,8 +1,8 @@
-Polycoria is an extremely rare eye condition in which an iris contains two pupils. Before the summer of 2022, I didn’t even know that an eye could have double pupils. You might be in the same boat, given that there have only been two recorded cases of *true* polycoria since 1966, supposedly.
+Polycoria is an extremely rare eye condition in which an iris contains two pupils. Before last weekend, I didn’t even know that an eye could have double pupils. You might be in the same boat, given that there have only been two recorded cases of *true* polycoria since 1966, supposedly.
 
 Why am I telling you about an obscure type of eye defect? Well, I’ve been conducting research on the topic. I need to understand what happened at my great aunt’s mansion out in the sticks. I thought that finding an answer would ease the gnawing knot of terror in my chest, but no rational explanation seemed to suffice. Not even the textbook definition of polycoria explained what I saw.
 
-My father’s side of the family is essentially non-existent, due to some terrible childhood event that he hasn’t ever discussed. Only he and his aunt, Audrey, survived. We used to be visited by her when we were little, but she has grown sicker and sicker with every passing year, so we finally went on a family trip to see her in the summer of 2022.
+My father’s side of the family is essentially non-existent, due to some terrible childhood event that he hasn’t ever discussed. Only he and his aunt, Audrey, survived. We used to be visited by her when we were little, but she has grown sicker and sicker with every passing year, so, last weekend, we finally went on a family trip to see her.
 
 “Why do we have to drive *all* of the way to Scotland?” My younger sister, Lisa, moaned.
 
@@ -16,7 +16,7 @@ My father’s side of the family is essentially non-existent, due to some terrib
 
 “Come on, everyone! This is an adventure! You’ll be eating your words in a few hours,” My mum said. “You won’t want to go back to Bury.”
 
-She wasn’t wrong, but I didn’t want to be in Bury *or* Inverness. I wanted to be with my university friends in Manchester. They were all partying before going home for the summer break. I, meanwhile, was cooped up in a car with my irritating siblings and incessantly-peppy parents.
+She wasn’t wrong, but I didn’t want to be in Bury *or* Inverness. I wanted to be with my university friends in Manchester. They were partying before resuming studies. I, meanwhile, was cooped up in a car with my irritating siblings and incessantly-peppy parents.
 
 “Red car!” Jacob giggled.
 
@@ -142,7 +142,7 @@ I scoffed. “No. You’ve never told us anything about your side of the family.
 
 “I think we should talk about it,” Audrey insisted. “There was a time that you thought I was the greatest aunt in the world, Lionel. You see, Felicity, I was the black sheep of the family. The Rhinestones were always such serious people, and I felt suffocated by them. Lionel’s mother was the same, but she was always better at playing by the rules than me. She married, settled down, had children, and did everything by the book.”
 
-*Children*. I knew my father had lost his parents in the mysterious incident of ‘89, but he had never mentioned any siblings. 
+*Children*. I knew my father had lost his parents in the mysterious incident of ‘89, but he had never mentioned any siblings.
 
 “Maggie was the only one who looked out for me, much as you look out for your brother and sister, Felicity,” Audrey continued. “When I told my family what I’d seen in the Orchard, Maggie was the only one who believed me.”
 
