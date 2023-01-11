@@ -168,3 +168,6 @@ Cas shrugged. "I'd sure be mad. You're the reason its human up and left, aren't 
 
 
 [Part 9](https://www.reddit.com/r/nosleep/comments/1085qzf/warnings_to_the_wannabe_cryptid_hunters_heres_why/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/1095w2g/warnings_to_the_wannabe_cryptid_hunters_freak_deer/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
