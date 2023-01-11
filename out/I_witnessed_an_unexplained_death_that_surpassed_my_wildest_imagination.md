@@ -209,3 +209,5 @@ I didn't tell anyone the reason why he abandoned his vehicle and dashed into the
 Needless to say that officially, the case is still unsolved. Cases like these have been delegated to me ever since.
 
 The only question I still ask myself is what is worse? Being the victim of a brutal murder or being haunted for years until the forces of hell take revenge?
+
+[My actual case](https://www.reddit.com/r/nosleep/comments/1088tbc/when_i_look_into_a_mirror_something_is_watching/)
