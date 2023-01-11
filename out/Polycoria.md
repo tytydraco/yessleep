@@ -158,7 +158,7 @@ We had been served plates of indistinguishable meat with sides of vegetables. It
 
 “Jacob!” My mum gasped. “I’m so sorry, Audrey.”
 
-Audrey simply laughed. “It’s fine, Grace! I get it. Looks strange, doesn’t it, Jacob? It’s our slightly-unique cut of haggis. You’re in Scotland, after all. Anyway, it’s hard to find meat in these parts. The land… isn’t what it used to be.”
+Audrey simply laughed. “It’s fine, Grace! I get it. Looks strange, doesn’t it, Jacob? It’s our slightly-unique haggis recipe. You’re in Scotland, after all. Anyway, it’s hard to find meat in these parts. The land… isn’t what it used to be.”
 
 Breaking the uncomfortable stillness that followed Audrey’s sombre statement, servants emerged from the kitchen to collect our plates. My parents engaged in conversation with them, attempting to revitalise the atmosphere of the meal. I recognised one of the workers from our arrival. The woman with polycoria. However, something was different. Her iris had returned to normal. There was only one pupil in her left eye. But that wasn’t what really stood out to me. Her face was warmer. Kinder.
 
