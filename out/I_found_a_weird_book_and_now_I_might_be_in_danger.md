@@ -89,3 +89,7 @@ My gaze then drifted to the open book before me.
 Then, I watched Scout walk over to my roommate’s bedroom unprompted, stand just outside of it, and stare into the blackness before letting out a low growl.
 
 I’m terrified to check the room, but she won’t leave it. I don’t know what to do.
+
+—
+
+[Part Two.](https://www.reddit.com/r/nosleep/comments/108rq12/part_2_i_found_a_weird_book_and_now_i_might_be_in/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
