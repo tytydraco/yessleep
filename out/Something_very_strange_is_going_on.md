@@ -23,3 +23,5 @@ I was trembling at this point. I got up shakily and walked down to my floor. My 
 I went in my house and tried to sleep hoping it would all be normal when I wake up. The thing is I can’t sleep. Go figure. So here I am typing this all out. Hoping someone knows something and can explain. Or at the very least, there is someone out there… 
 
 I’ll update more if I can.
+
+PART II: [PART II Something very strange is going on](https://www.reddit.com/r/nosleep/comments/109vzyy/part_ii_something_very_strange_is_going_on/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
