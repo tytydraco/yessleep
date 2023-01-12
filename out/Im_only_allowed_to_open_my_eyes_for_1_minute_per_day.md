@@ -1,4 +1,4 @@
-“From midnight of any given day to the next, you may only open your eyes for sixty seconds. Until your dying day, this shall be so.”
+“From midnight of any given day to the next, you may only open your eyes for sixty seconds. Until your dying day, this law shall pertain.”
 
 The thunderous voice rattled the very foundations of my house, but I disregarded the crystal-clear warning. Stupid, given how uneasy I felt. It was the most lucid dream of my life. That should have told me something. I should have realised it was more than a nightmare.
 
