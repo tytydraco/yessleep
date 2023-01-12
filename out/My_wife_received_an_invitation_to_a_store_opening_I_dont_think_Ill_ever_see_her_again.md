@@ -60,7 +60,7 @@ My eyes darted back and forth from the GPS screen and the darting yellow lines i
 
 “*You missed your destination. Please make a u-turn when able and head back two and a half miles. Your destination will be on the right side of the road.”*
 
-“What the hell?” I said in a panic. The GPS had just said one mile only moments before. There was no way I had driven a mile and a half past a huge department stool on the side of a dark country highway and missed it. “You’ve got to be kidding me!”
+“What the hell?” I said in a panic. The GPS had just said one mile only moments before. There was no way I had driven a mile and a half past a huge department store on the side of a dark country highway and missed it. “You’ve got to be kidding me!”
 
 I pulled the car onto the shoulder and made a U-turn. As we drove back in the direction that we came, my fluttered with nervous energy. Something was wrong, but I couldn’t put my finger on it.
 
@@ -76,7 +76,7 @@ Just a moment before I was going to tell my wife we were heading home, I could s
 
 I pulled the car into a parking space closest to the door. We got out and started walking toward the entrance. There was emotionless elevator music playing in the parking lot. I looked up toward the tops of the light poles but didn’t see any speakers. None of the Targets in Lexington played the canned music, and it filled me with a strange sense of dread. It was as though it came from nowhere.
 
-Even the entrance to the building was strange. While most stores have an entrance directly in the center of the building or two mirrored entrances on each end of the building, there was only one here. It was almost directly at the far right corner of the building. 
+Even the entrance to the building was strange. While most stores have an entrance directly in the center of the building or two mirrored entrances on each end of the building, there was only one here. It was almost directly at the far right corner of the building.
 
 I looked to my left and saw the three other cars in the lot were parked all the way to the right. Maybe there was an employee door on the side of the building, but I couldn’t see a walkway. There were four or five feet of grass between the parking lot and the edge of the building.
 
@@ -110,7 +110,7 @@ At some point, I fell asleep. It wasn’t intentional, but there is only so much
 
 I had been asleep for around forty-five minutes when my cell phone began to buzz in my hand. Startled by the sudden motion, I looked down at my phone. There was a text message from Deb. I thought it was just Deb telling me she was running behind but checking out.
 
-***Help me.*** 
+***Help me.***
 
 The messaging was confusing. Did she want help carrying something to the car? Was there something she wanted my opinion on? I sent a reply.
 
@@ -144,7 +144,7 @@ When I passed through the entryway doors, the store looked like it should with a
 
 Strangest of all was the lack of people.
 
-The only noise in the building was a keyboard version of *The Girl from Ipanema*. It had a tinny quality to it, as though it were playing from a World War 2 era radio. Crackles of static pierced through occasionally causing me to wince. 
+The only noise in the building was a keyboard version of *The Girl from Ipanema*. It had a tinny quality to it, as though it were playing from a World War 2 era radio. Crackles of static pierced through occasionally causing me to wince.
 
 “Hello?” I said loudly. It wasn’t quite a shout, but there was more volume to it than my normal speaking voice. It took most of my willpower not to scream at the top of my lungs, but I didn’t want to make myself seem unstable if it turned out there were other people in the store.
 
@@ -156,7 +156,7 @@ No one answered my call.
 
 Silence.
 
-“Is anyone in this damn building?” I screamed. My temples were throbbing and it felt like the canned music pouring from the speakers grew louder to drown out my calls. I was running down the aisles, looking side to side frantically. Passing row after row of generic shelves filled with red packaging, I screamed my wife’s name over and over. 
+“Is anyone in this damn building?” I screamed. My temples were throbbing and it felt like the canned music pouring from the speakers grew louder to drown out my calls. I was running down the aisles, looking side to side frantically. Passing row after row of generic shelves filled with red packaging, I screamed my wife’s name over and over.
 
 My phone vibrated in my pocket and I pulled it out. Another text from Deborah.
 
@@ -170,7 +170,7 @@ The ellipsis bubble popped up showing she was typing a response.
 
 ***No. I can only hear the red men. I’m hiding from them in the bathroom. Please come help me.***
 
-I didn’t have time to register what she meant by “the red men”. Breaking into a run, I headed toward the back of the store. As I passed by the clothing section I panicked and jumped back, slamming into a rack filled with clothing. 
+I didn’t have time to register what she meant by “the red men”. Breaking into a run, I headed toward the back of the store. As I passed by the clothing section I panicked and jumped back, slamming into a rack filled with clothing.
 
 A red faceless man was standing on a platform behind the rows of clothing.
 

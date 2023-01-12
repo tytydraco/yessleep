@@ -4,6 +4,20 @@ part 5
 
 &#x200B;
 
+part 7
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/109xyq1/the\_sisters\_of\_perdition\_part\_7/](https://www.reddit.com/r/nosleep/comments/109xyq1/the_sisters_of_perdition_part_7/)
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
 I  work at a construction company and we are renovating this old monastery  into a library. The last of the monks decided to sell the building for  money and the state of Tennessee bought it to make it a heritage site.  There is still going to be a library and in addition to adding a bunch  of books they are keeping all the ones that were originally here. While  renovating the building I found the journal of someone named Ewan. After  reading it I found this part particularly fascinating and wanted to  share it.
 
 My name is Ewan and I  live in a monastery on the Mississippi river. I have trained most of my  life as a warrior monk.  I was 21. It was 1861.
