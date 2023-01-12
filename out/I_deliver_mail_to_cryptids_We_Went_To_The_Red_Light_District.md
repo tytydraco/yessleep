@@ -1,4 +1,4 @@
-(First: https://redd.it/o8vgiw Previous: https://redd.it/y2iym6)
+(First: https://redd.it/o8vgiw Previous: https://redd.it/y2iym6 Next: https://redd.it/109lb0u )
 
 For two weeks I got into a good routine with work. I had a suspicion that me and my partner was getting stuck with the easy jobs no one wanted. There was no shortage of jobs that we just needed to hands off a package to an almost human appearing creature then getting their signature. For a while, I almost thought I might not come across any problems with my job. I was dead wrong. 
 
