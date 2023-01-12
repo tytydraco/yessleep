@@ -33,3 +33,5 @@ I snatched Kyla up swiftly and dragged her along until she got on her own two fe
 We took no chances though and ran straight into the house. After catching our breath we both looked at each other stunned. As always, Kyla spoke first. "Was that a giant fricken squirrel?!" I shivered. What we saw had to be impossible right? I was still trying to process what we'd just seen. But before I could form a coherent reply there was a loud thud on the roof.. 
 
 I fell to the floor with my head in my hands. I looked up at Kyla who was physically shaking and I could barely whisper, "did it really have two heads?!"
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/10abs9e/it_came_in_autumn_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
