@@ -30,7 +30,7 @@ Should’ve backed off, but masculine pride forced me to swing the door open.
 
 The house was a mess, or my version of what a mess would look like.
 
-The windows were wide open, more dishes in the sink. My television was on, which happened to be playing one of my favorite movies: The Ring. My couch cushions had imprints on them. Sat in one of them and the seat was warm. 
+The windows were wide open, more dishes in the sink. My television was on, which happened to be playing one of my favorite movies: The Ring. My couch cushions had imprints on them. Sat in one of them and the seat was warm.
 
 Wanted to call the police right there, but there was one problem: nothing was stolen. Everything was fine, really. Things were out of place, but I knew the police weren’t gonna do shit. And between my perspiring hands and racing heart, maybe a part of me still wanted to believe this was all me being forgetful. If I was gonna call the police, I would need solid—
 
@@ -113,3 +113,5 @@ So, that’s about it. For now. I’ll update soon, of course, but until then, I
 While over at my sister's house, we discovered something while examining the first two days of footage, which were ones I hadn’t checked at first. There’s a moment where this other me is talking on the phone. Since it’s on speaker, we can hear the entire conversation.
 
 We can hear the sound of my sister’s voice coming from the other line.
+
+[part 2](https://www.reddit.com/r/nosleep/comments/10a6ltr/theres_a_copy_of_me_that_comes_into_my_house_when/)
