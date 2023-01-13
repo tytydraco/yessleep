@@ -58,7 +58,7 @@ I got up and did what he asked, with no doubt in my mind of getting conned. Was 
 
 I explain to him my routines, what I like to do at home. Then showed him the times of myself leaving and this other 'me' entering soon after. As skeptical as sis was, she couldn’t resist goosebumps and a pale face every time she was shown this footage. I expected to glance over and see this apparent con artist trying to hide a smirk, but he was intensive, as if watching some documentary.
 
-Yoel gradually eased his way to controlling the timestamps. We spent the next 20 minutes in silence watching, analyzing. Eventually, while Yoel flipped through more timestamps, something caught his eye. He paused the video, made sure the volume was turned all the way up, and then resumed. 
+Yoel gradually eased his way to controlling the timestamps. We spent the next 20 minutes in silence watching, analyzing. Eventually, while Yoel flipped through more timestamps, something caught his eye. He paused the video, made sure the volume was turned all the way up, and then resumed.
 
 At this time, the other me chatted on the phone. He had whoever was on the other line on speaker.
 
@@ -148,17 +148,17 @@ Yoel had a big grin on his face. “Correct. That just means you allow me to rec
 
 “So, you’re using David and his fright as a guineapig for entertainment?” Cindy said.
 
-“Like Zak Bagans,” Yoel said with a wink towards Cindy. “In all seriousness, you’re acting as if David wasn’t already trying to get his story out there to begin with. Besides, people are a lot more open-minded than you think, trust me. Maybe someone could help. Who knows. In any case, I’ll be doing research while you’re living your ‘blissful’ life. Meanwhile, you can type me a detailed account of everything that’s happened to you thus far. You don’t have to be a writer or anything. I’ll do that part. I’ll revise & pretty it up as a coherent story. Whaddya’ say?” 
+“Like Zak Bagans,” Yoel said with a wink towards Cindy. “In all seriousness, you’re acting as if David wasn’t already trying to get his story out there to begin with. Besides, people are a lot more open-minded than you think, trust me. Maybe someone could help. Who knows. In any case, I’ll be doing research while you’re living your ‘blissful’ life. Meanwhile, you can type me a detailed account of everything that’s happened to you thus far. You don’t have to be a writer or anything. I’ll do that part. I’ll revise & pretty it up as a coherent story. Whaddya’ say?”
 
 I’ll admit, he had a manner that made me want to believe in him just a little bit. I took him on his offer. He soon left after I got his contact info and said I’d hear from him in the coming days. We decided it best to wait later into the night for me to return home, for obvious reasons. My sister made us dinner, after which I collected my few belongings. Gave Cindy a hug, told her I loved her, and said everything was going to be okay.
 
-The drive home was filled with contemplation. It felt like I was doing everything wrong. As if every action I took up until this point was completely irrational. Every rational piece of wiring in my head, whatever function is responsible for making things make sense, screamed at me to call the police. Report a breaking & entering. Let law enforcement go through with it. 
+The drive home was filled with contemplation. It felt like I was doing everything wrong. As if every action I took up until this point was completely irrational. Every rational piece of wiring in my head, whatever function is responsible for making things make sense, screamed at me to call the police. Report a breaking & entering. Let law enforcement go through with it.
 
 However, the more I focused on the footage I was able to capture, it gave me some kind of willpower to ignore those thoughts. It was eerie. Its feels like the equivalent of going against the body’s callings to breathe when you’ve been holding your breath for too long, or to blink when your eyes are burning.
 
 When I rode into my driveway, my lights illuminated the front lawn. My home had such a thick layer of darkness over it now, I couldn’t look at it the same. It took me a solid thirty minutes to muster up the courage to step into the black stretch of midnight over my porch.
 
-Yoel said it was always watching. So where was it then? Given what the guy had said, I guess it wouldn't be possible to see it in person. 
+Yoel said it was always watching. So where was it then? Given what the guy had said, I guess it wouldn't be possible to see it in person.
 
 Every step towards the front door, a burning sensation came over me to look around. To see if I could spot anything. Yoel told me to act as natural as possible, but that’s a hard task. I cringed at every leaf that crunched under my boot, like I were announcing myself to the violator of my home as I walked to the front door.
 
@@ -173,3 +173,5 @@ I flicked on the chandelier anyway. Light engulfed my living room, and I let out
 This is where I’ll end this update. Through the first week of January, I've been living my life as normal. I've also been holding up my end of the bargain and typing up my accounts, including the one you’re currently reading, then giving it to Yoel so he can do whatever he needs to with it in order to share it with you all. Its currently the 6th as I'm writing this.
 
 If you’ve made it this far, thank you. I'm not sure when Yoel will publish this, but he told me he'd like to debut the first of these accounts by the 11th. Hopefully, he kept to that promise. Assuming I'm not dead, the next update for you all should be pretty damn soon.
+
+[part 3](https://www.reddit.com/r/nosleep/comments/10b68of/i_have_a_doppelganger_that_wants_to_pose_as_me/)
