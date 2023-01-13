@@ -89,3 +89,11 @@ Pokemon Red was very important to me. I grew up playing it, I learned to read pl
 &#x200B;
 
 I don't even want the whole bag really, only twelve of the marbles really matter to me. The rest are empty.
+&#x200B;
+
+\------
+
+&#x200B;
+&#x200B;
+
+Yeah that's not weird at all. I looked the guy up and he's been in prison for the last ten years for arson. Welkins County had a whole series of suspicious house fires back then. I was only twelve at the time but even I remember it. There were definitely fatalities, but this guy only has arson charges? So maybe it's unrelated. Still, I don't like the implications of the last bit of the letter. The worse thing is his sentence ends later this year, and he thinks his buddy still lives here? I'm seriously considering breaking my lease.
