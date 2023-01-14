@@ -1,6 +1,6 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- \[9\]
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- \[9\] - [\[10\]](https://www.reddit.com/r/nosleep/comments/10bdhm2/the_yearwalker_part_10/)
 
-I have no idea how long I ran. Could’ve been minutes, could’ve been hours. When my legs finally gave out, I collapsed in the underbrush. I lay there panting like a fish out of water, trying to force myself back on my feet. 
+I have no idea how long I ran. Could’ve been minutes, could’ve been hours. When my legs finally gave out, I collapsed in the underbrush. I lay there panting like a fish out of water, trying to force myself back on my feet.
 
 I fell in and out of consciousness, shivering through the coldest hours of the night. I had no shelter, and nothing left in me to keep me going. I was exhausted and barely functioning. I managed to crawl a bit further, only to roll down the side of a hill.
 
@@ -60,7 +60,7 @@ I was about to fill out some forms for my release, but Hank just waved it off.
 
 I nodded. At that point I just wanted to get out of there.
 
-Hank followed me outside, and we got a moment to ourselves. He didn’t seem particularly forceful, and I had plenty of opportunity to just walk away. Still, I felt a bit indebted to him. He’d made sure I was treated well. Didn’t seem all that bad. 
+Hank followed me outside, and we got a moment to ourselves. He didn’t seem particularly forceful, and I had plenty of opportunity to just walk away. Still, I felt a bit indebted to him. He’d made sure I was treated well. Didn’t seem all that bad.
 
 “You got a place to stay?” Hank asked.
 
@@ -164,7 +164,7 @@ But I had no intention of doing so. Why would I?
 
 As July crossed into August, I didn’t mind staying there. The questioning was down from once a day to once a week, but they were still going to keep me around. These were people who were in-the-know. They knew of the entities I described. They didn’t bat an eye about headless bodies or alternate dimensions. If anything, it seemed to excite them.
 
-I could see myself sticking around. At least until the end of the year. 
+I could see myself sticking around. At least until the end of the year.
 
 &#x200B;
 
@@ -230,7 +230,7 @@ I had to shield myself from the sprinklers. Whatever this was came from the wate
 
 &#x200B;
 
-Luckily, there were these pipes along the wall. I had thought about them a lot, and I knew my room was on the left side; following a cold pipe with a round mark on it. 
+Luckily, there were these pipes along the wall. I had thought about them a lot, and I knew my room was on the left side; following a cold pipe with a round mark on it.
 
 I tried to listen more than to look. I felt the cold water run over me, and I could hear shuffling footsteps down the connecting hallways. Every now and then I could hear a gargle over the pouring water, and I’d stop dead in my tracks.
 
