@@ -8,7 +8,7 @@ And as if something doesn't want people to leave the city, that is, when you ent
 
 The house he lives in is very old and the paint is peeling and the wall of the house is covered in mold, and it is very scary to go there. I forgot to tell you a detail, the city is always cloudy and rainy, a very depressing, it's rare the times where I feel the heat of the sun.
 
-City dwellers also report a shadow on top of buildings at night as if they were watching the city. One day I decided to ask that old man why he was crying because I was tired out of seeing that old man crying every day, so when I was returning from school I asked :''hey are you ok?'' and he replied:''i'm not ok it's all my fault.''I said I wanted to come in and talk to him but he told me to go away but I insisted so he opened the gate and let me in.
+City dwellers also report a shadow on top of buildings at night as if they were watching the city. One day I decided to ask that old man why he was crying because I was tired of seeing that old man crying every day, so when I was returning from school I asked :''hey are you ok?'' and he replied:''i'm not ok it's all my fault.''I said I wanted to come in and talk to him but he told me to go away but I insisted so he opened the gate and let me in.
 
 he told me to come in the house i went in and the house was run down with a musty smell it felt like the ceiling was going to fall in at any moment i sat on his couch and ripped he sat on the other couch there i started talking to him.
 

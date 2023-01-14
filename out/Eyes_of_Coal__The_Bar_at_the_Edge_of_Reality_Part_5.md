@@ -10,17 +10,17 @@ But while the bar may be safe, its reach can only extend so far. Five murders to
 
 It's through all this that I know they’re *trying,* but that they’ve come up with nothing. Even the wisest of them don’t have a clue. There are no signs of any murderer in Neverland; it’s like he appears, stabs someone, and then vanishes from existence once more, until the next death.
 
-Needless to say, I have not been allowed to leave. I’ve insisted that I could help hunt him down—I’m probably the most experienced dimensional traveler out there, so I could cover a lot of ground very fast—but each time, I’ve barely spoken two words before the look Henri gives me shuts me up. He’s scared. He’s never seen a Neverland serial killer before, let alone one impossible to track, and it worries him. He hides it when he comforts our patrons, but his smile never reaches his eyes these days. 
+Needless to say, I have not been allowed to leave. I’ve insisted that I could help hunt him down—I’m probably the most experienced dimensional traveler out there, so I could cover a lot of ground very fast—but each time, I’ve barely spoken two words before the look Henri gives me shuts me up. He’s scared. He’s never seen a Neverland serial killer before, let alone one impossible to track, and it worries him. He hides it when he comforts our patrons, but his smile never reaches his eyes these days.
 
-Anyway, not much more I can say about that. I don’t *know* much more. 
+Anyway, not much more I can say about that. I don’t *know* much more.
 
 But since I’m still cooped up and getting bored again (these long stretches of me being grounded are really getting to me), I thought I’d tell you about my holidays instead.
 
 Now, I’m sure you know some of the most famous entities that emerge along with the Christmas trees, menorahs, and shiny red bows in December. Santa Claus, for instance. Maybe even the Yule Cat or Belsnickel or Perchta, depending on your culture. There are plenty of famous holiday visitors in the world—some nice, some naughty, some in-between.
 
-Most don’t exist, as far as I know. They’re only legends made up by humans, passed down by generations to scare their children into good behavior. 
+Most don’t exist, as far as I know. They’re only legends made up by humans, passed down by generations to scare their children into good behavior.
 
-But legends have to come from *somewhere.* 
+But legends have to come from *somewhere.*
 
 I’ve said before that most humans would combust within a few minutes of being in Neverland, and vice versa for supernatural beings in the human world. That’s absolutely true, except for yours truly, of course. There are a few…exceptions, though.
 
@@ -38,13 +38,13 @@ She hibernates most of the year in glaciers—ice witches, as the name implies, 
 
 Pun intended. My bad. Couldn’t help it.
 
-As for Eira and Pax, I first remember them visiting the bar when I was about ten. They were probably here before, but I was lucky enough not to have a run-in with them. Now, every year since, I dread the possibility of seeing them walk through the door. 
+As for Eira and Pax, I first remember them visiting the bar when I was about ten. They were probably here before, but I was lucky enough not to have a run-in with them. Now, every year since, I dread the possibility of seeing them walk through the door.
 
 And more often than not, they do.
 
 The first year was the worst. I’d never seen anyone like them before, but I’m used to that. I’ve learned that it’s never a good idea to stare; neither humans nor nor-humans like to be gawked at. And staring at the *wrong* being can get you killed if it’s taken as a sign of disrespect. Early on, I figured out that it was better to act natural while serving and ask questions to Henri later.
 
-Eira and Pax weren’t even unnatural, just…odd. And I don’t say that lightly. Twins, probably, or at least brother and sister, due to their similarities: sharp cheekbones, eyes dark and lifeless as lumps of coal, short curly hair. Both wore massive fur coats, black like their eyes, made of some kind of coarse fur that did *not* look particularly cozy. And wrapped around the arms of those coats, trailing behind them with a soundtrack of metallic rattling, were chains. 
+Eira and Pax weren’t even unnatural, just…odd. And I don’t say that lightly. Twins, probably, or at least brother and sister, due to their similarities: sharp cheekbones, eyes dark and lifeless as lumps of coal, short curly hair. Both wore massive fur coats, black like their eyes, made of some kind of coarse fur that did *not* look particularly cozy. And wrapped around the arms of those coats, trailing behind them with a soundtrack of metallic rattling, were chains.
 
 I tried not to look at the thick links of chain as I brought out their menus and said their server, Dessa, would be with them in a moment. At the time, Dessa was a young selkie who worked at the bar. Selkies live a long time, but physically she looked about sixteen, and at ten years old, I had a huge crush on her. Kind of like how I imagine some kids have massive crushes on their babysitters.
 
@@ -72,17 +72,17 @@ She dutifully dropped to her knees and began picking up the coins, though not wi
 
 Despite her temper, Dessa mercifully didn’t chase them. She brought her handful of coins behind the bar, and I wordlessly opened the cash register for her to deposit them inside. “Assholes,” she muttered. I nodded but didn’t say anything. I didn’t want to make any assumptions; for all I knew, they *didn’t* know our payment system. I’d never seen them here before. And like I said, Henri always taught me to air on the side of caution and respect when dealing with inhuman beings at the bar. I would’ve started off with less swearing and yelling.
 
-But, like many selkies, Dessa was a hothead. It was her nature. So I didn’t want to disrespect her either by disagreeing. 
+But, like many selkies, Dessa was a hothead. It was her nature. So I didn’t want to disrespect her either by disagreeing.
 
 We didn’t mention it for the last few hours of work, and Dessa quietly fumed, mixing drinks a *little* more vigorously than necessary. When it was finally closing time, Dessa offered to clean up for the night—something she almost never did, but tonight insisted would help her calm down—and I gratefully accepted. After all, it had been a busy day, and I still had homeschooling with Henri in the morning.
 
-Nothing is ever that simple, though. I drifted into an uneasy sleep, dreaming of coarse-haired coats and endless chains, of lumps of coal in dead faces. 
+Nothing is ever that simple, though. I drifted into an uneasy sleep, dreaming of coarse-haired coats and endless chains, of lumps of coal in dead faces.
 
-And less than two hours later, I jerked awake. The clock by my bed displayed 4:13 AM—u­nlucky numbers in several cultures. I wasn’t sure why I’d woken so suddenly, but I was *freezing.* Like, I could see my breath. 
+And less than two hours later, I jerked awake. The clock by my bed displayed 4:13 AM—u­nlucky numbers in several cultures. I wasn’t sure why I’d woken so suddenly, but I was *freezing.* Like, I could see my breath.
 
 Then I heard it: the noise that must have disrupted my sleep. Chains rattling, accompanied by deep, guttural growls and panicked seal barking. Immediately, my blood turned to ice. This couldn’t be good.
 
-To this day, I don’t know why I didn’t go get Henri, who was sleeping in the bedroom beside mine. Maybe because I heard the seal barks and thought I could be Dessa’s savior, and if I was, surely she’d finally see me as a suitor and not a little brother. 
+To this day, I don’t know why I didn’t go get Henri, who was sleeping in the bedroom beside mine. Maybe because I heard the seal barks and thought I could be Dessa’s savior, and if I was, surely she’d finally see me as a suitor and not a little brother.
 
 Whatever it was, I crept out of bed and down the hallway. I tiptoed halfway down the stairs and crouched there, leaning over to see what was happening in the bar without being noticed—I hoped.
 
@@ -90,15 +90,15 @@ I nearly vomited; I had to cover my mouth and nose to prevent audibly gagging. I
 
 One was holding Dessa still, her arms pinned behind her back. Clearly, she had already been being tortured; tears streamed down her bloody face. I watched as the other goat creature whipped her across the chest with what appeared to be a bundle of branches; her shirt tore, and blood blossomed from the wound.
 
-Another whip, this time to her face. Dessa barked as blood sprayed onto the floor. My heart seized. Could I creep up the stairs quietly enough to get Henri? 
+Another whip, this time to her face. Dessa barked as blood sprayed onto the floor. My heart seized. Could I creep up the stairs quietly enough to get Henri?
 
-I tried to turn—and the stair creaked. I froze. 
+I tried to turn—and the stair creaked. I froze.
 
-Time seemed to stop as one of the goat-creatures looked back and saw me. It grinned wickedly, revealing pointed fangs, and said something in a language I’d never heard before. I don’t think Dessa even knew I was there; her eyes were swollen shut from the branches. 
+Time seemed to stop as one of the goat-creatures looked back and saw me. It grinned wickedly, revealing pointed fangs, and said something in a language I’d never heard before. I don’t think Dessa even knew I was there; her eyes were swollen shut from the branches.
 
 Apparently, the words were some kind of cue, because before I could do anything, the other creature pulled out a long, silver rod designed to look like a tree branch from *somewhere,* and in a motion so fast I barely registered it, ran Dessa straight through.
 
-I squeaked in horror. Her head lolled, and I watched as her slumping body turned into that of a seal’s. The creatures dropped her to the floor, and the one that had been holding her leaned over and placed dark lumps over her eyes—*coal.* 
+I squeaked in horror. Her head lolled, and I watched as her slumping body turned into that of a seal’s. The creatures dropped her to the floor, and the one that had been holding her leaned over and placed dark lumps over her eyes—*coal.*
 
 I was still frozen. They were coming for me next. They had to be. Would running to Henri save me or only anger them more? I could only pray that if I did nothing, they might spare me.
 
@@ -108,7 +108,7 @@ Seconds later, I felt a hand on my arm. “Come and sit with us, child.” A fem
 
 I nodded and let her lead me to the same corner booth they’d occupied earlier that night. Her brother was already sitting there, waiting for us, and Dessa’s body had vanished. I felt sick thinking of what had happened to her and what they might have done with her remains.
 
-I slid into the booth, and the sister followed, blocking me in. They both stared at me with their soulless, coal-like eyes, as if expecting me to speak. 
+I slid into the booth, and the sister followed, blocking me in. They both stared at me with their soulless, coal-like eyes, as if expecting me to speak.
 
 I knew I should be respectful, but I was still freezing—my breath continued to come in visible puffs—and terrified. So I couldn’t help it when I glanced at the edge of the silver branch sticking from the brother’s coat and whispered, “Are you going to kill me too?” My voice shook, though whether from the cold or the fear, I don’t know.
 
@@ -132,7 +132,7 @@ She turned my head to face her, and a chill ran down my spine as I stared into h
 
 “That was business between us and her. It would be very naughty of you to share what happened to your friend,” purred Pax. “And you know what we’ll have to do to you if you’re naughty.” His hand stroked the edge of the silver branch, jutting from beneath his coat.
 
-I swallowed hard. 
+I swallowed hard.
 
 “That includes your uncle, of course,” added Eira. “His bar is just as clean as before. As far as he knows, this never happened.”
 
@@ -142,7 +142,7 @@ Eira stroked my hair. “That’s a good boy.”
 
 They both got up from the booth, chains rattling. I stayed frozen as they strolled towards the door. Just before they reached it, Pax turned back to me. “Remember your promise. We can always come back for you. But we’d hate for that to happen.”
 
-Eira smiled sweetly. “Of course we would. Keep being a good boy, Ian.” 
+Eira smiled sweetly. “Of course we would. Keep being a good boy, Ian.”
 
 And then they left, the cold exiting with them; immediately, the room warmed up a solid twenty degrees, and my breath vanished. I stared at the spot on the floor where Dessa had slumped. There was no sign of her. Even the blood, sprayed across the floorboards, was gone.
 
@@ -156,10 +156,10 @@ I still have no idea how much he figured out. If I had to guess, probably most o
 
 I think he knows he can’t ban them for breaking the rules of Griffin’s Edge, because then they’ll think I told him. And even now, eight years later, I have no doubt they’d fulfill their promise. I see the way they watch me every time they visit. I feel their creepy coal eyes on me.
 
-So instead, Henri simply makes sure no one else has the opportunity to disrespect them. He protects the bar staff and patrons in the safest way possible. 
+So instead, Henri simply makes sure no one else has the opportunity to disrespect them. He protects the bar staff and patrons in the safest way possible.
 
-I still feel sick every time the temperature drops twenty degrees as they walk in, chains clinking. They haven’t been back *every* year since, but they come most years. And I dread it every December. 
+I still feel sick every time the temperature drops twenty degrees as they walk in, chains clinking. They haven’t been back *every* year since, but they come most years. And I dread it every December.
 
 They visited us this year, a few days before Christmas. I hated every second. Henri hurried over and served them kindly, but it was me they watched for hours. My skin crawled as I mixed drinks and tried to avoid looking in the direction of their corner at all. I barely breathed for three hours.
 
-Because all I could think was, with the murders going around and my increased jumping and all the weirdness of the past few months, what if they decide I’ve been naughty?
+Because all I could think was, with the murders going around and my [increased jumping](https://www.reddit.com/r/nosleep/comments/10bszza/frozen_pizza_the_bar_at_the_edge_of_reality_part_6/?utm_source=share&utm_medium=web2x&context=3) and all the weirdness of the past few months, what if they decide I’ve been naughty?
