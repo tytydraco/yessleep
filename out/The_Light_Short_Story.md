@@ -1,4 +1,4 @@
-\~2800 Words
+Sorry for posting this so late, but it took me a while to find somewhere I could hide. A place that no one else could get hurt.
 
 I first noticed the light one day when I was in school.
 
@@ -47,8 +47,6 @@ I looked around my room, finding a piece of paper and a roll of tape. I folded t
 I woke up, rubbing my eyes. Had it already been morning? I grabbed my phone. 1:43 AM.
 
 That's when I realized that the light wasn't coming from the window. In fact, it was still completely dark outside. I looked up above my bed. The light was shining through the paper and illuminating my bed.
-
-…
 
 "Hey honey, have you been feeling okay? You've been looking tired the past couple of days." I looked up to see my mom looking over at me from the opposite side of the table.
 
@@ -125,8 +123,6 @@ Before I could finish, Doctor Paisley had pushed up from her seat and backed up 
 But she had already opened the door and ran out of the room, leaving me standing dumbfounded. What was going on?
 
 I turned back to the light on the wall. It seemed brighter now.
-
-…
 
 After a few weeks of this, I started to learn to live with the light. I started wearing a scarf all the time to cover up the back of my neck, and whenever I slept I always used a eye mask or covered my face with a pillow. It didn't completely block out the light, but it helped.
 
@@ -212,12 +208,4 @@ The woman and the people that were behind her were all gone. All that remained w
 
 I brought my hands up to my face, and I couldn't stop them from shaking. They were reddened and burnt, but I couldn't feel any pain.
 
-I ran. I ran without stopping all the way back to my house. I didn't know where else to go, but I had to go somewhere where no one else would be. I knew my mom would be at work right now, and at least I would be able to figure out what to do.
-
-When I shoved the front door open to my house, I was shocked to find my mother sitting at the dining table. There were a few other people sitting at the table that I recognized from her work.
-
-"Oh hey honey what are you doing home so early? I thought you were working on your project?"
-
-I couldn't respond, and I fell back to the floor. All the adults at the table stood up, and a few of them stepped forward to check on me. 
-
-Before they could reach me, the house filled with the bright, yellow light.
+I ran. I ran without stopping all the way back to my house. I didn't know where else to go, but I had to go somewhere where no one else would be.
