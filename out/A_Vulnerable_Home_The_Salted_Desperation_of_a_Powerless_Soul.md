@@ -23,3 +23,7 @@ For the first time since this nightmare began, I am filled with hope. I had foun
 The power I have wielded fills me with awe, the strength I have found within myself. I have fought off the green liquid and saved my precious possessions, but the feeling of dread and despair still lingers deep within me. The sharp blade of panic still slices through me, and I know that this is only the beginning.
 
 The mysterious liquid may still be there, multiplying and growing in size and strength. I can feel its hunger, like a living thing that is determined to consume all that stands in its way. I am filled with a sudden, overwhelming fear. I know that I must stay vigilant, that I must remain ever-watchful of the enemy that threatens to overtake me.
+
+&#x200B;
+
+[xxx](https://www.reddit.com/r/bigkoala/comments/10aq9ek/bigkoala_the_next_great_american_author/)
