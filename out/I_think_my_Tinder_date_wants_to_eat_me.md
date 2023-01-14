@@ -6,7 +6,7 @@ Things started well. Last night, I met a girl from Tinder for drinks at my local
 
 We went back to the flat that I share with Chris, and I threw the classic three-date rule out of the window. I slept with Alex.
 
-It was a glorious night. Nothing seemed out of the ordinary, but I suppose I might’ve been too intoxicated to pay close attention. After we finished fooling around, I think we quickly dozed off. I woke at 3am, or thereabouts, and I had mostly sobered up. The sound of rustling bedsheets must have stirred me from my sleep. I assumed that Alex was simply restless, so I turned to face her.
+It was a glorious night. Nothing seemed out of the ordinary, but I suppose I might’ve been too intoxicated to pay close attention. After we finished fooling around, I think we dozed off at an early hour. I woke at 10pm, or thereabouts, and I had mostly sobered up. The sound of rustling bedsheets must have stirred me from my sleep. I assumed that Alex was simply restless, so I turned to face her.
 
 My Tinder date had thrown the duvet off her body. She was lying, stiff as a plank, alongside me. Her arms clung to her sides, and her unblinking gaze was drilling into the ceiling above us. I felt a sort of instinctive fear that I’d never felt before. Something was wrong with this girl.
 
@@ -46,6 +46,6 @@ A lump ascended to the top of my throat and lodged itself there. I unwillingly l
 
 I screamed, tumbling off the sofa and crawling backwards across the floor. It was clear that Alex was no animal. She was an unimaginable horror.
 
-I barrelled out of the building and jumped into my car. That was an hour ago. I’m currently in McDonald’s. Public places seem safe. That being said, I quiver in terror at every person who so much as glances in my direction or, worse, giggles.
+I barrelled out of the building and jumped into my car. That was twenty minutes ago. I’m currently in McDonald’s. Public places seem safe. That being said, I quiver in terror at every person who so much as glances in my direction or, worse, giggles.
 
 *Fuck*. Chris.
