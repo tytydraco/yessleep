@@ -78,6 +78,11 @@ Of course, from a certain point of view, I never really did, and I never really 
 
 --------------
 
+[How much it hurt](https://redd.it/10bpzvo)
+
+
+-------------
+
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
