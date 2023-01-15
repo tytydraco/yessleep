@@ -1,4 +1,4 @@
-It started eight years ago when I was seven and my sister was ten. We were playing in the woods in our backyard. It wasn’t unusual for us to venture far; our parents really had no idea. They figured we were safe, and they were right for a while.  We always came back after a few hours. Until, one night, my sister and I went a little too far and couldn’t find our way home.
+It started twenty-one years ago when I was seven and my sister was ten. We were playing in the woods in our backyard. It wasn’t unusual for us to venture far; our parents really had no idea. They figured we were safe, and they were right for a while. Until, one night, my sister and I went a little too far and couldn’t find our way home.
 
 I remember it all so clearly.
 
@@ -86,7 +86,7 @@ It stilled for minutes, picking me apart, and I waited, paralyzed and helpless, 
 
 I stayed as quiet as I could, thinking any noise would set it off, and I’d end up dead on the ground.
 
-It leaned in. Every one of my muscles tensed as it sniffed. Its tongue, long and thin, slithered toward me, caressing my skin from my jawline to my temple, leaving what felt like a disgusting slime in its wake. When the appendage recoiled, the beast let out a hum and rose on two legs, the crepitus sawing my nerves. It raised its arm as high as my torso, fingers clenching and unclenching as its hand advanced.
+It leaned in. Every one of my muscles tensed as it sniffed. Its tongue, long and thin, slithered toward me, caressing my skin from my jawline to my temple, leaving what felt like a disgusting slime in its wake. When the appendage recoiled, the beast let out a hum and rose on two legs, the crepitus sawing my nerves. It raised its arm as high as my torso, fingers clenching and unclenching as its hand advanced. 
 
 A near-deafening *pop* and the creature collapsing happened simultaneously. Something wet splattered onto me.
 
@@ -250,7 +250,7 @@ Our dad found us nearly an hour later. I hadn’t moved, and neither had Alana. 
 
 They kept asking what had happened, especially seeing Alana’s torn clothes and bloodied, catatonic-like state and me frazzled, dotted with blood that wasn’t mine. I said nothing. I couldn’t really say anything. My mom was the one who decided to just let us sleep, that we would talk about it in the morning.
 
-That was eight years ago. Like the woman said, Alana remembered nothing the next day. I was urged, many times, to explain the events that occurred, but the woman’s words replayed in my mind, ultimately dissuading me.
+That was twenty-one years ago. Like the woman said, Alana remembered nothing the next day. I was urged, many times, to explain the events that occurred, but the woman’s words replayed in my mind, ultimately dissuading me.
 
 *Would you really want her to carry the burden of that knowledge?*
 
@@ -268,10 +268,10 @@ I wander through the fog, memories hazy, faces of family, friends, and neighbors
 
 I’m not sure what that means…The woman didn’t explain anything past the process and implication that I’m shedding time off my own life. I’m not sure how much life essence I’m giving to my sister or how much I even have left to give, but Alana wakes up every day, smiling, laughing, happy. I can’t imagine taking that away from her or my parents.
 
-She’s eighteen now and on her way to college. Had I not done what I did, if I didn’t do what I still do, she wouldn’t get to experience this.
+She’s thirty-one now and on her way to getting married to a nice gentleman who treats her like she’s the world. Had I not done what I did, if I didn’t do what I still do, she wouldn’t get to experience this.
 
 I know I’ll die sooner, whenever that may be, but seeing my sister fulfill her life makes me believe it’s worth it.
 
 I never saw that woman again nor another creature like the one on that fateful night.
 
-Up until now, nobody knew this except that woman and me, and being only fifteen, it has been a heavy weight on my shoulders.
+Up until now, nobody knew this except that woman and me, and being twenty-eight, holding onto this for so many, many years, it has been a heavy weight on my shoulders.
