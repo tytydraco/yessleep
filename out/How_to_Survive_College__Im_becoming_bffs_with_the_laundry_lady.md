@@ -1,4 +1,4 @@
-[There are rules.](https://www.reddit.com/r/nosleep/comments/zw5djj/how_to_survive_college_obviously_i_get_to_be_bait/)  Of course there are rules.  We want life to make sense.  We want bad things to happen only to people who deserve bad things.  If we can believe the world operates according to the laws of fairness, then we don’t have to be so scared of a chaotic world, cruelly indifferent to right and wrong, just and unjust.  
+[There are rules.](https://www.reddit.com/r/nosleep/comments/zw5djj/how_to_survive_college_obviously_i_get_to_be_bait/)  Of course there are rules.  We want life to make sense.  We want bad things to happen only to people who deserve bad things.  If we can believe the world operates according to the laws of fairness, then we don’t have to be so scared of a chaotic world, cruelly indifferent to right and wrong, just and unjust.
 
 So when something unnatural - these manifestations of our fears and our hopes - drags someone into the darkness, we find a reason that this happened.  Just as breaking a mirror brings bad luck, so can a messy house or poor hospitality bring destruction.
 
@@ -14,11 +14,11 @@ This university may not follow the *traditional* rules, but it is not exempt fro
 
 That is our plan.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 Of course, I don’t know all the rules yet, and the laundry lady is loath to share.  Despite our current alliance, we’re still technically on opposite sides here.  I’d get rid of her if I knew how and she’d get rid of me if she were permitted to.  She wasn’t willing to give me any more information than she absolutely had to.
 
-Besides, she told me, it wasn’t relevant to our goal.  We wanted the flickering man to go after me *without* his rule being violated.  That’d get someone’s attention.  
+Besides, she told me, it wasn’t relevant to our goal.  We wanted the flickering man to go after me *without* his rule being violated.  That’d get someone’s attention.
 
 “Go out in the rain,” she told me, “just long enough to get his attention.  Then seek shelter and wait.”
 
@@ -32,7 +32,7 @@ We were still meeting in the dorm laundry room.  She was always there when I ent
 
 She had mentioned briefly that I’d gotten her into some kind of trouble, but had stubbornly refused to elaborate.  This time was no different.  She ignored me.
 
-“Snatching the odd student here and there outside the rules isn’t usually enough to anger them.  It’s unusual though, because we…” 
+“Snatching the odd student here and there outside the rules isn’t usually enough to anger them.  It’s unusual though, because we…”
 
 She hesitated, searching for words.  Even though she was certainly the most humanlike of the creatures I’d encountered so far, she was still inhuman and our experiences could not be easily translated.
 
@@ -66,7 +66,7 @@ I stared at my feet.  I’d promised I wouldn’t get anyone involved in this.  
 
 Then she stormed off into the hallway and when I poked my head out after her, she was nowhere in sight.
 
-Grayson was the obvious choice.  He presumably has some kind of protection as the son of the university’s president.  As a bonus, if I told him what was happening and asked him to help, he might let slip some information that’d give me a clue as to how much he knows or doesn’t know.  I’m pretty sure if I’d asked all of you about this, you’d have come to the same conclusion, right?  
+Grayson was the obvious choice.  He presumably has some kind of protection as the son of the university’s president.  As a bonus, if I told him what was happening and asked him to help, he might let slip some information that’d give me a clue as to how much he knows or doesn’t know.  I’m pretty sure if I’d asked all of you about this, you’d have come to the same conclusion, right?
 
 I couldn’t do it.  I had all my justifications lined up and ready to go, but I couldn’t bring myself to message him.  I kept thinking - what if the flickering man remembers Grayson?  What if he goes after him as well as me?  And I’m sure that sounds like it could be a good thing, pitting the inhuman we all hate against the son of the university’s president… but I’m just not that ruthless.  The laundry lady would do it.  She’d do it in a heartbeat and if she knew about my friendship, I’m sure she’d have been advocating for that all along.
 
@@ -80,7 +80,7 @@ It took a couple of tries to draw him out.  It rains fairly often around here, b
 
 I was outside of the building that houses the thing in the hallways because it has a broad overhang in one corner.  I did exactly as the laundry lady told me.  Step out in the rain, just enough to get a little damp, then step back inside the overhang.  I stood in the middle of it so I had plenty of distance between me and the edges.  I’d see him coming and still have an escape route.
 
-And he did exactly as I expected.  Stepped out of the rain right at the corner of the overhang, so that he had equal distance between both of my possible escapes.  I’d been watching for him, but his approach was subtle enough that I hadn’t noticed, and I jumped at his abrupt appearance.  My heart hammered.  I let out an unsteady breath, trying to calm down.  It was fine.  I had a plan.  I just had to stick to the plan. 
+And he did exactly as I expected.  Stepped out of the rain right at the corner of the overhang, so that he had equal distance between both of my possible escapes.  I’d been watching for him, but his approach was subtle enough that I hadn’t noticed, and I jumped at his abrupt appearance.  My heart hammered.  I let out an unsteady breath, trying to calm down.  It was fine.  I had a plan.  I just had to stick to the plan.
 
 “You think I didn’t notice your little strategy?” he smirked, hooking his thumbs into his jean pockets.  “Always making sure there’s a crowd?  That won’t work this time.  Because just before you got here, I pulled the fire alarm and since it was so close to the end of class the professors just let the students all leave a few minutes early.”
 
@@ -132,7 +132,7 @@ My scheming with the laundry lady isn’t the only measure I’m taking to make 
 
 Then I realized I’d ran straight into water that was now up to my ankles.
 
-A flat sheet of water stretched before me, covering the sidewalk and spilling out into the grass.  It didn’t look like a river, but that was how it started.  Maybe it wasn’t this time, maybe it was just a spot of ground lower than the surrounding terrain and the water was collecting here.  But maybe it was.  I had only seconds to decide.  
+A flat sheet of water stretched before me, covering the sidewalk and spilling out into the grass.  It didn’t look like a river, but that was how it started.  Maybe it wasn’t this time, maybe it was just a spot of ground lower than the surrounding terrain and the water was collecting here.  But maybe it was.  I had only seconds to decide.
 
 I didn’t know if the water I was in was the river, but I *did* know the flickering man was coming for me.  One of those deaths was far more certain than the other.  I kept running, straight through the water, not daring to waste precious seconds by detouring around it.
 
@@ -170,7 +170,7 @@ Anyway, crying in the graveyard.  I was on the verge of calling Grayson and aski
 
 There’s some fringe benefits to being timid and weak.  Once the waterworks start, people want to help.  How could something so pathetic be doing anything wrong, after all?
 
-I was on my feet and about to take a step in his direction when someone hissed my name.  I whirled around.  
+I was on my feet and about to take a step in his direction when someone hissed my name.  I whirled around.
 
 “What are you doing!?”
 
@@ -221,6 +221,8 @@ She stopped walking and turned to face me.  She grabbed both of my hands and squ
 “*Before,*” she hissed.  “They will rip you from his grasp and you’ll see their vengeance with your own eyes.  Won’t that make all of this worth it?”
 
 No.  It wouldn’t.  That wasn’t something I wanted to see happen.  I wanted him gone, I wanted to be safe, but I didn’t want to see whatever retribution the administration could dole out in person.  I didn’t want to even think about it.  But I told the laundry lady that all sounded great and she released my hands and walked away, humming happily, as the rain petered out and finally stopped around us. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/10c9o7e/how_to_survive_college_the_most_awkward_family/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
