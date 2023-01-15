@@ -1,121 +1,83 @@
-[The first year I posted.](https://www.reddit.com/r/nosleep/comments/ed25z8/i_was_born_twelve_minutes_after_midnight/)
+I think something went wrong when I was born.  My parents tell me it was fine, other than being so close to Christmas.  They didn’t want a child born near Christmas because they were afraid it would be overshadowed by the holiday.  They let me do whatever I wanted for my birthday and if that meant that I wanted a slumber party with twenty of my friends, so be it.
 
-[The second year I posted.](https://www.reddit.com/r/nosleep/comments/kgotw0/i_was_born_twelve_minutes_after_midnight/)
+I learned from an early age that the night before my birthday was special, however.  It was a time for me and me alone.  I couldn’t let anyone else know about the twelve minutes after midnight, those twelve minutes leading up to the moment of my birth.  Twelve minutes in which I didn’t exist - the day of my birth, but not yet the *moment*, a strange void in which I was and was not.
 
-[The third year I posted.](https://www.reddit.com/r/nosleep/comments/rkfi97/i_was_born_twelve_minutes_after_midnight/)
+I can’t explain where I got that idea.  It’s something that’s always been in my head, from the moment I could form memories.  I think I tried talking about it with my classmates once, along with everything else that happens in those twelve minutes, and I quickly learned that I was the strange one and I shouldn’t tell this story, because I would be laughed at.
 
-I thought I was going to make progress this year.  That I was approaching this from a different angle and that maybe I’d figure out what was happening and find some real solutions.  There are limits, after all, to how fast I can run.  I can train and train all year (and I hate every minute of it) but at some point, I’m going to hit a wall.
+It started small, but profoundly terrifying for a small child.  My earliest memory is of a dark, claustrophobic space and the weight of the blankets I was hiding under.  The heat of my own body and the stale air that I desperately tried to not breath, too afraid they would hear me, even though I knew it was too late, for I held the edge of the blanket down with both hands even as they gently pried at it, trying to lift it up and reveal me cowering underneath.
 
-And then the death that chases me will catch up.
+It felt like it went on all night.  Now that I am older, I know it only lasted twelve minutes.
 
-Okay, I should back up a bit and recap I suppose.  I was born twelve minutes after midnight.  At least, that’s what my birth certificate says.  The year before last my parents told me the truth.  I was whisked away after my birth and then returned to them later.  Everything was fine, they were told.  Everything was just fine.
+As I got older, hiding under the blanket was not enough.  I was in third grade the first time they pulled me out from under there.  They lifted it up just enough to reach a hand through and even in the darkness I could see that it was human, but too angular; the swell of joints and the curve of skin was entirely absent.  It was like a cutout of a hand.  There was no color, either, and no depth.  It did not reflect the light, scant as it was.
 
-Then the doctor slipped them a note with a death certificate that he’d started to fill out.  Midnight.  My parents weren’t exactly watching the clock when I was born, so they didn’t know when I’d been born.  Midnight?  Twelve minutes after?  Did it really matter?  I was there, I was healthy, I was alive.
+It grabbed my wrist and it was so cold that I cried out, but weakly, because terror was wrapped around my throat and I was choking on it.  I could barely move.  It pulled and drew me out and I stumbled as I fell onto the floor and I saw all around me the darkness had covered the walls of my bedroom and was stretched across the floor.  I was alone on a narrow strip of carpet with my bed behind me and it was like everything ended at that edge, vanishing into an empty gulf.  The hands came from that darkness, dozens of them, stretching out along the floor to grab at my wrists and ankles.
 
-Except… it does matter.  It matters very much.
+I dug in my heels, grabbed hold of my bed frame, and the hands could move me no further.  They tried, but they were weak, and I remained where I was until my clock’s minute hands reached twelve and I was alone in my bedroom.
 
-At midnight, the void opens up.  It comes for me.  It stretches out greedy hands and tries to drag me inside.  Then, twelve minutes later, it vanishes.
+I screamed for my parents.  Sobbing, I told them what happened and my father investigated the house and told me all the windows and doors were locked, nothing had gotten in, and it was probably a nightmare.
 
-As a child, I fought it off, alone in my bedroom,  clawing to drag myself out of its grip so that I might live another year.  Now, as an adult, I outrun it.  But even then… I wonder how long that will last.  Because as I’ve gotten older, it’s gotten stronger.  Strong enough that if those hands manage to grasp hold of me, I don’t think I could tear myself from their grip.  I don’t know how many years I have left until it’s too fast for me to keep ahead of it.
+And like with my classmates, I learned to not talk about it.  I guess as a kid I interpreted that their evasiveness about the circumstances of my birth meant they knew about those twelve minutes and wouldn’t do anything about it.
 
-I think when I find that answer out, it’ll be too late.
+In eighth grade I learned to fight back.  Holding my ground wasn’t enough.  I was getting bigger, but they were getting stronger.  By then I’d learned that hiding wasn’t enough and so I’d sit on the edge of my bed, watching the clock tick towards midnight.
 
-So I’m searching for an answer as to why this is happening.
+“Happy birthday,” I whispered to myself as December 20th began and the darkness started to crawl in across the walls, starting at the corner of my vision.
 
-I don’t have many leads.  My parents are blissfully unaware that anything was abnormal about my birth, other than what they’ve already told me.  I’m not sure any help they could provide would be worth the pain of telling them, so I’ve let them retain their ignorance.
+The twelve minutes in which I didn’t exist and the void came to claim me.
 
-Besides, if the void *does* catch me someday, it’ll be like I never existed.  That’s what happened to my friend, when I took her running with me.  The void ate her up; body, soul, and history.  It was like she’d never existed at all.  My parents won’t have to grieve me once I’m gone, so why make them suffer while I’m still alive?
+They surrounded me and I stood to confront them.  I felt cold fingers close on my legs, on my arms, and I braced myself as they began to tug, to drag me towards the void.  And my front foot gave a step.  Another.  I stumbled and panic welled up in my chest.  I was losing.  They were dragging me forwards, inch by inch, and I wondered what would happen when I reached the edge of the floor - would I fall?  Would I die?  Would I cease to exist?  My breath felt like fire in my lungs and my chest heaved in tiny, hysterical gasps.
 
-I still regret what happened to my friend. What if my parents want to help?  What if they insist on being here for me?  What if the void takes one of them?
+And in my panic I slapped one of the hands, then I closed my fingers into a fist and I hit it at the wrist and it shattered.
 
-Losing one person was bad enough.  I can’t do that again.  I can’t.  It’s just me, up against the abyss.
+Just like that.  Shattered, like glass, and fell into splinters on the floor.
 
-I do have one ally though.  Or an informant, rather?  I’m not sure.  Last year, I went to the hospital where I was born.  I met a nurse there who admitted there was something *strange* about the area of the hospital where I was delivered, before it was remodeled and turned into patient rooms.  We’ve been keeping in touch this year, mostly via text.  I told her everything I knew about what’s happening to me and I think that was my mistake.
+So I fought them off for ten long minutes and when they vanished I went to my bed and sat there, shaking, for hours.
 
-Much like my friend, I think it was too much.  I need to think of a better lie, I suppose.  She started answering her texts less frequently and around the fall, I started getting no responses at all.  I was hoping she could find the doctor that delivered me.  He has a common enough name that I haven’t been able to find him through my own limited resources, but surely hospital records have a long enough memory that she could locate something that’d give me a clue as to his whereabouts.  Failing that, I was hoping she could maybe, I dunno, put me in touch with anyone else that nearly died in that part of the hospital.
+I didn’t take it very well, realizing I had to fight for my life now.  I got shingles soon after - the reactivation of chickenpox that the doctor said was due to stress - and my first ever D on my report card.  My parents assumed it was because we’d just moved to another state and grounded me until my grades improved.  I resented them for that and decided I wouldn’t tell them anything ever again.
 
-She’d said that they only put stable patients in those rooms now, because everyone else tends to just… die.  But what about patients with near misses?  Surely I wasn’t the only one that came back, right?  At least, that’s what I was selfishly hoping for.  I just want someone else who is going through this so I’m not so alone.  Someone I can talk to about what works and what doesn’t, someone who might have some answers on how I can keep living for years to come.
+In my sophomore year of highschool those splinters cut my skin when I shattered the hands.  The next year I wrapped my hands with medical tape in the minutes leading up to midnight.
 
-I’m tired of dreading my birthday.  I’m tired of fighting and running for my life.
+In my freshman year of college I bought a baseball bat and smuggled it into my old bedroom.  Classes were out and part of me was relieved because my roommate wouldn’t be involved, but part of me was also sad because I wanted to know if anyone else could see the darkness too.  I still don’t know.  I’ve never married and I’ve never had anyone around at midnight on my birthday.  I keep people at a distance.  I think I’m cursed.
 
-Unfortunately, I think asking for patient information was a bit too far for the nurse.  She stopped replying to me entirely and I realized belatedly that I’d probably crossed a line asking for that information.  It made me angry at first.  This was important.  My life was literally on the line here.  Hadn’t she seen me fall out of literal mid-air where I hadn’t been before, when I was clawing my way out of the void the previous year?  Wasn’t that enough to make her realize how damn serious this all was?
+You see, my parents kept telling me that my birth was normal and I finally stopped asking.  Don’t get me wrong - despite what I said earlier, I have a healthy relationship with my parents.  I grew out of the teenage angst and I haven’t told them what happens every night on my birthday because I don’t think they can help me and I think it would destroy them to know I’ve spent all these years fighting for my life all on my own.  But they have their secret as well.
 
-I was even thinking of going so far as to show up at the hospital and demand to know why she wasn’t helping me.  I’d figured out what plane tickets to buy and was ready to order them (admittedly it was very late at night and I’d had a drink or two) when I realized that I was bordering on being a stalker.  (is that the right word here? You know what, don’t tell me if it is, and don’t tell me what I was being if it isn’t, I don’t want to know)
+My birth was not normal.  Something went wrong.
 
-“But it’s my life at stake!”  That’s the justification I wanted to use.
+I’d long suspected this and a couple years ago, after a particularly vicious fight with the intruders (they pulled my feet out from under me and I was at the very edge of the floor, I could feel the cold of the void on my back, and then it was twelve minutes and I was safe) I decided that I was going to figure out exactly what happened.  I’d start with the only documentation easily available to me - my birth certificate.
 
-Y-es but I’m trying to balance twelve minutes of running for my life with… the rest of it.  What’s the point of winning the race if I destroy everything else I’ve worked for by doing something immoral or illegal?  Because giving out private patient information IS illegal and it IS wrong to demand someone compromise their morality.  I desperately want to live and keep living, but I can’t lose sight of a *good* life in the process.
+I went to my parent’s house one day while they were out of town on a trip.  They keep all their important documents in a lockbox and I got this out and opened it up.  Inside were their passports, their birth certificates, copies of our social security cards.  Underneath that were personal things, letters and photos and other irreplaceable mementos.  I made sure to set everything aside in order but I quickly lost track, as I had to dig through far more than I thought I would.  My birth certificate was at the very bottom, the second-to-last document in the box.  I wondered why they’d buried it there, when all the other identifying documents were within easy reach.  I took it out, unfolded it, and read my birthplace.  The time of birth (12:12 am).  Then I folded it and started to put it back in the box.
 
-Besides, that one thought is sitting in the back of my head and whispering to me.  The void gave up when it took my friend.  What if I just… find a populated area to be in when midnight rolls around every year?  No one would ever know because whoever the void claimed would cease to exist.  It would be so. very. easy.
+My glance fell on the document underneath.  Only one thing left inside, a yellowed envelope.  On a whim, I picked it up.  I’d already snooped through everything else, what was one more envelope, right?
 
-I closed the web browser and decided to find a different way.  A better way.  One that didn’t involve bullying some poor nurse that probably doesn’t entirely believe me into violating her own code of ethics and committing crimes.
+Inside was a death certificate.
 
-I texted her back saying that yeah, I understood, I was just getting a little desperate because I was running out of ideas.  I asked if she could maybe try to find out what happened to the doctor that delivered me instead and if anything else weird happened that she could share, maybe let me know?
+Same town.  Same date.  My name.  12 am.
 
-Then I set all that aside because I needed to focus on my preparations.  My birthday was only a month away.  I’ve been running all year, of course, so I had to reassure myself that I’d prepared for my race as best as I possibly could and stop worry about that particular problem.  I’d already done everything I could.
+Was I stillborn?  Was my soul fighting for the right to existence in those twelve minutes, just as I fight every year since?
 
-However, I only get one chance a year to learn more about what’s happening to me and I had to figure out how to make the best of this opportunity.
+I don’t know.  I have my answer, I guess, but I don’t know what to do with it.  I have to keep thinking of how to stay ahead of the void that comes to claim me.
 
-I admit I’m not thrilled with my preparations.  I feel like I’m grasping at straws.  But with every other lead quickly turning into dead ends, I figure that’s all I’ve got left to me.  I have a camera that I’m going to wear pointing backwards.  I’m not entirely trusting of technology though.  It doesn’t have the right symbolism, I feel, and besides, aren't there stories of cameras and stuff just going ‘nope’ when confronted with something unnatural?
+Fighting them off is getting harder.  There’s too many of those hands and I can’t shatter them all, so I started prioritizing.  I keep my center of gravity low to maintain my balance and aim for the ones that are trying to grab my arms first, so that I can keep swinging my weapon.  Then I try to knock off the ones grabbing my legs next.
 
-So I got the nerdiest running accessory known to humankind.
+Two years ago one grabbed my throat.
 
-It’s a rear-view mirror.
+I dropped the bat on instinct - stupid, I know - and tried to pry its fingers off my neck.  I couldn’t breath.  It was crushing me.  I couldn’t break its grip and I remember slipping into darkness right as the clock ticked over to eleven minutes after midnight.  When I woke up it was thirteen minutes after midnight and I’d been moved a full two feet from where I last remembered.  I wonder how close they’d gotten my unconscious body to the void.
 
-That’s attached to a wristband.
+Last year I fought like a wild beast.  My careful stance and preparations were forgotten.  I couldn’t simply hold my ground, not with the memory of that thing choking the breath out of me burned into my memories.  I felt their fingers grazing my skin and it was like I was being burned as I thrashed wildly, desperate to shake them off.  The pain was too much and I put my head down and I ran instead, because the darkness had not yet consumed the room and the door was still there, and the hallway beyond it, and I thought - this was it.  This was the solution.  I would flee instead of fight.
 
-I don’t *dare* look behind me.  Too much could go wrong.  I might trip or I might slow down - either of those mistakes or any like them would be fatal.  And after last year, after being inside that endless expanse of utter nothingness, I am perhaps even more frightened of being dragged in there than I was in the past.
+They followed.  I made it to the car in the driveway and backed out into the street and floored the gas.  The darkness came with me, it seeped in around the edge of the windshield, covering it like frost and then peeling off into fingers and reaching for my face.  I spun the wheel in panic, sliding the car into a streetlight.  Then I ripped the door open and fell out into the street, just as their hands closed on my shirt and they began to drag me backwards and the color was draining out of the world - everything was fading into gray - and then it was twelve minutes after midnight.
 
-Because I keep thinking - what if it’s not death trying to drag me back?  What if it’s just.. the void?  Maybe I was supposed to die at birth but I didn’t and I’ve been living on borrowed time and the void wants that time *back*.  And I’ll sit in there with nothing, absolutely *nothing*, until I’ve paid my dues.  Or perhaps death has nothing to with this *at all* and the death certificate was filled out because the doctors didn’t know how else to explain it and the void is just *taking* people, swallowing them up whole.
+I lay on my stomach in the street.  My car was badly dented, but no significant damage from the impact.  I drove it back home and stood in the shower, watching the blood from the cuts on my back where their fingers had pierced my skin run down the drain.
 
-I have nothing upon which to base those fears.  My head is probably running a bit wild, to be honest, and needs to be brought into check.  But these are the kinds of thoughts that have been keeping me awake at night for the past two months.
+I think I understand what is happening.  A friend’s kid once made a smart remark to us, after she said she was eleven and a half and someone told her that her half year didn’t count towards her age.  She said that “grown-ups don’t count half years because we’re closer to dying.”  Which is dark and hilarious but also true.  I *am* closer to dying.  Every year, I’m closer to death.
 
-It’s been a rough year.
+And every year, my visitors have gotten stronger.
 
-There’s nothing I can do about my fears though.  They’re coming for me and there’s nothing I can do to stop it.
+I guess we’re all trying to stave off death, in our own way.  My fight is just… a little more literal.  I was dead in those twelve minutes after midnight and something brought me back.  Perhaps I fought my way out.  But I think I was meant to stay dead and perhaps this is just the grave’s window of opportunity, once a year, trying to drag me back to where I belong.
 
-I need to stop typing and get ready.  I’ve got my route picked out, a nice even street with smooth pavement, well-lit, and quite deserted at this time of night.  I should get my running gear on and head over.  If this is where the post stops… well, you know I didn’t run fast enough.
+It’s getting so hard.  Twelve minutes is a very long time when you’re fighting for your life.
 
- 
+I took up running this year.  I’ve been working for speed more than endurance.  I only need to keep going for twelve minutes, after all.  Hiding stopped working and now fighting is not enough, so I’m going to try flight.  I’m going to run like death itself is on my heels - and it is - and maybe I can keep running every year after this until my body begins to fail with age and oblivion doesn’t seem so unjust anymore.
 
-Hey.  I’m alive.  I’m fine.  I made it back.
+I’ve got my running clothes on already.  My running shoes.  I’m terrified and there’s still hours to go.  Wish me luck.  And if you don’t hear from me tomorrow… then I guess I wasn’t fast enough.
 
-I just got done checking the camera.  Nothing, as I kind of expected.  But the mirror… the mirror did the trick.
-
-I almost wish it hadn’t.
-
-Let me start at the beginning.  Midnight.  I felt the void open behind me, this twisting sensation in my gut that made all the hair on the back of my neck stand up.  It felt like waking up from a nightmare, when you’re paralyzed in your bed trying to discern what’s real and what isn’t, and it’s like your entire room is coated with the terror of the dream.  Like that, except it’s not a lingering memory, it’s real, and it’s coming for you.
-
-I was already jogging to make sure I didn’t have to do a cold start.  As soon as my watch beeped and as soon as I felt that presence behind me, I broke into a sprint.  The fear accelerated my heart in time with my pace and I hit my stride almost instantly, stretching my legs as far as I could to eat up the ground beneath me.  I’ve made that run so so many times.  I had plenty of pavement to make my run on and plenty more to slow down after I hit the twelve minute mark.
-
-It felt like my body was perfectly in sync with itself.  Like my heart was beating in time to my feet hitting the ground.
-
-The presence behind me kept coming.  I felt it just behind me, its frustration almost palpable against my skin.  Like tiny needles scratching at my forearms, at the back of my neck.  It *wanted* me.  It’s always felt malevolent to me, but I attributed that to my own perceptions of dying.  But tonight, with my body moving perfectly as it had done hundreds of times before, my mind seized on what I felt emanating from my pursuer.
-
-Hunger.  Need.  And… anger.  Senseless, consuming, anger.
-
-I raised my wrist.  I looked in the mirror.
-
-And I saw something new, something I’ve never seen before.  Not when the void was dragging me in as a child and I faced it and kicked and fought, not when I tried to drag my friend out, and not when I was inside it last year at the hospital.
-
-Mirrors, after all, reveal to us the things we cannot normally see.
-
-I saw people.  Those arms that stretch out towards me, all those grasping hands - they aren’t an extension of the void at all.  They might look that way, flat shadows of empty darkness that swallow up everything they touch.  But that’s not what they *are*.
-
-Behind me was a mass of people, of different ages and genders and appearance, all stretching out their hands, their mouths open in silent screams, their eyes white and wide with terrified, ferocious, *need.*
-
-It was their anger I felt.  It radiated off of them in waves.
-
-I couldn’t handle what I was seeing.  I flung my arm to the side with a sobbing gasp, and the mirror snapped off and smashed somewhere on the pavement.  I ran with terrified desperation, because now I knew what I was being pursued by, and then the watch on my wrist beeped to let me know I had only a minute left and I realized that I was going to survive this.  I was still faster than the void.
-
-Still faster than all those people trapped inside.
-
-Because while I stood there, panting and catching my breath once I was alone and the window of opportunity had closed once again, I realized a small detail that I’d seen but not fully understood while I was still sprinting.
-
-Some of them, the ones about my age, were naked.  But the majority of them - especially the ones that were older or younger - wore hospital gowns.
-
-I escaped.  They didn’t.  *They* are what have been pursuing me all these years, growing up as I grew up, increasing in numbers as more people die within that hospital.  The void doesn’t care about me.  It is indifferent death, uncaring oblivion, and as horrifying as that it is - it doesn’t harbor malice or hate or desperation or any of the other emotions that I felt battering my back as I ran.
-
-But the people trapped inside?  *They* have a will.
-
-And those twelve minutes may be their only window to act on it.
+[Next year](https://www.reddit.com/r/nosleep/comments/kgotw0/i_was_born_twelve_minutes_after_midnight/)
