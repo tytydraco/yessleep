@@ -32,4 +32,4 @@ As I was reaching down to hold her, I heard a sound coming from the bedroom. I r
 
 I went in, planning on checking the closet and the windows, when I heard the door closing and locking behind me. As I turned... I can't ever forget what I saw. I let out a scream and threw up when I saw her. Behind me, was Joanne, covered in blood. But that's not what caused my reaction. Over her face, crudely sewn, was... Chloe's face.
 
-"*Am I beautiful now?*"
+["Am I beautiful now?"](https://darkwriterises2.wordpress.com/2023/01/13/am-i-beautiful-now/)
