@@ -123,3 +123,5 @@ There are still so many questions I have. At least most of them are answered. I 
 Currently, I’m at a Starbucks writing an unrevised version of these events before I send it to Yoel. If you’re viewing this on the 13th of January, assuming Yoel is able to revise & publish all in one day, then this is the day it’s being written. Either way, tomorrow it seems like we’re gonna confront this thing once and for all.
 
 Whatever happens, happens. I guess.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/10clr5v/i_confronted_the_doppelganger_that_was_said_to/)
