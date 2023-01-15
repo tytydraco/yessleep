@@ -250,3 +250,6 @@ Pinching my nose, I proceeded into the living room, step by cautious step, my wo
 
 
 [Part 12](https://www.reddit.com/r/nosleep/comments/10b1dy9/warnings_to_the_wannabe_cryptid_hunters_how_my/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+
+[Part 13](https://www.reddit.com/r/nosleep/comments/10cac2n/warnings_to_the_wannabe_cryptid_hunters_my_ex/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
