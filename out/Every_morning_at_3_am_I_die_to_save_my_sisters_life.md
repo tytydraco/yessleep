@@ -40,7 +40,7 @@ I looked along the treeline, unable to see anything beyond it. I couldn’t shak
 
 *There’s nothing there*, they’d say without even sparing a glance. *There’s no such thing as monsters.*
 
-For a brief time, I, too, had started to believe the phobia was irrational, despite not being able to shake it, but after this night, I think I’m well within my right to be terrified of the dark, even if no one can know why.
+For a brief time, I, too, had started to believe the phobia was irrational, despite not being able to rid myself of it, but after this night, I think I’m well within my right to be terrified of the dark, even if no one can know why.
 
 Alana went from boulder to boulder, placing her hand on each. “Wonder how they got in a circle,” she said, expecting me to offer an explanation.
 

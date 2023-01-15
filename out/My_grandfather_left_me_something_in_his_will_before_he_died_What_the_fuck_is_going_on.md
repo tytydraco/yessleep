@@ -1,6 +1,6 @@
 We were never close. I actually barely even knew the man. Only what my dad had told me, ex military, lost a leg in a car accident, filthy rich, single ever since my grandmother passed away.
 
-I used to hate him. *Really hate him.* If he was so rich, why did I have to suffer, living in a single room appartment, barely making ends meet, while worrying about my student debt that just wouldn't stop piling up? Why couldn't he just help. I did actually try reaching out at one point. I got put to voice mail 20 fucking times. And those 20 calls were done over the span of a week. I hated him even more after that, and vowed to never speak to him, not even go to his funeral.
+I used to hate him. *Really hate him.* If he was so rich, why did I have to suffer, living in a single room appartment, barely making ends meet, while worrying about my student debt that just wouldn't stop piling up? Why couldn't he just help? I did actually try reaching out at one point. I got put to voice mail 20 fucking times. And those 20 calls were done over the span of a week. I hated him even more after that, and vowed to never speak to him, not even go to his funeral.
 
 But alas, here I sit among the maybe dozen others, not including my parents. Shouldn't rich people have a lot of people come to their funeral? I mean the only reason I came is because I got a call last week.
 
