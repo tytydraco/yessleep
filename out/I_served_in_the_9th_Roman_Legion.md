@@ -1,311 +1,254 @@
-Part 1/3
+Part 1/3: https://www.reddit.com/r/nosleep/comments/zsdrpn/i_served_in_the_9th_roman_legion/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
 
-To say I’ve lived a long life would be an understatement. I’ve lived many lifetimes. I’ve loved many families. I’ve seen empires rise and fall like the sun. I’ve seen humanity’s barbarism and savagery morph from swords and spears to bullets and bombs. In my youth I enjoyed war. I enjoyed the blood and glory. Or at least the idea of it. But when you’ve lived a life as I have. When your years are as endless as mine. When you see so many lives lost. You realize war is a tragic waste of short lives. Especially when men kill other men. 
+Part 2/3
 
-Historians say that the 9th Roman legion vanished without a trace. With the last known sign of them being an inscription on a legionary base at Nijmegen in the Netherlands, which dates to around 120 AD. From there Historians don’t know if the legion was destroyed in one of several Roman wars or if it was destroyed in a rebellion. Most originally theorized the 9th fell in Britain. Some still believe this theory. But it’s just a theory nonetheless. The 9th disappeared from Roman texts in the early second century. But it’s one thing to theorize about history. It’s another to live it. 
+Over the next ten years I fought in countless battles against all manner of beasts and demons. We fought all over the empire. From Gaul to Greece. I was good at it. I worked my way all the way up to the level of centurion. While Maxus became the Primus Pilus. I was one of the six centurions in his cohort. Along with both Solaris and Crixus. Then came one fateful day. 
 
-I lied about my age to join the legions. The requirement was for you to be at least 17. I was 15. A child by todays standards. Yet I yearned for the heat of battle and the taste of glory. It was a fantasy I carried all my life. I didn’t grow up in a noble house. I didn’t have a rich family name. I didn’t have connections with the Emperor or the Senate. I was just me. A Roman citizen called Marcus. The training was hard. It wasn’t the worst four months of my life though.  After training I was assigned to the 9th despite training with the 11th. At the time the 9th was stationed about a hundred miles south west of Jerusalem. 
+I was called into Quintus tent by Maxus. We were camped out on a beach in Britannia. Our mission there had been to track down what we thought was a Druid priest that had been dabbling into black magic and creating revenants. It’s not an easy spell and most require training directly from a demonic entity to do it. We were concerned. We’d spent a few weeks trying to track them to no avail. It was as if they knew our plans as we made them.  Our local contact, another Druid magician called Merlin (yes that Merlin) was in Quintus tent with him. 
 
-When I arrived I was greeted by a tall man of broad build. He was maybe twenty years my senior. He was to be the Centurion of my Century. I called him Maxus. He very quickly made it known that he was aware of my age. 
+The man wasn’t anything like they portrayed in the movies and stories. He wasn’t or didn’t appear to be very much older then myself. He had a head full of shaggy red hair and a thin beard. He also smelled horrible. Like a mixture of vomit and goat piss. He wore white robes and glared at me the moment I walked in. 
 
-“Lied about your age, did you?” he said with a smirk as I approached him. His voice was booming.
+“Marcus!” Quintus greeted. 
 
-“I uhh..” I stammered as my heart skipped a beat. 
+“Commander!” I greeted in response. 
 
-“I could have you flogged for that?” he asked with a raised bushy brow. 
+“I was just talking to Merlin here about our battle against the children of Sobek in Egypt.”
 
-I honestly didn’t know what to say. I didn’t expect to be outed so very quickly. 
+“They were repulsive.” I said plainly. 
 
-“How old are you? Twelve? Thirteen?” 
+“That they were. But you all held your ground. Which actually brings me to why I called you two in here. Do you remember what exactly they were after?” He asked. 
 
-“Uhh.. Fifteen!” I said sheepishly. 
+“Something about a magical stone in the area.” Said Maxus. 
 
-“Fifteen?!? Are you sure?” 
+“Something like that. Any of you ever heard the worshipers of the Abrahamic god talk of a man called Cain?” 
 
-I nodded as Maxus looked me up and down. We stood just outside the city of tents that made up the 9ths camp. 
+Both Maxus and I shook our heads. Quintus nodded. 
 
-“Come then! Let us meet the Primus Pilus!” 
+“They believe that he was among the first family of man. He murdered his brother over some sheep and was cursed for it. While that story is close it’s incomplete… He didn’t murder his brother for sheep. He murdered his brother for the arch demon Lilith.. Who’d spent the better part of a year filling his head with dreams of power… She taught him how to use black magic. In turn, he became her apostle.. Her disciple on earth. Together they created… Or maybe found what we call the philosopher’s stone.” Quintus explained. 
 
-The Primus Pilus, for those of you who don’t know, is the senior centurion in a Roman legion. They are the fourth in command in a legion behind the Prefect, the Broad Band Tribune, and the Legate or Legion Commander.  Now the 9th legion at this particular time was different from most if not all legions that came before it. Yes most legion commanders were typically politicians or senators, one could even be a governor of a province. The 9th’s commander at this point in time is lost to history. In fact, the 9th was also kept off the record at this point in time as well. Our legion commander was called Quintus. Commander Quintus was…. Different. 
+“What does it do?” I asked. 
 
-Maxus led me to the Primus Pilus tent while the man was meeting with the commander. They were both looking down at a map of the nearby area. Our Primus Pilus, a bald man called Luke, was pointing to an area. 
+“In simple terms. It’s a powerful source of magic. Strong enough to pull apart entire planets if that’s what the user wills.”
 
-“Locals said they fled into this mountain pass. A days March for most armies. A few hours for us.” He said. 
+Maxus stroked his chin. 
+“If it’s powerful enough to do that, then why hasn’t Lilith or Cain used it to destroy the planet?” 
 
-Quintus stroked his chin. One could tell by looking at him that he was an Intelligent man. His armor was darker then most Legion commanders. Almost like it was made from a different metal all together. He also didn’t wear the typical red that was associated with the Roman army. He’d traded it in for black.
+“Lilith tried.. Cain, however, decided that destroying the entire human race wasn’t the best idea.” Quintus said. 
 
-“And how many did the locals say?” 
+“He took it and ran!” Merlin replied. 
 
-“Three hellhounds!” 
+“And how do we know this?”  Maxus asked.
 
-“Only three? I thought there’d be more!” 
+“Who do you think taught Merlin the mystical arts?” Quintus said. 
 
-“They’re hellhounds, Commander! They’re still dangerous to the uninitiated!” Luke reminded him. 
+“So what does this have to do with the revenants?” I asked. 
 
-Quintus thought for a second before his eyes rested on Maxus and I. 
+“We think the druid is after the stone as well.” Said Merlin. 
 
-“Yes, Centurion?” he asked. 
+“That’s why they’ve been terrorizing villages.. We think he’s trying to flush Cain out.” Quintus said.
 
-“We’ve got ourself some new blood Commander.” 
+“And what do we know of this druid?” Asked Maxus. 
 
-“Ah! I see.. Has he been…… Initiated yet?” 
+“Absolutely nothing… We don’t even know if it is a Druid. All we know, is that someone is controlling the revenants by the hundreds. Maybe thousands. Which brings me to my next point. Your assignment… Cain is held up in a cave a few miles north of here. I want you to take your century and protect it while we try our hand at hunting them down. I will personally command the rest of your cohort while you’re gone.” Quintus said. 
 
-Maxus turned and glanced at me before looking back at the commander. 
+“Are you sure? Marcus and I may be your best chance at finding them?” Maxus said. 
 
-“He only just arrived!” 
+“I’m sure. Protecting that stone is of the upmost importance. I wouldn’t assign the task to anyone else.” 
 
-Luke smirked at him as straightened up. 
-“He looks young! Did he lie about his age?” 
+Maxus sighed deeply before turning and looking in my direction. 
 
-“Yes… Yes he did.” Maxus said. 
+“Let’s go then.” He said as he started to walk out. 
 
-“Heh! Typical! Let me ask you something boy! Why did you wish to join the legions? Do you consider yourself a patriot?” Luke asked. 
+We both stopped at the tent’s entrance. 
 
-“I uhh.. I don’t have anything to my name. No family. No house. No titles or land.”
+“Oh and Maxus.. You two know the plan. Stick to it.” 
 
-“So you want to make a name for yourself? Be remembered?” Quintus asked. 
+Maxus and I marched my century with Merlin acting as our guide. The journey was like any other. That being said, 10 years prior, it would have made my legs ache. Now it was like taking an evening stroll. I’d grown used to the enhancements in my time with the 9th. I’d also grown used to life on the move. We were never in the same place longer then we had to be. This was my third time in Britannia. It only occurs to me now, all these years later, that we never really had a true home. 
 
-“Yes, Commander.” 
+Merlin guided us through a dense forest. So dense that Maxus and I had my century marching in rows of four. Merlin was in the front. Followed by me, Maxus, and Agustus. Augustus was my right hand man so to speak. He was one of the decanus in my century. The forest was quiet. This alone had me on edge. Thanks to the Omega potion, I could hear a mouse running through the brush at a hundred yards and still… I heard nothing in this forest. 
 
-Quintus took a deep breath. 
+“You noticed it too?” Maxus asked. 
 
-“I’m sorry kid, you’ll find none of that here!” Luke said. 
+“That the forest is deathly silent or that Merlin smells like goat piss?” I replied. 
 
-I glanced at him in confusion. 
+“Are you sure that isn’t you centurion?” Augustus asked from behind me. 
 
-“You think I won’t be a good soldier?” I asked.
+“Very funny…” I said in response. 
 
-“You wouldn’t be here if we thought you wouldn’t. What do you know of this legion?” Asked Quintus. 
+“Merlin!” Maxus barked. 
 
-“It’s a legion? Like any other?” 
+Merlin stopped and turned back to the Primus Pilus. 
 
-“Hmm.” Quintus grunted before drawing in a deep breath. 
+“Yes?” 
 
-“Like any other..” Luke chuckled. 
+“How much further?” 
 
-“If you’re worried about my age. I can prove myself! I’m ready!” I said almost all too eagerly. Very much misreading the situation. 
+“Another mile or so. There’s a cave on the edge of this forest. That’s where he’ll be.” Merlin said with a smirk before turning and continuing on. 
 
-“Maxus.. Take.. What was your name?” 
+Maxus turned to me. 
 
-“Marcus?” 
+“I don’t like this!” He said.
 
-“Take Marcus on a scouting mission to the mountains. If he survives, see that he’s…. Initiated properly.” Quintus said with a smile. 
+“Neither do I.” I said as I turned and signaled Augustus to have the men ready themselves. 
 
-“Yes, Commander.” Marcus replied. His massive hand fell on my shoulder as he pulled me out of the tent. 
+I tightened my grip on my shield. Merlin continued onward. We walked for a few more minutes before we came to the side of a cliff. Which contained a cave that was maybe ten feet off the ground. 
 
-“What did he mean by initiated properly?” I asked. 
+“Here we are!” Merlin said. 
 
-Maxus didn’t reply. He just continued dragging me along. He brought me to a tent where we were greeted by two other men. One a Thracian called Crixus. The other a Greek who went by Solaris. 
+“Cain is up there?” I asked. 
 
-“You two, pack your things! We’re moving out!” Maxus commanded. 
+Merlin shrugged, “That’s where he’s been spending his time.” 
 
-The two of them eyed me. 
+“Great!” I said as I handed my shield and spear to Augustus before I approached the opening. 
 
-“Yes! He’s coming with us!” Maxus barked as if he was reading their minds. 
+It took a single jump for me to clear the opening. Enhanced strength and all that. A ten foot vertical jump wasn’t anything to gawk at. I landed lightly. The cave was vast. It smelled like cooked meat. In the distance, I could see a small fire burning in the back. A lone man sat next to it cradling something. I started to approach when I heard someone land behind me. I turned to see Maxus standing there. He was followed by Merlin who seemed to float inside. 
 
-I was very confused. I was also very tired after having such a long march. I glanced at my Centurion. 
+“Is that him?” I asked. 
 
-“What’s wrong soldier? Having second thoughts?” 
+Merlin nodded. Maxus and I approached cautiously. Neither of us really knowing what to expect. When I finally reached him I found a rabbit cooking over the fire. Cain was a slender man. With olive skin and dark hair. He didn’t look at us as we came closer. 
 
-“No!” I said abruptly.
+“Marcus and Maxus.. How very nice it is to meet you! Officially, I mean…. I saw you two fight in Egypt. Those children of Sobek are ravenous.” He said in a soft voice. 
 
-Maxus smiled widely. 
+We stood silently. 
 
-“Very well then! Let’s go hunting!” 
+“Please!! Sit!! Would you like some rabbit?” he said as he gestured for us to sit down across from him. 
 
-I admittedly didn’t think much of Quintus mentioning of the hellhounds. Personally I guess I’d thought they’d be rebels or something similar. Maybe I was just tired. Maxus led the three of us to a mountain pass. It was dusk when we arrived. The sun was starting to set at our backs. I was exhausted from the journey. I wasn’t sure how the other three men weren’t. Maxus had asked me several times if they needed to slow down. But I was young. I had everything to prove. 
+I sat but declined the rabbit. Maxus stood with his hand on his sword. I didn’t blame him. 
 
-The pass itself was narrow. One might could get a row of five to six men in between the jagged rocks on either side. Luckily there were only four of us. I can remember stopping just outside of it. The stench of rot and blood seemed to inch its way up my nose. Solaris stopped next to me. 
+“You have the stone?” Maxus asked. 
 
-“Definitely hellhounds.. Their den is probably close by.” he said as he pressed forward. 
+“I do. I never leave home without it.” 
 
-I glanced over at Maxus. My grip on my pilum tightened. 
+That was when I noticed what Cain had been cradling. I massive red gem that seemed to glow a faint red where he caressed it. I swallowed hard. 
 
-“Den?” I asked. Only now realizing that I should have asked more questions to begin with. I noticed Solaris and Crixus moving ahead of us.
+“She’s coming for me you know! She’s always coming for me!” 
 
-“I thought this was just a scouting mission?” I said.
+“Who?” I asked. 
 
-“Keep your shield up boy!” Maxus replied as he motioned me to come with him. 
+“The red queen! Mother of monsters! The maiden of Gehenna! Lilith! That’s why I’m in this cave.” 
 
-I did as commanded. My leg muscles ached. As did the rest of me. We entered the pass cautiously. Crixus and Solaris were at the front. Both of them had their shields up and their swords out. We moved slowly.. Silently.. Our eyes peeled and our weapons ready. The air seemed thick and musty. All was quiet. That was when we came round a bend. I can remember because the Sun had finished going down. I wasn’t sure why, but I could feel my heart beat accelerating. 
+Now, before I get much further, I have to explain something. Demons are or were a strange bunch. While they weren’t banned from earth entirely, they weren’t welcome. Most that walked among humans kept their heads down. Except for a few. We had a story that was told to us by Quintus himself. About how Gehenna used to have free reign to terrorize everyone that they could. Until heaven stepped in. I guess enough was enough. Heaven bequeathed a young man called Enoch a sword. Enoch in turn led humanity to war alongside heavens arch angels. A war known as the First Gehennian War. A war that ended when the arch Angel Michael defeated Lucifer for the second time since the rebellion. Rather then die, Gehenna and Heaven came to an agreement. Gehenna wouldn’t continue the constant invasions of earth and would keep its sovereignty. The door way between the realms would remain “unlocked” but monitored. Gehennian beings on earth would be required to report before being allowed entry. Which means… If Lilith was wondering around. We’d know. Now, accidents do happen. Lower level demons used to escape all the time and cause problems. But they were never acting on Lucifer’s orders. If they were, that would mean war. This was the queen we were talking about. His queen. There were, however, some ways around having to report. Like a demon sending its essence up to earth and finding a body to possess. Now, I know what your thinking.. I’m a Roman. Romans have their own gods. Why am I talking about Abrhamic mythology? The Roman, Greek, Egyptian, Norse, and most of the others do exist. But like everything else. The stories aren’t exactly one for one. Anyway, I’m getting off topic..
 
-“Take a breath boy!” Maxus replied in a hushed tone. Almost like he could hear it. 
+“Lilith is in Britannia? How do you know it’s her?” Maxus asked.
 
-It was then that we heard the shuffle of some rocks. I turned quickly. My spear ready. The movement was coming from a ledge that wasn’t twenty feet above me. It was hard to see. Especially in the dark. I readied go launch my pilum at it. But Maxus arm grabbed my shoulder. 
+Cain looked down at the stone and exhaled. 
 
-“Don’t!” He whispered right as a massive vulture came flapping off the ledge and into the sky. 
+“She wants the stone. I can sense her essence.  We are connected. Her and I.” 
 
-I felt my body go from tense to relaxed. I exhaled. But the moment I did. A long howl sounded off. It was like that of a wolf but deeper. More pronounced. It also sounded extraordinarily close. It felt like my heart jumped into my throat. 
+“Can you stop speaking in fucking riddles!” Maxus barked. 
 
-Solaris and Crixus moved forward around the bend, leaving my line of sight. 
+Cain closed his eyes and smiled. The cave suddenly lit up. Torches sparked to life brightly revealing cave paintings on the walls. Maxus instinctively drew his sword. Cain opened his eyes and stood. It was then I noticed a table set up against one of the walls. The table was adorned with candles and covered in what looked like runes. 
 
-“Stay calm boy!” Maxus commanded in a hushed tone.
+“It’s an old blood magic spell. A trade of sorts. Back when I was her vessel on earth. Some of her still remains.” 
 
-“I am calm!” I lied. 
+“You let her possess you?” I asked.
 
-We rounded the bend to find Crixus and Solaris standing at the base of a cave. The entrance was gaping. It stood almost twenty feet tall. It was already dark on the mountain. The inside of the cave was nothing but a void. We were surrounded on two sides by even more ledges. I kept my eyes on them almost instinctively. 
+“Yes. She couldn’t come her herself. Lucifer forbid it. He still does. But I don’t think she cares anymore. Instead she used me to destroy. To maim and murder. This was after the war of course. After she was banished from her earthly body. I eventually took back control. I used the stone to purge her from my mind but there are pieces that still remain.” 
 
-As we approached the cave I could feel my stomach start to churn as the smell became overwhelming. 
+“If what you’re saying is true. It would mean war.” Maxus said. 
 
-“I think we found the den!” Solaris said. 
+“If what he’s saying is true. Then Quintus has his work cut out for him. An arch demon of her magnitude may be too much for an Omega soldier. Maybe even the 9th itself.” I said.
 
-“Do we go inside?” I asked. 
+Maxus turned to me and smirked. 
 
-“A hellhound den? Are you daft?” Asked Crixus.
+“You’ve been here ten years and still don’t know all the secrets.” 
 
-“Leave him alone.” Maxus said as he knelt down ahead of us. He was looking at something down in the dirt. Something I recognized as a wolf print. Only this one was massive. So massive in fact, that I could stick my entire hand inside of it. 
+I was about to inquire what he meant by that when I heard the demonic screech coming from outside the cave. Cain only smiled at this. 
 
-“What have I gotten myself into?” I muttered to myself. 
+“Quintus may have miscalculated how quickly she’d find me.” 
 
-That was when we heard the bark. Maxus shot up. 
-“Form a shield wall! Have your pilum ready!” 
+Maxus looked at Cain. 
 
-Solaris and Crixus sheathed their swords and pulled their spears from their backs. That was when something inside the black void moved. Three sets of glowing red orbs appeared. It took me all of three seconds to figure out what they were. Eyeballs. Blazing red and filled with malicious hatred. They stood maybe six feet off the ground. Every bone in my body screamed for me to run. But I didn’t. I stood my ground.
+“Quintus miscalculates nothing!” 
 
-“Hold your ground!” Maxus commanded before turning to me.
+I admired Maxus blind faith in our leader. Even when I myself was questioning it. But in all honesty, Quintus had never steered us wrong before. Yes men had died before but it was an occupational hazard. 
 
-“Whatever happens boy.. Don’t run!” 
+I ran out to the mouth of the cave. Augustus had arranged the men in a circular formation around the cave. They’d formed a shield wall that was two men deep. He was a good man. He’d done exactly as instructed. I looked out into the forest. I could smell them before I saw them. The rotten corpses of picts shambling our way. Some were armed and some weren’t. There were hundreds, if not thousands of them. I glanced back at Maxus, who gave me a nod before I jumped down. The walking corpses were only a few feet away from the shield wall. 
 
-I swallowed hard.
+“Pilum! Front line!” I commanded. 
 
-That was when the red eyes in the center began to move closer. The beast walked to the mouth of the cave. I don’t remember if I pissed myself or not. I certainly may have. The beast was a black wolf. A black wolf that was larger than a full sized horse. It’s red eyes were focused on me. It snarled showing its massive white teeth. 
+The soldiers in the front line threw their spears. Several of the dead fell. Some didn’t. Some missed altogether. But doing this only opened the flood gates. The dead went from shambling to full on sprinting. Before I could get another word in they’d slammed into the outer shield wall and they’d done so hard. But my men were strong. The shields held firm but that didn’t stop several from climbing over. Most of which were cut down by the second line. 
 
-“Solaris..” Maxus said. 
+I still hadn’t gotten my shield back. I had my sword out and the blade was burning blue. I had a revenant that had jumped over the wall charge me. This one looked like she used to be a pict woman wielding what looked to me like a kitchen knife. I very quickly removed her head from her body. The next thing I saw was Augustus. He was removing his sword from one of the revenants. I looked back up at the wall. It was still holding. By this time Maxus had landed behind me. As had Merlin. That was when we felt the ground rumble. 
 
-The man launched his pilum at the beast. The throw was hard. His spear moved faster than any I’d ever seen. Maybe even faster then a missile from a ballista. It hit the wolf in the shoulder. The creature yelped as it fell. I blinked a few times. Trying to comprehend what I’d just seen. But there wasn’t any time as the other two wolves were suddenly growling and sprinting out direction. 
+I stood still. The flood of walking corpses was still coming in from the forest. But my eyes caught something else. Something large and lumbering. It was a creature of which I’d never seen in person. 
 
-I was at the outer edge of the shield wall. The second beast came forth from the cave. 
+“Ah shit!” I grumbled. 
 
-“Crixus!” Maxus commanded. 
+The beast was massive and humanoid in appearance. Its bald rotten head almost reached the treetops. The undead giant snarled as it used its massive foot to kick its way through my lines causing a massive melee. The beast looked down at Maxus and I. We both readied our swords. 
 
-Crixus launched his spear. But the Wolf had only just watched it’s brother fall. It ducked under the spear and charged forward. Ramming into our shield wall hard. I caught most of the force and was rocked off my feet and onto the the ground. I lost my shield. The beast battled with the other three men as I tried to regain my bearings. Only I found the third wolf standing over me. It’s glowing red eyes seemed to bore into my soul. 
+“This is gonna hurt isn’t it?” I asked. 
+Augustus chuckled. 
+Maxus exhaled. 
+Then Merlin. Fucking Merlin started chanting in a language I’d never heard before whilst raising his hands. Before I could ask him what he was doing a massive whirlwind of fire seemed to conjure up underneath the giant’s feet before it swallowed him whole. The creature, maybe realizing it was dying, reached out with its tree trunk sized arm in an effort to grab me but it’s body was ash before it got the chance. We all turned and looked at Merlin who winked and smiled at us. 
 
-“Oh… Fuck!” Was all I managed to get out before its jaws came down. 
+Maxus and I turned back to the melee. Our men were holding their own. But we were very clearly being overrun. 
 
-I managed to get my spear up but barely. It’s jaws ripped it from my hands before it snapped the wooden handle of the pilum in two. I struggled to my feet as I yanked my gladius from its sheath. The beast growled at me and charged. I didn’t have time to run. I stepped out of the way. Barely dodging it’s massive jaws. I slashed at its neck several times. But my sword only seemed to glance off. The wolf replied to this with a swipe of its paw that sent me tumbling backwards toward the mouth of the cave. I just happened to land right next to the first wolf’s corpse. The beast bared it’s teeth at me. I swallowed hard as I realized I dropped my sword. My hands reaching out for anything the could. Only resting as they found Solaris’s pilum. I managed to yank it out just as the hellhound charged me again. Holding it out point first. There was a loud squelch that was followed by a yelp. The next thing I knew the beast was limp on top of me. A warm liquid was running down my hands and chest. I’d killed the beast. But I wasn’t strong enough to get it off of me. 
+“Remember the plan!” Maxus said. 
+“Plans already going to shit!” 
+“Still!” 
+“I know! I know!” I griped as I turned to Augustus. 
+“As soon as that priest shows their face you fire that arrow!” I commanded. 
+Augustus began pulling the bow from his back. While Maxus and I tried our best to reform the lines. It was a bloody affair. I can remember seeing one of my men having their entrails dug out by two or three of the creatures. I tried to save him. I really did. But there were just so many of them. I’d kill five and ten more would show up. 
 
-It took a few seconds before the beast was moved. Maxus helped me to my feet. A massive smile across his face. 
+The battle went on for a good thirty minutes before we managed to reform the line. As we did so the revenants seemed to let up. The new ones stopped charging and stood back at the treeline. 
 
-“By the gods he survived!” 
+“What the hell are they doing?” I asked. 
 
-I could see Solaris and Crixus standing over the corpse of the wolf that’d charged them. That’s when I realized that Maxus had moved the wolf by himself. I wanted to ask questions. What we’re those things? How did he do that? What in Neptune’s creamy ballsack had I gotten myself into? But I was also tired and quite frankly, thankful to be alive.
+It was then that I noticed the woman in white robes approaching us. She had dark hair and white paint covering her face. She was also living. So that meant she wasn’t a revenant. She also walked with a gracefulness to her. I can remember thinking that she was probably beautiful at one point. Before her eyes and teeth  went inky black. 
 
-“And you killed the fucker too! Not bad for an uninitiated man like yourself!” 
+“Romans!” She called out with a sinister smile. “You’re outnumbered. You can’t fight here forever. Listen to my offer. For I shall only make it once.” She started. 
 
-I chuckled under my breath. I was honestly just happy he didn’t call me boy again. 
+I turned and eyed Maxus. Who smirked at me. 
 
-There was little fanfare when we made it back to camp. We’d camped out for the night and left in the morning. We reached camp in the afternoon. Admittedly, my aching body slowed the group down. Maxus took me into a tent near the center of camp where I found Quintus waiting for us. 
+“Pilum!” I shouted.
+What was left of the second line all threw their spears. Several more revenants fell! Several were thrown at the woman but they seemed to stop mid air a few inches from her now annoyed face. 
 
-“The boy proves himself a man.” He said with a smile. 
+“Augustus! For the 9th!” Maxus commanded. 
 
-My body was still in pain. Maxus stood next to me. 
+Augustus nocked an arrow. It’s tip glowing a bright blue color as he aimed it for the sky and let it fly. Then came the horn. I loved that sound. The deep bellow that signified help was here. The woman had fallen victim to Quintus plan like a rat in a trap as he’d placed his forces less then a mile away from our position. She turned and eyed us when she realized what was about to happen. There were thousands of us coming and now she was stuck with her back to a cliff. You see, we’d known that she could somehow hear us in our tent. So Quintus had given us written orders that morning. We knew as soon as we went to Cain, that she’d come screaming in. 
 
-I’d never seen a tent set up the way Quintus had arranged this one. It was almost empty. Aside from a large white marble box in the center. One that was filled with a red substance that I couldn’t identify. I honestly thought it wine at first. 
+The woman could have tried to run. But she didn’t. She only pressed her attack harder. 
 
-Quintus could tell that I was sore. He exhaled slowly. 
+“Get the stone! For the queen!” She bellowed. 
 
-“What is that?” I asked as I looked at the marble box. 
+The revenants charged again. This time even harder. My line braced for the impact.  The only difference this time Merlin didn’t have to hold back. I watched as a wall of fire ten feet high conjured up just outside the shield wall. Incinerating anything and everything that attacked it. I could hear Cain shuffle his way to the cave entrance behind me. I turned to see him with one hand up and an angry glint in his eye. That was when the woman was ripped through the flames whilst clutching her throat. Cain summoned her to him. Leaving her suspended in the air for a moment. 
 
-“That?” He asked.
+“You’re not Lilith!” He said with disgust. 
+“I-I am her true vessel! Something you could never be!” She wheezed. 
+Cain gave her a look of pure disgust before summoning her closer. 
+“You’re nothing but a slave!” He said before tapping her on the forehead. 
+The woman fainted. By then, Quintus and the legion had completely enveloped the remaining revenants. It took a few hours, but we eventually killed them all. 
 
-“That is what’s going to make all of that muscle aching go away.” 
+The woman was brought to Quintus tent to be questioned. I was present, as was Cain, Merlin, Maxus, and Solaris. It turned out that she was a farmers daughter called Gwen. Her father had been killed by a rival clan the previous year and she’d been gang raped by them. Lilith took advantage of this. Promising her revenge in return for the stone. The story was simple. But I could tell that it deeply bothered Quintus. 
 
-“So it’s wine?” I asked
+Later that night, we celebrated. By we, I mean Maxus, Solaris, Crixus, and Augustus sat around one of the camps fires and drank wine. The soldiers around us celebrated as well. But they were lost in their revelry. Maxus was quiet. Which was normal. Usually after a victory he’d sit near the fire and stare into it. He’d been like that since Luke had been ripped apart by a giant spider. Solaris was already intoxicated… Or as intoxicated as one could get with the omega running through their veins. He and Crixus laughed about something that I missed. Augustus eyed me. He knew what was on my mind. 
 
-Quintus chuckled. 
+“Six.” He said. 
+I turned to him. 
+“What?” 
 
-“You’ll understand more after your initiation.” 
+“Six men. That’s how many we lost. Not horrible.” Augustus said. 
+“Six more then I’d like.” I replied. 
+I could hear Maxus exhale. I turned to him. 
+“Six men gave their lives for the 9th.” He said softly. 
+“FOR THE 9TH!” Solaris called out drunkenly. 
+“FOR THE 9TH!” The entire camp of soldiers called out from around us. 
+I smirked at the bravado. 
+“You’re a good centurion Marcus. Don’t let it get to you. Each of those men would have happily died for you again if you’d asked them.” Maxus said with a soft smile. 
+I took a deep breath and then took another swig of wine. 
+“So what now?” I asked. 
+“What do you mean, what now?”
+“The girl. We all heard what she said.” 
+Maxus nodded as he thought. 
+“I suppose we’ll find out soon enough. Right now, we revel!!” Solaris said as he stood up and almost immediately fell over. 
+Crixus helped the man off the floor. 
+“Alright buddy you’re done!” He said softly. 
 
-“Fighting those wolves wasn’t my initiation?” I asked. 
+I could still see Maxus pondering. I knew his mind was in the same place as mine. 
+“This can’t be over.. Can it?”
+“It’s not!” Quintus voice said from behind us. 
 
-“No! That was… A test.. And you passed. You didn’t run away.” Maxus said from behind me. 
+Both Maxus and I stood up and saluted him. Quintus, however, was far from alone. He was flanked on his right by two men. One with dark brown hair and a stern look on his face. He wore similar black armor to Quintus, but his was different in the sense that instead of a sword on his hip. He has a massive silver bladed scythe in one hand. The next was a man in what I could only describe as black Greek hoplite armor with weapons to match. Then came the woman on his left wore black armor as well. Only she didn’t have any weapons. She had dark hair and a greenish tint to her skin. 
 
-“Well then what’s my initiation going to be?” 
-
-Quintus took a deep almost saddened breath before giving me a soft smile. 
-
-“Sorry kid! You won’t understand if I explain it.”
-
-Then I felt the sharp pain in my back as the air was driven out of my lungs. I tried to gasp but it didn’t work. It was only then that I noticed the blade sticking out from my chest. I tried to speak. To ask why. But again, nothing came out. My eyes glanced upward at Quintus. Who had a solemn look in his eyes. 
-
-“It’s okay, Marcus.” Maxus said into my ear as he yanked his sword from my back. 
-
-Everything faded to black after that. I’d say there’s an eerie calmness in death. But honestly, my soul didn’t leave my body. I didn’t see heaven, hell, Tartarus, or Elysium. Instead I woke up submerged in something. Something that had the consistency of blood. I tried to open my eyes but the liquid stung them. I sat up fast, erupting from the surface and trying to take a breath. But the liquid had filled my lungs. Instead I let out a series of overly dramatic coughs as red liquid gushed from my mouth and onto the tent floor. My eyes adjusted and I found myself staring at the white marble on the side of the box. 
-
-“He’s back.” A voice from beside me said. 
-
-I glanced over to find Quintus standing next to me. I was a bit delirious. Everything in my body hurt and the sounds pelting my ears were obnoxious and nauseating. I could hear the whole camp. From the flies buzzing in the treeline to a centurion masturbating two tents down. My hands shot to my ears. But they did little to muffle the noise. 
-
-“Easy! Easy! Let yourself settle!” Maxus said as he helped me to my feet. 
-
-I turned to him with wide eyes. There he was. The man who’d stabbed me in the back. I shoved him hard. But he barely moved an inch. Instead I fell backward. Falling out of the box and onto the ground beneath me. 
-
-“Y-you stabbed me!!” I groaned. 
-
-Maxus turned to Quintus and then back to me. 
-
-“I did. And I’m sorry I had to do that. But that’s how the initiation works.”
-
-“I don’t give a damn about your initiation! You killed me! I—“
-
-I stopped and looked down at my naked chest. There was a scar where the blade had erupted from it. Not a cut, not a gash, a full on, already healed, scar. 
-
-“H-how?” I murmured. 
-
-“It’s called the Omega potion..” Quintus stated. 
-
-“The omega potion?”
-
-“Yes. Tell me something Marcus… Do you know why the 9th hasn’t been on any records in the last twenty years?” Quintus asked.
-
-“It hasn’t?” 
-
-“No.. Because we don’t exist to fight Rome’s endless wars. Not anymore. As far as most are concerned the 9th was lost in Britannia.”
-
-“But how was I assigned here then?” I asked. 
-
-Quintus sighed as Maxus again helped me to my feet. 
-
-“There are few who know of our existence. They pick the recruits. Most don’t have any friends or family. No one to miss them or look for them when they’re gone. No attachments. It makes things easier. Especially with the effects of the omega potion.”
-
-“Effects?” 
-
-“You may have noticed your chest has healed. You can hear Luke touching himself in his tent.” Quintus stated. 
-
-“Among other things.” Maxus said sarcastically. 
-
-“It also makes you fast, strong, almost godly. You won’t age past twenty-five.” 
-
-I looked over at Maxus. The older man smirked at me. 
-
-“I’ve was already this beautiful when I got it!” he said. 
-
-I turned back to Quintus. Who was still watching me. 
-
-“So I can’t die?” I asked.
-
-“You absolutely can die! There’s a good chance you will! I reformed the 9th to protect the world from the dangers lurking in the shadows. To conquer humanities enemies.” 
-
-“Dangers? You mean there’s more then just hellhounds out there?” I asked. 
-
-“Hellhounds, rogue gods, demons, all sorts of beasts. They’re all out there. And you’re gonna have to face them. Speaking of.. Maxus. Show him to his new arsenal.” He said. 
-
-
-Maxus did as he was told. He led me to my tent. I was to be sharing one with Solaris, Crixus, and seven other soldiers. All of which greeted me warmly. Crixus was our decanus. The one in charge of the ten of us. There Maxus gave me my new weapons. A new shield, gladius, and Pilum. Only they felt lighter then the ones I’d had. I wasn’t sure if it was because I was stronger or if they were made of something else. I guess it showed on my face. 
-
-“They’re made from heavenly steel as will your armor. The weapons can be powered by your soul’s energy.” Crixus said. 
-
-“My souls energy?”
-
-Crixus held up the sword. The blade was black but the edges started glowing a neon blue color. I remember being slightly mesmerized by it and reaching out to touch the light. Crixus pulled the sword back.
-
-“Ah! That will burn the fuck out of you!” 
-
-I chuckled under my breath. 
-
-“My apologies.” I said. 
-
-Crixus only exhaled.
-
-
-Part 2/3: https://www.reddit.com/r/nosleep/comments/zt88y0/i_served_in_the_9th_roman_legion/?
+“We should talk. You’re not going to like what comes next.”
