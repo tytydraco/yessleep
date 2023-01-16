@@ -184,3 +184,5 @@ I grunted, shoving past him and into the cramped red room. Patting my skirt, I g
 [Part 11](https://www.reddit.com/r/nosleep/comments/10a5ij3/warnings_to_the_wannabe_cryptid_hunters_so_my_ex/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 12](https://www.reddit.com/r/nosleep/comments/10b1dy9/warnings_to_the_wannabe_cryptid_hunters_how_my/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 14](https://www.reddit.com/r/nosleep/comments/10dbk6i/warnings_to_the_wannabe_cryptid_hunters_the_devil/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
