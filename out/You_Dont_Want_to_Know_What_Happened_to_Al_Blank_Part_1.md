@@ -468,7 +468,3 @@ Al slowly pulled his finger away from his lips, that maniacal look still on his 
 
 
 "You would've thought I'm crazy if I told you instead of showing you", he whispered back. "But this isn't even half of it. This isn't even the craziest part".
-
-
-
-[To be continued]
