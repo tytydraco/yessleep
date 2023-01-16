@@ -1,8 +1,8 @@
- We were never close. I actually barely even knew the man. Only what my dad had told me, ex military, lost a leg in a car accident, filthy rich, single ever since my grandmother passed away.
+We were never close. I actually barely even knew the man. Only what my dad had told me, ex military, lost a leg in a car accident, filthy rich, single ever since my grandmother passed away.
 
-I used to hate him. *Really hate him.* I saw the man maybe once or twice in my life, and I don't remember much of it, meaning it didn't matter enough to remember. He's never tried to be a part of my life, never tried to be my grandfather. All I had were mailed birthday cards and some pricy christmas presents. 
+I used to hate him. *Really hate him.* I saw the man maybe once or twice in my life, and I don't remember much of it, meaning it didn't matter enough to remember. He's never tried to be a part of my life, never tried to be my grandfather. All I had were mailed birthday cards and some pricy christmas presents.
 
-I moved into a single room apartment when I began college, and really struggled with finances for a while. I remember trying to call him, ask him for help. He never picked up any of those calls. While I know I didn't have any right to any of his money, it still stung a little that I didn't even get the chance to ask. It made me despise him even more. 
+I moved into a single room apartment when I began college, and really struggled with finances for a while. I remember trying to call him, ask him for help. He never picked up any of those calls. While I know I didn't have any right to any of his money, it still stung a little that I didn't even get the chance to ask. It made me despise him even more.
 
 But alas, here I sit among the maybe dozen others, not including my parents. Shouldn't rich people have a lot of people come to their funeral? I mean the only reason I came is because I got a call last week.
 
@@ -142,6 +142,10 @@ I gulped down my saliva and nodded to Ezekieel as a form of goodbye. I can see t
 
 "In case you have any questions, just call me." He said as I was already walking out the door.
 
-"I will!" I shouted back at him. 
+"I will!" I shouted back at him.
 
 I looked at the book after I got home. It had a lot of different chapters covering a lot of bat shit crazy sounding stuff, starting with "Soul collecting 101", and ending with "How to cheat death." I think I'm going to take my time reading [this.](https://www.reddit.com/user/Coureherritt)
+
+\---------------------------------------------------------------------------
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10dtn10/my_grandfather_included_me_in_his_will_before_he/)
