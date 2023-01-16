@@ -21,5 +21,3 @@ She put her hand on his forehead and said some strange phrases after that he wok
 He ended by saying ''that damn witch why did I trust her now we're all trapped in this town being forced to live with this terrible curse.''
 
 I left his house wondering if I should really believe him, but I think he's right, this town is not normal. I went back to my house and decided to write this. never pass through this town unless you want to be stuck here.
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/10dhhjg/my_city_is_cursed_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
