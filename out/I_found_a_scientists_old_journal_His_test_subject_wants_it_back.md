@@ -104,4 +104,4 @@ Did what?
 
 I looked downstairs. Three dead bodies, who I couldn't even tell apart were lying on the ground. All of them were covered in a black, inky substance. I just went to the bathroom and threw up. I'm not sure if I should be glad I survived or not. My new friend is a monster. My family is dead. I don't even know if I should call the police or not, since I don't know if I'll get involved with even more creepy science stuff. 
 
-I am terrified of monsters now. I want nothing to do with them.
+I am terrified of monsters now. I want nothing to do with them. Also, Dave stole my dad's stuff.
