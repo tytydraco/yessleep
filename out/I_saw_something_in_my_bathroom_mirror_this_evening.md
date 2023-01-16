@@ -54,7 +54,7 @@ And the man? Well, he had vanished.
 
 Alone, I stood in my fear.
 
-*What the fuck had just happened? What did he fuckin' mean? And, what the in the ever-loving fuck was he?*
+*What the fuck had just happened? What did he fuckin' mean? And, what in the ever-loving fuck was he?*
 
 I tried to collect myself, clearing my mind of the cloud of confusion and all the questions.
 
