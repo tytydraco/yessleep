@@ -59,11 +59,11 @@ I put on a shirt and made my way to the bathroom to wash my face, before heading
 
 
 
-Halfway there, I felt an overwhelming sadness come over me as I pictured her sad eyes again.
+Halfway there, I felt an overwhelming sadness come over me as I pictured her sad eyes.
 
 
 
-I walked back, peeping in through the door to see her sitting on the bed holding her head in her hands. "I love you", I said, hoping she wouldn't spot the uncertainty in my voice. 
+I walked back, and peeped in through the door to see her sitting on the bed holding her head in her hands. "I love you", I said, hoping she wouldn't spot the uncertainty in my voice. 
 
 
 
@@ -182,7 +182,7 @@ I couldn't help but feel conscious about how unnatural the "buddy" sounded, but 
 "Can you come over to my place for a few days? I think I need it. I think I need to talk to someone".
 
 
-"Umm… I think so? Are you still in Skokie?" I said unsurely. I didn't want to say no, but trying to squeeze in a weekend trip to Skokie (from Cleveland) would be tough given the heavy end of term workload. Besides, it seemed like he wanted someone around for more than a couple of days. "Is it okay if I did that next month once summer holidays start? Or if you want to come over here I could go over this Friday and drive you back to my place the next day. Linda and I would love to catch up with you!" 
+"Umm… I think so? Are you still in Skokie?" I said unsurely. I didn't want to say no, but trying to squeeze in a weekend trip to Skokie (from Cleveland) would be tough given the heavy end of term workload at the school I taught at. Besides, it seemed like he wanted someone around for more than a couple of days. "Is it okay if I did that next month once summer holidays start? Or if you want to come over here I could go over this Friday and drive you back to my place the next day. Linda and I would love to catch up with you!" 
 
 
 I somehow knew asking him to drive himself wouldn't be a good idea, and to be honest, I wasn't sure if he was allowed to, or if he even had a car anymore. I didn't want to risk embarrassing him by asking.
@@ -257,7 +257,7 @@ While he did answer when spoken to, he would look mildly irritated at being forc
 I'd been to his house, and his parents both seemed perfectly nice. His dad was very quiet and mild-mannered, his mom was a bit eccentric but seemed to love children. No one ever heard about any problems with the Blanks, and while the divorce came as a surprise, it was about as "mutual" as a divorce can get, with both parents continuing on civil terms. For all intents and purposes, Alireza Blank was a nihilistic grandpa stuck in the body of a plump little kid who perhaps quietly thought he was better than everyone else for reasons best known to him.
 
 
-In ninth grade, something happened that changed him for good. Maybe it was because he was already getting called names by that time, or maybe it was his parents, but he had become more detached than ever by that time. Then, one day, he made the mistake of crossing our English teacher, Mrs. Shaw. Mrs. Shaw, may god rest her soul, was a tiny woman with white frizzy hair who loved putting the fear of god into kids twice her size, and often their parents as well.
+In ninth grade, something happened that changed him for good. Maybe it was because he was already getting called names, or maybe it was his parents, but he had become more detached than ever by that time. Then, one day, he made the mistake of crossing our English teacher, Mrs. Shaw. Mrs. Shaw, may god rest her soul, was a tiny woman with white frizzy hair who loved putting the fear of god into kids twice her size, and often their parents as well.
 
 
 That year, we were asked to submit a final term essay at least 1500 - 2000 words long. That's a lot of words for a ninth grader, and all of us cursed and grumbled our way through it for a whole week, knowing there was a C+ waiting for us at the end if we were lucky. I'm sure Al hated it too, seeing as he submitted an essay that consisted of three short sentences. 
@@ -286,7 +286,7 @@ Al and I weren't really close in school. That only happened when we ended up in 
 Al was driven by two pursuits during our freshman year. One, he decided he never wanted to go to work and instead would follow his passion to become a full-time writer. When I say he "decided" that, I don't mean he casually shared that desire with his peers and professors. He became wholly fixated on it, the same way he hadn't let himself rest until he had wrenched an A out of Mrs. Shaw in tenth grade. In a way it made complete sense. Writing was the only thing he was good at, and perhaps more importantly the one thing that gave him a sense of purpose and identity. 
 
 
-He also developed a strong infatuation towards a tall, freckled girl from the Anthropology department. It just happens that I'd signed up for a beginner-level anthropology course for reasons totally unrelated to the girl, and naturally Al asked me to set him up with her. Now, no one believes me when I told them, but I swear I didn't know she would fall for me instead, despite my best efforts to put in several good words for Al. In time, I fell in love with her too, and that's how Linda Brooking became Mrs. Linda Cheeseman seven years later.
+He also developed a strong infatuation towards a tall, freckled girl from the Anthropology department. It just happens that I'd signed up for a beginner-level anthropology course for reasons totally unrelated to the girl, and naturally Al asked me to set him up with her. Now, no one believes me when I tell them, but I swear I didn't know she would fall for me instead, despite my best efforts to put in several good words for Al. In time, I fell in love with her too, and that's how Linda Brooking became Mrs. Linda Cheeseman seven years later.
 
 
 If Al had any negative feelings when Linda and I started dating, he did a pretty good job of hiding it. Apart from giving us more space as a couple, he still spoke to me the same way and sat next to me in class. He always remained a shy and awkward around Linda, but he was that way around women in general. 
@@ -313,7 +313,7 @@ But that wasn't nearly the end of it! When it hit the shelves, the book started 
 Funnily enough, and I hate saying this about a friend's work, I didn't quite see the appeal after reading it. It was your average murder mystery with a somewhat interesting twist at the end that I frankly saw coming before I got halfway through. But heck, what the hell did I, an English teacher at your run-of-the-mill school know how these things work! And even if it was a fluke, even if these things are just a matter of luck and good publicity, I wasn't gonna begrudge Al his moment in the sun after he had busted his gut for it for so long!
 
 
-Now, when you sell those kinds of numbers as an author, it goes without saying that you're going to earn yourself a book deal. Al announced it to the guests after getting quite drunk at his own wedding, which happened three months after he got published. I got pretty drunk myself and Linda had to drive us home the next morning. I didn't know it then, but that was the last time I would see Al.
+Now, when you sell those kinds of numbers as an author, it goes without saying that you're going to earn yourself a book deal. Al announced it to the guests after getting quite drunk at his wedding, which happened three months after he got published. I got pretty drunk myself and Linda had to drive us home the next morning. I didn't know it then, but that was the last time I would see Al.
 
 
 We would occasionally talk over the phone until around two to three years afterwards, when things took a weird turn. Al's second book came out. It was the second installment in the initial deal he had signed. 
@@ -324,7 +324,7 @@ I didn't find it any better or worse than the first one, but it didn't come anyw
 About a week after the book came out, Al had a psychotic episode. He got violent at home with Becca, and accused her of colluding with his own mother in conspiring against him or trying to kill him. He then proceeded to try to take his own life, failed, and subsequently went through a prolonged treatment for schizophrenia. 
 
 
-It was around this point that he cut off all contact with me, and indeed with nearly everyone else he knew. Becca would pick up when I would call, telling me he wasn't available, or it wasn't a good time. I didn't know whether to trust her, until one day when he picked up himself and told me he didn't want me to call again. 
+It was around this point that he cut off all contact with me, and indeed with nearly everyone else he knew. Becca would pick up when I would call, telling me he wasn't available, or it wasn't a good time. I would keep checking in periodically, until one day when he picked up himself and told me he didn't want me to call again. 
 
 
 The last time I heard about Al was from a mutual friend, at a high school reunion many years ago. Al had cut him off too, but his wife knew someone in Becca's immediate family. They'd told him that Becca had gotten herself a divorce after Al displayed further bouts of unexplained rage. 
@@ -340,7 +340,7 @@ x-x-x-x
 When I pulled up to Al's driveway that summer, my stomach sank a bit. It was completely overrun by weeds that were spilling over from the filthy front lawn. The house looked like it had seen much better days, with the paint peeling off in many places. Linda and I had discussed the possibility that Al might be in need of money, and if I should make the offer myself without waiting for him to ask. That seemed increasingly likely now.
 
 
-Al was waiting for me near the rusted garage door. I could tell he had been trying to unjam it for a while. When I got out, he stared blankly at me for a good few seconds before breaking into what felt like a forced smile and offered his hand, which I shook. He had lost most of his hair, which made him look older than he was supposed to at his age. His eyes looked like he didn't get much sleep. 
+Al was waiting for me near the rusted garage door with a toolbox near his feet. I could tell he had been trying to unjam it for a while. When I got out, he stared blankly at me for a good few seconds before breaking into what felt like a forced smile and offered his hand, which I shook. He had lost most of his hair, which made him look older than he was supposed to at his age. His eyes looked like he didn't get much sleep. 
 
 
 We exchanged pleasantries before Al led me inside. The first thing that hit me was a mild musty smell that comes with a lack of ventilation. The second thing I noticed, once my eyes adjusted to the poor light, was the massive amounts of junk that cramped the living space. Discarded boxes, heaps of paper tied together with rope, and the whole gamut that comes with being a hoarder.
@@ -358,7 +358,7 @@ I didn't know where to start as I sat down on the sofa with a bunch of old files
 "Nothing. Nothing you'd want to know about now, at any rate. Unless you're okay with breaking into someone's house. Are you?"
 
 
-I widened my eyes.
+I widened my eyes in alarm.
 
 
 "I'm joking", he said, shaking his head.
@@ -373,7 +373,7 @@ I wasn't so sure he was.
 "That's why I asked you to come here. But it's not the right time now. They won't be here till next week, so we just have to stick it out for the weekend. Sorry about the house being a mess, you can take the extra bedroom upstairs. That one's pretty uncluttered. If you've got something to say about all the stuff I have in here, don't".
 
 
-"They…?"
+"Okay. Who is "they"…?"
 
 
 "You'll know", he quipped dismissively.
@@ -403,7 +403,7 @@ I did exactly that over the weekend, casually broaching on the subject while we 
 "I know you're confused. You'll see soon enough".
 
 
-After several more attempts at trying to get him to talk to me, I made up my mind to leave at the earliest chance. I did not feel qualified enough to help him, and he was strongly resisting all attempts at conversation. I didn't want to drag a grown adult to a doctor against his wishes, besides, these things never work if the person isn't willing to talk.
+After several more attempts at trying to get him to talk to me, I made up my mind to leave at the earliest chance. I did not feel qualified enough to help him, and he was strongly resisting all attempts at conversation. I didn't want to drag a grown adult to a doctor against his wishes. Besides, these things never work if the person isn't willing to talk.
 
 
 And to be perfectly honest, I was starting to get a bit spooked by this point, and there was absolutely nothing to do in this place when your host wasn't even up for conversation. I fell asleep that night while trying to think of excuses to leave early the next day, and if I could find other ways of finding him the help he clearly needed.
@@ -411,7 +411,7 @@ And to be perfectly honest, I was starting to get a bit spooked by this point, a
 
 I don't know how long I'd slept, but I was jolted awake by Al shaking the daylights out of me. 
 
-I let out a cry in horror as I took in what was happening. 
+I let out a cry in horror as I took in what was happening. I looked at my phone, which said it was just past midnight.
 
 "Ron, WAKE UP! THEY'RE HERE! They're fucking here!" he hissed loudly, almost menacingly.
 
@@ -435,13 +435,13 @@ If the circumstances were any different, I'd go on for a bit about just how bad 
 "You see that?" he hissed softly, pointing to a car that was pulling into the garage across the street.
 
 
-"What's going on?" I asked, bewildered.
+"What the fuck is going on?" I asked, bewildered.
 
 
 "You're gonna need this", he said, handing me a pair of binoculars. "And don't make a noise or they'll hear you. That's why I've kept the lights off".
 
 
-"Al… seriously. You've got to stop. You've got to stop this man", I said, pushing them away. 
+"Al… seriously. You've got to stop. You've got to stop this man", I said, pushing his hand away. 
 
 
 "Just take a look. If you think I've wasted your time you can get me admitted in any psych ward of your choice", he said, still pointing to the car across the street.
@@ -450,13 +450,15 @@ If the circumstances were any different, I'd go on for a bit about just how bad 
 I started saying what I wanted to say, before deciding not to. I indulged Al, more out of fear for my safety if I didn't comply than anything else.
 
 
-I looked through the binoculars as two figures exited the garage. One was a short woman whose greyish white hair seemed to glisten under the street light as she locked the door behind her. She proceeded to push a rather large young man on a wheelchair towards the front door of their house. They were talking, though I couldn't hear what they were saying through the closed glass window in Al's room.
+I looked through the binoculars as two figures exited the garage across the street. One was a short woman whose greyish white hair seemed to glisten under the street light as she locked the door behind her. She proceeded to push a rather large young man on a wheelchair towards the front door of their house. They were talking, though I couldn't hear what they were saying through the closed glass window in Al's room.
 
 
-Not that I cared for that, because my jaw was already on the floor by this point. A cold shiver ran through my spine as my brain was trying to make sense of what my eyes were seeing. It was Mrs. Shaw and Big Bob Watkins. Of course, the shock would have come from the sheer bizarreness of them living together for some unfathomable reason. Except for the small matter that they also looked exactly as they did from the time I knew them at school, over 18 years ago. There was no way Bob could still have looked like that well into his late-30s, and both Al and I had been to Mrs. Shaw's funeral during our final year at university.
+Not that I particularly cared to eavesdrop, because my jaw was already on the floor by this point. A cold shiver ran through my spine as my brain was trying to make sense of the impossibility that my eyes were witnessing. It was Mrs. Shaw and Big Bob Watkins, looking for all intents and purposes exactly as they did from the time I knew them at school, over 18 years ago. 
+
+There was no way Bob could still have looked like that well into his late-30s, and both Al and I had been to Mrs. Shaw's funeral during our final year at university.
 
 
-I turned to Al in shock, who had pre-emptively put a finger on his lips. His eyes were wide and had a crazed look about them.
+I turned to Al in shock, who had pre-emptively put a finger on his lips. His looked back at me with a crazed look in his eyes.
 
 
 "Al", I whispered, my hands trembling as their grip on the binoculars loosened. "What the fuck?!"
