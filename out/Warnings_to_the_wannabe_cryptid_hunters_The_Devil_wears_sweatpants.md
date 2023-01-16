@@ -189,7 +189,7 @@ It was a man, not much younger than me, resembling distinctly the memories I had
 
 He was in a dimly lit holding cell; in the corner a pile of what I reluctantly identified as feces, and he kept throwing himself against the bars again and again, howling like a madman. It was horrifying beyond measure. I couldn’t say a thing, merely covering my eyes helplessly until Nick turned off the tv and the noises ceased.
 
-“Well, I reckon that was a bit distressing to see. But trust me, he’s getting what he deserves. I don’t take kindly to people who seek to topple humanity themselves. That’s my show to run.” He let go of a soft sigh. “Jeremy Novak, mass murderer. Never got caught to face a human jury, and after number forty-two, I just had to intercede. So I sent someone to prematurely collect his soul for me.” He gave me a swift pet on the knee. “And I bet you can guess who.”
+“Well, I reckon that was a bit distressing to see. But trust me, he’s getting what he deserves. I don’t take kindly to people who seek to topple humanity themselves. That’s my show to run.” He let go of a soft sigh. “Jeremy Novak, serial killer. Never got caught to face a human jury, and after number forty-two, I just had to intercede. So I sent someone to prematurely collect his soul for me.” He gave me a swift pet on the knee. “And I bet you can guess who.”
 
 [X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
 
