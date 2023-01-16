@@ -64,7 +64,7 @@ I lay motionless. If Brad found me there was little I could do. He began to tear
 
 His burly arm grabbed my collar. As he pulled me into the open, I plunged the knife into his hand. Brad wailed in pain. His face turned bright red, practically foaming at the mouth. 
 
-I rolled over to my side and shot to my feet. Before I could make it a foot, Brian kicked my legs out from underneath me. Falling to the floor, I grabbed for anything to catch myself. My fingers landed on the knife. It fell with me, leaving behind a gaping hole in Brad's hand. He didn’t even flinch. 
+I rolled over to my side and shot to my feet. Before I could make it a foot, Brad kicked my legs out from underneath me. Falling to the floor, I grabbed for anything to catch myself. My fingers landed on the knife. It fell with me, leaving behind a gaping hole in Brad's hand. He didn’t even flinch. 
 
 “I’ve wanted to say something to you for years. You looked down on me ever since my life went to shit. You loved finally being better than me. That all changes tonight.” Brad towered over me. His smirk said it all. 
 
