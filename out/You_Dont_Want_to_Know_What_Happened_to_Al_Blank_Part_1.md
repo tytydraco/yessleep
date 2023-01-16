@@ -411,11 +411,11 @@ And to be perfectly honest, I was starting to get a bit spooked by this point, a
 
 I don't know how long I'd slept, but I was jolted awake by Al shaking the daylights out of me. 
 
-I let out a cry in horror as I took in what was happening. I looked at my phone, which said it was just past midnight.
+I let out a cry in horror as I took in what was happening. 
 
 "Ron, WAKE UP! THEY'RE HERE! They're fucking here!" he hissed loudly, almost menacingly.
 
-"Al, what the — what is wrong with you?" I said, trying to shake him off.
+"Al, what the — what is wrong with you?" I said, trying to shake him off. I looked at my phone, which said it was just past midnight.
 
 "COME ON, there's no fucking time. You want to see this, I've been waiting to show you for so long!"
 
@@ -455,13 +455,13 @@ I looked through the binoculars as two figures exited the garage across the stre
 
 Not that I particularly cared to eavesdrop, because my jaw was already on the floor by this point. A cold shiver ran through my spine as my brain was trying to make sense of the impossibility that my eyes were witnessing. It was Mrs. Shaw and Big Bob Watkins, looking for all intents and purposes exactly as they did from the time I knew them at school, over 18 years ago. 
 
-There was no way Bob could still have looked like that well into his late-30s, and both Al and I had been to Mrs. Shaw's funeral during our final year at university.
+Leaving aside the fact that it made no sense to see them living together, there was no way Bob could still have looked like that well into his late-30s. Even more pertinently, Al and I had been to Mrs. Shaw's funeral during our final year at university.
 
 
-I turned to Al in shock, who had pre-emptively put a finger on his lips. His looked back at me with a crazed look in his eyes.
+I turned to Al in shock, who had pre-emptively put a finger on his lips. He looked back at me in the darkness with a crazed look in his eyes.
 
 
-"Al", I whispered, my hands trembling as their grip on the binoculars loosened. "What the fuck?!"
+"Al", I whispered, my hands trembling as their grip on the binoculars loosened. "What the fuck is going on?!"
 
 
 Al slowly pulled his finger away from his lips, that maniacal look still on his face
