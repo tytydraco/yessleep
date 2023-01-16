@@ -453,7 +453,7 @@ I started saying what I wanted to say, before deciding not to. I indulged Al, mo
 I looked through the binoculars as two figures exited the garage across the street. One was a short woman whose greyish white hair seemed to glisten under the street light as she locked the door behind her. She proceeded to push a rather large young man on a wheelchair towards the front door of their house. They were talking, though I couldn't hear what they were saying through the closed glass window in Al's room.
 
 
-Not that I particularly cared to eavesdrop, because my jaw was already on the floor by this point. A cold shiver ran through my spine as my brain was trying to make sense of the impossibility that my eyes were witnessing. It was Mrs. Shaw and Big Bob Watkins, looking for all intents and purposes exactly as they did from the time I knew them at school, over 18 years ago. 
+Not that I particularly cared to eavesdrop, because my jaw was already on the floor by this point. A cold shiver ran down my spine as my brain tried to make sense of the impossibility that my eyes were witnessing. It was Mrs. Shaw and Big Bob Watkins, looking for all intents and purposes exactly as they did from the time I knew them at school, over 18 years ago. 
 
 Leaving aside the fact that it made no sense to see them living together, there was no way Bob could still have looked like that well into his late-30s. Even more pertinently, Al and I had been to Mrs. Shaw's funeral during our final year at university.
 
