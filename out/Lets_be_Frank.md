@@ -178,7 +178,7 @@ I slipped the iron tip into the gothic lock and heard the tumblers click into pl
 
 I didn't know what to do. Could have been standing there stricken in fear all day. But I decided, eventually, that were not a thing for me. Nor a place I wanted to spend time in any longer. So I found a place, wide enough, for me to lay down Old Mamie. And I backed away, with my eyes still on the standing dead. Closing the door shut behind me, and knotting the lock.
 
-And here's the part where I wished that curiosity didn't best me. But it did. As I looked through the bars near the top of the door and saw the figure of Old Mamie, lying on the floor, slowly start to rise. Causing the dirt to fall from her hair as her broken legs creaked uncertainly next to an old man that I recognized from the photo albums at her wake, to be none other than Don Strue, her husband.
+And here's the part where I wished that curiosity didn't best me. But it did. As I looked through the bars near the top of the door and saw the figure of Old Mamie, lying on the floor, slowly start to rise. Causing the dirt to fall from her hair as her broken legs creaked uncertainly next to an old man that I recognized from the photo albums at her wake, to be none other than Don Strue, her late husband.
 
 I wished I could have found it to be sweet, but truth is, I ran back to my house and slammed the door shut, and would not have come out for several days. More, if I had my choice, if not for the trees.
 
