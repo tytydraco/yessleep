@@ -1,5 +1,3 @@
-# The Salted Desperation of a Powerless Soul
-
 **A strange sound.** As if something is calling me from the depths of a dark abyss. Opening my eyes I am overcome by a thick, green liquid that is slithering out from the walls and floors of my apartment.
 
 It is alive, creeping around my furniture like an unyielding monster, leaving a slimy, sticky residue in its wake. It is a sight of horror, like something from a nightmare, a swamp full of toxic waste that has come alive. The liquid is dark and murky, swirling around my belongings, slowly devouring them one by one.

@@ -435,7 +435,7 @@ If the circumstances were any different, I'd go on for a bit about just how bad 
 "You see that?" he hissed softly, pointing to a car that was pulling into the garage across the street.
 
 
-"What the fuck is going on?" I asked, bewildered.
+"What is going on?" I asked, bewildered.
 
 
 "You're gonna need this", he said, handing me a pair of binoculars. "And don't make a noise or they'll hear you. That's why I've kept the lights off".
