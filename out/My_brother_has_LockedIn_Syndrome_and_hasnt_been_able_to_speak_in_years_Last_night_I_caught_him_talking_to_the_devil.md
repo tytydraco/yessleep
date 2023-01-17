@@ -100,4 +100,4 @@ My mom was dead. A frothy substance pooled around her mouth. An overturned cup o
 
 “The deal has been accepted. Two brothers damned to the same fate. I’ll make my leave now. See you soon; sooner than you think.
 
-“Hey bro. Have you seen mom?” A cold hand clutched my shoulder and the world started to spin.
+“Hey bro. Have you seen mom?” A cold hand clutched my shoulder.
