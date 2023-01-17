@@ -92,7 +92,7 @@ The men shook their heads. The Mayor stating loudly, "This is your job. We're on
 
 "They'll eventually break," the Priest replied.
 
-No one else said another word, so I nodded during the silence, "Alright. Here we go then." I pushed the casket until it was near the mouth. And then with as much gentleness as I could manage, I lowered the thing inside. Indeed the wood groaned as it cracked open in one corner when my leverage gave. I looked up afraid of what I had done, but none of the men were concerned. So I carried on as nothing had changed.
+No one else said another word, so I nodded during the silence, "Alright. Here we go then." I pushed the casket until it was near the mouth. And then with as much gentleness as I could manage, I lowered the thing inside. Indeed the wood groaned as it cracked open in one corner when my leverage gave. I looked up afraid of what I had done, but none of the men were concerned. So I carried on, as nothing had changed.
 
 When I finished laying it flat, I got the shovel in my hands again and piled on the dirt.
 
@@ -166,7 +166,7 @@ Shaken, I too, hurriedly left. Letting the door swing behind me, peeking only in
 
 I clutched the key in hand, stumbling over the sidewalk as I made my way, clawing and trying to find my footing, until my feet found fair ground and broke into a flat out run. I would have kept going if it hadn't been for my promise to make things right with old Mamie. And if I lived to be a hundred, I'll never understand why my word seemed so important that day. Perhaps it was also the way the Mayor looked at me, expecting me to fulfill my duties. And I dared not care to find the else.
 
-Whatever the cause, my run came to a jog, and then walk as I drew closer to the cemetery, catching my breath, staring at the long road ahead of me, out of Achnought, ahead. Knowing that no one could stop me if I just kept going. Instead, I turned at the gate, walked between the rows of gravestones sticking out of the ground like sore thumbs, in order to crouch next to the old figure that was Mamie Strue.
+Whatever the cause, my run came to a jog, and then walkd ' as I drew closer to the cemetery, catching my breath, staring at the long road out of Achnought, ahead. Knowing that no one could stop me if I just kept going. Instead, I turned at the gate, walked between the rows of gravestones sticking out of the ground like sore thumbs, in order to crouch next to the old figure that was Mamie Strue.
 
 She was still laying as I left her. Neat, and frail looking as ever. Nothing terrifying, other than the fact that death had come to her, touched her, took her. So I placed my hands over where death might have, and carried her to the mausoleum.
 

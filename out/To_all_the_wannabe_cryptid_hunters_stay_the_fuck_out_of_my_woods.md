@@ -183,3 +183,5 @@ Secondly, and this is for all the others, if you’ve heard of my or any other h
 
 
 [Part 14](https://www.reddit.com/r/nosleep/comments/10dbk6i/warnings_to_the_wannabe_cryptid_hunters_the_devil/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 15](https://www.reddit.com/r/nosleep/comments/10ebyr1/warnings_to_the_wannabe_cryptid_hunters_the_sauna/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
