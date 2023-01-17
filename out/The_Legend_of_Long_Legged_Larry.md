@@ -290,7 +290,7 @@ They think they’ll be famous, they’ll come back as heroes and can upload the
 
 Yet, I’ve got to keep watch. Not because this thing might get out. I know it doesn’t want to.
 
-No, I’ve got to keep watch for those dumb enough to come here, dumb enough to believe in the stories such as the Legend of Long Legged Larry.
+No, I’ve got to keep watch for those dumb enough to come here, dumb enough to believe in the stories such as the [Legend of Long Legged Larry.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2FRehnWriter)
 
 [YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)
 
