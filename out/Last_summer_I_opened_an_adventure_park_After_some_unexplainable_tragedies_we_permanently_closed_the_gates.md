@@ -16,7 +16,7 @@ Tess worked on the Ghost Train ride. She was setting up decorations and lighting
 
 An animatronic in a purple pinafore.
 
-Tess described the machine as a short girl with a grey face, baby-blue eyes, and the menacing mouth of a metallic nutcracker. It was nearly ten in the evening, and I was too tired to deal with yet *another*issue. Some of the other late-night workers teased Tess, and I admit that I thought she must just be confused. I assumed that another member of staff had installed the animatronic.
+Tess described the machine as a short girl with a grey face, baby-blue eyes, and the menacing mouth of a metallic nutcracker. It was nearly ten in the evening, and I was too tired to deal with yet *another* issue. Some of the other late-night workers teased Tess, and I admit that I thought she must just be confused. I assumed that another member of staff had installed the animatronic.
 
 Begrudgingly, a few of us accompanied Tess to the Ghost Train tunnels, and we were unsurprised to find no sign of her mechanical ghoul. The girl was distraught, and I originally thought that was due to the incessant mocking from her co-workers.
 
