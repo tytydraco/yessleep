@@ -10,9 +10,9 @@ The first few days passed without incident. My husband and I spent our nights un
 
 One night, about 3 weeks after we moved in, I went into the yard to fetch them for dinner. I called out, but got no response. As I got closer I saw that my youngest had his head through the dirty old tire while his brother stood with his arms crossed and annoyed expression. I told him to get his head out of it because it was muddy, but he just swung around and laughed.
 
-"I look like the woman now mommy!" He said.
+"I look like the man now mommy!" He said.
 
-I looked at my oldest and could see he shared my concern. I ushered them back into the house, telling myself it was just typical 5-year-old imagination. Still, he seemed a little old to be having imaginary friends. 
+I looked at my oldest and could see he shared my concern. I ushered them back into the house, telling myself it was just typical 5-year-old imagination. Still, he seemed a little old to be having imaginary friends.
 
 It started with glimpses of something dangling beside the swing out of the corner of my eye. Every time I turn to get a closer look it would be gone. My husband thought the stress of the move was making me paranoid, but I knew better. Every now and then I'd catch myself staring at the tire swing. I'd hear it swinging from the living room and turn to stare at it, only to see it completely still. Then I'd go back inside and try not to think about it.
 
@@ -32,8 +32,8 @@ A man was hanging by his neck on the tree. The skin on his face was darkening an
 
 When I woke I was lying on the floor surrounded by my husband and children. There was no sign of blood, and the boys seemed to be fine. My husband told me I had collapsed and the children had found me lying here. He said they tried to wake me up, but I was unresponsive.
 
-I was taken to hospital where the doctor informed me that there didn't seem to be anything wrong with me, but this kind of thing could happen for any number of reasons. I was told to keep a close eye on my health for a while. 
+I was taken to hospital where the doctor informed me that there didn't seem to be anything wrong with me, but this kind of thing could happen for any number of reasons. I was told to keep a close eye on my health for a while.
 
-I still saw the body in the corner of my sight. I still heard the heavy rope swinging. I knew what I saw was more than a hallucination. So, I did some research. Apparently the house we lived in had been bought and sold 8 times before us. No occupant had lived here for longer than a year with the exception of the first man to own the house, Victor Weldon. Victor died at the age of 79 after a long battle with schizophrenia. He had... hung himself from the tree in the front yard and wasn't discovered until his cleaner found him, 5 weeks later. 
+I still saw the body in the corner of my sight. I still heard the heavy rope swinging. I knew what I saw was more than a hallucination. So, I did some research. Apparently the house we lived in had been bought and sold 8 times before us. No occupant had lived here for longer than a year with the exception of the first man to own the house, Victor Weldon. Victor died at the age of 79 after a long battle with schizophrenia. He had... hung himself from the tree in the front yard and wasn't discovered until his cleaner found him, 5 weeks later.
 
 I don't think I can stay here anymore.
