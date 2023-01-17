@@ -44,4 +44,4 @@ These Audio logs belong to \[REDACTED\] who was reported missing 2 days after th
 
 The Victims family was told that \[REDACTED\] was attacked by an animal, to attempt to spare some greif, and \[REDACTED\] National Park was shut down due to "Wild animal attacks", The victims family does not believe the story, since they claim that we should have at least found bones.
 
-The supposed "thing" that killed \[REDACTED\] has yet to be identified. But FBI investigators are considering the possibilty of a supeernatural creature known as the Wendigo, that is native to these areas.
+The supposed "thing" that killed \[REDACTED\] has yet to be identified. But FBI investigators are considering the possibilty of a supernatural creature known as the Wendigo, that is native to these areas.

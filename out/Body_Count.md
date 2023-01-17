@@ -46,7 +46,7 @@ H.E.L.L. H.E.L.L. H.E.L.L.
 
 &#x200B;
 
-Wild theories after that. A lot of at home accidents from fanatic groups, as electricity use in occults started resurged.
+Wild theories after that. A lot of at home accidents from fanatic groups, as electricity use in occults started to resurge.
 
 And I sometimes wondered about the mysticism of it myself. It's difficult not to have some sort of obsession with volts and amps, or Tesla coils while in this field. For instance, when electric cars were commercialized, I embraced them. Watches. Books on my kindle. It seems like such an odd thing to say for someone in such an archaic profession, but it is true.
 
