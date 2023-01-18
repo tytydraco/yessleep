@@ -98,9 +98,9 @@ The case against Mr Ellis has brought to light the dangers of unregulated virtua
 
 While the victims of The Eighth Circuit, many of whom have suffered irreparable harm, are still struggling to come to terms with their experiences and the betrayal of trust, the legal proceedings against Mr Ellis and his associates continue.
 
-*Article by: Emmett Morris*
+*Article by:* [*Emmet Morris*](https://www.reddit.com/user/oneofthosestrangerrs/comments/10f4cl7/emmet_morris_the_investigator/)
 
-*17 December 2012 — 5:00 pm GMT*
+*17 December 2022 — 5:00 pm GMT*
 
 Click **here** to stay up to date with all developments related to this article.
 
