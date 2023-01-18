@@ -1,4 +1,4 @@
-Okay, so I have this urge to post this here. I' not sure what else to do. It just feels like i have to, or something bad will happen to me. Okay, so a few days ago, I was rummaging through my friend's attic when I stumbled upon a pile of paper. I picked them up and noticed that they were the pages of a screenplay. I had no idea why my friend would have these, especially since he wasn't a huge reader, and these pages looked old. Like they had dust and shit all over them. They were in pretty shit shape. 
+Okay, so I have this urge to post this here. I'm not sure what else to do. It just feels like i have to, or something bad will happen to me. Okay, so a few days ago, I was rummaging through my friend's attic when I stumbled upon a pile of paper. I picked them up and noticed that they were the pages of a screenplay. I had no idea why my friend would have these, especially since he wasn't a huge reader, and these pages looked old. Like they had dust and shit all over them. They were in pretty shit shape. 
 
  
 
