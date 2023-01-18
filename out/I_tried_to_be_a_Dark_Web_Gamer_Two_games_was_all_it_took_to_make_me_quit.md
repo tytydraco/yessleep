@@ -112,9 +112,8 @@ The ones who are in scope you out after you’ve shown interest on a message boa
 
 They then basically hack your private life for two reasons:
 
-1) To make sure you’re someone who can be trusted
-
-2) To use as leverage in case you decide to snitch.
+1. To make sure you’re someone who can be trusted
+2. To use as leverage in case you decide to snitch.
 
 &#x200B;
 
@@ -242,7 +241,7 @@ The screen went black, and a new image loaded on my monitor (the one that was lo
 
 It looked like a photograph which had been pixelated.
 
-Imagine the ending picture of the original “Resident Evil 2” on the PS1, which shows what happened to all of the characters after the main story line concludes, and that will give you a pretty good idea of what I saw. 
+Imagine the ending picture of the original “Resident Evil 2” on the PS1, which shows what happened to all of the characters after the main story line concludes, and that will give you a pretty good idea of what I saw.
 
 A young man with a poker face seemed to be sitting before a metal table, utterly motionless.
 
@@ -306,15 +305,13 @@ The following are all the responses I chose with his answers in bold.
 
 *“How he killed Sam”*
 
-***“Alright alright. As you wish. I knew Sam lived home alone so I enacted my perfect murder. The perfect murder isn’t about how you kill someone. It’s about how you cover it up, and I knew that disposal would be my biggest problem. So I planned things out. I started to work at a taxidermy shop in town with my son, under the guise that I was being a good supporter for him to get some good extracurricular activity for his college applications. Mr. Flank, the owner of the shop, mainly made animal skeletal models and shipped them internationally to institutes of education. You know how he’d extract the bones so cleanly? There are special worms that eat only flesh. People like Mr. Flank have entire containers full of them. They just throw in the carcass part and wait for the worms to eat it clean. I found a big enough tray, and stole some worm eggs from Mr. Flank. I raised them all on my own patiently. Once they were fully grown, I put an ad on***
+***“Alright alright. As you wish. I knew Sam lived home alone so I enacted my perfect murder. The perfect murder isn’t about how you kill someone. It’s about how you cover it up, and I knew that disposal would be my biggest problem. So I planned things out. I started to work at a taxidermy shop in town with my son, under the guise that I was being a good supporter for him to get some good extracurricular activity for his college applications. Mr. Flank, the owner of the shop, mainly made animal skeletal models and shipped them internationally to institutes of education. You know how he’d extract the bones so cleanly? There are special beetles called Dermestid Beetles that eat only flesh. People like Mr. Flank have entire containers full of them. They just throw in the carcass part and wait for the beetles to eat it clean. I found a big enough tray, and stole some beetle eggs from Mr. Flank. I raised them all on my own patiently. Once they were fully grown, I put an ad on Craigslist for a child skeleton model.***
 
-***Craigslist for a child skeleton model.***
-
-***After all that was said and done, I just lured Sam down, killed him, and threw him into the vat. A week I waited, and the worms had done their job. I then shipped the skeleton off, and out of my life for good.***
+***After all that was said and done, I just lured Sam down, killed him, and threw him into the vat. A week I waited, and the beetles had done their job. I then shipped the skeleton off, and out of my life for good.***
 
 ***Simple as that.***
 
-***I then just burned the worms along with Sam’s clothes and that was that. It was as if nothing had ever happened.”***
+***I then just burned the beetles along with Sam’s clothes, buried his organs out in the forest along with a few worms for good measure, and that was that. It was as if nothing had ever happened.”***
 
 &#x200B;
 
@@ -404,7 +401,7 @@ The screen went black for another second, and the container was open in the pict
 
 Even though it was pixelated, the detail almost made me vomit.
 
-It was another body, fresh, covered by worms.
+It was another body, fresh, covered by what I assumed to be beetles.
 
 A single white piece of paper lay on it.
 
