@@ -132,7 +132,7 @@ I scanned the group of people before spotting Elizabeth. She was standing nervou
 
 *“Hey, Liz…”,* I whispered. Her head jerked up, it took a moment for her to figure out what was happening and when she did, I felt a hard fist shoved into my gut. 
 
-“What the fuck is wrong with you.”, she whispered back, with venom sting behind every word.
+“What the fuck is wrong with you.”, she whispered back, with venom stinging behind every word.
 
 “What do you think? I’m going in with you, and we’re getting out of here. Alive.” I replied, rubbing my stomach where she had punched me.
 
