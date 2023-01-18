@@ -36,7 +36,7 @@ The most terrifying thing about that mannequin was its pale, featureless face. A
 
 **Clownville:**
 
-Everything disintegrated in August. All of the park’s horrendous tragedies were either secrets or, in the case of D-11, easily rationalised. The actions of the blueberry man had not yet come to light, so it was only the case of the two missing children from the obstacle course that had incited any form of police investigation.
+Everything disintegrated in August. All of the park’s horrendous tragedies were either secrets or, in the case of D-11, easily rationalised. The actions of the blueberry man had not yet come to light, so it was only the case of the two missing children from the obstacle course that had led to any form of police investigation.
 
 But our gates were still open. I wish we’d been closed down sooner.
 
@@ -92,7 +92,7 @@ Chubby Clown, Cute Clown, and Crazy Clown were all sitting on the sofa before me
 
 I’m not sure how long I froze, but I was suddenly aware of guttural breathing.
 
-Squirrelled away in the corner of the tiny tented area, I saw him. John. Chief Clown. He no longer looked human. He was on his haunches. The horrible, black-eyed mask had been stitched to his face. That jolly grin beamed at me. On the grass, I spotted an assortment of bloodied surgical tools and circular strips of flesh. Faces.
+Squirrelled away in the corner of the tiny tented area, I saw him. John. Chief Clown. He no longer looked human. He was on his haunches. The horrible, black-eyed mask had been stitched to his face. That jolly grin beamed at me. On the grassy ground, I spotted an assortment of bloodied surgical tools and circular strips of flesh. Faces.
 
 Before I could utter a sound, Chief Clown was scuttling towards me on all-fours. He lunged, and I blindly swung my fist. It connected with John’s jaw, producing an almighty cracking sound, and the deranged sub-human fell backwards. I grimaced in horror at his twisted neck. *I’ve killed him*, I thought.
 

@@ -1,4 +1,4 @@
-A series of suspicious 911 calls made into Branchview 911's Dispatch Center throughout the night of December 2, 2022. the police officers in question, Officer McKinley, is accused of not investigating the scene of the calls better, not taking witness accounts more seriously, and not protecting the wellness of the citizens of Branchview, all of which is against the oath they took. The board will now decide the fate of the two officers. The following transcripts below are the calls that took place outside, and inside the Argent Apartment Building.
+A series of suspicious 911 calls made its way into Branchview 911's Dispatch Center throughout the night of December 2, 2022. The police officer in question, Officer McKinley, is accused of not investigating the scene of the calls better, not taking witness accounts more seriously, and not protecting the wellness of the citizens of Branchview, all of which is against the oath they took. The board will now decide the fate of the two officers. The following transcripts below are the calls that took place outside, and inside the Argent Apartment Building.
 
 **Branchview 911 Dispatch Center - December 2nd, 2022 - 10:29 PM**
 
@@ -66,4 +66,4 @@ A twenty-year-old college student placed a call approximately three minutes befo
 
 The transcript of that call is located below.
 
-\_\_\_\_\_\_
+[Jessica Sanders - The Second Call](https://www.reddit.com/r/nosleep/comments/10exn54/the_argent_apartment_massacre_a_collection_of_911/)

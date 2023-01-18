@@ -1,20 +1,13 @@
-The first day I saw him, my mother had just passed away. I was 17 when it happened, nothing more than a background character in a school full of similar souls. I lost my mother to a fire at my high school, which claimed 9 lives. I remember it was a cold day in November, and there was a buzz among the students for the 4 day weekend we were granted in light of Thanksgiving. We were all eager to leave for the break but this prospect hung in the shadow of semester finals which stood between us and our reprieve.
+When a tragedy happens, it's the weirdest thing. There's no music to build tension. There's no foreboding presence. There isn't something stitching together inclinations that maybe anything else aside from the ordinary is ever going to happen. The moment it does, however, the moment a travesty rears its foul maw and bares its fangs of misfortune and grief, it comes and goes in the blink of an eye. It quickly leaves only the bystanders and survivors to witness the wake of its unpredictable rage.  
 
-&#x200B;
+
+The first day I saw him, my mother had just passed away. I was 17 when it happened, nothing more than a background character in a school full of similar souls. I lost my mother to a fire at my high school, which claimed 9 lives. I remember it was a cold day in November, and there was a buzz among the students for the 4 day weekend we were granted in light of Thanksgiving. We were all eager to leave for the break but this prospect hung in the shadow of semester finals which stood between us and our reprieve.
 
 My mom worked as the English teacher for juniors, situated on the lowest floor of the school. We all liked to call her room The Dungeon regardless of the teacher or class offered because the classroom was simply in the basement. The walls that edged the descending stairs were clad in exposed water and gas lines which sat in contrast against the concrete walls. The stairs had that weird rubber or maybe vinyl appearance that all together led to a classic prison presentation.
 
-&#x200B;
-
 I was in my science class that morning, working in a small team with my best friend and some girl we used to know. Our assignment for the day? Dissecting baby pigs and identifying their organs. Just kidding. I can't honestly recall much else of that day except that we were working on our finals.
 
-&#x200B;
-
 Everything that followed happened so quickly. It was awesome in the way that it was awe-inspiring, but the awe was for the abject fear that ensued.
-
-&#x200B;
-
-When a tragedy happens, it's the weirdest thing. There's no music to build tension. There's no foreboding presence. There isn't something stitching together inclinations that maybe anything else aside from the ordinary is ever going to happen. The moment it does, however, the moment a travesty rears its foul maw and bares its fangs of misfortune and grief, it comes and goes in the blink of an eye. It quickly leaves only the bystanders and survivors to witness the wake of its unpredictable rage.
 
 &#x200B;
 
@@ -428,8 +421,6 @@ I need to break this cycle.
 
 &#x200B;
 
-He needs to reach the candle.
-
-&#x200B;
-
 This needs to be stopped.
+
+He needs to reach the candle.
