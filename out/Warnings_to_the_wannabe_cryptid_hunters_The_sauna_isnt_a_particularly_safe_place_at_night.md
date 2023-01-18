@@ -254,3 +254,5 @@ He regarded me, mirth gleaming in his eyes. "I won't bandy your name. See you to
 [Part 13](https://www.reddit.com/r/nosleep/comments/10cac2n/warnings_to_the_wannabe_cryptid_hunters_my_ex/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 14](https://www.reddit.com/r/nosleep/comments/10dbk6i/warnings_to_the_wannabe_cryptid_hunters_the_devil/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 16](https://www.reddit.com/r/nosleep/comments/10fa2ec/warnings_to_the_wannabe_cryptid_hunters_how_not/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
