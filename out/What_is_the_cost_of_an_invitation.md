@@ -1,4 +1,4 @@
-&#x200B;
+  
 
 Once my friends and me decided to celebrate the end of the academic year. The last semester was tough and all of us were very happy when Gabriella has invited us to her family summer house. I was so amazed by the natural beauty that was surrounding our place for the next couple of days. The house was located right on the wide river’s bank, on the other shore you could see the lights of small village and total silence around, except croaking frogs and cricket chirping. As i was quite depressed lately, it was such a relief just to be there.
 
@@ -46,7 +46,7 @@ This is when I have realized that my calm enjoyment the water is not happening s
 
 We were on our way to the house, when we have heard the conversation in the yard.
 
-\-Look, it is private property, you really should leave, man. – Tyler sounded annoyed. He was quite high and couldn’t wait to rest. I have seen who he was talking to. An old man was sitting on a swig not paying attention at all.  – Oh, Stefanie, you also found a stranger! Now they can leave together.
+\-Look, it is private property, you really should leave, man. – Tyler sounded annoyed. He was quite high and couldn’t wait to rest. I have seen who he was talking to. An old man was sitting on a swig not paying attention at all. – Oh, Stefanie, you also found a stranger! Now they can leave together.
 
 \-Calm down, Tyler. Excuse me, sir, do you know this little girl by any chance? – I asked, but immediately got an answer – she ran to the swig and set next to the old man, kissed him inn the right cheek.
 
@@ -115,7 +115,3 @@ The women opened the plate. My whole body was frozen.
 In the middle of the table our dinner was lying. Even the blood was everywhere and my eyes were full of tears I could recognize.
 
 Eliot.
-
-&#x200B;
-
-&#x200B;
