@@ -22,4 +22,4 @@ I sighed before saying it wouldn’t have hit anything it was in the middle of t
  
 Sadly I’ll have to split my story up but it should be don’t in one or two more post, I’ve got to go anyway my grandma is coming to pick me up, it’s been a while since I’ve seen her
 
-Part 2 : https://www.reddit.com/r/nosleep/comments/10g2mtp/i_found_a_portal_to_hell_in_my_moms_garbage_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
+Part 2 : https://www.reddit.com/r/nosleep/comments/10g2u69/i_found_a_portal_to_hell_in_my_moms_trash_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf

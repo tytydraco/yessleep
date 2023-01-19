@@ -24,9 +24,9 @@ It was Eddie and then committee leader Jo Jones who heard it from her own lips.
 
 "I can still feel it," she screamed. "Oh God. Jo. It's so scared!"
 
-"What is," Jo demanded. Eddie said the two were nearly shouting by this time because Leslie was howling and spitting, crying about the pain.
+"What is," Jo demanded. 
 
-"My hand! My HAND," she shouted. "It keeps signing, from my hand!"
+"My hand! My HAND," Leslie shouted. "It keeps signing, from my hand!
 
 H.
 
@@ -38,21 +38,20 @@ L.
 
 "
 
-&#x200B;
 
 Wild theories after that one got out. A lot of at home accidents from fanatic groups, as electricity use in occults started to resurge.
 
-And I sometimes wondered about the mysticism of it myself. EVPs. Photographs. Energy. It's difficult not to have some sort of obsession with volts and amps, or Tesla coils while in this field. For instance, when electric cars were commercialized, I embraced them. Watches. Books on my tablet. It seems like such an odd thing to say for someone in such an archaic profession, but it is true.
+And I try to stay away from the mysticism of it myself. EVPs. Photographs. Energy. But it’s difficult not to have some sort of obsession with volts and amps, or Tesla coils while in this field. For instance, when electric cars were commercialized, I embraced them. Watches. Books on my tablet. It seems like such an odd thing to say for someone in such an archaic profession, but it is true.
 
 That was until it happened to me.
 
-What became the most important case of my career, turned into one of pure terror. But I suppose I can't properly tell that story. Not really. Not without telling the last moments of Jennifer Tooley. As the this story and hers intertwine. Although, I don't know where the truth begins and the lies end.
+What became the most important case of my career, turned into one of pure terror. But I suppose I can't properly tell that story. Not really. Not without telling the last moments of Jennifer Tooley. As this story and hers intertwine. Although, I don't know where the truth begins and the lies end.
 
 What I do know is that Jennifer Tooley was a budding journalist on this side of the Sierra Nevada. An all valley kind of girl. Beautiful, young, and full of potential. And on the night she was murdered. She was covering an event for work.
 
 Her text messages didn't indicate anything out of the ordinary. Gossip. Complaining about her dress. Her boss. How much she enjoyed the food. And what she hated. Later in the night, she even sent her brother a photo of the "cute guy" she had just met at the bar. A photo that would turn out to be the only clear image of her killer prior to his apprehension. And I mean this when I say. It's as if before that photo was taken of him. The man never even existed. He's in none of the public records. And as of this writing, no one has come forth to identify him or claim him as kin.
 
-&#x200B;
+
 
 Jennifer Tooley's body would be found 4 days later in a nearby cabin, after her brother reported her missing. She was found along with all of her belongings. Among them was a napkin where she had written: **Tonight I met a man. Though he claimed to be something more. But isn't that what they all say?**
 
@@ -70,7 +69,7 @@ It started with a few frat boys, said they recognized the wanted man at one of t
 
 Next thing I know, there's sightings of the man. At this ice cream parlor here. Or a restaurant there. Locals even began reporting someone screaming Jennifer Tooley's name past sunset. Headless goats. UFOS. The Swamp Ape. And even red candles found in the shape of a fallen star deep inside the woods were subsequently linked back to the killer.
 
-So that by the time the man was finally captured, and came to trial. Everything was up in the air. No one could get a good grasp of the situation. For every 5 people who called the man for what he was, a stone cold killer. There was a hardcore zeitgeists who would claim that this man, the murderer, was the new prophet. Some even claiming that the man was Jesus.
+So that by the time the man was finally captured, and came to trial. Everything was up in the air. No one could get a good grasp of the situation. For every 5 people who called the man for what he was, a stone cold killer. There were hardcore zeitgeists who would claim that this man, the murderer, was the next coming. Some even claiming that the man was actually Jesus.
 
 The trial finally quelled most of that noise, as evidence that hadn't been leaked was finally released to the public. And the entire picture of what he did to that poor girl. Holding her under the water. Dragging her back to shore. The way he chopped her up, hanging her on hooks in that old cabin, the look of life still in her eyes as he made her smile for the camera. Was finally starting to come together.
 
@@ -78,7 +77,7 @@ The state didn't know what to do with him. They were afraid. And when someone su
 
 And in October, that call came. I had been eating well, getting a lot of sleep. Really trying my best to stay in a good head space before the execution.
 
-Although the day of, didn't go as planned.
+Although the day of, not a single thing went according to plan.
 
 Usually the officials and those invited, family of the victim and the convicted are brought into the room first. Then the officials, the Priest, and the executioner. So there's limited face to face between us and the condemned in order to lessen any psychological impacts. But this wasn't the case. Somehow the duties got mixed up and the Priest was running late. And I was left in the holding hall with the murderer. Alone.
 
@@ -124,7 +123,7 @@ Eddie agreed, "I checked it myself."
 
 "What should we do," someone asked.
 
-One of the men in the plastic seats got up angrily. From the papers I knew him to be Jennifer Tooley's brother. He was full of anger. Rushing forward. As two officers detained him to the floor.
+One of the men in the plastic seats got up angrily. From the papers I knew him to be Jennifer Tooley's brother. He rushed forward. As two officers detained him to the floor.
 
 The man in the electric chair only laughed.
 
@@ -132,9 +131,9 @@ The red phone suddenly rang, and everyone grew quiet. Except for the man. The Ch
 
 I pulled down the lever and this time I stepped back and watched.
 
-It went on for a whole 5 minutes before I turned it off. Everyone was silent this time. Never taking our eyes off the burnt body. The Chief somehow goaded Eddie in approaching the chair.
+It went on for a whole 5 minutes before I turned it off. Everyone was silent this time. Never taking our eyes off the burnt body. The Chief somehow goaded Eddie in approaching the electric chair.
 
-He crept closer. I could see him smelling the air. See the shiver run down his spine as he approaches the man in the chair.
+He crept closer. I could see him smelling the air. See the shiver that ran down his spine as he comes face to face with the man in the chair.
 
 In an instant. Blood spurted everywhere. Eddie fell backwards howling, clutching his face, as the man, the murderer, was grinning from ear to ear with a piece of Eddie's skin in his mouth.
 

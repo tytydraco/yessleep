@@ -220,7 +220,7 @@ There were six missing men over the course of a year, the first case happened ab
 
 I continued digging, the next was two months later, and the next another two months. There was always a delay of a month to two between each disappearance. Almost every disappearance began with them going out for drinks in local bars, but none of the disappearances shared the same one.
 
-But I found a single anomaly. The third disappearance happened around the time when I was out of town, visiting my adoptive family for the holidays. My fiance stayed behind. It was the only time when I could remember not being in town. We had our fight after I got back. Our fight about the baby.
+But I found a single anomaly. The third disappearance happened around the time when I was out of town, visiting my adoptive family for the holidays, which was around a week long visit. My fiance stayed behind. It was the only time when I could remember not being in town. We had our fight after I got back. Our fight about the baby.
 
 I remember that strange, god-awful smell in our bedroom. It smelled like rot. She dismissed it. I remember the next day the smell was gone. My heart was pounding. *Is she really..?*
 
