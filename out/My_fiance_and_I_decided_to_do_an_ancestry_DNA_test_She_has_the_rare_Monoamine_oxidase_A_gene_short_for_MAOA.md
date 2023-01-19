@@ -118,7 +118,7 @@ They came in a couple of days ago. Winter ran into the living room, holding two 
 
 "Oh it says here that I am 7% french, maybe that's where my flirt comes from." She was reading her results out loud.
 
-"I'm 83% American, 7% Russian, 6% Canadian, 3% Asian, 1% German." I just read mine out loud in a sequence.
+"I'm 83% American, 7% Russian, 6% Polish, 3% Korean and 1% German." I just read mine out loud in a sequence.
 
 "Special genes... It says here that I have the Monoamine oxidase A gene, short for MAOA." Winter said thoughtfully.
 
