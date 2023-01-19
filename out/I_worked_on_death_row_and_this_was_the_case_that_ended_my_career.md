@@ -70,9 +70,9 @@ It started with a few frat boys, said they recognized the wanted man at one of t
 
 Next thing I know, there's sightings of the man. At this ice cream parlor here. Or a restaurant there. Locals even began reporting someone screaming Jennifer Tooley's name past sunset. Headless goats. UFOS. The Swamp Ape. And even red candles found in the shape of a fallen star deep inside the woods were subsequently linked back to the killer.
 
-So that by the time the man was finally captured, and came up for trial. Everything was up in the air. No one could get a good grasp of the situation. For every 5 people who called the man for what he was, a stone cold killer. There was a hardcore zeitgeists who would claim that this man, the murderer, was the new prophet. Some even claiming that the man was Jesus.
+So that by the time the man was finally captured, and came to trial. Everything was up in the air. No one could get a good grasp of the situation. For every 5 people who called the man for what he was, a stone cold killer. There was a hardcore zeitgeists who would claim that this man, the murderer, was the new prophet. Some even claiming that the man was Jesus.
 
-The evidence at the trial quelled most of that noise, as evidence that hadn't been leaked was finally released to the public. What he did to that poor girl. Holding her under the water. Dragging her back to shore. The way he chopped her up, hanging her on a hook in that old cabin, the look of life still in her eyes as he made her smile for the camera, was unholy.
+The trial finally quelled most of that noise, as evidence that hadn't been leaked was finally released to the public. And the entire picture of what he did to that poor girl. Holding her under the water. Dragging her back to shore. The way he chopped her up, hanging her on hooks in that old cabin, the look of life still in her eyes as he made her smile for the camera. Was finally starting to come together.
 
 The state didn't know what to do with him. They were afraid. And when someone suggested he be sent to the electric chair. I knew that my time was coming.
 
@@ -132,7 +132,7 @@ The red phone suddenly rang, and everyone grew quiet. Except for the man. The Ch
 
 I pulled down the lever and this time I stepped back and watched.
 
-It went on for a whole 5 minutes before I turned it off. Everyone was silent this time. We all watched the burnt body carefully. The Chief somehow goaded Eddie in approaching the chair.
+It went on for a whole 5 minutes before I turned it off. Everyone was silent this time. Never taking our eyes off the burnt body. The Chief somehow goaded Eddie in approaching the chair.
 
 He crept closer. I could see him smelling the air. See the shiver run down his spine as he approaches the man in the chair.
 
