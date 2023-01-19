@@ -1,0 +1,19 @@
+ 
+
+Hi, so to start this off, this obviously didn't happen today. It happened one year ago when a girl in my apartment complex invited my daughter(15F) to her birthday party. Now I will admit, I've always been a bit judgemental, the kid is turning 16 and still plays dress up. I didn't want my daughter to think this is normal behavior, and I forbid her from going since the party was a costume party with a "miraculous ladybug" theme.
+
+I've always hated the birthday girl, she would play at the apartment basketball court in cosplay and go skating around it often, she would go to the swingset and play as if she was still a child. She isn't normal, most kids her age do more mature things in order to have fun. It was like she didn't care, I tried telling the apartment owners about her behavior, but they brushed it off as "a child being a child" and let her be.
+
+I decided that I needed to talk about my issues with her personally. I sat down with her at the basketball court and talked to her about why her behavior upset me. She apologized and said she thought this could be related to me being upset over not being able to connect to my inner child. I was offended at first and stormed off, but once I told my husband, he agreed with her.
+
+I decided to meet with her again at my home this time, she was very polite but refused the banana pudding I offered her. That hurt my feelings, but I brushed it off. We had a nice conversation and I realized a bit about myself. I decided to let my daughter go to the party, we even picked out a fun costume of a character called Chloe from the show the party was themed of. 
+
+I decided as a personal gift I would give the birthday girl some cheesecake, as I know she loves it due to my daughter telling me about what she likes for gifts. I made her a banana cheesecake because I absolutely love bananas. I must admit, I still felt a bit of resentment toward her for how she is just able to connect to her inner child. I know it's harsh to be jealous of a 16-year-old at 46 but I just wish I could feel as happy and youthful as she is. 
+
+I set the cheesecake on the table at the party and it was extremely fun. It soon was time to open the gifts and she was very happy to see the cheesecake, she ran up to me and hugged me once I told her I made it for her. I still remember her telling me that she was happy we didn't have any harsh feelings for each other. I know it sounds stupid but at that moment I realized I had misjudged her. This youthful, kind and forgiving soul was NOT a bad influence. 
+
+She was just a kid who wanted to have fun, and I guess in today's world, seeing that was so shocking to me that I misdirected my anger about my own inability to connect with my youth at this child. As I sat and realized how my jealousy had truly blocked my senses, I was broken from my thought by the sounds of screaming and choking.
+
+That's when I remembered. She told me why she didn't want my banana pudding. She's allergic to bananas. I had been so angered by her youth that I had decided to capture her in it forever. It was too late by the time she was in the hospital. No one knows that I knew she was allergic to bananas. Her parents said it was not my fault. My daughter and husband say it was not my fault. But every time I hear the rusty old park swings from my apartment at night, I look down out the window where I can see the community park, I see her, sitting, still smiling in her miraculous ladybug costume, swaying with the swing as it blows her back and forth. She waves at me like nothing is wrong because she doesn't even know she's gone. 
+
+It's my fault.

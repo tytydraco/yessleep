@@ -18,7 +18,7 @@ And so we originally gathered to levy our grievances after her accident. To get 
 
 The lack of that part sent Leslie to the hospital. Putting her into a coma for 6 weeks. They also had to amputate her arm because of it. From the elbow, down.
 
-And I personally believe that what she said after waking up, is why people believe she had been cursed.
+And I personally think that what she said after waking up, is why people believe she had been cursed.
 
 It was Eddie and then committee leader Jo Jones who heard it from her own lips.
 
@@ -26,7 +26,7 @@ It was Eddie and then committee leader Jo Jones who heard it from her own lips.
 
 "What is," Jo demanded. 
 
-"My hand! My HAND," Leslie shouted. "It keeps signing, from my hand!
+"My hand! My HAND," Leslie shouted. "It keeps signing from the other side!
 
 H.
 
@@ -79,7 +79,7 @@ And in October, that call came. I had been eating well, getting a lot of sleep. 
 
 Although the day of, not a single thing went according to plan.
 
-Usually the officials and those invited, family of the victim and the convicted are brought into the room first. Then the officials, the Priest, and the executioner. So there's limited face to face between us and the condemned in order to lessen any psychological impacts. But this wasn't the case. Somehow the duties got mixed up and the Priest was running late. And I was left in the holding hall with the murderer. Alone.
+Usually the families and guests are brought into the room first. Then the officials, the Priest, and the executioner. So there's limited interaction between us and the condemned, in order to lessen any psychological impacts. But this wasn't the case. Somehow the duties got mixed up. And the Priest was running late. I was left in the holding hall with the murderer. Alone.
 
 "Do you know what my last meal was," he asked. "Bread. And water." He chuckled, "Of course when I drank it, was it still water?"
 
@@ -91,7 +91,7 @@ I tried to ignore him.
 
 "-but they said it wasn't wine."
 
-The report said it was blood.
+The reports say it was blood.
 
 He laughed as if he could hear inside of my head.
 
@@ -107,7 +107,7 @@ I pulled the lever.
 
 His body contorted and snapped, shivering. His mouth opened, I could see inside it, a gasping hole that was blacker then night, as blue and white lightning came in flashes. And for once, I didn't let my hand off the lever, not until this monster's hair stood on end.
 
-When it was done a few people clapped. But it was Eddie I noticed first. He was looking at me, his eyes wide and telling, for he knew better than most what I had done, and exactly how I was feeling. How a killer only seemed to spread his madness from one person to the next, even in the end.
+When it was done a few people clapped. But it was Eddie, whom I noticed first. He was looking straight at me, his eyes wide and telling, for he knew better than most what I had done, and exactly how I was feeling. How a killer only seemed to spread his madness from one person to the next, even in the end.
 
 Before anyone could move.
 
