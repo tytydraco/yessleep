@@ -328,6 +328,6 @@ They haven't been able to find any trace of her yet.
 
 Jackson's case was reopened as a murder investigation, and she's the main suspect. All of the missing men's cases have been reopened too.
 
-A dumb ancestry test turned my life a full 360, I was supposed to be getting married this march. Now I'll be spending that night in therapy. I really wish I had been wrong about this. A part of me wishes that I did ignore it; then we could've both lived happy lives. Raised a happy child.
+A dumb ancestry test turned my life a full 180, I was supposed to be getting married this march. Now I'll be spending that night in therapy. I really wish I had been wrong about this. A part of me wishes that I did ignore it; then we could've both lived happy lives. Raised a happy child.
 
 If you ever do an ancestry test, just pray that none of you have the serial killer [gene.](https://www.reddit.com/user/Coureherritt)

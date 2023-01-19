@@ -66,4 +66,4 @@ A twenty-year-old college student placed a call approximately three minutes befo
 
 The transcript of that call is located below.
 
-[Jessica Sanders - The Second Call](https://www.reddit.com/r/nosleep/comments/10exn54/the_argent_apartment_massacre_a_collection_of_911/)
+[Jessica Sanders - The Second Call](https://www.reddit.com/r/nosleep/comments/10frd4p/the_argent_apartment_massacre_a_collection_of_911/)

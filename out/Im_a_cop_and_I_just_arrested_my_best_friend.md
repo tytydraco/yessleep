@@ -85,3 +85,5 @@ But there it was. My creative writing assignment I presented to the class. The o
 And there it was, three paragraphs from  the conclusion:
 
 *Unexplained phenomena such as UFOs, Moms magically lifting cars, or even perfectly sane people committing murder, are a result of this life as we know it counteracting a glitch in the parallel. It’s when deja vu hits the hardest.*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10frndq/im_a_cop_and_i_just_arrested_my_best_friend_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
