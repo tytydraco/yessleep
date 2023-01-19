@@ -114,7 +114,7 @@ I jumped up from the chair I was sitting on.
 
 "I don't!" I yelled back. "I just make... TikToks!"
 
-But my mom didn't believe me. "Kara told me everythin! What you're doing, that you aren't texting her any more, that she's worried... Why are you doing this?!"
+But my mom didn't believe me. "Kara told me everything! What you're doing, that you aren't texting her any more, that she's worried... Why are you doing this?!"
 
 I tried to swallow the lump in my throat. "You wouldn't understand! Now, leave me alone, I'm *busy*!"
 
@@ -122,7 +122,7 @@ I tried to swallow the lump in my throat. "You wouldn't understand! Now, leave m
 
 "Give it back!"
 
-"I definitely won't. I knew I shouldn't have worked so much..." She sighed for a second. "I'm sorry. But you're grounded. And I'm gonna get a therapist for you."
+"I definitely won't. I knew I shouldn't have worked so much..." She sighed for a second. "You'll see this again if you behave. Do you hear that?"
 
 So overdramatic.
 
@@ -132,7 +132,7 @@ I stormed after her. "Give me back my phone!" I yelled, again. "I'll earn more m
 
 "You're crazy! How do you think you'll earn money like this?!" My mom turned around, next to the stairs, holding my phone up. "This... this is destroying you. I should've listened to the other moms. Social media is pure poison for a young mind like you..."
 
-"I'm *fourteen*!" I nearly screeched, as I ran towards her. I grabbed my phone, with all of my power. I felt my bones and my body with all of it's scars and wounds protest, but I didn't care. I wanted my phone.
+"I'm *thirteen*!" I nearly screeched, as I ran towards her. I grabbed my phone, with all of my power. I felt my bones and my body with all of it's scars and wounds protest, but I didn't care. I wanted my phone.
 
 "Stop it!" My mom yelled.
 
@@ -148,6 +148,34 @@ I felt panic rising in me. I quickly ran down the stairs, as I saw a pool of blo
 
 And let out a sigh of relief as I saw that my phone didn't even have a scratch.
 
-So, guys! That's where you come in. Now that my mom won't bother me any more, I can do this practically for ever. What do you think my next step should be? I thought amputating something could be fun? I also think it's not entirely necessary to have both eyes, right? Who needs depth perception anyway?
+Until the moment I realized, it wasn't my phone. It was hers. I was just about to look for mine, when I saw her receiving a message.
 
-But you're the clever, nerdy ones. So enlighten me. How do I keep my engagement high?
+>**Mike**:Did you stop this nonsense?
+
+So, this is were it gets really weird. Because I obviously. clicked on the chat, because, who the hell is Mike?
+
+And then I found this:
+
+>**Mike**: We're getting her tomorrow.
+>
+>**Mike**: She's old enough, anyway. 
+>
+>**Mike**: Clients have been asking for her already...
+
+I scrolled up, and that's where I started to feel really dizzy.   Because the clients they were talking about were, like, old. Like really old.
+
+And the things they were describing there - what they wanted to do with me... *Things* that... I definitely didn't want to do.
+
+Seems like my mom did have a plan to get herself out of poverty. It just didn't involve me.
+
+I tried to rush out of the door, but it was locked. I don't know where my mom keeps her keys, but I know I'm not strong enough to get out of there.
+
+I felt panic rising up in me. I really, really don't want those guys to pick me up. 
+
+But I also didn't know what to do about my mom, because she was definitely not breathing any more. 
+
+So... I was thinking... Maybe I should just, like, explain my situation on TikTok? You know? And maybe you guys can help - help explain that I'm actually about to be, I guess, kidnapped? Maybe then everything will be fine?
+
+I don't know what else to do. It's the only thing I'm good at, I guess. I don't want these guys to get me. I don't want to do these things with the clients they described to my mother. But if I call the police, they will only care about what I did to my mother, right?
+
+So, reddit - can you please help me? What am I supposed to do?

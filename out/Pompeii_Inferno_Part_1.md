@@ -1,3 +1,5 @@
+\[[Part 2](https://www.reddit.com/r/nosleep/comments/10fpzii/pompeii_inferno_part_2/)\]
+
 Vincent Mandalay.
 
 There was a time, not all that long ago, when my name had been respected, praised, and worshiped even, by the critics and elites within the cutthroat world of Hollywood filmmaking. Since I could speak, I’ve only spoken in the language of cinema. My earliest memories from childhood all center around my father and our weekly trips to the multiplex, followed by passionate debates over the intricacies of “the process” by the fireplace. Our time in this world was cut short, as I would lose my father before the start of high school after his failing health and decades of bad habits finally caught up to him. I vowed to keep his memory alive with every movie ticket and bag of popcorn I purchased thereafter.
@@ -93,3 +95,5 @@ It was a PR disaster, the kind every film production prays never happens to them
 Our second meeting was a contentious one. I was of course deeply apologetic, offering to address Leah’s family and fans personally and donate my backend percentage to Leah’s estate. The studio wasn’t impressed and told me point blank the only reason they weren’t shutting down production that day was because of the massive expense already incurred. As is customary, the studio had already planned out a promotional campaign over the next year which included tours of the *Pompeii* set, toys, costumes, and multiple endorsement deals. This time, there was no beating around the bush, no slap on the wrists. It was made abundantly clear that no more incidents were to be tolerated going forward. This was officially my “second strike” as it were.
 
 There was nothing to be done, “the show must go on”, as we love to say in show business. The production though was allowed to pause for two days to give us all time to grieve. Leah’s family, which had mostly consisted of her many adopted children, hounded the set every day from that point onward, determined to take down both the studio and me along with it. Threats of a lawsuit floated around but nothing had come of it at that time. The once joyous and playful atmosphere quickly devolved into a near-constant state of mourning and paranoia, everyone wondering who or what would happen next.
+
+\[[Part 2](https://www.reddit.com/r/nosleep/comments/10fpzii/pompeii_inferno_part_2/)\]
