@@ -10,7 +10,7 @@ This made sense at the time, and his enthusiasm soothed my worries. Looking back
 
 &#x200B;
 
-When I first started, it seemed like the perfect job for me. I genuinely love customer service (I know, it’s weird), and helping people find clothing that makes them comfortable and confident always made me feel a sense of pride, even if they were pretentious and scoffed at the clothes I wore. However, there were some red flags that, in retrospect, should have been a clear sign as to what our shop really does. First, we don’t really have a lot of products in-store. Most of our pieces are marketed as “limited edition” or “exclusive,” so there really isn’t a whole lot of options, but people *love* finding something only they can have. For some of my clients, I am able to build outfits for them and they can leave with arms full of bags, like your typical shopping spree. The weird part is, we have an entire custom clothing service. We have everything you’d need to get fully measured, different fabric swatches (that I wasn’t allowed to touch or even look at) to pick from, and an entire system for ordering specialty items and sizes. I didn’t really understand why we had all of these tailoring tools in our shop at first, since I had never seen anyone come in for anything custom, and I assumed the biggest draw to our shop was the exclusivity and branding. 
+When I first started, it seemed like the perfect job for me. I genuinely love customer service (I know, it’s weird), and helping people find clothing that makes them comfortable and confident always made me feel a sense of pride, even if they were pretentious and scoffed at the clothes I wore. However, there were some red flags that, in retrospect, should have been a clear sign as to what our shop really does. First, we don’t really have a lot of products in-store. Most of our pieces are marketed as “limited edition” or “exclusive,” so there really isn’t a whole lot of options, but people *love* finding something only they can have. For some of my clients, I am able to build outfits for them and they can leave with arms full of bags, like your typical shopping spree. The weird part is, we have an entire custom clothing service. We have everything you’d need to get fully measured, different fabric swatches (that I wasn’t allowed to touch or even look at) to pick from, and an entire system for ordering specialty items and sizes. I didn’t really understand why we had all of these tailoring tools in our shop at first, since I had never seen anyone come in for anything custom, and I assumed the biggest draw to our shop was the exclusivity and branding.
 
 &#x200B;
 
@@ -295,3 +295,7 @@ On the bus ride home, I still hadn’t fully comprehended what I had just seen. 
 &#x200B;
 
 After a year at this job, one thing is for sure: I will never not be afraid.
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10g4sge/i_work_at_a_clothing_store_most_of_the_time_the/)

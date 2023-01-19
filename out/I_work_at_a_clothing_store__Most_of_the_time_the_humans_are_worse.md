@@ -74,7 +74,7 @@ Suddenly, the man froze. And not froze like he saw something that frightened him
 
 &#x200B;
 
-Richard is a very short man, standing only three feet tall. He has white beard that falls all the way to the top of his gold-studded cowboy boots. He has extremely long white hair that usually drags behind him like a cap. Tonight, his outfit of choice was a pair of dark wash denim with gold detailing, a black button up shirt with gold threading, and a flashy bolo tie decorated with real rubies. This was actually toned down compared to his usual attire. The first time I met him, he was wearing a three-piece suit made out of woven gold. He spoke with a thick southern drawl, and had that classic southern charm to him.
+Richard is a very short man, standing only three feet tall. He has a white beard that falls all the way to the top of his gold-studded cowboy boots, and extremely long white hair that usually drags behind him like a cap. Tonight, his outfit of choice was a pair of dark wash denim with gold detailing, a black button up shirt with gold threading, and a flashy bolo tie decorated with real rubies. This was actually toned down compared to his usual attire. The first time I met him, he was wearing a three-piece suit made out of woven gold. He spoke with a thick southern drawl, and had that classic southern charm to him.
 
 &#x200B;
 
