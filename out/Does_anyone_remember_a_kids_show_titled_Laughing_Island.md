@@ -12,7 +12,7 @@ My father told me all of this with a whiskey in his hand, his grizzled salt-and-
 
 “When the family of the kids went to check on them while they watched the show, they said the kids would just be staring at a black screen. The TV wasn’t even on. Sometimes the TV wasn’t even plugged in. Kids would go up in the attic and watch old TVs that hadn’t worked in years, but they claimed they could see the show, bright as day, and they explained what happened during it. Nearly all of those kids are dead now, though some are still catatonic in mental asylums around the state. They don’t talk, they don’t move, they just sit there like statues, staring off into a world that none of us can see.
 
-“But after the crimes were committed, the kids were full of energy and talking a mile a minute. They were bursting at the seams with joy! They claimed that the Grinning Man had told them they needed to teach their parents a lesson about safety, and that now that they had followed his instructions, he would come for them and take them away to Laughing Island, where every day was like Christmas and it was illegal to be sad or angry. 
+“But after the crimes were committed, the kids were full of energy and talking a mile a minute. They were bursting at the seams with joy! They claimed that the Grinning Man had told them they needed to teach their parents a lesson about safety, and that now that they had followed his instructions, he would come for them and take them away to Laughing Island, where every day was like Christmas and it was illegal to be sad or angry.
 
 “If anyone was sad or angry, a massive puppet called Sheriff Hogan would arrive. The way these kids described him, it sounded as if he was dressed like a Nazi SS soldier, with pure black military clothing, polished high leather boots and a gleaming black leather cap. He was ten feet tall and towered over the little children, who often wet themselves out of terror when they saw the Sheriff Hogan puppet arrive. He would take them to the center of the island and bury them alive, telling them in a sing-song voice, ‘No angry kiddies, no sad kiddies, no evil kiddies and no bad kiddies on Laughing Island.’ They would scream the entire time while the puppet threw them in a hole and filled it with sand and dirt, but after a few minutes they would stop screaming. And the rest of the kids knew what would happen to them if they ever got sad or angry on Laughing Island, so they always had forced grins and pretended like they were always happy.”
 
@@ -20,7 +20,7 @@ My father told me all of this with a whiskey in his hand, his grizzled salt-and-
 
 “There was no connection between the children. We checked. They all attended different schools, different daycares, no shared bus routes, no shared friends or family. It was eerie how the Laughing Island thing seemed to spread across the city, and then across the state. The news made it into a moral panic, like the Satanic Panic of the 1980s, but no one knew exactly what to do about it. Then one day, it just stopped.” He looked up at me. “At least, we thought it did. I just got a call from an old cop friend, who is now Captain of the city police, and he said a six year-old kid just drugged his parents and skinned them alive. He butchered the job, but after hours of trying he managed to get most of the skin off. Apparently he was wearing his father’s skin like a mask, running around the streets and laughing when the cruisers found him. And guess what he said?” I shook my head, not even venturing a guess.
 
-“The kid said that the Grinning Man made him do it.” 
+“The kid said that the Grinning Man made him do it.”
 
 “That’s… really sick. And sad,” I said, not knowing what else to say. My father nodded grimly.
 
@@ -61,3 +61,7 @@ They told me if my son hadn’t called 911, I would have bled out within twenty 
 There was no sign of the Grinning Man, of course, and my son refused to speak to anyone. They said he was catatonic, currently under psychiatric observation, just staring up at the ceiling like a waxen puppet.
 
 I will do everything I can to bring him back to us.
+
+&#x200B;
+
+Continue to Part 2: [https://www.reddit.com/r/nosleep/comments/10g9nn5/does\_anyone\_remember\_a\_kids\_show\_called\_laughing/](https://www.reddit.com/r/nosleep/comments/10g9nn5/does_anyone_remember_a_kids_show_called_laughing/)
