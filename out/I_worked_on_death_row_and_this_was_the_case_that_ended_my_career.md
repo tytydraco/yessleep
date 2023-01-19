@@ -22,7 +22,7 @@ And I personally believe that what she said after waking up, is why people belie
 
 It was Eddie and then committee leader Jo Jones who heard it from her own lips.
 
-"I can feel it," she screamed. "Oh God. Jo. It's so scared!"
+"I can still feel it," she screamed. "Oh God. Jo. It's so scared!"
 
 "What is," Jo demanded. Eddie said the two were nearly shouting by this time because Leslie was howling and spitting, crying about the pain.
 
@@ -116,7 +116,7 @@ The man opened his eyes and smiled.
 
 No one knew what to do.
 
-"What the fuck happened," the Chief yelled at me. "Was it primed?"
+"What the fuck happened," the Chief yelled at me. "Was it primed correctly?"
 
 I could barley nod.
 
