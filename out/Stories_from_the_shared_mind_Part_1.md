@@ -1,10 +1,12 @@
- 
+
+Sharing memory number 1304: Mark Hellenmen.
+(Posted from station 5 with complete acces to the shared mind.)
 
 As i stare at my melting hand, i take a peek at the thing that took me, my life, he's grinning, knowing he will have dinner soon. As more of me starts to become goo, i question myself: "What did i do wrong?". I did not come from a good family, i spent half of my life in a bad part of town, i was exposed to the world too soon, and i strangely got attached to it: the diversities, the bad things, the unknown, i started to like it. It's no surprise that as soon as i knew of the "organization", my fate was sealed.
 
 I witnessed the horrors, the eldritch beasts that one day will take my life, i got to know of the shared mind, the project to keep humanity living forever, under the form of slices of the job of everyone here.
 
-I am Mark Hellenmen, memory number 1304, i take care of feeding the things here. I would have never imagined that i would be their food eventually.
+I am Mark Hellenmen, i take care of feeding the things here. I would have never imagined that i would be their food eventually.
 
 I built my career on my love for humanity, and even with my rough past i would do anything to save a fellow human.
 
