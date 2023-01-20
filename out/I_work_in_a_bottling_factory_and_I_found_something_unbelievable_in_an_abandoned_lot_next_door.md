@@ -82,4 +82,4 @@ Inside, between the condiments, the beers and the half-empty takeout boxes; wrig
 
 Just yesterday, I noticed new bumps appearing on it, in the shape of an ear.
 
-I haven’t got the foggiest clue what to do with it, but I know I can't keep it here.
+I haven’t got a clue what to do with it, but I know I can't keep it here.
