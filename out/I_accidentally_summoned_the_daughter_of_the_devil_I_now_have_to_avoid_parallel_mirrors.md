@@ -17,7 +17,7 @@ He told me that we have to say the lines into parallel mirrors, then she would a
 
 We each stood in front of the mirror, I had a smaller mirrored medicine cabinet adjacent to the main one above the sink. One at a time we said the satanic phrase, Charlie first, then Nathan. The tension grew after each one of us had finished. I went last, I finished the last word and the light went off. I shouted “what the hell!” It turned out to just be Nathan messing around. 
 
-We all looked into the mirror again but nothing happened. Charlie was the first to say it was all bullshit, like the rest of the stuff we had tried many times before. We all then went downstairs to watch some zombie budget film.
+We all looked into the mirror again but nothing happened. Charlie was the first to say it was all bullshit, like the rest of the stuff we had tried many times before. We all then went downstairs to watch some budget zombie film.
 
 Later that night after the guys had left I went to clean my teeth, as I was half way through  brushing my stomach dropped. I looked up to the train of mirrors in front of me. Just before my view was blocked by my own reflection, a girl stood in the distance. 
 
