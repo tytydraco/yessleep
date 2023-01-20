@@ -1,4 +1,4 @@
-Once upon a time, I was a forest officer in a European nation. My job was to protect and preserve the forests, as well as to ensure the safety of those who entered them. However, as I soon discovered, the forests held many secrets and dangers that I never could have imagined.
+I used to be a forest officer in a European nation. My job was to protect and preserve the forests, as well as to ensure the safety of those who entered them. However, as I soon discovered, the forests held many secrets and dangers that I never could have imagined.
 
 One of my first encounters with the unknown occurred while I was on a routine patrol deep in the heart of the forest. I had been walking for hours and was getting ready to turn back when I heard a strange noise. At first, I thought it was just an animal, but as I got closer, I realized that it was something else entirely. The sound was like nothing I had ever heard before: a low, guttural growling that seemed to be coming from the very earth itself.
 
