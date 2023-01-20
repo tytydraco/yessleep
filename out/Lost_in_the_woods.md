@@ -1,6 +1,6 @@
   "Lost in the woods," was a phrase my father used a lot. When I was young; should we be out in the world and witness someone acting out in any way,
 
-  "That boy's lost in the woods," he'd say, shaking his head in that parental disappointment sort of manner, even if they weren't his child. 
+  "That boy's lost in the woods," he'd say, shaking his head in that parental disappointment sort of way, even if they weren't his child. 
 
   When I reached my early teens, struggling to find my place amongst my peers, 
 
