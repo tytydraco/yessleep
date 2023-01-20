@@ -388,7 +388,7 @@ She looked like every monster I have ever imagined combined, but I didn’t feel
 
 She stuck a finger between my lips and pried my mouth open. She mashed her lips against mine and breathed into me.
 
-A flood of bugs danced on my tongue, and I hungrily swallowed them all. She breathed into me, and a flood of bugs danced on my tongue, and I hungrily ate them all. 
+A flood of bugs danced on my tongue, and I hungrily swallowed them all.
 
 They were sweet and bitter and tickled as they glided down my throat. They coursed through my veins, crawled on my organs, and glued themselves to my rib case.
 
