@@ -60,4 +60,4 @@ I don’t see the creatures anymore. But maybe there are things we’re not mean
 
 I’m ready to forget. There’s a kind of bliss in it. Ever since that night, I walk the halls of the hospice, and I don’t feel heavy anymore. I never used to hug the grieving families, but now I do.
 
-When that teen girl’s father died, I held her close as she wept in my arms, and she kept saying, “thank you, thank you, thank you.” Had she woken up? Has she seen the fight? Or was she thanking me for something else? And in truth, I could barely remember what I’d [done](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
+When that teen girl’s father died, I held her close as she wept in my arms, and she kept saying, “thank you, thank you, thank you.” Had she woken up? Had she seen the fight? Or was she thanking me for something else? And in truth, I could barely remember what I’d [done](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
