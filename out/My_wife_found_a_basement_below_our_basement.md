@@ -454,7 +454,7 @@ I noticed the cuts and grazes which adorned my arms as I climbed the ladder back
 
 Once above ground, I heaved the weighty concrete slab back into place and closed the hole.
 
-Amy’s face glowed in my mind like hot iron. I’d be back for her.
+Amy’s face fleetingly burned into my mind's eye. I’d be back for her.
 
 I was going to return.
 

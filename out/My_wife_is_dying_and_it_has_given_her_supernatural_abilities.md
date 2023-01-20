@@ -82,7 +82,7 @@ Jess’s body slowly raised from the floor, until it was eventually floating off
 
 “I would be doing the world a favor if I killed you right here, no one would have to deal with you being a parasite ever again.” 
 
-She lurched at me, grabbing a hold onto my neck. I gasped for air but to no avail, scratching at her wrists for a chance to breath. This only made her tighten her grip, causing the blood to rush towards my face. My hand scrambled, finding the lamp on our bed side table and slamming it into Jess’s head. She screeched, letting go of my throat. Thinking fast, I took the chance to once again push her off, but this time she caught herself on the wall, levitating with one hand on it. While I gasped for air, I slowly watched as she melted into the surface. Her body liquifying and covering the area with a dark red spot. I felt like throwing up, uncertain as to what on earth was happening. The spot grew rapidly, until it covered the entire room with a fleshy, meat like substance. I ran outside the room, sprinting towards the front door, but as my fingers fell on the cold brass knob, a tentacle like appendage emerged from the bedroom and wrapped itself around my ankle, pulling me onto the floor. I kicked at it, managing to loosen its hold, and this time made a run for the safe in our spare bedroom, where I had kept a revolver. The walls were now rapidly being consumed by the flesh, until every surface was completely hidden. I backed into the closet door, and sat with the loaded gun in my hand. The wall in front of my started to pulsate, twisting and turning until it formed the familiar face of Jess. 
+She lurched at me, grabbing a hold onto my neck. I gasped for air but to no avail, scratching at her wrists for a chance to breath. This only made her tighten her grip, causing the blood to rush towards my face. My hand scrambled, finding the lamp on our bed side table and slamming it into Jess’s head. She screeched, letting go of my throat. Thinking fast, I took the chance to once again push her off, but this time she caught herself on the wall, levitating with one hand on it. While I gasped for air, I slowly watched as she melted into the surface. Her body liquifying and covering the area with a dark red spot. I felt like throwing up, uncertain as to what on earth was happening. The spot grew rapidly, until it covered the entire room with a fleshy, meat like substance. I ran outside the room, sprinting towards the front door, but as my fingers fell on the cold brass knob, a tentacle like appendage emerged from the bedroom and wrapped itself around my ankle, pulling me onto the floor. I kicked at it, managing to loosen its hold, and this time made a run for the safe in our spare bedroom, where I had kept a revolver. The walls were now rapidly being consumed by the flesh, until every surface was completely hidden. I backed into the closet door, and sat with the loaded gun in my hand. The wall in front of me started to pulsate, twisting and turning until it formed the familiar face of Jess. 
 
 “You really think you can run from me?”
 
@@ -126,9 +126,9 @@ I could see the corners of her mouth lift, forming a weak smile, somehow managin
 
 I replied between sobs.
 
-*“Promise me…promise me you’ll let yourself live tony… Just because I can’t…doesn’t mean you shouldn’t…”*
+*“Promise me…promise me you’ll let yourself live Tony… Just because I can’t…doesn’t mean you shouldn’t…”*
 
-I started at her for a moment, wondering how even in death I was her first thought…
+I stared at her for a moment, wondering how even in death I was her first thought…
 
 “Of course Jess… Of course… I promise… anything for you…”
 
