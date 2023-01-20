@@ -235,3 +235,5 @@ One positive thing I’ve taken from my time here, though, is *just be fucking p
 &#x200B;
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/10f01tb/i_work_at_a_clothing_store_not_all_of_my_clients/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/10h0wyd/i_work_at_a_clothing_store_were_stuck_on_the/)
