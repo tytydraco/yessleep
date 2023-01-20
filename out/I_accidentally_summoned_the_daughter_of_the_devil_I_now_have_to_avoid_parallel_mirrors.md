@@ -4,7 +4,7 @@ Me and my two friends Nathan and Charlie loved our horror films, conventions and
 
 We would always say that it was a ploy to invest people in the horror genre and make horror films, games and experiences more scary.  In fact we were actively looking at new ways to summon “demons, spirits and witches” with chants, practices and actions. 
 
-How naive we were is beyond me but look we were young and dumb. Now I’m sure many are accustomed to the film “Candyman”, say his name five times in mirror and he comes and kills his victims. Nathan and Charlie liked to browse the dark web, they even got mystery boxes delivered, one of the boxes even contained a blood stained knife. Nathan had a sizeable YouTube channel until it was taken down. I didn’t really get involved in any of that stuff though. 
+How naive we were is beyond me but look we were young and dumb. Now I’m sure many are accustomed to the film “Candyman”, say his name five times in  the mirror and he comes and kills his victims. Nathan and Charlie liked to browse the dark web, they even got mystery boxes delivered, one of the boxes even contained a blood stained knife. Nathan had a sizeable YouTube channel until it was taken down. I didn’t really get involved in any of that stuff though. 
 
 One Friday night they both came round with something new to try and they said it was like the film Candyman. They explained that they found a phrase online that is said to summon the devils daughter named “Lucia”. I was intrigued and prompted them to tell me more. Nathan passed me a printed piece of paper with four written lines on it:
 

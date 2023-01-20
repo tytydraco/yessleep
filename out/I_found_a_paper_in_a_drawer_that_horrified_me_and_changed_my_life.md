@@ -25,3 +25,5 @@ Because of all the trauma and being on a wheelchair, he didn't want to leave the
 Right now I'm packing. I'm not sure where I'll go, but I'll go alone. My husband asked from the kitchen "baby what are you up to?" and I replied "just tidying up the wardrobes". I can't let him know.
 
 I mean, how do you tell someone you found their death certificate?
+
+Edit: [I found out more ](https://www.reddit.com/r/nosleep/comments/10h4ewg/my_husband_is_dead_heres_what_i_found_out/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
