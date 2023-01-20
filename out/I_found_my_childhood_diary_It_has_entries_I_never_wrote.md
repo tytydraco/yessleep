@@ -34,7 +34,7 @@ My handwriting. My name. But I hadn't been up here 2 years ago. My dad didn't ge
 
 *Alicia*"
 
-How could this be dated a year ago? This all happened, but it happened the same say I had read it, and I certainly never wrote it.
+How could this be dated a year ago? This all happened, but it happened the same day I had read it, and I certainly never wrote it.
 
 6 months ago.
 
