@@ -2,11 +2,11 @@ In the old days, those in my profession wore a mask. Some say that it's so no on
 
 Long gone are the days of axes, and it has been almost 50 years since even France used a guillotine. Instead, in my home state, we prefer the electric chair. And I am the hand that pulls the lever. A modern day executioner.
 
-What they don't often report on killing criminals, is the tow that is inflicted on those who sentenced them. The lawyers, the judge, the jury, and none more so than those who pull the lever. There's the guilt for some executioners. The toiling abyss, and uncertainty that plague some cases that aren't exactly cut and dry. And even the most die hard amongst us, never know when something will trigger our subconscious.
+What they don't often report on killing criminals, is the tow that is inflicted on those who sentenced them. The lawyers, the judge, the jury, and none more so than those who pull the lever. There's the guilt for some executioners. The toiling abyss, and the uncertainty which plagued cases that weren't cut and dry. And even the most die hard amongst us, never know when something will trigger our subconscious.
 
 My colleague, Eddie Croquette, who pulled the big one over a mother who killed her two sons. She claimed they were demons. Because she only prayed for daughters. Had it happen to him. Pulling the lever on someone like that normally didn't keep any of us awake. But it was what the woman said while she was sitting there screaming as a hundred thousand jolts lit her nervous system up like a Christmas tree, that got him.
 
-"It smells like cheeseburgers," he told me. "Before her body went limp. And sure. You know. There's a little smoke. But I thought that was that. Until a couple days later. Jane and the kids come home with some McDonalds. And I was fine when I ate a fry. Even had a bit of their milkshake. But when I started unwrapping one of the cheeseburgers. I suddenly smelled it. Of that that woman cooking. It crawled out of some cavity in my brain, and came out of my nose. I could even taste her in my mouth." He shakes his head, "I haven't been able to touch the stuff since."
+"It smells like cheeseburgers," he told me. "Before her body went limp. She said that. And sure. You know. There's a little smoke. But I thought that was that. Until a couple days later. Jane and the kids come home with some McDonalds. And I was fine when I ate a fry. Even had a bit of their milkshake. But when I started unwrapping one of the cheeseburgers. I suddenly smelled it. Of that that woman cooking. It crawled out of some cavity in my brain, and came out of my nose. I could even taste her in my mouth." He shakes his head, "I haven't been able to touch the stuff since."
 
 Then there are the conferences. It started as a kind of support group. And after Leslie McNeal passed away. It kind of grew from there. Those who knew Leslie, said she wasn't the same after bringing it down on this Satanist that had been convicted in the tri-state area.
 
@@ -24,7 +24,7 @@ It was Eddie and then committee leader Jo Jones who heard it from her own lips.
 
 "I can still feel it," she screamed. "Oh God. Jo. It's so scared!"
 
-"What is," Jo demanded. 
+"What is," Jo demanded.
 
 "My hand! My HAND," Leslie shouted. "It keeps signing from the other side!
 
@@ -38,7 +38,6 @@ L.
 
 "
 
-
 Wild theories after that one got out. A lot of at home accidents from fanatic groups, as electricity use in occults started to resurge.
 
 And I try to stay away from the mysticism of it myself. EVPs. Photographs. Energy. But it’s difficult not to have some sort of obsession with volts and amps, or Tesla coils while in this field. For instance, when electric cars were commercialized, I embraced them. Watches. Books on my tablet. It seems like such an odd thing to say for someone in such an archaic profession, but it is true.
@@ -50,8 +49,6 @@ What became the most important case of my career, turned into one of pure terror
 What I do know is that Jennifer Tooley was a budding journalist on this side of the Sierra Nevada. An all valley kind of girl. Beautiful, young, and full of potential. And on the night she was murdered. She was covering an event for work.
 
 Her text messages didn't indicate anything out of the ordinary. Gossip. Complaining about her dress. Her boss. How much she enjoyed the food. And what she hated. Later in the night, she even sent her brother a photo of the "cute guy" she had just met at the bar. A photo that would turn out to be the only clear image of her killer prior to his apprehension. And I mean this when I say. It's as if before that photo was taken of him. The man never even existed. He's in none of the public records. And as of this writing, no one has come forth to identify him or claim him as kin.
-
-
 
 Jennifer Tooley's body would be found 4 days later in a nearby cabin, after her brother reported her missing. She was found along with all of her belongings. Among them was a napkin where she had written: **Tonight I met a man. Though he claimed to be something more. But isn't that what they all say?**
 
@@ -71,9 +68,9 @@ Next thing I know, there's sightings of the man. At this ice cream parlor here. 
 
 So that by the time the man was finally captured, and came to trial. Everything was up in the air. No one could get a good grasp of the situation. For every 5 people who called the man for what he was, a stone cold killer. There were hardcore zeitgeists who would claim that this man, the murderer, was the next coming. Some even claiming that the man was actually Jesus.
 
-The trial finally quelled most of that noise, as evidence that hadn't been leaked was finally released to the public. And the entire picture of what he did to that poor girl. Holding her under the water. Dragging her back to shore. The way he chopped her up, hanging her on hooks in that old cabin, the look of life still in her eyes as he made her smile for the camera. Was finally starting to come together.
+The trial finally quelled most of that noise, as evidence that hadn't been leaked was finally released to the public. And the entire picture of what he did to that poor girl. Holding her under the water. Dragging her back to shore. The way he chopped her up, hanging her on hooks in that old cabin, the look of life still in her eyes as he made her smile for the camera. Finally started to clear.
 
-The state didn't know what to do with him. They were afraid. And when someone suggested he be sent to the electric chair. I knew that my time was coming.
+The state didn't know what to do with him. They were afraid. And when someone suggested the man be sent to the electric chair. I knew that my time was coming.
 
 And in October, that call came. I had been eating well, getting a lot of sleep. Really trying my best to stay in a good head space before the execution.
 
@@ -81,11 +78,11 @@ Although the day of, not a single thing went according to plan.
 
 Usually the families and guests are brought into the room first. Then the officials, the Priest, and the executioner. So there's limited interaction between us and the condemned, in order to lessen any psychological impacts. But this wasn't the case. Somehow the duties got mixed up. And the Priest was running late. I was left in the holding hall with the murderer. Alone.
 
-"Do you know what my last meal was," he asked. "Bread. And water." He chuckled, "Of course when I drank it, was it still water?"
+"Do you know what my last meal was," he asked. "Bread. And water." He chuckled, "Of course when I drank it. Was it still water?"
 
 I tried to ignore him.
 
-"Say, it was kind of like the day they caught me. I was drinking wine-"
+"Say. It was kind of like the day they caught me. I was drinking wine-"
 
 "Shut up," I rapped the wheelchair they had strapped him to.
 

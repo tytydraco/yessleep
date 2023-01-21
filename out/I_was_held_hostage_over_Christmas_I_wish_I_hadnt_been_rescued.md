@@ -80,6 +80,10 @@ I’ll finish the story if I wake up.
 
 --------------
 
+[This is how it got worse](https://redd.it/10hqzk3)
+
+------------
+
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)

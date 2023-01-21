@@ -22,7 +22,7 @@ One thing I did notice though, despite her physical health falling drastically, 
 
 “Oh, I just know it, I guess.”
 
-Soon enough, Jess was moving things with her thoughts. Catching mugs that slipped off the kitchen counter, and flicking light switches from our bed. It was miraculous, I couldn’t believe it. Her once brown eyes now had streaks of budding green surrounding her pupil. Too struck by despair too even acknowledge the magnitude of her newly found gifts, I simply chose to brush them off. 
+Soon enough, Jess was moving things with her thoughts. Catching mugs that slipped off the kitchen counter, and flicking light switches from our bed. It was miraculous, I couldn’t believe it. Her once brown eyes now had streaks of budding green surrounding her pupil. Too struck by despair to even acknowledge the magnitude of her newly found gifts, I simply chose to brush them off. 
 
 Until one night, my sleep was unexpectedly broken. I raised from the bed, rubbing the weariness from my eyes to aid them in adjusting to the dark. Quickly noticing Jess’s absence from the bed, I scanned my surroundings, hoping to find her silhouette. That’s when an odd clicking sound cut through the room's silence from above me. I jerked my head up, only to see Jess… She was on all fours upside down, unexplainably attached to the ceiling. 
 
