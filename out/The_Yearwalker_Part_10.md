@@ -1,4 +1,4 @@
- [\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- [\[9\]](https://www.reddit.com/r/nosleep/comments/104xf3u/the_yearwalker_part_9/) \- \[10\]
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- [\[9\]](https://www.reddit.com/r/nosleep/comments/104xf3u/the_yearwalker_part_9/) \- \[10\] - [\[11\]](https://www.reddit.com/r/nosleep/comments/10hed24/the_yearwalker_part_11/)
 
 It felt strange being back in the car with uncle John. It was a long and quiet ride back out to his ranch, with neither of us taking the initiative to speak. I couldn’t believe he’d been responsible for what happened at the Hatchet facility.
 
@@ -392,13 +392,13 @@ John didn’t know what to say. For a moment, I could see that aggression spark 
 
 &#x200B;
 
-Something sent a shock up my spine. The little cleaning robot poked me with an exposed wire, shocking me just enough to give me a spasm. 
+Something sent a shock up my spine. The little cleaning robot poked me with an exposed wire, shocking me just enough to give me a spasm.
 
 My fingers touched the keyboard, and John took the shot.
 
 &#x200B;
 
-The room went dark. 
+The room went dark.
 
 I was too scared to move, thinking that’d make me feel the bullet wound. There was this acrid smell touching my nose, surprising me into a gasp for air. Only then did I realize I was unharmed.
 
