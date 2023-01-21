@@ -290,7 +290,7 @@ Paternal hope is a senseless thing. The closer I got to the trapdoor below my fe
 
 Gales sucked through the open-door hole like a torn plane.
 
-My foot stung from kicking the door with my heel; the space below me was an empty void as I hung from a rudder. The only sound was that of rushing wind and water below, save for the occasional groaning from the hinge of the broken trapdoor.
+My foot stung from kicking the door with my heel; the space below me was an empty void as I hung from a ladder step. The only sound was that of rushing wind and water below, save for the occasional groaning from the hinge of the broken trapdoor.
 
 When my eyes adjusted to the darkness, my eyes set upon a sight like no other.
 
@@ -304,7 +304,7 @@ She had to be down below. She had to be.
 
 Spanners and nails went flying as I tore open cabinets. Knowing the flashlight was dying, I pulled a wrench from the rack off the wall and wrapped the top up in an oiled cloth. I also pulled out a rope that was bracing a kayak up against the wall, tying it to my waist as I returned to the hole in the ground.
 
-Back down the rudders I went, each metallic step echoing into the chamber below. I fell to a rocky outthrust just beneath the ladder. It served as a cliff of sorts overlooking the massive ravine, where the basement light couldn’t quite reach the bottom but would provide enough light to sort myself out before heading down.
+Back down the rungs I went, each metallic step echoing into the chamber below. I fell to a rocky outthrust just beneath the ladder. It served as a cliff of sorts overlooking the massive ravine, where the basement light couldn’t quite reach the bottom but would provide enough light to sort myself out before heading down.
 
 “Amy?” I screamed out. No sound ever came back, only that of my voice bouncing between the cavern walls in the dark.
 
