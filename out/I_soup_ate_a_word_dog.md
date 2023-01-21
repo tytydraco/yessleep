@@ -26,7 +26,7 @@ Days and weeks passed me by, and all the while I received ever increasing quanti
 
 "I soup ate a word, dog,"
 
-What, I assumed, had begun as a childish and silly prank, had turned into a plainly purposive and distressing harassment. I couldn't bare it any longer, and so I asked around, and was put in touch with a well-regarded private investigator.
+What, I assumed, had begun as a childish and silly prank, had turned into a plainly purposive and distressing harassment. I couldn't bear it any longer, and so I asked around, and was put in touch with a well-regarded private investigator.
 
 He arrived at my apartment, one month passed the initiation of my torment. In advance of his arrival, I’d collected all the letters and records of the phone calls, and we discussed the incidents at length together.
 
