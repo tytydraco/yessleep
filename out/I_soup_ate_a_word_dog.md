@@ -38,7 +38,7 @@ However, he declared to me that there was, in his words, *a flower in the desert
 
 I simply couldn't comprehend why any of this was happening, and what on earth it all had to do with some disused house? To me, it didn’t seem like *a flower*, it just seemed to be another sour note in the repetitive and disorienting melody that had been plaguing me for the last month and a half.
 
-Perhaps if I went there myself, I thought, then I could begin to understand. So, I took the car out and drove to the edge of town, parking outside the house. As soon as I stepped inside, I was hit with an intolerable disquiet.
+Perhaps if I went there myself, I thought, then I could begin to understand. So, I took the car out and drove to the edge of town, parking outside the house. As soon as I stepped out, I was hit with an intolerable disquiet.
 
 The house stood there, alone and forlorn, the final residence on a demolished street. The rest of the neighbourhood cleared, presumably to make way for a new development.
 
