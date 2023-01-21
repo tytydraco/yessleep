@@ -1,4 +1,4 @@
- "I soup ate a word, dog,"
+"I soup ate a word, dog,"
 
 I couldn't make sense of it. The letter had been slipped underneath my door in an unmarked brown-paper envelope. I had no idea who it was from or what it meant.
 
@@ -46,13 +46,13 @@ In front of the derelict house was the last remaining garden of the neighbourhoo
 
 As I stepped into the porch, the rotten floorboards groaned as if they desired to break under my cautious weight. The walls inside were buckling and peeling, and with each step I dislodged plaster and dust from the ceiling which came tumbling down in crumbling clumps. As I moved further through the building, I caught glimpses of other rooms, with their musty aged furniture and shattered picture frames coated in dust. This house belonged only to time now.
 
-I searched the building and found nothing but cobwebs. Then, I noticed a door underneath the stairs, to the basement. I twisted the grimy handle. The basement itself was dark and I could see very little, so I turned on my phone torch. I took great care stepping down onto the staircase, again I’d found the wooden planks rotten and unstable. 
+I searched the building and found nothing but cobwebs. Then, I noticed a door underneath the stairs, to the basement. I twisted the grimy handle. The basement itself was dark and I could see very little, so I turned on my phone torch. I took great care stepping down onto the staircase, again I’d found the wooden planks rotten and unstable.
 
 As I arrived at the bottom of the stairs. There, etched into the wall, was the phrase that had tormented me so.
 
 "I soup ate a word, dog,"
 
-I abandoned all my attempts to comprehend the words, now accepting them as the obscure and sinister presence they had become. 
+I abandoned all my attempts to comprehend the words, now accepting them as the obscure and sinister presence they had become.
 
 Standing there, consumed by that cryptic manifestation, I heard a dragging sound.
 
@@ -115,3 +115,9 @@ I suppose no one else will ever truly know what happened to me, no one will ever
 As for myself, I've been left with only one reasonable explanation.
 
 I soup ate a word, dog,
+
+&#x200B;
+
+&#x200B;
+
+[xxx](https://www.reddit.com/r/bigkoala/comments/10aq9ek/bigkoala_the_next_great_american_author/)
