@@ -1,4 +1,3 @@
-This story is heavily inspired by the Mayfair Watchers Society on Spotify, so go check them out, the stories they tell are amazing. NSFW because of slight rude language. I might make more stories in this same format next time.
 
 (Recording starts)
 
@@ -114,7 +113,7 @@ Elijah: "Damn that was loud. Let's go before that thing comes."
 
 Tom: "All of you, out now! I'll hold it off with this bat."
 
-(Sounds of pain can be heard from the monster as it gets hit by Tom with the bat)
+(Shrieks of pain can be heard from the monster as it gets hit by Tom with the bat)
 
 Tom: "Well, Brett? What are you waiting for? Get out of here!" 
 
