@@ -1,4 +1,3 @@
-
 When I was a kid, I had really bad nightmares.  Now everyone has bad dreams, but not like this.  I don’t remember much from that time in my life, but I remember I couldn’t sleep.  And because I couldn’t sleep, everything felt like a dream.  And because my dreams were nightmares…well, everywhere I looked, I saw Hell.
 
 I was thirteen when my parents found Hollister and Graves.  Or rather, the pair found us.  They called themselves “trauma specialists”, and apparently they gave some vague story about having been contacted to offer help through one of the doctors or psychologists I’d seen.  Their offer and service was strange but simple.
@@ -97,4 +96,4 @@ Mrs. Graves walked over, wringing out the ends of her black and silver hair.  �
 
 Mr. Holliman cut in.  “And we have more to do.  Things will get worse now.”
 
-[And as usual, they were right.](https://redd.it/10h9jfw)
+[And as was so often the case, they were right.](https://redd.it/10h9jfw)
