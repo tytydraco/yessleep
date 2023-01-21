@@ -284,3 +284,5 @@ That kind of got us talking and I ended up falling asleep with him still on the 
 
 
 [Part 16](https://www.reddit.com/r/nosleep/comments/10fa2ec/warnings_to_the_wannabe_cryptid_hunters_how_not/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 18](https://www.reddit.com/r/nosleep/comments/10i0d0p/warnings_to_the_wannabe_cryptid_hunters_when_shit/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
