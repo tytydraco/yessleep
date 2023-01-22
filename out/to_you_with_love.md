@@ -92,6 +92,8 @@ I asked what she wanted and begged her to go away.
 
 She just smiled and stared at me, and then her eyes rolled back in her head and revealed empty sockets wriggling with maggots.
 
+❧
+
 Sometimes I smelled blood in the air, and that’s when I knew Marie was nearby
 
 I know mom sensed her too.
@@ -100,7 +102,9 @@ On the rare occasions we encountered one another, she would look at me, terrifie
 
 I imagined Marie clinging to my back, caressing and tracing my face with blood-stained fingertips.
 
-I lost dad during the height of summer. I found him sitting in the kitchen, staring at a corner, his eyes unfocused and full of tears.
+❧
+
+I lost dad during the height of summer. I found him sitting in the kitchen, staring at a corner, his eyes were unfocused and full of tears.
 
 “She’s here,” he told me. “Asha, your sister is here. I can see her. We shouldn’t have left her. We shouldn’t have left her. We need to find her.”
 
@@ -131,6 +135,8 @@ Have You Seen Me? The posters read.
 Yes.
 
 The ground was soft and sprinkled with teeth. I picked them up while dad collected the posters. His mouth twitched, and his eyes were cold, and I knew he was gone.
+
+❧
 
 As I’m writing this, his body lies crumpled under my window.
 
