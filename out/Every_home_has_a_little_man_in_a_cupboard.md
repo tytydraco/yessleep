@@ -6,7 +6,7 @@ I’ve lived in this house for ten years, but I only discovered a miniature man,
 
 I should hope not, but that doesn’t mean he isn’t there. Most people are simply fortuitous enough to never happen upon him. The little man is hard to find, and you should be thankful for that. He loves all manner of lightless hovels, and nobody can say which one he might choose. Kitchen cupboards, bathroom cupboards, and even cupboard-cupboards.
 
-Cupboard-cupboards? Let’s start at the beginning of my story.
+*Cupboard*-cupboards? Let’s start at the beginning of my story.
 
 It was a wintry Wednesday evening. Anna, my girlfriend, was staying the night. There was little to no appropriate food in my flat, apparently, so I was rummaging through kitchen cupboards for a snack that she might enjoy.
 
@@ -122,7 +122,7 @@ I knelt on the bathroom tiles and fearfully stretched my unwilling hands towards
 
 Unfathomable horror. I caterwauled at the gruesome sight within the cupboard. Tears streaming down my face and inhuman noises spilling from my mouth, I rocked on my knees and felt myself slowly succumbing to insanity at the maddening sight before me.
 
-Anna was, by the laws of some unearthly physics, crumpled into the tiny bedroom cabinet. It was an inexplicably-insidious contortionist act. Anna’s limbs were mangled so unthinkably out of shape that her bones had been splintered and snapped like twigs. The most horrendous part of the memory is that she wasn’t yet dead. She was twitching ever-so-slightly, painfully gasping for air.
+Anna was, by the laws of some unearthly physics, crumpled into the tiny bathroom cabinet. It was an inexplicably-insidious contortionist act. Anna’s limbs were mangled so unthinkably out of shape that her bones had been splintered and snapped like twigs. The most horrendous part of the memory is that she wasn’t yet dead. She was twitching ever-so-slightly, painfully gasping for air.
 
 Her face was even more horrific. Anna’s eyes had been sliced repeatedly. They were little more than two bloody mounds of mush. She had been violently blinded. If I had not managed to fend off the little man, I imagine I would have met the same fate.
 
@@ -130,6 +130,6 @@ I placed a hand on Anna’s cheek, hoping that she knew I was there with her as 
 
 Plus, witness accounts mentioned sounds of a struggle emanating from Anna’s apartment about ten or twenty minutes before they saw me arrive in my car. People believe that the killer fled before I broke down the door. They’re not wrong. They just couldn’t possibly believe the full truth.
 
-Anna’s parents held a small memorial ceremony at their house last night. Why am I mentioning this? Why isn’t the story over? Well, Anna’s father commented on finding something in a cluttered cabinet. A dollhouse man. The figurine was sitting on a pile of old books, apparently. There was no minuscule door that I could’ve warned Anna’s father to avoid. It was too late. The little man was standing in the middle of the vast, empty storage space. He was looking away from us.
+Anna’s parents held a small memorial ceremony at their house last night. Why am I mentioning this? Why isn’t the story over? Well, Anna’s father commented on finding something in a cluttered cabinet. A dollhouse man. The figurine was sitting on a pile of old books. There was no minuscule door that I could’ve warned Anna’s father to avoid. It was too late. The little man was in the middle of the vast, empty storage space. He was looking away from us.
 
 You know to avoid cupboard-cupboards, but *no* cupboard can safely be opened. The little man can visit anyone, anywhere, at any time. He hides in every home.
