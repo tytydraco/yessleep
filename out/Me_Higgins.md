@@ -1,0 +1,33 @@
+It took me two years to meet Higgins. He wasn't one for meeting new people but it was inevitable that we would meet. He was a hermit by need and I by choice and we both had inhabited lairs in the same rundown building of the French Quarter. It was astounding that two men who dwelled solely in their building and lived two doors apart could go so long without meeting. 
+
+Higgins couldn't leave. It was said by the landlady that he couldn't stand light and couldn't stand crowds but I think that he just couldn't stand being seen. He could only make it to the corner store for sustenance before, on the verge of complete collapse, fleeing back to the room he rented. Even a man as frail as he needed to eat but if you saw Higgins you'd doubt whether he did. I was an athlete before my accident and could always tell a man's weight. Higgins weighed around one hundred and twenty pounds. He was dying but he was living, as it goes for so many. 
+
+I wasn't remotely interested in the man during my time living in the building. When I did speak to the other residents, they often spoke of Higgins as though he were some ghoul none wished to believe in. Even so, they failed to inspire any interest in me towards the man whatsoever. It was he who did so. 
+
+One night as I stepped out into the hall I could hear a mechanical turning followed by a silent pause and then the most grotesque sobbing I have ever heard. I had grown accustomed to numbing my interest in the world around me through daily cocktails of both legal and illegal substances. I could watch a woman be raped in an alley and walk on. I could see a puppy stomped to death and remain unmoved to act or even care. But the sobbing. The sobbing was utterly alien to me. 
+
+I had dulled this world but Higgins suddenly struck me as being apart from it. The pain I was dulling in myself was human. I was opting out of feeling it, but the screeching cry tearing through the wrenching sobs from Higgins' room was born from a pain no drug other than a bullet can cure. I was rooted to the floor. I was paralyzed by what I heard and found myself in a bizarre state of needing to both vomit and cry and utterly unable to do either. 
+
+Eventually the wailing sob stopped and I could walk again as though lifted from some voodoo trance. When I realized I had regained my legs I sprinted to the nearest store and bought a fifth of whiskey. I drank it as fast as I could. I wanted to black out, I wanted to never remember. I finished the whole bottle before even returning home, but when I slipped away to sleep that night I didn't enter into the dreamless sleep I so often drank to achieve. 
+
+The whole night I heard Higgins, whether I dreamt it or heard it I do not know to this day. All that I know is that in dream or reality, whichever I existed in at the time, I had entered into some form of paralysis. Nothing could wrench me from the horrors of the cries. 
+
+Either when the cries ceased or when the dream stopped, I experienced the sensation of waking. There was utter silence. I didn't grab a drink and I didn't take a pill, I just ran. I ran past the peeling door whose antiquated locks guarded Higgins from the natural world. I ran to the spiraling wrought iron staircase and nearly tumbled down it in my haste to flee. I kept running and running and running until I stood at the edge of Lake Pontchartrain. 
+
+I had sprinted miles at the speed of a veteran marathon runner after years of confining myself to a room and my gut to pills and drink. I felt as though I had sweated out all that had provided me with the numbing filter through which I had been seeing the world. I even began to doubt the cries of Higgins and turned back home. With me walked, not a confidence but, a surety in life. 
+
+Perhaps he had come to me in a dream in order to set me back on course. Perhaps he had been a vision from God. Perhaps I had finally seen in another what I was becoming and had projected my future despair onto him. I continued musing over why and what I heard the eve before. I mused all the way back to the building I shared with Higgins. Only then did I realize it was he, the man, I had heard. 
+
+His door was ajar and in my new found spirit I knocked so as to instill the hope in him that, what I had believed to be, my vision of him had done for me the night before. As I rapped harder against the door it screeched open as the hinge, covered in rust from lack of use. As the door began to open it suddenly struck me how silent he had been of late. I had never seen him much,  no, but I had always heard him shuffle to the store on his biweekly trips. For the past few months I had heard nothing. 
+
+I began to worry that he might have wasted away. If I had only been so fortunate. As I walked in I saw a sight I will never cease to see. 
+
+There sat what was left of Higgins, upright and on a chair. One arm was handcuffed to the stove and the keys lay cast towards the door. The other arm was a stump. It had been carved down piece by piece and cauterized so that Higgins could endure. No legs branched from the body as each had been whittled away almost to the torso. And the face, the face was carved into a nightmarish mask that smiled out at the cruel world with a permanence branded by the blade Higgins had used to carve away his own cheeks. 
+
+That blade lay clutched in his hand like the dying child of some hopeless mother. The pots and pans he had used to both sustain and destroy himself lay containing the smoldering remnants of what had once been his nose. I fell to my knees and vomited all down my front. I seized and seized and saw visions of such fantastical nature I could never hope to relay them through word. 
+
+The darkness of the night surrounds me. I sit, desk wedged between bed and wall, surrounded by the dancing shadows. The wind howls outside, like a mournful dirge, a reminder of the fleeting nature of life. 
+
+My mind is plagued with thoughts of despair and loss, memories of times long past and dreams that will never be. I find myself drawn to the abyss, a gaping maw of darkness that promises release from this endless cycle of pain and suffering. And yet, even as I am pulled towards its depths, I cannot shake the remembrance of feeling that there was once something left for me in this world, a spark of hope that flickers in the darkness. 
+
+But perhaps it is only the madness that grips me, a cruel illusion that taunts me with false promises of salvation. This I do not know and so I drink, and I write, seeking oblivion in the bottom of a bottle and in the pages of this journal. For in this darkness, I am the master of my own fate, and the end is mine to choose. My cowardice prevents choosing the end I seek in what I can only assume is the real.
