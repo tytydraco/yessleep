@@ -294,7 +294,7 @@ I’ve experienced 3 more trips to the other side in my year working here. Each 
 
 &#x200B;
 
-Today, I heard voices during my five minutes. Lots of voices. 
+Today, I heard voices during my five minutes. Lots of voices.
 
 &#x200B;
 
@@ -304,6 +304,6 @@ I don’t know how long we’ll be stuck here, but I’ll give you an update whe
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/10f01tb/i_work_at_a_clothing_store_not_all_of_my_clients/)
 
-&#x200B;
-
 [Part 2](https://www.reddit.com/r/nosleep/comments/10g4sge/i_work_at_a_clothing_store_most_of_the_time_the/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/10idlz0/i_work_at_a_clothing_store_corporate_came_for_an/)
