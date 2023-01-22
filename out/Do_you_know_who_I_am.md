@@ -1,0 +1,63 @@
+Ok, I don't really know how to start this so I will start from the beginning. 
+
+Yesterday I woke up as usual, but I felt odd and had a bit of a weird headache. It was a bit like the starting of a migraine or the result of a heavy night out, so after I had a shower to wake up I made my way downstairs to the kitchen to make a cup of tea and get some tablets. Whilst in the kitchen I saw my wife 'Chloe' who kissed me goodbye and said she had a nice night with everyone yesterday but had to run as she was late to work. I kissed her back and said goodbye, but something irked me about her, the way she spoke. She wasn't rude or sarcastic, or anything like that, she was just very ... pleasant. Like a posh Disney character. Even when she was long gone, I didn't move, I just sat at the table, the pain in my head slowly getting worse. Looking around, the kitchen was familiar, but I also knew it was both ‘’wrong” and ‘right' at the same time. There was a chip on the table, and I knew that was from when we moved in, we hit it on the front door. However, when I really started to think about the chip in the table, I knew that I didn't have a beach kitchen table, even though I was looking right at it. My head started throbbing at that point, like the more I was thinking about things the worse the pain was getting. I didn't know what to do and was freaking out that deep down I knew I didn't have a kitchen table but then again, I knew it was chipped on moving day. It didn't make sense. 
+
+The back and forth of trying to justify this kitchen table, the one I was sitting at, made my head spin. So much so, that I thought oh my god, this is it, I'm going to die alone in this kitchen. I wondered about calling someone, an ambulance or my wife, but as I looked at my phone and saw the lock screen, it all just hit me. 
+
+I didn't belong here.
+
+This wasn't my house,
+
+'Chloe' definitely wasn't my wife.
+
+I don't drink tea.
+
+I definitely didn’t have a beach kitchen table.
+
+I ran to look outside to try and find some sort of familiarity, a clue as to what happened last night, and why I was there. I opened the front door to see a postman about to post some letters through the door. Confused, I just stood looking at him, he tutted, handed me some letters and left to go to the neighbour. I was starting to panic because before I went to sleep the night before, I was at a party at my apartment in Boston. I scanned the whole street, and it was nothing like I’d seen before. All these houses joined together going from left to right. They looked identical, all of them, just there. One thing that stuck out was how nice the weather was, it was blue skies and sunny. Again, I remembered it snowing last night.
+
+I didn't know what to do at this point so I walked back indoors, in bewilderment. How could this not be my life? Why was I remembering a completely different version of myself? I thought that it could’ve just been a vivid dream and I was probably hungover from the night before. But that feeling didn’t shift. 
+
+I noticed I still had some letters in my hand and as I made my way back into the kitchen I had a look at them. I'm not going to give you any personal details but after reading the names and the address of where I was, that’s when I knew I didn’t belong. The address listed in the letters was London. I have never been to London in my whole life, the only place I’ve been is within the US. How could I possibly be in the UK? 
+
+I could feel myself starting to hyperventilate, and all I could think was, how could this be possible?
+
+My last memory of the night before I woke up, I had a gathering at my place, now I live in a decent area of Boston, around Back Bay and there’s a communal rooftop terrace. It was windy and snowing a bit by the evening, the weather had been a mixture of sun and rain all day, but I wanted a smoke so I took my jacket and made my way to the terrace. No one was there and even though it was fucking cold, I always admired the view. This is where things get a bit hazy, I was getting colder and colder as I only had my jacket on, I didn’t expect to be up there long but something grabbed my attention along the railing. I can’t even remember what it was exactly but I made my way over to the edge of the rooftop. The wind was picking up some more, but still, I leaned over the railing to pick up this ‘thing’ that I still cannot remember what it was, and someone yelled ‘need any help there’. It frightened me as I thought I was the only one on the terrace. I said I was fine and I thought they had left. Now, I have to say that I had been drinking, it was my party after all, but I felt this weird presence come over me. Like a big dark weight pushing down on me. I felt a little breathless but I wasn’t thinking straight, I was so focused on picking this thing up. I remember my fingers brushing the item as it was teetering on the edge when I heard a voice right by my ear telling me, ‘you shouldn’t do that.’
+
+To tell you it scared the shit out of me, would be an understatement. It felt like my whole world just fell from my feet. I could feel the scream build up in the pit of my stomach ready to belt out. Then everything went black. 
+
+That's the last thing I remember before waking up. And now I'm here in this life that I know isn’t mine. 
+
+No matter how many times I try to wrap my head around it I just can’t understand how this is all happening. Am I having a mental health crisis, is this my life, did I fall into an alternate dimension? Did I have an intense dream? 
+
+After looking at the letters I decided maybe I should have a look around to see if there was anything to indicate why I was there. The strange thing was no matter what I looked at or where I searched, I could recall the memories behind each of these things. Like the little seagull magnet on the fridge of the day we went to Brighton and we knew we just had to buy it because our chips had been taken by seagulls earlier that day. How only nights ago we played Mario on the switch and because I won I threw popcorn all over the living room - there were still stray pieces between the cushions. The numerous trinkets, mementoes and memories of all these things me and ‘Chloe’ have ever done together and evidence of whole lives lived. The more I looked at these things, went through my wardrobe and saw my life laid out in front of me, the more I could remember the current life I was in. 
+
+I finally started to think to myself that maybe I had drunk too much or had some sort of brain episode that made me disassociate from my current life. I decided that maybe getting some fresh air might help me. This is where things get weirder. Even though I had calmed down a bit I was still on edge, a strangeness still irking deep inside me, telling me I didn't belong. No matter where I looked I just could not find my wallet anywhere. I looked in my pants (both ones I'm wearing and dirty ones), drawers, the kitchen, everywhere so I decided, what the hell I'm only going for a walk, why do I need it? Plus I had my phone if I needed it. I leave the house and as I start walking there's a familiarity with where I am. Like, I know around the corner there will be a newsagent and further, down the street, there’s a small field that I used to jog around. Honestly the more I was taking in my surroundings and thinking of the gathering we had with our friends, the more I was starting to feel relaxed and normal. Until I got my phone out (again with the phone). 
+
+I saw that there was a missed call and a voicemail that had been left from the night before, I didn’t notice it the first time I got my phone out earlier that morning after freaking out. I debate listening to it as I'm awaking around the park. Half of me knows that I used to jog here because I remember falling and cutting my leg up one winter morning about a year ago. I still have the scar. But half of me knows this is all wrong, that I shouldn't be able to remember these things. I looked down again, saw the picture of Chloe and clicked the voicemail. I wish I didn't click it. I wish I just pretended that I was having a bad day but I needed to know what was on that voicemail. A chill ran down my spine as I clicked on it, I can’t explain why, like it was wrong for me to be listening. 
+
+I'm still shaken by the message but here it is:
+
+‘Where the hell are you? I’ve looked everywhere for you. You’re missing your own party man. I came up to the terrace and couldn’t find you, did you run out of smokes?…. come on call me back when you can. ‘
+
+All of a sudden I got a barrage of texts from unknown numbers asking where I am and if I'm ok? That they can’t believe I had just vanished from my own home, my party. 
+
+The more I was reading the more my chest started to feel tight. I was sweating and my mind was racing. I realised after a few minutes I was standing dead still in the middle of the field. What made me look around was the absence of any sound or movement. It was as if the earth had stood still, not a bird or plane in the sky, not one person walking their dog, I couldn't even hear a single car which is fucking weird because I knew there was a busy main road only a few blocks away. Before I could think anymore about how quiet it was my phone started ringing. I didn’t recognise the number but I answered it despite my heart hammering in my chest. I said hello and was met with static that made me recoil from the phone, I said hello again and it was silent. I was about to hang up when I heard a whisper in the background. I could barely hear it at first but then as I listened carefully I could hear bits of a conversation. It was so jumbled up, going from panic to calm, static to silence. The most I got out of it was; ‘where are you….. I heard what happened please call me …. Party …. What the … “After several beats of silence I heard a voice I instantly recognised. ‘You shouldn’t be doing this.’ As soon as those words registered in my ear, it felt as if a ton of bricks had hit me. I collapsed into the wet grass, my insides tearing up so much I vomited. I couldn’t move for what felt like forever. My hands and knees were soaked, my forehead sweaty, back drenched. 
+
+All I could think was that I needed to get back home but where was my 'home' because this certainly wasn’t it? My vision started to tunnel and I knew I needed to move, even if I did get back 'home' at least I could search online for what happened. As I stumbled to my feet, I looked at my phone and it was black, completely dead even though moments before it was fine and fully charged. I put it back in my pocket and felt that there was something else in there. I mean it couldn't get any fucking weirder but there was the wallet I had searched high and low for just before I came out, nestled where my phone just was. My whole body was screaming at me not to look at it but I did. It was my wallet, with my ID. My Massachusetts driver's licence with my photo, address and all my information on it. 
+
+I don’t know how I got back to my ‘house’, everything felt like a blur. I still don’t know how to even comprehend the last 48 hours. I think I must’ve passed out or something because I woke up around 2 am this morning in bed with my ‘wife’ beside me. 
+
+Nothing seems real. Everything feels wrong and I still feel sick to my stomach. But seeing that ID made me realise, I can't be making this up. I don’t belong here. However, every time I try to think deeper about my 'past' life, more of it seems to be fading away. I know where I used to live and I know it's real (I looked on google) but when I think of my job and my home, I automatically think of my London life first, before my Boston one. 
+
+I bailed out of a ‘family gathering’ today, I said I didn’t feel well and it's not technically a lie but I've been losing my mind since I woke up in the early hours. I don’t even know how I am supposed to talk anymore - as you've all probably gathered by now. Am I American or British? That's one of the questions nagging at me. Certain words seem fluent to me whilst others don't.
+
+Before my wife left this morning, I asked her if there was anything different about me or my wallet and she looked confused. She said I lost my wallet last week because we had to cancel all the cards and order a new driver's licence. She then laughed at me and said that I'm probably still recovering from how much I had to drink on Friday…
+
+Before any of you ask. 
+
+The wallet is now gone, again, and I'm just at a loss as to what the fuck to do. 
+
+Am I losing my mind? 
+
+Do you know who I am? Was you at my party on Friday? What happened to me?
