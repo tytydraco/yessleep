@@ -28,7 +28,7 @@ I confirmed the order, and moments later a notification beeped on my phone.
 
 On the day that my package was supposed to arrive, MyRobot was all I could think of. Work dragged on for hours and I kept glancing at my clock. There was just a few more hours left of work.
 
-“Hey Khalil, how are things going?” When I looked up to my computer screen, I see a few eyes staring back at mine from the zoom meeting. “You seem a little distracted. We still have a few hours left of work, so I need you to be completely focused.”
+“Hey Khalil, how are things going?” When I looked up to my computer screen, I saw a few eyes staring back at mine from the zoom meeting. “You seem a little distracted. We still have a few hours left of work, so I need you to be completely focused.”
 
 “Yes, sir. Sorry.”
 
