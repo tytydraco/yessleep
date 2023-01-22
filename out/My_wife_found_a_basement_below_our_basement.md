@@ -24,7 +24,7 @@ I creaked open a door further down the hall. Rose was there, check. Tommy was in
 
 Cherelle turned around and snapped at me.
 
-“Come, MIchael.” She said, “I don’t want you thinking of any excuses before we make it downstairs and see this.”
+“Come, Michael.” She said, “I don’t want you thinking of any excuses before we make it downstairs and see this.”
 
 ──────────────────────
 

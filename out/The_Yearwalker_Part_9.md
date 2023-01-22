@@ -168,7 +168,7 @@ I could see myself sticking around. At least until the end of the year.
 
 &#x200B;
 
-One morning, as I went to take a jog around the airstrip, the weather had turned into a downpour. Still, I had to get some fresh air. I left my phone behind and decided I’d just be out for a little while. I love being out in the rain anyway.
+One morning, as I went to take a jog around the airstrip, the weather had turned into a downpour. Still, I had to get some fresh air. I love being out in the rain anyway.
 
 So I took the cargo lift, walked through the corridor, and out the front door. I was immediately hit by a gust of wind, and it really was pouring outside.
 
