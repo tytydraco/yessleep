@@ -248,7 +248,7 @@ Harvey’s expression crumpled. He patted his jeans. “I don’t think so?”
 
 Struggling to stand, I cursed whatever drugs had been forced into my bloodstream. I had to find my phone.
 
-Harvey scoffed. "Well, I'm sorry!” His tone dripped sarcasm. “I wasn't expecting to be involved in a kidnapping.”
+Harvey scoffed. "Well, I'm sorry!” His tone dripped sarcasm. “How was I supposed to know you would be kidnapped?" 
 
 “I’m not the one who has been kidnapped,” I hissed out, rummaging for mom’s phone she left for emergencies.
 
@@ -260,7 +260,7 @@ I dived over our sofa, lifting up cushions and throwing them onto the floor in f
 
 Something cold crept down my spine. “You know them?”
 
-Harvey shrugged. “I know of them.” He said. “They never come to school and have a crazy over- protective mother. My mom told me to stay away from them. It’s pretty much a universal rule in town not to talk to Wilder kids. I never see them anyway, so it’s not like it’s hard.”
+Harvey shrugged. “I know of them.” He said. “They never come to school and have a crazy over- protective mother. My mom told me to stay away from them. It’s pretty much a universal rule in town not to talk to Wilder kids."
 
 “That makes sense,” I said. “The police are in on it.”
 
@@ -336,7 +336,7 @@ When I reached my room, I wasn’t surprised to find no sign of Casper when I hu
 
 “Phoebe.” His lips quirked into a smile. “That’s your name. I definitely wasn’t waiting for you to tell me.”
 
-I shot him the first smile I’d had in days. “You behind me for four months and can’t remember my name?”
+I shot him the first smile I’d had in days. “You sit in front of me for four months and can’t remember my name?”
 
 “Harsh.”
 
@@ -396,7 +396,7 @@ Harvey rubbed at his eyes, and I noticed something smeared on the collar of his 
 
 “What’s that on your jacket?”
 
-I don’t think he heard me. “They ran her out of town, and I completely… damn, I forgot about him."
+I don’t think he heard me. “They ran her out of town, and I completely… damn, I forgot about him. This happened last year. How did I forget?"
 
 “You’re not saying his name,” I managed to get out, my attention going back to Casper. “Why aren’t you saying his name?”
 
@@ -418,7 +418,7 @@ I thought they were looking through the window before I realised they were inste
 
 Glimpsing Mrs Wilder’s shadow behind Casper’s door, I grabbed for Harvey’s arm, but I missed him and almost toppled over. It was like grasping thin air. 
 
-“Duck!”I hissed out. 
+“Duck!” I hissed out. 
 
 The two of us slammed into my carpet, and I pressed my face into the floor, struggling to breathe. “What...” Harvey finally turned to me with wide, almost unseeing eyes, and I was suddenly paying far too much attention to him, that rumbling question in my mind which had been driving me mad since he'd saved me. 
 
