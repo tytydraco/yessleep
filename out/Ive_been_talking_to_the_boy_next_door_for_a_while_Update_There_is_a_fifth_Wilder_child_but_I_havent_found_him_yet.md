@@ -50,7 +50,7 @@ I had never seen this thing attach itself to him. I had only ever seen it connec
 
 He blinked once and then again, his lips forming a small smile. Casper sat up with confused eyes and spoke to his mother. He started forwards, and I noticed the light turn red for a second, before flicking back to green. In sync, Casper’s expression looked like it was glitching, a wide and emotionless smile faltering before righting itself. He was fighting it. Either that, or the device was faulty. 
 
-Except I had seen exactly what he was like out of her control. Casper Wilder was a completely different person. I had no doubt this boy wasn’t clamouring to stay in control. Mrs Wilder didn’t seem to notice. It looked like Casper was asking her what was going on. Mrs Wider knelt in front of him and grasped his hands, squeezing them.
+Except I had seen exactly what he was like out of her control. Casper Wilder was a completely different person. I had no doubt this boy wasn’t clamouring to retake his mind. Mrs Wilder didn’t notice. It looked like Casper was asking her what was going on. Mrs Wider knelt in front of him and grasped his hands, squeezing them.
 
 “Stay here.” Her lips stretched in satisfaction mouthed before she stood up slowly and ruffled his hair. “I’ll be right back, okay?” She mouthed, before her head twisted to the window. I flattened myself against my carpet, my heart in my throat. It was almost like she could sense me watching. I stayed hidden until I was sure she was gone. When I slowly raised my head, there was no sign of Mrs Wilder. 
 
@@ -88,11 +88,11 @@ He dropped to his knees. I sensed his desperation, each word dripping from his l
 
 *It… it fucking hurts!*
 
-The boy’s face twisted into an animalistic cry, and he yanked at the chord, ignoring pooling black pooling from his nose. There it was again. That feral urge to get the thing out of his head no matter what. I pressed my palm against the window, jutting my chin at the erratic light struggling between red and green. I struggled to get his attention, stabbing at my own head. “Listen to me.” I mouthed. *Hey! Look at me!*
+The boy’s face twisted into an animalistic cry, and he yanked at the chord, ignoring pooling black dripping from his nose. There it was again. That feral urge to get the thing out of his head no matter what. I pressed my palm against the window, jutting my chin at the erratic light struggling between red and green. I struggled to get his attention, stabbing at my own head. “Listen to me.” I mouthed. *Hey! Look at me!*
 
 Casper shook his head. He took a shaky step back. I searched for the stitches on his skin, for rugged flesh and glimpses of patchwork shades of light and dark, but he looked like he always did. Perfect. It was only under candlelight in the Wilder kitchen had I seen his true form. It didn’t make sense to me that two versions of him existed. The one I was seeing, a teenage kid with a perfectly normal body, and his doll-self sitting next to his siblings, the flesh of his neck stitched up. “I can’t do this, Phoebe.” His lips formed the words, and I had to swallow barf.
 
-Tears glistened in his eyes, and he blinked them back, his eyes flickering and rolling to pearly whites and back to normal. He was trying to stay in control, and that thing was digging deeper. Casper was going to lose either way. His body was nothing but Mrs Wilder’s canvas.
+Tears glistened, and he blinked them back, his eyes flickering and rolling to pearly whites and back to normal. He was trying to stay in control, and that thing was digging deeper. Casper was going to lose either way. His body was nothing but Mrs Wilder’s canvas.
 
 “Casper!” I knocked on my window, manically pointing to my own head. “You can’t pull it out! That thing will kill you!”
 
@@ -106,7 +106,7 @@ It was supposed to be a weapon, but feeling it perfectly moulded into the flesh 
 
 I have only ever cut myself once while washing the dishes a kid.  Mom had freaked out, bandaging me up and insisting on a hospital visit to make sure I was okay. The cut was tiny. This was… different. This was self-inflicted. 
 
-The second I dug the teeth of the blade into my arm, I regretted it. The pain was searing, and I had to grab something to scream into. The pain was like nothing I had ever felt before, a cruel and relentless slicing stabbing into my skin. It hurt. It hurt so fucking much.  Thankfully though, halfway through the first letter, where I had been attempting to carve U WILL DIE into my skin, Casper’s grip on the chord slipped, and the end hit the ground. He seemed to stiffen up. His eyes were wide suddenly, almost catatonic. Thank god. I really didn’t want to permanently ruin my arm to get a message across, but the U I had successfully sliced into several layers of my flesh was burning.
+The second I dug the teeth of the blade into my arm, I regretted it. The pain was searing, and I had to grab something to scream into. The pain was like a vicious burn, a cruel and relentless slicing stabbing into my skin. It hurt. It hurt so fucking much.  Thankfully though, halfway through the first letter, where I had been attempting to carve U WILL DIE into my skin, Casper’s grip on the chord slipped, and the end hit the ground. He seemed to stiffen up. His eyes were wide suddenly, almost catatonic. Thank god. I really didn’t want to permanently ruin my arm to get a message across, but the U I had successfully sliced into several layers of my flesh was burning.
 
 Screaming into an old pair of jeans, I was  aware of pooling scarlet dripping in tiny rivers, streaking down my wrist, then my palms and fingers. The knife dropped from my fingers, and I straightened up, struggling to keep my cool. Initially, I thought Casper’s reaction was because he’d figured out what I had been trying to carve into my arm.
 
@@ -138,9 +138,11 @@ He needed to be put down like the rest of his undead siblings.
 
 But I had come to that conclusion far too late. If it had been just minutes earlier, I would have told him to pull it out. To end his suffering for good. Matilda had a strong grip, easily gagging his cries. Though they weren’t for himself. He was screaming at me. Ripped from my own reverie, I was suddenly aware of the shadow looming behind me, the shadow I hadn’t noticed because the pain was playing with my head, sending my thoughts into a hurricane.
 
-Instead of twisting around, I stared down at thick rivulets of red dripping down my wrist. I was making a mess, I thought dizzily. Mom wouldn’t like that. Fuck. She was going to kill me for getting blood all over her brand new carpet. “Oh, Phoebe,” Mrs Wilder’s voice was smooth like honey.
+Instead of twisting around, I stared down at thick rivulets of red dripping down my wrist. I was making a mess, I thought dizzily. Mom wouldn’t like that. Fuck. She was going to kill me for getting blood all over her brand new carpet.
 
-I had barely noticed her embrace. It was motherly. Which caught me off guard. Not like she was trapping me. More like a hug. Her face was warm, her breath coming out in sharp pants against the back of my neck. She chuckled, and her grip tightened, her clammy hand suffocating my mouth. “How sweet. I think my son likes you. Now, I know Casper isn’t very well. His body is quite sick due to rejection— but I’ll be fixing they very soon. So, please try and ignore his… erratic behaviour.” 
+“Oh, Phoebe,” Mrs Wilder’s voice was smooth like honey.
+
+I had barely noticed her embrace. It was motherly. Which caught me off guard. Not like she was trapping me. More like a hug. Her face was warm, her breath coming out in sharp pants against the back of my neck. She chuckled, and her grip tightened, her clammy hand suffocating my mouth. “How sweet. I think my son likes you. Now, I know Casper isn’t very well. His body is quite sick due to rejection— but I’ll be fixing that very soon. So, please try and ignore his… erratic behaviour.” 
 
 I took a step back, and she followed me, her spare hand coming to graze over the gash on my arm. She sighed. “Really, Phoebe, I hate you.” She spat into my neck. “I want to drill into you and take you apart like all of my sweet dolls. I want to dress you up in all of the best clothes and braid your pretty hair, but why on earth would I waste a face like yours, hmm?”
 
@@ -148,7 +150,7 @@ I was paralysed as her fingers sifted through my hair and pulled at my cheeks. �
 
 “Like my daughter is going to be.”
 
-Her lips stretched into a wide smile, a monstrous grin splitting her face apart. “Really, baby, you should never have stuck your nose is business which wasn’t yours. Because then I might not have properly seen you. Your pretty face, and perfect cheeks, and round brown eyes which I have wanted for a long, long time.” 
+Her lips stretched into a wide smile, a monstrous grin splitting her face apart. “Really, baby, you should never have stuck your nose in business which wasn’t yours. Because then I might not have properly seen you. Your pretty face, and perfect cheeks, and round brown eyes which I have wanted for a long, long time.” 
 
 The woman sat up with a sigh, while black spots danced in my vision, threatening to plunge me into the dark. Her voice followed me as a wet rag once again found my mouth. “You have no idea how long I have been looking for the perfect parts, sweetie. And now I have them!” She laughed again. “You are quite the gold mine, aren’t you? I think I will start by scooping your eyes out…”
 
@@ -160,13 +162,9 @@ She was controlling my body and inflicting pain on me through my doll.
 
 Mom’s paper doll came to my dizzying mind. I’d ripped it to shreds. A sickly paste crept its way up my throat. Her fingers came apart, revealing the half scrunched up doll— and I could breathe again. Her fingernails picked at the doll’s tiny arms, and I felt the ghostly sensation of something stabbing at my skin, digging into the word I had carved into myself. “Don’t hurt yourself, Phoebe. I don’t like scarred flesh.”
 
-Her hand which smelled like rot and filth, clutching the soaked rag was suffocating me, sending me into spiralling oblivion, choking on the stink of pool cleaner and rich lavender. That was Mrs Wilder's scent. She smelled like clinical rooms and wildflowers. Mrs Wilder was the opposite of death despite playing around with mangled corpses, transforming flesh into doll pieces. I don't remember much. 
+Her hand which smelled like rot and filth, clutching the soaked rag was suffocating me, sending me into spiralling oblivion, choking on the stink of pool cleaner and rich lavender. 
 
-My knees hit the ground once again, my body following. I could still hear Casper's frenzied knocks. When I last saw him, he had managed to claw himself out of his sister’s grasp and to the window. His cries filled with splintered agony, and yet a fake happiness and euphoria being drilled into what should have been a dead brain. 
-
-Casper was dead, I thought, as the ground began to disappear from underneath me. 
-
-How was I supposed to save a boy who was already dead? 
+That was Mrs Wilder's scent. She smelled like clinical rooms and wildflowers. Mrs Wilder was the opposite of death despite playing around with mangled corpses, transforming flesh into doll pieces. My knees hit the ground once again, my body following. I could still hear Casper's frenzied knocks. When I last saw him, he had managed to claw himself out of his sister’s grasp and to the window. His cries filled with splintered agony, and yet a fake happiness and euphoria being drilled into what should have been a dead brain. Casper was dead, I thought, as the ground began to disappear from underneath me. How was I supposed to save a boy who was already dead? 
 
 The thought hung onto me. I wasn’t passed out for long. When I opened my eyes, my face felt... strange. It felt sore. Like I'd rubbed sandpaper all over my cheeks. Through blurry vision, I saw slithers of late afternoon sunlight peeking through the blinds, and familiar sunshine coloured walls. I was in our kitchen. 
 
@@ -180,7 +178,9 @@ Freshly picked roses mixing with the taste of my own blood pooling down my lips 
 
 Though that was not what I was looking at.
 
-My gaze was on my own cheeks and nose and forehead, where the witch had scrawled over my skin, like a hyperactive child with finger paint. The ink was red, arrows pointing to my lips, bloated bubbles circling and crossing out which parts she was going to cut, and which parts she was going to leave. The sight was horrifying. Like I was in my own personal horror movie. I started to scream, spitting out the rose. It landed on the ground with a wet sounding smack, and I rocked backwards and forwards in the chair, noticing I had been dressed in plastic overalls over my own clothes. For the blood, I thought. She didn’t want to make a mess. 
+My gaze was on my own cheeks and nose and forehead, where the witch had scrawled over my skin, like a hyperactive child with finger paint. The ink was red, arrows pointing to my lips, bloated bubbles circling and crossing out which parts she was going to cut, and which parts she was going to leave. The sight was horrifying. Like I was in my own personal nightmare. I spat out the rose and it landed on the ground with a wet sounding smack, and I rocked backwards and forwards in the chair, noticing I had been dressed in plastic overalls over my own clothes. For the blood, I thought. 
+
+She didn’t want to make a mess. 
 
 I screamed, and it was guttural, and I didn’t stop screaming until my throat was aching. The markings on my face felt like finality. They were going to happen. They were itchy, ice-cold on my skin. I noticed Mrs Wilder had bandaged my arm and that sent my stomach heaving, eliciting another screech. "Mom!" I sobbed, kicking my legs.
 
@@ -188,7 +188,7 @@ My feverish eyes snapped to the trash where I dumped my mother’s paper doll. I
 
 There was something about the image which set off something feral inside me. I didn’t scream or cry, or struggle. I just stared at the trash can, swallowing sour barf which kept creeping up the back of my throat. I was losing my fucking mind. I can’t explain what I felt like right then, because I have never felt true despair in my life except at this point and the hours following. Like the world was crumbling beneath my feet, like I was being torn into pieces with nobody to put me back together. 
 
-I needed my mom. I needed my mom, and she wasn’t coming. Mom was always there when I was upset or sick I was scared—and there was nothing left of her but that stupid paper doll I was regretting throwing in the trash.
+I needed my mom. I needed my mom, and she wasn’t coming. Mom was always there when I was upset or sick. I was scared—and there was nothing left of her but that stupid paper doll I was regretting throwing in the trash.
 
 Mother instinct, huh? 
 
@@ -216,7 +216,7 @@ I waited for the door to open, but nothing happened and my heart sank.
 
 When I was staring at the ceiling, trying and failing to pull my bindings apart, a shadow looming in the doorway made me jump. It was too small to be Mrs Wilder. 
 
-Straightening up, I blinked rapidly, drinking in the figure which bled into a real person. It was a kid from my school. The guy sat behind me in math class and sometimes twisted around in his chair and asked how my day was going. 
+Straightening up, I blinked rapidly, drinking in the figure which bled into a real person. It was a kid from my school. The kid sat in front of me in math class and sometimes twisted around in his chair and asked how my day was going. 
 
 He was smallish with light brown hair, his signature football jersey awkwardly hanging off one shoulder. Harry Markham. The guy spent 99.9% of class with his head in his arms, and when he was awake he could barely sit still, his shoe constantly tapping beats into the floor.
 
@@ -230,6 +230,8 @@ His cheeks turned significantly paler. “So, someone just strolled in and tied 
 
 “Something like that.”
 
+"Right."
+
 I couldn’t feel his fingers sifting through the rope, but the restraints were loosening around my wrists.
 
 “Hurry up, Harry.” I managed to get out. “I need to get to my mom.”
@@ -240,7 +242,7 @@ His voice was edging on hysteria. “And you’re going to tell me what’s goin
 
 When the ropes fell away, I dove to my feet, scrambling to keep myself balanced. “Do you have your phone?”
 
-Harvey’s expression crumpled. He patted his jeans. “Uh, I don’t think so?”
+Harvey’s expression crumpled. He patted his jeans. “I don’t think so?”
 
 “You don’t think so? You either do or you don’t!”
 
@@ -318,7 +320,7 @@ So, I’d show him.
 
 Gesturing him to follow me, I headed up to my bedroom. Harvey stuck by my side as I dived up the stairs.
 
-“So, are you going to tell you about the.. you know..” He pointed to his own face. “The scribbles.”
+“Are you planing on explaining the.. . you know..” He pointed to his own face. “The scribbles.”
 
 “I’ll get to that.”
 
@@ -334,7 +336,7 @@ When I reached my room, I wasn’t surprised to find no sign of Casper when I hu
 
 “Phoebe.” His lips quirked into a smile. “That’s your name. I definitely wasn’t waiting for you to tell me.”
 
-I shot him the first smile I’d had in days. “You sit in front of me for four months and can’t remember my name?”
+I shot him the first smile I’d had in days. “You behind me for four months and can’t remember my name?”
 
 “Harsh.”
 
@@ -362,7 +364,9 @@ Opening my mouth to answer him, the words dried up in my throat when there was a
 
 I expected Harvey to make a sly remark, but when I turned to him, the boy’s expression had completely contorted. “Fuck.” Harvey straightened up, hissing out. He looked like he was in pain for a second, before seemingly snapping out of it. “I know him,” he whispered. “I mean… I knew him? I think I knew him? Fuck. I don’t know!” I watched the boy pace my room, his hands clawing at his hair. The way he was acting reminded me of Casper's freak out. 
 
-“I know him… but I also don’t? Jeez, I can’t remember. It feels like I’m being.. stabbed in the fucking head. Holy shit, my head is killing me. I must have overdone it.” Harvey choked out a hysterical laugh and turned to me, his lips stretched into a pained smile like he was struggling to understand what he was seeing. "He was in my homeroom, and I said maybe two words to him.” My classmate let out a breath, rubbing the back of his head.“Phoebe, this might not be the best time to tell you this, but I’m pretty sure the boy next door is dead.” Harvey squinted. “He drowned.” He said, but his tone was almost questioning, like he wasn’t sure what he was saying.  “Last winter.”
+“I know him… but I also don’t? Jeez, I can’t remember. It feels like I’m being... stabbed in the.. urgh. Holy shit, my head is killing me. I must have overdone it.” Harvey choked out a hysterical laugh and turned to me, his lips stretched into a pained smile like he was struggling to understand what he was seeing. "He was in my homeroom, and I said maybe two words to him.” My classmate let out a breath, rubbing the back of his head.“Phoebe, this might not be the best time to tell you this, but I’m pretty sure the boy next door is dead.”
+
+Harvey squinted. “He drowned.” He said, but his tone was almost questioning, like he wasn’t sure what he was saying.  “Last winter.”
 
 There it was—and it was enough suck all of the oxygen from my lungs. I was waiting for the confirmation but it was still painful.
 
@@ -370,7 +374,7 @@ This agonising reality was like knives slicing into me. “We have a tradition e
 
 “When the town lake freezes over, we carve our names into the ice for good luck. It’s a stupid tradition, but it means something to us—especially kids heading to college.” His eyes blinked open.  “Fuck. It’s like I completely… forgot about him.” Harvey shook his head.
 
-“Anyway. This guy. He was a golden boy, you know? Kind of a dick, but somehow got along with pretty much everyone. He was carving his name into the ice, and this little girl went straight through. So, naturally, he jumped in after her—but neither of them made it. The little girl’s body was found and his never was. So, naturally, the town went crazy and blamed him for not saving her.”
+“Anyway. This guy. He was a golden boy, you know? Kind of a dick, but somehow got along with pretty much everyone. He was carving his name into the ice, and this little girl went straight through. So, naturally, he jumped in after her—but neither of them made it. The little girl’s body was found and his never was. The the town went crazy and blamed him for not saving her.”
 
 “But he risked his life!” I found myself hissing out.
 
@@ -380,7 +384,7 @@ This agonising reality was like knives slicing into me. “We have a tradition e
 
 “Just his mom. She was nice. I remember she used to hand out candy for all of us when we were in kindergarten. When her son died, she never came out of her house. Then people threw rocks at her windows, spray painting 'murderer' on her car.” He shook his head. “Even our school was told we weren’t going to mourn him, because he had caused the death of a little kid. His name was blacklisted. It was pretty fucked up. He didn't even have a funeral."
 
-Harvey prodded between his brows, his lips curling. "The memorial his mom put in her yard was destroyed by this army of Karen’s insisting it was justice for the little girl’s death, when in reality nobody wanted to admit that it was parental neglect which killed her. The crazy bitches blamed it on him. They called him a murderer,  convinced he'd done it on purpose because of reports of seeing him dripping wet sitting on his mom's doorstep when she was looking for his body herself. She almost died from hyperthermia diving in there for him."
+Harvey prodded between his brows, his lips curling. "The memorial his mom put in her yard was destroyed by this army of Karen’s insisting it was justice for the little girl’s death, when in reality nobody wanted to admit that it was parental neglect which killed her. The crazy bitches blamed it on him. They called him a murderer, convinced he'd done it on purpose because of reports of seeing him dripping wet sitting on his mom's doorstep when she was looking for his body herself. She almost died from hyperthermia diving in there for him."
 
 His mom, I thought dizzily.
 
@@ -392,7 +396,7 @@ Harvey rubbed at his eyes, and I noticed something smeared on the collar of his 
 
 “What’s that on your jacket?”
 
-I don’t think he heard me. “They ran her out of town, and I completely… I forgot about it.”
+I don’t think he heard me. “They ran her out of town, and I completely… damn, I forgot about him."
 
 “You’re not saying his name,” I managed to get out, my attention going back to Casper. “Why aren’t you saying his name?”
 
@@ -412,7 +416,9 @@ The boy next door appeared once more, and Harvey’s eyes followed him—but  th
 
 I thought they were looking through the window before I realised they were instead drinking in oblivion. He couldn't see me. 
 
-Glimpsing Mrs Wilder’s shadow behind Casper’s door, I grabbed for Harvey’s arm, but I missed him and almost toppled over. It was like grasping thin air. “Duck!”I hissed out. 
+Glimpsing Mrs Wilder’s shadow behind Casper’s door, I grabbed for Harvey’s arm, but I missed him and almost toppled over. It was like grasping thin air. 
+
+“Duck!”I hissed out. 
 
 The two of us slammed into my carpet, and I pressed my face into the floor, struggling to breathe. “What...” Harvey finally turned to me with wide, almost unseeing eyes, and I was suddenly paying far too much attention to him, that rumbling question in my mind which had been driving me mad since he'd saved me. 
 
