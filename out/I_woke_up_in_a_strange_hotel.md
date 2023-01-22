@@ -1,4 +1,4 @@
-I don't really remember much, nor have I told anyone about this but I need some closure. For context, my wife was in labour ●●and there was black ice all over the road. You can probably guess where it went from there. There was a moose in the middle of the highway and I swerved into a lake. I still remember the screams of my wife, trying to swim up but to no avail.
+I don't really remember much, nor have I told anyone about this but I need some closure. For context, my wife was in labour and there was black ice all over the road. You can probably guess where it went from there. There was a moose in the middle of the highway and I swerved into a lake. I still remember the screams of my wife, trying to swim up but to no avail.
 
  I can't recall much after that but I woke up in a 2000's era modern-ish hotel. Rubbing the groggines from my eyes was when I felt it, my clothes where all wet and I was having a hard time to breath, but eventually chalked it up to the AC being too cold.
 
