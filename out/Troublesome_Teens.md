@@ -16,7 +16,7 @@ I will admit that the exchanges with Mrs. Smith became more and more awkward as 
 
 Almost immediately after going into the basement, Deputy Morrow ran back up the stairs, and that is when Mr. Smith entered the home and began shooting. After a brief exchange of gunfire, Deputy Morrow had shot Mr. Smith, who died at the scene. 
 
-Mrs. Morrow had been shot in the stomach.  Deputy Morrow then called for backup and began to attend to Mrs. Smith, who was begging us not to take her son.
+Mrs. Smith had been shot in the stomach.  Deputy Morrow then called for backup and began to attend to Mrs. Smith, who was begging us not to take her son.
 
 I ran down to the basement and discovered that the Smith’s had indeed been holding one of their sons in deplorable conditions. He was chained to the floor from four sides. The chains were attached to a collar around his neck. There were multiple scars all over every inch of his body, along with two seemingly fresh lacerations to his torso. 
 
