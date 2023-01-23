@@ -1,69 +1,13 @@
-I don’t know where the hell I am. My day started as normal. I woke up at around 7:30am, got out of my house and headed to work at around 8, parked my car in the nearby car park and started work, in the same, boring, monotonous complex of office cubicles that were copy and paste of each other. 
+The last time I visited my friend’s apartment, it was raining. The apartment was on the 5th floor of a walk-up, and as I climbed the stairs I had to awkwardly lean against the wall of the stairwell for balance, as I was struggling with a heavy package I was carrying in both arms. When I finally reached the 5th floor I managed to open the stairwell door with my elbow, and my wet shoes made a squelching sound on the carpeted hallway floor as I walked to the apartment door. 
 
-Even the people were the same. Same face, same hair, same facial expression that looked as if their very soul was leaving their body by the second, being sucked away from this boring life. 
+After setting the package I’d been carrying down beside me, I fished the key out of my pocket and unlocked the door. Picking the package up again, I stepped into the apartment. Before closing the door behind me, I flipped the foyer light on with my elbow, then walked in a bit further and did the living room lights as well. Only then did I close the door behind me. This done, I walked into the living room and set the package down on the coffee table. Although the sun still wouldn’t set for another hour, the rain and overcast sky made it as dark as the night would be. Although the lights in the living room were on, there seemed to be a lingering gloom in the corners and the dark hallway which led to the rest of the apartment. Despite this, though, there weren’t many complaints I could make about the space. 
 
-Everything was normal, in place. Nothing was out of the ordinary. At some point, when I had my face buried into my computer, my boss told me to drop off a pile of files to a coworker on the lower floor. I was bored shitless of typing the same stupid things over and over again to insanity so i said i would. 
+My friend’s apartment was always a treat to visit, even when my friend, the main draw of the place, was not there. It was airy and spacious, with high ceilings and a row of tall windows on one wall overlooking the river. It was one of those incredible old Victorian places, with the original molding and woodwork still in perfect condition and the wide planks of the hardwood floor dark and glossy. But the best part was the art. My friend has an extensive art collection, and really tasteful too. Some really beautiful Italian tapestries. When they were away, which was often, they would get any packages due to arrive shipped to my place and I would bring them into the apartment directly. With them not there to buzz the delivery guys in, packages would often just be left in the front lobby, where they often mysteriously went missing. It was a bit of a hassle lugging the bigger ones over from my place, but I didn’t mind. My friend always paid when we went out to eat, so I figured it all evens out. And I got to look at the art too–on this visit, as almost all my visits, after putting down the package I turned to study one of the tapestries hanging on the walls. I could’ve turned on more lights to see them better, but I wasn’t going to stay for long. They were better in daylight, and I wanted to leave in time to get a bubble tea before the shop closed. 
 
-I took the files from him and made my way to the nearest elevator, pressed the button for floor 23 and watched the doors close. Everyone seemed to watch me as the doors closed. I thought nothing of it. I waited a while, feeling the force of the elevator jolt and move downwards. I waited and waited and waited. 
+Even as I looked at the tapestries, though, I found my gaze drawn out those big windows, the darkness of the early evening shallowed and diluted by the glow of the streetlights. My friend must have had the windows double-glazed, because while I saw the rain falling and cars passing, the apartment was silent. It was the kind of silence that seems to almost be a sound, when a place is so still and empty that it almost creates a hum of static. Leaning forward, I rested my forehead against the cool glass and watched the street. 
 
-This is where I got confused. I was only going down 2 floors and from how long I was in the elevator it felt like I was going down 100 floors. 
+After a few minutes my forehead started to feel a little numb from the cold glass. I was just lifting my head from the window when I heard behind me a whistle. It wasn’t a loud whistle, or long. It sounded like someone in one of the rooms to the back of the apartment had whistled the first note of a tune without continuing it. I immediately froze, and a deep sense of dread crashed over me. I listened sharply to try to catch the sound again, because it had been just quiet enough that I started to doubt if I’d actually heard it. But as I stood there unmoving, all I heard was the static silence, which seemed to somehow get louder. Unblinkingly I stared at the window, but now not at the scene outside, but at the dim reflection of the room behind me in the glass, but it was too dim to make anything out clearly. Standing there frozen with dread, I tried to parse the source of my fear. If there was someone in the apartment, I felt, perhaps overconfidently, that I could handle it. But that sound was something—uncanny.
 
-In a compound of panic and confusion I watched the screen above the door display the number I was on. It read 25. I rubbed my eyes, squinted, did a double take and it still read 25. That was the floor I had entered from. Why the hell was I still on this floor, not to mention I could literally feel the elevator falling. 
+After hearing nothing for some number of minutes or hours, though, I very slowly began to turn. As more and more of the apartment came into my view, my fear grew, my heart beating and beating. Finally I saw the dark hallway which led further into the apartment, and although it was just how it had been it made me sick with fear to look at.
 
-I decided that maybe it was just stuck and I was so used to it working that the feeling of it moving was all in my head. 
-
-Just when I was in the motion of pressing the emergency stop button, the doors opened. I listened to the jarring, ear piercing squeal of the doors as they opened, revealing a hallway. A long, long hallway. The walls were painted grey, with little to no detail on them, with a few paintings and scattered lockers, boxes and chairs lying about. 
-
-I was hesitant, but after trying to press the other buttons and the elevator refusing to open, I stepped through the doorway. There was an echo, even from my footsteps. The echo appeared to travel from one side of this monstrously long hallway to the other. I called out for somebody.
-
-“Uh, hello?” I heard the echo travel and repeat “I came from floor 25. The elevator has stopped working and I'm not sure which floor this is. Is there anybody who could help me please?” 
-
-I waited for an answer. Nothing, absolutely nothing. No voices, no footsteps other than my own and I still could hear the echo of my voice in the distance. 
-
-On the other side of the hallway I could just make out a tiny, dirty yellow coloured door, with a chair next to it on an angle. 
-
-‘If I can make it there, maybe there is help on the other side.’ I thought. I figured that maybe there was some construction down here for storage and that there could be the workers on the other side of that door. Although this hallway was insanely long I could still walk there. 
-
-I started walking, listening to the echo of my footsteps and my steady breathing. I looked at some of the paintings. They were in a sort of loop, showing the same 4 paintings. 
-
-The first one was of a young boy and his family. The boy has his back on them, and they are all in distress. 
-
-The second one was of the same boy climbing a mountain. I couldn’t see the top of it, but it's steep and difficult to climb. 
-
-The third was the boy at the top of the mountain, standing. Usually you would say standing proudly, but he was not. He was…disappointed. I can see the hope from his eyes, fading away as I examine the picture. 
-
-The last one was of the boy meandering a long, long road, with no end in sight, and nobody around him. He was alone, on his own, having turned his back on everyone he knew to climb this mountain to the top, and found there was nothing there to find. 
-
-I strangely resonated with him. He chased a dream and it went poorly, and there was nothing for him to come back to, but the ruins of the long road.
-
-I carried on walking and walking and walking and walking. 
-
-The door didn’t seem to be any closer to me. It was still tiny, minuscule like it was earlier. 
-
-‘How long is this hallway?’ I kept asking myself, feeling as though it was growing with every step I took. I looked back, seeing the elevator far out in the distance, so far I could barely see it. No, I couldn't see it at all. I had definitely travelled far, far enough that I should've made it to the other side by now but I felt as though it was growing. 
-
-I started running. I sprinted for as long as I could, hearing the deafening echoing of my footsteps and my heavy breathing. I ran and ran and ran. I didn’t wanna stop, not until I had made it to that damn door. I didn't care what was on the other side of it, people, the office, oblivion, another hallway. I didn't care but I had to know. I was becoming obsessed with knowing, watching as the yellow shape shook in my few as I ran. I felt myself slowing down, my legs in pain and my chest filling up with intense stinging. 
-
-I gasped and struggled for air. 
-
-That's when I realised how little I could breathe in this place. I had been taking deep breaths without realising and gasping every so often. After taking a few seconds to try and recover, I looked up to the door, hoping I was closer. I wasn’t and in a fit of anger, sadness, distress and despair kicked the wall, punched the floor, punched myself, screamed at the top of my lungs and fell to the ground, sobbing into my hands, hearing it drop through my fingers onto the floor. There was nothing I could do to get out of here. I was stuck, trapped forever. 
-
-Now I sit here, on my own, in a pool of my own tears and failure, with nobody around me. The only voices I hear are that of mine and the echoes, those damn, continuous echoes that seem to drone on forever. 
-
-I'm so hungry. It has been days, weeks maybe i don’t know. I don’t wanna die here. I wanna go back and see my mum and hug my dad. I wanna tell my sister I'm sorry and hang out with my friends like we did before this. I wish I could go back. 
-
-I feel as though the paintings are looking at me, the boy, the family, all staring at me. Even when I move I can feel their endless gaze follow me. Stop looking at me please. Look at something else. 
-
-They just stare at me, endlessly. What do they want from me?
-
-I've torn down the paintings and ripped them up only to see the others in the distance still intact. I don’t know how but I feel them all staring at me too, even the ones behind me. I hear them somehow. I hear their shouts of judgement and disappointment in me. 
-
-I just want to leave this place. The door in the distance is toying with me, insulting me, bullying me. It knows i want to reach it but i can’t and it is laughing at me. 
-
-What are you laughing at?! What are you looking at?! What do you want from me?! My life, my blood, my soul, my thoughts. Name me and I'll give it to you just stop tormenting me?!
-
-Just get me out of this place, please, I'm begging you. 
-
-I can’t walk, i'm too weak too. I have no energy at all. I keep closing my eyes and curling up into a ball and trying to escape in my mind, opening my eyes every so often, expecting to be back in my stupid office cubicle. Maybe I deserve this, for abandoning everyone. Maybe it is for the best. What the hell sort of a difference was I gonna make. I should’ve been there more with everyone. I loved my friends and family and I left them behind chasing a dream that wasn’t even mine to begin with. All these thoughts and feelings towards this never ending goal that i would never reach and now, i'm here, thinning away at what little time i have left, using all my strength to write this stupid story of mine, so that if anyone who may find it, please, find my family and tell them i love them so very much.
-
-And that I'm sorry.
+Slowly, very slowly, I began to move across the living room to the foyer and apartment door, staring into the dark of that hallway, staring, staring, staring—at any second I expected a figure to appear, a figure or—something, to appear—when I heard it again, two notes this time, no louder than before, and I knew somewhere down that dark hallway, something whistling, something down there in the dark, whistling, there was—stumbling, I ran backwards out of the living room, through the foyer, arms feeling blindly for the doorknob and staring, never taking my eyes off that dark hallway as I practically fell out the door, slamming it, turning to run to the stairwell and practically throw myself down it, glancing back up the stairs at every turn to look for something up there, behind me, not sure if I heard that whistle again or the echo of my sneakers squeaking on the floor as I ran. As I flew out of the doors of the lobby and onto the dim street I became aware that there were tears streaming down my face. I didn’t stop running until I ran into the grocery store a few blocks away.
