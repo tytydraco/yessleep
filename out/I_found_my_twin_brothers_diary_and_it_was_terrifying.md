@@ -10,7 +10,7 @@ I found myself becoming more and more intrigued by this secret side of my brothe
 
 He said that there was no point in delving any further into what our brother had written — that trying to understand it would only be tormenting ourselves with unfair expectations. He said we should just remember that our brother’s memory will live on in us and leave it at peace.
 
-To tell the truth, he and Tom were never close to each other, they were like strangers. Tom barely spoke to him, and when he did, it was a stilted, uncomfortable exchange. His words were clipped and void of emotion. My twin and I shared a bond that Tom could never comprehend; it made him envious. I could see the resentment in his eyes every time we exchanged glances. I was not surprised that he was so judgemental.
+To tell the truth, he and Tom were never close to each other, they were like strangers. Carl barely spoke to him, and when he did, it was a stilted, uncomfortable exchange. His words were clipped and void of emotion. My twin and I shared a bond that Carl could never comprehend; it made him envious. I could see the resentment in his eyes every time we exchanged glances. I was not surprised that he was so judgemental.
 
 Somehow he convinced me and I also dismissed it as just the ramblings of a troubled mind. But as I kept reading, the entries became even more disturbing. He wrote about hearing voices whispering his name in the middle of the night, about feeling a presence in his room, and about waking up to find scratches on his body.
 
@@ -24,7 +24,7 @@ I lay in bed that night, feeling utterly terrified. I could feel a presence in t
 
 I raced down the hallway and burst into Carl's bedroom. He was nestled in the sheets of his unmade bed, snoring softly. I shook him until his eyes flickered open.
 
-"Tom, wake up! There was a figure in my room! I'm certain it was watching me and I was so scared!"
+"Carl, wake up! There was a figure in my room! I'm certain it was watching me and I was so scared!"
 
 He grumbled and groaned, not wanting to face reality.
 
