@@ -108,6 +108,6 @@ Now I realized why Carl had always acted so strangely towards my twin brother an
 
 He had driven Tom to take his own life, and he seemed intent on doing the same to me.
 
-I crept past my brother's bedroom door, every nerve in my body on edge. I held my breath, not wanting to wake him up and face his wrath. I peered in and saw his small frame tucked in the blankets, unmoving, with a peaceful smile on his lips. I exhaled a sigh of relief, grateful he was still sound asleep. I hastily grabbed my things, not wanting to risk him waking up and finding me gone. I knew this could be the last time I ever saw my brother, and even though I knew he was a psychopath, I felt a twinge of sadness as I closed the door behind me.
+I crept past my brother's bedroom door ignoring the voices and the threatening forms around me, every nerve in my body was on edge. I held my breath, not wanting to wake him up and face his wrath. I peered in and saw his small frame tucked in the blankets, unmoving, with a peaceful smile on his lips. I exhaled a sigh of relief, grateful he was still sound asleep. I hastily grabbed my things, not wanting to risk him waking up and finding me gone. I knew this could be the last time I ever saw my brother, and even though I knew he was a psychopath, I felt a twinge of sadness as I closed the door behind me.
 
 My heart raced as I quietly made my way into the night and out of his life. Even though Carl hasn't seemed to notice me missing yet, I know one day I'll have to tell my parents what happened.
