@@ -104,7 +104,7 @@ It wasn't an evil force that was chasing me. Nor a ghost. Nor a malicious phanto
 
 It was all in my head, induced by the LSD.
 
-Now I realized why Carl had always acted so strangely towards my twin brother and me. His jealousy and hatred had evolved into a sick sentiment.
+Now I realized why Carl had always acted so strangely towards my twin brother and me. His jealousy and hatred had evolved into a sick sentiment.  Our parents might have cared for Tom and me a bit more because we were younger and more vulnerable but it didn't mean they didn't love him equally.
 
 He had driven Tom to take his own life, and he seemed intent on doing the same to me.
 
