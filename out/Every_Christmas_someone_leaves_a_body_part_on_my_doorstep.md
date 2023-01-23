@@ -132,7 +132,7 @@ Hill just grunted and hung up.
 
 “I think he likes me,” James said.
 
-The second gift of the month arrived that night. I woke up to the sound of James cursing from downstairs. He wasn’t the kind of guy who yelled a lot, especially in the middle of the night, so I was moving as soon as I grabbed the baseball bat from under the bed. I found Jesse standing in our kitchen with the back door open. He turned when he heard me run down the stairs. The look on his face stopped me as sure as an electrified fence.
+The second gift of the month arrived that night. I woke up to the sound of James cursing from downstairs. He wasn’t the kind of guy who yelled a lot, especially in the middle of the night, so I was moving as soon as I grabbed the baseball bat from under the bed. I found James standing in our kitchen with the back door open. He turned when he heard me run down the stairs. The look on his face stopped me as sure as an electrified fence.
 
 “He left another box,” James said.
 
