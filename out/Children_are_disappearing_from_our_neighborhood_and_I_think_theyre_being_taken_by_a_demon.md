@@ -66,7 +66,7 @@ At that moment, the backup generators kicked on, and the laboratory was filled w
 
 “Ah,” Mr. Grim said congenially, “I am sorry, but I need your son.” He smiled at me, an eerie ear-to-ear grin that showed all of his bloody teeth and the countless sores on his blackened gums. “I used a lot of energy materializing, and I need food. I will let you live, however, Jack.” His smile widened, as if he were offering me some kind of present. “Just leave the boy, get in your car and drive home, and you can live a full life.” As he spoke, I got an idea. We were much closer to the door than Mr. Grim. 
 
-I quickly dropped my phone in my pocket, picked up a large computer and hurled it Mr. Grim’s broken legs. I heard a demonic cry of pain, his voice sounding like dozens of voices crying at once in a disharmonious shriek. Ignoring it, I picked up Johnny and ran outside the lab. 
+I quickly dropped my phone in my pocket, picked up a large computer and hurled it at Mr. Grim’s broken legs. I heard a demonic cry of pain, his voice sounding like dozens of voices crying at once in a disharmonious shriek. Ignoring it, I picked up Johnny and ran outside the lab. 
 
 The door had a number pad on it. I pressed the top button and began rotating the thumb turn away from the hinges, locking the thick wooden door just as something heavy crashed into it on the other side. The knob turned furiously, but it wouldn’t budge without the correct numerical code.
 

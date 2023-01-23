@@ -1,4 +1,4 @@
-By all rights, it should've been your typical Wednesday evening. I’d just clocked off and I was homeward bound. I'd been working at the bottleyard for the past seven years and every day was always the same as the one that came before it. Apart from *that* Wednesday.
+By all rights, it should've been your typical Tuesday evening. I’d just clocked off and I was homeward bound. I'd been working at the bottleyard for the past seven years and every day was always the same as the one that came before it. Apart from *that* Tuesday.
 
 I'd decided I'd take a shortcut through the abandoned lot next door. It's been empty for at least a decade. Sometimes junkies used it as a discrete spot to shoot smack undisturbed, but since they put up the cameras and the metal sheets in the windows, it's a lot more quiet.
 
