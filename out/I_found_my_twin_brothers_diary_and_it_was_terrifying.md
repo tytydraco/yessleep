@@ -1,6 +1,6 @@
 I had always been curious about my twin brother's life, especially since he had passed away so suddenly. We were close growing up, but as we got older, we grew apart and I never really knew what was going on in his life.
 
-The tragedy of it all was that he ended his life in the bathtub by slashing his wrists. The event so disturbed my older brother Carl and me that we could no longer live in our family house. We then moved out and got a shared apartment together while searching for job opportunities. This was only a short-term solution until one of us found a more permanent living situation.
+The tragedy of it all was that he ended his life in the bathtub by slashing his wrists. The event disturbed my older brother Carl and me so much that we could no longer live in our family house. We then moved out and got a shared apartment together while searching for job opportunities. This was only a short-term solution until one of us found a more permanent living situation.
 
 So, when I found his diary hidden away in his room while visiting my parents, I couldn't resist the urge to read it.
 
