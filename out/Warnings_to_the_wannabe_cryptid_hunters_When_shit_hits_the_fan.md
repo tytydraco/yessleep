@@ -258,3 +258,5 @@ I raised my head once more, vision blurred. Nick looked down at me with a cold k
 [Part 16](https://www.reddit.com/r/nosleep/comments/10fa2ec/warnings_to_the_wannabe_cryptid_hunters_how_not/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 17](https://www.reddit.com/r/nosleep/comments/10h64is/warnings_to_the_wannabe_cryptid_hunters_aleksei/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 19](https://www.reddit.com/r/nosleep/comments/10jbwml/warnings_to_the_wannabe_cryptid_hunters_so_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
