@@ -1,6 +1,6 @@
 The four of us snuck out that night. The weather was everyone’s favorite H words: hot, hazy, and humid. You know, the kind of weather that makes it a pain in the ass to get some sleep. That’s why we were out sharing a bottle of vodka Tommy swiped from his parents’ cabinet. He drank most of it while Rebecca, Amanda, and I only got a few sips. For us, any amount of alcohol was brag worthy. We got “wicked drunk” on the way to that house and stayed the whole night.
 
-Every small town must have \*that\* abandoned house. No one lived in it for years and the happy neighbors trim and tidy their lawns right up to the chain-link fence as if compelled by the force of juxtaposition to announce “Thems ghosts in theah!” The kids in the area naturally come up with rumors about the place: It’s haunted, there’s a witch inside, your favorite slasher flick character uses it in the off-season, etc. We lucky four will find out tonight.
+Every small town must have *that* abandoned house. No one lived in it for years and the happy neighbors trim and tidy their lawns right up to the chain-link fence as if compelled by the force of juxtaposition to announce “Thems ghosts in theah!” The kids in the area naturally come up with rumors about the place: It’s haunted, there’s a witch inside, your favorite slasher flick character uses it in the off-season, etc. We lucky four will find out tonight.
 
 “Fucking finally.” Amanda said, pulling on her shirt to fan herself. I doubt it was effective, but I didn't argue with the view.
 
@@ -12,7 +12,7 @@ Every small town must have \*that\* abandoned house. No one lived in it for year
 
 The liquid courage might have helped, but stupidity and hormones fuel Tommy’s fearlessness. Spending a night in this house was his idea. “Booze and scary stories drive women crazy, John. You could be balls deep in Rebecca in no time at all. Trust me.” I don’t know how he talked the other two into this, but I refused to let him lose his virginity in a threesome with two soccer players.
 
-Rebecca and I hesitated. The childish tales of vampires, murders, and zombies became real. We immediately forgot them upon crossing the threshold where you could feel the stale air hit you. You felt like you were the first human to breathe this air in God knows how many years. Once my eyes adjusted to the dark, the floral design furniture and wallpaper I saw would make grandmas everywhere proud. 
+Rebecca and I hesitated. The childish tales of vampires, murders, and zombies became real. We immediately forgot them upon crossing the threshold where you could feel the stale air hit you. You felt like you were the first human to breathe this air in God knows how many years. Once my eyes adjusted to the dark, the floral design furniture and wallpaper I saw would make grandmas everywhere proud.
 
 “Feels just like home, guys!” Tommy was reclining on a couch in the living room.
 
@@ -58,7 +58,7 @@ Rebecca tried to soothe her while I looked over the room. Tommy was lying on his
 
 I turned around in time to see Amanda run down the hall toward the stairs. She wasn’t staying here any longer. She turned the corner and went down a single step before screaming again. It jumped up the stairs and pounced on her. That thing looked like a small chitinous raptor. Its two powerful legs pinned Amanda to the floor while it bent down and tore out chunks of her throat.
 
-Rebecca screamed. I think I did too. It’s hard to tell when you’re in the moment. 
+Rebecca screamed. I think I did too. It’s hard to tell when you’re in the moment.
 
 That thing lifted its head up from Amanda and turned toward us with razor-sharp teeth dripping blood and bits of flesh. It was relishing in our fear as we backed away. We were cornered prey ripe for the taking. Its claws clicked on the floor as it walked toward us.
 
