@@ -303,3 +303,5 @@ After a year at this job, one thing is for sure: I will never not be afraid.
 [Part 3](https://www.reddit.com/r/nosleep/comments/10h0wyd/i_work_at_a_clothing_store_were_stuck_on_the/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/10idlz0/i_work_at_a_clothing_store_corporate_came_for_an/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/10j6j47/i_work_at_a_clothing_store_i_actually_made_my/)
