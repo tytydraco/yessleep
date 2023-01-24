@@ -243,3 +243,5 @@ Cas gently placed a hand on my shoulder.
 [Part 17](https://www.reddit.com/r/nosleep/comments/10h64is/warnings_to_the_wannabe_cryptid_hunters_aleksei/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 18](https://www.reddit.com/r/nosleep/comments/10i0d0p/warnings_to_the_wannabe_cryptid_hunters_when_shit/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 20](https://www.reddit.com/r/nosleep/comments/10k7oob/warnings_to_the_wannabe_cryptid_hunters_how_to/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

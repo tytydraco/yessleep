@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/10frndq/im_a_cop_and_i_just_arrested_my_best_friend_part_2/?utm_source=share&amp;amp;amp;amp;amp;utm_medium=ios_app&amp;amp;amp;amp;amp;utm_name=iossmf) 
+[Part 2](https://www.reddit.com/r/nosleep/comments/10frndq/im_a_cop_and_i_just_arrested_my_best_friend_part_2/?utm_source=share&amp;amp;amp;amp;amp;amp;utm_medium=ios_app&amp;amp;amp;amp;amp;amp;utm_name=iossmf) 
 
 I showed up to Ethan’s mom house to find Lauren sitting on the front porch waiting for me.
 
@@ -40,7 +40,7 @@ So I walked out to my truck, grabbed my essay, and we sat together watching the 
 
 
 
-*It happens to everyone, just in different ways. Some of us will simply experience deja vu as we eat our morning cereal while others will experience life-changing phenomena, but we all will experience an echo at some ping or another.*
+*It happens to everyone, just in different ways. Some of us will simply experience deja vu as we eat our morning cereal while others will experience life-changing phenomena, but we all will experience an echo at some point or another.*
 
 *In 1842, Julius Robert Mayer discovered the Law of Preservation of Energy. More simply put- energy can neither be created nor destroyed.*
 
@@ -52,7 +52,7 @@ E=mc^2
 
 *Echoes are generally harmless as they are simply residual energy. I say generally, because at times, there can be a glitch. Think about your grandmother’s favorite lamp. It has hand painted flowers wrapped around a glass base. You have to find classic incandescent bulbs since it won’t even work with fluorescent. When you reach for the cord it’s a creamy eggshell color, although at one time it was white. As you turn the dial to click on, you have to stop at precisely the right click or else it shuts right back off if you flip it too far.*
 
-*Sure, this lamp is well loved and beautiful n I doubt, but it only survives and lasts under the most precise conditions. The right bulb, the right flick of a switch. But one day, even as you do everything right, the bulb blows a fuse and poof- it’s broken.*
+*Sure, this lamp is well loved and beautiful no doubt, but it only survives and lasts under the most precise conditions. The right bulb, the right flick of a switch. But one day, even as you do everything right, the bulb blows a fuse and poof- it’s broken.*
 
 *Sometimes our world has a glitch. Maybe we didn’t use the right bulb that day or we neglected to turn the switch just right. That’s when you can hear the voice whispering softly into your ear that something is wrong and you need to follow your true path.*
 
