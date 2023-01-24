@@ -109,3 +109,5 @@ I heard Hardwick fall with a grunt as the other creature dropped him and began t
 “Hell, I’ll buy it a whole steak dinner with mashed potatoes and apple crisp for dessert. He deserves it. Why do you think he saved us?” I could only shake my head, having no answer.
 
 Things continued to get weirder after that, and I know at least one of those monsters and two-headed bear survived, because I would run into them later that week. I wasn’t going to give up on being a park ranger just because of a couple near-death experiences, after all. This was my place, and I felt like I belonged to it, just like I hoped it belonged to me in some way. Later on, I would immensely regret not reaching the site of that girl’s murder, as the Sheriff had been right- there was a necklace there, and it would cause a heap of trouble later on. But that’s a story for next time.
+
+Continue to part 2: https://www.reddit.com/r/nosleep/comments/10jmfr8/i_am_a_park_ranger_at_goreham_state_park_and_our/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
