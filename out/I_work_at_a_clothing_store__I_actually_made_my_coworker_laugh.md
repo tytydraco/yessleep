@@ -214,15 +214,15 @@ I swallowed hard, not sure if I could trust him. “I don’t know, I just do.�
 
 &#x200B;
 
-With that, the door opened and our custom client for the evening, Jaque, sauntered in.
+With that, the door opened and our custom client for the evening, Jacque, sauntered in.
 
 &#x200B;
 
-I know you guys like to hear about my custom clients, and Jaque is one of the newer shoppers with us. He is technically my client, since I helped him the first time he came in a few months ago, so he has a preference for me. Most of the other clients I work with have been helped by either Sam or Daniel for years before I was around, so I just fill in on their days off. Jaque is one of my favorite clients to help because not only is he much less picky when it comes to colors and fabrics, but because he seems to be one of the more harmless clients I deal with. Jaque, of course, is a Mime. I know, it feels like a stereotype, but this guy is made for the Mime life. I know it’s because he is some sort of supernatural being, but it is still incredible to watch him do his thing. Watching him walk up an imaginary wall to get a feel for the mobility of the pants he wants to buy? For no reason other than to entertain me? That’s a real man. Seeing him in his face paint, checking his fake watch instantly brought me out of the panic attack I was about to succumb to.
+I know you guys like to hear about my custom clients, and Jacque is one of the newer shoppers with us. He is technically my client, since I helped him the first time he came in a few months ago, so he has a preference for me. Most of the other clients I work with have been helped by either Sam or Daniel for years before I was around, so I just fill in on their days off. Jacque is one of my favorite clients to help because not only is he much less picky when it comes to colors and fabrics, but because he seems to be one of the more harmless clients I deal with. Jacque, of course, is a Mime. I know, it feels like a stereotype, but this guy is made for the Mime life. I know it’s because he is some sort of supernatural being, but it is still incredible to watch him do his thing. Watching him walk up an imaginary wall to get a feel for the mobility of the pants he wants to buy? For no reason other than to entertain me? That’s a real man. Seeing him in his face paint, checking his fake watch instantly brought me out of the panic attack I was about to succumb to.
 
 &#x200B;
 
-“Jaque!” I said excitedly, and he over-acted being surprised and delighted to see me. He gave me double cheek kisses, then tapped his fake watch, acting annoyed.
+“Jacque!” I said excitedly, and he over-acted being surprised and delighted to see me. He gave me double cheek kisses, then tapped his fake watch, acting annoyed.
 
 &#x200B;
 
@@ -230,7 +230,7 @@ I know you guys like to hear about my custom clients, and Jaque is one of the ne
 
 &#x200B;
 
-Jaque glanced behind me, and I watched as Sam briskly walked out the door and left. Jaque and I looked at each other, and I put on my best *it’s fine* smile.
+He glanced behind me, and I watched as Sam briskly walked out the door and left. Jacque and I looked at each other, and I put on my best *it’s fine* smile.
 
 &#x200B;
 
@@ -250,7 +250,7 @@ As I was ringing him up, he looked around dramatically and slipped me a $20 bill
 
 &#x200B;
 
-“Oh, Jaque, I can’t-”
+“Oh, Jacque, I can’t-”
 
 &#x200B;
 
