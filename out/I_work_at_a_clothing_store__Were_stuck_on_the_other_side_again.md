@@ -309,3 +309,5 @@ I don’t know how long we’ll be stuck here, but I’ll give you an update whe
 [Part 4](https://www.reddit.com/r/nosleep/comments/10idlz0/i_work_at_a_clothing_store_corporate_came_for_an/)
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/10j6j47/i_work_at_a_clothing_store_i_actually_made_my/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/10k0nbh/i_work_at_a_clothing_store_i_finally_got_some/)
