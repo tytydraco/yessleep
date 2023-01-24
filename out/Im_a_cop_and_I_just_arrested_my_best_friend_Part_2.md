@@ -84,3 +84,5 @@ I imagined her body, decomposing in their yard, or perhaps their basement. I cou
 But  then  I heard the faintest little thing say, “Nick?” It was Lauren, alive.
 
 *Jesus Christ. Whose blood is in that house?*
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/10jvzrv/im_a_cop_and_i_just_arrested_my_best_friend_part_3/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

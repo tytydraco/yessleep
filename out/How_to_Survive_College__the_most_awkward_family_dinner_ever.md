@@ -2,7 +2,7 @@ You’re all going to find out some stuff about Grayson [in this post](https://w
 
 Nothing but respect.
 
-Or I’ll stop updating you about anything that involves him.  You’ll never see me type out his name ever again.  
+Or I’ll stop updating you about anything that involves him.  You’ll never see me type out his name ever again.
 
 Got it?
 
@@ -10,15 +10,15 @@ Okay.
 
 I finally went to dinner with Grayson.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
-I’d been guilting myself into giving him an answer with little success.  I guess I’d rather live with the self-loathing about my own indecision than do anything to actually relieve it.  However, something happened that forced me to make a decision.  
+I’d been guilting myself into giving him an answer with little success.  I guess I’d rather live with the self-loathing about my own indecision than do anything to actually relieve it.  However, something happened that forced me to make a decision.
 
 Daniel needs help.  Desperately.  And we haven’t found any solutions for him yet.
 
 I really am better at doing things for other people than for myself.
 
-We’ve been keeping in touch with him via group text.  He updates us about the scratching at the door every time he hears it… which is most nights.  I think he’s staying up late enough to hear it, sends us a text about whether he thinks it’s louder than before or anything else he notices, and only then he goes to bed.  We’ve tried a few things to dissuade the larva but with no success.  
+We’ve been keeping in touch with him via group text.  He updates us about the scratching at the door every time he hears it… which is most nights.  I think he’s staying up late enough to hear it, sends us a text about whether he thinks it’s louder than before or anything else he notices, and only then he goes to bed.  We’ve tried a few things to dissuade the larva but with no success.
 
 I tried opening one of the other doors in the hallway but it was locked and when I shook and pounded on it, nothing answered.  We considered breaking one open, but we decided against that in case it was another steam tunnel situation and we’d wind up somewhere weird.  It’s still on the list of things to try, but we have some other options to get through first.
 
@@ -104,7 +104,7 @@ They have two dining tables.  Like.  Who has two tables?  But I guess that’s w
 
 Grayson led most of the conversation.  He made sure to pause every now and then and let his dad say something.  It quickly became apparent why Grayson was so reluctant to talk about his family and why he wanted me to see it in person.
 
-There’s something wrong with Grayson’s dad and no, it’s not normal medical something wrong.  I think that might be easier.  At least you could understand it and there’d be a prognosis and a timeline to expect.  This… it’s like he’s only present when talking about the university.  Grayson gently reminded him of who Ashley was and he followed along for a little while, then started calling me ‘Alice’ which I suppose is closer than ‘Luke’.  
+There’s something wrong with Grayson’s dad and no, it’s not normal medical something wrong.  I think that might be easier.  At least you could understand it and there’d be a prognosis and a timeline to expect.  This… it’s like he’s only present when talking about the university.  Grayson gently reminded him of who Ashley was and he followed along for a little while, then started calling me ‘Alice’ which I suppose is closer than ‘Luke’.
 
 But when Grayson mentioned his classes?  His dad changed.  His eyes grew sharp and he sat up straighter.  He no longer looked like a dumpling, squashed in on himself with his head hunkered between his shoulders.  He smiled and asked me if I was enjoying mine, so I told him I was majoring in geology.
 
@@ -140,7 +140,7 @@ Then his gaze shifted.  He wasn’t looking at me any longer.  He was looking so
 
 “Before it gets too big.”
 
-What was I doing?  I started to panic.  There was something clearly wrong with Grayson’s dad and I’d agitated him, I’d awakened *something* and I couldn’t undo it.  I regretted coming here.  I regretted asking.  
+What was I doing?  I started to panic.  There was something clearly wrong with Grayson’s dad and I’d agitated him, I’d awakened *something* and I couldn’t undo it.  I regretted coming here.  I regretted asking.
 
 The only way out was through.  I had to find out what I came here for.
 
@@ -158,7 +158,7 @@ Wait.  The laundry lady had said I couldn’t stop it and I assumed that was jus
 
 Then he let go, walked back to his seat, and sat back down with a huff, like a balloon deflating.  I sat there for a moment more, heart racing, and then I looked up and Grayson was standing in the doorway, holding a cheesecake in front of him with both hands.  The expression on his face told me that he knew what had just happened.
 
-No one talked much for the rest of dinner.  
+No one talked much for the rest of dinner.
 
 Grayson took a winding route back to campus when he drove me home.  I thought he wanted to talk, but he was quiet for a good long while and finally, when we were on main street heading towards campus again, I broke the silence.
 
@@ -168,7 +168,7 @@ I’m not sure why I asked that. I guess… I wanted to know if he was alone in 
 
 But his jaw went tight.
 
-“She’s not in the picture,” he said, in that evasive way that people use when they don’t want to say ‘messy divorce’ outloud.  
+“She’s not in the picture,” he said, in that evasive way that people use when they don’t want to say ‘messy divorce’ outloud.
 
 I didn’t pry further, because I think I know a little bit about what that feels like.  When dad vanished, there was a small contingent in town that wasted no opportunity to announce that *they* believed he’d bailed on us.  Nevermind that mom was scared, my younger siblings were confused, and I just wanted to scream and scream until the world around me stopped and I was finally left with silence.  So I’d be damned if I opened my mouth and said a single word about Grayson’s situation and became anything like them.
 
@@ -183,6 +183,8 @@ Then we were pulling up just outside my dorm and I awkwardly said goodbye and I 
 I’d call myself selfish if I wasn’t trying to save Daniel.
 
 I just hope it was worth it. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/10jwqp0/how_to_survive_college_i_broke_his_nose/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
