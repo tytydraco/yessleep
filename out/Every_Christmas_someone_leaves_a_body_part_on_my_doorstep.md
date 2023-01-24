@@ -136,4 +136,7 @@ The second gift of the month arrived that night. I woke up to the sound of James
 
 “He left another box,” James said.
 
-I gripped the bat tighter. [“Please shut the door.”](https://www.travisbrownwriting.com/)
+I gripped the bat tighter. [“Please shut the door.”](https://www.travisbrownwriting.com/)  
+
+
+[How it ends.](https://www.reddit.com/r/nosleep/comments/10jus8w/every_christmas_someone_leaves_a_body_part_on_my/)
