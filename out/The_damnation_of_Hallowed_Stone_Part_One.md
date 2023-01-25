@@ -267,3 +267,5 @@ I could hear the woman's voice from before say, *"Hank, we need you!"*
 He got no further when the figure then removed his hood and revealed himself to be a bald man with gaunt, ghostly white skin and two marbled eyes sunken in their sockets. Nolan and I both instantly went breathless in fear. A smile stretched across the man's face, spreading so unnaturally wide that I'd sworn I could see the skin actually tear itself wider and wider across his cheeks, exposing black, diseased looking gums and jagged, shark-like teeth.
 
 His arm raised again and his eyes refocused to me. "Come, Hank, It's time to join us." His voice was somehow amplified with the removal of his hood. I felt a growing surge kicking through my legs to take off behind me, but for some reason, I couldn't move. My body was telling me to run like Hell, but my mind was telling me to stay put. He crept further forward.
+
+[Next](https://www.reddit.com/r/nosleep/comments/10knrs3/the_damnation_of_hallowed_stone_part_two/?utm_source=share&utm_medium=web2x&context=3)
