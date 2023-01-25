@@ -246,7 +246,7 @@ I wake him up early, at around 6:54AM, and I tell him I want to go.
 
 Bruce immediately sits up and helps me pack.We leave silently,without saying goodbye to his family.
 
-I regret leaving Brooke behind,but it seems she has already lost herself. Nothing would change. You can give someone a new soul,once it's gone,it's gone.Bruce is just lucky he got out when he did.
+I regret leaving Brooke behind,but it seems she has already lost herself. Nothing would change. You can't really give someone a new soul,once it's gone,it's gone.Bruce is just lucky he got out when he did.
 
 I glance over at him as we drive off the street.
 
