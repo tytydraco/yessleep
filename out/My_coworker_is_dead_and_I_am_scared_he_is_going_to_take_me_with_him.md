@@ -1,0 +1,13 @@
+&#x200B;
+
+I was in my early 20s and did not have my life together at all. My mom told me to get a job or get out, and considering I had no money, you know the option I picked. Everything was great, and although I definitely felt out of place since I am VERY introverted, I still sort of enjoyed working, and having my own money was great.
+
+This all changed when a new employee got hired. He seemed really nice at first, but I slowly started to learn more about him, and to be honest, he was SUPER weird. Like I don’t judge but he was super creepy, and I decided to call him out on it. When it came to female customers, he was always awful. Me and all of my co-workers hate him.
+
+My boss started to get really agitated with him and had talked to him about how if his behavior did not get any better, he would have to fire him. The only problem is that we had no one to cover for him, and finding someone reliable to work for you when you run a gas station that sells alcohol is hard. You can’t hire anyone under 21 which cuts out like 90% of your options.
+
+The pay at other stores was far higher as well, so pretty much the only reason you would want to work here is because it is close to where you live, or you have a record, so he never got fired. I thought about it and if they could not fire him, they sure as hell could not fire me, so I started to get meaner with him. I was not violent or anything, just rude. I would feel bad, but it was not only the customers he creeped on, but he was also gross with me. I am the only female employee in the building.
+
+Nobody liked him, but in short, I was the worst to him. We got a call one day that he had died in a fatal car crash. It is not like we were jumping for joy, but none of us were sad. He was old, rude, and gave everyone hell. Well, I thought it was all over. Oh god was I wrong. The hatred that he had for me only got worse. I never believed in ghosts before this, but it HAS to be him. There are too many signs.
+
+I don’t have anyone who would pull this kind of prank, I mean, I keep finding photos of him in my mother's house. It is terrifying. To be honest I don’t think I would care that much if that was all, but there were other things as well. I keep finding notes addressed to me in his name. He has been threatening me, and it is making me feel super scared and anxious. I found a bunch of razors under my blanket, and now my mom is going on vacation alone. I am terrified, I don’t have friends anywhere but online, and I don’t want to be here alone. He is going to kill me.
