@@ -8,7 +8,7 @@ I slowly got up out of my seat when the office door opened and the principal, Mr
 
 "This is the third time this week, Daniel. What am I going to do about you?" Mr Mackey said.
 
-I looked away. *Has it really been three times already?* I thought.
+I looked away. Has it really been three times already? I thought.
 
 Mr Mackey continued, "You can't be like this. Busting up other kids on a whim. One more visit and I'll have to suspend you. You need to learn to keep your anger in check."
 
@@ -16,13 +16,13 @@ I still said nothing.
 
 He sighed again, looking off into the distance. He paused before speaking. "When was the last time you visited the Loop?"
 
-*Oh no.* I thought. *That's not good.* But, there wasn't any use lying, I knew he could pull out my records with the click of a button.
+Oh no. I thought. That's not good. But, there wasn't any use lying, I knew he could pull out my records with the click of a button.
 
 "I-I-I'm not sure." I stammered
 
 "You see Daniel, that's where your problem lies. Once you learn that the Loop is good, your attitude will change for the better. You need to realise that the Loop is here to help you.
 
-*Yeah right.*
+Yeah right.
 
 Mr Mackey stood up. "Come with me Daniel."
 
@@ -31,8 +31,6 @@ Mr Mackey stood up. "Come with me Daniel."
 "This is more important." He replied.
 
 And so I followed him. Its not like I had a choice anyways.
-
-\---------------------
 
 The Loop was a short 10 minute walk away from the school. It was a glass building, shaped like a dome. The glass was tinted a greenish-black colour that quite frankly looked disgusting. The building itself was very hard to miss, being in the centre of my small town and quite large, almost 3 kilometres in circumference. I followed Mr Mackey in through the front door, which led into a reception-like area. It had a couple of potted plants, and seating areas on either side of the front desk.
 
@@ -46,15 +44,17 @@ Yes, drums. A big hollow rumble that filled the air every few seconds.
 
 As well as drums, there was a couple of speakerphones doted around the Loop that played the same pre-recorded message:
 
-*THE LOOP IS GOOD*
+THE LOOP IS GOOD
 
-*THE LOOP PROTECTS*
+THE LOOP PROTECTS
 
-*THE LOOP HELPS*
+THE LOOP HELPS
 
-*THE LOOP IS SAFE*
+THE LOOP RESTORES
 
-*THE LOOP IS GOOD...*
+THE LOOP IS SAFE
+
+THE LOOP IS GOOD...
 
 This message always unnerved me, for reasons I don't even know. It just seemed off. The voice that spoke the message seemed a little to cheery, too bright.
 
@@ -108,12 +108,34 @@ I shrugged him off and kept walking.
 
 While I was walking, I turned around to face him, but I felt myself bump into something. I turned around again and found myself face-to-face with a Guide. I stood in complete fear, this was the closest I had ever been to one, and I just knew it was going to take me away for running into it.
 
-*No..no..no...no!* My thoughts screamed inside my head.
+No..no..no...no! My thoughts screamed inside my head.
 
-It stared at me for a good ten seconds, before cocking its head like a dog would and walking away. I hurried away, thankful to still have all my body parts. I rushed through the door and scanned my card at the reader. The screen lit up and said,"TIME ELAPSED 2HRS 48 MINS."
+With one swipe of its grotesquely long arm, the Guide started to drag me along to the area that they take all of their victims too. I was screaming and batting away the Guide, but it was no use. I was powerless to this creature. No one stepped in to help, no one even acknowledged the fact that this was going on- they knew better.
 
-*Good.* I thought. *That should give me a couple more weeks.*
+It was inches away from pulling me into the room before I felt a hand on my shoulder. The Guide instantly stopped and turned to the owner of that hand.
+
+It was Ernest Finch.
+
+Ernest was sort of revered in my town. He had the longest Loop run recorded ever, a whopping 32 hours spent walking it. Because of that my town hailed him as a sort of hero, or even priest of the Loop. Even the Guide's seemed to steer clear from him, and not give him any trouble.
+
+And he was here. Protecting me.
+
+Ernest looked at the Guide with a sort of stoic expression before simply saying:
+
+"It is not his time. Let him go."
+
+The guide growled under the mask, but still dropped me to the floor. Free from the Guide, I rushed to thank Ernest, but stopped in my tracks when I felt a sharp, searing sensation on my right wrist.. I turned around and the Guide had both of their hands around it, muttering in a language I couldn't understand.
+
+After a few seconds it released its grip, and I took a look at my wrist. On it, like a tattoo was the infinity snake, the symbol of the loop. I looked at it in horror.
+
+*What the hell is this?* I thought.
+
+I tried rubbing it off, to no avail. The symbol just wouldn't come off. I tried to find Ernest to get some help, but both him and the Guide had disappeared. Resolving to myself to deal with it later, I hurried away, eager to not spend another second in this cursed place, and thankful to still have all my body parts. I rushed through the door and scanned my card at the reader. The screen lit up and said,"TIME ELAPSED 2 HOURS 48 MINUTES."
+
+*Good*. I thought. *That should give me a couple more weeks.*
 
 You see, it is not compulsory to walk the Loop, but if you don't do it too often, people start giving you strange looks, as if there was something wrong with you. I just keep my head down and walk the bare minimum, hoping to not attract attention. Counting down the days before I can leave this damned town, never to return.
+
+And all for one reason.
 
 I hate the Loop.
