@@ -269,3 +269,5 @@ I dropped down beside him. "Dad."
 [Part 18](https://www.reddit.com/r/nosleep/comments/10i0d0p/warnings_to_the_wannabe_cryptid_hunters_when_shit/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 19](https://www.reddit.com/r/nosleep/comments/10jbwml/warnings_to_the_wannabe_cryptid_hunters_so_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 21](https://www.reddit.com/r/nosleep/comments/10l7pho/warnings_to_the_wannabe_cryptid_hunters_bones/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
