@@ -62,7 +62,7 @@ Only, it wasn’t May anymore, it couldn’t be. The fountain had frozen over co
 
 This all started when I threw that penny into the fountain. Sarah said she had thrown in a penny, too. When we did that, we must have triggered something, or maybe been thrown into another dimension. What a stupid thing to think - and yet, this gave me an idea. I plunged one stiff, dumb hand through the ice and frantically searched for the penny I threw in, as if I could tell it apart from the others. I took sloppy fistfuls of pennies, quarters, and dimes, some new and some old, and flung them onto the gathering snow.
 
-I remembered - I threw my penny near the fountain’s center, the deepest and hardest part to reach. They said people panic and do wild, illogical things as hypothermia sets in, and it must be true because I thrust my whole upper body into that water, grabbed a handful of coins from the center, threw them onto the snow, and and–
+I remembered - I threw my penny near the fountain’s center, the deepest and hardest part to reach. They said people panic and do wild, illogical things as hypothermia sets in, and it must be true because I thrust my whole upper body into that water, grabbed a handful of coins from the center, threw them onto the snow, and–
 
 “Hey.” It was a child’s voice. My eyes were shut, and I was lying on my back. Someone poked my face with what must have been a stick. 
 
@@ -82,7 +82,7 @@ The man came over to me. He said he was a doctor (there were three hospitals wit
 
 But I knew that whatever had happened was not of this world. That distorted world I was transported into had no medical or natural origin, and its source was probably something beyond what I was capable of understanding. The next day, Sunday, I stayed home. I didn’t even make coffee and instead just accepted the inevitable withdrawal headache, then spent the day binge-watching my favorite anime from high school. It was calming, since it reminded me of a better time and kept my mind off the horrors of the previous day. But still, every time I shut my eyes, I relived the sensation of half-diving into the freezing fountain, numbness spreading up my arms as my dumb hands searched the depths.
 
-Monday, I was feeling a little better. Though I hated the thought of walking by that park again, for fear of seeing the fountain, I was curious and also wanted my usual iced latte. Slowlyl, I traced my regular path to the park. The fountain was gone. I continued, taking the shortcut behind the Hampton, until I reached the coffee shop. There was something plastered in the window. 
+Monday, I was feeling a little better. Though I hated the thought of walking by that park again, for fear of seeing the fountain, I was curious and also wanted my usual iced latte. Slowly, I traced my regular path to the park. The fountain was gone. I continued, taking the shortcut behind the Hampton, until I reached the coffee shop. There was something plastered in the window. 
 
 It was a typical “missing person” sign you see stapled to telephone poles or pinned to poster boards in the front of Walmarts all over the US, but what shocked me was the person on it. 
 
@@ -96,6 +96,6 @@ Last seen: May 27, 2022, 5:45 am
 
 It was Sarah. But I’d seen her the morning of the 28th. A darkness settled over me, and I knew that something had happened to her. She was still in that strange world I had escaped from. I wondered if every penny in that fountain represented a person trapped and thought that if only I could find that fountain again, I could get her out.
 
-I got on the internet and went down the rabbit hole, so to speak. I searched every forum and paranormal sight until I found someone mentioning the fountain. However, it was a thread from ten years ago, and the profile had been deleted and the comments frozen. I posted around until someone else said they had seen the fountain. They had even taken pictures, but the pictures looked… wrong. Realistic in some ways, but also fake, distorted and with the perspective slightly off. Another person had sent him pictures, which he shared with me, but these were both blurry and in black and white. 
+I got on the internet and went down the rabbit hole, so to speak. I searched every forum and paranormal sigte until I found someone mentioning the fountain. However, it was a thread from ten years ago, and the profile had been deleted and the comments frozen. I posted around until someone else said they had seen the fountain. They had even taken pictures, but the pictures looked… wrong. Realistic in some ways, but also fake, distorted and with the perspective slightly off. Another person had sent him pictures, which he shared with me, but these were both blurry and in black and white. 
 
 Almost a year later, I’m still trying to find the fountain and figure out what it is, where it came from, and if there are others like it. But whatever the case, if you see a fountain where it doesn’t belong, think before throwing in a coin.
