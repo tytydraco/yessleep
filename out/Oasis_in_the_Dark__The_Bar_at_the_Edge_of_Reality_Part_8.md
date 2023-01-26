@@ -4,15 +4,15 @@ But yesterday, I made perhaps the stupidest choice of all, and definitely a life
 
 That’s right. I didn’t even jump there. I snuck out of [Griffin's Edge](https://www.griffinsedgebar.com/) in the morning, while Henri was still asleep, and passed through the fog while vaguely picturing the edges of the dark forest, by the icy plains where I’d met Jacian. I wasn’t even sure how well it would work—traveling through gaps in reality is never an exact science, and as far as I know, I’m the first to ever go to the dark parts of Neverland intentionally. Would reality even *want* to bend enough to let me through?
 
-Yes. Apparently the answer was yes, because I found myself on the very border between a snowstorm and a wall of dark, twisted trees as easily as if I’d been traveling to Florida. 
+Yes. Apparently the answer was yes, because I found myself on the very border between a snowstorm and a wall of dark, twisted trees as easily as if I’d been traveling to Florida.
 
 I’m not ashamed to say that I faltered slightly when I stared at those woods and heard the growls within. Sure, I’d been lying awake every night since my reunion with the pale kid, seeing him every time I closed my eyes, burning with questions and wondering if maybe he’d have some answers. Sure, seeking him out had seemed like the best option an hour ago. But now I was having second thoughts—I mean, I’d nearly died almost every time I’d ended up in that forest.
 
-Luckily, there really wasn’t much of a decision, because suddenly the cold wind behind me seemed to whistle harder, and I swear I heard giggling on the breeze. “Oh, *hell* no,” I muttered, stepping into the trees. 
+Luckily, there really wasn’t much of a decision, because suddenly the cold wind behind me seemed to whistle harder, and I swear I heard giggling on the breeze. “Oh, *hell* no,” I muttered, stepping into the trees.
 
 Like I said, I’ve never actually *entered* the dark forests from outside before; I always just show up in the middle of them somewhere. So I didn’t really know how close I was to where I’d met the pale kid last time. But, I don’t know, he seemed like was keeping tabs on me. I kind of figured *he’d* find *me* before I had to worry about finding him.
 
-I pushed my way through dense undergrowth and gnarled branches, wincing as thorns sliced through my sleeves and the skin beneath. Growls and hisses continued from all directions. “Oh yeah, just wander into the place that’s almost killed you countless times over ten years, that’s a *brilliant* idea,” I told myself under my breath. 
+I pushed my way through dense undergrowth and gnarled branches, wincing as thorns sliced through my sleeves and the skin beneath. Growls and hisses continued from all directions. “Oh yeah, just wander into the place that’s almost killed you countless times over ten years, that’s a *brilliant* idea,” I told myself under my breath.
 
 Apparently the forest did not like my sarcasm, because I swear the noises from the undergrowth got louder and angrier. Cursing, I pulled out Sgrios and considered if it was worth yelling out in hopes of attracting the pale kid to me. Half a second later, I chided myself for even considering it; I would likely only attract the *wrong* attention. Besides, I didn’t know his name, or even if he had one. What would I yell? *Hello, guy who sits in trees and saves me once every ten years! I want to find you before something else finds and tries to eat me! Please come out!*
 
@@ -32,7 +32,7 @@ That’s right. Like half of this godforsaken forest, the sand was alive and car
 
 As I continued to thrash—I was now up to my thighs—eyes appeared in the ground by the sand mouth. Big dark eyes that stared at me with a hungry glint as the thing continued to swallow me.
 
-Look, I’d never heard of this creature before, but I had my usual weapons, plus Henri’s additions. *Something* had to work. 
+Look, I’d never heard of this creature before, but I had my usual weapons, plus Henri’s additions. *Something* had to work.
 
 I slashed at the eyes with Sgrios, trying to move my hips enough to get some leverage and reach them. Unfortunately, that proved nearly impossible: the sand had reached my waist, and I couldn’t feel or move any of my lower body. Still, I managed to get in one good swipe, and the sand vibrated around me as it growled in anger.
 
@@ -48,15 +48,15 @@ Not enough, though. Suddenly a tendril of black sand leapt upwards like a living
 
 Up to my armpits now. God, I should’ve grabbed the pistol quicker, before it had been swallowed by the sand along with my legs. Instead I scrabbled for the teeth around the edge, managing to wrap my hand around one and pulling as hard as I could when I had absolutely no leverage or surface to push against.
 
-Turns out, that’s not very hard. I yanked, but my grip slipped off the tooth. I cursed loudly again. My only hope now, I guess, was to let it swallow me, then try to fight my way up once I was in the sand. 
+Turns out, that’s not very hard. I yanked, but my grip slipped off the tooth. I cursed loudly again. My only hope now, I guess, was to let it swallow me, then try to fight my way up once I was in the sand.
 
 Unless I got saved again. Which, as much as I hated to admit, was a lot more appealing than letting my head go under.
 
 “You know how I said earlier that it would be a great time to prove you’re watching me?” I shouted as the sand reached my neck, straining to keep my face above the glittering sand. “Well, this would be an even *better* time!”
 
-No sign of any mysterious saviors. I took the deepest breath of air I could muster and braced myself for going under the surface. 
+No sign of any mysterious saviors. I took the deepest breath of air I could muster and braced myself for going under the surface.
 
-Just as black sand began to clog my nostrils—as bad as I expected, and yet somehow worse, because it *burned—*fire exploded in the clearing. The sand shivered and shook as the thing screamed; flames filled my eyes as they swept over me. I had once again paused where I was, with only the upper half of my face out of the sand…and while that was better than being swallowed up completely, I now realized that I couldn’t breathe.
+Just as black sand began to clog my nostrils—as bad as I expected, and yet somehow worse, because it \*burned—\*fire exploded in the clearing. The sand shivered and shook as the thing screamed; flames filled my eyes as they swept over me. I had once again paused where I was, with only the upper half of my face out of the sand…and while that was better than being swallowed up completely, I now realized that I couldn’t breathe.
 
 I fought to get my chin back up as my mouth opened instinctively, allowing black sand to fill my throat. It was thick and *sharp* somehow, and I wasn’t even getting enough air to sputter; it was almost like a solid thing, blocking my throat as completely as if I’d swallowed a massive rock.
 
@@ -90,25 +90,25 @@ Well, this was embarrassing. He was judging me crazy hard, and honestly, I could
 
 He shrugged, still with this tiny grin on his face. “I mean, it was stupid, but no one’s ever sought me out before. It’s not like there’s a lot of company here. I don’t know, it’s kind of…nice.”
 
-“Oh,” I said. More silence. 
+“Oh,” I said. More silence.
 
 *Well, this is good!* I told myself. *If he’s lonely, he probably wants to talk!* I stuck out my hand. “After saving me three times, you probably deserve to know my name. It’s Ian.”
 
 He glanced down at my hand; the moment before he took it seemed infinite. But finally, he reached out and grasped it with his own black-gloved hand, his grip surprisingly strong. “Asher.”
 
-*Asher.* I turned the name over in my head. It fit him, I think. Regardless, it was nice to think of him as something other than ‘the pale kid.’ “Nice to meet you, officially,” I said. 
+*Asher.* I turned the name over in my head. It fit him, I think. Regardless, it was nice to think of him as something other than ‘the pale kid.’ “Nice to meet you, officially,” I said.
 
 He was still grinning, a real genuine smile that made his black eyes sparkle. “You too.” His hand dropped, and he stuck them both in his pockets. “So why were you looking for me?”
 
-“Oh,” I said for the second time in five minutes. I had so many questions, but the biggest was which one to begin with. What did he know about me? Why had he reappeared now, after ten years? Did he know anything about the murders? Why was he so interested in me? What *was* he? He was so different from all the other monsters of these forests. 
+“Oh,” I said for the second time in five minutes. I had so many questions, but the biggest was which one to begin with. What did he know about me? Why had he reappeared now, after ten years? Did he know anything about the murders? Why was he so interested in me? What *was* he? He was so different from all the other monsters of these forests.
 
-It occurred to me as all of these thoughts swirled wildly in my head that I still didn’t know anything about him. He could be just as carnivorous as the rest of these monsters. He could have some connection to the murders. I had to play it safe until I knew what he knew. 
+It occurred to me as all of these thoughts swirled wildly in my head that I still didn’t know anything about him. He could be just as carnivorous as the rest of these monsters. He could have some connection to the murders. I had to play it safe until I knew what he knew.
 
 And yet, my brain apparently did not connect to my mouth, because what came out was not the carefully-cautious response I’d intended. Instead, I found myself blurting out, “I have a problem that I hope you can help with. A few, actually.”
 
 He seemed mildly surprised. “You thought…*I* could help?”
 
-Too late to back out now. I mean, I hadn’t meant to say it, but it *was* true. I’d run out of options; even Henri and his ancient friends didn’t know anything about the murders. But Asher had shown up again as they started, so maybe he had some connection. At the very least, he might know something about *me* and what I was and why I jump between dimensions, if our previous conversations supplied any indications. 
+Too late to back out now. I mean, I hadn’t meant to say it, but it *was* true. I’d run out of options; even Henri and his ancient friends didn’t know anything about the murders. But Asher had shown up again as they started, so maybe he had some connection. At the very least, he might know something about *me* and what I was and why I jump between dimensions, if our previous conversations supplied any indications.
 
 I took a deep breath. “Yeah. I still do. Please. If you can’t help, I promise I’ll leave you alone afterwards. Well, as best as I can. I won’t search you out on purpose, anyway. No guarantees on accidentally showing up here.”
 
@@ -140,9 +140,9 @@ Before I could protest, he grabbed me by the arm, his grip tight. And suddenly e
 
 “Almost there,” Asher’s voice whispered, both in my ear and echoing around us. “Breathe.”
 
-I gulped in stale, dark air. The shadows sped up, moving faster in the blanket of darkness, until suddenly they were gone, and the not-much-brighter surroundings of dark trees were visible once again. 
+I gulped in stale, dark air. The shadows sped up, moving faster in the blanket of darkness, until suddenly they were gone, and the not-much-brighter surroundings of dark trees were visible once again.
 
-Immediately, I felt nauseous, and I twisted to the side to empty my stomach. “That was *way* worse than traveling between dimensions,” I groaned, still bent at the waist. 
+Immediately, I felt nauseous, and I twisted to the side to empty my stomach. “That was *way* worse than traveling between dimensions,” I groaned, still bent at the waist.
 
 Asher released his grip from my arm. “Sorry,” he said behind me. “I’ve never taken someone along before. I thought you’d be fine.”
 
@@ -152,14 +152,14 @@ He smirked. “Noted. I’ll warn you before we shadow travel next time.”
 
 “I don’t know about next time,” I said, though my conviction trailed off as I finally began to look around. We were still in the dark forests, there was no doubt about that, but we were now standing in a…town? Houses and buildings made of knotted, black wood sprawled ahead of us, built between and in some cases incorporated into the surrounding trees. Amidst those houses, beings who looked like Asher­—pale skin, dark hair, dark clothing—walked and interacted freely, just like any other street in any other town.
 
-That is, they *had* been, only now every single one of them stopped and stared at us. Well, at *me.* Each of them looked like an ivory statue, expressions as hard and stony as their frozen bodies. And though I’ve felt different from everyone I’ve known my entire life, I’d never felt so out of place as that moment. 
+That is, they *had* been, only now every single one of them stopped and stared at us. Well, at *me.* Each of them looked like an ivory statue, expressions as hard and stony as their frozen bodies. And though I’ve felt different from everyone I’ve known my entire life, I’d never felt so out of place as that moment.
 
 Asher chuckled awkwardly and put a hand on my shoulder. “Welcome to Oasis, my home.”
 
 “Oasis?”
 
-“It’s kind of a joke,” he explained. “Because it’s our haven in the middle of the endless—NO! Stop!” 
+“It’s kind of a joke,” he explained. “Because it’s our haven in the middle of the endless—NO! Stop!”
 
-He sounded completely panicked, and something dark flashed in my peripheral vision, approaching form behind; that’s all I saw. I tried to turn to defend myself, but I wasn’t quick enough. 
+He sounded completely panicked, and something dark flashed in my peripheral vision, approaching form behind; that’s all I saw. I tried to turn to defend myself, but I wasn’t quick enough.
 
-Suddenly strong hands were at my throat, and the world went black.
+Suddenly strong hands were at my throat, and the world went [black](https://www.reddit.com/r/nosleep/comments/10lfnzk/ashen_handprints_the_bar_at_the_edge_of_reality/?utm_source=share&utm_medium=web2x&context=3).
