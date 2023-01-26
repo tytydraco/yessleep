@@ -142,11 +142,13 @@ The metallic trill of the telephone echoed through the house just before noon an
 
 She called up to me from the first floor.
 
+'Have you seen Max?'
+
 'Nope, not at all.'
 
 'Do you have any idea where they might be?'
 
-'No, I didn't.' I said.
+'No, I don't,' I lied.
 
 I descended the stairs to the kitchen, where I found my mother washing dishes. With a concerned expression on her face, she told me, 'Max is missing and his mother is worried.' Later, when Leah and Emma's mothers called us, we heard the same worried tone in their messages.
 
@@ -268,7 +270,7 @@ The sculptures ranged from abstract art to lifelike figures of animals and peopl
 
 The weird thing was that none of the sculptures looked as menacing today as they did when I had walked through the walls the day before. Now, the serpents, monsters, and demons seemed more lifeless. Maybe it was because there were so many other people around me: families were strolling nearby, and children were running around in excitement.
 
-As I surveyed the place, something caught my attention. A strange feeling told me to visit the end of a hallway. I followed it and found myself in the hall. It was empty and quiet, with only a few sculptures.
+As I surveyed the place, something caught my attention. A strange feeling told me to visit the end of a hallway. I followed it and found myself in the hall. It was empty and quiet, with only a few human-like sculptures.
 
 And this room was different.
 
