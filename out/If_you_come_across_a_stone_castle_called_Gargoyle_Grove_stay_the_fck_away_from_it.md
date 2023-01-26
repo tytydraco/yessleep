@@ -234,7 +234,7 @@ The sheriff, Luke Grant was tall and broad-shouldered with a stern expression on
 
 He listened intently as I described what had happened, scribbling down notes in a small pad he had brought with him. When I finished my story, he looked up at me with piercing brown eyes and said:
 
-'Well, boy. I dispatched a special team to the castle with a drone, which gave us a bird's-eye view of the entirety of the stone structure. But, unfortunately, no signs of your friends were seen. The sculptor even allowed my officers to search his truck, yet still there was no sign of them.' His voice trailed off and he slumped back in his chair in defeat.
+'Well, boy. I dispatched a special team to the castle and we searched the structure. However, there was not much to see besides some walls and carvings. I have to tell you though, that guy is not joking. He is a very good one. But unfortunately, no signs of your friends were seen. The sculptor even allowed my officers to search his truck, yet still, there was no sign of them.' His voice trailed off and he slumped back in his chair in defeat.
 
 'Really?' I said, my confusion clear in my voice.
 
@@ -277,5 +277,7 @@ And this room was different.
 Their faces had detailed eyes and noses that looked as if they could move. Some of them had body armor, swords, and spears in their hands that added to their intimidating aura. Their eyes were filled with emotion, their hands were clenched as if they were ready to move. The positions they stand in and the intricate clothing they wear make them look like they could come to life at any moment.
 
 The sculptures had lifelike features, from the wrinkles in their clothing to the expression on their faces. Some had soft eyes and gentle smiles, while others had stern or even fearful looks. Each one was carved with fine details and exquisite craftsmanship, with intricate lines and curves that enhanced the realism of their features.
+
+As if I might have seen them somewhere. Did they remind me of the work of Michelangelo or Bernini?
 
 As I stood there, realization began to dawn on me as to why those three statues felt so familiar. There they were: Max, Emma and Leah, turned to stone, stilled in time forever.
