@@ -97,3 +97,6 @@ Mrs. Graves walked over, wringing out the ends of her black and silver hair.  �
 Mr. Holliman cut in.  “And we have more to do.  Things will get worse now.”
 
 [And as was so often the case, they were right.](https://redd.it/10h9jfw)
+
+**** 
+[Part Two](https://redd.it/10m3x3j)
