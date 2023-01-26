@@ -276,4 +276,4 @@ Their faces had detailed eyes and noses that looked as if they could move. Some 
 
 The sculptures had lifelike features, from the wrinkles in their clothing to the expression on their faces. Some had soft eyes and gentle smiles, while others had stern or even fearful looks. Each one was carved with fine details and exquisite craftsmanship, with intricate lines and curves that enhanced the realism of their features.
 
-As I stood there, realization began to dawn on me as to why those four statues felt so familiar. There they were: Max, Emma and Leah, turned to stone, stilled in time forever.
+As I stood there, realization began to dawn on me as to why those three statues felt so familiar. There they were: Max, Emma and Leah, turned to stone, stilled in time forever.

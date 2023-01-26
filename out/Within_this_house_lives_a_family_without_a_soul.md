@@ -148,7 +148,7 @@ Bruce doesn't answer.He ignores her,and he picks at his plate with his fork.His 
 
 "Your mom asked you a question, Bruce.C'mon,don't be like this-"
 
-"Like what?" Bruce looks up at his father, and Brooke takes that as her cue to get up,leaving her plate."Thanks,mom,but I'm not hungry." She sighs and pushes the chair in."And I wanna show Ketih around."
+"Like what?" Bruce looks up at his father, and Brooke takes that as her cue to get up,leaving her plate."Thanks,mom,but I'm not hungry." She sighs and pushes the chair in."And I wanna show Keith around."
 
 His mother glances at me at the sudden mention of my name, and Bruce looks over at me with eyes that plead 'don't leave me here.' 
 
