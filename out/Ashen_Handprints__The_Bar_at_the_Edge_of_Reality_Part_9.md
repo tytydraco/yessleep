@@ -2,11 +2,11 @@ The darkness that gripped me along with the [hands at my throat](https://www.red
 
 You know, for someone who’s been in the fog between dimensions countless times, it really shouldn’t have freaked me out. But somehow, this was way, way worse.
 
-I cursed. It echoed. 
+I cursed. It echoed.
 
 Second try. “Anyone out there?” I shouted into the rolling fog.
 
-I didn’t really expect a response, but I got one. A shape was taking form ahead of me, still shrouded in shadow, though its outline seemed vaguely humanoid. I squinted and stepped closer, trying to make out its details. 
+I didn’t really expect a response, but I got one. A shape was taking form ahead of me, still shrouded in shadow, though its outline seemed vaguely humanoid. I squinted and stepped closer, trying to make out its details.
 
 “Hello?” I called. “Can you hear me?” Unease prickled down my spine as my words turned into echoing whispers, vanishing into the darkness.
 
@@ -20,19 +20,19 @@ I reached down slowly, hoping my movements were blocked by the fog, and grabbed 
 
 I crept forward towards the motion, raising the pistol as I did. The thing in the shadows was moving closer, too, I thought, though it was so hard to tell for sure. I wondered if it had seen me move. I stopped.
 
-Squinting, pistol pointed at the shifting shadows, I could have sworn I saw it lunge toward me. 
+Squinting, pistol pointed at the shifting shadows, I could have sworn I saw it lunge toward me.
 
 No time to think. Instinctively, I fired. The thing shouted wordlessly in pain—it sounded relatively human—but it also kept coming, and before I could move, it threw itself at me, and I fell backwards.
 
-The only reason I’d believed there was a ground at all in this void was because I’d been standing on a solid surface earlier; the fog hid any details. Now, though, I could confirm that there was indeed a solid ground, if only because it knocked the breath out of me as I collided with it. 
+The only reason I’d believed there was a ground at all in this void was because I’d been standing on a solid surface earlier; the fog hid any details. Now, though, I could confirm that there was indeed a solid ground, if only because it knocked the breath out of me as I collided with it.
 
 The thing followed, pinning me to the dark, hidden ground. I only caught glimpses of it in the shadows. We rolled over each other—I felt skin, and hair—and something about the brief flashes I saw in the black fog seemed oddly familiar, but my brain couldn’t seem to piece it together, as it were a puzzle made entirely of corner pieces—
 
-And as I wrestled with my attacker, scrabbling to tug at its hair or punch any part of it I could reach, I felt a wet liquid drip onto my jacket—maybe I’d managed to shoot it—and then there was pressure at my throat, maybe hands, I couldn’t tell, and I found myself thinking, *Really, twice in a row?!* 
+And as I wrestled with my attacker, scrabbling to tug at its hair or punch any part of it I could reach, I felt a wet liquid drip onto my jacket—maybe I’d managed to shoot it—and then there was pressure at my throat, maybe hands, I couldn’t tell, and I found myself thinking, *Really, twice in a row?!*
 
 For the second time in like ten minutes, I felt lightheaded, and my vision might have blackening too, but it was impossible to notice any difference when we were already in a dark void of nothingness. But even as I lost consciousness *again,* I could have sworn I felt something slip into my pocket.
 
-Aaaand then I woke up on the ground with one hell of a headache. It took a second for everything to come back to me: Asher’s town, hands at my neck, dark fog, more strangling. Maybe I should have been more concerned, but my head felt like it was full of cotton, and it was all I could do to lie there and groan. Instinctively I reached for my throat, wincing as I touched the tender skin there. *Come on, brain, why’d you have to dream about getting choked immediately after we already got choked? I didn’t need to experience that twice! Not cool.* 
+Aaaand then I woke up on the ground with one hell of a headache. It took a second for everything to come back to me: Asher’s town, hands at my neck, dark fog, more strangling. Maybe I should have been more concerned, but my head felt like it was full of cotton, and it was all I could do to lie there and groan. Instinctively I reached for my throat, wincing as I touched the tender skin there. *Come on, brain, why’d you have to dream about getting choked immediately after we already got choked? I didn’t need to experience that twice! Not cool.*
 
 “You’re alive!” Asher was leaning over me, looking immensely relieved and also…amazed? Something like admiration glinted in his dark eyes, which didn’t seem entirely earned, since all I’d done was manage to pass out rather than stop breathing permanently. Oh, and pass out *again* while in whatever dreamworld I’d visited during my little nap. Maybe he was just amazed I’d survived, considering my less-than-stellar track record of nearly dying.
 
@@ -62,7 +62,7 @@ The woman opened the door and ushered us inside. I felt her eyes on me even as s
 
 It was surprisingly nice. Simple, for sure, but they’d made it cozy with what they had. A little living room area to my right, kitchen to my left, and a winding wooden staircase wrapped around the tree trunk that presumably led to bedrooms upstairs. Across from the couch, where I’d normally expect a television or a fireplace, was some kind of altar: glossy and black, covered in candles and ash and books with runes on their covers. I didn’t want to look too closely. Everything in the house was black, of course, though I presumed they didn’t have much choice based on the available environmental materials.
 
-Asher gestured for me to sit. Hesitantly, I took one side of the couch. He perched on its other arm, feet on the cushion beside me, and the woman settled into the chair across from us. 
+Asher gestured for me to sit. Hesitantly, I took one side of the couch. He perched on its other arm, feet on the cushion beside me, and the woman settled into the chair across from us.
 
 “So, who *is* your friend, Asher?” she asked pointedly, eyebrows raised as she looked at me. “Not the usual type around these parts.”
 
@@ -74,7 +74,7 @@ That was a polite way of saying I was weird and she wanted to know what the hell
 
 They *were* related! I didn’t respond right away, mostly due to my slow processing of her words—my head was still working on clearing out the cotton—and she must have taken this as surprise, because she gave me a small smile and continued, “It’s okay, I’m sure Asher didn’t tell you about me. If it makes you feel better, he didn’t mention *you* either.” She was glaring at him now, though it was more teasing than venomous. Asher held his hands up in surrender, smirking.
 
-“He didn’t,” I finally said. “Mention you, I mean. But it’s nice to meet you.” I didn’t really know what else to say. Now that my head was clearing and I was thinking more about the town—what had Asher called it? Oasis? — it was seeming weirder and weirder. All my life I’d thought only monsters lived in the dark parts of Neverland, the most inhuman, murderous beasts in existence. But here was an entire civilization of human-like beings, who, dare I say it, seemed mostly peaceful. Well, except Orion. N0mvbg…
+“He didn’t,” I finally said. “Mention you, I mean. But it’s nice to meet you.” I didn’t really know what else to say. Now that my head was clearing and I was thinking more about the town—what had Asher called it? Oasis? — it was seeming weirder and weirder. All my life I’d thought only monsters lived in the dark parts of Neverland, the most inhuman, murderous beasts in existence. But here was an entire civilization of human-like beings, who, dare I say it, seemed mostly peaceful. Well, except Orion. 
 
 I just hope that isn’t written on my headstone after this proves out to be an elaborate method of toying with their prey. *Ian Griffin,* it would read, *Most gullible, attack-prone being to ever grace either dimension.*
 
@@ -90,7 +90,7 @@ Acacia raised her eyebrows. “Really? You don’t have someone else to turn to?
 
 Acacia sighed and got to her feet. “Alright, go for it. We don’t have anything to lose. You want tea?”
 
-She’d caught me off-guard. “What?” 
+She’d caught me off-guard. “What?”
 
 “Tea. You *have* heard of tea before, haven’t you?” She was already setting a kettle on the stove, but she twisted her head to smirk at me, and that smirk made her look more like Asher than ever. “Or did you think we just drank blood or something?”
 
@@ -98,9 +98,9 @@ Yet again, I found myself afraid of offending them. At the same time, though, bo
 
 Asher and his sister looked at each other for a long moment and then burst out laughing. “You don’t look at all appetizing,” Acacia assured me.
 
-“I’d rather eat the table,” Asher added helpfully. 
+“I’d rather eat the table,” Asher added helpfully.
 
-The *table?* Okay, maybe I should be offended. Surely I was more appealing than a *table.* 
+The *table?* Okay, maybe I should be offended. Surely I was more appealing than a *table.*
 
 Not the point. As the kettle began to whistle, I took a deep breath and said, “Someone’s murdering inhuman beings.”
 
@@ -142,7 +142,7 @@ Acacia sighed. “A myth created to inspire and guide our people. But that’s a
 
 I was intrigued. Look, I know better than anyone that myths can be real. Most of my *life* seems like a dark version of a fairy tale. Even if Acacia seemed doubtful, I wasn’t ready to brush Asher’s words aside. Not yet, anyway.
 
-Asher produced a gray piece of paper and charcoal pencil from somewhere, placing it on his knee. In two quick strokes, he drew a plus sign. Then he kept going, adding words at the end of each of the four lines. As he flipped it around for me to see, I realized that it wasn’t a plus sign; it was a set of axes. 
+Asher produced a gray piece of paper and charcoal pencil from somewhere, placing it on his knee. In two quick strokes, he drew a plus sign. Then he kept going, adding words at the end of each of the four lines. As he flipped it around for me to see, I realized that it wasn’t a plus sign; it was a set of axes.
 
 Left to right, the two ends were labeled *Inhuman* and *Human.* Top to bottom, the ends were labeled *Alive* and *Dead.* Asher traced the pencil’s tip over the horizontal line, from *Inhuman* to *Human.* “Think of the planes of existence like this,” he said. “One axis encompasses the two dimensions that exist side by side: the inhuman and the human. No one can cross over and exist on both sides of the dividing axis in the middle.” He pointed to the vertical line. *Except me,* I wanted to say, biting my tongue to stay quiet.
 
@@ -160,13 +160,13 @@ Asher didn’t notice. Now, he placed the tip of his pencil on the center: the t
 
 “But some of us haven’t,” insisted Asher. “And if it *does* exist, it probably has all the answers you need! It must. It would have to know if someone was crossing dimensions.”
 
-Again, I was torn, though now it was between excitement at a possible lead and panic at the thought of some ancient being knowing I was breaking dimensional laws. Would it smite me on the spot? I cursed mentally. 
+Again, I was torn, though now it was between excitement at a possible lead and panic at the thought of some ancient being knowing I was breaking dimensional laws. Would it smite me on the spot? I cursed mentally.
 
 I didn’t realize I’d been sitting there in silence, lost in my whirlwind of fear and hope, until Asher cleared his throat. “So? What do you think?”
 
 I tried to talk, and all that came out was a strangled noise. I coughed and tried again. “It’s worth a shot,” I said. “But first we need to go to [Griffin's Edge](https://www.griffinsedgebar.com/). My uncle might know something that could help us find the Ancient One.”
 
-Acacia and Asher were both looking at me with furrowed brows. “What’s Griffin’s Edge?” they asked, nearly simultaneously. 
+Acacia and Asher were both looking at me with furrowed brows. “What’s Griffin’s Edge?” they asked, nearly simultaneously.
 
 “It’s a bar that my uncle owns—he’s a griffin, hence the name—it’s on the edge of dimensions—” I was searching for any spark of recognition, but their faces remained blank. I guess I should have known, if they never left the forest. “Doesn’t matter. You’ll see when we get there.”
 
@@ -176,7 +176,7 @@ I dropped my arm. “Oh…are you bound to the forest somehow? Maybe I can convi
 
 “No,” said Asher. “I just…don’t think it’s a good idea for me to be there.”
 
-I laughed. “Don’t worry, they’re friendly! We welcome anyone who obeys the rules. And if anyone has answers, it’ll be Henri and his buddies. They just needed a lead, and now maybe we have one! Come *on!*” 
+I laughed. “Don’t worry, they’re friendly! We welcome anyone who obeys the rules. And if anyone has answers, it’ll be Henri and his buddies. They just needed a lead, and now maybe we have one! Come *on!*”
 
 I grabbed his sleeve again. And maybe because I was too focused on convincing him to come, maybe because the fear and excitement crowded into my head were overwhelming—whatever the reason, I didn’t notice the sneeze coming quick enough to stop it.
 
@@ -186,11 +186,11 @@ Classic me. Thanks, atoms. So much for not mentioning my dimension-hopping to As
 
 Asher, who, by the way, was turning a gray color that matched his name and hyperventilating. “I—assume—this isn’t—your uncle’s—bar,” he huffed out between gasping breaths. “I feel—sick. Also—I don’t think I—mentioned this—but—I’m terrified—of heights.”
 
-I looked at the narrow ledge beneath our feet and the busy city street below. We were at least ten floors up. “You *sit* in *trees!”* I shouted, already desperately feeling for a gap. 
+I looked at the narrow ledge beneath our feet and the busy city street below. We were at least ten floors up. “You *sit* in *trees!”* I shouted, already desperately feeling for a gap.
 
 “Trees—aren’t—this high,” he argued, still breathing like he was having a panic attack.
 
-No gaps, and I couldn’t move off this ledge to find one. One step, and we’d be freefalling to the pavement. Which would really suck when I had finally been getting some potential leads about the murders and myself. 
+No gaps, and I couldn’t move off this ledge to find one. One step, and we’d be freefalling to the pavement. Which would really suck when I had finally been getting some potential leads about the murders and myself.
 
 *Deep breaths, Ian.* I knew how to do this. I just had to focus. I closed my eyes and felt the fabric around me, trying to block out Asher’s increasingly-desperate breaths.
 
@@ -206,7 +206,7 @@ There was a tiny moment where the world seemed to drop out from under us, where 
 
 I breathed an enormous sigh of relief, dropping my hand from Asher’s arm. He looked instantly better, his skin returning to its ghostly paleness, his breathing slowing. He raised his eyebrows. “I don’t suppose that’s why you were biting a hole in your cheek during my description of the planes?”
 
-He *had* noticed. Yikes. 
+He *had* noticed. Yikes.
 
 I opened my mouth to reply and try to explain, but I didn’t get a chance, because out of nowhere came Henri’s booming voice. I’ve said before that he never yells; when he’s angry, it’s obvious in his dangerously quiet words and disappointed stares. Now, though—now he was yelling. He sounded more furious than I’d ever heard him…and he was marching towards us.
 
@@ -214,7 +214,7 @@ I opened my mouth to reply and try to explain, but I didn’t get a chance, beca
 
 I’d never seen Henri like this: with a wild fury burning in his lilac eyes, his face twisted into hard lines. He’d never turned away anyone from the bar without a reason; he’d never discriminated against any patrons, even the unsavory types that other inhumans tended to steer clear of. He’d never raised his voice at me, either. I had no idea what to do.
 
-I sputtered for words, but it didn’t matter. Henri gripped both me and Asher by the jackets, pulling us behind him like we weighed nothing. Moving so fast we barely saw the bar, he dragged us inside, past the crowds of nervous visitors, up the narrow stairs, and didn’t stop until we were in his office, the lock clicking shut behind us. 
+I sputtered for words, but it didn’t matter. Henri gripped both me and Asher by the jackets, pulling us behind him like we weighed nothing. Moving so fast we barely saw the bar, he dragged us inside, past the crowds of nervous visitors, up the narrow stairs, and didn’t stop until we were in his office, the lock clicking shut behind us.
 
 Without a word, he stepped behind his desk, pulling a key out of his pocket for his bottom left drawer—the only drawer I’d never seen him open. He’d kept it locked my entire life. I still had no idea where this was going, and my heart felt like it might pound out of my ribcage, though whether in fear or something else entirely, I don’t know. Asher was just staring at Henri with wide eyes.
 
