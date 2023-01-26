@@ -16,7 +16,7 @@ I dropped the spiders and scrammed.
 
 My sister was furious. Those pesky spiders crawled into every crevasse of her room; her closet, her dresser, even her computer. One spider—a big one with long, hairy legs and beady eyes—managed to sneak into her gym bag and lay eggs. Scared her stupid when, the following week at her ballet recital, out sprung a cluster of spiders. 
 
-The painted was unimpressed. Any time I got near it, it would grit and growl. Sometimes I’d get shocked, or stabbing pains would pierce my chest. This went on and on. So did its relentless teasing. The damned thing kept taunting me, especially at night while I lay in bed, trembling. Slowly, my life fell apart, my grades were slipping, and my friends and family thought I was going nuts. 
+The painting was unimpressed. Any time I got near it, it would grit and growl. Sometimes I’d get shocked or stabbing pains would pierce my chest. This went on and on. So did its relentless teasing. The damned thing kept taunting me, especially at night while I lay in bed, trembling. Slowly, my life fell apart, my grades were slipping, and my friends and family thought I was going nuts. 
 
 I tried destroying it. In panic-fueled rage, I ripped the painting off the wall, beat it to death with a hammer, tossed its colorful carcass into the garbage. 
 
@@ -28,15 +28,15 @@ Damned thing came back. Swear to goddamned God. When I checked, there it was, ba
 
 Things got worse.
 
-That summer my baseball team was in first place, looking to win the championship. It was the night before the Big Game. I was pitching. The damned painting wouldn’t let me be. As I was falling asleep, I felt something laying on me, pressing against my chest. When I heard my name, my eyes snapped open. The shadow figure inside the painting was hovering over me, whispering nasty phases into my ear, telling me how much I sucked; that my team would lose and everyone would blame me. Sure enough, that’s exactly what happened. Swear the goddam God I’m telling the truth. 
+That summer my baseball team was in first place, looking to win the championship. It was the night before the Big Game. I was pitching. The damned painting wouldn’t let me be. As I was falling asleep, I felt something laying on me, pressing against my chest. When I heard my name, my eyes snapped open. The shadow figure inside the painting was hovering over me, whispering nasty phrases into my ear, telling me how much I sucked; that my team would lose and everyone would blame me. Sure enough, that’s exactly what happened. Swear the goddam God I’m telling the truth. 
 
 Needless to say, I didn’t speak to my sister for the remainder of the summer. High school was starting in the fall, I was hoping to leave this behind me. To my chagrin, she began painting again. My parents were pleased. They bought her the finest paints money could buy. My sister was thrilled. She painted fast and furious. When she finished her new painting, I nearly died. 
 
 It was another landscape. Only instead of a field, it was a silver-laced city, clad with tall buildings towering over tiny ant-like beings below, a spec of light seeping through the shimmering skyscrapers. It was good. I’ll admit that. The way the busted neon sign hung sideways in the distance, limp and lifeless, while busybodies paraded along the surly city streets going God-knows-where.  
 
-She hung it in the living room, next to the TV, for all to see. My parents were proud. They invited all their friends to come gaze at it’s marvelousness. Everyone loved it. She was the toast of the town. My resentment grew like fungus. I hated the damned thing. Something about it gave me the creeps. And for good reason.
+She hung it in the living room, next to the TV, for all to see. My parents were proud. They invited all their friends to come gaze at its marvelousness. Everyone loved it. She was the toast of the town. My resentment grew like fungus. I hated the damned thing. Something about it gave me the creeps. And for good reason.
 
-I ignored it out of spite. And fear. Until one night after a hectic day at school, I sat down to watch a movie. I forget which one. My parents were out with my sister. She had a ballerina recital, which I refused to go. 
+I ignored it out of spite. And fear. Until one night after a hectic day at school, I sat down to watch a movie. I forget which one. My parents were out with my sister. She had a ballet recital, which I refused to go. 
 
 “Hey Zak,” the painting said, surprising the hell out of me. “You suck.”
 
@@ -102,7 +102,7 @@ I said thank you, and carefully placed it in the back of my car. The painting pr
 
 It came back. 
 
-The following morning—the first day on my new job, no less—it was hanging on my wall, next to the flat screen TV. Except now, the crowd was quarreling and causing a ruckus. As a got closer, someone in the crowd started waving. A shadow emerged.
+The following morning, the first day on my new job, no less, it was hanging on my wall, next to the flat screen TV. Except now, the crowd was quarreling and causing a ruckus. As I got closer, someone in the crowd started waving. A shadow emerged.
 
 “I’m baaaack!”
 
