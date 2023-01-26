@@ -1,8 +1,8 @@
-I stared at the bill [Jacque gave me last night](https://www.reddit.com/r/nosleep/comments/10j6j47/i_work_at_a_clothing_store_i_actually_made_my/) the entire bus ride home. I couldn’t comprehend what this meant. Do our custom clients know about Eleanora? Can they sense her somehow, or better yet, communicate with her? I might have finally found a way to speak with her, and walking into work today, I think she knew. In the stairwell, I felt like the walls were watching me. It wasn’t necessarily threatening, just a feeling I’ve never had before. I paused for a moment, considering an idea I had thought about late last night. I wanted to see if I could simply talk to her. 
+I stared at the bill [Jacque gave me last night](https://www.reddit.com/r/nosleep/comments/10j6j47/i_work_at_a_clothing_store_i_actually_made_my/) the entire bus ride home. I couldn’t comprehend what this meant. Do our custom clients know about Eleanora? Can they sense her somehow, or better yet, communicate with her? I might have finally found a way to speak with her, and walking into work today, I think she knew. In the stairwell, I felt like the walls were watching me. It wasn’t necessarily threatening, just a feeling I’ve never had before. I paused for a moment, considering an idea I had thought about late last night. I wanted to see if I could simply talk to her.
 
 &#x200B;
 
-“Eleanora?” I whispered, barely loud enough for even me to hear. A chill ran down my spine, and I heard the building creak, as if it was an old house getting hit by wind. I knew this had never happened before, and I felt like she was trying to speak. 
+“Eleanora?” I whispered, barely loud enough for even me to hear. A chill ran down my spine, and I heard the building creak, as if it was an old house getting hit by wind. I knew this had never happened before, and I felt like she was trying to speak.
 
 &#x200B;
 
@@ -14,27 +14,27 @@ Of course, this moment was quickly ruined, as the door opened and Corey strutted
 
 &#x200B;
 
-“I thought I heard someone walking in, and here you are!” I replied, trying not to sound sarcastic, before quickly turning around and finishing the three story climb. 
+“I thought I heard someone walking in, and here you are!” I replied, trying not to sound sarcastic, before quickly turning around and finishing the three story climb.
 
 &#x200B;
 
-It was *supposed* to be just Patrick and me today, but of course, Ms. Corporate still won’t leave. I said a quick hello to him as I clocked in, and he seemed to beam at the sight of Corey. I rolled my eyes, knowing full well why he felt so comfortable and happy around her, but I couldn’t explain that to him. I wasn’t sure what would happen if I told him about what she can do while he’s under her control, but I didn’t want to find out. I simply faked my best smile at them before heading to the floor to open. The appointment board caught my eye on the way out, and I felt my heart skip a beat. This was the perfect opportunity to find out if our custom clients knew about Eleanora, and if they could communicate with her. 
+It was *supposed* to be just Patrick and me today, but of course, Ms. Corporate still won’t leave. I said a quick hello to him as I clocked in, and he seemed to beam at the sight of Corey. I rolled my eyes, knowing full well why he felt so comfortable and happy around her, but I couldn’t explain that to him. I wasn’t sure what would happen if I told him about what she can do while he’s under her control, but I didn’t want to find out. I simply faked my best smile at them before heading to the floor to open. The appointment board caught my eye on the way out, and I felt my heart skip a beat. This was the perfect opportunity to find out if our custom clients knew about Eleanora, and if they could communicate with her.
 
 &#x200B;
 
-Koro was coming. 
+Koro was coming.
 
 &#x200B;
 
-Now listen, I don’t necessarily trust Koro. I’ve worked with him a few times since my first custom fitting, and he’s cool, but I can not get a read on that guy. Maybe it’s the lack of facial features, or the lack of face, but I don’t know if he is fond of me or not. I think he has fully forgiven me for my initial reaction to him, but that doesn’t necessarily mean he will answer any of my questions. Regardless, if anyone is willing to break some rules, it’s Koro. He’s the kind of guy who isn’t afraid of consequences. 
+Now listen, I don’t necessarily trust Koro. I’ve worked with him a few times since my first custom fitting, and he’s cool, but I can not get a read on that guy. Maybe it’s the lack of facial features, or the lack of face, but I don’t know if he is fond of me or not. I think he has fully forgiven me for my initial reaction to him, but that doesn’t necessarily mean he will answer any of my questions. Regardless, if anyone is willing to break some rules, it’s Koro. He’s the kind of guy who isn’t afraid of consequences.
 
 &#x200B;
 
-I was lost in my thoughts all day, just waiting for closing time. I didn’t even notice that a client was staring in my face, trying to ‘politely’ ask me if we had any more sizes in the back (we never do, don’t bother asking). Patrick seemed to notice I was distracted, and pulled me aside. 
+I was lost in my thoughts all day, just waiting for closing time. I didn’t even notice that a client was staring in my face, trying to ‘politely’ ask me if we had any more sizes in the back (we never do, don’t bother asking). Patrick seemed to notice I was distracted, and pulled me aside.
 
 &#x200B;
 
-“Hey, you okay, kid?” He asked, and the sincerity in his voice broke my heart when I noticed the foggy look in his eyes. She had her grips on him, and I didn’t know how to stop it. I wondered if Daniel was the same way, and why Sam wasn’t, but Patrick was growing more concerned the longer I stayed in my thoughts. 
+“Hey, you okay, kid?” He asked, and the sincerity in his voice broke my heart when I noticed the foggy look in his eyes. She had her grips on him, and I didn’t know how to stop it. I wondered if Daniel was the same way, and why Sam wasn’t, but Patrick was growing more concerned the longer I stayed in my thoughts.
 
 &#x200B;
 
@@ -42,7 +42,7 @@ I was lost in my thoughts all day, just waiting for closing time. I didn’t eve
 
 &#x200B;
 
-He seemed to believe me, and mumbled the classic Patrick half-assed apology before telling me to get it together. I tried to focus, and finally the day ended. I just about sprinted to lock the door before setting up for Koro’s appointment. 
+He seemed to believe me, and mumbled the classic Patrick half-assed apology before telling me to get it together. I tried to focus, and finally the day ended. I just about sprinted to lock the door before setting up for Koro’s appointment.
 
 &#x200B;
 
@@ -50,7 +50,7 @@ He seemed to believe me, and mumbled the classic Patrick half-assed apology befo
 
 &#x200B;
 
-“Actually, I’m off tomorrow,” I said, trying not to rejoice in front of her. She gave me a glare, before repeating herself, more stern this time. 
+“Actually, I’m off tomorrow,” I said, trying not to rejoice in front of her. She gave me a glare, before repeating herself, more stern this time.
 
 &#x200B;
 
@@ -58,11 +58,11 @@ He seemed to believe me, and mumbled the classic Patrick half-assed apology befo
 
 &#x200B;
 
-“Okay, see you tomorrow.” I quickly looked away, trying to avoid watching her face melt into that disgusting scowl. Looks like my day off just got canceled. Fantastic. 
+“Okay, see you tomorrow.” I quickly looked away, trying to avoid watching her face melt into that disgusting scowl. Looks like my day off just got canceled. Fantastic.
 
 &#x200B;
 
-I heard the door close behind her, and Patrick looked at me concerned. 
+I heard the door close behind her, and Patrick looked at me concerned.
 
 &#x200B;
 
@@ -70,7 +70,7 @@ I heard the door close behind her, and Patrick looked at me concerned.
 
 &#x200B;
 
-“NO,” I basically shouted, clearly throwing him off guard. “I mean, no, it’s fine, I’m excited to see Koro. Actually, if you’d like, you can go early! I heard you telling a client about a certain big date later, and I know you’d love extra time to prep,” I teased. 
+“NO,” I basically shouted, clearly throwing him off guard. “I mean, no, it’s fine, I’m excited to see Koro. Actually, if you’d like, you can go early! I heard you telling a client about a certain big date later, and I know you’d love extra time to prep,” I teased.
 
 &#x200B;
 
@@ -86,11 +86,11 @@ He gave me a quick pat on the back before basically skipping out the door. I wis
 
 &#x200B;
 
-After about thirty minutes of stressing over every possible outcome, I heard the elevator ding. Out walked Koro, wearing a slightly translucent forest green three piece suit with matching top hat, which he set on top of the coat rack as he entered the door. 
+After about thirty minutes of stressing over every possible outcome, I heard the elevator ding. Out walked Koro, wearing a slightly translucent forest green three piece suit with matching top hat, which he set on top of the coat rack as he entered the door.
 
 &#x200B;
 
-“Good evening, sir,” I signed, trying to keep my hands from shaking. 
+“Good evening, sir,” I signed, trying to keep my hands from shaking.
 
 &#x200B;
 
@@ -98,11 +98,11 @@ After about thirty minutes of stressing over every possible outcome, I heard the
 
 &#x200B;
 
-Feeling fear creeping up my spine, I began to regret telling Patrick to leave. I had never been alone with Koro before, and I quickly realized how fucking stupid I was for doing this. 
+Feeling fear creeping up my spine, I began to regret telling Patrick to leave. I had never been alone with Koro before, and I quickly realized how fucking stupid I was for doing this.
 
 &#x200B;
 
-“Yes sir, I hope that’s alright.” 
+“Yes sir, I hope that’s alright.”
 
 &#x200B;
 
@@ -110,7 +110,7 @@ He paused for a moment, and I could feel him studying me. I avoided eye contact,
 
 &#x200B;
 
-My jaw dropped, and my eyes snapped to his face before I quickly looked away, embarrassed. It seems I’m not as sly as I thought. 
+My jaw dropped, and my eyes snapped to his face before I quickly looked away, embarrassed. It seems I’m not as sly as I thought.
 
 &#x200B;
 
@@ -118,7 +118,7 @@ My jaw dropped, and my eyes snapped to his face before I quickly looked away, em
 
 &#x200B;
 
-“No need,” he signed, then took off his jacket and hung it below his hat. “I’m surprised you haven’t asked me sooner. I was beginning to think you were truly stupid.” I flinched at his insult as he walked in front of the mirror, adjusting his vest. 
+“No need,” he signed, then took off his jacket and hung it below his hat. “I’m surprised you haven’t asked me sooner. I was beginning to think you were truly stupid.” I flinched at his insult as he walked in front of the mirror, adjusting his vest.
 
 &#x200B;
 
@@ -134,7 +134,7 @@ I thought carefully before starting.
 
 &#x200B;
 
-“Is your friend Eleanora?” He corrected my fingerspelling (which he often does, and I deeply appreciate) before answering. 
+“Is your friend Eleanora?” He corrected my fingerspelling (which he often does, and I deeply appreciate) before answering.
 
 &#x200B;
 
@@ -146,7 +146,7 @@ I thought carefully before starting.
 
 &#x200B;
 
-“That is none of your concern, girl.” I could tell I upset him, so I tried to quickly move on. 
+“That is none of your concern, girl.” I could tell I upset him, so I tried to quickly move on.
 
 &#x200B;
 
@@ -218,7 +218,7 @@ I felt relief wash over me. He wasn’t lying to me. Suddenly, I thought of some
 
 &#x200B;
 
-He paused for what felt like an eternity. I thought I had signed it incorrectly and he didn’t understand, so I began again, but he put up his hand for me to stop. 
+He paused for what felt like an eternity. I thought I had signed it incorrectly and he didn’t understand, so I began again, but he put up his hand for me to stop.
 
 &#x200B;
 
@@ -234,11 +234,11 @@ He paused for what felt like an eternity. I thought I had signed it incorrectly 
 
 &#x200B;
 
-With that, he walked over to the coat rack and placed his top hat on his head. “You now have all the information you need. Do not ask me these questions again. If I am asked, I will deny having given you any information. Good evening.” He tipped his hat to me, and left. 
+With that, he walked over to the coat rack and placed his top hat on his head. “You now have all the information you need. Do not ask me these questions again. If I am asked, I will deny having given you any information. Good evening.” He tipped his hat to me, and left.
 
 &#x200B;
 
-I stayed there for a long time, thinking about everything he had said. It was too much to process. I don’t know where my head is at right now, but two things are for sure - I need to learn more about the warehouse, and I need to be there during the next trip to the other side. 
+I stayed there for a long time, thinking about everything he had said. It was too much to process. I don’t know where my head is at right now, but two things are for sure - I need to learn more about the warehouse, and I need to be there during the next trip to the other side.
 
 &#x200B;
 
@@ -251,3 +251,5 @@ I stayed there for a long time, thinking about everything he had said. It was to
 [Part 4](https://www.reddit.com/r/nosleep/comments/10idlz0/i_work_at_a_clothing_store_corporate_came_for_an/)
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/10j6j47/i_work_at_a_clothing_store_i_actually_made_my/)
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/10lf2zd/i_work_at_a_clothing_store_i_have_a_plan_but_its/)
