@@ -6,10 +6,10 @@ I try and avoid it but it always finds a way. I try and calm down, take a shower
 "WHAT THE HELL DO YOU WANT FROM ME?"
 I yelled at it. I stepped back and it started chasing me. It launched itself on me and bit parts of my body off with its sharp blood stained teeth. I saw chunks on my guts being spewed everywhere, fractions of the intestines changing the color of the snow. With the little muscle I had, I charge for the rift. Half my body got in when it latched onto me. It was desperately trying to pull me back in. With the little time I had, I started ripping my intestine out, it hurt like hell. I finally got it out and  hit the demon with it. It couldn't hang on and sent me flying to the other side. 
 
-I escaped, all of my injuries were gone. I wake up in my kid body. Surrounded by paramedics, it w was all over. I was more than overjoyed. I fell back asleep. I was met by the demon itself. Face to face. I start whimpering. I didn't escape. 
+I escaped, I see scratches and bruises with blood on them. I clip in my kid body. Surrounded by paramedics, it was all over. I was more than overjoyed. I noclip out of reality. I was met by the demon itself. Face to face. I start whimpering. I didn't escape. 
 
 "I can't believe you escaped, no one has been able to. Please, never come back. You got trapped because you noclipped out of reality, like the backrooms." 
-I wake up in a sweat, I realize that everything was real, it wasn't just a night terror. 
+I suddenly get a sharp electric feeling and clip back in reality, I realize that everything was real. 
 
 
 I was finally free.
