@@ -4,13 +4,13 @@ Jackson and I jumped out of the car the second we arrived, eagerly looking forwa
 
 “Race ya!” Jackson screamed, while barreling ahead of me.
 
-“Hey! No fair!” I laughed, chasing him, but just barely keeping up. I followed him to our room, it was amazing. It had a big loft with our beds on it, and a huge tv, plus there was a giant window on the loft level.
+“Hey! No fair!” I laughed, chasing him, but just barely keeping up. He pointed to a room on the top floor and motioned for me to follow him to it. I followed him to the room, it was amazing. It had a big loft with our beds on it, and a huge tv, plus there was a giant window on the loft level.
 
 “This place is awesome!” Jackson shouted while climbing up the ladder to the loft, I followed and peered out the window into the enchanting winter forest just behind the cabin, I had the feeling this trip was gonna be amazing.
 
 I was wrong.
 
-A few hours after we arrived, my 18 year old brother Isaac came, he marveled at the cabins beauty and charm, and so did Megan and Drew when they arrived. The first few days were great, we all drove to the ski hill together, my dad would take us boys skiing, while my mom and sister relaxed in the lodge, since my sister was pregnant with my first nephew at the time. It was on the 3rd night that something strange began to happen. I woke up at around 2 in the morning, to the sound of sticks or something being thrown at the huge window in Jackson and I’s room. I sat awake and listened for a few moments while staring at the window, even though the curtain was covering the window, the light from the moon allowed me to watch the silhouette’s of the sticks hitting the window, they weren’t big, they were thin and small, but big enough to make a distinct tapping noise every time they hit.
+A few hours after we arrived, my 18 year old brother Isaac came, he marveled at the cabins beauty and charm, and so did Megan and Drew when they arrived. The first few days were great, we all drove to the ski hill together, my dad would take us boys skiing, while my mom and sister relaxed in the lodge, since my sister was pregnant with my first nephew at the time. It was on the 3rd night that something strange began to happen. I woke up at around 2 in the morning, to the sound of sticks or something being thrown at the huge window in Jackson and I’s room. I sat awake and listened for a few moments while staring at the window, even though there was a thin curtain covering the window, the light from the moon allowed me to watch the silhouette’s of the sticks hitting the window, they weren’t big, they were thin and small, but big enough to make a distinct tapping noise every time they hit.
 
 *tap*
 
@@ -24,11 +24,11 @@ A few hours after we arrived, my 18 year old brother Isaac came, he marveled at 
 
 “What is that?” He whispered.
 
-“Let’s find out.” I whispered while creeping out of bed, I turned back to see if Jackson was following me, he hesitated, but curiosity overcame him and he crept after me. I rolls the curtains up, and gazed down into the darkness, I couldn’t see anything despite the big bright moon, just a stick being tossed from the darkness below and hitting the window every few seconds, Jackson and I opened the window, the stick tossing ceased.
+“Let’s find out.” I whispered while creeping out of bed, I turned back to see if Jackson was following me, he hesitated, but curiosity overcame him and he crept after me. I rolled the curtains up, and gazed down into the darkness, I couldn’t see anything despite the big bright moon, just a stick being tossed from the darkness below and hitting the window every few seconds, Jackson and I opened the window, the stick tossing ceased.
 
 “Hello?” Jackson called, for a few moments it was quiet, but then someone responded.
 
-“Hey Jackson, Hey Dylan!” The voice called, I recognized it immediately, it was Drew. Drew has a very distinct Australian accent, as he lived there most his life.
+“Hey Jackson, Hey Dylan!” The voice called, I recognized it immediately, it was Drew. Drew has a very thick Australian accent, as he lived there most his life.
 
 “Funny prank Drew!” Jackson said playfully, then he closed the window and climbed back into bed.
 
@@ -52,7 +52,7 @@ Drew’s giggling stopped, his tone got urgent and serious quickly. “You gotta
 
 “I’m getting Megan!” Jackson cried, he rushed away, Drew’s screams grew louder and more aggressive.
 
-“Get out here now!” Drew screamed louder than ever, that’s when I heard Jackson come running into the room with Megan.
+“Get out here now!” Drew screamed louder than ever, I fell to my knees and balled up on the floor in terror while tears flowed out my eyes, that’s when I heard Jackson come running into the room with Megan.
 
 “Dylan come down here now!” Megan called from below the loft, quickly I went down the ladder and ran into my sisters arms, Drew was still screaming from outside, I had my eyes closed while my sister hugged me, when I opened them I realized the terrifying truth.
 
