@@ -92,7 +92,7 @@ Suddenly, I realized that for the first time since I’d heard the peligot screa
 
 “What’s your status?” repeated the voice on the comm, but I just hung up and ran toward the mountains.
 
-Of course, Dr. Yuger reminds me that after the war, numerous scientists attempted to locate the peligots, only to include they’d always been a local legend. Perhaps they were wiped out over the course of the conflict.
+Of course, Dr. Yuger reminds me that after the war, numerous scientists attempted to locate the peligots, only to conclude they’d always been a local legend. Perhaps they were wiped out over the course of the conflict.
 
 I prefer to think of them as still living in those remote mountains somewhere, maybe telling each other, “Thank you, thank you,” as they share a bit of food.
 
