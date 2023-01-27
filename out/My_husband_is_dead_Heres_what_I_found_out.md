@@ -65,3 +65,5 @@ I could not (and still cannot) make sense of any of this. I'm not sure if whatev
 I took a deep breath and read the last phrase, which made me sure I *need* to find out what's going on:
 
 *"Jim Smith departed in the arms of his wife, Allison Smith, and the couple's baby daughter, Elisa Smith"*
+
+[Edit: he walks! ](https://www.reddit.com/r/nosleep/comments/10mlwfn/he_he_walks/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
