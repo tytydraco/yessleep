@@ -1,4 +1,8 @@
-It’s hard to trust anyone after what happened but knowing that the public will not be informed about the truth has me worried beyond belief. Maybe because it’s all too far-fetched? Hell, I don’t know. I suppose I should be careful with what I say, but I now know something that was obviously intended to be kept a secret. I don’t exactly know how deep they’ve got their hands in everything but after I share this with you here, I am sure someone will be sent to track me down and erase me from existence. Someone is always watching. However, after everything that happened, I don’t really fear that or even death right now because there’s something else out there that is much more horrifying than simply taking your last breath. I need to tell anyone I can about *everything* that happened when I was a security guard for this steel plant.
+It’s hard to trust anyone after what happened but knowing that the public will not be informed about the truth has me worried beyond belief. Maybe because it’s all too far-fetched? Hell, I don’t know. I suppose I should be careful with what I say, but I now know something that was obviously intended to be kept a secret. I don’t exactly know how deep they’ve got their hands in everything but after I share this with you here, I am sure someone will be sent to track me down and erase me from existence. Someone is always watching. 
+
+
+
+However, after everything that happened, I don’t really fear that or even death right now because there’s something else out there that is much more horrifying than simply taking your last breath. I need to tell anyone I can about *everything* that happened when I was a security guard for this steel plant.
 
 &#x200B;
 
@@ -6,7 +10,11 @@ After I finish writing this, I will submit my knowledge to a news station, but I
 
 &#x200B;
 
-Let me tell you a bit about myself. You can just call me Dee. I am a 42-year-old single male and after being hospitalized from a gunshot wound from active duty, I was honorably discharged with compensation packets. I am not proud of this, but I started drinking after the swelling and antibiotics were gone. Being hit with this quick depression, I never wanted to commit to anything other than occasionally attempting to work out and get through the pain. I was gaining extra weight, I hated the idea of counseling and thought about getting a dog, but my pain subsided enough for me to finally say enough *was* enough. I was losing money and it was time to get a job, so I put in several applications online to become a security guard or anything that welcomed my background in the military. Stick to what you know, right?
+Let me tell you a bit about myself. You can just call me Dee. I am a 42-year-old single male and after being hospitalized from a gunshot wound from active duty, I was honorably discharged with compensation packets. I am not proud of this, but I started drinking after the swelling and antibiotics were gone. 
+
+
+
+Being hit with this quick depression, I never wanted to commit to anything other than occasionally attempting to work out and get through the pain. I was gaining extra weight, I hated the idea of counseling and thought about getting a dog, but my pain subsided enough for me to finally say enough *was* enough. I was losing money and it was time to get a job, so I put in several applications online to become a security guard or anything that welcomed my background in the military. Stick to what you know, right?
 
 &#x200B;
 
@@ -26,11 +34,19 @@ Opposite that was the parking lot and our main gate with a guard that seems to b
 
 &#x200B;
 
-The day started out like any normal day. I don’t like being early or late, so I showed up right as my day shift was about to start as always. I was greeted by Phil, showed him my ID card and was cleared to enter. I then pulled into the parking lot, got out and headed for the guard's office. Looking around, I noticed two nondescript vehicles parked on the dirt road where deliveries would be with traffic cones placed by one of the vans. Must be some inspectors, I thought. Usually, I am told when they have people like that come to do their checks by phone the day prior and this place is huge, so I figured they’d have a team to help, and it might be one of those “sorry forgot to mention” things management pulled. Once I made my way closer to the guard's office and glanced over at building B, there was a group of men with jumpsuits and respirators gathered around the front of it. They were installing a card reader on the main entrance doors, but the actual door was gone.
+The day started out like any normal day. I don’t like being early or late, so I showed up right as my day shift was about to start as always. I was greeted by Phil, showed him my ID card and was cleared to enter. I then pulled into the parking lot, got out and headed for the guard's office. Looking around, I noticed two nondescript vehicles parked on the dirt road where deliveries would be with traffic cones placed by one of the vans. Must be some inspectors, I thought. 
+
+
+
+Usually, I am told when they have people like that come to do their checks by phone the day prior and this place is huge, so I figured they’d have a team to help, and it might be one of those “sorry forgot to mention” things management pulled. Once I made my way closer to the guard's office and glanced over at building B, there was a group of men with jumpsuits and respirators gathered around the front of it. They were installing a card reader on the main entrance doors, but the actual door was gone.
 
 &#x200B;
 
-I started walking a bit slower and then noticed the welding machine. Trailing behind the other men, there was an industrial and very expensive looking hand truck being pushed and supported by three more of them near the opening. It was carrying a brand new heavily reinforced door. That was definitely something you don’t see every day. Shaking off the weird feeling I got from seeing that, I swiped my key card and opened the guard's office door noticing I had guests seemingly waiting for my arrival. The man in charge of all operations, Sam, was with two people in black suits standing near the surveillance station. I rarely see this guy ever. I then noticed an extra monitor was installed as well, watching those men outside install this new door. One of the suited men held a packet of paper and the other guard assigned with me, we’ll call him Ray, was already sitting down by one of the windows opposite them.
+I started walking a bit slower and then noticed the welding machine. Trailing behind the other men, there was an industrial and very expensive looking hand truck being pushed and supported by three more of them near the opening. It was carrying a brand new heavily reinforced door. That was definitely something you don’t see every day. Shaking off the weird feeling I got from seeing that, I swiped my key card and opened the guard's office door noticing I had guests seemingly waiting for my arrival. 
+
+
+
+The man in charge of all operations, Sam, was with two people in black suits standing near the surveillance station. I rarely see this guy ever. I then noticed an extra monitor was installed as well, watching those men outside install this new door. One of the suited men held a packet of paper and the other guard assigned with me, we’ll call him Ray, was already sitting down by one of the windows opposite them.
 
 &#x200B;
 
@@ -70,7 +86,11 @@ I started walking a bit slower and then noticed the welding machine. Trailing be
 
 &#x200B;
 
-“Your time and service for all of this will cause a substantial increase in your already agreed upon payment arrangements. If you do not wish to participate, you *are* free to leave but you will not be able to return to this area once we have occupied it. If you want to return to work after we are finished, you’ll have to talk to Sam here. Do you have any more questions?” He replied and I thought about why they chose this location of all places. It was basically in the middle of nowhere and I had to wonder about that. This was in the beginning of November, and it was going to be snowing soon. Although, I wasn’t completely shocked. Companies all over the world would occupy facilities for a period of time to store materials, operate in or even collaborate on business within this particular field when supply chain demand was low. Maybe there was something they couldn’t tell us. It seemed to me that they operated through more unconventional methods, but that was obviously between Sam and them and whatever was going on is federal level shit.
+“Your time and service for all of this will cause a substantial increase in your already agreed upon payment arrangements. If you do not wish to participate, you *are* free to leave but you will not be able to return to this area once we have occupied it. If you want to return to work after we are finished, you’ll have to talk to Sam here. Do you have any more questions?” He replied and I thought about why they chose this location of all places. It was basically in the middle of nowhere and I had to wonder about that. This was in the beginning of November, and it was going to be snowing soon. 
+
+
+
+Although, I wasn’t completely shocked. Companies all over the world would occupy facilities for a period of time to store materials, operate in or even collaborate on business within this particular field when supply chain demand was low. Maybe there was something they couldn’t tell us. It seemed to me that they operated through more unconventional methods, but that was obviously between Sam and them and whatever was going on is federal level shit.
 
 &#x200B;
 
@@ -82,7 +102,11 @@ I started walking a bit slower and then noticed the welding machine. Trailing be
 
 &#x200B;
 
-I have read reports where the military might need to occupy an area for things like logistics or storing shipments in civilian territory because there was no space for the operation in a base at the time. This is a steel plant, after all. Perfect size for a military operation. They obviously must have deduced that this is one of the more lesser-known steel manufacturers in the U.S. and hasn’t had many intruders in the past. These places are filled with areas where vandals would want to break in or even urban explorers. There is also the risk of armed intruders wanting to rob the place for scrap. Throughout the time I have been here though, no such occurrence has ever happened. It was a pretty lax job and would just include the normal day to day routine and the night shift involved trying to stay awake most of the time. I still was required to keep my pistol on me at all times while patrolling the property though. This new ordeal here actually excited me in a strange way.
+I have read reports where the military might need to occupy an area for things like logistics or storing shipments in civilian territory because there was no space for the operation in a base at the time. This is a steel plant, after all. Perfect size for a military operation. They obviously must have deduced that this is one of the more lesser-known steel manufacturers in the U.S. and hasn’t had many intruders in the past. These places are filled with areas where vandals would want to break in or even urban explorers. 
+
+
+
+There is also the risk of armed intruders wanting to rob the place for scrap. Throughout the time I have been here though, no such occurrence has ever happened. It was a pretty lax job and would just include the normal day to day routine and the night shift involved trying to stay awake most of the time. I still was required to keep my pistol on me at all times while patrolling the property though. This new ordeal here actually excited me in a strange way.
 
 &#x200B;
 
@@ -134,7 +158,11 @@ Another two weeks passed and, on a Wednesday, when Ray told me something that ha
 
 &#x200B;
 
-From here, workers inside buildings A and C were complaining about a buzzing in their ears and having high stress levels. I would sometimes hear strange whirring noises when I would go by the three buildings A, B and C. Not anything from the work here, but more like a tinnitus. I figured that it was some kind of machinery they had in there that caused the ringing, like some kind of emission frequency or something similar. I did see them haul in huge machines and various computers throughout this whole process too, so I can only speculate. Maybe something with the speakers. This only piqued my curiosity even more. Just what the hell are they doing in there? Having a fucking concert? However, before I could even begin to think about bringing my concerns up to Sam, there was another duty added to my checklist right around then. One of the mill supervisors called me when I was at home to inform me that there will be a construction crew digging below building B. Apparently to fix some issues with a piping system underneath the building that was causing some kind of leak. We were instructed to watch over that area as well once the leak was taken care of.
+From here, workers inside buildings A and C were complaining about a buzzing in their ears and having high stress levels. I would sometimes hear strange whirring noises when I would go by the three buildings A, B and C. Not anything from the work here, but more like a tinnitus. I figured that it was some kind of machinery they had in there that caused the ringing, like some kind of emission frequency or something similar. I did see them haul in huge machines and various computers throughout this whole process too, so I can only speculate. Maybe something with the speakers. This only piqued my curiosity even more. Just what the hell are they doing in there? Having a fucking concert? 
+
+
+
+However, before I could even begin to think about bringing my concerns up to Sam, there was another duty added to my checklist right around then. One of the mill supervisors called me when I was at home to inform me that there will be a construction crew digging below building B. Apparently to fix some issues with a piping system underneath the building that was causing some kind of leak. We were instructed to watch over that area as well once the leak was taken care of.
 
 &#x200B;
 
@@ -142,11 +170,19 @@ From here, workers inside buildings A and C were complaining about a buzzing in 
 
 &#x200B;
 
-The first day I had to work with the extra duty included started off with me spilling coffee all over my work pants causing me to almost be late for once. The construction crews were to be on-site and would remain underneath the building for the next month or so. Sam seemed to be pretty upset about this, and it was earlier confirmed when Ray spoke about the phone call he overheard. I can only assume, at least. There was a huge hole they dug just to the east side of the building and for up to twelve hours a day, we would see the workers doing their thing. Throughout all of it, I couldn’t really keep tabs on everything they were doing exactly. No, my workload was getting in the way of me trying to catch a look at anything out of the ordinary. Minus this entire crew being here and the special agents, of course.
+The first day I had to work with the extra duty included started off with me spilling coffee all over my work pants causing me to almost be late for once. The construction crews were to be on-site and would remain underneath the building for the next month or so. Sam seemed to be pretty upset about this, and it was earlier confirmed when Ray spoke about the phone call he overheard. I can only assume, at least. There was a huge hole they dug just to the east side of the building and for up to twelve hours a day, we would see the workers doing their thing. 
+
+
+
+Throughout all of it, I couldn’t really keep tabs on everything they were doing exactly. No, my workload was getting in the way of me trying to catch a look at anything out of the ordinary. Minus this entire crew being here and the special agents, of course.
 
 &#x200B;
 
-As time went on, we were given tasks like helping with maintenance or patrolling the outer edge of the property for a time, as if someone would be there. We were to report any suspicious persons and keep our pistols on us. Plus, that ringing would sometimes still bother me, and I was starting to get really anxious ever since. If I was sitting by the cameras, I would catch myself fidgeting my leg up and down so fast it was like my nephews' video game controllers vibrating. I would have to grab my leg and force myself to relax. Not only was I stressed about these new patrols, but it was something else. Like as if an uncontrollable urge to either bite my nails off or scratch at an area would persist. After a week passed, we got another hire to come in and patrol with me and Ray on the night shifts only. He was a shorter middle-aged guy, really quiet but did his job well and his name was Jeff. I never got any other information about him, but this is around the time where things started to get for lack of a better term; scary.
+As time went on, we were given tasks like helping with maintenance or patrolling the outer edge of the property for a time, as if someone would be there. We were to report any suspicious persons and keep our pistols on us. Plus, that ringing would sometimes still bother me, and I was starting to get really anxious ever since. If I was sitting by the cameras, I would catch myself fidgeting my leg up and down so fast it was like my nephews' video game controllers vibrating. I would have to grab my leg and force myself to relax. Not only was I stressed about these new patrols, but it was something else. Like as if an uncontrollable urge to either bite my nails off or scratch at an area would persist. 
+
+
+
+After a week passed, we got another hire to come in and patrol with me and Ray on the night shifts only. He was a shorter middle-aged guy, really quiet but did his job well and his name was Jeff. I never got any other information about him, but this is around the time where things started to get for lack of a better term; scary.
 
 &#x200B;
 
@@ -219,6 +255,7 @@ To keep things as short as I possibly can, I was rushed back to the guards build
 &#x200B;
 
 The commandos were already freaky enough, I should have known better than to sit back and allow this to happen, but it was already too late. My gun was left outside and undoubtedly taken by them. The jig was up, and Jeff and I were taken hostage inside the guard's office.
+
 
 
 I'll update tomorrow. Nosleep won't let me post it all here, so I have to post in parts.
