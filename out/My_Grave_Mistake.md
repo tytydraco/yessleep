@@ -1,0 +1,46 @@
+
+Don’t get drunk and break into cemeteries in New Orleans. And if you do, don’t piss on any tombs with a bunch of X marks all over it. I did that six days ago, Saturday, and I’ve died every day since. 
+
+After leaving the cemetery that night, I stubbed my foot stepping up on to a curb and broke my neck on the wall outside a bar. I dreamed of a woman that night. She wore a white dress and stared at me. But I couldn’t have dreamed anything. Do the dead dream?
+
+Sunday morning, I woke up in my bed with no hangover. I had a clear head, which was rare for me in the mornings, but the details of the night before were still hazy. I checked myself out in the mirror but didn’t see any signs of damage. I remember tripping on the curb, then the wall of the bar came rushing towards me. I was so drunk that I didn’t put out my hands to catch myself. Then blackness. 
+
+Pushing the thought away, I started my day. I left my apartment and walked down the block to the corner diner. Most mornings I needed coffee to chase away my hangover. No hangover that morning but the craving was still there. 
+
+I sat at the counter and ordered. A tall, very dark-skinned man was sitting at the counter. He was dressed in an old fashioned dark purple suit. He had coattails and all. He stood as I sat down, said good morning, and made his way out the diner. “Be seeing yall later,” he said to the diner. Everyone ignored him.
+
+I turned and looked at him as the door was slowly swinging shut. He tipped his top hat at me as he was putting it on. His smile was yellow just like his eyes. As the door swung shut, I could see him lighting a cigar. I think he winked at me.  
+
+After my coffee I walked over to Jackson Square. Maybe the fortune tellers could tell me something. They all turned me away. The real ones did at least. You can tell which ones are real. After that failure, I walked back towards the river. A carriage horse got spooked by some tourists lighting firecrackers and caved the side of my head in with a kick. 
+
+Monday, I woke up again in my bed. This was really happening. I searched the news but there were no stories about a horse killing anyone on Decatur St. I gave in and decided that the only thing for me was to get nice and drunk. I was sober for a whole day. That was an accomplishment for me. Well, sober for a morning at least. 
+
+That night I **tied one on**. I couldn’t get enough. At one point, I think I remember that tall guy from the diner buying me a drink. “Wuz dis?”, I asked as he handed me a double shot of something dark. “Oh, its always rum for me baby,” he answered before throwing back his shot. I didn’t care, I would have drunk anything that night. “Be seeing you around,” he said before fading into the crowd of the bar. 
+
+I was shot in the back while walking home. They killed me for the $9 I had in my pockets. In my dreams that night the lady in white was sitting on a short stool with her back turned to me. I walked towards her, but she never turned around. No matter how close I got to her, no matter how far I stretched my hand to her, I couldn’t touch her. 
+
+Tuesday, I decided to stay in. If I don’t go outside, I can’t die I thought. My mistake was to drink a fifth of vodka and try to take a bath. I must have passed out because when I came to the water was freezing cold. I slipped getting out of the tub and bashed my head in on the rim of the toilet.
+
+I still couldn’t reach the woman in white. She was working with something in her lap. Every time I walked around to her front to see what she was doing; I would just be looking at her back again. 
+
+Wednesday, I believed the bed would be sanctuary. Surely nothing bad can happen to me in bed. Things were going well until I smelled the smoke and heard the sirens. The fire must have started in an apartment below me. I threw open my front door and ran for the stairs. They collapsed as I made it to the landing. Since I was on the top floor, I had nowhere to go. Resigned, I walked back inside. People were staggering out of my building onto the street below. A crowd formed across the street, and some of them were pointing up at my window. The Tall Man was standing amongst them, smiling up at me. He tipped his hat to me as my floor collapsed and I fell into the inferno below. 
+
+I found out what the woman in white was working with. This time she was standing. She had a dead chicken in her hands. With a quick motion she twisted and wrenched the head from the chicken. She began chanting and moved in a circle, making a ring of blood on the ground around her. I called to her, but she ignored me. Right before I woke up, she glanced up at me, glaring into my eyes. 
+
+By Thursday I had given up. Whatever was happening to me was out of my control. My room was like it always was. No signs of a fire. As soon I got up, I went straight for Bourbon St. because the bars never close there. With an empty stomach I got to work. Even on Bourbon St. drunks aren’t tolerated very well before noon. After getting kicked out of the third bar I sat down on a curb with a Big Ass Beer. The Tall Man sat down beside me. We were quiet for a few minutes before I asked him, “Why is this happening to me?”
+
+“Now now, don’t you worry about that cher. Just a few more days and it will all be over. Now if you hurry there is a party bus carrying a bachelorette party about to cross Bourbon just a few blocks that way.” He pointed down the street. “The driver is a man a lot like you. He was out way too late last night and might not have all his faculties about him.”
+
+I nodded and stood up. The Tall Man called to me as I walked away. “Au revoir mon ami.”
+
+The bus plowed right through the stop sign. He was right. The driver never saw me. The bus squealed to a halt too late, with me trapped underneath. I could smell my skin melting on the scalding undercarriage. The driver ran out and saw what he did. He turned away to vomit as the party rushed out of the bus to see what was happening. A pretty lady wearing a sash that read “Bride” saw me and dropped her tall, green novelty drink. The last thing I heard was the screams of her and her bridesmaids.  
+
+The woman in white walked towards me in my dreams that night. She held a dusty bottle with no label that was full of some type of dark liquor. She stood in front of me and took a big pull from the bottle. With a look of disdain she held the bottle out to me. I reached for it but she pulled it away and spat the liquor in my face. She began chanting something in French creole and walked around me in a circle, stopping periodically to tease me by holding the bottle out in front of her. Every time I reached for the bottle she would pull it away, take another swig, and spit it back into my face. Her chanting continued in between her taunts. Finally, she stopped and stared at me with hatred. “Time to wake up fool,” she said. It wasn’t English, but I understood her. She took one long pull from the bottle, blood began to dribble from between her lips, and she spewed it back onto me.
+
+I shot up from my sleep and was horrified to find my face and chest covered in blood. I cleaned myself up and spent the rest of the day wandering aimlessly around my apartment. Eventually, I headed out and walked around the Quarter until late into the night. The Tall Man would be waiting for me in the doorway or window of a bar, always with a shot rum held out and one for himself. I just ignored him and walked on. Well after midnight, near the edge of the Quarter, I saw her waiting for me on a distant streetcorner. “Last chance mon ami,” said the Tall Man from the doorway of a quiet bar. The bar was dark because it was closing up. It was hard to make out the details of his face, but it looked like he was wearing white paint in the shape of a crude skull. I took the offered shot and drank it down slowly, savoring the burn. She rounded the corner and I followed. 
+
+As I walked, I would lose sight of her. But she would always be there when I turned a corner or a car passed by, just standing and staring at me from a distance. Eventually I found myself walking next to a tall white wall. An opening in the wall revealed a huge, ornate iron gate. I stopped at the gate, and it slowly swung open, creaking on its century’s old hinges. Of course. Back where this all began. The cemetery. My feet carried me down the boulevard of this miniature city of the dead. She was gone again so I scanned the side alleys for her. I saw a flash of her white dress between the crumbling tombs so I ventured deeper into the cemetery after her. 
+
+She was waiting for me next to a tomb. The tall man stood with her. When I stopped in front of them, he turned and removed the name plaque of one of the openings to the crypt. The stale air that issued out smelled of must and decay. He bowed low and gestured me inside. I began to weep but still I climbed inside. I turned over onto my back in the tight space and looked out. He smiled at me and said, “Its been a pleasure. Truly.”
+
+He lifted the plaque back up and sealed me inside, covering me in sweet darkness. Finally, I could rest.

@@ -219,3 +219,6 @@ To keep things as short as I possibly can, I was rushed back to the guards build
 &#x200B;
 
 The commandos were already freaky enough, I should have known better than to sit back and allow this to happen, but it was already too late. My gun was left outside and undoubtedly taken by them. The jig was up, and Jeff and I were taken hostage inside the guard's office.
+
+
+I'll update tomorrow. Nosleep won't let me post it all here, so I have to post in parts.

@@ -1,0 +1,20 @@
+It all started when my parents were gone for the week and, uh I feel really uncomfortable writing this. They left me and my 8 year old brother at the house while they were at vacation, and they trust me since I was already 14. I was kinda happy because no one would get to boss me around, and I get to be in charge over my brother. All that happiness was gone when the week ended. 
+
+Day 1
+I was ready to play some video games later, so I got up early and prepared breakfast for my brother. He got up from bed saying "Hey bro, my body it- well it itches. Every single part of my body it just itches" "Huh? Well maybe you can take a bath later in the afternoon so the itch can go away. Just don't bother me when I'm playing and for now let's just eat breakfast."
+The day went on as usual, but my brother's itch didn't go away.
+
+Day 2
+Right the moment my brother woke up he complained about the itch. "Ugh why won't this itch go away, I'm getting tired of it." I just told him to take another, more thorough bath. I felt bad for my brother because I've had a skin condition in the past and it really does itch, but I can't find a solution to his itch. Although when he was taking a bath, I noticed something on the walls, and I can't really describe it but it looks like.... Dust.
+
+Day 3
+I was thinking of taking him to my friend's mother later who was a nurse and can help us with my brother's condition. I tried to get out of the house, but no matter what I try the door just won't open. It's like it's been locked, and it seems like the windows just disappeared. I don't know what is happening and I'm starting to freak out, but all I know is that someone doesn't want us to get out of the house. 
+
+Day 4
+Things have gotten worse. The dust on the wall has become so thick that it covered every part of the house. The dust was on our food, furniture and even on our water, and when I touched the skin of my brother this afternoon, and the texture- it- it just felt like the same texture of the dust stuck to our wall. Sometime in the evening when I just finished washing the plates, I saw my brother crying my taking off some of his skin. The blood started to flow freely out of his body. "Brother, it just itches. It never stops, I can't stop scratching." I immediately took the knife out of his hands, this house was clearly wrong, it's disease has spread to my brother and we can't get out. 
+
+Day 5
+Tjings didn't go better from here in fact it just got so much worse. I woke up from an afternoon nap I knew there was something wrong. I heard loud screams upstairs, so I rushed to the 1st floor as I found my brother's skin all ripped off. His tears were rushing from his eyes, the blood stained on the floor. He kept screaming as he violently ripped off the skin from his leg. "Stop it Greg, just stop it please! You need to stop, you are hurting yourself." "I can't stop I just can't! It just itches so much! Please help me it itches!" I didn't know what to do, I stood there until he started to rip off his hair. I saw pools of blood start coming out from the stop of his head, his eyes seemed like they were red from all his crying. "I can't stand it anymore just kill me!" He ran right down the stairs, headed to the kitchen and he got a knife. I followed him down there and before I could do anything he stabbed his chest. I stood there not knowing what to do next, I was helpless and useless to my brother, all I could do was cry. He kept stabbing himself while scratching until his body fell to the ground 
+
+Day 6
+I slowly rise from my bed, and reality came rushing through my brain. My brother was dead, and it took me a while to notice the dust on the wall. It was so thick that you could barely see anything through it. The blood had dried up on the floor and I could still imagine him just ripping off pieces of his skin. I coughed and coughed and I just realized that I feel a bit weird..... I can't describe it, but my body....... It itches.
