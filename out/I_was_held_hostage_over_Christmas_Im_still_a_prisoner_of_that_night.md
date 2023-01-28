@@ -98,6 +98,12 @@ I can’t write anymore tonight. No amount of Valium is helping at this point. I
 
 I’ll explain what happened next if I’m able to get up off my bathroom floor.
 
+---------
+
+[This is how I got out of it](https://redd.it/10ngbrz)
+
+--------------
+
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
