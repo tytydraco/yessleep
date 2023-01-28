@@ -1,3 +1,5 @@
+Part 2: https://www.reddit.com/r/nosleep/comments/10n23y4/i_think_i_got_a_man_killed_part_2/
+
 Up until yesterday, I would've said my dog was absolutely fearless.
 
 I've  watched all 35lbs of him tell off a full sized Great Dane without batting an eyelash at the dog park. He defeated the Roomba monster, could care less about thunder, and will actually supervise a room being  vacuumed.

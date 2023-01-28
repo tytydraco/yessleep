@@ -1,4 +1,4 @@
- [\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- [\[9\]](https://www.reddit.com/r/nosleep/comments/104xf3u/the_yearwalker_part_9/) \- [\[10\]](https://www.reddit.com/r/nosleep/comments/10bdhm2/the_yearwalker_part_10/) \- \[11\] 
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- [\[9\]](https://www.reddit.com/r/nosleep/comments/104xf3u/the_yearwalker_part_9/) \- [\[10\]](https://www.reddit.com/r/nosleep/comments/10bdhm2/the_yearwalker_part_10/) \- \[11\] - [\[12\]](https://www.reddit.com/r/nosleep/comments/10n3dal/the_yearwalker_part_12/)
 
 Uncle John and I took a walk back to town. Past the potholes, rusted-out cars, and abandoned buildings; the symptoms of a town growing old. As a cold September rain washed over us, we found our way back to the corner pub where we’d first met. We stopped to grab a bite and rest up. It’d been a long day.
 
@@ -404,7 +404,7 @@ Roy laid me down on my stomach, holding my arm. He playfully massaged my hand. M
 
 He carefully put my ring finger in between his lips, savoring the sensation.
 
-And without me feeling a thing. 
+And without me feeling a thing.
 
 And with no more sound than that of a snapping carrot.
 
@@ -464,6 +464,6 @@ I didn’t see the entire struggle. Roy tripped over me as something slammed int
 
 Leah Babin stepped out in front of me, her mouth covered in hot blood.
 
-“Oh my poor, *poor* Maryland,” she smiled. 
+“Oh my poor, *poor* Maryland,” she smiled.
 
 “Let’s get you home.”
