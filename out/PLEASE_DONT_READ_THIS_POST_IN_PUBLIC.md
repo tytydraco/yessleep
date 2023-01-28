@@ -8,7 +8,7 @@
 
 &#x200B;
 
-I live in Auckland, New Zealand. A tiny city in a tiny country some of you have probably never even heard of. Me and my girlfriend, live in uni accommodation in the city, I lost contact with my high school friends so practically my entire friend group lives in the same building. The uni dorms are very large, very full and (unsurprisingly) VERY loud. It's common to see and hear drunk students and party guests throughout the halls at night, you begin to tune it out over time and stop paying attention… perhaps that's why they were less careful around us.
+I live in Auckland, New Zealand. Me and my girlfriend, live in uni accommodation in the city, I lost contact with my high school friends so practically my entire friend group lives in the same building. The uni dorms are very large, very full and (unsurprisingly) VERY loud. It's common to see and hear drunk students and party guests throughout the halls at night, you begin to tune it out over time and stop paying attention… perhaps that's why they were less careful around us.
 
 Anyway, orientation week was coming up and my mates and I thought it would be a good night to go out clubbing. I don't know if it's the same everywhere else but all the nightclubs here treat orientation like it's Christmas. Toga parties, angel and devil nights, the whole lot. The rest of my group chat hardly ever even replies to messages like this but I can always count on Ethan and Andre to come out to town. So last Wednesday, we headed to Sapphire. Personally, I'm not the biggest fan of Sapphire, it's always too crowded, and there's no seating whatsoever but Andre was set on going to this gig tonight so me and Ethan kind of just followed.
 
