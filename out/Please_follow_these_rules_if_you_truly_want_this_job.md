@@ -5,7 +5,7 @@ If you decide otherwise, then please read carefully.
 
 1) You must show up to work at exactly 9:15 AM. Once you work here for a couple of days, they will do anything to prevent you to reach work in time. You will be forgiven for a one-time late entry once a year, but the second time you will be immediately fired. If that happens, I'm sorry. I hope you will be capable of killing yourself before they reach you. (tip: there is nothing stopping you from coming to work hours before 9:15, especially if you know they will be trying to stop you with fake calls, car crashes and so on; don't worry about anything else and focus on getting to work in time)
 
-2) once you arrive, if you have a car, check if the parking lot as at least 3 other cars in it. If yes, then you may freely park inside, possibility near the other cars. If not, refer to rule 2.1
+2) once you arrive, if you have a car, check if the parking lot as at least 3 other cars in it. If yes, then you may freely park inside, possibly near the other cars. If not, refer to rule 2.1
 
 2.1) Every once in a while the parking lot will be basically empty. Keep in mind the time and try your best to find a nearby spot (they will still try to delay you as much as they can). If you really can't find anything within running distance from the shop, then you have to leave it your car in the road. You will get fined, but don't worry: it will be there when you truly need it to escape. And work pay very easily covers whatever fine they will give you. (Tip: they will never come with notes attached. Disregard any notes, even the most professional ones that ask you to immediately go somewhere or to go in a place at a specified time in the next couple of days)
 
