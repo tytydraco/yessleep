@@ -134,9 +134,9 @@ It looked like any other room. Except for the barren floors. It had a dresser. S
 
 "That's my hole," she claimed.
 
-"Put him in that one then," the Priest groaned. "Just hurry Paul."
+"Put him in his then," the Priest groaned. "Just hurry Paul."
 
-When we finally placed Alan Netter into the hole. The Priest gathered the pencil shavings from behind and packed the unconscious man in good. The Priest motioned for us to help. And even with the 3 of us. It took nearly an hour to finally finish.
+When we finally placed Alan Netter into the hole. The Priest gathered the shavings from behind, and began packing the unconscious man in good. The Priest motioned for us to help. And even with the 3 of us. It took nearly an hour to finally finish.
 
 When we were done the Priest leaned back against the table and proclaimed, "He'll be good in the morning."
 
@@ -150,7 +150,7 @@ For most parts of the way back to the cemetery. We walked in silence. When the t
 
 I didn't say a word.
 
-"I don't know when it began. Some say it was when we took the native land from its people. When we first built Achnought. Some say it's older. That we brought it here from across the pond. No one knows the specifics. We just know that every few years. The digging stops. Stops getting as deep. It starts off alright. Perhaps as far as a man could want it to go. In the beginning. But as the days stretch on. The years. The hole gets less deep. We dig it. And throw it away. But it starts to fill itself. That's what happened to Nathan Dugunninghem. Shame. Good lad. Even if. Well you know."
+"I don't know when it began. Some say it was when we took the native land from its people. When we first built Achnought. Some say it's older. That we brought it here from across the pond. No one knows the specifics. We just know that every few years. The digging stops. Stops getting as deep. It starts off alright. Perhaps as far as a man could want it to go. In the beginning. But as the days stretch on. The years. The hole gets less deep. We dig it. And throw it away. But it starts to fill itself. That's what happened to Nathan Dugunninghem. Shame. Good lad. Young. Even if. Well you know."
 
 I still hadn't spoken a word. Unsure of what to make of it.
 
@@ -168,17 +168,17 @@ The Priest smiled, a tired crinkling. "Somewhere in the years. A rumor that an A
 
 We had finally reached the cemetery. I took a right turn. I wanted to avoid taking him back to the house with me. So we climbed the ridge. Moonlight danced among the trees. "What happened to the last groundskeeper?"
 
-"He left. Hey. Honest to God's truth." He held up his hands. The first time I could see them clearly. "Someone in town came one day and reported back that the place had been emptied. Jack Portas, the man was. He up and left."
+"He left. Hey. Honest to God's truth." He held up his hands. The first time I could see them clearly. "Someone in town came one day and reported that the place had been emptied. Jack Portas, the man was. He up and left."
 
 "Why was Mamie Strue sitting above her grave?"
 
 The Priest chuckled, "I don't know. Mamie was one of the good ones. I fully expected her to be kept. But they spit her out. Or." He paused. "She broke out."
 
-"Her husband."
+"Her husband," I recalled.
 
 "What? Donald?"
 
-"Yes. I saw her get up and stand next to him."
+"Yeah. When I put her in the mausoleum. I saw her get up, and go stand next to him."
 
 "She always did love that...no good. No good speaking ill of the dead." He patted his face. Sweating.
 
@@ -208,4 +208,4 @@ The Priest nodded and pulled the flask from his pocket. Raising it. "Here's to a
 
 &#x200B;
 
-[S](https://www.reddit.com/r/CornerCornea/comments/u6rx8n/subscribe/)
+[s](https://www.reddit.com/r/CornerCornea/comments/u6rx8n/subscribe/)
