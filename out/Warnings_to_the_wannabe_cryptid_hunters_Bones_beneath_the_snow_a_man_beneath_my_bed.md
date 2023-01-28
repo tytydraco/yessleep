@@ -228,3 +228,5 @@ But he had already disappeared into thin air.
 [Part 19](https://www.reddit.com/r/nosleep/comments/10jbwml/warnings_to_the_wannabe_cryptid_hunters_so_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 20](https://www.reddit.com/r/nosleep/comments/10k7oob/warnings_to_the_wannabe_cryptid_hunters_how_to/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 22](https://www.reddit.com/r/nosleep/comments/10nht6l/warnings_to_the_wannabe_cryptid_hunters_there_was/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
