@@ -68,7 +68,7 @@ The TV hissed once more,
 
 “Of course my gul… I would love to help you out.”
 
-I watched the static of the TV shift and swirl, it seemed to get more intense, until eventually the entire screen turned pure white. A high-pitched screech emanated from its speakers, comparable to that of the sound of nails on a chalkboard. I covered my ears, unable to bear the sharp sound. That’s when the TV suddenly turned black, and for a moment I thought it had turned off. But my eyes could make out a silhouette in the inky darkness of the screen. I watched as it made its way closer, growing bigger and bigger, until eventually it was right up to the other side of the glass. Then, a bright spotlight turned on above the silhouette, and immediately I recognized the old, wrinkly face and greying beard. 
+I watched the static of the TV shift and swirl, it seemed to get more intense, until eventually the entire screen turned pure white. A high-pitched screech emanated from its speakers, comparable to that of the sound of nails on a chalkboard. I covered my ears, unable to bear the sharp sound. That’s when the TV suddenly turned black, and for a moment I thought it had switched off. But my eyes could make out a silhouette in the inky darkness of the screen. I watched as it made its way closer, growing bigger and bigger, until eventually it was right up to the other side of the glass. Then, a bright spotlight turned on above the silhouette, and immediately I recognized the old, wrinkly face and greying beard. 
 
 “ABU!” 
 
@@ -170,7 +170,7 @@ The voice was clearly agitated.
 
 “No. I will only come if you tell me when I was born.”
 
-I watched the figure contemplate for a while, before lower its eyebrows in frustration.
+I watched the figure contemplate for a while, before lowering its eyebrows in frustration.
 
 “Fine… If you don't come by yourself. ***I’LL JUST FUCKING TAKE YOU***.”
 
@@ -178,6 +178,6 @@ It wasn’t Abu speaking to me any more, the voice was too deep to even be human
 
 ***“COME HERE YOU HARAMI. YOU THINK YOU CAN RUN AWAY FROM ME???”***
 
-The figure cackled a demonic laugh. I panicked as I saw the arm dive for me again. I ran to Abu’s tool kit, grabbing the hammer that sat in the wooden box. Once again, barely escaping the arm’s reach. I sprinted towards the television, running alongside the extended arm that was now behind me. Once I got close enough, I swung the tool straight into the front, sending shards of glass everywhere. A shrill scream bounced off the shed’s rotting walls, followed by nothing but ear-splitting silence. Taking the first breath in a while, I fell to my knees, eventually finding the familiar heartache return to my chest with vengeance, once again causing me to weep.
+The figure cackled a demonic laugh. I panicked as I saw the arm dive for me again. I ran to Abu’s tool kit, grabbing the hammer that sat in the wooden box. Once again, barely escaping the arm’s reach. I sprinted towards the television, running alongside the extended limb that was now behind me. Once I got close enough, I swung the tool straight into the front, sending shards of glass everywhere. A shrill scream bounced off the shed’s rotting walls, followed by nothing but ear-splitting silence. Taking the first breath in a while, I fell to my knees, eventually finding the familiar heartache return to my chest with vengeance, once again causing me to weep.
 
 We managed to flee Afghanistan, although it was never easy. Taking refugee in the same city where my father had once learnt all he knew about engineering. We didn’t take much from our house in Kabul, but I did manage to sneak Abu’s hammer with us, which I keep with me in my bedroom. The story of what happened in that shed only left my mouth once, and it was to my mother a few years back. She told me some things are never to be spoken of out loud, and I should just forget about what happened. How do I forget, though? How do I forget the evil entity that tried to trick me by disguising as my dead father? How do I forget the nightmares I had throughout my teenage years after that? And most importantly… How do I forget the reflection of Abu I often catch in our own flat screen at home every now and then…?
