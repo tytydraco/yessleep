@@ -6,9 +6,11 @@ I’m not sure how I invited the demons in. Maybe they’d been there all along,
 
 The problem was worst at work. I’d start working on a PowerPoint for my boss about some little company we were trying to buy, and then: bam! I’d wake up on the BART ride home, listening to some podcast. The work would be done, maybe even done well. But it hadn’t been *me* doing it.
 
-I tried to tell myself it wasn’t a big deal. Like, maybe it’s actually a benefit to have someone else do your work or cook your dinner. But I had to admit I was getting a little on edge.
+I tried to tell myself it wasn’t a big deal. Like, maybe it’s actually a benefit to have someone else do your work or cook your dinner. But I had to admit I was getting a little on edge. Sometimes, I'd wake up at night drenched in sweat, a deep pit of fear in my gut, sure I had died already or was about to any instant.
 
-And stuff I’d actually used to care about were starting to go missing too. Like when I watched football, I’d find myself looking up to find a whole quarter had passed and my beer had disappeared without me enjoying even a sip.
+I'd wonder if I'd been dreaming or sleepwalking or what. And then I'd spend an hour googling rare sleep disorders and brain tumors and feeling around my skull for lumps.
+
+Stuff I’d actually used to care about were starting to go missing too. Like when I watched football, I’d find myself looking up to find a whole quarter had passed and my beer had disappeared without me enjoying even a sip.
 
 Then in February I went to a Super Bowl party. Honestly, it was usually my favorite time of the year. I guess I’d started to drift apart from friends a little, and it was the one time I really carved out to see everyone. But this year, the whole party passed in an instant. As I walked out the door, I realized I didn’t remember a single conversation, or a thing I’d eaten, or the final score.
 
@@ -46,6 +48,6 @@ And how I was I supposed to care enough to compete with that?
 
 Suddenly, the real terror of the situation hit me. Because I knew I didn’t care enough to fight it. I wasn’t going to take long walks and watch sunsets. I was going to keep on sleepwalking through life, just like I always had.
 
-Somewhere, in the dark, I was shaking, acutely aware of my own weakness, and I could see the future stretching out in front of me: a handful of boring decades, mostly lived by something else. I was screaming at myself, furious. And the thing was watching *Friends,* laughing its head off at every bad joke, laughing like I never had in my life.
+Somewhere, in the dark, I was shaking, acutely aware of my own weakness, and I could see the future stretching out in front of me: a handful of boring decades, mostly lived by something else. I was screaming at myself, furious and terrified. And the thing was watching *Friends,* laughing its head off at every bad joke, laughing like I never had in my life.
 
 And I knew in that moment that I was going to let it [win](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).

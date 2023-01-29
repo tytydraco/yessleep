@@ -313,3 +313,5 @@ I don’t know how long we’ll be stuck here, but I’ll give you an update whe
 [Part 6](https://www.reddit.com/r/nosleep/comments/10k0nbh/i_work_at_a_clothing_store_i_finally_got_some/)
 
 [Part 7](https://www.reddit.com/r/nosleep/comments/10lf2zd/i_work_at_a_clothing_store_i_have_a_plan_but_its/)
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/10nsdvb/i_work_at_a_clothing_store_my_dream/)

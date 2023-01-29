@@ -2,7 +2,7 @@ It’s hard to trust anyone after what happened but knowing that the public will
 
 
 
-However, after everything that happened, I don’t really fear that or even death right now because there’s something else out there that is much more horrifying than simply taking your last breath. I need to tell anyone I can about *everything* that happened when I was a security guard for this steel plant.
+However, after everything that happened, I don’t really fear that or even death right now because there’s something else out there that is much more horrifying than simply taking your last breath. I need to tell anyone I can about *everything* that happened when I was a security guard for this steel mill.
 
 &#x200B;
 
@@ -255,7 +255,3 @@ To keep things as short as I possibly can, I was rushed back to the guards build
 &#x200B;
 
 The commandos were already freaky enough, I should have known better than to sit back and allow this to happen, but it was already too late. My gun was left outside and undoubtedly taken by them. The jig was up, and Jeff and I were taken hostage inside the guard's office.
-
-
-
-I'll update tomorrow. Nosleep won't let me post it all here, so I have to post in parts.
