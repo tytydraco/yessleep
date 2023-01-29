@@ -28,7 +28,7 @@ A few hours after we arrived, my 18 year old brother Isaac came, he marveled at 
 
 “Hello?” Jackson called, for a few moments it was quiet, but then someone responded.
 
-“Hey Jackson, Hey Dylan!” The voice called, I recognized it immediately, it was Drew. Drew has a very thick Australian accent, as he lived there most his life.
+“Hey Jackson, Hey Dylan!” The voice called, I recognized it immediately, it was Drew. Drew has a very thick Australian accent, as he lived there most his life, so it wasn’t very hard to conclude it was just Drew pranking us.
 
 “Funny prank Drew!” Jackson said playfully, then he closed the window and climbed back into bed.
 

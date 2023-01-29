@@ -1,4 +1,4 @@
-Don’t laugh. This is a real story. I made a delirious decision, and I was far too flippant about the price tag. It’s not death that I dread, as such. I fear the bottomless pit that death precedes.
+Don’t laugh. I made a delirious decision, and I was far too flippant about the price tag. It’s not death that I dread, as such. I fear the bottomless pit that death precedes.
 
 My wife became sick in October, and there wasn’t enough money or medicine in the world to save her. We were simply enjoying what time we had left. However, about a week ago, my oldest friend proposed a sickening solution. Larry *always* has a solution, but it’s not often a good one. He told me about SoulSell. It’s a company that facilitates the conveyance of your soul’s title to the Devil.
 
