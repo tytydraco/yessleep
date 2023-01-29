@@ -4,6 +4,8 @@ Alright so basically all recreational stuff for employees is downstairs in the b
 
 So one day, as I was heading into one of the stalls after a particularly large coffee to wake me up that morning, I found a teddy bear. Just sitting on the closed toilet. I don’t know why I jumped slightly, but it just wasn’t something I expected to be there. I thought it might’ve been a coworker messing around but I’ve seen too many horror movies to write it off right away. So I kicked the bear onto the ground and pushed it into the next stall over so I could do my business as usual.
 
+It was calm after that. On my daily route of the store I bumped into my buddy Travis. I told him about the teddy bear and asked him if he had been responsible and he said no of course, I don’t know why I thought anyone would fess up. But he also said he heard some child-like laughter around the bathroom door this morning around 8:15, which would’ve been exactly the time I had gone in there. I was freaked out, but knew where I was so I tried to forget about it.
+
 I had a pretty normal day of customer service and pulling freight, just minding my own business, when I got a text from my buddy and coworker, Wade. “You have GOT to come see this…” Great. What now? I was thinking as I made my way to the break room. 
 
 Everyone was gathered in the bathroom looking at the teddy bear in the stall, sitting on the toilet exactly as I had found it earlier. This time it was a little bit more menacing though, as now it had its mouth open. At least, it had its little stuffed teddy bear approximation of a mouth open. Inside was one small tooth, just sitting in its bottom jaw on the left hand side. It looked like it was kinda shoved in. Looked like a baby tooth.
@@ -11,6 +13,10 @@ Everyone was gathered in the bathroom looking at the teddy bear in the stall, si
 We were all understandably very unsettled by this and everyone had their turn around the room swearing up and down that it wasn’t them. Mark suggested calling the police and Eric just kinda looked at him like he was crazy. “It’s obviously just someone messing around, it’s just a baby tooth” he said. “Plenty of people have kids here.”
 
 Before anyone could argue how crazy that sounded, however, the bear was gone, just like that. Wade called out first before anyone else noticed “FUCK GUYS LOOK” and we all turned around to see a completely empty stall. We checked every adjacent stall and they were all equally vacant. Weird and bad. So we dipped out of there, all with similar looks of horror on our faces and tried to forget what happened. But Wade was so freaked out that he went home early that day. 
+
+Of course, I was a tiny bit wary of the bathroom downstairs now. I tried to hold it the next time I had to pee that day, but to little avail, as my track record with energy drinks is not insignificant. So I went into the public restroom on the main floor and stepped into one of the stalls. 
+
+I opened the lid of the toilet and the water was completely gone. Already too weird for my liking, I turned quickly to go into one of the others and that’s when I heard a slight echoed shuffling noise coming from the toilet. I turned, wide eyed, and slowly crept closer to inspect further when the faintest giggle came from the empty space below. I stood there in fear and tried to listen for more but it didn’t happen again, and I ended up leaving without even using the bathroom.
 
 Two weeks passed without incident and we kind of forgot about it. “Yeah haha terrifying bear in the stall gag, classic.” And it was fine. But then all of a sudden it very much was not fine again. The teddy showed up again in the following days and this time it had three more teeth in its mouth, which would’ve been surprising, had I not suspected this might happen since the second time it showed up.
 
