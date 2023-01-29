@@ -206,4 +206,4 @@ I have no idea what to do. Eleanora is completely unbalanced now. Our barrier is
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/10k0nbh/i_work_at_a_clothing_store_i_finally_got_some/)
 
-[Part 8](https://www.reddit.com/r/nosleep/comments/10nsdvb/i_work_at_a_clothing_store_my_dream/)
+[Part 8](https://www.reddit.com/r/nosleep/comments/10oipwq/i_work_at_a_clothing_store_my_day_off/)

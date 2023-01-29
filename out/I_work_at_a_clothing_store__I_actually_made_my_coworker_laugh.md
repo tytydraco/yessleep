@@ -274,4 +274,4 @@ He held up his hand, zipped his mouth shut and locked it, lovingly placing the p
 
 [Part 7](https://www.reddit.com/r/nosleep/comments/10lf2zd/i_work_at_a_clothing_store_i_have_a_plan_but_its/)
 
-[Part 8](https://www.reddit.com/r/nosleep/comments/10nsdvb/i_work_at_a_clothing_store_my_dream/)
+[Part 8](https://www.reddit.com/r/nosleep/comments/10oipwq/i_work_at_a_clothing_store_my_day_off/)

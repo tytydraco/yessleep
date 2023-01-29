@@ -246,7 +246,7 @@ However now, since some assholes in a fucked the fuck up doomsday cult disturbed
 &#x200B;
 
 
-With all of this in mind, there was another attached file that explained how one of the underground \[REDACTED\] under direct command of \[REDACTED\] had, in fact, been compromised at one point as well. Thus, turning over a plethora of information, as well as access to a certain satellite unit's mainframe. This sole perpetrator had posed as a researcher and escaped with all of this classified intel. They made the connection that, since that top member gained access to certain satellites, they assumed he/she used some kind of jammer to block them from tracking their location after the capture of Patient Zero and fooling the military.
+With all of this in mind, there was another attached file that explained how one of the underground \[REDACTED\] facilities under direct command of \[REDACTED\] had, in fact, been compromised at one point as well. Thus, turning over a plethora of information, as well as access to a certain satellite unit's mainframe. This sole perpetrator had posed as a researcher and escaped with all of this classified intel. They made the connection that, since that top member gained access to certain satellites, they assumed he/she used some kind of jammer to block them from tracking their location after the capture of Patient Zero and fooling the military.
 
 &#x200B;
 
