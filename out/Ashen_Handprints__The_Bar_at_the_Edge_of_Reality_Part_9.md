@@ -74,7 +74,7 @@ That was a polite way of saying I was weird and she wanted to know what the hell
 
 They *were* related! I didn’t respond right away, mostly due to my slow processing of her words—my head was still working on clearing out the cotton—and she must have taken this as surprise, because she gave me a small smile and continued, “It’s okay, I’m sure Asher didn’t tell you about me. If it makes you feel better, he didn’t mention *you* either.” She was glaring at him now, though it was more teasing than venomous. Asher held his hands up in surrender, smirking.
 
-“He didn’t,” I finally said. “Mention you, I mean. But it’s nice to meet you.” I didn’t really know what else to say. Now that my head was clearing and I was thinking more about the town—what had Asher called it? Oasis? — it was seeming weirder and weirder. All my life I’d thought only monsters lived in the dark parts of Neverland, the most inhuman, murderous beasts in existence. But here was an entire civilization of human-like beings, who, dare I say it, seemed mostly peaceful. Well, except Orion. 
+“He didn’t,” I finally said. “Mention you, I mean. But it’s nice to meet you.” I didn’t really know what else to say. Now that my head was clearing and I was thinking more about the town—what had Asher called it? Oasis? — it was seeming weirder and weirder. All my life I’d thought only monsters lived in the dark parts of Neverland, the most inhuman, murderous beasts in existence. But here was an entire civilization of human-like beings, who, dare I say it, seemed mostly peaceful. Well, except Orion.
 
 I just hope that isn’t written on my headstone after this proves out to be an elaborate method of toying with their prey. *Ian Griffin,* it would read, *Most gullible, attack-prone being to ever grace either dimension.*
 
@@ -222,4 +222,4 @@ Henri yanked open the now-unlocked drawer, slamming a photograph onto the desk. 
 
 Asher stepped forward tentatively with me. My breath caught as I looked at the photo. I’d recognize the woman sprawled in the road anywhere; I’d grown up seeing her photos around Henri’s office, in his bedroom, over the bar. Henri’s late wife. But I’d never seen *this* photo before: in this one, she was dead. And there were no visible marks except ashen black handprints on her neck.
 
-“His kind is the reason Lucille is dead,” Henri said, voice hollow. He held up a small mirror, letting me see my own neck—where ashen black handprints stood out starkly, just like the ones in the photo. “And by the looks of it, you should be too.”
+“His kind is the reason Lucille is dead,” Henri said, voice hollow. He held up a small mirror, letting me see my own neck—where ashen black handprints stood out starkly, just like the ones in the photo. “And by the looks of it, [you should be too](https://www.reddit.com/r/nosleep/comments/10ofz73/the_girl_of_henris_dreams_the_bar_at_the_edge_of/?utm_source=share&utm_medium=web2x&context=3).”

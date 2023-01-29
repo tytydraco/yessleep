@@ -1,0 +1,13 @@
+I've never believed in the supernatural until now.
+
+A little over a month ago I moved into a new house in northern California, it wasn't huge but it was big enough for me and the two dogs. I got the house for pretty cheap considering the condition, which honestly made me wonder what could be wrong with it. 
+
+The first week in the house was completely normal. Every so often I would hear weird noises coming from my bedroom, but I simply amused it was the one of the dogs. 
+
+The second week was when things started to get strange. I could almost feel a sense of dread whenever I was in the house. It made me uneasy most of the time. I started seeing shadows and figures out of the corner of my eye, but they were gone as soon as I looked over. One night as I was falling asleep, I woke to the sound of gurgling. I opened my eyes to see a pair of eyes directly across from my bed. It was the source of the sound. I shut my eyes faster than they opened and prayed that whatever it was, that… thing, would leave. It didn't return for the rest of the week. 
+
+I didn't feel safe here anymore by week three. The thing was back, I could feel it. I tried to spend as little time in my room from then on. I see the shadows more often, more drawn out. The thing has shown itself more times, each one like the last. The same wide eyes and gurgling noise from the first time, but now it appears to have a red fluid dripping from its mouth, one I can only assume is blood. Ive made a sketch of what it looks like from all the encounters. Long black limbs, stretching out for miles. It had wide yellow eyes, almost like a cat of some sort. It's face is always held in an unsettling grin with sharp, fang like teeth. It's otherworldly. I’ve had nightmares every night since my first encounter with this… thing that probably knows everything and anything about me. I know why the price of the house was so low now, I just wonder what had happened to the previous owner…
+
+Week four... it watches me. I know it does. It shows up every night now. The eyes, the gurgle, the blood. All the lights in my room now constantly flicker. I fear it more than ever as I find that every night it moves closer to my bed. It will get me soon... I can feel it. The way it stares so blankly, emotionless… it haunts me. I’m terrified of being in my own house, but I can’t leave… I have nowhere else to go, and I’m afraid that it might follow me. For now, I live in constant fear. Fear that I won’t survive the night. That it, the thing, will get me.
+
+I will update you if I make it another week, if not, you'll know.
