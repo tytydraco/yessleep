@@ -48,7 +48,7 @@ Drew’s giggling stopped, his tone got urgent and serious quickly. “You gotta
 
 “No.” I said.
 
-“Come down here!” Drew screamed angrily, a rock flew from the darkness, it just barely hit me, it fell through the window onto the floor, Jackson and I looked at each other in fear. Normally Drew was a polite and calm guy, with the ability of natural humor. He never raised his voice, he never took things too far. I knew him as a voice of reason, and he had become even calmer after learning he was going to have a baby.
+“Come down here!” Drew screamed angrily, a rock flew from the darkness, it just barely hit me, it fell through the window onto the floor, Jackson and I looked at each other in fear. Normally Drew was a polite and calm guy, he’s always been kind and loving towards Jackson and I. He never raised his voice, he never took things too far. I knew him as a voice of reason, and he had become even calmer after learning he was going to have a baby.
 
 “I’m getting Megan!” Jackson cried, he rushed away, Drew’s screams grew louder and more aggressive.
 
@@ -60,7 +60,7 @@ Drew’s giggling stopped, his tone got urgent and serious quickly. “You gotta
 
 But who’s was currently standing outside our cabin screaming then? The person was still screaming for Jackson and I. Thoughts swarmed my mind, who was out there? How did it know my name? And why did it sound just like Drew?
 
-We all stood in fearful silence, the voice stopped, but then a huge jagged rock as big as my head flew through the window, off the loft and straight at my sister, her real husband pulled her back quickly. She still screamed at the top of her lungs, which made my parents and Isaac rush into the room, they comforted my sister, and that’s when I noticed the tall disfigured silhouette of something standing on the loft, I screamed while everyone else began noticing it, that’s when we all booked it to the car, everyone piled in my parents car and we left the other cars behind. My mom was on the phone with the police for a lot of the drive, they searched the whole house and woods outside the house, to no avail.
+We all stood in fearful silence, the voice stopped, but then a huge jagged rock as big as my head flew through the window, off the loft and straight at my sister, her real husband pulled her back quickly. She still screamed at the top of her lungs, which made my parents and Isaac rush into the room, they comforted my sister, and that’s when I noticed this humanoid *thing* climbing through the still open window, I screamed while everyone else began noticing it, that’s when we all booked it to the car, everyone piled in my parents car and we left the other cars behind. My mom was on the phone with the police for a lot of the drive, they searched the whole house and woods outside the house, to no avail.
 
 It’s been years since that happened, the baby my sister was pregnant with is in school now, but I still wake up in a cold sweat at night, thinking I heard a voice call me and tell me..
 

@@ -255,3 +255,7 @@ To keep things as short as I possibly can, I was rushed back to the guards build
 &#x200B;
 
 The commandos were already freaky enough, I should have known better than to sit back and allow this to happen, but it was already too late. My gun was left outside and undoubtedly taken by them. The jig was up, and Jeff and I were taken hostage inside the guard's office.
+
+
+
+[PART TWO (Final)](https://www.reddit.com/r/nosleep/comments/10obaay/i_was_hired_as_a_security_guard_to_protect_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
