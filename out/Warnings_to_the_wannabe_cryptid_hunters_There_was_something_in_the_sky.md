@@ -84,13 +84,25 @@ Smiling gratefully, I stepped inside. The Bannik scurried over to the wooden buc
 
 I nodded eagerly, pulling out my pocket knife and readily pricking the tip of my index finger. Ignoring the slight sting of pain, I squeezed out a bead of red and allowed it to drip into the bucket at the Bannik's instructions. The water seemed to boil even more furiously, turning a deep, dark red. I shrank back, the sight slightly unsettling. "What now?" I stammered uncertainly.
 
-*"Now you dip your head in."*
+*"You'll have to dip your head in."*
 
 "What? I can't do that! It's gonna burn my face off!"
 
-*"It won't. Trust me. Hold your breath and open your eyes once you're under. You will not be hurt."*
+*"That won't be a problem. There is something else you'll need to worry about, though. This isn't perfectly safe. Keep your wits about you. You'll see things, and if you stay in the water for too long, there's a possibility you might feel… an influence."*
 
-I took in a deep, steadying breath before pressing my eyes shut and plunging face-first into the bucket. I really did feel no pain. The water bubbling around me was pleasantly warm, even. I could feel my hair being cautiously drawn up behind my head, and I smiled to myself when I realized that the Bannik was holding it up for me. Readying myself for whatever was about to happen, I opened my eyes. To my surprise, this, too, didn't hurt. I didn't even feel the need to breathe. For a moment, I couldn't see a thing. Then, all of a sudden, my mind was flooded with images.
+"An influence?"
+
+*"I don't rightly know what else to call it. A highly unpleasant side effect. You could go… well, mad, for lack of a better word. But I'll know when to stop you, and I will pull you up when it's time. You may rely on me."*
+
+"Do I want to?" I asked, nervous fingertips tracing the wood lines on the bucket.
+
+*"It is your choice alone. But I do believe it would be of great importance for you to see. It could establish a connection between you and your ancestors. That could be useful considering your… predicament."*
+
+I regarded him with narrowed eyes. "And I can trust you with this?"
+
+*"I so swear. What good would it do me to kill my own warden?"*
+
+I nodded slowly. Then, I took in a deep, steadying breath before pressing my eyes shut and plunging face-first into the bucket. I really did feel no pain. The water bubbling around me was pleasantly warm, even. I could feel my hair being cautiously drawn up behind my head, and I smiled to myself when I realized that the Bannik was holding it up for me. Readying myself for whatever was about to happen, I opened my eyes. To my surprise, this, too, didn't hurt. I didn't even feel the need to breathe. For a moment, I couldn't see a thing. Then, all of a sudden, my mind was flooded with images.
 
 Everything I saw and felt was different, wholly different. It took me a few seconds to realize that this wasn't actually happening. These were simply memories; an experience belonging to somebody else. I wasn't in the steaming room anymore, I wasn't in my woods at all; hell, I wasn't even in my own body. 
 
@@ -140,14 +152,31 @@ He merely shook his head, eyes still trained on the thing. "I swear I don't. I'd
 
 "Arek!" the tiny Leshy in my arms cried out. "It's coming closer, I can feel it! It's coming!"
 
-In the real world, I, Fiona, pulled my head out of the water with the gasp. The Bannik moved to my front, regarding me with probing eyes.
+In the real world, I, Fiona, was pulled out of the water, emerging with a gasp. The Bannik moved to my front, regarding me with probing eyes.
 
-*"Did it work?"* he inquired. *"What did you see?"*
+*"What did you see?"*
 
-For a while, all I could do was stare at him. My throat had gone bone dry. "I have no idea."
+For a while, all I could do was stare at him. My throat had gone bone dry. "I'll be right back." With that, I scrambled to my feet and staggered out the door.
+
+My head was reeling, my cheeks flushed. The cold winter air hit my wet skin, almost piercing in its chill. I sucked it in, taking deep, frantic breaths. My mind was running wild, it was all over the place—I looked down at my hands, confused at the sight of my slender, pale fingers instead of the rider's long, calloused ones. 
+
+*Fuck.*
+
+This was what the Bannik had warned me of, wasn't it? He was still there, the rider was still in my head—I didn't feel like I was *me.* A name kept echoing through my thoughts. Arkadiusz. Arek. The traveler. The helmsman of the inhuman procession. His blood was in my veins. Diluted, yes, but somehow stronger than ever. At that moment, it seemed to be boiling. And then, the ground began to shake.
+
+I froze in place.
+
+The snow looked like it was vibrating, quivering and trembling as if the earth beneath was getting goosebumps. This was not my imagination—as I shot a glance over at the house, I saw the door being thrown open. Cas appeared on the stoop, eyes wide with terror. Within a second, he was at my side, shaking me by the shoulders as if the earthquake wasn't doing so quite forcefully enough for his liking. 
+
+"What's happening?" he shouted.
+
+For once, I was speechless. My heart sank when I heard screams ring out from beyond the treeline—my guards. Aleksei. Where were they? I willed myself to calm, trying to ward off the fog of panic. "I don't know!" I cried out. Then my gaze wandered over to the red meadow. Once more, I fell silent. "Look," I said under my breath. Cas turned his head to follow my stare. 
+
+Swirling colors were hovering over the plain, like simmering heat in the summer. The air seemed to *ripple* and quail. I apologize for the lackluster description, but I simply can't seem to put the sight into words. It instilled within me a fear similar to the one I'd felt upon seeing Nick for the first time. What I was looking at was unfathomable, and yet, however impossibly, *alive*. Unable to contain his horror, Casimir let out a sharp yell, half of which died in his throat. I stood still as a statue, not daring to move, to scream; not even to think. 
+
+And then, like nothing had ever happened, the nebula sank back into the snow. The quaking earth stilled beneath our feet. Complete silence settled over the woods.
 
 [X](https://www.reddit.com/r/CrypticPark?utm_medium=android_app&utm_source=share)
-
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/zy4auu/to_all_the_wannabe_cryptid_hunters_stay_the_fuck/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
