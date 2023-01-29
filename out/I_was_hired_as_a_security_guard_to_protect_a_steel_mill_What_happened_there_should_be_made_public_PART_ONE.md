@@ -146,7 +146,7 @@ Making my way around the corner, still jogging, I saw that he was already approa
 
 &#x200B;
 
-Another two weeks passed and, on a Wednesday, when Ray told me something that had me a little worried about these people occupying the building. Monday through Wednesday I have the day shift. Wednesday through Saturday is my night shift, and he has the opposite schedule. “Dee, you got a minute?” He asked while I was about to clock out. He had a troubled expression on his face. “Yeah. Everything alright?” I asked, glancing over at the monitors. He also looked at the monitors, showing these people hauling in huge computers and for some reason, large loudspeakers through the warehouse shutter door in building B and then looked back at me.
+Another two weeks passed and, on a Wednesday, when Ray told me something that had me a little worried about these people occupying the building. Monday through Wednesday I have the day shift. Thursday through Saturday is my night shift, and he has the opposite schedule. “Dee, you got a minute?” He asked while I was about to clock out. He had a troubled expression on his face. “Yeah. Everything alright?” I asked, glancing over at the monitors. He also looked at the monitors, showing these people hauling in huge computers and for some reason, large loudspeakers through the warehouse shutter door in building B and then looked back at me.
 
 &#x200B;
 
