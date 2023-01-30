@@ -1,10 +1,10 @@
 Any woman who has ever spurned a man’s advances already knows my story. Rejecting someone you have known and loved is, I think, even more perilous than rejecting a stranger.
 
-Edward and I dated for six months. He was an exceptional man in so many ways, but he soon revealed his contemptible side, and that soured the relationship. Signalled by numerous red flags, I broke up with Edward.
+Edward and I dated for six months. He was an exceptional man in so many ways, but he soon revealed his contemptible side, and that soured the relationship. Signalled by numerous red flags, I broke up with him.
 
 He couldn’t accept that. His relentless pursuit began. The monstrous man had veiled his true evil for so many months. I think he’d been aching to free it. His vengeance was savage and unyielding. Threatening social media posts. Candid photos he’d taken of me. An emailed schedule of my family’s movements. A restraining order did nothing to stop him.
 
-Nevertheless, after months of stalking, the horrendous stalking came to a bitter end. In December, Edward tragically froze to death in his snow-covered, beaten-up, unheated Ford Mustang. He had been waiting outside my house for hours at the blistering height of winter. A neighbour found him in the morning.
+Nevertheless, after months of fear, the horrendous stalking came to a bitter end. In December, Edward tragically froze to death in his snow-covered, beaten-up, unheated Ford Mustang. He had been waiting outside my house for hours at the blistering height of winter. A neighbour found him in the morning.
 
 Cards on the table. ‘Edward’ wasn’t even his real name, and I’m not exactly sure why I’m protecting his identity, given that he’s dead. I guess I’m still scared of him. Understandable, given that *even death*hasn’t halted his heinous hunt.
 
