@@ -36,4 +36,4 @@ It’s called ‘organized stalking,’ or ‘community harassment.’ If you lo
 
 I don’t know why I’m posting this, I don’t even think anyone can help me. I just want people to know it’s a real thing, and it’s an absolute life-draining nightmare. If anyone out there has experienced this, please feel free to message me. There’s nothing where I live as far as support goes for this kind of thing, especially for men.
 
-I know I’m posting this on No Sleep, but I’m getting no sleep, and this is real, I’m not a writer and this is not fiction. It’s scary as fuck, there’s a lot of members here, and I just want to be heard.
+It’s good this place is called r/nosleep, because that’s what I’m getting.
