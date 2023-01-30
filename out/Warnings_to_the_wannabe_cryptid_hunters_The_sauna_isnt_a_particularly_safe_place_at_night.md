@@ -127,7 +127,7 @@ I slowly walked up to him and placed my clenching ass next to his. There was a b
 
 *“A friend of mine.”* The Bannik’s voice echoed off the walls. *“She has been invited. She’s got every right to be here.”*
 
-The lady threw her hands up. “I’m not complaining! I was just a bit surprised, is all.” She leaned towards me, damp red hair falling over her shoulder. She smelled of Rosemary and honey, and maybe some other herbs I didn't recognize. I tried not to be so obvious about sucking it in, but she noticed anyway. “What’s your name, beautiful?” she asked, pale red lips stretching into a grin. 
+The lady threw her hands up. “I’m not complaining! I was just a bit surprised, is all.” She leaned towards me, damp red hair falling over her shoulder. She smelled of rosemary and honey, and maybe some other herbs I didn't recognize. I tried not to be so obvious about sucking it in, but she noticed anyway. “What’s your name, beautiful?” she asked, pale red lips stretching into a grin. 
 
 “She’s the heiress,” the Leshy answered in my stead. “If you try to steal her name, I’ll rip you apart.”
 
