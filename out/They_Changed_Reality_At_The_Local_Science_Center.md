@@ -52,13 +52,13 @@ After leaving the presentation, terror and horror have made themselves at home i
  
 Many attendees killed themselves in order to begin new adventures in the afterlife.
  
-As word of the new discoveries about reality spead, so do stories about personal experiences with what we once considered mere concepts. 
+As word of the new discoveries about reality spread, so do stories about personal experiences with what we once considered mere concepts. 
  
 Whether or not one caused the other is a question that not even local conspiracy theorists ask. 
  
 Almost everyone is scared, including me.
  
-While I'm safe in my home, a visit to a friend's house led to a horrific encounter with two severely mangled creatures combined at the waist that lovingly stroked the other's disfigured body while emitting vocalizations that sounded like expressions of pain and pleasure at once. 
+While I'm safe in my home, a visit to a friend's house led to a horrific encounter with two severely mangled creatures combined by scar tissue that lovingly stroked the other's disfigured body while emitting vocalizations that sounded like expressions of pain and pleasure at once. 
 
 I stay home as much as I can these days. 
  
