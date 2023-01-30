@@ -28,7 +28,7 @@ I know I’m right, I know I am, in my heart of hearts. The whole idea behind it
 
 I can go into what they do if you want, but I’m also really scared that someone will see this and do it to someone else. It’s sadistic, and it’s the most fucking evil thing I’ve ever experienced. This is still ongoing, and it’s taking everything I’ve got to stay sane.
 
-There’s people out there who claim they’re being followed by helicopters or that the government is tracking them or whatever — I DON’T THINK THAT. I’m not someone the government would even be interested in. It’s my ex-girlfriend and people she manipulates. I know exactly how she does it, the only thing is I have no idea of is why she’s so dedicated to this, or how she’s got so many other people to be so invested in it with her.
+There’s people out there who claim they’re being followed by helicopters or that the government is tracking them or whatever — I DON’T THINK THAT. I’m not someone the government would even be interested in. It’s my ex-girlfriend and people she manipulates. I know exactly how she does it, the only thing I have no idea of is why she’s so dedicated to this, or how she’s got so many other people to be so invested in it with her.
 
 I’ve seen a few videos of other sane people on YouTube who are going through what I’m going through, which somewhat comforting, even though I feel horrible for them.
 

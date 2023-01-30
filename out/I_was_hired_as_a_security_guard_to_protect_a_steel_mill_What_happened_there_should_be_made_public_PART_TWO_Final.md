@@ -64,7 +64,7 @@ The locker room was a small space in the building, and I yelled for Jeff to get 
 &#x200B;
 
 
-Having no other choice, we opened the lockers closest to us and squeezed in, getting as low as possible. The suffocating dread was persistently clocking down more minutes of my life no doubt. The gunfire and explosions outside were enough to drive anyone mad, but being trapped in a metal coffin on top of it was not on my bucket list. Needless to say, we were trapped regardless and just needed to wait this out. I could see through the metal vents in the locker some of the monitor displaying the battle in full effect. I had a clear view of three and even watched as some of the men were fighting each other with close range weapons as well. 
+A single window shattered then, we got moving while ducking and holding our heads. Having no other choice, we opened the lockers closest to us and squeezed in, getting as low as possible. The suffocating dread was persistently clocking down more minutes of my life no doubt. The gunfire and explosions outside were enough to drive anyone mad, but being trapped in a metal coffin on top of it was not on my bucket list. Needless to say, we were trapped regardless and just needed to wait this out. I could see through the metal vents in the locker some of the monitor displaying the battle in full effect. I had a clear view of three and even watched as some of the men were fighting each other with close range weapons as well. 
 
 &#x200B;
 
@@ -324,7 +324,9 @@ It's late in the morning and I am currently held up in some shitty hotel room ye
 
 
 
+
 Let this be a warning to those who wonder about the secrets of the world. Lock your doors, give your loved ones a hug and a kiss and remember that danger could be closer to home than we may think. 
+
 
 
 
