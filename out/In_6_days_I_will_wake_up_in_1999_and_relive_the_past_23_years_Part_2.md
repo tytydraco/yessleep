@@ -14,7 +14,7 @@ I needed to do things exactly the same way. I’ll explain that. For brevity, I�
 
 **I-3**: The third iteration (my current iteration).
 
-Something happened during I-1. I barely made it out of that iteration alive (details will follow), but *that’s*how I discovered I was on the right track. The Glassy-Eyed Man is pursuing me more aggressively than ever. I think he has grown weary of lurking.
+Something happened during I-1. I barely made it out of that iteration alive (details will follow), but *that’s* how I discovered I was on the right track. The Glassy-Eyed Man is pursuing me more aggressively than ever. I think he has grown weary of lurking.
 
 *I-1 (December 24th, 2022):*
 
