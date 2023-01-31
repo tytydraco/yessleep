@@ -26,7 +26,7 @@ When I woke the next morning Steph was gone, her phone and jewellery left on the
 
 In the hours ahead a search team was assembled and I joined them in searching the local area. There was no sign of her. It’s now 11pm, I’m sitting alone in my living room, my head now full of fear and radiating pain. I just want my Steph home, I just want normality back. 
 
-Here it comes 12:59.
+Here it comes 00:59.
 
 3, 2, 01:00, the notifications came through, I opened the app. 
 
