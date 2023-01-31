@@ -67,3 +67,5 @@ The wardrobe door creaked shut. I lay on the carpet, considering my options. Ini
 The stick figure is watching you, and it’s offering you the same options that it offered me. Leave NoSleep behind, or join it as some two-dimensional, soulless stick figure in a digital hellscape.
 
 What will you choose?
+
+[X](https://www.reddit.com/r/dominiceagle)

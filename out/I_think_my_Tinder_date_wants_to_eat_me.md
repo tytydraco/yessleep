@@ -49,3 +49,5 @@ I screamed, tumbling off the sofa and crawling backwards across the floor. It wa
 I barrelled out of the building and jumped into my car. That was twenty minutes ago. I’m currently in McDonald’s. Public places seem safe. That being said, I quiver in terror at every person who so much as glances in my direction or, worse, giggles.
 
 *Fuck*. Chris.
+
+[X](https://www.reddit.com/r/dominiceagle)

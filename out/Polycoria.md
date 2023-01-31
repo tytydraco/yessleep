@@ -255,3 +255,5 @@ It was a quiet journey. I was fine with that, at first, but something soon click
 He didn’t look directly at me, but I know Jacob saw me in his peripheral vision. A twisted smile started to emerge on his face. I had to stifle a scream. My worst suspicion was confirmed.
 
 As if some aquatic creature were about to swim to the surface of his eye, I saw his pupil *ripple*.
+
+[X](https://www.reddit.com/r/dominiceagle)

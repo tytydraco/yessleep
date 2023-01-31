@@ -53,3 +53,5 @@ What are they? What do they want?
 I’m currently typing with my eyes closed. I hope the autocorrect function has been working. They’re about to discharge me from the hospital. I don’t know what to do. Even if you were to try, I don’t think you could help me. I just thought I’d tell my story.
 
 This post is a warning. If the monolithic stone creature speaks to you, do as it says. I can’t offer more help, I’m afraid. Obeying its request might not even save you. After all, I still don’t know what I’m hearing in the dark.
+
+[X](https://www.reddit.com/r/dominiceagle)
