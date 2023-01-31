@@ -1,4 +1,6 @@
-I appreciated all of the thoughtful comments that Redditors left on [my first post](https://www.reddit.com/r/nosleep/comments/10d39zy/last_summer_i_opened_an_adventure_park_after_some/?utm_source=share&utm_medium=ios_app&utm_name=iossmf).
+[Part I](https://www.reddit.com/r/nosleep/comments/10d39zy/last_summer_i_opened_an_adventure_park_after_some/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) - **Part II**
+
+I appreciated all of the thoughtful comments that Redditors left on my first post.
 
 So many of you seem desperate to know what drove the final nail into the coffin. First of all, I failed to mention a few egregious events.
 
@@ -111,3 +113,5 @@ A mass murderer. That’s what the police called him. Paul and I knew better. We
 \_\_\_\_
 
 I refuse to sell the park. Nobody else needs to suffer there. That land isn’t meant for us.
+
+[X](https://www.reddit.com/r/dominiceagle)

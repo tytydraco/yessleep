@@ -37,7 +37,7 @@ On regular security jobs you are not permitted to take another person's life and
 &#x200B;
 
 
-I was contacted by a company, and obviously I will not be naming here, to guard multiple buildings located in \[REDACTED\] for both day and night shifts. The area itself was barren with a patch of forest to the south of the facility and owned property lines fenced off and marked with “no trespassing” signs surrounding the zone for miles. 
+I was contacted by a company, and obviously I will not be naming here, to guard multiple buildings for both day and night shifts. The area itself was barren with a patch of forest to the south of the facility and owned property lines fenced off and marked with “no trespassing” signs surrounding the zone for miles. 
 
 
 
@@ -46,21 +46,16 @@ There was a total of six buildings to guard: Buildings A through F with A being 
 &#x200B;
 
 
-Opposite that was the parking lot and our main gate with a guard that seems to be there 24/7. We can just call him Phil. Buildings E and F were used for housing supplies and building B was basically empty, save for some discarded equipment. The building itself was constructed farther away from the other ones. 
+Opposite that was the parking lot and our main gate with a guard that seemed to be there 24/7. We can just call him Phil. Buildings E and F were used for housing supplies and building B was basically empty, save for some discarded equipment. The building itself was constructed farther away from the other ones. 
 
 
 
-There's a window in the guard's office that allows you to see the gap between B and A. I didn’t really know what that building was used for, but I actually enjoyed guarding this place for the nine months I was there. Until they asked me to sign some documents in the guards building. Then, everything spiraled straight into a nightmare.
+There were four windows in the guard's office and one that allows you to see the gap between B and A. I didn’t really know what that building was used for, but I actually enjoyed guarding this place for the nine months I was there. Until they asked me to sign some documents in the guards building. Then, everything spiraled straight into a nightmare.
 
 &#x200B;
 
 
-The day started out like any normal day. I don’t like being early or late, so I showed up right as my day shift was about to start as always. I was greeted by Phil, showed him my ID card and was cleared to enter. I then pulled into the parking lot, got out and headed for the guard's office. Looking around, I noticed two nondescript vehicles parked on the dirt road where deliveries would be with traffic cones placed by one of the vans. Must be some inspectors, I thought.
-
-
-
-
-Usually, I am told when they have people like that come to do their checks by phone the day prior and this place is huge, so I figured they’d have a team to help, and it might be one of those “sorry forgot to mention” things management pulled. Once I made my way closer to the guard's office and glanced over at building B, there was a group of men with jumpsuits and respirators gathered around the front of it. They were installing a card reader on the main entrance doors, but the actual door was gone.
+The day started out like any normal day. I don’t like being early or late, so I showed up right as my day shift was about to start as always. I was greeted by Phil, showed him my ID card and was cleared to enter. I then pulled into the parking lot, got out and headed for the guard's office. Looking around, I noticed two nondescript vehicles parked on the dirt road where deliveries would be with traffic cones placed by one of the vans. Must be some inspectors, I thought. Once I made my way closer to the guard's office and glanced over at building B, there was a group of men with jumpsuits and respirators gathered around the front of it. They were installing a card reader on the main entrance doors, but the actual door was gone.
 
 &#x200B;
 
@@ -90,12 +85,12 @@ The man in charge of all operations, Sam, was with two people in black suits sta
 &#x200B;
 
 
-“I am special agent Franks, and this is Calloway. We represent Optimal Solutions in a collaborative operation with the United States Government to store medical supplies and other materials that may be hazardous if mistreated.” He set down a stack of papers on the metal desk nearest me. “You can read about us in that packet if you’d like. We need to occupy building B for a period of time since it is not operational here. The area will be disinfected and anything we work on will be contained inside the warehouse. We apologize for any inconvenience.” He paused, probably to see my reaction.
+“I am special agent Franks, and this is Calloway. We represent Optimal Solutions in a collaborative operation with the United States Government to store supplies and other materials that may be hazardous if mistreated.” He set down a stack of papers on the metal desk nearest me. “You can read about us in that packet if you’d like. We need to occupy building B for a period of time since it is not operational here. The area will be disinfected and anything we work on will be contained inside the warehouse. We apologize for any inconvenience.” He paused, probably to see my reaction.
 
 &#x200B;
 
 
-“Okay.” I said, picking up the sheets of paper and skimming the details about this subcontracting medical research group while listening.
+“Okay,” I said, picking up the sheets of paper and skimming the details about this subcontracting medical research group while listening.
 
 &#x200B;
 
@@ -110,7 +105,7 @@ The man in charge of all operations, Sam, was with two people in black suits sta
 &#x200B;
 
 
-“Due to this particular work study, the identities of people involved, and the nature of the work is considered highly classified and any information about this cannot be disclosed to the public. I am sure you have already gathered that we are installing a reinforced door over at building B. We are asking that you include this area in your perimeter checks during daytime. At night, we will be stationing armed men under our direct payroll by those doors. Watching over the camera feed is only required for you then, but you will be given our frequency to speak directly to us on those devices. No one besides us should be allowed access. That door will be used for our personnel only. We are going to be staying within the compound throughout the time we are here. M.R.E. 's have been issued and workers quarters are currently being installed. No one gets in and no one is permitted to leave the premises until we have completed the work or have been given authorization. We have already installed another camera watching that area as well, so it can be easier for you to keep watch while fulfilling your other duties.” He pointed out the monitor. Ray spoke up.
+“Due to this particular work study, the identities of people involved, and the nature of the work is considered highly classified and any information about this cannot be disclosed to the public. I am sure you have already gathered that we are installing a reinforced door over at building B. We are asking that you include this area in your perimeter checks during daytime. At night, we will be stationing armed men under our direct payroll by those doors. Watching over the camera feed is only required for you then, but you will be given our frequency to speak directly to us on those devices. No one besides us should be allowed access. That door will be used for our personnel only. We are going to be staying within the compound throughout the time we are here. Military rations have been issued and workers quarters are currently being installed. No one gets in and no one is permitted to leave the premises until we have completed the work or have been given authorization. We have already installed another camera watching that area as well, so it can be easier for you to keep watch while fulfilling your other duties.” He pointed out the monitor. Ray spoke up.
 
 &#x200B;
 
@@ -125,27 +120,18 @@ The man in charge of all operations, Sam, was with two people in black suits sta
 
 
 
-Although, I wasn’t completely shocked. Companies all over the world would occupy facilities for a period of time to store materials, operate in or even collaborate on business within this particular field when supply chain demand was low. Maybe there was something they couldn’t tell us. It seemed to me that they operated through more unconventional methods, but that was obviously between Sam and them and whatever was going on is federal level shit.
+Although, I wasn’t completely shocked. Companies all over the world would occupy facilities for a period of time to store materials, operate in or even collaborate on business within this particular field when supply chain demand was low. Maybe there was something they couldn’t tell us. It seemed to me that they operated through more unconventional methods, but that was obviously between Sam and them and whatever was going on is federal level shit. 
 
 &#x200B;
 
 
-“It sounds like we don’t really have a choice about any of this. What kind of supplies are you talking about, like vaccines and medicine?” I asked. He just remained stoic and replied.
+“Well, what kind of supplies are you talking about, is it something toxic?” I asked. He just remained still, not moving a muscle and replied.
 
 &#x200B;
 
 
-“That is classified information. You are not to share anything about our whereabouts to anyone and if you do it is punishable by law as you will read in the non-disclosure agreement. If you are feeling some... discomfort about this, you of course will be handsomely compensated upon leaving, but unfortunately, we will not be able to offer anything else at this time.” He said, smiling and did not speak for a moment. I had the thought that maybe they were trying to store a new kind of medicine to help fight this recent outbreak and needed to keep a low profile from other competitors or something. I don’t know how any of that works, but I can only speculate because of how brutal the world has been getting over the years.
+“That is classified information. You are not to share anything about our whereabouts to anyone and if you do it is punishable by law as you will read in the non-disclosure agreement.” He said, smiling and did not speak for a moment.
 
-&#x200B;
-
-
-I have read reports where the military might need to occupy an area for things like logistics or storing shipments in civilian territory because there was no space for the operation in a base at the time. This is a steel plant, after all. Perfect size for a military operation. They obviously must have deduced that this is one of the more lesser-known steel manufacturers in the U.S. and hasn’t had many intruders in the past. These places are filled with areas where vandals would want to break in or even urban explorers.
-
-
-
-
-There is also the risk of armed intruders wanting to rob the place for scrap. Throughout the time I have been here though, no such occurrence has ever happened. It was a pretty lax job and would just include the normal day to day routine and the night shift involved trying to stay awake most of the time. I still was required to keep my pistol on me at all times while patrolling the property though. This new ordeal here actually excited me in a strange way.
 
 &#x200B;
 
@@ -155,14 +141,12 @@ There is also the risk of armed intruders wanting to rob the place for scrap. Th
 &#x200B;
 
 
-“As long as it takes for us to finish. Your job will be no different from what you are already doing here. You are free to report any abnormalities you may find concerning at any time. We’re just spending some time in that warehouse and yeah, there may be extra tasks required depending on the situation. You *do* have military experience.” Calloway offered with an attitude I didn’t particularly like. What did he mean by that? They must have spoken with Sam about me and Ray. Ray never served but was on the force some time ago and was permitted to carry. I looked over at Sam briefly and he just gave me a blank stare while scratching the back of his head. Franks spoke again.
-
-&#x200B;
+“As long as it takes for us to finish. Your job will be no different from what you are already doing here. You are free to report any abnormalities you may find concerning at any time. We’re just spending some time in that warehouse and yeah, there may be extra tasks required depending on the situation. You *do* have military experience.” Calloway offered with an attitude I didn’t particularly like. What did he mean by that? They must have spoken with Sam about me and Ray. Ray never served but was on the force some time ago and was permitted to carry. I looked over at Sam briefly and he just gave me a blank stare while scratching the back of his head.
 
 
-“Have we come to an understanding? We are running out of time. Our work is important, we just want everyone on the same page. Will you adhere to these requirements?”
 
-&#x200B;
+
+
 
 
 I gave it a once-over in my head, spending a passing moment to get my thoughts right and bury any red flags I may have noticed. This whole meeting happened so suddenly, and I didn’t exactly get a whole lot of time to think about any of this. More money was always a plus too and I opted to play the grunt I was being paid for by saying: “Yes, sir.” then signing the non-disclosure agreement. Ray followed our new “orders” as well.
@@ -180,17 +164,12 @@ The next two weeks after this were fairly normal minus the worker that walked ou
 &#x200B;
 
 
-Stunned, I stood there for a moment thinking of what could have happened, so I recklessly advanced in his direction. “Wait!” I called out and began jogging his way and made it about twenty or so feet behind him. He did not slow down or stop for me. He continued walking quickly, turning another corner and eventually was out of my sight. I don’t normally act out of impulse, but the manner in which this man left his shift made me anxious. An action like this would probably cause my employer to wonder about me but I didn’t really care at the time. He looked terrified out of his mind. It was someone I was familiar with but never got his name. He’s been here since I arrived, so he had to have been here for over a year.
+Stunned, I stood there for a moment thinking of what could have happened, so I recklessly advanced in his direction. “Wait!” I called out and began jogging his way and made it about twenty or so feet behind him. He did not slow down or stop for me. He continued walking quickly, turning another corner and eventually was out of my sight. I don’t normally act out of impulse, but the manner in which this man left his shift made me anxious. He looked terrified out of his mind. It was someone I was familiar with but never got his name. He’s been here since I arrived, so he had to have been here for over a year.
 
 &#x200B;
 
 
-Making my way around the corner, still jogging, I saw that he was already approaching his vehicle and getting in, so I slowed down and eventually stopped. Phil was flagged and he got the gate opened for him. It looked like the guy was shouting at Phil in his car to hurry up. I was standing near the edge of where the parking lot meets the property and Phil noticed me. I could see he looked at me frowning, shrugging his shoulders. 
-
-
-
-
-When I asked one of the supervisors about it later, he informed me that the employee was suddenly hit with a panic attack and began feeling claustrophobic to the point where he had to go home. He marked him down on an attendance sheet and looked up at me.
+Still jogging, I saw that he was already approaching his vehicle and getting in, so I slowed down and eventually stopped. Phil was flagged and he got the gate opened for him. It looked like the guy was shouting at Phil in his car to hurry up. I was standing near the edge of where the parking lot meets the property and Phil noticed me. I could see he looked at me frowning, shrugging his shoulders. When I asked one of the supervisors about it later, he informed me that he couldn't tell me. He marked something down in his work log and looked up at me.
 
 &#x200B;
 
@@ -201,7 +180,7 @@ When I asked one of the supervisors about it later, he informed me that the empl
 
 
 
-Another two weeks passed and, on a Wednesday, when Ray told me something that had me a little worried about these people occupying the building. Monday through Wednesday I have the day shift. Thursday through Saturday is my night shift, and he has the opposite schedule. 
+Another two weeks passed and Ray told me something that had me more than a little worried. Monday through Wednesday I have the day shift. Thursday through Saturday is my night shift, and he has the opposite schedule. 
 
 
 
@@ -216,12 +195,12 @@ Another two weeks passed and, on a Wednesday, when Ray told me something that ha
 &#x200B;
 
 
-“Sounds to me like we are in for more than just being guards now.” I replied with a pit in my stomach. If something wasn’t sitting right with me at first, there was definitely something weird going on now. I glanced at the monitor with the reinforced door with the two guards armed to the teeth and wondered what could be going on that we don’t know about. Looking back, I should have just found a new gig right then and there.
+I just shrugged, glancing at the monitor showing the new door with two guards armed to the teeth and wondered what could be going on that we don’t know about. Looking back, I should have just found a new gig right then and there.
 
 &#x200B;
 
 
-From here, workers inside buildings A and C were complaining about a buzzing in their ears and having high stress levels. I would sometimes hear strange whirring noises when I would go by the three buildings A, B and C. Not anything from the work here, but more like a tinnitus. I figured that it was some kind of machinery they had in there that caused the ringing, like some kind of emission frequency or something similar. I did see them haul in huge machines and various computers throughout this whole process too, so I can only speculate. Maybe something with the speakers. This only piqued my curiosity even more. Just what the hell are they doing in there? Having a fucking concert?
+That same worker was cleared again for going home early and I would sometimes hear strange whirring noises when I would go by buildings A, B and C. Not anything from the work here, but more like tinnitus. A worker on his break ended up giving me a pair of extra ear plugs. They barely worked. I figured that it was some kind of machinery they had in there that caused the ringing, like some kind of emission frequency or something similar. I did see them haul in huge machines and various computers throughout this whole process too. Maybe something with the speakers. This only piqued my curiosity even more. Just what the hell are they doing in there? Having a fucking concert?
 
 
 
@@ -236,12 +215,7 @@ However, before I could even begin to think about bringing my concerns up to Sam
 &#x200B;
 
 
-The first day I had to work with the extra duty included started off with me spilling coffee all over my work pants causing me to almost be late for once. The construction crews were to be on-site and would remain underneath the building for the next month or so. Sam seemed to be pretty upset about this, and it was earlier confirmed when Ray spoke about the phone call he overheard. I can only assume, at least. There was a huge hole they dug just to the east side of the building and for up to twelve hours a day, we would see the workers doing their thing.
-
-
-
-
-Throughout all of it, I couldn’t really keep tabs on everything they were doing exactly. No, my workload was getting in the way of me trying to catch a look at anything out of the ordinary. Minus this entire crew being here and the special agents, of course.
+The first day I had to work with the extra duty included started off with me spilling coffee all over my work pants causing me to almost be late for once. The construction crews were to be on-site and would remain underneath the building for the next month or so. Sam seemed to be pretty upset about this, and it was confirmed when Ray spoke about the phone call he overheard. There was a huge hole they dug just to the east side of the building and for up to twelve hours a day, we would see the workers doing their thing. Throughout all of it, I couldn’t really keep tabs on everything they were doing exactly.
 
 &#x200B;
 
@@ -251,7 +225,7 @@ As time went on, we were given tasks like helping with maintenance or patrolling
 
 
 
-After a week passed, we got another hire to come in and patrol with me and Ray on the night shifts only. He was a shorter middle-aged guy, really quiet but did his job well and his name was Jeff. I never got any other information about him, but this is around the time where things started to get for lack of a better term; scary.
+After a week passed, we got another hire to come in and patrol with me and Ray on the night shifts only because we needed to do active rounds outside at night now. He was a shorter middle-aged guy, really quiet but did his job well and his name was Jeff. I never got any other information about him, but this is around the time where things started to get for lack of a better term; scary.
 
 &#x200B;
 
@@ -275,7 +249,11 @@ At first, I could only recognize the outline of a shape, but it almost looked li
 &#x200B;
 
 
-Sure enough, I began to see the person crawling on a ledge and eventually made their way to their feet. It was here when I noticed the person was wearing a lab coat. After I frantically searched through binders and folders that might contain the map of the interior, I found it and confirmed there was indeed a roof access staircase inside building B. I looked up to the feed again, still baffled, noticing they began climbing onto the roof. Just then I remembered what that rude agent, Calloway, said to me.
+Sure enough, I began to see the person crawling on a ledge and eventually made their way to their feet. I remembered them saying no one was supposed to leave, let alone be on roof access at a time like this. Was the person taking a smoke break? It was here when I noticed the person was wearing a lab coat. I sighed, maybe they were a scientist just up there having a smoke. 
+
+
+
+Jeff looked up at me from the chair and I kept looking at the feed. He wasn't pulling out any smokes. I felt a chill and decided that something wasn't right. After I quickly searched through binders and folders that might contain the map of the interior, I found it and confirmed there was indeed a roof access staircase inside building B. I looked up to the feed again, still baffled, noticing they began climbing onto the roof. Just then I remembered what that rude agent, Calloway, said to me.
 
 &#x200B;
 
@@ -290,7 +268,16 @@ I grabbed my radio and changed the channel to their frequency.
 &#x200B;
 
 
-“We’ve got a situation; someone is on top of building B!” I shouted over the radio, and I made my way to the door. I looked back to Jeff. “I’ve got this handled, monitor everything here and if things go south, you know what to do!” I unholstered my pistol and Jeff gave me a stern look. He nodded and I got the door open. I sprinted to building B and didn’t stop until I got to the entrance of the building. The armed guards had their rifles aimed up at the top of the building and that’s when I saw him. The person on the roof was holding up some kind of device.
+“Hey, uh, I think you’ve got a situation; someone is on top of building B.” I reported over the radio, and I made my way to the window to look at building B. The radio crackled to life and a commanding voice replied.
+
+
+
+"Negative. Our personnel will investigate. Out."  
+
+
+
+
+I looked back to Jeff and decided on going out there to see if I can assist in any way. They didn't tell me not to just now. I made my way to the door “Maybe something is wrong. Just monitor everything here and if things go south, you know what to do.” I said and Jeff gave me a stern look. He nodded and I got the door open. I jogged to building B and didn’t stop until I got to the entrance of the building. The armed guards had their rifles aimed up at the top of the building and that’s when I saw him. The person on the roof was holding up some kind of device.
 
 &#x200B;
 
@@ -300,7 +287,7 @@ I grabbed my radio and changed the channel to their frequency.
 &#x200B;
 
 
-The man shouted down at us and began laughing like he was on the verge of a mental breakdown. The armed guards had flashlight attachments and were keeping their aim on his torso. Two red dots were focused on his lab attire by the ID tag.
+The man shouted down at us and began laughing like he was on the verge of a mental breakdown. The armed guards had flashlight attachments and were keeping their aim on his torso.
 
 &#x200B;
 
@@ -315,7 +302,7 @@ I was about ten feet away from the commandos and one of them noticed me. “GET 
 &#x200B;
 
 
-Another operative must have gotten up there. My heart sank when the spray of crimson misted in the air as the hole burst through the man's forehead. His arms went to his sides, and he slumped forward, falling the two stories into a crumpled heap on the ground in front of the soldiers. The device the man was holding lay broken in pieces on the concrete next to the blood that began pooling around his body. My eyes went wide with fear, and I couldn’t stop my heart from pounding. I’ve seen death before, many times... But the context here had me questioning my reality.
+Another operative must have gotten up there. My heart sank when the spray of crimson misted in the air as the hole burst through the man's forehead. His arms went to his sides, and he slumped forward, falling the two stories into a crumpled heap on the ground in front of the soldiers. The device the man was holding lay broken in pieces on the concrete next to the blood that began pooling around his body. My eyes went wide with fear, and I couldn’t stop my heart from pounding. 
 
 &#x200B;
 
@@ -336,21 +323,21 @@ I should have left. I should have said to hell with the money and gone home, but
 &#x200B;
 
 
-“STAY WHERE YOU ARE!” He shouted and I kept my hands up with the gun dangling from my finger. “Easy! I’m not a threat!” I tried pleading with this guy and did my best to keep my gaze fixed on the gas mask the operative was wearing. It was here where a constant flood of intrusive thoughts invaded my mind. Who was that scientist talking about? Who is on their way? Could they hear the ringing too? Was their gear suppressing them from hearing it? Was I being exposed to radiation? Are these guys even Military? Now I had this sudden urge to draw my pistol and fire upon them but what good would that even do?
+“STAY WHERE YOU ARE!” He shouted and I kept my hands up with the gun dangling from my finger. “Easy! I’m not a threat!” I tried pleading with this guy and did my best to keep my gaze fixed on the gas mask the operative was wearing. It was here where a constant flood of thoughts invaded my mind. Who was that scientist talking about? Who is on their way? Could the armed men hear the ringing too? Was their gear suppressing them from hearing it? Was I being exposed to radiation? Are these guys even Military?
 
 &#x200B;
 
 
-“DROP YOUR WEAPON SLOWLY!” He barked and I slowly put my pistol on the cold pavement. If I was going to do anything right, I had to stay alive and play along with their demands.
+“DROP YOUR WEAPON SLOWLY!” He barked and I slowly put my pistol on the cold pavement. If I was going to survive, I had to stay alive and play along with their demands.
 
 &#x200B;
 
 
-To keep things as short as I possibly can, I was rushed back to the guards building and told to stay put until they finished handling the situation. We were told to not call for authorities, as a unit was already on its way for medical care. A soldier remained inside the guards building with us until our shift ended. However, we did not get to go home and nobody else came in to work that day... It was at this point where the entire facility had been officially taken over and captured by a renegade force that snuck their ranks into the United States Government and posed as anything other than a threat to humankind.
+I was rushed back to the guards building and told to stay put until they finished handling the situation. We were told to not call for authorities, as a unit was already on its way for medical care. A soldier remained inside the guards building with us until our shift ended. However, we did not get to go home and nobody else came in to work that day...
 
 &#x200B;
 
 
-The commandos were already freaky enough, I should have known better than to sit back and allow this to happen, but it was already too late. My gun was left outside and undoubtedly taken by them. The jig was up, and Jeff and I were taken hostage inside the guard's office.
+The commandos were already freaky enough, I should have known better than to sit back and allow this to happen, but it was already too late. My gun was left outside and undoubtedly taken by them. The jig was up, and Jeff and I were suddenly taken hostage inside the guard's office.
 
 [PART TWO (Final)](https://www.reddit.com/r/nosleep/comments/10odtop/i_was_hired_as_a_security_guard_to_protect_a/?utm_source=share&utm_medium=web2x&context=3)

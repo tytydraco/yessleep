@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/10es8p7/last\_summer\_i\_opened\_an\_adventure\_park\_it/?utm\_source=share&utm\_medium=ios\_app&utm\_name=iossmf)
+
 Have you ever seen *We Bought A Zoo*? I used to love that film. I repeatedly watched it when I was a kid, and I truly envied Matt Damon. I wanted to be him. Maybe I just wanted Scarlett Johansson. I don’t know. I’m getting sidetracked.
 
 I was once transfixed by the pristine Polaroid of the American dream that *We Bought A Zoo* created, even though the story was based on a British family. Maybe Hollywood should purchase the rights to *my* tale of a dilapidated park’s renovation. I’ve a hunch it might not reach the pitching floor.
@@ -74,4 +76,8 @@ What truly haunts me is that one of the responding officers, who is a friend of 
 
 The park closed as the result of *many* horrifying incidents. I’ll post about other terrible things that happened. That being said, I don’t know whether I have the courage to tell the tale of the straw that broke the camel’s back.
 
-[I’m also not sure that you would *want* to know it.](https://www.reddit.com/r/nosleep/comments/10es8p7/last\_summer\_i\_opened\_an\_adventure\_park\_it/?utm\_source=share&utm\_medium=ios\_app&utm\_name=iossmf)
+I’m also not sure that you would *want* to know it.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/10es8p7/last\_summer\_i\_opened\_an\_adventure\_park\_it/?utm\_source=share&utm\_medium=ios\_app&utm\_name=iossmf)
+
+[X](https://www.reddit.com/r/dominiceagle)

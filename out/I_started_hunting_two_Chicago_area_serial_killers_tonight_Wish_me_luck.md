@@ -1,12 +1,12 @@
-For some time now, bodies have been found and subsequently pulled from the waterways of Chicago. The Chicago River and Lake Michigan both, have been the frequent sites of multiple body recovery operations. To a lesser degree, the Des Plaines River, has also seen a share of the death in the greater Chicago area. And it is not just the waterways, the city itself has had a rough go of it for a long time. The city has also had more than a fair share of serial killers over time. From the infamous, H.H. Holmes, to the despicably evil, John Wayne Gacy. Throughout time their have been many a serial killer to roam about the streets of Chicago, Illinois. 
+For some time now, bodies have been found and subsequently pulled from the waterways of Chicago. The Chicago River and Lake Michigan both, have been the frequent sites of multiple body recovery operations. To a lesser degree, the Des Plaines River, has also seen a share of the death in the greater Chicago area. And it is not just the waterways, the city itself has had a rough go of it for a long time. The city has also had more than a fair share of serial killers over time. From the infamous, H.H. Holmes, to the despicably evil, John Wayne Gacy. Throughout time their have been many a serial killer to roam about the streets of Chicago, Illinois.
 
 &#x200B;
 
-Two months ago, I made my mind up and then packed up what I would need for an extended time away from home. I loaded up the truck and off I went, on my way, along the highways of America, from the far south of Florida, to the northwest, to Chicago. I decided to begin an adventurous, and possibly quite dangerous endeavor, an attempt to assist in the location and capture of one or more of the Chicago area serial killers. There is definitely, at the least, two of them, of that I am sure. And they have had Chicago in their grip of fear for a long time. 
+Two months ago, I made my mind up and then packed up what I would need for an extended time away from home. I loaded up the truck and off I went, on my way, along the highways of America, from the far south of Florida, to the northwest, to Chicago. I decided to begin an adventurous, and possibly quite dangerous endeavor, an attempt to assist in the location and capture of one or more of the Chicago area serial killers. There is definitely, at the least, two of them, of that I am sure. And they have had Chicago in their grip of fear for a long time.
 
 &#x200B;
 
-The first of them, dubbed and known to law enforcement as, The Chicago Strangler, is likely responsible for up to fifty unsolved strangulations since the year 2000 or so. And the other, an unnamed shadow, a nobody, that could be anybody, is likely responsible for the deaths of many young men and a few young women in the Chicago area. Most of which were young adults, and more than a few, were known to have visited clubs or bars in the River North nightlife district area of the city. 
+The first of them, dubbed and known to law enforcement as, The Chicago Strangler, is likely responsible for up to fifty unsolved strangulations since the year 2000 or so. And the other, an unnamed shadow, a nobody, that could be anybody, is likely responsible for the deaths of many young men and a few young women in the Chicago area. Most of which were young adults, and more than a few, were known to have visited clubs or bars in the River North nightlife district area of the city.
 
 &#x200B;
 
@@ -22,19 +22,19 @@ I intended to observe from the shadows of the clubs and bars, watching and waiti
 
 &#x200B;
 
-The likelihood of the alleged and purported serial killer, still operating in the River North area, is far more likely than finding the person responsible for the strangulations that have plagued Chicago for so long. That person could be anywhere and hasn't been tied to any particular geological location or area. This one has fortunately, and there is always the chance that because of this, they may have moved on to a different hunting ground. But why change what has been working for you right? This area has been the perfect hunting grounds for this particular killer and I imagine they will continue to exploit that as long as they possibly can. 
+The likelihood of the alleged and purported serial killer, still operating in the River North area, is far more likely than finding the person responsible for the strangulations that have plagued Chicago for so long. That person could be anywhere and hasn't been tied to any particular geological location or area. This one has fortunately, and there is always the chance that because of this, they may have moved on to a different hunting ground. But why change what has been working for you right? This area has been the perfect hunting grounds for this particular killer and I imagine they will continue to exploit that as long as they possibly can.
 
 &#x200B;
 
-I was going to go into the Tunnel tonight, but I decided to switch it up and start in the Underground Cocktail Club. I'll be heading in here in just a minute, after I finish smoking this cigarette. It's a shit habit I know, but I do love it so. I'm sorry but my nerves are fried already and I haven't even made it inside yet. I don't want to go in jumpy or looking like some kind of scared kitten setting in the corner of the bar. The cat lady that slammed up against my driver's side rear window sent me over the edge. 
+I was going to go into the Tunnel tonight, but I decided to switch it up and start in the Underground Cocktail Club. I'll be heading in here in just a minute, after I finish smoking this cigarette. It's a shit habit I know, but I do love it so. I'm sorry but my nerves are fried already and I haven't even made it inside yet. I don't want to go in jumpy or looking like some kind of scared kitten setting in the corner of the bar. The cat lady that slammed up against my driver's side rear window sent me over the edge.
 
 &#x200B;
 
-Head down and absorbed in writing this, I wasn't paying the proper amount of attention to my surroundings. Some lady with a cat in her arms slammed her body up against my car at the rear driver's side of the truck and hollered something undecipherable. It scared the hell out of me I'm not going to lie. As she wandered on down the sidewalk mumbling obscenities I believe, she struck me as crazy. But then who am I to pass judgement or assume her mental capabilities. She definitely was strange though, and she definitely scared the shit out of me. 
+Head down and absorbed in writing this, I wasn't paying the proper amount of attention to my surroundings. Some lady with a cat in her arms slammed her body up against my car at the rear driver's side of the truck and hollered something undecipherable. It scared the hell out of me I'm not going to lie. As she wandered on down the sidewalk mumbling obscenities I believe, she struck me as crazy. But then who am I to pass judgement or assume her mental capabilities. She definitely was strange though, and she definitely scared the shit out of me.
 
 &#x200B;
 
-I'm going to use my phone to update you all periodically as I go along. Publishing the finished post at the end of the night. Hopefully that way, all of you will be informed as I move along, and if anything should happen to me, there will be a record of my movements for law enforcement to follow. I will post once a night from here on out, twice a day if possible, as much as possible for sure, but I will document as much as I possibly can every time. Anyone that seems suspicious, anything that seems out of the ordinary, if I notice anything worth noting I will write it down and share it immediately. 
+I'm going to use my phone to update you all periodically as I go along. Publishing the finished post at the end of the night. Hopefully that way, all of you will be informed as I move along, and if anything should happen to me, there will be a record of my movements for law enforcement to follow. I will post once a night from here on out, twice a day if possible, as much as possible for sure, but I will document as much as I possibly can every time. Anyone that seems suspicious, anything that seems out of the ordinary, if I notice anything worth noting I will write it down and share it immediately.
 
 &#x200B;
 
@@ -42,7 +42,7 @@ Ever since last weekend, I have been a little spooked, I have been trying to tak
 
 &#x200B;
 
-And just to document my reasons for being, "spooked", as of late. I want to share a few other things really quick. There is a man, early but possibly in his mid thirties, dark hair and eyes, six feet in height, that has come into the Underground every other night for the past three weeks. Well dressed and obviously has money, always buying rounds for people at the club. He has a habit of sorts of approaching singles at the bar and striking up conversations, buying them drinks until he strikes out at the end of the night. I keep wondering about him in particular, I've even had two nightmares about dark not quite shapes hovering over me in my sleep. And I swear every time I've awoken from that nightmare I have thought of that man at the bar. Why I do not know, but something about him just rubs me the wrong way. The thought that he could be the serial killer stalking the area, and that he's just out here like that trying people at the clubs every night is terrifying, sobering even.
+And just to document my reasons for being, "spooked", as of late. I want to share a few other things really quick. There is a man, early, possibly mid thirties, dark hair and eyes, six feet in height, that has come into the Underground every other night for the past three weeks. Well dressed and obviously has money, always buying rounds for people at the club. He has a habit of sorts of approaching singles at the bar and striking up conversations, buying them drinks until he strikes out at the end of the night. I keep wondering about him in particular, I've even had two nightmares about dark not quite shapes hovering over me in my sleep. And I swear every time I've awoken from that nightmare I have thought of that man at the bar. Why I do not know, but something about him just rubs me the wrong way. The thought that he could be the serial killer stalking the area, and that he's just out here like that trying people at the clubs every night is terrifying, sobering even.
 
 &#x200B;
 
@@ -58,7 +58,7 @@ Update: #1. It is now 10:58pm and I am just finishing up my second beverage of t
 
 &#x200B;
 
-Update: Its 11:44. The man from before is here now. I've probably had one too many too fast, but I'm still gonna keep my eye on him from the back booths of the bar. Hopefully it won't be too painfuly obvious, I dont want to spoook him in any way or tip him off that I am watching. 
+Update: Its 11:44. The man from before is here now. I've probably had one too many too fast, but I'm still gonna keep my eye on him from the back booths of the bar. Hopefully it won't be too painfuly obvious, I dont want to spoook him in any way or tip him off that I am watching.
 
 &#x200B;
 
@@ -74,7 +74,7 @@ Update. We are leaving the bar now. Walking to their mini van. They parked just 
 
 &#x200B;
 
-So where to begin, I guess I'll start with the hospital. I woke up in the hospital this afternoon, and I had no idea how I ended up there. It has started to come back to me, and this unposted writing has helped put everything back into perspective and back on a timeline. The last thing I really remember was opening the sliding back door on a mini van before everything went black. If it wasn't for a bystander, and coincidentally the man that helped me, was the same man I was watching like a hawk in the bar that night. Him and his boyfriend I guess you would say, or his guy friend. I don't know about that, what I do know is the two of them were apparently leaving the bar just after we left. And they happened to hear a sound like a yell from just up the road and came quickly to see if something visually coincided with what they had heard. 
+So where to begin, I guess I'll start with the hospital. I woke up in the hospital this afternoon, and I had no idea how I ended up there. It has started to come back to me, and this unposted writing has helped put everything back into perspective and back on a timeline. The last thing I really remember was opening the sliding back door on a mini van before everything went black. If it wasn't for a bystander, and coincidentally the man that helped me, was the same man I was watching like a hawk in the bar that night. Him and his boyfriend I guess you would say, or his guy friend. I don't know about that, what I do know is the two of them were apparently leaving the bar just after we left. And they happened to hear a sound like a yell from just up the road and came quickly to see if something visually coincided with what they had heard.
 
 &#x200B;
 

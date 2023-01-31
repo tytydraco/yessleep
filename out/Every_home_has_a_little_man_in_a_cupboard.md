@@ -133,3 +133,5 @@ Plus, witness accounts mentioned sounds of a struggle emanating from Anna’s ap
 Anna’s parents held a small memorial ceremony at their house last night. Why am I mentioning this? Why isn’t the story over? Well, Anna’s father commented on finding something in a cluttered cabinet. A dollhouse man. The figurine was sitting on a pile of old books. There was no minuscule door that I could’ve warned Anna’s father to avoid. It was too late. The little man was in the middle of the vast, empty storage space. He was looking away from us.
 
 You know to avoid cupboard-cupboards, but *no* cupboard can safely be opened. The little man can visit anyone, anywhere, at any time. He hides in every home.
+
+[X](https://www.reddit.com/r/dominiceagle)
