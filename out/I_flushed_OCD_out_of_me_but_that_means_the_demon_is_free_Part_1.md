@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/10pl61f/i_flushed_ocd_out_of_my_head_but_that_means_the/)
+
 My name is Darryl, and I am the unluckiest man on Earth. That might sound facetious, but I mean it. Minor and major misfortunes have befallen me at every juncture of my life. Woe is me, right?
 
 I truly believe that the darkness at the centre of the Universe must be to blame. Have you ever seen it? Do you know its face? I have nightmares about the blackness that governs us all.
@@ -139,5 +141,7 @@ Every time I see r/nosleep posts about entities and rules, I wonder whether it m
 I’m sorry.
 
 Worst of all, that isn’t even the end of that horrors that took place at Aaron Colt’s mansion. It’s barely the start.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/10pl61f/i_flushed_ocd_out_of_my_head_but_that_means_the/)
 
 [X](https://www.reddit.com/r/dominiceagle/)

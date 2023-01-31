@@ -62,4 +62,4 @@ The old block collapsed and I was just a chip.  Nothing more than a measly crum
 
 So maybe it's best that I have Dad's syringe with me.
 
-While I'm miles away, I would much rather be smiling.
+While I'm miles away, I would much rather be [smiling](https://www.reddit.com/r/nosleep/comments/zpkshp/i_was_almost_his_girl/?utm_source=share&utm_medium=ios_app&utm_name=iossmf).
