@@ -167,7 +167,7 @@ Stunned, I stood there for a moment thinking of what could have happened, so I r
 &#x200B;
 
 
-Still jogging, I saw that he was already approaching his vehicle and getting in, so I slowed down and eventually stopped. Phil was flagged and he got the gate opened for him. It looked like the guy was shouting at Phil in his car to hurry up. I was standing near the edge of where the parking lot meets the property and Phil noticed me. I could see he looked at me frowning, shrugging his shoulders. When I asked one of the supervisors about it later, he informed me that he couldn't tell me. He marked something down in his work log and looked up at me.
+Still jogging, I saw that he was already approaching his vehicle and getting in, so I slowed down and eventually stopped. Phil was flagged and he got the gate opened for him. It looked like the guy was shouting at Phil in his car to hurry up. I was standing near the edge of where the parking lot meets the property and Phil noticed me. I could see he looked at me frowning, shrugging his shoulders. When I asked one of the supervisors about it later, he informed me that he couldn't tell me why he left and I didn't ask any further questions. He marked something down in his work log and looked up at me.
 
 &#x200B;
 
