@@ -1,4 +1,4 @@
- I have some issues with where I live, as do most people, but no matter how loud the neighbors are late into the night, how small my property seems, how much money I make, how many times I’ve wanted to move away and start over, I just can’t bring myself to do it. I could never leave this place.
+I have some issues with where I live, as do most people, but no matter how loud the neighbors are late into the night, how small my property seems, how much money I make, how many times I’ve wanted to move away and start over, I just can’t bring myself to do it. I could never leave this place.
 
 The mission-style terracotta shingles on the roofs, the little parking lots for all the different home groupings, the freshly mowed patches of grass along the sidewalks. It's a beautiful little apartment complex, tucked away from the city so all the families and children can walk and play in peace.
 
@@ -8,13 +8,13 @@ Sometimes, though, sometimes they’ll lock eyes. Sometimes they'll even talk to
 
 And stuffed in the corner of the smooth asphalt parking lot, there’s a little shed. A little chain link fence shed, with faux wood woven tightly through the holes in striated lines. And in that little shed there's a dumpster, a massive metal sarcophagus: a place of rest for all the unwanted things.
 
-They hate it. They hate how it smells, how it looks, how it holds everything they don’t want—but still, they’ll go. One at a time, to cleanse themselves and their homes. They’ll open up that shed and throw in their bulging bags and overspilling boxes, and they’ll spit at it with a furrowed frown before slamming the black lid down again. But still, they’ll go. 
+They hate it. They hate how it smells, how it looks, how it holds everything they don’t want—but still, they’ll go. One at a time, to cleanse themselves and their homes. They’ll open up that shed and throw in their bulging bags and overspilling boxes, and they’ll spit at it with a furrowed frown before slamming the black lid down again. But still, they’ll go.
 
-But there’s more than just the acrid rubble and pieces and remains of materials in that big metal box; for, at its basin, there lies a little man. A little emaciated man of considerable height, folded up and crammed out of sight like a rejected Christmas present. His long and gangly limbs curl inward like the legs of a dead spider so that the joints meet his chest, and skeletal ridges bulge beneath his skin of a cadaverous white. 
+But there’s more than just the acrid rubble and pieces and remains of materials in that big metal box; for, at its basin, there lies a little man. A little emaciated man of considerable height, folded up and crammed out of sight like a rejected Christmas present. His long and gangly limbs curl inward like the legs of a dead spider so that the joints meet his chest, and skeletal ridges bulge beneath his skin of a cadaverous white.
 
-When the mountainous hoard of stained plastics, tainted materials, and unwanted toys and food isn’t frantically built up to cover his body, you can see how his chest swells and recedes in a labored tempo. And his eyes forever open, you can get a glimpse of how the milky cornea blends the iris into the fleshy white like those of a drowned corpse. His arms clutch a tattered stuffed bear to his chest, a dearly held memento from a distant time, a time when perhaps he had a name and when his eyes perhaps glimmered with a vibrant green. 
+When the mountainous hoard of stained plastics, tainted materials, and unwanted toys and food isn’t frantically built up to cover his body, you can see how his chest swells and recedes in a labored tempo. And his eyes forever open, you can get a glimpse of how the milky cornea blends the iris into the fleshy white like those of a drowned corpse. His arms clutch a tattered stuffed bear to his chest, a dearly held memento from a distant time, a time when perhaps he had a name and when his eyes perhaps glimmered with a vibrant green.
 
-But now he rots beneath the smothering weight of waste where a lost sense of hope atrophies alongside spoiled meat and decomposing fruit, ensnared in the strings which once made him dance. 
+But now he rots beneath the smothering weight of waste where a lost sense of hope atrophies alongside spoiled meat and decomposing fruit, ensnared in the strings which once made him dance.
 
 Now he’s alone. A little man who lay discarded, nailed to a cross of his own inadequacy and his scoffed and doubted ambitions. “The only Christ he could ever deserve” they’ll say with a tinge of contempt as he festers until the worms and putrid life consume his body and thoughts only to excrete them later on as more waste.
 
@@ -22,11 +22,11 @@ But I feel pity for him. I'll pull the blinds open with my finger to see that li
 
 I can hardly stomach the sight of my neighbors as they violently strike their trash upon him and spit at whatever part of his body lies exposed. I think about that bear he holds so close to his drawn and dwindling heart, how its tattered fur once bore the cleanliness of a new toy when it was given to him so long ago.
 
-But I still need to take out the trash. It weighs on me, though I can’t let them know, I can’t diverge from the rule they’ve created and upheld. 
+But I still need to take out the trash. It weighs on me, though I can’t let them know, I can’t diverge from the rule they’ve created and upheld.
 
 So when the time comes and I shamble into the hallway, lugging behind a sack of garbage like an offering, I smother my pity like a fragile puppy wrapped and strangled in a blanket. It's a little thing but, no matter how hard I squeeze, I can always feel it twitching.
 
-Sometimes I’ll see a neighbor walk by and sometimes they’ll say something callous about the little man at the bottom of the bin. Somewhere inside, tucked out of my reach, I can feel that puppy gain a bit of strength as he yelps and kicks his little leg in defiance. But I just squeeze my hands tighter until he goes quiet again, and I smile before shooting back another shameful remark.
+Sometimes I’ll see a neighbor walk by and sometimes they’ll say something callous about the little man at the bottom of the bin. Somewhere inside, tucked nearly out of my reach, I can feel that puppy gain a bit of strength as he yelps and kicks his little leg in defiance. But I just squeeze my hands tighter until he goes quiet again, and I smile before shooting back another shameful remark.
 
 And when I step to the dumpster with my bags, like an ax soon to befall the chopping block, I herd my thoughts and composure with the same precision of the eyes at my back. The guilt bubbles and churns within, but I always manage to make it fizzle out for a moment as I fling open the plastic lid and bludgeon him like an insect.
 
@@ -38,7 +38,7 @@ The droning hum of flies soon dispersed and he was left truly alone as he always
 
 A grin widened across my face as the sound of joy—true joy—wafted through my window. Could this place finally become the haven it was set out to be? I reminisced of my own youth, all the time I spent playing outside, and rejoiced in the possibility that the kids here could finally start having a normal childhood away from all the bitterness.
 
-A thunderous crash rang out and pulled me from my thoughts. A piercing slam into a hollowed metallic surface, reverberating like a quivering cry for help. My smile dropped and I rushed to the window, fear held my breath. Had they gotten carried away and hurt themselves? 
+A thunderous crash rang out and pulled me from my thoughts. A piercing slam into a hollowed metallic surface, reverberating like a quivering cry for help. My smile dropped and I rushed to the window, fear held my breath. Had they gotten carried away and hurt themselves?
 
 Through the glass I could see all three boys outside, unscathed. They were smiling as their joyous shouting and laughing would’ve suggested, but I felt no relief. My fear merely mutated into anger. The dumpster lid had been hurled open by the children, who couldn’t have been taller than the dumpster itself.
 
@@ -54,7 +54,7 @@ The boys stumbled back as it pulled apart and they ran away, screaming, dropping
 
 I stepped up and brushed my knees clean before making my way to the open dumpster. Sunlight pooled in, soaking the little man’s pale skin and I noticed how his eyes were closed now, a look of sorrow stained across his face.
 
-I wrapped my fingers on the flaky metal rim and lifted myself up before kicking a leg over. The crash of my feet against the metal was deafening on the inside, and I cupped my hands over my ears as the vibrations against my soles rang out through the floor and walls. 
+I wrapped my fingers on the flaky metal rim and lifted myself up before kicking a leg over. The crash of my feet against the metal was deafening on the inside, and I cupped my hands over my ears as the vibrations against my soles rang out through the floor and walls.
 
 His chest would rise and fall as it did before, but hardly enough to notice by now. The flames had been smothered long ago and he had been left with only their remains, slowly flickering out. But a lone ember fizzled and crackled within. I hunched over his spindling frame and rested my hands around that scrawny throat.
 

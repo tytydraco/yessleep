@@ -3,7 +3,7 @@
 &#x200B;
 
 
-They decided to stand their ground in this place and eventually had helicopters buzzing in to deploy more of these commandos under their order within twenty minutes. They must have been on standby in case of something going sour like this. That scientist had somehow given their location up and risked his life to do so. I saw the commandos stationed all over the building, inside and out. Snipers and men with RPG’s were positioned in elevated places. They had more than enough weapons to start a small war. How I now know all of this information is because after the man on the roof was killed, an attack occurred, and I got myself inside building B. 
+It was at this point where the entire facility had been taken over by this group. They had helicopters buzzing in to deploy more of these commandos under their order within twenty minutes. I know the sounds of a deployment pretty well, they had to have had commandos stationed all over the building by now, inside and out. I ventured even snipers and men with RPG’s being positioned in elevated places. They were preparing for a battle.
 
 &#x200B;
 
@@ -14,12 +14,12 @@ Here’s what happened.
 &#x200B;
 
 
-Three days passed and it was Christmas eve when the people took over the guard's office and made it one of their communications centers. I overheard everything these people would shout to their headquarters. We were in zip-ties and placed in the locker room. We were kept hydrated and fed sometimes and Jeff was actually still quiet throughout this. I did my best to tell him that help will be here soon and to try and relax, although it really didn’t seem to faze him. We were basically P.O.W.’s at this point and I was probably a little more frightened than he was. I had to be quiet because one guy was really rude to us for no good reason. Telling us that we are going to die here and trying to frighten us. We were already helpless. However, I noticed a quick lack of morale with a couple of the soldiers. They knew they were in for it and the actual military would be here probably any minute. 
+Three days passed and it was Christmas eve when the people took over the facility. We were in zip-ties and placed in the locker room. Commandos would periodically watch over us. We were kept hydrated and fed sometimes and Jeff was actually still quiet throughout this. I did my best to tell him that help will be here soon and to try and relax, although it really didn’t seem to faze him. We were basically P.O.W.’s at this point and I was probably a little more frightened than he was. I had to be quiet because one guy was really rude to us for no good reason. Telling us that we are going to die here and trying to frighten us. We were already helpless. However, I noticed a quick lack of morale with a couple of the soldiers. They knew they were in for it and the actual military would be here probably any minute. 
 
 &#x200B;
 
 
-“If it wasn’t for that guy esca-” One of them stopped himself and cleared his throat. 
+“If it wasn’t for that guy esca-” One of them stopped himself and cleared his throat while the other commando remained quiet. 
 
 &#x200B;
 
@@ -34,12 +34,12 @@ Christmas rolled around. There was heavy snowfall and their command stated that 
 &#x200B;
 
 
-“FUCK!” I heard the one guy shout then looked over to us. “If you know what’s good for you, I’d hide somewhere.” The other guy scrambled out without a word. “Man, screw you guys! I should just kill you both right now!” But he didn’t. He stood there and stared at us with his hands trembling. He screamed out and took off to fulfill his orders. Jeff and I were petrified in stone. They only used zip-ties so we could easily escape with one of the pairs of scissors on the metal desk. I remember thinking about just running but I valued my life and decided on staying inside this building. We got ourselves free with the scissors and stood for a moment.
+“FUCK!” I heard the one guy shout then looked over to us. “If you know what’s good for you, I’d hide somewhere.” The other guy scrambled out without a word. “Man, screw you guys! I should just kill you both right now!” But he didn’t. He stood there and stared at us with his hands trembling. He screamed out and took off to fulfill his orders. Jeff and I were petrified in stone. They only used zip-ties so we easily escaped. I remember thinking about just running but I valued my life and decided on staying inside this building. We got ourselves free and stood for a moment.
 
 &#x200B;
 
 
-“Let’s barricade ourselves in! What if something happens and we have to call for help?” Jeff, for once, said to me in a surprisingly low tone and we both frantically began bombarding the door using the metal desk, the fridge and filing cabinets. The two of us were strong enough to get a good blockade up. There was no time to even think, we kept finding more items to put against the door until we definitely had enough weight to hold. At least for a while. 
+“I don't know what the hell is going on. Let’s barricade ourselves in! We don't stand a chance out there. What if something happens and we have to call for help?” Jeff, for once, said to me in a surprisingly low tone and we both frantically began bombarding the door using the metal desk, the fridge and filing cabinets. The two of us were strong enough to get a good blockade up. There was no time to even think, we kept finding more items to put against the door until we definitely had enough weight to hold. At least for a while. 
 
 &#x200B;
 
@@ -64,7 +64,7 @@ The locker room was a small space in the building, and I yelled for Jeff to get 
 &#x200B;
 
 
-A single window shattered then, we got moving while ducking and holding our heads. Having no other choice, we opened the lockers closest to us and squeezed in, getting as low as possible. The suffocating dread was persistently clocking down more minutes of my life no doubt. The gunfire and explosions outside were enough to drive anyone mad, but being trapped in a metal coffin on top of it was not on my bucket list. Needless to say, we were trapped regardless and just needed to wait this out. I could see through the metal vents in the locker some of the monitor displaying the battle in full effect. I had a clear view of three and even watched as some of the men were fighting each other with close range weapons as well. 
+A single window shattered then, we got moving while ducking and holding our heads. Having no other choice, we opened the lockers closest to us and squeezed in, getting as low as possible. The suffocating dread was persistently clocking down more minutes of my life no doubt. The gunfire and explosions outside were enough to drive anyone mad, but being trapped in a metal coffin on top of it was not on my bucket list. Needless to say, we were trapped regardless and just needed to wait this out.
 
 &#x200B;
 
@@ -74,7 +74,7 @@ After some time, the gunfire died down and we would only occasionally hear a pop
 &#x200B;
 
 
-I’d say, about ten minutes passed then. A total of forty-five minutes was how long the fighting went on for. The odds, for whatever reason, seemed to be evenly matched. This was a quick and brutal battle. Getting a closer look at things as the feed was recording everything, we noticed just how many commandos they really had. How the hell they managed to station hundreds of armed men in that facility, I have no knowledge of.
+I’d say, about ten minutes passed then. I don't know how long the fighting went on for. I hadn't even thought to check the time. The odds, for whatever reason, seemed to be evenly matched. This was a brutal battle. Getting a closer look at things as the feed was recording everything, we noticed just how many commandos they really had. How the hell they managed to station hundreds of armed men in that facility, I have no knowledge of.
 
 &#x200B;
 
@@ -89,12 +89,12 @@ With ease, this beast of a man tossed the soldier aside like he was an empty bot
 &#x200B;
 
 
-“How in the fuck is that possible!” I remember saying out loud. Just then the brute snapped his head to his left. As if in response to me speaking. I remember almost letting myself go right then and there, looking over at Jeff briefly as he looked back with shocked expressions on our faces. Before I could even react, the man was no longer on the camera feed. “Oh god, please help us.” Jeff whispered and I noticed him clearly shivering. I felt a horrible chill too and thought about getting in the locker again. I raised my arm and pointed to them, and he nodded to me. We quickly got inside the lockers again and kept the stun baton in our grasp. Seconds passed. More time passed. Suddenly, there was a burst of loud banging on the door, and I mean, loud. As I type this my hands tremble. The way I felt then... God, if you only knew.
+“How in the fuck is that possible!” I remember saying out loud. Just then the brute snapped his head to his left. As if in response to me speaking. I remember almost letting myself go right then and there, looking over at Jeff briefly as he looked back with shocked expressions on our faces. Before I could even react, the man was no longer on the camera feed. “Oh god, please help us.” Jeff whispered and I noticed him clearly shivering. I felt a horrible chill too and thought about getting in the locker again. I raised my arm and pointed to them, and he nodded to me. We quickly got inside the lockers again and kept the stun baton in our grasp. Seconds passed. More time passed. Suddenly, there was a burst of loud banging on the door, and I mean, loud. As I type this my hands tremble.
 
 &#x200B;
 
 
-One of the windows burst and a rain of shattered glass poured inside, I closed my eyes and felt the ground shake. There is no other way to describe this, but I heard something awful as this happened. There was this horrible squelching noise, as if something long and wet were writhing and reaching for something inside the office. Whatever it was, it was making contact with things inside of there. It even rustled the locker a bit. I was keeping my eyes tightly shut and after another few seconds, I was brave enough to open my eyes and try to get a peek out of the vent. There were these red shapes appearing outside the small cracks. I couldn’t quite see it all but eventually the lights went out, most likely from this thing breaking all of the bulbs and probably the monitors. I began to hear this raspy breathing through the wreckage, as if coming from a ravenous maw. I braced myself and stopped moving entirely. In an instant, everything just stopped. I tried my best to cover my mouth and breathe through little air pockets in my gloves, because I was basically hyperventilating. I’m honestly surprised my heart hadn’t burst then. I almost wished it had, looking back.
+One of the windows burst and a rain of shattered glass poured from somewhere inside. More glass broke and I closed my eyes and felt the ground shake. There was this horrible squelching noise, as if something long and wet were writhing and reaching for something inside the office. Whatever it was, it was making contact with things inside of there. It even rustled the locker a bit. I was keeping my eyes tightly shut and after another few seconds, I was brave enough to open my eyes and try to get a peek out of the vent. There were these red shapes appearing outside the small cracks. I couldn’t quite see it all but eventually the lights went out, most likely from this thing breaking all of the bulbs and probably the monitors. I began to hear this raspy breathing through the wreckage, as if coming from a ravenous maw. I braced myself and stopped moving entirely. In an instant, everything just stopped. I tried my best to cover my mouth and breathe through little air pockets in my gloves, because I was basically hyperventilating. I’m honestly surprised my heart hadn’t burst then. I almost wished it had, looking back.
 
 &#x200B;
 
@@ -146,7 +146,7 @@ Once inside, we found out quickly just how awful this atrocity was. Not only wer
 &#x200B;
 
 
-The addition was dug out deep below and made into this make-shift science lab. Wires and bulbs that were connected hung up haphazardly to keep the light illuminating the entire area. I could see those large speakers embedded into the rocky walls. Multiple instruments and machines buzzed or malfunctioned but were neatly stacked in an area. There was a large operating table with bolted down reinforced shackles that lay broken to the side of it. More blood and even glass was littered around this area. I even picked up a few documents on the ground, but most were stepped on or covered in filth or blood to even be legible. Scientists and soldiers, both our military and their commandos were all dead. I was speechless. There were no words to even be said at all. We just walked into something straight out of a horror film. 
+The addition was dug out deep below and made into this make-shift science lab. Wires and bulbs that were connected hung up haphazardly to keep the light illuminating the entire area. I could see those large speakers embedded into the rocky walls. Sparks flew from multiple instruments and machines that buzzed or malfunctioned but were neatly stacked in certain areas. There was a large operating table with bolted down reinforced shackles that lay broken to the side of it. More blood and glass were littered around this area. I even picked up a few documents on the ground, but most were stepped on or covered in filth or blood to even be legible. Scientists and soldiers, both our military and their commandos were all dead. I was speechless. There were no words to even be said at all. We just walked into something straight out of a horror film. 
 
 &#x200B;
 
@@ -166,12 +166,12 @@ He sputtered and blood flew from his mouth, trying to say something to me and I 
 &#x200B;
 
 
-I quickly registered the situation and called out to Jeff, rushing over to the soldier while aiming around to see if anyone else was around, almost in tears at this point. I finally got to him and steadied the soldier in my arms noticing his rank. He was the captain for this platoon. Jeff quickly made it over and the soldier was reaching for his face mask. Jeff then took off the soldier's helmet and face mask for him with ease. There was blood pooling out of his mouth, and he also had severe wounds to the abdomen. Some of the blood got onto my coat and hands, but I didn’t care. I needed to hear this man's last words now or it would be too late. He put his life on the line for THIS.
+I quickly registered the situation and called out to Jeff, rushing over to the soldier while aiming around to see if anyone else was around, almost in tears at this point. I finally got to him and steadied the man in my arms noticing his rank. He was the captain for this platoon. Jeff quickly made it over and the soldier was reaching for his face mask. Jeff then took off the soldier's helmet and face mask for him with ease. There was blood pooling out of his mouth, and he also had severe wounds to the abdomen. Some of the blood got onto my coat and hands, but I didn’t care. I needed to hear this man's last words now or it would be too late. He put his life on the line for THIS.
 
 &#x200B;
 
 
-“Can you speak?” I asked the wounded soldier, and he was still coughing up blood quietly. He did not speak or move at first, he just looked at me with an expression one would only have on the verge of death and then with a slow and deliberate motion, he opened his front pouch and felt around for something. I saw his eyes close, and he smiled through the pain. He then frowned and pulled out a small USB port and offered it to me, still coughing. When he did this, my insides flipped, and I instantly asked: “What is this?” then took it from his hand. The soldier looked up at the ceiling while choking on blood and only said:
+“Can you speak?” I asked and he was still coughing up blood quietly. He did not speak or move at first, he just looked at me with an expression one would only have on the verge of death and then with a slow and deliberate motion, he opened his front pouch and felt around for something. I saw his eyes close, and he smiled through the pain. He then frowned and pulled out a small USB port and offered it to me, still coughing. When he did this, my insides flipped, and I instantly asked: “What is this?” then took it from his hand. The captain looked up at the ceiling while choking on blood and only said:
 
 &#x200B;
 
@@ -186,7 +186,15 @@ As his eyes rolled, his body went still, and he took his last breath right there
 &#x200B;
 
 
-After a passing moment of silence, I took one look at the USB port in my hand and bolted for one of the computers here. I popped it in, and Jeff followed, I told him to keep his guard up and he raised the weapon to study the area periodically, but we couldn’t keep our eyes away from the screen. There was a report with SEVERAL attached files. Just what I needed to see. Once the file transfer was complete, I read it all in one go as quickly as I possibly could. 
+After a passing moment of silence, I took one look at the USB port in my hand and decided on reading this now on one of the computers here. 
+
+
+
+"Jeff, cover me, okay? I know this is reckless, but I need to know what this contains now. I don't think I an wait." I told him and Jeff, as usual, kept quiet and nodded giving me his stern look again.
+
+
+
+I made it to a computer and popped it in with Jeff following. He raised the weapon to study the area periodically, but we couldn’t keep our eyes away from the screen. There was a report with some attached files. Once the file transfer was complete, I read it all in one go as quickly as I possibly could. 
 
 &#x200B;
 
@@ -196,12 +204,12 @@ To sum it up, this attack and gathering of information on a certain terrorist or
 &#x200B;
 
 
-Throughout reading this, I found out that ranks within NASA had been infiltrated by one of these members and gained information about seven new planets that were within our solar system, having never been documented. Apparently, one of those planets had proof of living organisms residing there. Thermal readings and multiple satellite videos displayed these life forms fully functioning and people were beyond ecstatic. A team was of course sent out into the outer edge of the planet's rim. The ship sent a team of fourteen people, and they came back, but something terrible happened to some of those astronauts and it was seemingly because of this TNDA group. Records indicate that someone from inside the aircraft fired off some kind of relay signal that disrupted the life forms from moving and quite possibly, sustaining their habitat. 
+Throughout reading this, I found out that not only are secrets and advanced technology being kept from the public but ranks within NASA had been infiltrated by one of these members and gained information about a planet moon that's never been documented before, according to the report. Which planet is not stated. Apparently, one of those moons had proof of living organisms residing there. Thermal readings and multiple satellite videos displayed these life forms fully functioning and people were beyond ecstatic. A team was of course sent out into the outer edge of the planet's rim. The ship sent a team of fourteen people, and they came back, but something terrible happened to some of those astronauts and it was seemingly because of this TNDA group. Records indicate that someone from inside the space craft fired off some kind of relay signal that disrupted the life forms from moving and quite possibly, sustaining their habitat. 
 
 &#x200B;
 
 
-These *“creatures”* were able to somehow collectively reach the hovering aircraft from their planet and cause damage to the hull. Records indicate the impact on the damage report showed no signs of any cause for losing control out there in space. However, the report stated that several of the life forms housed themselves inside the bodies of some of the astronauts sent out there and throughout this were able to pilot their way back to Earth. The report indicated that these parasitic anomalies are only capable of feeding, reproducing and if housed inside another biological life form for a long enough period of time, can essentially rewire the human genome down to the very last cell within the unfortunate victim's body. They classified the size of the things to be about up to six or seven feet long and were considered as being somewhat similar to Taenia Solium, or pork tapeworm.
+These *“creatures”* were able to somehow collectively reach the NASA space craft from the moon and cause damage to the hull. Records indicate the impact on the damage report showed no signs of any cause for losing control out there in space. However, the report stated that several of the life forms housed themselves inside the bodies of some of the astronauts sent out there and throughout this were able to pilot their way back to Earth. The report indicated that these parasitic anomalies are only capable of feeding, reproducing and if housed inside another biological life form for a long enough period of time, can essentially rewire the human genome down to the very last cell within the unfortunate victim's body. They classified the size of the things to be about up to six or seven feet long and were considered as being somewhat similar to Taenia Solium, or pork tapeworm.
 
 &#x200B;
 
@@ -246,7 +254,7 @@ However now, since some assholes in a fucked the fuck up doomsday cult disturbed
 &#x200B;
 
 
-With all of this in mind, there was another attached file that explained how one of the underground \[REDACTED\] facilities under direct command of \[REDACTED\] had, in fact, been compromised at one point as well. Thus, turning over a plethora of information, as well as access to a certain satellite unit's mainframe. This sole perpetrator had posed as a researcher and escaped with all of this classified intel. They made the connection that, since that top member gained access to certain satellites, they assumed he/she used some kind of jammer to block them from tracking their location after the capture of Patient Zero and fooling the military.
+With all of this in mind, there was another attached file that explained how one of the underground Hives and facilities under direct command of the United States Government had, in fact, been compromised at one point as well. Thus, turning over a plethora of information, as well as access to a certain satellite unit's mainframe. This sole perpetrator had posed as a researcher and escaped with all of this classified intel. They made the connection that, since that top member gained access to certain satellites, they assumed he/she used some kind of jammer to block them from tracking their location after the capture of Patient Zero and fooling the military.
 
 &#x200B;
 

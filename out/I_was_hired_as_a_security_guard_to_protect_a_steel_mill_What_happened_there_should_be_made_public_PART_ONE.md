@@ -8,14 +8,12 @@ However, after everything that happened, I don’t really fear that or even deat
 &#x200B;
 
 
-After I finish writing this, I will submit my knowledge to a news station, but I’ve decided to share information *here* that is more descriptive, and I will do my best to include conversations that were important. It should go without saying that some identities will be protected, security guards usually call fellow guards by last name, but I think I should be careful anyways. All you need to know right now is that this happened in the states.
+After I finish writing this, I will submit my knowledge to a news station, but I’ve decided to share information *here* that is more descriptive, and I will do my best to include conversations that were important. It should go without saying that some identities will be protected, security guards usually call fellow guards by last name, but I think I should be careful anyways.
 
 &#x200B;
 
 
-Let me tell you a bit about myself. You can just call me Dee. I am a 42-year-old single male and after being hospitalized from a gunshot wound from active duty, I was honorably discharged with compensation packets. I am not proud of this, but I started drinking after the swelling and antibiotics were gone.
-
-
+Let me tell you a bit about myself. You can just call me Dee. I am a 42-year-old single male and after being hospitalized from a gunshot wound from active duty, I was honorably discharged with compensation packets.
 
 
 Being hit with this quick depression, I never wanted to commit to anything other than occasionally attempting to work out and get through the pain. I was gaining extra weight, I hated the idea of counseling and thought about getting a dog, but my pain subsided enough for me to finally say enough *was* enough. I was losing money and it was time to get a job, so I put in several applications online to become a security guard or anything that welcomed my background in the military. Stick to what you know, right?
@@ -268,7 +266,7 @@ I grabbed my radio and changed the channel to their frequency.
 &#x200B;
 
 
-“Hey, uh, I think you’ve got a situation; someone is on top of building B.” I reported over the radio, and I made my way to the window to look at building B. The radio crackled to life and a commanding voice replied.
+“Hey, uh, I think you’ve got a situation; is there someone cleared to be on top of building B?” I asked over the radio, and I made my way to the window to look at building B. The radio crackled to life and a commanding voice replied.
 
 
 
