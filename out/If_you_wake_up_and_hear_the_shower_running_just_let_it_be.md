@@ -20,7 +20,7 @@ At the foot of the staircase, I slipped and fell. Was there ice on the floor? I 
 
 I bounded up the stairs, five at a time. I hardly felt the dampness where the water had started dripping down the steps. I continued towards the light coming from his room. He’d be in the bathroom connected to his bedroom, face down in the tub, a pool of red water.
 
-When I entered his room, I did not see water flooding in from the bathroom. But I did see a river of blood and the body it led to. 
+When I entered his room, I did not see water flooding in from the bathroom. But I did see a river of blood and the body it led to.
 
 It was lying there on the carpet. The throat was gone. Blood trickled out of the opening, shining sickeningly in the dim light, and had begun to pool. I could smell it—metallic and stifling and nauseating. Despite the evident blood loss, the face was purple and black and swollen as if they had been throttled and smashed against freshly poured asphalt. That face, puffy and smushed—it resembled Pug Miller’s.
 
@@ -66,7 +66,7 @@ He started to cry again.
 
 The bedroom smelled like shit. That’s what they leave out of shows and movies. But I’ll tell you how it really is: the bodies aren’t just wet and heavy with blood—but with piss and shit, too.
 
-Then, I felt like Michael. My body was moving in ways I couldn’t comprehend. My mind said no, but it was trapped inside. Once I started, I couldn’t stop. 
+Then, I felt like Michael. My body was moving in ways I couldn’t comprehend. My mind said no, but it was trapped inside. Once I started, I couldn’t stop.
 
 I love my son. I would do anything for him.
 
@@ -106,7 +106,7 @@ I hadn’t given the idea any thought. I was still trying to wrap my head around
 
 “Isn’t that the other way?”
 
-When we got to the next stop sign, I made a one-eighty, turning us south. I had to reach across my body with my left hand to turn the wheel. I winced as my right hand bounced painfully. 
+When we got to the next stop sign, I made a one-eighty, turning us south. I had to reach across my body with my left hand to turn the wheel. I winced as my right hand bounced painfully.
 
 “Are you okay?” Michael asked.
 
@@ -130,17 +130,13 @@ I saw the officer approach us. I rolled down the window and—
 
 He just stood there, with his hand awfully close to the gun on his hip.
 
-“This is my son, Michael,” I continued. “I’m taking him up to enlist, you see. At the National Guard camp.”
+“This is my son, Michael,” I continued. “I’m taking him up to enlist, you see. At the army base.”
 
 “At four in the morning?”
 
 “Wanted to beat the traffic.”
 
-“Camp San Luis Obispo?” the officer asked.
-
-“Exactly,” I said.
-
-“You’re going south, sir,” he said. “Isn’t the camp the other way?”
+“You’re going south, sir,” he said. “Isn’t the base the other way?”
 
 He had me there. Right when I thought I had a decent cover story.
 
@@ -148,7 +144,7 @@ There was a deafening silence.
 
 The officer peered into the car. He stared at Michael for a long moment. Michael did not meet his gaze.
 
-The officer turned his attention to me. “Step out of the car please, sir.” He backed up a few steps so I could open the door. I thought about flooring it, and maybe I should have. 
+The officer turned his attention to me. “Step out of the car please, sir.” He backed up a few steps so I could open the door. I thought about flooring it, and maybe I should have.
 
 I unbuckled my seatbelt and opened the door. The officer spoke some code into his radio, but my thudding pulse in my ears drowned out what he said. I stepped out.
 
@@ -168,9 +164,9 @@ I unbuckled my seatbelt and opened the door. The officer spoke some code into hi
 
 First, I felt the hairs at the back of my neck stand and then the car shake against my back. I saw a blur of motion overhead. The officer looked up and began to say something but was cut off by his own screaming. That’s when I felt the pain in my hand. My left hand.
 
-That crunch. That hideous crunch of bone and snapping tendon may never leave my mind. The jaws of the beast went through my hand like a knife through jelly. My hand was stapled to the officer’s shoulder by fangs that hurt to look at. The officer continued to scream, and I thought my eardrums would burst. As my brain shot out frantic, useless hormones and worked futilely to provide me respite, I looked up and met the beast’s eyes. One look into them could stop the hearts of weaker men. They were of such a horrible milky yellow, so vile and unfamiliar, but I knew exactly whose eyes I was looking at. 
+That crunch. That hideous crunch of bone and snapping tendon may never leave my mind. The jaws of the beast went through my hand like a knife through jelly. My hand was stapled to the officer’s shoulder by fangs that hurt to look at. The officer continued to scream, and I thought my eardrums would burst. As my brain shot out frantic, useless hormones and worked futilely to provide me respite, I looked up and met the beast’s eyes. One look into them could stop the hearts of weaker men. They were of such a horrible milky yellow, so vile and unfamiliar, but I knew exactly whose eyes I was looking at.
 
-The beast unlatched its jaws from the officer’s shoulder. It and my hand were obliterated. My hand resembled a blood orange that had gone through nine innings of baseball, but the officer was worse for the wear. His right arm was hanging on by maybe a strand of sinew. 
+The beast unlatched its jaws from the officer’s shoulder. It and my hand were obliterated. My hand resembled a blood orange that had gone through nine innings of baseball, but the officer was worse for the wear. His right arm was hanging on by maybe a strand of sinew.
 
 The officer fell to his knees. The screaming stopped when the beast punched a hellish paw through his neck. Silence. The beast raised the officer with a single arm and tore through his chest with the other. It ripped the dead officer in half and discarded the body like two balls of paper.
 

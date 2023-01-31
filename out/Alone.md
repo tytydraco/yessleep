@@ -1,31 +1,9 @@
-I miss feeling lonely. I know that's a strange thing to say, but it's been a long time since I've felt truly alone. Whether I'm at work, out for a walk, or at home, there's always a presence with me. There is always someone watching. 
+Welcome to Alaska it's November 18th 3:12 PM I'm doing the only thing I do besides sleep,hunt and eat. It's dark outside, a little weird huh? It ain't much for anybody here it's not like there is anybody around where I am. Sorry you probably want me to get the point why you're reading this. I hunt demons,cryptids whatever you call them. Whenever I tell people that they think wendigos,skinwalkers or big red monsters with horns. Those might be some of the things I've seen but there's somethings that are a lot worse out there. That's why I am documenting all of them and maybe because I'm scared ill will go insane with the only companion out here is my old black bull mastiff Sarge. That reminds the names Casey.
 
+&#x200B;
 
-I used to surround myself with people. I had my friends. I had a boyfriend. I had my grandmother, who raised me ever since my mom lost her battle with addiction. Not anymore. Everyone I've ever been close to is gone. Some have drifted away over time, as people in our lives tend to do. Others were taken. What's worse is that I know they were taken by whoever or whatever is always with me. 
+It's 6:07 PM gearing up and grabbing my old 375 caliber elephant rifle and 44 magnum equip to kill a bear. It's embarrassing how much money I have spent on that gun case. I walk through the old cabin it practically screaming as all my armor and boots thudding against the old wood floor boards. I leave Sarge at the cabin, him upset at the door. I know he won't make noise though. He's been out hunting with me before he's seen the stuff out there. 
 
+November 19th 12:02 It's been a pretty quiet night so far until I saw two yellow eyes in the dark blinding like headlights on an empty road. I know exactly what it is… I call it a winged jackal because it might as well be able to fly how fast it goes. I know how to kill though they all have a pattern they will run around you eventually running out from under you and tripping you and then come up from behind and go for the neck and pulling you off as slow as possible with a blood trail letting you bleed out. Sure enough it tripped me. Still in the air I turned around pulled out my revolver and shot it right in the chest, my revolver kicking like a mad horse followed by the dead canine's body flying into me covering me in blood and rolling into a tree. I had to go clean myself in the old creek. I've suffered the consequences of not cleaning the blood off me from other creatures. I know that this things pack will find its body and try to track me back to the cabin. Glad that they hunt alone but the pack will notice that there's a member missing in a couple days.
 
-For that reason, I haven't let anyone get close to me. I've moved twice. I work from home. I barely speak to anyone. I've never been so isolated, and yet...I'm not alone. 
-
-
-This is probably starting to sound paranoid. At one point, I thought it might be paranoia. I started looking up therapists in my area online, trying to find someone who might be able to help me understand what has happened to me. But before I had a chance to make an appointment, something made me hesitate. 
-
-
-A new window on my laptop opened, entirely on its own, to an article I hadn't seen in years. It was a news article about the accident that killed my boyfriend. He was the only man I'd ever gotten close to and I started to imagine how it would be to spend the rest of my life with him. But shortly after we started talking about marriage, he died in a terrible car crash. It was a single vehicle collision, considered to be caused by him falling asleep at the wheel… or by a suicide attempt. If so many people in my life hadn't disappeared already, I could have believed that. Even now, the article appearing on my screen is a reminder that this is not a problem therapy could fix. None of this was an accident and I'm not paranoid. 
-
-
-Sometimes the presence that stays with me is subtle. It's just a snapped twig when I'm out walking or footsteps in the hallway of my apartment. Sometimes it's a soft chuckle when I see something funny on my laptop. I wish it was always that subtle. Sometimes it's terrifying. But I'm always aware of it. I can feel it watching me. 
-
-
-Last night, while I was trying to fall asleep, I heard something just outside my bedroom door. I hardly ever investigate these sounds anymore. I never see anything when I start looking for it. I held my breath, waiting to hear another creak of the floorboards. When I finally heard one, I spoke up. 
-
-
-"Hello?"
-
-
-I wasn't expecting an answer. I didn't hear anything else and eventually, I fell asleep. 
-
-
-It seems there was a response after all. When I woke up, there was a note at the foot of my bed. It was simple, but I still felt a chill when I read it. In handwriting I've never seen in my life, a single word was written. 
-
-
-HELLO. 
+8:22 PM Got back to the cabin to see Sarge chewing on his deer antler. I got him one of the only ways to get food now or indoor gardens which aint the best way to grow stuff. Fed Sarge some raw deer that I killed one of the nights prior. I guess I wouldn't call it night since it's always dark.  (Tell me if this is to cheesy I just want feedback since its my first story and i'm kinda young)
