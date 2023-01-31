@@ -263,3 +263,5 @@ I’ve never lived beyond 11pm on December 31st, 2022. That must be a promising 
 I suppose I’ll never have a definite answer. I’ll always wince in terror at the sight of cavernous crevices. I’ll always look for those white eyes. I cannot conquer the unknown, but that’s not my battle. After thousands of torturous years, I would simply settle for seeing January 1st, 2023.
 
 At midnight, let’s hope I manage to post a comment.
+
+[X](https://www.reddit.com/r/dominiceagle)
