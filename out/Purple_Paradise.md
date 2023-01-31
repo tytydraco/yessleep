@@ -4,7 +4,6 @@ For their safety they shall remain anonymous and for your safety, don't go looki
 
 Please share it, the world needs to know.
 
-Begin.
 
 A Couple, a boy and a girl, wake from a bad dream, and decide to go for a late night walk. 3am is not the most ideal time to go for a stroll, but nightmares could not chase them into the waking world.
 
@@ -289,6 +288,4 @@ Searches and research bore no answers, the pathway with concrete walls and tall 
 
 The only way the lovers could be sure the night had happened were the purple scrubs covered in dirt and sweat still in their possession, the dash cam from the squad car now broken and dismantled, and the blood under their fingernails. 
 
-Once in a while they would wake at 3am, look to each other, both knowing their nightmares shared a similar purple hue and resolve themselves to return to bed. For they knew, rule number 3, your mind should be unclouded by outside temptation. 
-
-End.
+Once in a while they would wake at 3am, look to each other, both knowing their nightmares shared a similar purple hue and resolve themselves to return to bed. For they knew, rule number 3, your mind should be unclouded by outside temptation.
