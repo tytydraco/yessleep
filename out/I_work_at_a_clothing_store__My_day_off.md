@@ -127,3 +127,5 @@ I wrote my two week notice.
 [Part 6](https://www.reddit.com/r/nosleep/comments/10k0nbh/i_work_at_a_clothing_store_i_finally_got_some/)
 
 [Part 7](https://www.reddit.com/r/nosleep/comments/10lf2zd/i_work_at_a_clothing_store_i_have_a_plan_but_its/)
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/10pq5g5/i_work_at_a_clothing_store_i_made_my_coworker_cry/)

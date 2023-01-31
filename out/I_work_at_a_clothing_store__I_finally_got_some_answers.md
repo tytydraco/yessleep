@@ -255,3 +255,5 @@ I stayed there for a long time, thinking about everything he had said. It was to
 [Part 7](https://www.reddit.com/r/nosleep/comments/10lf2zd/i_work_at_a_clothing_store_i_have_a_plan_but_its/)
 
 [Part 8](https://www.reddit.com/r/nosleep/comments/10oipwq/i_work_at_a_clothing_store_my_day_off/)
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/10pq5g5/i_work_at_a_clothing_store_i_made_my_coworker_cry/)
