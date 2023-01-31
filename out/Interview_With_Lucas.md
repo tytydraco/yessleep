@@ -40,7 +40,7 @@ Now, now, don't be crossed with me, I wasn't the one who forgot! Honestly, you e
 
 What, you're still reading, honestly what do you expect to happen, an apology, answers? a fucking parade?! Sorry but you ain't getting one. Oh blast I just apologized didn't I? Well I guess you got what you wanted. Are you happy knowing you won? Are you pleased you've outsmarted me? I didn't apologize for calling your brain small, which it still is, mind you.
 
-Yet you continue to read, even though I slandered your name, called you awful things and straight out lied to you. You must truly want answers then, or perhaps you're a bit insane, either way, continue if you must I will complete the interview regardless of your desire. Push forward we must.
+Yet you continue to read, even though I slandered your name, called you awful things and straight out lied to you. You must truly want answers then, or perhaps you're a bit insane, either way, continue if you choose, I will complete the interview regardless of your desire. Push forward we must.
 
 Very well, let us move on to the next section of the interview. The world is ending, the world has ended, the world is now empty. What do you fill the world with? Picture it now in your mind, are there trees? Are people happy? Is the sky still blue or perhaps a new color never before seen?
 
