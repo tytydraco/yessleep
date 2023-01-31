@@ -34,7 +34,7 @@ I always worried that if I wore my remorse on a sleeve then I too would be rejec
 
 One day, the lid of his dumpster was pushed partially open by a crowd of random angles bulging against bitumen bags, intersecting and dispersing wildly as though trying to crawl away from their fate. But alas came the bulky machine to empty it once more and forever rid the people of their garbage. But never of the little man.
 
-The droning hum of flies soon dispersed and he was left truly alone as he always had been. Except, of course, for the company of his little brown bear. A weekly ritual which I paid no mind, no significance, until I heard the yelling and laughing and playing of children—a sound seldom heard in such a place.
+The droning hum of flies soon dispersed and he was left truly alone as he always had been. Except, of course, for the company of his little brown bear.  This was a weekly ritual which I had paid no mind, no significance, on that day; until I heard the yelling and laughing and playing of children—a sound seldom heard in such a place. 
 
 A grin widened across my face as the sound of joy—true joy—wafted through my window. Could this place finally become the haven it was set out to be? I reminisced of my own youth, all the time I spent playing outside, and rejoiced in the possibility that the kids here could finally start having a normal childhood away from all the bitterness.
 
