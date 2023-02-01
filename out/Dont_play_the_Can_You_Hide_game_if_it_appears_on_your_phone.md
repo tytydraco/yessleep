@@ -56,7 +56,7 @@ I met my friends, Corey and Tanya, in a local park on Monday afternoon. I’d pl
 
 “You’re both just envious that I can scroll through Reddit and play games away from the watchful eye of my employer,” Corey said. “Speaking of games, Lee, have you played ‘Can you hide?’?”
 
-My heart plummeted, and I felt as if Corey’s words were tinder-blocks, dragging my body though the floorboards.
+My heart plummeted, and I felt as if Corey’s words were cinder blocks, dragging my body though the floorboards.
 
 “He’s obsessed,” Tanya sighed. “He’s been playing it every day since Tuesday.”
 
