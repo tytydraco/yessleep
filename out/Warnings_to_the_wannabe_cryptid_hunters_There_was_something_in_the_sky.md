@@ -234,3 +234,5 @@ And then, like nothing had ever happened, the nebula sank back into the snow. Th
 [Part 20](https://www.reddit.com/r/nosleep/comments/10k7oob/warnings_to_the_wannabe_cryptid_hunters_how_to/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 21](https://www.reddit.com/r/nosleep/comments/10l7pho/warnings_to_the_wannabe_cryptid_hunters_bones/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 23](https://www.reddit.com/r/nosleep/comments/10qzp5u/warnings_to_the_wannabe_cryptid_hunters_i_cant/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
