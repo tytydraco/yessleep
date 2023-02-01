@@ -1,41 +1,101 @@
-477 B.C. - The sun was setting upon “————————” , an island once located near “——————-”. I don’t remember the exact date as to when my first encounter with the strange phenomenon took place but I do remember I was 7 years old and it was also one of the few times I went hunting with Araf , my father . We were hunting for most of the day and by the time it was evening and we were packing up our tools , we were both exhausted . Which was why I thought my mind was playing tricks on me when I looked into the horizon and in the midst of all that orange I saw blue and purple particles floating in the sky . Once I took notice , they seemed to vanish …
+ 
 
-This went on for the next 5 years , each year the particles seemed to get bigger and unlike my first encounter with them , where they all seemed so distant from one another , with each passing year they seemed to unite with each other … getting stronger . In the mind of a 7 year old it seemed like they were forming a picture … a symbol…or perhaps even a por——
+467 B.C. - The sun was setting upon *“inkwi”*, an island once located near the Caribbean … 
 
-476 B.C. - It wasn’t only the particles anymore , it was the voices that could be heard on a daily basis when each particle either grew larger in size or connected to another particle . By that point my hometown had caught on to what was going on , although no one seemed to have a plausible theory as to why this was happening nor what was causing it. It’s also worth mentioning that by this point the particles were covering about 25% of the  sky and so the amount of light we received from the sun was reduced significantly.
+I don’t remember the exact date as to when it all took place , but if I recall correctly I believe I was 7 years old and I was hunting with Araf , my father . We were out at sunrise hunting deer and small birds. My father was an expert in the art of hunting unlike me who ran aimlessly in hopes of catching a stupid bird . By the time dusk set in , we started to gather all our hunting equipment in order to return to our little cabin in the center of town . On our way back through the dense forest , filled with trees with orange and yellow leaves and small critters looking for their next meal , I looked straight up ,  and in the midst of all that orange ,  I could see black and purple dots scattered across the sky .
 
-474 B.C. - We were done for , we were no longer hearing voices , we were hearing screams … they were… insufferable . During the couple months they grew louder no one in our town seemed to get any sleep at all . This all led to people becoming more violent and more insane. I could hear my little  brothers wailing day and night as they felt their eardrums were going to burst with each passing moment. It’s also worth mentioning that the particles had now blocked 75% of the sky and we were no longer receiving light , or at least not any that could help us get through the day, which is why we were forced to make our own homemade lamps . Since we were up all day and night all I could do was cover my ears , look out the window and watch as the dots expanded , and expanded and expanded.
+This went on for the next  5 years , each year the dots grew bigger in size  and unlike my first encounter with them where they all seemed so distant from one another , with each passing day they seemed to unite with each other , their presence becoming stronger and more threatening .
 
-472 B.C. - At the time ,  I wouldn’t know how to even describe such a behemoth, but now with all the knowledge I’ve gathered , I can say with certainty that it was nothing but a Nebulisk , a giant void surrounded in its entirety by a purple aura that covered the sky , the black void kept spinning until it let loose….
+468 B.C. - It wasn’t only the particles anymore , it was the soft heartbeat sounds that could be heard each time a particle grew larger in size or connected to another one. By this point , everyone was talking about the strange phenomenon that had invaded our little island and demanding answers from our town counselors such as my father . It didn’t take much longer until the fear and hatred started to consume my neighbors , as the particles had reached a point where parts of the sun were being completely blocked during parts of the day and there were still no answers .  Many of our neighbors started throwing rocks at our windows and many of the town kids would beat me up whenever they saw me leave the house . It got to a point where enough was enough and my father called everyone in for a town meeting in which he stated the reality we were all facing and how at this rate we should prepare ourselves for the worst case scenario : total darkness. 
 
-At the time it happened I was so frightened that I quickly went to my father and explained to him in tears that there were giant monsters falling down upon us . He took my concerns seriously , grabbed me by the hand , and ordered our entirely family to abandon the house immediately . We went for the woods…
+After that day , we couldn’t manage to leave our house anymore , as the threat of our entire family being hanged or burned alive by our neighbors was always present.
 
-We ran for a long time while constantly hearing a hoard of footsteps trailing behind us , they were catching up . I knew we could only keep this up for so long , however my mind was so concentrated in escaping that I didn’t care , which is why I was taken by complete surprise when I heard my mother scream , I looked back for a quick instant to see her leg being devoured by some giant black alien creature , twice the size of any human . I didn’t see its features at the time but I would soon find out . I glanced away immediately and just kept running through the trees with tears in my eyes , dashing left and right to try and lose them . I noticed no one was following me , and I was completely alone . I was still determined to escape with my life from whoever these bastar--- sorry can’t say that ,  who rui---changed my life entirely. I kept running until my legs finally gave out ...
+470 B.C. - No one was getting sleep anymore , the noises kept intensifying and our biggest fears were  starting to turn into a reality . The particles had now blocked nearly the entire 
 
-&#x200B;
+Sky and we could now clearly see the formation of a black hole surrounded in its entirety by a flashing purple glow. I was fascinated by the imposing behemoth and would spend hours just looking at it ,imagining all the possibilities as to what it may contain and why it came to visit our little town .
 
-I don’t know how much time passed but I woke up somewhere foreign. It definitely wasn’t earth . The terrain was purplish and very rocky . I was 13 at the time by the way , and when I got up two giant soldiers escorted me , I could finally see their features  now. They were completely black and had purple glowing eyes , they had pointy ears , kind of like that of an elf’s , and they had fangs . They had all types of different armor on them , which to me was foreign since the only weapons I knew of were bows and arrows . We walked for a long time , until we had made it to our destination …
+Little did I know that it wouldn’t take long until I found the answers to all my questions…
 
-A giant palace-like structure , black and purple were its colors . I looked to my sides and could see spaceships landing . They opened their doors and I could see kids , just like me , they were different sizes and presumably different ages . Some looked younger, some looked older , but none were adults . The two soldiers stopped me at the steps of the palace and I waited as the kids from the other spaceships arrived on the steps of the palace . When everyone had finally made it there , I looked all around me and I could see hundreds of kids piled up with one another , some were crying and others were in complete shock. I was in the front of the pack and suddenly a hoard of soldiers just like the ones that escorted me , led us up the stairs they spoke in an ancient language known as “———-”.  We climbed up the stairs until we made it to a giant red metal door , when it opened we were completely blinded by its darkness ...
+472 B.C. - I was sitting on the front porch of our little cabin when it all went down …
 
-&#x200B;
+The black hole started spinning at a speed never seen before ! During this stage , a gust of wind ferociously attacked our side of town , yanking the branches off nearby trees and carrying all sorts of sharp debris along with it. I covered my face with my hands , trying to grab something to hold onto and then suddenly , a loud explosion could be heard from the “eye” of the void ! I screamed in terror  and quickly jumped to my feet! 
 
-We all entered and the soldiers spoke once again in an ancient tongue which I will now translate to “ General X , we have brought what you have requested from us. You may do with them as you wish”. I suppose General X ordered them to split us into groups because suddenly two groups were made , most of the kids were piled into one group but only 20 of us were piled into another . I looked to my left and my right and saw as two doors emerged . They were just like the one at the entrance except smaller , and just like that we went in. The hallways were filled with weapons and pictures of stuff you rather not know about . We made a left and entered another dark room and in the middle of it , a light turned on and we could see a giant throne , and sitting in it was completely dark figure , no eyes , no mouth , he did have however a giant helmet , it looked like a neo-samurai helmet and when we got up we could see he had a giant black cape on his back .
+I yanked the door open and screamed for everyone to abandon the house immediately , my parents grabbed our siblings by the arms and rushed them out of the cabin. I looked to my sides and could see dozens of my neighbors exiting their homes , some were running to the mountains and others were trying to find a place to hide , but we went straight for the woods…
 
-&#x200B;
+We ran for a long time while constantly hearing a hoard of footsteps trailing behind us , they were catching up . I knew we could only keep this up for so long until they would finally find us but I didn’t care . My mind was so concentrated on escaping that I was startled when I heard my mothers scream in the distance. I took a glance behind me but I couldn’t see anything. The only thing I could hear was a loud explosion nearby ,followed by a dreadful moment of silence . I stopped dead in my tracks as the realization that my family was gone hit me . I fell to the ground , ripped my shirt apart and started to cry inconsolably. I layed in the dirt for a long time until I heard the sound of footsteps quickly approaching…
 
-The soldiers said the following “These were the best we could find for your consumption , however let us please separate 3 of them from the group for other purposes.” He nodded his head in approval and I was taken from the group along with 2 others . We made a left and then walked down a long corridor until we met ourselves with a gray metal door . The soldier pushed us aside and grabbed a key out of his pocket and opened the door . He grabbed a torch that illuminated as soon as he grabbed it , it had a purple flame , just like his eyes . We walked down the stairs and were led to a chamber. I unfortunately cannot explain the process of our transformation , however after an X amount of time we were completely transformed into one of them … except not really .
+ I JOLTED STRAIGHT UP AND MADE A RUN FOR IT , DASHING LEFT AND RIGHT ACROSS THE TREES , JUMPING AND DUCKING ACROSS THEM .I NOTICED THAT THE VOID WAS ABDUCTING EVERYTHING IN IT WAY AND WAS COMING DIRECTLY FOR ME ! I RAN EVEN FASTER UNtiL mY LeGS fInAlly GaVE OuT AnD EVERything WEnt BLacK…
 
-We felt almost superior ….
+***I had been abducted by them…***
 
-5 more soldiers entered the room and spoke to me in their ancient tounge , except now I could understand them . They handed me a giant cape and a helmet. They told me a ceremony would take place in the throne room , in which we would be given a role in this kingdom as well as a new name . All 3 of us exited the chamber and retraced our path back to the throne room .
+I don’t know how much time had passed until I woke up ,  but when I did , I realized I was far from home , somewhere foreign. The terrain was purplish and very rocky and an odd smell emanated from something nearby. Once I stood up I found where it was coming from.
 
-As far as the ceremony concerns , I cannot go into detail as to what happened there , however I was given a new name , which translated into your native tongue is “Annihilation” , I am the second most important person in the kingdom , and control a large army , and just like that I had become of them …
+They were completely black , had purple glowing eyes and a ton of spikes from the top of their head all the way to their tails , they are known as the “Eliotropi”. They grabbed me by the arms and led me down a long trail filled with sharp alien rocks and gross parasites and alien bird-like creatures that inhabited the area . After a long and painful walk we finally made it to our destination …
+
+A massive palace-like structure , black and purple were its colors . I looked to my sides and could see spaceships landing all around me . They opened their doors and I was shocked to see kids just like me, some looked younger, some looked older , but none of them were adults . The Eliotropi stopped me at the steps of the palace and I waited as the kids from the other spaceships arrived at the palace steps . When everyone had finally made it there , I took a glance behind me and I saw hundreds of kids piled up with one another , some were crying but most of them were in complete shock, not yet having processed the reality of their situation  . We climbed up the stairs until I came face to face with a giant red metal door. When it opened I was completely blinded by the darkness of the room . All I could hear were the words of the Eliotropi :
+
+———————————————————————————————————————
+
+Eliotropi 1 : “ General X, the invasion on Earth was a success ! We have bought what you have demanded of us.”
+
+General X \*laughs\* “How delightful… Don’t waste anymore time and proceed to give them all to the people!”
+
+Eliotropi 2 “ Finally , I've been hungry for a while ! ”
+
+General X “ Yes , Yes , calm down! Before you leave, do me a favor and separate a couple of them from the group and bring them to me . I think it's about time …”
+
+———————————————————————————————————————-
+
+Suddenly two groups were made , most of the kids were piled into one group but I was placed into a much smaller group of about 20 kids . I looked to my left and my right in fear  as I saw two doors emerge from the walls , they slowly opened , and we were taken in .
+
+We walked down a long corridor until we came across another door . This one was completely golden and had purple cracks all around it . I went in and I was finally able to see him ! Sitting in the throne was General X , he wore a neo-samurai helmet and a tattered cape along his back . He got up from his throne and spoke : 
+
+*The following is a dialogue between the Eliotropi and General X moments before the transformation:\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_*
+
+Eliotropi 1 , 2 & 3  : “ These were the best we could find your honor!”
+
+General X: “Perfect …  After centuries of studying humanity these seem to be the perfect test subjects for the treiglad trials !”
+
+Eliotropi 2 : “ B- but it’s too dangerous !”
+
+Eliotropi 3: “ He’s completely right ! If something goes wrong our entire species runs the risk of becoming extinct !”
+
+General X “ Well there’s only one way of finding out.”
+
+Eliotropi 2&3 : “ BUT!!!”
+
+General X “ Be quiet and get out!!!”
+
+————————————————————————————————————-
+
+Moments later , I along with 2 other kids were separated from the rest of the group. We were forced to retrace our path until we finally came across a shiny grey metal door that I hadn’t taken notice of before . The soldier pushed us aside , grabbed a key out of his pocket and opened it . We walked down the stairs until we made it into a room that contained 3 giant glass chambers. I STARTED TO PANIC AT THAT MOMENT NOT KNOWING WHAT TO EXPECT FROM THESE SAVAGES , I SCREAMED IN PROTEST TRYING TO LET MYSElF FREE FROM THE CHAINS I HAD TIED TO ME , but it was useless…
+
+That was the last thing I could remember from that day . When I finally woke up , I could see I  was still chained up and was floating in a sea of purple acid . I looked around me and that’s when I saw my reflection. I looked completely different , my skin was dark and its texture was rough , my eyes were glowing purple and spikes started to protrude from my arms , legs and back . 
+
+Moments later , 5 Eliotropi showed up , they unlocked my chamber and removed the chains I had tied up to me. I looked to my sides and saw that one of the two remaining chambers was also being unlocked . I watched in awe as the creature emerged from the chamber . It was massive and was covered with messy dark-silver fur that ran from the top of its head all the way to the bottom of its feet , it also had massive dark gray feathers like that of a “Lammergeier”. The real horror came when it started to flap its wings aggressively at the Eliotropi and opened its mouth , to reveal thousands of squirming worms in the place where teeth should have been  , the Eliotropi acted quickly and injected it with a tranquilizer that made it fall to the ground , leaving it in a dormant state . Moments later I heard slow footsteps approaching the chamber , I looked behind me and caught sight of General X . He signaled me to follow him and I did , we exited the chamber and walked until we arrived at a spiral staircase leading into the palace’s balcony .
+
+Once we had finally made it there ,  he made his way to the front of the balcony and addressed the Eliotropi :
+
+———————————————————————————————————
+
+***GX : “Welcome everyone !***
+
+***\*The crowd cheers\****
+
+***GX: Yes , Yes , I know all of you are very happy now that you have filled your stomachs after centuries of awaiting your next meal , BUT THE PURPOSE OF THIS REUNION IS NOT TO CELEBRATE OUR VICTORY , BUT RATHER, TO WELCOME A NEW MEMBER TO OUR FAMILY!!*** 
+
+It was at this moment where the Eliotropi holding me back , finally let me go , I walked to the front of the balcony and proceeded to look down below me. I was shocked to see thousands of Eliotropi all gathered at around the palace steps. GX then proceeded to hand me a cape along with a helmet just like his and continued with his speech.
+
+***GX: PLEASE WELCOME “UDUMEES”, COMMANDER IN CHIEF , THE FIRST SUCCESSFUL TEST  SUBJECT TO THE “TREIGLAD TRIALS***”!
+
+\*Crowd cheers and applauds\* 
+
+————————————————————————————————————
 
 That was 2495 years ago ,
 
-As time went on I learned many things about the kingdom and the way it works . Out of all the teachings however , I am only allowed to share one with all of you , this pertains to the invasion that occurred so long ago: “Every 2500 earth years , we serve the right and consider  it to be our responsibility to invade earth in order to preserve all the life and order present in “———”. We will take up to “———”children from all around earth , most for our consumption and others to be completely transformed into one of us . We believe this to be the greatest honor of all . People who resist , will be exterminated at once , and the ones who don’t will remain. 5 years before we arrive, a nebulisk will form , this will allow us to enter earth with ease.”
+After that day , I learned many things about the “Newel” kingdom ,  but out of all the teachings one stood out to me the most and that was the one relating to the invasion on planet earth. Here is what it stated :
 
-&#x200B;
+“Every 2500 earth years , we serve the right and consider  it to be our responsibility to invade earth in order to preserve all the life and order present in “Newel ”. 5 years before our arrival a “Nimbus” will form in the sky , it will progressively get stronger as the years go on , once it reaches its final stage a portal will form in the sky which will allow us to enter earth with ease . During the invasion we will take with us as much of humanity deemed necesary in order to preserve our population alive . ANY DISRUPTIONS TO OUR ACTIVITY WILL RESULT IN FATAL CONSEQUENCES TO THE INDIVIDUALS AND TO THE COSMOS AS WE KNOW IT. ”.   You may choose to do what you wish with this information , regardless of your final decision just remember that time is running out and for that -
 
-Do with this information as you wish , you may choose to spread it , or to keep it to yourself , I won’t judge.  Regardless of your final decision just remember time is running out , and for that “I... am...  sorry”.
+“We are sorry”
