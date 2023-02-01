@@ -34,9 +34,9 @@ Still, some others tried to look brave. They rushed forward and ran their hands,
 
 However, they would later claim that they felt a certain chill, warmth, or tingling in whatever touched the suitcases. None of them could agree on the true feeling that it caused. To me, those claims were about as believable as those who claimed that they saw the ground catch fire where the suitcases rolled or heard mutters coming from the inside of the suitcases. 
 
-I don't know how the people who truly believed the suitcases were possessed even heard those voices or saw those games. Most of them were trembling or standing frozen with fear twenty feet away from them and their "owner". 
+I don't know how the people who truly believed the suitcases were possessed even heard those voices or saw those flames. Most of them were trembling or standing frozen with fear twenty feet away from them and their "owner". 
 
-That is, they were until a single unlucky incident somehow brought out the beasts in them. While the man was traveling through the baggage claim, he passed by a very old woman who needed a walker to move. She obviously couldn't get out of the way of the suitcases in time so a few of them passed right. Likely due to fright, the old woman had a heart attack right there and fell over. 
+That is, they were until a single unlucky incident somehow brought out the beasts in them. While the man was traveling through the baggage claim, he passed by a very old woman who needed a walker to move. She obviously couldn't get out of the way of the suitcases in time so a few of them passed right through her. Likely due to fright, the old woman had a heart attack right there and fell over. 
 
 That was enough for many of them. A mob of them rushed forward with shouts and screams and surrounded the man. They began beating him with anything they could use. Some used their fists and legs, others used their baggage and airport equipment, and two even grabbed poles from the queue lines and began battering him with them. 
 
