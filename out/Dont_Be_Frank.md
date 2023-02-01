@@ -144,7 +144,7 @@ When we were done the Priest leaned back against the table and proclaimed, "He'l
 
 &#x200B;
 
-For most parts of the way back to the cemetery. We walked in silence. When the town neared, Paul said something and with a nod he drifted off a road, down. I kept walking. My body sore from my ordeal. The Priest never stopped either. Not even when we passed the Church. Nor when we the last lights of town ebbed. I knew he was coming with me back to the cemetery.
+For most parts of the way back to the cemetery. We walked in silence. When the town neared, Paul said something and with a nod he drifted off a road, down. I kept walking. My body sore from my ordeal. The Priest never stopped either. Not even when we passed the Church. Nor when the last lights of town ebbed. I knew he was coming with me back to the cemetery.
 
 "Did you want to talk," he asked. "I suppose it's time you know." He scratched at his head. "Did you see the hole? The one Alan was digging in the field."
 
@@ -154,9 +154,7 @@ I didn't say a word.
 
 I still hadn't spoken a word. Unsure of what to make of it.
 
-"You should have seen it. When we found Nathan in the field. He had cleared nearly a quarter acre of topsoil. And he never got more than 2 inches deep. The place looked like a war field. Scarred. All over the land."
-
-The Priest looked at me uncertainly, "Come on Frank. I need you to say something."
+"You should have seen it. When we found Nathan in the field. He had cleared nearly a quarter acre of topsoil. And he never got more than 2 inches deep. The place looked like a war field. Scarred. All over the land." The Priest looked at me uncertainly, "Come on Frank. I need you to say something."
 
 I had been watching him carefully this entire time. His hands had been irregular beneath his clothing. I was afraid he would hurt me if I didn't go along, "Why do you need me?"
 
