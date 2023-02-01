@@ -2,7 +2,7 @@ My name is Greg, I'm a peculiar person, I live under a child's bed if that gives
 
 The monster that your child would run to you about in exactly 30 minutes. You may think that this is going to be a scary story, well it is but there won't be a child that gets hurt, well at least not yours.
 
- I've been told by multiple of my other friends that I should get over my fear, that I should just do what I have to do as the monster that lives under your child's bed, at first my fear started off it's just a fear of children because children are scary they do weird things.
+ I've been told by multiple of my other friends that I should get over my fear, that I should just do what I have to do as the monster that lives under your child's bed, at first my fear started off as just a fear of children because children are scary they do weird things.
 
 But this child, this child in particular is the most terrifying child that I have ever seen. Her name is Leslie, she has beautiful blonde hair and beautiful green eyes like emeralds. They may be sitting there thinking why Greg, why are you scared of this Leslie.
 
