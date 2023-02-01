@@ -4,9 +4,9 @@
 
 *Who goes hiking through the backwoods of Massachusetts in November?*
 
-But I knew the answer to that question – *we* did. Being a location scout for an honest-to-goodness TV show sounded like a grand adventure when I took the job a year ago. The fact that it was a paranormal show only added to the excitement and mystique. Unfortunately, the reality wasn’t quite as glamorous or exciting as the fantasy had been in my mind. Most of our time was spent on the road, living out of motels and eating greasy truck stop food or whatever fast food appeared at the next exit on the highway. I’d definitely seen some interesting sights over the last thirteen months, but I was starting to mentally balance the benefits against the monotony. 
+But I knew the answer to that question – *we* did. Being a location scout for an honest-to-goodness TV show sounded like a grand adventure when I took the job a year ago. The fact that it was a paranormal show only added to the excitement and mystique. Unfortunately, the reality wasn’t quite as glamorous or exciting as the fantasy had been in my mind. Most of our time was spent on the road, living out of motels and eating greasy truck stop food or whatever fast food appeared at the next exit on the highway. I’d definitely seen some interesting sights over the last thirteen months, but I was starting to mentally balance the benefits against the monotony.
 
-I think I had built it up in my mind that we would be the first ones of the entire production crew to really experience the sites that would be used as segments in the show. Maybe we’d even get to see something truly amazing during our scouting, some hint that all the legends and stories about these supposedly haunted places might have some basis in truth. So far, it had been a whirlwind tour of abandoned and derelict buildings and places across the Northeast, seasoned with a lot of oddball and borderline nutjob witnesses to the supposed supernatural events that occurred there. 
+I think I had built it up in my mind that we would be the first ones of the entire production crew to really experience the sites that would be used as segments in the show. Maybe we’d even get to see something truly amazing during our scouting, some hint that all the legends and stories about these supposedly haunted places might have some basis in truth. So far, it had been a whirlwind tour of abandoned and derelict buildings and places across the Northeast, seasoned with a lot of oddball and borderline nutjob witnesses to the supposed supernatural events that occurred there.
 
 Truth-to-tell, it had grown more depressing than anything else after a while. When you stepped back and really thought about it, you started realizing that every abandoned factory or house had been someone’s failed dreams, abandoned when they were no longer able to carry on with them. It started to feel a bit like we were scavengers or grave robbers, just picking through the remnants of other people’s lives and loss.
 
@@ -14,15 +14,15 @@ On top of it all, in all that time, I hadn’t seen anything at any of these pla
 
 Hell, at this point, I’d have taken even a ghostly handprint on a window or the half-seen flutter of movement in an attic window, so long as we weren’t able to immediately debunk either one.
 
-“We found it,” Nick said, turning to me with a wide grin. We’d worked together since I started this job, and he’d been here even before that. Somehow, he still had that giddy air of an excited child on Christmas morning whenever we reached our scout location. 
+“We found it,” Nick said, turning to me with a wide grin. We’d worked together since I started this job, and he’d been here even before that. Somehow, he still had that giddy air of an excited child on Christmas morning whenever we reached our scout location.
 
 “Really? You mean it *actually* still exists?” said Sarah, trudging up from behind me. She glanced at me sideways as she passed me to join Nick, as if to ask me why I ever doubted her.
 
 I hitched up the shoulder pack carrying my audio equipment as I followed. Even though we were just location scouts, part of our job was to capture some b-roll video and audio while we were here.
 
-I joined Nick and Sarah, carefully stepping over the roots that littered the forest floor, spreading out like veins from the trees and threatening to trip us with every step. From that vantage point, I found myself looking down the leaf-covered slope that fell gently away from where we stood. Amidst the collage of oaks and pines that partially obscured our view, I could see the unmistakable shape and color of the old two-story house at the base of the hill. Its whitewashed clapboard exterior was badly faded and time-worn from the two hundred years it had stood here, hidden miles from anywhere that could be considered civilization, even in those times. 
+I joined Nick and Sarah, carefully stepping over the roots that littered the forest floor, spreading out like veins from the trees and threatening to trip us with every step. From that vantage point, I found myself looking down the leaf-covered slope that fell gently away from where we stood. Amidst the collage of oaks and pines that partially obscured our view, I could see the unmistakable shape and color of the old two-story house at the base of the hill. Its whitewashed clapboard exterior was badly faded and time-worn from the two hundred years it had stood here, hidden miles from anywhere that could be considered civilization, even in those times.
 
-“Wow,” Sarah said simply, her eyebrows raised in muted surprise. She wasn’t like Nick – she wasn’t a *true believer*. But she also wasn’t like me; she still had an open mind behind her practicality. She considered herself a mutable skeptic, always searching for something that could convince her of the legitimate existence of the paranormal, but also demanding of evidence to support it. 
+“Wow,” Sarah said simply, her eyebrows raised in muted surprise. She wasn’t like Nick – she wasn’t a *true believer*. But she also wasn’t like me; she still had an open mind behind her practicality. She considered herself a mutable skeptic, always searching for something that could convince her of the legitimate existence of the paranormal, but also demanding of evidence to support it.
 
 *Extraordinary claims require extraordinary proof*. It was a favorite axiom of hers, a quote from Carl Sagan, I think. But she was always open to the possibility of the existence of that proof.
 
@@ -36,7 +36,7 @@ Sarah followed Nick, with me bringing up the rear. My ankle wasn’t appreciativ
 
 “I was expecting a log cabin or some sort of dilapidated shack. Why the hell would someone build an actual, honest-to-God, house out here in the middle of the woods?” I asked. “It’s got to be, what, fifteen miles to the nearest town?”
 
-It was Sarah who answered, our resident site researcher and historian. 
+It was Sarah who answered, our resident site researcher and historian.
 
 “According to what little I was able to find on this place, the house was built in the 1790s by Thomas Greer. He was the local vicar of the nearby settlement of Ander’s Cross, a couple miles in that direction,” she said, pointing vaguely to her right.
 
@@ -48,7 +48,7 @@ I grinned inwardly. A spooky and mysterious history always helped with the belie
 
 Neither of them answered as we continued picking our way down the frozen incline, moving from tree to tree for stability and using as many of the exposed roots as ad-hoc stairs as we could. Before too long, the ground leveled out and we found ourselves at the edge of the clearing that surrounded the old house. The tree line had started trying to reclaim the area, but it didn’t appear as successful as I would have assumed in its attempt, and the house still stood alone in the open ground. Only sparse and twisted underbrush had been able to make any progress in the siege, which I found mildly curious.
 
-Now free of the trees, we moved more easily, circling around to the front of the house. It was two stories, built in the simple New England aesthetic of the day. It wasn’t much more than a box, the front door and windows the only external characteristics able to break the austere modesty of the structure. The shingles of the sharply sloped roof were surprisingly mostly still present, and the cobblestone chimney that protruded from the center of the peak looked almost like it could start emitting smoke at any moment. 
+Now free of the trees, we moved more easily, circling around to the front of the house. It was two stories, built in the simple New England aesthetic of the day. It wasn’t much more than a box, the front door and windows the only external characteristics able to break the austere modesty of the structure. The shingles of the sharply sloped roof were surprisingly mostly still present, and the cobblestone chimney that protruded from the center of the peak looked almost like it could start emitting smoke at any moment.
 
 “They really built them to last, didn’t they?” I said with a small whistle. “I’m impressed – this thing looks almost like it could be lived in today with a little work.”
 
@@ -74,7 +74,7 @@ I looked back at Sarah and grinned with a small shake of my head. Nick was irrep
 
 Sarah turned her eyes back to me and shrugged. “It’s unclear. According to what little I was able to find, it appears that Fiona Greer – the mother – disappeared or committed suicide a year later. As far as Abigail and Elias, there’s not much else. The settlers wrote of strange happenings after the death of Thomas Greer. Babies and livestock stillborn or badly deformed, children gone missing in the night without any evidence of their leaving, that sort of stuff. There was even some sort of affliction that caused a number of the settlers to go completely blind. The rest is history.”
 
-I nodded. “Some pretty *dark* history, I guess,” I said. 
+I nodded. “Some pretty *dark* history, I guess,” I said.
 
 Nick reappeared at our side, his eyes still alight. “Let’s check out the inside,” he said.
 
@@ -82,15 +82,15 @@ I looked up at the sky, which had grown even darker, the waning light of afterno
 
 Nick pointed at the front door. “Just a quick look, Jason,” he coaxed, “Heck, if it’s in as good of a condition inside as it is on the outside, we can probably just sleep in there tonight.”
 
-Sarah met my eyes and gave a minute shrug, as if to say that it wasn’t a *terrible* idea. 
+Sarah met my eyes and gave a minute shrug, as if to say that it wasn’t a *terrible* idea.
 
-I hesitated a moment, torn between wanting to sleep in my relatively comfortable motel bed tonight and the unpleasant prospect of a three-hour hike back through a winter rainstorm. 
+I hesitated a moment, torn between wanting to sleep in my relatively comfortable motel bed tonight and the unpleasant prospect of a three-hour hike back through a winter rainstorm.
 
 Finally, I acquiesced. “Okay, but if it doesn’t look like it’s going to be a good shelter, we’re going to haul ass back for the van, deal?”
 
 Nick nodded and the three of us headed towards the faded and peeling front door of the house. I felt the sudden chill of the wind that blew up from the trees, ruffling my hair and tugging at my jacket, and the distant murmuring of thunder reached my ears. Though the vicar’s house promised the best protection from the coming storm, strange and unidentifiable misgivings had begun to settle themselves in my mind, and I thought that perhaps a trudge through freezing rain might be the better option, after all.
 
-Reaching the front door, I grabbed the rusted iron handle and pulled, somewhat surprised when it swung open on squealing hinges without much resistance. Nick stepped past me and led the way, camera sweeping the entry as he went. I was close behind, and Sarah followed us, retrieving a powerful LED flashlight from her pack and switching it on. 
+Reaching the front door, I grabbed the rusted iron handle and pulled, somewhat surprised when it swung open on squealing hinges without much resistance. Nick stepped past me and led the way, camera sweeping the entry as he went. I was close behind, and Sarah followed us, retrieving a powerful LED flashlight from her pack and switching it on.
 
 The interior was gloomy and foreboding, and our footsteps on the ancient, warped floorboards sounded far too loud in the damp and stale atmosphere within. Tiny dust motes glittered in the light as they drifted upon the still air, now disturbed by us three trespassers.
 
@@ -98,7 +98,7 @@ The interior was gloomy and foreboding, and our footsteps on the ancient, warped
 
 We stood in the shadowed foyer now and I retrieved my own flashlight, the harsh light illuminating the room. The walls were lath and plaster, huge sections now bare where time had crumpled the coverings to the floor, exposing the thin wooden slats beneath. The floorboards looked to be in surprisingly good condition, though the wood was now gray with age and the edges swollen from moisture and blackened with mold. It looked as if there had at one time been a carpet runner in the center of the room, but now all that remained was the ghost of a silhouette to mark its passage.
 
-On the left wall was a staircase that rose to the second floor, with a door beneath it that I guessed was probably a storage closet. To our right, a squared archway led to what looked like a dining area, with a long rectangular table and benches on either side. Its surface was covered with a moth-eaten tablecloth, its design faded beyond recognition. 
+On the left wall was a staircase that rose to the second floor, with a door beneath it that I guessed was probably a storage closet. To our right, a squared archway led to what looked like a dining area, with a long rectangular table and benches on either side. Its surface was covered with a moth-eaten tablecloth, its design faded beyond recognition.
 
 “Look at this place,” said Nick in wonder, the light atop his camera casting harsh illumination around the room and causing shadows to dance in the corners of our vision. “It’s amazing. It’s like being at one of those living history museums.”
 
@@ -116,11 +116,11 @@ Sarah snorted. “A family *did* live here, genius,” she replied.
 
 Nick looked at me, his eyes a little wider and less awe-struck than before. He nodded. “Yeah, exactly.”
 
-The three of us turned back to the open doorway as the sound of rain reached our ears from outside, growing quickly from a soft pattering breath to something that sounded remarkably close to the angry hissing of a frying pan. Inside, we were dry and protected from the sudden downpour and I was glad Nick had convinced me to stay. To say the march back through the winter rain and woods would have been miserable would have been an understatement. 
+The three of us turned back to the open doorway as the sound of rain reached our ears from outside, growing quickly from a soft pattering breath to something that sounded remarkably close to the angry hissing of a frying pan. Inside, we were dry and protected from the sudden downpour and I was glad Nick had convinced me to stay. To say the march back through the winter rain and woods would have been miserable would have been an understatement.
 
-We dropped our backpacks inside the entryway and wandered around the ground floor, taking in the place. Time-worn chairs sat before a soot-blackened hearth in the sitting room, their cloth covers little more than ragged remnants hanging sadly over wooden frames. Beside the hearth leaned a small bookshelf supporting dozens of ruined books, their pages bloated and indecipherable from moisture and age. 
+We dropped our backpacks inside the entryway and wandered around the ground floor, taking in the place. Time-worn chairs sat before a soot-blackened hearth in the sitting room, their cloth covers little more than ragged remnants hanging sadly over wooden frames. Beside the hearth leaned a small bookshelf supporting dozens of ruined books, their pages bloated and indecipherable from moisture and age.
 
-The kitchen was the same, though here the ravages of time took their toll by way of the rust and corrosion that inexorably ate away at the iron utensils and cutlery. 
+The kitchen was the same, though here the ravages of time took their toll by way of the rust and corrosion that inexorably ate away at the iron utensils and cutlery.
 
 After exploring the rest of the ground floor, we found ourselves back in the foyer, standing next to what I had assumed was the under-stairs storage. I was preparing to head up to the second floor to continue our investigation there when Sarah opened the door and made a small choked sound of surprise. I backed away from the steps and joined her at the open door.
 
@@ -134,9 +134,9 @@ Nick joined us, nudging between us with his camera before recoiling with a sour 
 
 I shook my head. “I’m not sure. Maybe a dead animal?”
 
-In truth, it was something more than just the reek of decomposition that wafted up from the darkness below, though that was certainly the lion’s share of it. Mingled in that almost palpable miasma of stench that assaulted us was something else – something sour and earthy and *old*. Something that our primitive instincts railed against, shouting for us to stay away. 
+In truth, it was something more than just the reek of decomposition that wafted up from the darkness below, though that was certainly the lion’s share of it. Mingled in that almost palpable miasma of stench that assaulted us was something else – something sour and earthy and *old*. Something that our primitive instincts railed against, shouting for us to stay away.
 
-I took a tentative step forward, trying to breathe through my nose, and shone my flashlight down the steps. The beam was bright and lit the stone and clay stairwell without difficulty. The walls glistened with moisture, and the worn steps looked slick and covered with that same mold that was staining the edges of the warped floorboards.  
+I took a tentative step forward, trying to breathe through my nose, and shone my flashlight down the steps. The beam was bright and lit the stone and clay stairwell without difficulty. The walls glistened with moisture, and the worn steps looked slick and covered with that same mold that was staining the edges of the warped floorboards.
 
 Another step forward and I felt my shoe scuff across something gritty at the threshold. I looked down and saw a line of yellowed granules spread across the cellar doorway, only broken where the sole of my boot had disturbed it. I turned a questioning eye to Sarah, who just shrugged.
 
@@ -146,7 +146,7 @@ Another step forward and I felt my shoe scuff across something gritty at the thr
 
 Nick was distracted, though, and didn’t rise to my jab. He had approached the threshold once more, his camera raised and recording as he placed an experimental foot on the top step. “It’s okay,” he said, not sparing a glance from his viewfinder. “It’s not as slippery as it looks. Let’s see what’s down here.”
 
-Every horror movie I’d ever seen told me that this was an abysmally bad idea, but deep down, I didn’t think we’d find anything other than the carcasses of a few dead animals that had found their way into the cellar and were unable to find their way out again. 
+Every horror movie I’d ever seen told me that this was an abysmally bad idea, but deep down, I didn’t think we’d find anything other than the carcasses of a few dead animals that had found their way into the cellar and were unable to find their way out again.
 
 Nick took another step, and I followed his lead. I felt Sarah’s hand on my shoulder to steady her balance as she stayed close. I thought I could feel a slight tremble to her grip and wondered what had her so rattled about this place. I glanced back at her and saw her narrowed eyes, keenly watching her footing as we slowly descended. There was something else in her expression, though; something was occupying her thoughts.
 
@@ -158,11 +158,11 @@ Nick took another step, and I followed his lead. I felt Sarah’s hand on my sho
 
 “I don’t know. It’s like there’s something at the back of my mind, just out of reach. It’s nothing,” she said, and I could hear that she had already pushed it aside, whatever it had been.
 
-Nick finally reached the bottom of the stairs and turned left, disappearing around the corner of the wall. I followed and we found ourselves in a wide stone cellar that looked to run the length of the house above. The walls were lined with deep shelves, each laden with hundreds of mason jars containing unidentifiable substances. In the far corner lay the remains of what appeared to be burlap sacks, the cloth long since having deteriorated enough to spill their contents in a lumpy pile of the same yellowed granules we’d seen at the head of the stairs. 
+Nick finally reached the bottom of the stairs and turned left, disappearing around the corner of the wall. I followed and we found ourselves in a wide stone cellar that looked to run the length of the house above. The walls were lined with deep shelves, each laden with hundreds of mason jars containing unidentifiable substances. In the far corner lay the remains of what appeared to be burlap sacks, the cloth long since having deteriorated enough to spill their contents in a lumpy pile of the same yellowed granules we’d seen at the head of the stairs.
 
 *If that’s rat poison, they must have had a hell of an infestation,* I thought.
 
-Playing the flashlights around the rest of the room, we were surprised to see what appeared to be the remains of a small cot against one wall, and beside it, a makeshift desk covered in what appeared to be surprisingly preserved papers, brown and stained with age and moisture, but intact, nonetheless. 
+Playing the flashlights around the rest of the room, we were surprised to see what appeared to be the remains of a small cot against one wall, and beside it, a makeshift desk covered in what appeared to be surprisingly preserved papers, brown and stained with age and moisture, but intact, nonetheless.
 
 “What the hell is this?” Nick said, his voice barely above a whisper.
 
@@ -198,13 +198,13 @@ Again, she shook her head. “I don’t know.”
 
 A creaking sound from somewhere above us drew our eyes to the ceiling in unison. It was accompanied by the howl of the wind as the storm grew in intensity outside. As we reflexively raised our lights toward the sound, we all gasped in surprise.
 
-Words scrawled in a careful and spidery script covered every inch of the bare floor joists over our heads, high enough that even the tallest of us wouldn’t have been able to brush the wood with our fingertips. Whatever had been used to write it was dark and off-black in color and very fine. The hand was steady and neat, but the indecipherable words were written in such a compact and precise manner that it was difficult at first to even recognize it as text. 
+Words scrawled in a careful and spidery script covered every inch of the bare floor joists over our heads, high enough that even the tallest of us wouldn’t have been able to brush the wood with our fingertips. Whatever had been used to write it was dark and off-black in color and very fine. The hand was steady and neat, but the indecipherable words were written in such a compact and precise manner that it was difficult at first to even recognize it as text.
 
 The sentences, if that was what they were, were haphazard in their orientation, and some lines overlapped others, creating a chaos that hurt my eyes to look upon.
 
 “That almost looks like Gaelic. But, how could she have even done this?” I asked, my mouth agape. “That ceiling has to be nine feet above the floor.”
 
-Sarah only grunted in reply, her eyes fixed upon the writing as she meandered about the cellar, scanning it with her flashlight beam. I heard her breath catch in her chest and looked over to where she stood, transfixed by an elaborate circular diagram directly above her. 
+Sarah only grunted in reply, her eyes fixed upon the writing as she meandered about the cellar, scanning it with her flashlight beam. I heard her breath catch in her chest and looked over to where she stood, transfixed by an elaborate circular diagram directly above her.
 
 “Holy crap,” she breathed. “Would you look at this?”
 
@@ -212,7 +212,7 @@ I moved to her side, looking closer at the diagram. It was elaborate and complex
 
 “What the fuck is this?” I said to no one in particular, spinning in a slow circle beneath it and trying to discern any of the words. “What was Abigail *doing* down here?”
 
-Nick came over, holding his camera up at the symbol and frowning. After a moment, he lowered it and was fiddling with the controls, his face scrunched up in consternation. 
+Nick came over, holding his camera up at the symbol and frowning. After a moment, he lowered it and was fiddling with the controls, his face scrunched up in consternation.
 
 “Okay, that’s weird,” he said, and looked up at us. “The camera doesn’t see it. It’s just a blank ceiling – all of it.”
 
@@ -222,7 +222,7 @@ I frowned and looked at the viewfinder he held out to me. He was right, of cours
 
 Nick shook his head and I saw that his previous enthusiasm had long since waned – this place wasn’t quite what he had been expecting. “No. I mean, yeah, that can happen, but I’m not using the night vision – I’m lighting it normally. It should see whatever we see.”
 
-The door at the top of the steps groaned as the wind rose momentarily, and we could almost sense the house above us straining against the storm’s fury. 
+The door at the top of the steps groaned as the wind rose momentarily, and we could almost sense the house above us straining against the storm’s fury.
 
 I looked at my companions and then glanced over my shoulder at the foot of the stairs, the bottom step peeking around the corner at us as if wondering if we were coming back. *Or watching to see what happens to us down here.* “Maybe we’re better off heading back upstairs and saving the cellar for later. Maybe Nat would get a kick out of being the first to really explore it in detail – you know, create more authentic reactions for the camera,” I suggested. To my relieved surprise, Sarah and Nick both nodded their agreement without debate, both looking a little unsettled.
 
