@@ -188,7 +188,7 @@ We were married two weeks later in a symbolic ceremony officiated by somebody I 
 
 And then about six months after our “wedding,” as I was going through Jay’s jacket for laundry, I found a receipt for a parking garage downtown. I looked up the address, and found the nearest point of interest was the psychiatric hospital for the criminally insane.
 
-It was a minimum security place that resembled a rehab for the decently well off. I gave the receptionist Jay’s last name and hoped that would be enough because I didn't know his sister's first name. As Jay and I had the same last name (a really common one, think Smith or Williams), I gave the receptionist my ID and hoped that would be enough to get me through and it was.
+It was a minimum security place that resembled a rehab for the decently well off. I gave the receptionist Jay’s last name and hoped that would be enough because I didn't know his sister's first name. As Jay and I had the same last name (a really common one, think Smith or Williams), I gave the receptionist my ID and said I was family and they let me in to see her.
 
 His sister was more lucid than what I was expecting for somebody who I last saw in a strait jacket.
 
@@ -206,7 +206,7 @@ She looked as if she expected me to commiserate with her on her brother’s disg
 
 “Why wouldn’t he go through with it?” I said. “I’m not a leper.”
 
-I tried to be calm and not let her get to me but it was hard. 
+I tried to be calm and not let her get to me but it was hard.
 
 “Does he come here every week?” I said, needing to know the worst.
 
@@ -320,7 +320,7 @@ I stared at him.
 
 “I guess you better hope it stays that way,” I said coldly. “Even zombies don’t like being left for dead.”
 
-He looked as if I had physically struck him. And then in the next moment, his face had changed, his entire bearing was different, harder. He held the cigarette to his lips and inhaled. He looked as beautiful as ever but much older than even six months ago. There were lines around his mouth I had never noticed before.
+He looked as if I had physically struck him. And then in the next moment, his face had changed, his entire bearing was different, harder.
 
 “It’s a terrible thing to say about one’s parents,” he said, “but they weren’t very nice people.”
 
@@ -340,7 +340,7 @@ I sat on the edge of the bed and he stood in front of me and I could feel him wa
 
 “Oh?”
 
-“It was to get away from you.” 
+“It was to get away from you.”
 
 “Don’t be ridiculous,” he said. “I loved you.”
 
@@ -366,7 +366,7 @@ Because Jay was wrong: I WAS the favorite.
 
 It was only when he convinced me to become a vegetarian that they began to despise me and then hate me. When I became a vegan, they practically disowned me. But before that, they had loved me best because out of all my siblings, I had the most insatiable appetite for human flesh. Out of all their children, I was the most like them.
 
-My dad ruffled my hair and my mother kissed me. She even licked a bit of gravy off my cheeks just like she used to do. My stomach was full and bloated, and my arms and legs felt insignificant beneath its weight. My mother lifted up my shirt, exposing my huge round belly, and we all stared at it. I was shocked at large it had become. My mother rubbed it just like she used to after a meal, to help the digestion she said. My belly twitched as if something was trying to get out. A lightning stab of pain ripped through my body and I screamed.
+My dad ruffled my hair and my mother kissed me. She even licked a bit of gravy off my cheeks just like she used to do. My stomach was full and bloated, and my arms and legs felt insignificant beneath its weight. My mother lifted up my shirt, exposing my huge round belly, and we all stared at it. I was shocked at how large it had become. My mother rubbed it just like she used to after a meal, to help the digestion she said. My belly twitched as if something was trying to get out. A lightning stab of pain ripped through my body and I screamed.
 
 My parents exchanged proud happy glances.
 
