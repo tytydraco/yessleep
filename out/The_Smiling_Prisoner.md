@@ -18,7 +18,7 @@ Me and Roxanne looked at each other in confusion.
 
 "I don't know. She doesn't look like a criminal. Looks like a kindergarten teacher." 
 
-Roxanne looked at the lady. "Yo! Whatcha in for!"
+Roxanne looked at the lady. "Yo! Whatcha in for?!"
 
 The woman tilted her head, still smiling. "I'd rather not say."
 
@@ -66,7 +66,7 @@ Me and Roxanne turned away to talk.
 
 All the while, we would occasionally see Judith peeking at us with that same smile that now took on a more sinister undertone.
 
-She was put in the hole for a week and charged with assault. But, we all now now that wouldn't work.
+She was put in the hole for a week and charged with assault. But, we all know now that wouldn't work.
 
 One day at lunch, me and Roxanne ate and chatted.
 
