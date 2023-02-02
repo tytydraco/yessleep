@@ -20,7 +20,7 @@ Lawrence came home from reviewing a new Balkan restaurant a couple of nights ago
 
 "Absinthe?" I asked.
 
-"No, but that's exactly what I thought too! There's no way I'm drinking that shit. So Rayko says *'From my country. We drink'*. He pours two shots. And, you know, I don't want to piss him off any more than I already have. So I picked up a glass. It's iridescent, like a tiny little galaxy. Quite beautiful really. He looks at me with this intensity, and I get goosebumps. Then he says something else in Bulgarian, like under his breath. He clinks my glass, and we downs the shots."
+"No, but that's exactly what I thought too! There's no way I'm drinking that shit. So Rayko says *'From my country. We drink'*. He pours two shots. And, you know, I don't want to piss him off any more than I already have. So I picked up a glass. It's iridescent, like a tiny little galaxy. Quite beautiful really. He looks at me with this intensity, and I get goosebumps. Then he says something else in Bulgarian, like under his breath. He clinks my glass, and we down the shots."
 
 "What did it taste like?" I asked.
 

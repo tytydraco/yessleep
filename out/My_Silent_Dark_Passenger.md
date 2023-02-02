@@ -52,7 +52,7 @@ I woke up in a daze and slightly groggy on my couch, fully clothed yet no shoes 
 
 ‘Was that just a nightmare?’, I thought to myself. 
 
-There was also a nasty aftertaste lingering in my mouth that reminded me of iron pennies.. I ran to the bathroom mirror and examined my mouth, spitting out what looked like bloody mucus. 
+There was also a nasty aftertaste lingering in my mouth that reminded me of copper pennies.. I ran to the bathroom mirror and examined my mouth, spitting out what looked like bloody mucus. 
 
 Fuck, what did I do? I immediately text Ren and anxiously wait for his reply.
 
