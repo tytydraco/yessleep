@@ -54,7 +54,7 @@ Me and Roxanne watched in anticipation to see what would happen.
 
 After a few minutes, the guard began screaming in pain. She ran out, holding her hand up to her eye. It was bleeding like crazy.
 
-Judith peeked out and showed up the eyeball of the guard like she was proud of what she did. Once again, she still had that happy go lucky smile on her grin.
+Judith peeked out and showed us the eyeball of the guard like she was proud of what she did. Once again, she still had that happy go lucky smile on her face.
 
 Me and Roxanne almost couldn't believe what we were seeing. We weren't even sure if Judith was capable of doing something like that. The guard was a 6 foot tall woman bulging with muscle and Judith looked like you could snap her over your knee.
 

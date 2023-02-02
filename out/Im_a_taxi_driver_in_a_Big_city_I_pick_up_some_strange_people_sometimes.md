@@ -423,3 +423,7 @@ That’s all the stories I have for you for now, not that I don’t have more it
 &#x200B;
 
 I will give her a better life, even if it means I never sleep a peaceful night again.
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10rco3v/im_a_taxi_driver_in_a_big_city_i_pick_up_some/)
