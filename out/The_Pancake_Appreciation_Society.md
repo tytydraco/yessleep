@@ -96,6 +96,4 @@ Those were the last words I ever heard my best friend say after he slammed the i
 
 Marty wasn't at work the next day. Or the day after that. Many hours of frustration and trying to get ahold of him myself later- I tried contacting the police in order to find more information about what was going on with Marty. They told me that though they were able to access the building, they did not find any evidence of Marty even being there. No blood, nothing. 
 
-I knew that couldn't have been the case, I mean I was there the whole time. I saw him, faceless- missing the skin on his hand. Why didn't they find his skin glove? I mean, I through it right outside the doorframe. After a polite "Fuck you" to the investigator and an abrupt slamming of my phone I decided that if I wanted to know what was going on, I was most likely going to have to find out myself. 
-
-TO BE CONTINUED
+I knew that couldn't have been the case, I mean I was there the whole time. I saw him, faceless- missing the skin on his hand. Why didn't they find his skin glove? I mean, I through it right outside the doorframe. After a polite "Fuck you" to the investigator and an abrupt slamming of my phone I decided that if I wanted to know what was going on, I was most likely going to have to find out myself.
