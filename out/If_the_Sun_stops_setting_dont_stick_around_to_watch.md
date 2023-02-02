@@ -1,5 +1,3 @@
- 
-
 When I was younger, I was one who indulged in music, parties, and various intoxicating substances that would enhance those experiences. I count myself among the many who allowed their hedonism to run wild with enthusiasm. It came then as no surprise that I found myself attending festivals with groups of friends who, at the time, shared the same reckless mindset as me.
 
 For the record – and I say this without pride – I am experienced in drug-taking. While I don’t particularly regret it, there was one experience that halted my drug use altogether. At the time, my fellow partygoers scoffed at this decision, since I didn’t see any worth trying to explain to them what had happened. They would most likely have chalked it all up to a substance-induced hallucination. I’ve had such hallucinations in the past, which tend to be a result of sleep deprivation and frequent redosing. I can safely say none of them compared to the raw reality of this experience.
@@ -36,7 +34,7 @@ Robbie, eagle-eyed for intoxicants, practically teleported onto the log next to 
 
 “Of course,” replied Chris, passing the paraphernalia to Robbie.
 
-Just then, a different feeling swept over me. It wasn’t a feeling of nausea, or anxiety, but it was like the late-day sunlight was coming in pulses. Like, I could \*feel\* the rays, as if they had weight and substance to them, increasing and decreasing in intensity as they swept across my face. I’d never felt anything like it from this type of drug before, so at the time I thought it was just the combination of whatever other chemicals were coursing through my veins in that moment. “Tripping out”, as one might call it.
+Just then, a different feeling swept over me. It wasn’t a feeling of nausea, or anxiety, but it was like the late-day sunlight was coming in pulses. Like, I could *feel* the rays, as if they had weight and substance to them, increasing and decreasing in intensity as they swept across my face. I’d never felt anything like it from this type of drug before, so at the time I thought it was just the combination of whatever other chemicals were coursing through my veins in that moment. “Tripping out”, as one might call it.
 
 I chose to dismiss it and continue partying. Someone from the other group had brought out their speaker, a heavy and chunky thing that blasted bass into our bones. With the others dancing about the camp, I opted that one final re-dose of MDMA couldn’t hurt.
 
@@ -56,7 +54,7 @@ I became distracted at some point by a barely audible sound, somewhere off in th
 
 Machinery. That was the first word that came to my mind in an attempt to describe what I was hearing. The heavy clanking and whirring of fuel-powered mechanisms operating on a building site. I didn’t even notice Robbie’s absence at this point until I looked over, and saw there were only a few of us outside now, two making out messily, and Chris and Robbie still dancing.
 
-I sat and listened for a few minutes. I could swear that the sounds were getting closer, but they were still too distant to be certain. I checked the time, then became a little confused – 10PM. I glanced back up to the sky; the sun hadn’t even touched the horizon yet, but the sky around had definitely grown darker, with stars becoming apparent. A thought rose in my mind, \*this shit has me TRIPPING\*. This was absolutely true, but the whole situation just seemed wrong in some way.
+I sat and listened for a few minutes. I could swear that the sounds were getting closer, but they were still too distant to be certain. I checked the time, then became a little confused – 10PM. I glanced back up to the sky; the sun hadn’t even touched the horizon yet, but the sky around had definitely grown darker, with stars becoming apparent. A thought rose in my mind, *this shit has me TRIPPING*. This was absolutely true, but the whole situation just seemed wrong in some way.
 
 At that moment, I shifted my gaze downwards to see Rachel standing below on the slope of the hill, facing away from the camp. Squinting in confusion, I called out,
 
@@ -122,7 +120,7 @@ The squirming lines were wider now, and much, much dimmer, more of a dark grey t
 
 Furrowing my brow as if to ask the world around me to just stop whatever it was doing, I looked up one last time to see the patterns had ceased all movement, and were now almost black. Gaping. To my horror, they began to move again. No, the lines remained motionless, but the darkness within was writhing and… started to fall.
 
-Swathes of tiny black shapes were pouring out of the sun right before my eyes, down into the trees below. At this point in my drug-induced delusion, my faith in the fact that this was a hallucination was dwindling. They kept pouring out, until I could see trees in the distance starting to shudder, leaves dancing about like a great stampede of \*something\* were shaking them. I didn’t have the conviction to control myself anymore, and I started hyperventilating. The swaying treetops were getting closer, and a faint, horrible chittering noise became apparent, like how I imagined insects would sound if they were capable of laughter. The trees’ movement must have been less than half a mile away now.
+Swathes of tiny black shapes were pouring out of the sun right before my eyes, down into the trees below. At this point in my drug-induced delusion, my faith in the fact that this was a hallucination was dwindling. They kept pouring out, until I could see trees in the distance starting to shudder, leaves dancing about like a great stampede of *something* were shaking them. I didn’t have the conviction to control myself anymore, and I started hyperventilating. The swaying treetops were getting closer, and a faint, horrible chittering noise became apparent, like how I imagined insects would sound if they were capable of laughter. The trees’ movement must have been less than half a mile away now.
 
 I was paralysed. Whether I was now in full-fledged delirium or not wasn’t my concern at the time – my eyes did not seem to betray me otherwise. Whatever were moving through the trees below were moving fast, and within 20 seconds they were within full earshot. The sounds coming from the darkness became unbearable, like nails scraping my eardrums, and then… nothing. Movement ceased and silence fell.
 
