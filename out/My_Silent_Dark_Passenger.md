@@ -36,7 +36,7 @@ I texted him that I made it back safe and told him that my migraines were coming
 
 What the hell  is happening to me. I reached into the pocket of my jacket and felt something hard. I take out a cigar shaped plastic container and inside was a good-sized joint, that was left by my friend. I was surprised I didn't smell it in the car. Maybe that's why the cabby looked at me funny and gave me a smirk as I left his car. I couldn't help but smile. 
 
-'You sneaky bastard', I say under my breath. 
+"You sneaky bastard", I say under my breath. 
 
 I looked past my couch and into the mirror in my bathroom. I shuddered at the thought of seeing that man again. I looked back down at the small joint and wondered if this would help or make things worse. Only one way to find out... 
 
