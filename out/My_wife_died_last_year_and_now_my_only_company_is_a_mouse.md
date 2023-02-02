@@ -1,0 +1,41 @@
+&#x200B;
+
+I always thought of mice as dumb animals that are driven by their basic instincts, eat, sleep, multiply. I know that they can be trained to do tricks and are good at problem solving like finding their way out of a maze, but in human terms there is no comparison. Or so I thought.
+
+About a month ago I started hearing scratching on the ceiling over my bed, I knew straight away it was a mouse what else could it be. It didn’t really bother me, but if my wife was alive, she would have lost it, she was terrified of the things. I can imagine her now wrapped around me warning me to get rid of it. Then she would have made me spend the rest of the night in the attic tearing up floorboards until I found it. She was very demanding like that, weirdly that is one of the things I miss the most about her.
+
+At around the same time every night the scratching started, but I just ignored it, even when a small hole appeared directly over my head. I just shoved a sock in it and told myself I'd fix it later, which I still haven’t gotten around to. Eventually the scratching stopped, and for a while I thought the mouse was gone, until one night when I was sitting at the table working on my computer, like I did most nights, I saw something crawl out from underneath the kitchen door. When I saw it was the mouse, I jumped back on my chair and screamed a little bit, I wasn’t afraid, it just startled me. 
+
+Surprisingly with all that noise the mouse didn’t run away, it just stood there in the middle of the floor with an odd look in its eye, it didn’t even look scared of me. I wasn’t sure what to do, I didn’t want to hurt the poor little thing, but I couldn’t have it in my house either. So, I slowly backed up against the wall and made my way around to the back door, the whole time the mouse just stood there watching me. Then I opened the door and made my way back around so that I could try chase him out to the back yard.
+
+Suddenly I ran towards it, but it didn’t move, it just stood there with that weird look in its eye, it wasn’t until I stamped my feet before it finally ran behind the cabinet under the sink. As quick as I could I blocked off all exits with whatever I could find around the house so it couldn’t escape. The next day I bought a half dozen mouse traps and laid them down outside the only place it could escape.
+
+There was only one way in and one way out, so I was sure I’d have him caught by the end of the day, but it didn’t come out. Again, the next day there was no sign of it. After a while I begin to believe that he was gone, maybe I scared him to death, I thought, or it could have found a way outside and was too frightened to come back.
+
+Then one night I heard a loud clap coming from the mouse trap, then another. I turned around just in time to see the mouse leap over the third trap like a gymnast. It was now standing beside me less than two feet away, again it just stood there fearlessly staring up at me, it was like it was waiting to see how I would react.
+
+I tried shooing it, but it wouldn’t budge. So, l leaned in for a closer look, suddenly it threw me the strangest look, I know you won’t believe me, but I could swear it smiled at me. I got such a fright that I screamed like I little girl, and it ran under the fridge.
+
+As fast as I could, I blocked every exit in the whole kitchen, apart from the one where I set the traps this time in a way that I believed would be impossible for him not to get caught. When I was done, I grabbed the sweeping brush and waited for it to come out, which didn’t take very long. It was like it had a death wish, it just casually popped out and started walking towards me, before it got too close, I swung the brush just missing its head, and it ran away. I spent about 5 minutes chasing it around the kitchen before it finally ran toward the traps.
+
+One by one it pounced, setting off the traps as it went, then safely ran into the hole. I couldn’t believe it, I was beaten by a mouse. But I didn’t give up, every night I would come up with a new way of outsmarting it, but I couldn’t, the mouse was a fucking genius. However, frustrating it was I couldn’t help but respect the thing, I didn’t know whether to catch it or throw it a parade.
+
+The longer this went on the more I started to enjoy it, and I wasn’t the only one, the mouse seemed to get something out of it too or why would it keep coming to me every night like it did. Before I knew it, I felt back to my old self, I had a sense of purpose that I had not felt in a long time. I half didn’t want to catch the thing because I didn’t want it to end.
+
+But as much as I liked having that mouse around, there was one thing I loved more. I used to keep a photo of my wife on the window beside the fridge, it was taken the summer before she got sick. I don’t know why l liked that photo so much, it was just a normal day when I took it. We were just out walking at the beach near our home, and she looked happy, so I took a photo. But every time I looked at that photo it took me back to a time when things weren’t so... broken.
+
+It must have been 3am and I had just finished the project I was working on, and was about to save it, when I heard the little patter of tiny footsteps on the countertop. Out of the corner of my eye I saw the mouse nibbling on the crumbs that were left over from when I made a sandwich. I pretended that I couldn’t see him and kept tapping away at random keys on the computer, every now and then I'd glance over to see what it was up to. Usually, the mouse didn’t take it’s eyes off me the whole time, but this time it seemed distracted.
+
+So carefully I grabbed a towel from the chair beside me as the mouse climbed on to the windowsill. It sniffed around for a while, then looked over at me for a moment, and scuttled behind the radio. That’s when I got my chance and I quickly pushed out my chair and ran to the window, which made a lot of noise, so, I knew it heard me.
+
+“Now I got you, you little shit” I giggle to myself as I tried clearing the area of anything that he could hide behind.
+
+Suddenly it shot out across the windowsill and hid behind the rainbow cactus, I quickly tried to push it out of my way, but instead it fell, and I instinctively tried to grab it. Which was a bad idea, both my hands were covered with spines, and the mouse escaped out of sight.
+
+One by one I pull out the spines, loudly coursing the mouse with every prick, but as I was taking out the last one, the mouse suddenly popped out from behind my wife's photo. Without thinking I grabbed the towel from the countertop and flicked it towards the mouse, knocking both the mouse and the photo of my wife onto the floor, shattering the frame into little pieces.
+
+When I looked down, I saw the mouse standing in the middle of the rubble, staring up at me with it’s mouth open. Suddenly I felt myself fill with rage and I slowly lifted my leg as I prepared to crush him, instead of running away, it just stands there, eyes clutched tight, bracing itself. I couldn’t do it, there was just something about it that made my heart melt, so I tried to pull my leg away but slipped on the broken glass and fell. Then I heard a loud squeak and when I turned around, I saw the mouse limping under the sink, again setting off the traps as it went.
+
+I started to feel bad for the poor thing I didn’t want to kill it, I just wanted it out of the house, so the next day I decided to rib out the timber at the bottom of the counter to check on it. Right in the corner on top of one of my old socks I found it, it must have passed away in the night. This is the weird thing, scratched into the wall over it was the word, “shrimpy” that was a nickname my wife had for me, it was what I ordered on our first date, she said my breath stink for the rest of the night and ever since she said I was her little shrimpy.
+
+I know that it could have been written by my wife years before, or even by the people that lived there before us, but what if it was my wife trying to help me through a bad time and I killed her

@@ -1,18 +1,18 @@
-When my sister, Amy, was in 9th grade, her favorite math teacher, Mr. Marris, leapt from the top story of the humanities building and exploded on the pavement. He did it right as the lunch bell rang when the main quad was at its busiest. 
+When my sister, Amy, was in 9th grade, her favorite math teacher, Mr. Marris, leapt from the top story of the humanities building and exploded on the pavement. He did it right as the lunch bell rang when the main quad was at its busiest.
 
-Later, everyone would have a story: a description of the way his arms disengaged from his torso. A spot of his blood on a pair of Converse sneakers that landed from twenty feet away. Words Mr. Marris murmured as he descended through the air. 
+Later, everyone would have a story: a description of the way his arms disengaged from his torso. A spot of his blood on a pair of Converse sneakers that landed from twenty feet away. Words Mr. Marris murmured as he descended through the air.
 
 Ninety percent of it was lies. But high school kids had to entertain themselves somehow.
 
 Of course, no one could top Amy. Amy told us all that she was being haunted. We thought it was a joke at first. She’d always been a little weird. Mommy’s little math genius who’d never been to a sleepover much less gone on a date.
 
-As a seventh grader, Amy had memorized pi to 100 digits. By 8th, she was already taking classes at the high school. In 9th, she was the only freshman in Mr. Marris’s calculus class, and the only one with a perfect grade at the time of his fall. 
+As a seventh grader, Amy had memorized pi to 100 digits. By 8th, she was already taking classes at the high school. In 9th, she was the only freshman in Mr. Marris’s calculus class, and the only one with a perfect grade at the time of his fall.
 
 A week after the fall, when Mr. Marris’s replacement came in, Amy spent the first hour of class staring into space and muttering to herself. Finally, after the sub was sufficiently creeped out, she asked Amy what she was saying.
 
 *He doesn’t like the way you’re teaching derivatives,* Amy said quietly. *You shouldn’t start with real world examples like acceleration and speed. Leave that for the physicists. Start with the pure theory like an actual mathematician, you fucking bitch.*
 
-If Jackson Poole was to be believed, she’d practically growled those last words like the chick in *The Exorcist.* But then again, he was stoned half the time and loved making shit up. 
+If Jackson Poole was to be believed, she’d practically growled those last words like the chick in *The Exorcist.* But then again, he was stoned half the time and loved making shit up.
 
 After Amy’s outburst, the sub decided to peace out, and the principal pulled Amy out of the class. My parents threw a fit, but the administration wiggled out of their crosshares by claiming Amy was *too advanced* and needed special accommodations.
 
@@ -20,7 +20,7 @@ The principal got a PhD student from the local college to come in for a couple o
 
 I still have a copy of the email he sent the school with my parents cc’ed: *There’s simply no way a 14 year old girl would be able to intuitively grasp Taylor and MacLuarin series through osmosis, sheer genius or even poking around on the internet. Worse, she claims that Mr. Marris is the one whispering answers to her, and that he doesn’t like my cologne. I feel threatened, and I don’t wish to continue in this position.*
 
-Of course, to my parents, the school was the problem. Their little genius was just too smart for the lazy administrators. At dinner, they muttered about lawsuits and taking the GED, applications to MIT and CalTech. 
+Of course, to my parents, the school was the problem. Their little genius was just too smart for the lazy administrators. At dinner, they muttered about lawsuits and taking the GED, applications to MIT and CalTech.
 
 “They’re wrong, you know,” said Amy one day after mom and dad had cleared out. “I’m not that smart. He just won’t stop shouting the answers at me. And if I don’t repeat what he says, he gets so mad.”
 
@@ -28,11 +28,11 @@ Of course, to my parents, the school was the problem. Their little genius was ju
 
 “We weren’t!” she shouted. Then, calming down a bit, she added. “You believe me, right? That he’s here? He says you don’t believe me.”
 
-“I think you’ve been traumatized,” I said, careful with my words. 
+“I think you’ve been traumatized,” I said, careful with my words.
 
 “He said you wouldn’t believe me,” Amy muttered. “He said no one would.”
 
-As I tried to go to bed that night, I heard Amy’s soft snores drifting out from the room across the hall. It had been a long time since she’d gone to sleep before me. 
+As I tried to go to bed that night, I heard Amy’s soft snores drifting out from the room across the hall. It had been a long time since she’d gone to sleep before me.
 
 It reminded me of when we were little girls and shared a bed. Back then, her room had been our room. When she had trouble sleeping, she’d stare nervously at the ceiling, conjuring invisible monsters, and I’d tell her stories to calm her down.
 
@@ -40,11 +40,11 @@ I guess we’d drifted apart since then. I still loved writing, but I wasn’t m
 
 But now, in this moment, I just wanted her to be a star again. To be her old nerdy self. To be okay.
 
-I walked over to check on her sleeping. That’s when I saw the brown book for the first time. She had it nuzzled under her arm as she slept. It smelled musty, and its bindings were cracking with age. Slowly, I crept over and removed it from under her arm. 
+I walked over to check on her sleeping. That’s when I saw the brown book for the first time. She had it nuzzled under her arm as she slept. It smelled musty, and its bindings were cracking with age. Slowly, I crept over and removed it from under her arm.
 
 *Mathematica Imaginari* read the title.
 
-The book felt strangely warm to the touch, and something in me wanted to drop it. Still, I might have opened it if not for the fact that at that exact moment my sister’s mirror fell off the wall and shattered into a thousand pieces. 
+The book felt strangely warm to the touch, and something in me wanted to drop it. Still, I might have opened it if not for the fact that at that exact moment my sister’s mirror fell off the wall and shattered into a thousand pieces.
 
 Amy woke with a start and looked at me with panicked eyes.
 
@@ -60,11 +60,11 @@ After that, Amy took a turn for the worse. She’d take a pen and stand on a cha
 
 “It’s a proof,” she tried to explain. “A proof of something that humans aren’t supposed to understand, I think. But he’s *making* me understand. He says we’ve lived in a house of straw called believe for millenia, and this will rewrite everything. The whole house is coming down. There are just so many numbers, though. Holding it all in my head… it’s so hard.”
 
-She was crying as she spoke. 
+She was crying as she spoke.
 
 “He won’t stop talking. Won’t stop ranting. He never listens. He never shuts up.”
 
-When we sent photos to professors at the local university, they dismissed it as numerical gibberish, a bucketful of meaningless equations. 
+When we sent photos to professors at the local university, they dismissed it as numerical gibberish, a bucketful of meaningless equations.
 
 “He’s making me do it,” said Amy, almost in tears one day when I asked her to stop. “He says we’ve got to bring the math from where he is back over here. He says his mind is open now. He says he’ll hurt you and mom and dad if I don’t do everything he says. Now I need you to call Professor McAddams at Princeton and tell him the following.”
 
@@ -82,11 +82,11 @@ Her eyes grew wide and she lunged at me, trying to grab it back.
 
 “I’m so sorry,” she said, again and again. “He made me do it! You believe me, right? You have to believe me!”
 
-After that, they had Amy committed on a 48 hour involuntary hold at the psych ward. I wanted to visit, but the doctors recommended against it. 
+After that, they had Amy committed on a 48 hour involuntary hold at the psych ward. I wanted to visit, but the doctors recommended against it.
 
-At home, the pain in my hand seethed. My parents were exhausted and went to sleep early, but I just sat in Amy’s room. The black book lay on the floor, a splotch of my blood still on it for where I’d been stabbed. 
+At home, the pain in my hand seethed. My parents were exhausted and went to sleep early, but I just sat in Amy’s room. The black book lay on the floor, a splotch of my blood still on it for where I’d been stabbed.
 
-For a second, I was furious, thinking about the way she’d stabbed me, how angry she’d gotten. It was like I didn’t know her anymore. But the more I thought about it, the more I just missed her. I just wanted her back. 
+For a second, I was furious, thinking about the way she’d stabbed me, how angry she’d gotten. It was like I didn’t know her anymore. But the more I thought about it, the more I just missed her. I just wanted her back.
 
 I picked up the black book and took it to the stove. Then I put I turned on the burner and let the flames eat the whole cursed thing. The cover stunk and smoked as the flames consumed it. Before it fully went up, I swear it tried to move, edging its way away from the flames, but I put it back in place with a long fork. I kept watching it burn until the smoke alarm went off and my parents ran down panicked to check on me.
 
@@ -126,7 +126,7 @@ After two days, they let Amy out of the psych ward. Apparently, she’d been abl
 
 “Fuck you,” I said, slamming the door behind me.
 
-We all tried to pretend everything was normal. 
+We all tried to pretend everything was normal.
 
 Amy even went back to school, but of course by then the rumor mill was going full speed. The abuse was endless.
 
@@ -138,7 +138,7 @@ Amy even went back to school, but of course by then the rumor mill was going ful
 
 “None of them believe me,” said Amy at lunch, crying hot tears that fell from her face all the way down to her lap. “Why won’t anyone believe me?”
 
-I said nothing, staring at my wounded hand. 
+I said nothing, staring at my wounded hand.
 
 “Do you know Janet Cassidy,” I asked, but by the Amy was already walking. She marched past the picnic tables and up the stairwell, muttering to herself.
 
@@ -158,7 +158,7 @@ She blinked away tears.
 
 “No you don’t,” she said. “Don’t lie. You think I’m fucking crazy.”
 
-I took a step toward her. 
+I took a step toward her.
 
 “I believe you,” I said again, and I meant it. I knew there was no evidence. No way to ever prove it. But I knew she needed someone to believe her. And so that’s what I gave her.
 
@@ -168,6 +168,6 @@ As I said the words again, she fell to her knees sobbing. I ran to her and held 
 
 I looked around. “Is he here right now?”
 
-Amy blinked her eyes and looked around, confused. 
+Amy blinked her eyes and looked around, confused.
 
-“It’s the strangest thing,” she said. “He’s gone.”
+“It’s the strangest thing,” she said. “He’s [gone](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).”
