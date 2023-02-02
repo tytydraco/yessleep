@@ -96,7 +96,7 @@ It only took a month for the entire prison to fear Judith. She went through ever
 
 They would wear protective gear when they needed to go in her cell to do routine checks to make sure she wasn’t sneaking in contraband. 
 
-At some point, they stopped punishing her because she would hurt people again no matter how long she was in the hole or how much they charge her.
+She was in the hole more times than I can count on both hands and feet, but that never deterred her.
 
 Judith always looked at me and Roxanne like she was a grizzly bear and we were two vulnerable rabbits. Strangely enough, we were always spared from her wrath. We weren’t sure if she liked us or she was waiting for any reason to horribly maim us.
 
