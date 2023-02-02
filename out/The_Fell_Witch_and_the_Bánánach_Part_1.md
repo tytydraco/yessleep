@@ -229,3 +229,5 @@ I looked at my companions and then glanced over my shoulder at the foot of the s
 We turned back in the direction of the staircase and froze, unable to understand what we were seeing at first. Unable to reconcile it with what we had known was real.
 
 *The staircase was gone.*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10rfdr6/the_fell_witch_and_the_bánánach_part_2/?utm_source=share&utm_medium=web2x&context=3)
