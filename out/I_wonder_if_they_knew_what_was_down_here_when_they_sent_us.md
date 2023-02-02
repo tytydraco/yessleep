@@ -1,24 +1,24 @@
   
 
-I am a saturation diver in a pressurized structure at the ocean floor, 1000 feet below the surface of the water. At this depth the water pressure is 30 times more than at the surface and it takes a week of slow ascension to the surface in order for us not to get decompression sickness and die. We are down here working for 21 days and then we spend a week to ascend safely. Right now in our chamber we have 12 days left of the various gasses giving us life and we are expected at the surface in 7 days. This would all sound like a typical day for anyone familiar with our line of work, but there are several problems. We have no way of getting back to the surface. Not now, not in 12 days when we begin to suffocate. That problem is caused by are largest problem, the thing outside that found us at the bottom of the ocean. 
+I am a saturation diver in a pressurized structure at the ocean floor, 1000 feet below the surface of the water. At this depth the water pressure is 30 times more than at the surface and it takes a week of slow ascension to the surface in order for us not to get decompression sickness and die. We are down here working for 21 days and then we spend a week to ascend safely. Right now in our chamber, we have 12 days left of the various gasses giving us life, and we are expected at the surface in 7 days. This would all sound like a typical day for anyone familiar with our line of work, but there are several problems. We have no way of getting back to the surface. Not now, not in 12 days when we begin to suffocate. That problem is caused by our largest problem, the thing outside that found us at the bottom of the ocean. 
 
-There were six of us that came down for the initial work cycle. There were only 4 beds, but we would sleep in a rotation anyway. 6 men is a lot for this type of work in this small space but it was a big job, paid an unbelievable amount of money. The living quarter was a 7 by 7 room, the bedroom 5 by 6. We lived in this miniature space for 28 days, we did our best to get along. Whenever you go the opportunity to work in the water, however, you took it. So on the day the creature found us, Steven and Bobby were delighted when it came their turn to go outside and get some work done on the oil rig. I was on equipment watch, making sure their gas levels were ok, watching vitals. John and Glenn were sleeping, Evan was watching the cameras and talking to the boys outside.
+There were six of us that came down for the initial work cycle. There were only 4 beds, but we would sleep in a rotation anyway. 6 men is a lot for this type of work in this small space but it was a big job, paid an unbelievable amount of money. The living quarter was a 7 by 7 room, the bedroom 5 by 6. We lived in this miniature space for 28 days, and we did our best to get along. Whenever you go the opportunity to work in the water, however, you took it. So on the day the creature found us, Steven and Bobby were delighted when it came their turn to go outside and get some work done on the oil rig. I was on equipment watch, making sure their gas levels were ok, watching vitals. John and Glenn were sleeping, Evan was watching the cameras and talking to the boys outside.
 
 We were about 30 minutes from being done and pulling the boys in when Bobby came in over the radio. 
 
 “Hey boys, did anybody hear that?”
 
-“Sounded like a whale. Awful close though, usually they aren’t this close to the floor.” 
+“Sounded like a whale. Awful close, though. Usually, they aren’t this close to the floor.” 
 
 “I didn’t hear anything in here, Bobby, sorry.”
 
-“Never heard a whale make that noise but oh well. It’ll see the lights on the rig and go the other way.”
+“Never heard a whale make that noise, but oh well. It’ll see the lights on the rig and go the other way.”
 
-After about 10 more minutes we heard from Steve.
+After about 10 more minutes, we heard from Steve.
 
-“God damn that’s an unsettling sound. Must be a female giving birth or something. Hopefully it isn’t dying.”
+“God damn that’s an unsettling sound. Must be a female giving birth or something. Hopefully, it isn’t dying.”
 
-“We’re gonna switch the radio to the rig mics for a second see if we hear anything.” There are microphones at different sealed positions on the rig that were monitored by software at the surface base. This is there because often times you can hear something break a lot quicker than you can see it. Evan turned our radio to pick up the mic sounds. It took about 30 seconds but eventually we heard it too. It wasn’t a god damn whale. 
+“We’re gonna switch the radio to the rig mics for a second, see if we hear anything.” There are microphones at different sealed positions on the rig that were monitored by software at the surface base. This is there because often times you can hear something break a lot quicker than you can see it. Evan turned our radio to pick up the mic sounds. It took about 30 seconds but eventually we heard it too. It wasn’t a god damn whale. 
 
 The pitch was too low. Maybe not to the untrained ear, maybe not to some animals even, but I knew immediately that wasn’t a whale. It was a rumbling, filling cry with a small blare to the end of it, it sent a chill down my spine. 
 

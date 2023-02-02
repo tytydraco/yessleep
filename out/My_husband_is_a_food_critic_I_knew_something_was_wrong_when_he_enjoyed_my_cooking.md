@@ -274,9 +274,9 @@ I heard Dibble hiss again.
 
 I assessed the damage to my finger. I wasn't too precious about my nails, though I did treat myself to a French manicure on the odd occasion. I'd be lucky if I didn't lose the nail on that finger. It was split down the middle, and the skin was broken in several places. I gagged a little, moving my head over the toilet bowl. But I managed to stop myself from vomiting.
 
-I pulled the hand towel from the rail by the sink and wrapped it around my hand. I heard Lawrence's footsteps walk past the door back to the kitchen, making me freeze momentarily.
+I pulled the towel from the rail by the sink and wrapped it around my hand. I heard Lawrence's footsteps walk past the door back to the kitchen, making me freeze momentarily.
 
-"Mmm, that's good," he said, then I could hear the sound of cupboards closing  before he came back again.
+"Mmm, that's good," he said, then I could hear the sound of cupboards closing before he came back again.
 
 I sat in the corner for a while until I eventually checked my watch. It was past 8, and I hadn't heard any noise for several minutes. So I slowly stood up and put my ear against the door. I couldn't hear anything.
 
@@ -314,7 +314,7 @@ As I crept even closer I noticed something else. "What's that smell?"
 
 "The scratches," he said. "They were deep. There was something about fresh blood that was just *so* intoxicating. So I licked my wounds. And I was in another world, Penny. It was incredible. Then I thought, *Imagine if that was seasoned and served hot?*"
 
-I noticed some small jars and bottles sitting by the fireplace: *Garlic oil, oregano, cumin, salt, cayenne pepper…*
+There were some small jars and bottles lined up by the fireplace: *Garlic oil, oregano, cumin, salt, cayenne pepper…*
 
 "Lawrence…" I whispered.
 

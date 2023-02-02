@@ -36,7 +36,9 @@ But do you know what wasn’t state of the art?
 
 The air-con. 
 
-I had grown accustomed to the stupid thing breaking every three days. Normally, I didn’t really care. I’d get a cold shower or stick my head in the freezer. That day, though, I had just been informed via email I wouldn’t  be returning home for the foreseeable future. The thing was, I was so used to knowing things in advance. I knew when work was cancelled, or when I was getting sick. Though with this, I had no idea what the outcome would be. Nobody did. The planet was holding a collective  breath. I couldn’t even ask for a possible date, because no one knew how this huge, insane, life-changing thing would play out.
+I had grown accustomed to the stupid thing breaking every three days. Normally, I didn’t really care. I’d get a cold shower or stick my head in the freezer. That day, though, I had just been informed via email I wouldn’t  be returning home for the foreseeable future. 
+
+The thing was, I was so used to knowing things in advance. I knew when work was cancelled, or when I was getting sick. Though with this, I had no idea what the outcome would be. Nobody did. The planet was holding a collective  breath. I couldn’t even ask for a possible date, because no one knew how this huge, insane, life-changing thing would play out.
 
 Well, it could play out either one way or the other. And I had seen the movies. I knew the basis, or at least the fictional re-enactment. 
 
@@ -120,7 +122,7 @@ The sky was dark when I pulled open the door to my shared room and face-planted 
 
 Riss, my roommate, was typing loudly on her laptop when I bothered lifting my head from my snot-drenched pillow. 
 
-She had been taking the news surprisingly well, despite her being the one in our group who was over-emotional. She was a natural redhead but had dyed her hair an odd pastel pink colour which was starting to come out. I could see her natural vivid red roots springing from her half-assed ponytail. “How’s your mom?” 
+She had been taking the news surprisingly well, despite her being the one in our group who was over-emotional. Riss was a natural redhead but had dyed her hair an odd pastel pink colour which was starting to come out. I could see her natural vivid red roots springing from her half-assed ponytail. “How’s your mom?” 
 
 Riss didn’t look up from her laptop screen, her fingers dancing across the keyboard. I glimpsed the word doc she had been working on earlier in the lab. We were supposed to type up all the findings from the days experiments earlier, and as usual Riss was the last to submit hers. She was the lazy daydreamer out of our group, often getting chastised for zoning out during  lectures and falling asleep. Riss was smart though. Seriously smart. When she felt like it.
 
@@ -144,7 +146,7 @@ Refusing to lift my head from my pillow despite the heat, I scoffed into the mat
 
 I really didn’t need Riss’s “comforting talks” right then. Her idea of reassuring was reminding me how many species were dying out.
 
-“Uh-huh.” I said, cutting into the slightly manic polar bear rant. “Can we talk about something else.”
+“Uh-huh.” I said, cutting into her slightly manic polar bear rant. “Can we talk about something else.”
 
 “But it’s true.” Riss chuckled. “The world is falling apart, and here we are trying to do the impossible.” She paused. “In one of the most beautiful places on the planet.” When I lifted my head to frown at her, my roommate was sprawled out on her bed, her ten page report awkwardly balanced on her chest. Riss’s eyes were somewhere else, delving into oblivion. 
 
@@ -182,9 +184,9 @@ She turned to Kaian, who signed, “He knew I was going to tell someone. When I 
 
 Riss was stabbing in the eight digit code to get into Quincy’s office, and I was struggling to catch my breath, keeled over with my hands on my knees. The building was usually lit up, even at night. I had spent countless after work hours typing up research reports and listening to music, comforted by the warm glow from the lights overhead. But that wasn’t the case on that particular night. A coil of dread began to unravel in my gut as we bound down the main hallway which was swamped in darkness. Riss made a joke about failed experiments lurking around us, and I elbowed her sharply in the gut. 
 
-Thankfully, Quincy’s main lab was lit up. When the door swung open with a loud beep, the three of us bound straight into a startled looking Jem—whose expression almost matched the ones of the dozen baby rabbits cradled to his chest. If Kaian resembled a Hollywood star, then this guy reminded me more of a punk kid—maybe a theatre kid too. Jem was the wildcard in our group. He wasn’t the smartest, and he struggled sometimes. But Quincy had admired the boy’s curiosity in his research. Jem’s hair was always a mess of dishevelled curls, and his outfit choices were… odd. For example, Jem had opted for wearing pajamas to his rabbit heist.
+Thankfully, Quincy’s main lab was lit up. When the door swung open with a loud beep, the three of us bound straight into a startled looking Jem—whose expression almost matched the ones of the dozen baby rabbits cradled to his chest. If Kaian resembled a Hollywood star, then this guy reminded me more of a punk kid—maybe a theatre kid too. Jem was the wildcard in our group. He wasn’t the smartest, and he struggled sometimes. But Quincy had admired the boy’s curiosity in his research. Jem’s hair was always a mess of dishevelled curls, and his outfit choices were… odd. For example, Jem had opted for wearing pajamas to his rabbit heist.It was almost like he had an epiphany in his sleep and hurricane thoughts had led him right to the lab.  
 
-It was almost like he had an epiphany in his sleep and hurricane thoughts had led him right to the lab.  For a moment, I was unsure whether to laugh or start yelling at him. Jem peeked at us under his hood, his eyes almost cartoonishly wide. Like he was a kid being caught stealing cookies from the cookie jar. The subjects he was holding seemed to cling onto him, and I had a moment—just a moment—where I cracked slightly. Especially when the largest one’s tiny eyes found mine. 
+For a moment, I was unsure whether to laugh or start yelling at him. Jem peeked at us under his hood, his eyes almost cartoonishly wide. Like he was a kid being caught stealing cookies from the cookie jar. The subjects he was holding seemed to cling onto him, and I had a moment—just a moment—where I cracked slightly. Especially when the largest one’s tiny eyes found mine. 
 
 It was frightened, its claws digging into his sleeve. “I can explain.” Jem finally spluttered, pressing the rabbits closer to his chest. “This is animal abuse.” He said in a hiss. “You’re not really going to stand there and watch that bastard hurt these little guys, are you?” I was sure Jem was convinced he could get away with it by showing us the power of cuteness.
 
@@ -214,7 +216,7 @@ Abilities way beyond our comprehension.
 
 Professor Quincy had been working his whole life to create a serum which would hack into the mind, and switch on that part of us we cannot find on our own. Rats didn’t give him the right results, so we moved onto rabbits. 
 
-So far, I had witnessed a rabbit which could teleport from one cage to the other, after several surgeries, and serum injections directed into its brain. 
+So far, I had witnessed a rabbit which could teleport from one cage to the other, after several surgeries, serum injections directly into its brain. 
 
 Impossible. 
 
@@ -258,15 +260,15 @@ It didn’t really make an impact, more of a passing thought. Did subject Fiftee
 
 Fifteen had already proved it could type a single sentence on a keyboard and tap on a tablet screen to identify certain fruits. 
 
-Was if possible that it had developed the ability to influence the  brain? I wasn’t sure I wanted an answer to that. Anyway, we all headed to bed, and I made Jem promise he wouldn’t do something like that again. I still remember the way he’d looked at me, slightly confused, mouth open, like he had no idea what I was talking about. I figured he was just tipsy, and after frowning at me for way longer than necessary, Jem saluted me with a “Yeah, course I promise.”
+Was it possible that it had developed the ability to influence the  brain? I wasn’t sure I wanted an answer to that. Anyway, we all headed to bed, and I made Jem promise he wouldn’t do something like that again. I still remember the way he’d looked at me, slightly confused, mouth open, like he had no idea what I was talking about. I figured he was just tipsy, and after frowning at me for way longer than necessary, Jem saluted me with a “Yeah, course I promise.”
 
 Yeah, that promise lasted maybe six fucking hours.
 
 I was spooning dry cereal in my mouth the next morning, trying to ignore the news bulletin on the TV, when we got the first call. Jem had broken into the lab two hours ago, and let the subjects run free. By the time I’d thrown myself into the lab, barely dressed, the others were already getting screamed at—and I mean SCREAMED at by Quincy. I glimpsed my colleagues through the glass window as I threw myself into a run towards the lab. It looked like they had been dragged out of bed. 
 
-Rissa was in her robe, Kaian and Jem half dressed. The three were sitting in the communal area looking like they wanted to sink into the earth, while Quincy’s voice reverberated back down the hallway. 
+Riss was in her robe, Kaian and Jem half dressed. The three were sitting in the communal area looking like they wanted to sink into the earth, while Quincy’s voice reverberated back down the hallway. 
 
-When I stepped through automatic doors, our professor turned to me, his expression thunderous. “Wren!” He passive aggressively gestured to the others. “Why don’t you take a seat, hm?” His British accent was easy to tolerate usually, but that morning he sounded like a fucking Bond villain. I nodded and practically dived next to Risa, who looked like she was ten seconds from wrapping her hands around Jem’s neck. Kaian was glaring at his lap, ignoring the professor’s ASL, and Jem looked—well, he looked kind of confused.
+When I stepped through automatic doors, our professor turned to me, his expression thunderous. “Wren!” He passive aggressively gestured to the others. “Why don’t you take a seat, hm?” His British accent was easy to tolerate usually, but that morning he sounded like a fucking Bond villain. I nodded and practically dived next to Riss, who looked like she was ten seconds from wrapping her hands around Jem’s neck. Kaian was glaring at his lap, ignoring the professor’s ASL, and Jem looked—well, he looked kind of confused.
 
 “You’re late.” Quincy turned his piercing gaze to me.
 
@@ -314,15 +316,15 @@ With the professor gone, it didn’t take long before Riss was trying to strangl
 
 Kaian, being the smartass of our group, was already sorting through our day’s work, as if we hadn’t just lost our subjects. The lab was pretty much our playground (The professor’s words, not mine) but there was a specific room which was out of bounds. Quincy called it the FAIL room, where all of his failed experiments were. Living or dead, or preserved in some weird solution, the exact reason I was convinced he was unhinged, was in that room. I didn’t realise it was unlocked, until a crashing sound sent me jumping up from my chair, my heart catapulting into my throat.
 
-Jem and Rissa looked up from their work, and I noticed Kaian’s seat was empty.
+Jem and Riss looked up from their work, and I noticed Kaian’s seat was empty.
 
-“That sounds ominous.” Jem shot me a look. “Did he…”
+“That sounded ominous.” Jem shot me a look. “Did he…”
 
 “He didn’t.” I muttered, my gaze flicking to the other side of the room, where, to my surprise, the room which had always been out of bounds, was in fact open. Before I could hesitate or think of the consequences, I hurried to the door, coming to a grinding halt on the threshold. 
 
 I was aware of my colleague’s shadow several feet away from me. I was aware of the petrified look of fright carved into his face, and his eyes, wide, like he was staring into oblivion. Like the darkness had already taken him. 
 
-Instead of finding Kaian, I was seeing what I can only describe as several lumps piled on top of each other. When I got closer, forcing my feet into submission, those lumps bled into very human-like figures wrapped in see-through plastic. For a disorienting seconds, while my head spun around and around, a slithery paste crawling up my throat, I saw them as nothing but lumps of naked flesh bulging through plastic. 
+Instead of finding Kaian, I was seeing what I can only describe as several lumps piled on top of each other. When I got closer, forcing my feet into submission, those lumps bled into very human-like figures wrapped in see-through plastic. For a disorienting second, while my head spun around and around, a slithery paste crawling up my throat, I saw them as nothing but lumps of naked flesh bulging through plastic. 
 
 But then I was recognising faces, faces I knew--faces which had been mutilated, stained a startling scarlet like they had been dipped in the reddest paint available. I knew the first lump. Sara. She went home two weeks earlier due to illness. The following fleshy lump with its face ripped off, which I could no longer call human, was Thomas. He too went home for a family emergency and never came back. 
 
