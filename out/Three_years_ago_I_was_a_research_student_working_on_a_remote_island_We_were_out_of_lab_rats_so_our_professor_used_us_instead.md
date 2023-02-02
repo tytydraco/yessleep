@@ -10,7 +10,7 @@ The top of his class, as well as students who seemed far too interested in what 
 
 Sure, I wanted to know what was so special about his research that it warranted that kind of seal, but it’s not like I broke into his lab unlike my colleagues. (You would think biology students would be smart, but those idiots didn’t stand a chance with the amount of security our college had). 
 
-I thought that would be a sure fire suspension, and it almost was until the professor himself had pardoned them before inviting the group alongside me to work with him on this secret project. I know I sound crazy for taking a voluntary job, but the job was on a tiny island just off of the coast of Indonesia—which meant I was working in paradise. It was like being on a permanent vacation. We had the beach at our disposal, and the local resort was just up the road. After sweating in the lab on weekdays, we headed to the private resort down the road from the lab. 
+I thought that would be a sure fire suspension, and it almost was until the professor himself had pardoned them before inviting the group alongside me to work with him on this secret project. I know I sound crazy for taking a voluntary job, but the job was on a tiny island just off of the coast of Indonesia—which meant I was working in paradise. It was like being on a permanent vacation. We had the beach at our disposal, and the local resort was just a walk away. After sweating in the lab on weekdays, we headed to the private resort down the road. 
 
 Professor Quincy was a well-known local, so he had managed to get us free entry. I guess you could say I was living the dream. Three years prior, I was in my freshman year of college and I had no idea what I was doing with my life. Fast forward two years, and I had the opportunity of a lifetime. I was working in literal paradise. 
 
@@ -342,9 +342,9 @@ Kaian twisted around, his face illuminated in dim light flickering from a bulb a
 
 “What the hell is that?” Riss was next to me, her voice shrill.
 
-Jem had his hands planted over his ears, his hand wrapped around a hysterical Kaian. “Wren, what is it? What’s in there?”
+Jem had one hand planted over his ear, his arm wrapped around a hysterical Kaian. “Wren, what is it? What’s in there?”
 
-I couldn’t reply. Instead of trying to speak or explain, I grabbed her arm and dragged her to the door. Kaian and Jem were already on the hallway, and I was barely slipping back through the automatic doors, before they slammed shut, and a familiar voice crackled over the speakers. “Stay where you are.” Professor Quincy said. “We will be returning to work very soon. By the grace of god, I have found subjects.”
+I couldn’t reply. Instead of trying to speak or explain, I grabbed Riss and dragged her to the door. Kaian and Jem were already on the hallway, and I was barely slipping back through the automatic doors, before they slammed shut, and a familiar voice crackled over the speakers. “Stay where you are.” Professor Quincy said. “We will be returning to work very soon. By the grace of god, I have found subjects.”
 
 Us.
 
