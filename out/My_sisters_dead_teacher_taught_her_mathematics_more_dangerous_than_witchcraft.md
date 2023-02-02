@@ -68,7 +68,7 @@ When we sent photos to professors at the local university, they dismissed it as 
 
 “He’s making me do it,” said Amy, almost in tears one day when I asked her to stop. “He says we’ve got to bring the math from where he is back over here. He says his mind is open now. He says he’ll hurt you and mom and dad if I don’t do everything he says. Now I need you to call Professor McAddams at Princeton and tell him the following.”
 
-“Amy–” I started to say. I noticed the black book at her feet, and I quickly snatched it up.
+“Amy–” I started to say. I noticed the brown book at her feet, and I quickly snatched it up.
 
 “I don’t think you should have this anymore,” I said.
 
@@ -84,11 +84,11 @@ Her eyes grew wide and she lunged at me, trying to grab it back.
 
 After that, they had Amy committed on a 48 hour involuntary hold at the psych ward. I wanted to visit, but the doctors recommended against it.
 
-At home, the pain in my hand seethed. My parents were exhausted and went to sleep early, but I just sat in Amy’s room. The black book lay on the floor, a splotch of my blood still on it for where I’d been stabbed.
+At home, the pain in my hand seethed. My parents were exhausted and went to sleep early, but I just sat in Amy’s room. The brown book lay on the floor, a splotch of my blood still on it for where I’d been stabbed.
 
 For a second, I was furious, thinking about the way she’d stabbed me, how angry she’d gotten. It was like I didn’t know her anymore. But the more I thought about it, the more I just missed her. I just wanted her back.
 
-I picked up the black book and took it to the stove. Then I put I turned on the burner and let the flames eat the whole cursed thing. The cover stunk and smoked as the flames consumed it. Before it fully went up, I swear it tried to move, edging its way away from the flames, but I put it back in place with a long fork. I kept watching it burn until the smoke alarm went off and my parents ran down panicked to check on me.
+I picked up the brown book and took it to the stove. Then I put I turned on the burner and let the flames eat the whole cursed thing. The cover stunk and smoked as the flames consumed it. Before it fully went up, I swear it tried to move, edging its way away from the flames, but I put it back in place with a long fork. I kept watching it burn until the smoke alarm went off and my parents ran down panicked to check on me.
 
 Back at school almost a month had passed, and the administration had just gotten its act together to start planning a memorial for Mr. Marris. Posters were up all over campus, complete with his school photo and a request for speakers who had touching memories to share.
 
@@ -106,7 +106,7 @@ I was walking down the hall when I saw Janet Cassidy rip down one of the posters
 
 She shrugged. “He was tutoring me after school sophomore year and felt me up a little. He told me not to tell anyone, so I didn’t. I’d write him little love notes and imagine all kinds of crazy shit. Like how he’d leave his wife for me, and we could finally be officially a couple once I graduated.”
 
-We came up to another poster, and he tore it from the wall, ripping it into pieces, letting them fall to the floor.
+We came up to another poster, and she tore it from the wall, ripping it into pieces, letting them fall to the floor.
 
 “Then one day I walked in. I’d brought him a coffee and asked him for a kiss. But he was busy reading this super old math book. He was muttering numbers, and then he wrote this crazy equation on the board. He asked me to help him solve it, but I wasn’t even in Algebra II yet. Then he called me a fucking stupid kid. I tried to hold his hand, and he basically shoved me off into a desk. That was kind of the end for us.”
 

@@ -1,15 +1,18 @@
+I.
 
-It was Caleb who told us about the church in the woods. Caleb knew all the urban legends in town. 
+The Woods
 
-Me and his twin sister, Beck, would go along with him in search of proof and the chance to glimpse the supernatural.
+It was Caleb who told us about the church in the woods. Caleb knew every urban legend in town.
 
-There was the lizard man, the murder house on Ash Street, the abandoned sanatorium, where a cult performed black magic and human sacrifices, and, of course, the Bunny Bridge, which was said to be a portal into hell.
+Me and his twin sister, Beck, would go along with him in search of proof and a glimpse of the supernatural.
+
+There was the lizard man, the haunted frog pond, and the murder house on Ash Street. There was the abandoned sanatorium, where a cult performed black magic and human sacrifices, and the Bunny Bridge, which was said to be a portal into hell.
 
 They were all easily debunked.
 
-They arrested the lizard man for illegally owning and selling exotic wild animals.
+The lizard man was arrested for illegally owning and selling exotic wild animals. The haunted frog pond wasn’t haunted, but it was disgusting. It was full of algae, condoms, cigarette butts, and who knows what else.
 
-The Ash murder house was the scene of a familicide, but it no longer exists, as it was demolished a few years ago and transformed into a memorial garden.
+The Ash murder house was the scene of a brutal family murder but no longer exists, as it was demolished a few years ago and transformed into a memorial garden.
 
 The sanatorium, while incredibly creepy, housed no cult, just a group of acid-dropping goths who were happy to share their drugs with us.
 
@@ -57,11 +60,11 @@ It was a typical Friday night with Beck and me eating pizza and watching some cr
 
 I asked her how Caleb was doing, as his absence was pronounced tonight. He would usually join us.
 
-“Is he okay?” I asked. “I haven’t seen him around lately.”
+“Is he okay? I haven’t seen him around lately.”
 
 “You wouldn’t,” Beck said. “He’s basically on house arrest. Dad found out he’s failing three classes and might not graduate. He’s allowed to go to school and the bathroom, and that’s it.”
 
-She said this casually, but I knew she was worried.
+She said this casually, but I knew that she was worried.
 
 “What’s going on with him, Beck?” I asked.
 
@@ -69,61 +72,61 @@ But she wouldn’t look at me, and I changed the subject.
 
 ❧
 
-We were engrossed in the movie when Caleb burst into Beck’s room. His eyes were wide and manic, and with his wild hair and untamed beard, I barely recognized him.
+We were fully engrossed in the movie when Caleb burst into Beck’s room. His eyes were wide and manic, and with his wild hair and untamed beard, I barely recognized him.
 
 “Lourdes! Beck! You guys, I did it! I did it; I finally found it!”
 
 “Stop it, Caleb,” Beck said sharply. “Get out, or I’ll call dad.”
 
-Caleb ignores his sister and sets his attention on me. He was trembling in his excitement. “I found it, Lourdes. I found the church!”
+Caleb ignored his sister and set his attention on me. He was trembling in his excitement. “I found it, Lourdes. I found the church!”
 
 I was confused at first, and then realization dawned on me.
 
-“You found it?” I say in genuine amazement. “How?”
+“You found it?” I said in genuine amazement. “How?”
 
-Caleb goes into a long-winded explanation that I don’t even attempt to follow.
+Caleb went into a long-winded explanation that I didn’t even attempt to follow.
 
 “The trees! I figured out that you have to trust the trees. And then the crows follow them, but not the bats; the bats are liars. And the grave! The baby’s grave. It’s there; it’s all there!”
 
-He babbles nonsensically and paces back and forth.
+He babbled nonsensically and paced back and forth.
 
-He looks crazy; I thought. He looks possessed.
+He looks crazy, I thought. He looks possessed.
 
 Was this what he had been doing this entire year? Talking to trees and following crows?
 
-His obsession has pushed him over the edge.
+His obsession had pushed him over the edge.
 
 “Will you come, you guys? Please, you said you would come.”
 
-“No,” Beck says.
+“No,” Beck said.
 
-“Sure,” I say.
+“Sure,” I said.
 
-We look at one another.
+We looked at one another.
 
-I have to admit that I am curious. Nobody has ever found the church, and this would probably be the end of our search for urban legends because, in a few months, we would head off to college.
+I had to admit that I was curious. Nobody had ever found the church, and this would probably be the end of our search for urban legends because, in a few months, we would head off to college.
 
-Beck looks tired. She gnaws on her bottom lip.
+Beck looked tired. She gnawed on her bottom lip.
 
-I squeeze her hand gently.
+I squeezed her hand gently.
 
-“Come on,” I whisper. “We said we would, after all.”
+Come on,” I whispered. “We said we would, after all.”
 
-She rolls her eyes and runs a hand through her choppy hair.
+She rolled her eyes and ran a hand through her choppy hair.
 
-“Fine,” she snaps. “Fine. If we do this, and he sees there’s nothing there but his delusions, maybe he’ll finally wake the fuck up.”
+“Fine,” she snapped. “Fine. If we do this, and he sees there’s nothing there but his delusions, maybe he’ll finally wake the fuck up.”
 
-I smile at her, and she smiles back, but it’s strained, and I see fear flickering in her eyes.
+I smiled at her, and she smiled back, but it was strained, and I saw fear flickering in her eyes.
 
 ❧
 
-Beck drives, and Caleb talks nonstop the entire ride to the woods.
+Beck drove, and Caleb talked nonstop the entire ride to the woods.
 
-He tells us about the twisted trees and the talking animals he encountered.
+He told us about the twisted trees and the talking animals he encountered.
 
-He speaks about the faces of the dog and the cemetery with its sunken headstones.
+He spoke about the faces in the fog and the cemetery with sunken headstones.
 
-I looked at his reflection in the rearview window. His eyes are wild, and there’s sweat on his upper lip. His hands gesticulate wildly as he talks.
+I looked at his reflection in the rearview window. His eyes were wild, and there was sweat on his upper lip. His hands gesticulated wildly as he talked.
 
 Before we left, Beck pulled me aside as Caleb went to his room to bring the supplies. Whatever those were.
 
@@ -141,27 +144,27 @@ Beck said nothing. She was still biting her lip.
 
 “Okay, fine, alright, let’s go, but don’t die and have your ghost come crying to me because I told you so.”
 
-After seeing Caleb like this, though, Beck’s uncertainty about the situation makes sense.
+After seeing Caleb like this, though, Beck’s uncertainty about the situation made sense.
 
-As if reading my thoughts, Caleb stops mid-sentence and meets my gaze.
+As if reading my thoughts, Caleb stopped mid-sentence and met my gaze.
 
-He smiles at me and bares his teeth. A trickle of dark blood runs down one nostril, and his eyes roll back into his head, exposing wet empty sockets.
+He smiled at me and bared his teeth. A trickle of dark blood ran down one nostril, and his eyes rolled back into his head, exposing wet empty sockets.
 
-I gasp, but when I blink, the blood is gone, and Caleb looks at me curiously. His eyes are tired, but completely normal.
+I gasped, but when I blinked, the blood was gone, and Caleb looked at me curiously. His eyes were tired but completely normal.
 
-I smile nervously and turn back to face the road.
+I smiled nervously and turned back to face the road.
 
-“Are you okay?” Beck asks, glancing at me.
+“Are you okay?” Beck asked, glancing at me.
 
 “Yeah, yeah, I’m fine, just excited.”
 
-It had just been a trick of the light; I assured myself. Nothing else.
+It had just been a trick of the light, I assured myself. Nothing else.
 
-But for the rest of the ride, I feel him looking at me, and I know he is smiling.
+But for the rest of the ride, I felt him looking at me, and I knew he was smiling.
 
 ❧
 
-The woods aren’t woods so much as it is a grove.
+The woods aren’t woods so much as it is a groves.
 
 It’s relatively big, and the paths are confusing; if you aren’t familiar with the area, you’ll get lost.
 
@@ -171,23 +174,22 @@ At night, we would run through it under a blanket of black sky and silver stars.
 
 I live close to the woods. You could technically call it my backyard.
 
-Beck parks on the curb by my house. It’s completely dark outside.
+Beck parked on the curb by my house. It was completely dark outside.
 
-Good, I think. Everyone is sleeping or out for the night.
+Good, I thought. Everyone was sleeping or out for the night.
 
-I’m not sure which it is, so just in case, I gesture to Beck and Caleb to be quiet, and we tiptoe to the backyard.
+ I wasn’t sure which, so just in case, I gestured to Beck and Caleb to be quiet, and we tiptoed to the backyard.
 
 There was no point, though, because the gate screeched as I opened it, but the lights blessedly remained off, and I breathed a sigh of relief.
 
-We approached the woods, me and Beck hesitating while Caleb walked ahead.
+We approached the woods, me and Beck hesitated while Caleb walked ahead.
 
-I hold Beck’s hand, and she smiles at me.
-
-We followed Caleb into the darkness.
+I held Beck’s hand, and she smiled at me, and then we followed Caleb into the darkness.
 
 We had a witch to find.
 
-Maybe it was because my imagination was already beginning to run wild, but I could swear that as we entered the woods, it significantly grew darker.
+
+Maybe it was because my imagination was running wild, but I swear that when we entered the woods, it grew significantly darker.
 
 The tree’s branches swayed in the wind, sprinkling us with droplets of rain, and the ground was thick with mud.
 
@@ -197,19 +199,19 @@ It was nearly midnight, and the sky was pitch black. There were no stars, just t
 
 Honestly, I was disappointed. With us learning that the church and witch were real, I thought the woods would change into a landscape of phantasmagorical horrors, complete with thick fog and disembodied whispers warning us to leave.
 
-It was creepy, but it was the same woods I have walked in hundreds of times. The only difference was the volumes of sound that had increased tenfold—the babble of water, the chirp of bugs, and the low hoot of an owl.
+It was creepy, but the same woods I had walked in hundreds of times before. The only difference was the volumes of sound that had increased tenfold--the babble of water, the chirp of bugs, and the low hoot of an owl.
 
-This was the soundtrack of the night
+This was the soundtrack of the night. 
 
-Caleb was quiet now, a dramatic from how talkative he had been the entire ride here.
+Caleb was quiet, a dramatic turn from how talkative he had been the entire ride here.
 
 His lips were pinched and white in a determined grimace, and his eyes were serious.
 
-We had been walking for around ten minutes when he abruptly stopped.
+We had been walking for around ten minutes when he suddenly stopped.
 
 I nearly stumbled into him, and Beck glared at his backside as though, with her gaze, she could set him on fire.
 
-We were at a junction that divided itself into many paths. The left led to the highway; the right led to the creek, and the center most one took you to the farmhouse, an abandoned, dilapidated relic that the county pretended didn’t exist.
+We were at a junction that divided itself into many paths. The left led to the highway; the right led to the creek, and the centermost one took you to the farmhouse, an abandoned, dilapidated relic that the county pretended didn’t exist.
 
 Caleb was muttering to himself. He took out a pouch, opened it, and poured its contents onto the ground.
 
@@ -221,9 +223,7 @@ What the hell is he doing? I thought. Beck opened her mouth, but Caleb held up h
 
 This was the Caleb I knew. Intelligent and methodical.
 
-The pouch was now empty, and Caleb was still talking to himself. I couldn’t make out a word. 
-
-He stood still for a moment. It had become silent; even the wind had stopped. I could only hear Caleb’s heavy breathing. It looked as though he were steeling himself for something.
+He stood still for a moment. It had become very quiet; even the wind had stopped. I could only hear Caleb’s heavy breathing. It looked as though he were steeling himself for something.
 
 He nodded and then pulled something out of his bag. And it took me a moment to realize that it was a knife.
 
@@ -241,13 +241,13 @@ Beck was the oldest by nine minutes and was the stereotypical tough, bossy siste
 
 Dark blood streamed down Caleb’s wrist; and dripped off his fingertips like rain.
 
-I felt sick but watched transfixed as the blood stained the birdseed.
+I felt sick but watched transfixed as each droplet of blood-stained and seeped into the bird seed.
 
 We heard them before we saw them.
 
-It was a low buzzing, like an annoying fly invading your personal space, but times that by one hundred. The buzzing crescendoed into deep guttural croaking and then a rustling, the sound of many things flapping.
+It was a low buzzing, like an annoying fly invading your personal space but times that by one hundred. The buzzing crescendoed into deep guttural croaking.
 
-Beck and I looked at one another and then up at the sky.
+Beck and I looked at one another and then stared at the sky.
 
 Even in the darkness, we could see it, a dark cloud coming closer and closer.
 
@@ -255,7 +255,7 @@ There is no fucking way, I thought. What the fuck?
 
 They were crows, dozens and dozens of crows flying towards us, their maniacal cawing so loud that I temporarily went deaf.
 
-There were so many of them they blocked out the faraway moon. They plunged us into absolute darkness, and now deaf and blind, I could only feel their presence. Their feathers struck my face.
+There were so many of them they blocked out the faraway moon. We were plunged into absolute darkness, and now deaf and blind, I could only feel their presence. Their feathers struck my face.
 
 A group of crows is called a murder, I thought wildly.
 
@@ -269,137 +269,133 @@ It was silent except for the clicking of beaks.
 
 Caleb turned his gaze away from the crows he had been watching with interest.
 
-They ate the birdseed until it was gone and then, in complete synchronization, took flight towards the path on the left.
+They ate the birdseed until it was gone and then, in complete synchronization, took flight toward the path on the left.
 
 Caleb looked at us with a slight grin on his face.
 
-“I told you we have to follow the crows,” he said.
+“I told you we must follow the crows,” he said.
 
 “Dramatic much?” Beck said under her breath.
 
-Caleb ignores her. His eyes are tracking the crows.
+Caleb ignored her. His eyes tracked the crows. “Let’s -“ he said, and then he stopped. He looked scared.
 
- “Let’s -” he says, and then freezes.
+My stomach dropped as I followed his gaze, and my heart pounded so hard it hurt.
 
-For the first time tonight, he looks scared, and that scares me.
+Two shadowy figures emerged from the thicket of trees ahead of us, and I felt the hate, the evil emanating from them.
 
-My stomach drops as I follow his gaze, and my heart is pounding so hard it hurts.
+They staggered toward us, hands outstretched, reaching with long, thin fingers. And I know that this is the witch and her minion, ready to gouge out our eyes and eat our souls.
 
-Two shadowy figures have emerged from the thicket of trees ahead of us, and I can feel the hate and the evil emanating from them.
+I screamed. Beck screamed. Caleb screamed.
 
-They stagger toward us, hands outstretched, reaching with long, thin fingers. And I know that this is the witch and her minion, ready to gouge out our eyes and eat our souls.
+And then, shockingly, his shriek cut off and turned into laughter.
 
-I scream. Beck screams. Caleb screams.
+“Oh, you guys came! You made it!” He said gleefully.
 
-And then, shockingly, Caleb’s shriek cuts off and turns into laughter.
+I blinked, and the shadows came into focus. The moonlight unveiled them.
 
-“Oh, you guys came! You made it!” He says gleefully.
+A boy and a girl around our age stared back at us. The girl’s full lips were twisted into a sly smile.
 
-I blink, and the shadows come into focus, the moonlight unveiling them.
+What was she doing here? I thought.
 
-A boy and a girl around our age stare back at us. The girl’s full lips are twisted into a sly smile.
+“Oh god, not you.” Beck said, her voice dripped with disdain.“What are you doing here?”
 
-What is she doing here? I think.
+The girl in front of us was still smiling. Her pretty brown face was arrogant, and her hair was long and woven into tiny braids.
 
-“Oh god, not you.” Beck says, her voice dripping with disdain.“What are you doing here?”
+She pushed a braid out of her face with one long, lacquered nail.
 
-The girl in front of us is still smiling. Her pretty brown face is haughty, and her hair is long and woven into tiny braids.
-
-She pushes a braid out of her face with one long, lacquered nail.
-
-“I could ask the same of you, Rebecka.” She says snidely. “Why are you here?”
+“I could ask the same of you, Rebecka.” She said snidely. “Why are you here?”
 
 “Caleb is my brother, dumbass. I don’t have to answer you.”
 
 “And Caleb is my boyfriend, Rebecka. I don’t have to answer you either.”
 
-Beck turns to Caleb, enraged.
+Beck turned to Caleb, enraged.
 
-“You told me you guys broke up!” She says, and Caleb has the grace to look ashamed. He looks down at the ground, his cheeks burning.
+“You told me you guys broke up!” She said, and Caleb had the grace to look ashamed. He looked down at the ground, his cheeks burning.
 
-“Well, we did, but then Madeline - “
+“Well, we did, but then Madeline -“
 
-Madeline saunters over to Caleb and wraps her arms around his waist. She glares at Beck.
+Madeline sauntered over to Caleb and wrapped her arms around his waist. She glared at Beck.
 
-“Why do you think we must tell you everything about our relationship? What’s your problem?”
+“Why do you think we must tell you everything about our relationship? What’s it to you?”
 
-The two bicker, their voices rising. Caleb attempts to calm them down, but they ignore him as if he isn’t there.
+The two started to bicker, and Caleb attempted to calm them down, but they ignored him as if he wasn’t there.
 
-“Who are you?” I say to the boy, who looks like he would love nothing more than to disappear back into the trees.
+“Who are you?” I said to the boy, who looked like he would love nothing more than to disappear back into the trees.
 
-He looks like a pale version of Madeline with bright red hair.
+He looked like a pale version of Madeline with bright red hair.
 
-“Ezra, um, I’m Ezra,” he clears his throat. “Madeline’s brother.”
+“Ezra, um, I’m Ezra,” he cleared his throat. “Madeline’s brother.”
 
-“Half-brother,” Madeline corrects, pausing her fight with Beck. She stares daggers at Ezra.
+“Half-brother,” Madeline corrected, pausing her fight with Beck. She stared daggers at Ezra.
 
-Ezra rolls his eyes. “Right, her half-brother. Madeline needed a ride here and didn’t want to go in alone. She failed her driving test again and- “
+Ezra rolled his eyes. “Right, her half-brother. Madeline needed a ride here and didn’t want to go in alone. She failed her driving test again and-“
 
-“Shut up, Ezra!” Madeline screeches.
+“Shut up, Ezra!” Madeline screeched.
 
-He smirks, and I do too. “Right, sorry. She did not fail her test for the 3rd time; she just needed a chaperone.”
+He smirked, and I did too. “Right, sorry. She did not fail her test for the 3rd time; she just needed a chaperone.”
 
-Madeline looks murderous.
+Madeline looked murderous.
 
-I laugh. I like Ezra already.
+I laughed. I liked Ezra already.
 
-Caleb and Madeline have been dating on and off since 7th grade. Mostly off because of Madeline.
+Caleb and Madeline had been dating on and off since 7th grade. Mostly off because of Madeline.
 
-Beck hates Madeline for the constant manipulation of her twin, and Madeline loves confrontation.
+She and Beck had once been friends, but then something had shifted, and the once besties were now enemies.
 
-“Why were you guys hiding behind the tree?” I ask. “Why were you trying to scare us?”
+“Why were you guys hiding behind the tree?” I asked. “Why were you trying to scare us?”
 
-Ezra has the decency to look ashamed, but Madeline bursts into peals of laughter.
+Ezra had the decency to look ashamed, but Madeline burst into peals of laughter.
 
 “We got you, didn’t we? Whew, the look on your faces was so funny!”
 
-“No, it wasn’t funny, Madeline, you stupid cow,” Beck snaps. “You’re lucky if I don’t dropkick you.”
+“No, it wasn’t funny, Madeline, you stupid cow,” Beck snapped. “You’re lucky if I don’t dropkick you.”
 
-This starts a fresh round of fighting between them, and my head is hurting.
+That started a fresh round of bickering. My head was starting to hurt. 
 
-“Uh, guys,” I say. Can we keep moving? I want to go to sleep before dawn.”
+“Uh, guys,” I said. “Can we keep moving? I want to go to sleep before dawn.” 
 
-They stop, and Beck says sorry. She sheepishly comes to my side while Madeline hugs Caleb’s waist.
+They stopped, and Beck said sorry. She sheepishly came to my side while Madeline hugged Caleb’s waist.
 
-“Lead the way,” Beck says somewhat resignedly. “We’re all here, so time to meet this witch.”
+“Lead the way,” Beck said somewhat resignedly. “We’re all here, so time to meet this witch.”
 
-Caleb smiles and gestures toward the trees where the crows have perched.
+Caleb smiled and gestured toward the trees where the crows perched.
 
-They fly towards them, and the trees part. Some bend and others uproot themselves. Their branches arch and their trunks twist to reveal a hidden path.
+They flew towards the tree, and the trees parted. Some bent, and others uprooted themselves. Their branches arched, and their trunks twisted to reveal a hidden path.
 
-A path that shimmers in a kaleidoscope of patterns made up of colors I have no name for.
+A path that shimmered in a kaleidoscope of patterns made up of colors I have no name for.
 
-I don’t think there is a word to describe how I feel at this moment, but if I had to settle on one, it would be enchanted. It deepens with every step I take. What is this place that ceremony, blood, and crows have revealed?
+I don’t think there is a word to describe how I felt at this moment, but if I had to settle on one, it would be enchanted. It deepened with every step I took.
+
+What is this place that ceremony, blood, and crows have revealed?
 
 I’m tripping. Much harder than the time I took acid in that rotting asylum.
 
-I like it, though.
+I liked it, though.
 
-I can see the air moving, and the wind calls my name.
+I could see the air moving, and the wind was calling my name.
 
-The trees are whispering to one another, and the crows have once again perched themselves on their waving branches, silent and staring
+The trees whispered to one another, and the crows again perched themselves on their waving branches, silent and staring.
 
-They see everything.
+They saw everything.
 
-This is it, I think giddily. This is where I want to die.
+This is it, I thought giddily. This is where I want to die.
 
-I do not know where that thought comes from, and I don’t care.
+I do not know where that thought came from, and I don’t care.
 
-There is a rumbling underneath me that makes my entire body shake, and without looking, I know the crooked trees have straightened and returned to their respective roots.
+There was a rumbling underneath me that made my entire body shake, and without looking, I knew those crooked trees had straightened and returned to their respective roots.
 
 I know that the path behind us has closed.
 
 ❧
 
-The bats are following me, and they’re telling me horrible things.
+The bats were following me, and they told me horrible things.
 
-“Somebody died in the creek, you know—a young boy,” one whispers.
+“Somebody died in the creek, you know--a young boy,” one whispered.
 
-“His body was swollen and blue when they fished him out,” another bat sneers. “And when they placed him on the dirt, his stomach burst and was full of maggots.”
+“His body was swollen and blue when they fished him out,” another bat sneered. “And when they placed him on the dirt, his stomach burst and was full of maggots.”
 
-“Don’t you want to know what the farmer’s wife thought as he bashed her head open?” The third bat giggles. “Oh, the things you think while you die. You’d be surprised, oh, you would be surprised.”
-
-They won’t stop, and I can still hear them. They won’t stop.
+“Don’t you want to know what the farmer’s wife thought as he bashed her head open?” The third bat giggled. “Oh, the things your mind says as you’re dying. You’d be surprised, oh, you would be surprised.”
 
 The bats are liars, Caleb had said. Okay, but a boy had drowned in the creek. We had been friends, and I remember seeing the police officers trudge into the woods and come out holding a large black bag, looking pale.
 
@@ -407,167 +403,169 @@ And the farmer in that farmhouse had murdered his wife and then shot himself wit
 
 Not lies, truths.
 
-I wonder if anybody else is experiencing what I am. I look around me, and Beck is pale, Madeline’s eyes are wide and afraid, and Ezra’s cheeks are wet with tears, and when - he looks at me, I see his eyes are red.
+I wondered if anybody else was experiencing what I was. I looked around me, and Beck was pale, Madeline’s eyes were wide and afraid, and Ezra’s cheeks were wet with tears, and when - he looked at me, I saw that his eyes were red.
 
-Only Caleb looks unperturbed.
+Only Caleb looked unperturbed.
 
-Maybe Beck was right, I think. Perhaps he has made a deal with the witch, and we are his sacrifices.
+Maybe Beck was right, I thought. Perhaps he had made a deal with the witch, and we were his sacrifices.
 
-“She won’t take your eyes,” the bat says, so close to my ear that its fur tickles me. “She’ll rip out your heart and make you eat it, and then she’ll bury you alive.”
+“She won’t take your eyes,” the bat said, so close to my ear that its fur tickled me. “She’ll rip out your heart and make you eat it, and then she’ll bury you alive.”
 
-“Stop,” I mutter and shoo it away. “Go away, you little shit.”
+“Stop,” I muttered and shooed it away. “Go away, you little shit.”
 
-I try to focus on where I am and where we are going. Beck’s hand is warm and soft and that grounds me.
+I tried to focus on where I was and where we were going. Beck’s hand was warm and soft in my own, which grounded me.
 
-It’s quiet, and the crows unfurl in the sky like streaming ribbons. Occasionally, they shed a feather, and it drifts down
+It’s quiet, and the crows unfurled in the sky like streaming ribbons. Occasionally, they shed a feather, and it drifted
+
+down
 
 down
 
 down
 
-I catch one and marvel at its beauty. It shimmers in my hand, embedded with dark jewels.
+I caught one and marveled at its beauty. It shimmered in my hand; it was embedded with dark jewels.
 
-I turn it over to inspect it further, and when I do, the jewels shift and crawl over my wrist. They trail down my arm and creep up my neck; they burrow themselves into my hair.
+I turned it over for further inspection, and when I did, the jewels shifted and crawled over my wrist. They trailed down my arm and crept up my neck; they burrowed themselves into my hair.
 
-I drop the feather and pat myself as if I were on fire. I itch all over.
+I dropped the feather and pat meted myself as if I were on fire. I itched all over.
 
-They fall off me like raindrops and scurry away on the ground. Not jewels, I thought, feeling sick. Bugs.
+They fell off me like raindrops and scurried away on the rainbow trail. Those aren’t jewels, I thought, feeling sick. They’re bugs.
 
-Beck looks disgusted and over it. She says nothing, but I know she wants to.
 
-The deeper we walk into the woods, the trippier it gets.
+Beck looked disgusted. She said nothing, but I knew she wanted to.
 
-The sky is red; there’s no moon or sun; everything burns.
+The deeper we walked into the woods, the trippier it became.
 
-The flat ground has transformed into crumbling cobblestone, and I know I shouldn’t be amazed after everything I’ve experienced so far, but oh, I am.
+The sky was red; I saw no moon or sun; everything was burning.
 
-My body vibrates with every step, and it is thrumming with energy. It feels good; it feels really, really good.
+The flat ground transformed into crumbling cobblestone, and I know I shouldn’t be amazed after everything I’ve experienced so far, but oh, I was.
 
-The air has changed; it smells sweet but unpleasant. It reminds me of the smell of rotting fruit.
+My body vibrated with every step, and it thrummed with energy. It felt good; it felt really, really good.
 
-The trees are breathing. Slow inhales and loud exhales make their branches quiver.
+The air changed; it smelled sweet but unpleasant. It reminded me of the smell of rotting fruit.
 
-Everything around me is shimmering, and I am blinded by sensations and colors
+The trees were breathing. Slow inhales and loud exhales that made their branches quiver.
 
-My vision distorts, and what I see is terrifying. Beck’s eyes are large black pools, and her mouth is wide and screaming.
+Everything around me was shimmering, and I was blinded by sensations and colors
 
-Madeline’s mouth stretches from ear to ear like the smug Cheshire Cat.
+My vision distorted, and what I saw was terrifying. Beck’s eyes were large black pools, and her mouth was wide and screaming.
 
-Ezra’s red hair is on fire, and when I look at him, I see his eyes have burst and are running down his face like yolk.
+Madeline’s mouth was stretched from ear to ear like a smug Cheshire Cat. Her teeth were very sharp.
 
-Caleb turns to look at me, and he is bloated and blue. When he opens his mouth to speak, wriggling maggots dribble out.
+Ezra’s red hair was on fire, and when I looked at him, I saw that his eyes had burst and ran down his face like yolk. 
 
-His mouth keeps moving, but I can’t hear him. All I hear is a high-keening whistle.
+Caleb turned to look at me, and he was bloated and blue. When he opened his mouth to speak, wriggling maggots dribbled out.
 
-It gets higher and higher, louder and louder, and I feel something hot and wet drip out of my ears. I touch it, and my fingers come away smeared with dark red blood.
+His mouth kept moving, but I couldn’t hear him. All I heard was a high-keening whistle.
 
-My blood clumps together and then breaks apart.
+It grew higher and higher, and I felt something hot and wet drip out of my ears, and when I touched it, my fingers came away smeared with dark red blood.
 
-It transforms into ruby red jewels that then turn into bugs.
+My blood clumped together and then broke apart.
 
-They climb up my arm and chew through my neck. They dig into the whorls of my brain.
+It transformed into ruby red jewels that then turned into bugs. 
 
-My skull is burning, and I hear screams.
 
-Bloodcurdling screams make the leaves on the trees curl and fall to the ground, smoldering.
 
-The screams go on and on, and more blood leaks from my ears. It sprays from my nose like a geyser and trickles from my eyes.
+They climbed up my arm and chewed through my neck. They dug into the whorls and spirals of my brain.
 
-I can’t see, hear or breathe and I am drowning in my blood.
+My skull burned, and I heard screams.
 
-And then everything goes black, the screaming stops and the world is silent.
+Bloodcurdling screams that made the leaves on the trees curl and fall to the ground, smoldering. 
 
-I open my eyes, and I am on the ground. The sky is black, and the moon is yellow.
+The screams went on and on, and more blood leaked from my ears. It sprayed from my nose like a geyser and trickled from my eyes like tears.
 
-Beck and Ezra’s terrified faces loom over me. Beck’s skin is milk-white, and she has been crying.
+I couldn’t see, hear or breathe. I was drowning in blood.
 
-“Are you okay?” She asks after they help me up.
+And then everything went black, the screaming stopped, and the world was silent.
 
-“I’m fine,” I reply, but my voice shakes, and my hands are trembling and smeared with dried blood.
+I opened my eyes. I was on the ground. The sky no longer burned; it was black and starless.
+
+Beck and Ezra’s terrified faces loomed over me. Beck’s skin was milk-white, and she was crying.
+
+“Are you okay?” She asked after they help ex me up. 
+
+“I’m fine,” I replied, but my voice shook, and my hands were trembling and smeared with dried blood.
 
 “What is happening? What happened?”
 
-Beck doesn’t answer; instead, she whirls on Caleb, standing to the side with a scared-looking Madeline. His face is blank, and Beck’s face contorts with rage.
+Beck didn't answer; instead, she whirled on Caleb. He stood to the side with a scared-looking Madeline. His face was blank, and Beck’s contorted in rage.
 
-“We are done.” She spits. “I don’t give a shit about any of this anymore, Caleb! Lourdes is bleeding from her fucking ears and eyes and nearly didn’t wake up, and you’re just standing there! You cut yourself like some goddamn sacrifice. I’m done. We. Are. Done.” She repeats. “Fuck you, and fuck this fucking place and this so-called witch. You can stay, but we are out.”
+“We are done.” She spat. “I don’t give a shit about any of this anymore, Caleb! Lourdes is bleeding from her fucking ears and eyes and nearly didn’t wake up, and you’re just standing there! You cut yourself like some goddamn sacrifice. I’m done. We. Are. Done.” She repeated. “Fuck you, and fuck this fucking place and this so-called witch. You can stay, but we are out.”
 
-She doesn’t wait for a response. She grabs my wrist and practically drags me down the path from whence we came.
+She didn’t wait for a response. She grabbed my wrist and practically dragged me down the path from whence we had come.
 
-“The path’s closed,” Caleb calls behind us. “You can’t get out that way. I’m the only one who knows the way. I know what to do to get in and get out.”
+“The path’s closed,” Caleb called behind us. “You can’t get out that way. I’m the only one who knows the way. I know what to do to get in and get out.”
 
-Beck’s shrieks are incomprehensible.
+Beck’s shrieks were incomprehensible.
 
-“Then fucking tell me how to get the fuck out, Caleb, you fucking asshole!”
+“Then tell me how to get the fuck out, Caleb, you fucking asshole!”
 
-“Besides,” Caleb says, ignoring her. “We’re already here.”
+“Besides,” Caleb said, ignoring her. “We’re already here.”
 
 “What?”
 
-Beck and I look at one another and then turn around.
+Beck and I looked at one another and then turned around.
 
-I gasp, and Beck mutters,
+I gasped, and Beck muttered more curses. 
 
-“What the fuck?”
 
-It is there. We’re here.
+It was there. We were there.
 
 ❧
 
-There are faces in the fog of all ages and genders. The only similarity is their eyes. They’re closed as though they are sleeping, but I know they’re not.
+There were faces in the fog of all ages and genders. The only similarity was their eyes. They’re closed as though they were sleeping. 
 
-The church looms in the distance on a hill.
+The church loomed in the distance on a hill.
 
 It’s made of crumbling, white brick weathered by time and lack of care.
 
-Its door is painted a dull, dirty grey, and on top of its small structure is a steeple. It houses a church bell that sways gently in the breeze.
+Its door was painted a dull, dirty grey, and on top of its small structure was a steeple. It housed a church bell that swayed gently in the breeze.
 
-Surrounding the church are dozens of old headstones; they jut from the ground like crooked teeth. The fog rests there like a blanket shielding the cemetery, protecting it.
+Surrounding the church were dozens of old headstones; they jutted from the ground like crooked teeth. The fog rested there like a blanket.
 
-Protecting it from us? I wonder. Or us from it.
 
-Beck and I rejoin the group, and we are all silent in our wonder.
+Beck and I had rejoined the group, and we stared at the scenery before us. 
 
-“I can’t believe it’s real; it’s fucking real,” I hear Beck muttering.
+“I can’t believe it’s real; it’s fucking real,” I heard Beck mutter. 
 
-I look at Caleb, and I am shocked to see that he is kneeling on the ground, crying.
+I looked at Caleb, and I was shocked to see him kneeling on the ground, crying.
 
-“Hello,” he sobs. “I’m here again.”
+“Hello,” he sobbed. “I’m here again.”
 
-Yeah, this is really fucking weird.
+Yeah, this was weird.
 
-I understand, though.
+I understood, though.
 
-The church and its cemetery are hauntingly beautiful. The scenery reminds me of a fairy tale, a macabre fairy tale, sure, but a fairy tale.
+The church and its cemetery were hauntingly beautiful. The scenery reminded me of a fairy tale, a macabre fairy tale, sure, but a fairy tale nevertheless.
 
-It’s day here.
 
-The sky is cloudless and light blue, and the sun beams down on the church seraphically.
+The sky was cloudless and light blue, and the sun beamed down on the church seraphically. 
 
-This is the lair of the witch?
+Everything was beautiful. This was where the witch lived?
 
-Besides the fog and the twisted headstones, it didn’t look like I thought it would and glancing at the others’ faces, and I know they are thinking the same.
+Caleb had finally stopped crying and swiped at his wet cheeks; he stood up.
 
-Caleb has finally stopped crying, and now swiping at his wet cheeks, he stands up.
+He turned to the rest of us, his smile wide and familiar. 
 
-He turns to the rest of us, his smile wide and charming. I’ve missed that smile, and a sudden wave of sadness washes over me. He hasn’t smiled like that in so long.
+I had missed that smile, and a sudden wave of sadness washed over me. It had been so long since I last saw that smile.
 
 “We’re here, you guys! We’re finally here! Didn’t I tell you? Isn’t this amazing?”
 
-Nobody knows what to say. I mean, what is there to say?
+Nobody knew what to say. I mean, what is there to say?
 
-We are here, and it is pretty amazing. We have finally found truth in an urban legend. Well, partial truth. We have yet to see the witch.
+We were here, and it was pretty amazing. We had finally found truth in an urban legend. Well, partial truth. We had yet to see the witch.
 
-Beck, who has also been gazing at the church in stunned awe, shakes herself out of it as though she has just remembered how mad she had been at Caleb ten minutes ago.
+Beck, who had also been gazing at the church in stunned awe, shook herself out of it as though she just remembered how mad she had been at Caleb ten minutes ago.
 
-She scowls.
+She scowled.
 
 “Great, yeah, incredible. It’s amazing. So when are we going? How do we get out?”
 
-Caleb’s brow furrows as if he doesn’t understand what she’s saying.
+Caleb’s brow furrowed as if he didn't understand what she was saying.
 
-“Get out?” He repeats, puzzled.
+“Get out?” He repeated, puzzled.
 
-“Yeah, Caleb, get out. This has been fun and everything, but it’s getting late or early,” Beck glances at the sun. “Can we go?”
+“Yeah, Caleb, get out. This has been fun and everything, but it’s getting late or early,” Beck glanced at the sun. “Can we go?”
 
 “But we just got here, Rebecka! We haven’t even seen the witch!”
 
@@ -575,13 +573,13 @@ Caleb’s brow furrows as if he doesn’t understand what she’s saying.
 
 “It feels just fine! God, I am so tired of you bossing me around. We only do what you want to do!”
 
-Caleb is wrong, though. Beck is right. It doesn’t feel good here. It’s beautiful, but everything is wrong. My skin is prickling with goosebumps.
+Caleb was wrong, though. Beck was right. It doesn’t feel good here. It was beautiful, but everything was wrong. My skin prickled with goosebumps.
 
-Ezra and Madeline look as uncomfortable as I feel. Madeline stares at the church as quietly as a mouse, her mouth ajar.
+Ezra and Madeline looked as uncomfortable as I felt. Madeline stared at the church as quietly as a mouse; her mouth was ajar.
 
-“How do we leave?” Beck asks again. “You said you know how.”
+“How do we leave?” Beck asked again. “You said you know how.”
 
-“I do,” Caleb says.
+“I do,” Caleb said.
 
 “Then do it.”
 
@@ -591,68 +589,78 @@ Ezra and Madeline look as uncomfortable as I feel. Madeline stares at the church
 
 “No!”
 
-Beck grabs Caleb’s bag, snarling, and Caleb slaps her hands away. She bites him, and he yelps and they start slap-fighting one another.
+Beck grabbed Caleb’s bag, snarling, and Caleb slapped her hands away. She bit him, and he yelped. They slap-fought one another, and she put him in a headlock until he dropped it.
 
-Beck grabs the bag again and snatches it from Caleb gleefully. She sticks her tongue out at him and opens it, and then pulls out a notebook, frowning.
+Beck picked it up, and she stuck her tongue out at him and opened it. She pulled out a notebook, frowning.
 
-She flips through its pages and then throws it at him.
+She flipped through its pages and then threw it at him.
 
 “It’s fucking empty, you asshole!”
 
-“I know!” Caleb shoots back, rubbing his bruised arm. He taps his head. “It’s all up here, I told you. “
+“I know!” Caleb shot back, and he rubbed his bruised arm. He tapped his head. “It’s all up here, I told you. “
 
-“Tell. Me.” Beck says through gritted teeth.
+“Tell. Me.” Beck said through gritted teeth.
 
-“No. Come on, we must find the witch, and you guys will see!”
+“No. Come on, we have to find the witch, and you guys will see!”
 
-Caleb turns on his heels and walks toward the church, but he’s not looking at where he’s going.
 
-He doesn’t notice the small grave marker peeking out of the dirt. If he had, he surely would have stepped over it. And if he had tripped and the more prominent headstone behind it wasn’t there, he would have just landed face-first in the dirt.
 
-But none of that happened, and that grave was there, and as much as we wish to change the past, it’s already been written.
+Caleb turned on his heels and walked towards the church, but he wasn’t looking at where he was going.
 
-When Caleb trips over the grave marker, I see the look of surprise on his face as he falls. He looks ridiculous at that moment; it’s like he wants to say oh shit, this is going to hurt.
+He didn't notice the small grave marker that poked out of the dirt. If he had, he surely would have stepped over it. And if he had tripped and the bigger headstone behind it wasn’t there, he would have just landed face-first in the dirt.
 
-I shut my eyes, but it’s too late. It wouldn’t have done me good, anyway. The sound of Caleb’s neck breaking will haunt me forever.
+But none of that happened, and that grave was there, and as much as I have wished to change the past, it’s already been written and set in stone.
 
-The quiet that follows is the longest I have ever experienced. I never knew silence could be so loud.
+When Caleb tripped over the grave marker, I saw the look of surprise on his face. He looked ridiculous at that moment like he wanted to say oh shit, this is going to hurt.
 
-And then the air is ripped apart by Beck’s raw, guttural screams.
+I shut my eyes, but it was too late. It wouldn’t have done me good, anyway. The sound of Caleb’s neck breaking would haunt me forever.
 
-She runs towards Caleb, and we follow her mutely.
+The quiet that followed is the longest I have ever experienced. I never knew silence could be so loud.
 
-Ezra helps as we turn him over carefully while Madeline dances around us, squealing in a small voice: “Don’t move him! Don’t move him! Oh, you’re not supposed to move him!”
+And then the air was ripped open by Beck’s raw, guttural screams.
 
-When we do, and Madeline sees him, she takes one look and turns around to vomit.
+She ran towards Caleb, and we followed her numb.
 
-I take a quick intake of breath.
+Ezra helped as we turned him over carefully while Madeline danced around us, squealing in a small voice: “Don’t move him! Don’t move him! Oh, you’re not supposed to move him!”
 
-Caleb’s head is bent to one side, and his eyes are open and blood-red. They’re moving, and they flit from me to Ezra to Beck. They fixate on Beck when he sees her. His lips quiver as though he’s trying to smile.
+We do,  and Madeline looked at him and turned her head to vomit.
 
-Beck is patting his hand and crying while telling him he’s good, he’s fine. We’re going to get help for you, okay? You’re fine, you’re fine, you’ll be okay. I love you. I love you. Don’t leave me like Mom. I love you. Please. Please.
+I took a quick intake of breath.
 
-And then Caleb’s eyes stop moving. They remain fixated on the crystal blue sky. His hand goes limp in Beck’s hand, and she grabs onto him even tighter. Her screams are animalistic and primal, and she refuses to let go of him.
+Caleb’s head was bent to one side, and his eyes were open and blood-red. They were moving and flitted from me to Ezra to Beck. They fixed on Beck, and his lips quivered as though he was trying to smile.
 
-I don’t know what to do, and I can’t breathe.
+Beck was patting his hand and crying while telling him he was good and fine. We’re going to get help for you, okay? You’re fine, you’re fine, you’ll be okay. I love you. I love you. Don’t leave me like Mom. I love you. Please. Please.
 
-I feel robbed of my senses, my joy.
+And then Caleb’s eyes stopped moving. They stared up at the sky.
 
-How is it fair that, in a second, life changes everything so drastically?
+ His hand went limp in Beck’s hand, and she grabbed onto him even tighter; her screams were animalistic and primal. She refused to let go of him. 
 
-He was just here. He was just talking and just fighting with Beck. It’s a dream. Wake up, Lourdes. Wake up.
+I didn't know what to do, and I couldn't breathe.
 
-But I am awake. It is Caleb who now sleeps.
+I felt robbed of all my senses. 
+
+How is it fair that, in a second, life could change everything so drastically?
+
+He was just here. He had been talking and fighting with Beck. He had been smiling.
+
+This was a dream, I thought frantically. Wake up, Lourdes. 
+
+Wake up.
+
+But I was awake; it was Caleb who was asleep. 
 
 I am so full and heavy with grief that, temporarily; I forget where we are.
 
-It’s the church bell that reminds me. The wind has picked up; it’s strong and makes the bell clang wildly. It slams against the steeple walls so hard that I wonder if it will crack.
+The church bell reminded me. 
 
-The sky is darkening with a convergence of clouds. They overtake the light of the sun.
+The wind picked up, and the bell slammed against the steeple walls so hard that I thought it would crack.
 
-The wind is furious and it blows my hair into my face. But in the wind, I hear a disembodied voice. It’s Caleb’s, and his words make my blood run cold.
+The sky was darkening with a convergence of clouds. They overtook all the light of the sun.
+
+The wind was furious and blew my hair into my face. But in the wind, I heard a disembodied voice. It was Caleb, and his words made my blood run cold.
 
 “I’m the only one who knows how to get out of here,” Caleb had said. “It’s all up here.”
 
-Oh. No.
+Oh, no.
 
-Oh fucking hell.
+This was very bad.
