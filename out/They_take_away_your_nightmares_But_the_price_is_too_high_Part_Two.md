@@ -146,3 +146,7 @@ I’d tell that terrified me that it was okay.  That I could still get away from
 And it would be a lie.
 
 [Because as I would come to realize, it was already far, far too late.](https://redd.it/10h9jfw)
+
+**** 
+
+[Part Three](https://redd.it/10ranq4)

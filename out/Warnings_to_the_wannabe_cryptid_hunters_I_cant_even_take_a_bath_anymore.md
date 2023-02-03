@@ -228,3 +228,5 @@ I sat in silence for a beat before hearing Cas' voice call out to me. "Fi! Are y
 [Part 21](https://www.reddit.com/r/nosleep/comments/10l7pho/warnings_to_the_wannabe_cryptid_hunters_bones/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 22](https://www.reddit.com/r/nosleep/comments/10o38a5/warnings_to_the_wannabe_cryptid_hunters_there_was/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 24](https://www.reddit.com/r/nosleep/comments/10s4uvu/warnings_to_the_wannabe_cryptid_hunters_ive_got/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

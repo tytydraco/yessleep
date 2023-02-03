@@ -184,3 +184,7 @@ She licked her thumb and rubbed something thick and gummy off my cheek before po
 I felt fear welling up in me again.  “You did.”
 
 [She giggled, her eyes hard as little chips of glass.  “I can’t believe you believed me.”](https://redd.it/10ra0bz)
+
+****
+
+[Part Four](https://redd.it/10s6582)
