@@ -4,29 +4,29 @@ For most of my childhood, he didn’t tell me many details: just that he hadn’
 
 So he explained his past to me, and when he was done, he knelt, took my hands in his, and promised that he would always, *always* be glad fate had brought us together. His lilac eyes did the intense thing where they feel like they’re staring into my very soul, but that day, I didn’t mind.
 
-Even then, though, he left a few details out. I just didn’t realize how *much* until I showed up at the bar with Asher, and then he told me *all* of it. 
+Even then, though, he left a few details out. I just didn’t realize how *much* until I showed up at the bar with Asher, and then he told me *all* of it.
 
 I’m going to relay his story, the full thing, comprised of all the pieces I’ve slowly learned. It kind of puts his response to Asher in perspective.
 
-The first thing you need to know is that Henri has been alive a long, long time. The second is that all griffins, including Henri, have near-perfect memories. Even though he is thousands of years old, he remembers everything in excruciating detail. The painful parts, especially. 
+The first thing you need to know is that Henri has been alive a long, long time. The second is that all griffins, including Henri, have near-perfect memories. Even though he is thousands of years old, he remembers everything in excruciating detail. The painful parts, especially.
 
-He’s one of the most ancient beings alive today. When he was born, Neverland was significantly less developed than it is now; the colorful cities and organized communities weren’t built yet. Most of Neverland’s inhabitants—there were a lot fewer then—lived in small towns, largely separated by species. Believe it or not, [Griffin's Edge](https://www.griffinsedgebar.com/) has done quite a bit to break down barriers between races. They weren’t always so social. 
+He’s one of the most ancient beings alive today. When he was born, Neverland was significantly less developed than it is now; the colorful cities and organized communities weren’t built yet. Most of Neverland’s inhabitants—there were a lot fewer then—lived in small towns, largely separated by species. Believe it or not, [Griffin's Edge](https://www.griffinsedgebar.com/) has done quite a bit to break down barriers between races. They weren’t always so social.
 
 In fact, in early times, the lines between species were drawn in blood. Inhuman crime may not be common now, but interspecies violence *was* widespread once. Vampires and werewolves feuded, dragons attacked anyone who came within ten miles of their hoards, witches ate anyone they found wandering alone.
 
-According to Henri, he was born on a stormy day in a tiny village consisting of all the griffins that existed at that time. Only about two hundred; griffins have always been rare. 
+According to Henri, he was born on a stormy day in a tiny village consisting of all the griffins that existed at that time. Only about two hundred; griffins have always been rare.
 
 His parents were young, recently married, but deeply in love. They were so excited to discover that they were having not one but *two* babies. That’s right: Henri and his twin sister Charlotte were born eight minutes apart, and he never let her forget that he was a whole eight minutes older.
 
 He spent his childhood confined to the griffins’ village, by direction of his parents for his safety. “Beyond the boundaries,” his mother said, stroking his hair, “we can’t protect you. It’s dangerous out there. Vampires will drain a cute little boy like you dry. Witches will curse you if you so much as look at them funny. And those harbingers…” She shivered, her eyes drifting to something he couldn’t see. “They’re bad news. That’s why it’s *so* important that you stay in the village.”
 
-Henri nodded, promising that he would, and ran off to play with Charlotte. 
+Henri nodded, promising that he would, and ran off to play with Charlotte.
 
 That worked for several years. After all, there was a school, there were stores, there was a park. It was enough.
 
-Until it wasn’t. 
+Until it wasn’t.
 
-Henri said he always felt this yearning, this curiosity about the other creatures out there. He listened to his parents because he knew he should, but as he got older, he understood their logic less and less. He wanted to know *why* they couldn’t try to befriend other species. He could see them sometimes, if he went to the top of the highest hill in the village: the smoke from other chimneys beyond the trees, figures in the distance that looked nothing like him, with wings or blue skin. 
+Henri said he always felt this yearning, this curiosity about the other creatures out there. He listened to his parents because he knew he should, but as he got older, he understood their logic less and less. He wanted to know *why* they couldn’t try to befriend other species. He could see them sometimes, if he went to the top of the highest hill in the village: the smoke from other chimneys beyond the trees, figures in the distance that looked nothing like him, with wings or blue skin.
 
 When he was the equivalent of about twelve, he asked. He’d read all the history books they had in the village, and he knew the many past conflicts. But no one ever went into *why* they couldn’t be mended; they just seemed to accept that the divides would always exist.
 
@@ -46,9 +46,9 @@ Charlotte teased him, joking that the local girl must *really* be something if h
 
 But his desire to meet the elf in his dreams only added to his desire to leave the village. And one night, he woke up from a particularly vivid dream in which she had admitted that she thought she loved him, his heart racing and his palms sweaty. And he decided right then that he was leaving home.
 
-He left that night, only hours later. While his parents and Charlotte still slept, he packed a small bag of his things, dropped a hastily-scrawled note on his pillow, and snuck out the door. 
+He left that night, only hours later. While his parents and Charlotte still slept, he packed a small bag of his things, dropped a hastily-scrawled note on his pillow, and snuck out the door.
 
-Henri felt bad not saying goodbye, but it was quickly drowned out by the excitement he felt at finally meeting the literal girl of his dreams, and at leaving the borders of his small village for the first time in his life. As he crested the hill at the edge of town and looked back, seeing the cluster of lights as its occupants slept, he felt only exhilaration. 
+Henri felt bad not saying goodbye, but it was quickly drowned out by the excitement he felt at finally meeting the literal girl of his dreams, and at leaving the borders of his small village for the first time in his life. As he crested the hill at the edge of town and looked back, seeing the cluster of lights as its occupants slept, he felt only exhilaration.
 
 It took him a few weeks to travel to her town, though to be fair, he wasn’t hurrying. He enjoyed his freedom for the first time ever, and attempted to speak to every being he came across. Some went well—he made a few friends, at least one of whom is among the group of ancient friends Henri still consults today. Some went less well; he almost died during a rough encounter with a troll. But griffins are tougher than they look. He could handle himself.
 
@@ -68,19 +68,19 @@ Lucille’s parents didn’t approve of her dating a griffin. It wasn’t long b
 
 For a while, everything was perfect. He and Lucille got married as soon as the courthouse, a shiny gold building with a green roof, was completed. He moved up in the city office until he was on the council, making major decisions every day that impacted the city and future cities. Meanwhile, other inhumans were beginning to move to the city, including other cross-race couples. He had never been happier.
 
-But you can probably guess that his happiness didn’t last forever. Not even close. 
+But you can probably guess that his happiness didn’t last forever. Not even close.
 
-Suddenly, everything that had been perfect in his life began to collapse in on itself. It started when he received a letter from Charlotte. He hadn’t spoken to her since he’d snuck out and left home behind; he wasn’t even sure how she’d tracked him down. But the letter sounded urgent. 
+Suddenly, everything that had been perfect in his life began to collapse in on itself. It started when he received a letter from Charlotte. He hadn’t spoken to her since he’d snuck out and left home behind; he wasn’t even sure how she’d tracked him down. But the letter sounded urgent.
 
-*Henri,* it read. *It’s been a while. I hope you can help. Our people are dying. There is a sickness killing off so many, a plague, but there is something else too. A killer who comes in the night, who sneaks into the village and takes innocent lives.* 
+*Henri,* it read. *It’s been a while. I hope you can help. Our people are dying. There is a sickness killing off so many, a plague, but there is something else too. A killer who comes in the night, who sneaks into the village and takes innocent lives.*
 
 *I’ve heard of your fortune. You have power now. Please, you must be able to do something. There are already so few of us left. I wouldn’t turn to you if I had any other choice.*
 
 *I miss you. Love, Char.*
 
-He panicked, of course. Inhuman-on-inhuman violence had been steadily lessening; he’d worked hard to see it happen. Walls between races were crumbling every day. And even back then, someone sneaking into a home in the dead of night to commit murders was…abnormal. 
+He panicked, of course. Inhuman-on-inhuman violence had been steadily lessening; he’d worked hard to see it happen. Walls between races were crumbling every day. And even back then, someone sneaking into a home in the dead of night to commit murders was…abnormal.
 
-He was panicked enough that he decided he had to set out for home right away. Lucille wanted to come with him, of course, but he wasn’t willing to risk it. After all, they’d recently learned that she was pregnant. 
+He was panicked enough that he decided he had to set out for home right away. Lucille wanted to come with him, of course, but he wasn’t willing to risk it. After all, they’d recently learned that she was pregnant.
 
 “Lucy,” he insisted quietly. “You need to stay here, where it’s safe. I’m just going to go check. There’s probably nothing I can do except get my family and any other survivors out of there. I’ll be back with Char in tow before you can even miss me.”
 
@@ -96,7 +96,7 @@ He was greeted by the worst thing he could imagine: his parents lay dead on the 
 
 Henri thought it was a vampire, at first, drinking her blood and her soul. He ripped his pistol off his belt, took aim, and fired two shots directly into its back. The bullets had garlic in them; if it *was* a vampire, it’d at least be enough to injure it, if not kill it. “GET AWAY FROM MY SISTER!” he shouted.
 
-The figure calmly rose to its feet, black blood oozing from its wounds. “You’ll regret that,” it growled. 
+The figure calmly rose to its feet, black blood oozing from its wounds. “You’ll regret that,” it growled.
 
 It turned around, a hood hiding its face, and stepped closer. Henri wrapped both trembling hands around the pistol and fired again, directly into its chest. More black blood dripped from the wound, but then Henri watched in horror as it began to knit itself back together in front of his very eyes.
 
@@ -108,7 +108,7 @@ Henri tightened his grip on the pistol, more for comfort than for any practical 
 
 The man grinned. “Oh, yes.” He held up its hands and waved his fingers playfully, stepping to the side just enough to allow Henri to see the ashen handprint on Charlotte’s face. He nearly threw up at the sight. “Such a pretty thing, death. A delicate thing. Quite lovely.”
 
-Henri’s mouth was dryer than it had ever been. Still, the monster advanced. They were only a few feet apart now. “You’re a harbinger,” he said, barely a whisper. 
+Henri’s mouth was dryer than it had ever been. Still, the monster advanced. They were only a few feet apart now. “You’re a harbinger,” he said, barely a whisper.
 
 His mother had told him about them: so called because they were held in high superstition by other races, widely believed to be omens of death. Perhaps that was because they often were; they crossed the border between living and dead and pushed others over that line too. They were meant to keep the balance of things, to guide inhumans to whatever awaited them after death, something only they knew. And mostly they did that; they were a very private people, keeping to themselves, and if you saw one, it likely meant they were waiting for you to die—that your time was near.
 
@@ -126,7 +126,7 @@ But the harbinger simply shoved Henri off with its arms, sending him flying into
 
 Only the harbinger didn’t kill him. Instead, it reached into the pocket of his open jacket, where the photo he carried with him of his pregnant wife was tucked. The monster plucked it out, holding it up to the light between pale fingers. He chuckled. “Well, well. Isn’t she a beauty.”
 
-“Don’t—you dare—touch her,” Henri spit out between groans. 
+“Don’t—you dare—touch her,” Henri spit out between groans.
 
 The harbinger laughed. “I’ve always wanted to go to the city,” he said, slipping the photo into his own pocket as he got to his feet. Henri had hit his head; the world was still spinning. But shakily, he attempted to stand. Every inch of his body ached from the impact…but his heart ached more. Even the dread he had felt upon seeing the fire over the hill was nothing compared to the dread he felt as the harbinger walked towards the door, paused briefly to turn and grin, and purred, “I *said* you’d regret it.”
 
@@ -142,15 +142,15 @@ And then he ran. As he ran, as he gulped in cold air beyond the town’s borders
 
 Griffins are powerful creatures when they want to be. Their wings are larger and stronger than any bird’s, and they fly incredibly fast. What had taken him several days to traverse on foot took less than three hours of flight. And every second he spent riddled with grief over being unable to save his family, and wracked with fear that he wouldn’t be able to save his wife.
 
-He didn’t know if harbingers could travel fast; he hoped he’d beat it there. He landed on the doorstep with a gust of wind, transforming back in a puff of purple smoke, and barreled through the door. 
+He didn’t know if harbingers could travel fast; he hoped he’d beat it there. He landed on the doorstep with a gust of wind, transforming back in a puff of purple smoke, and barreled through the door.
 
 Lucille was standing by the stove, near the back window, stirring a simmering pot. Henri had never felt more relieved in his life. She turned to him, overjoyed, but her happiness at his return quickly faded at the look on his face.
 
 “What’s wrong, love? Is your family alright?”
 
-She took a step toward him, and he saw the movement in the shadows behind her half a second too late. “LUCY, MOVE!” he shouted, trying to lunge forward to push her aside. 
+She took a step toward him, and he saw the movement in the shadows behind her half a second too late. “LUCY, MOVE!” he shouted, trying to lunge forward to push her aside.
 
-He wasn’t quick enough. The harbinger had been closer; its hands closed around her neck while he was still halfway across the room. He met her big green eyes as the light dulled in them; he reached her just as she collapsed, and caught her lifeless body before it hit the floor. 
+He wasn’t quick enough. The harbinger had been closer; its hands closed around her neck while he was still halfway across the room. He met her big green eyes as the light dulled in them; he reached her just as she collapsed, and caught her lifeless body before it hit the floor.
 
 “No, no, no, no,” he muttered over and over, cradling her in one arm and placing the other hand on her neck, attempting to heal her. He’d healed so many injuries before; he’d even healed Lucy, when she’d broken her ankle falling down the stairs. For an elf, she was surprisingly clumsy. They’d joked that he’d be healing skinned knees every week once their child was old enough to run around and get into trouble.
 
@@ -162,7 +162,7 @@ Despite his near-perfect memory, Henri doesn’t remember much of those few mome
 
 Thick blood welled beneath Henri’s talons, muscle tore and bones crunched, and still he kept going. It could have been seconds or it could have been hours. But when there was hardly anything left, Henri tore off the monster’s head. And only then, when its eyes were as lifeless as Lucille’s and when the ghost of its last grin echoed on its blank face, did Henri stop.
 
-He didn’t leave Lucille’s side all night, even though his skin was stained with dark blood. He cried over her and their unborn child for hours. He cried for his sister and his parents, too. For everyone he’d loved who he hadn’t been able to save. 
+He didn’t leave Lucille’s side all night, even though his skin was stained with dark blood. He cried over her and their unborn child for hours. He cried for his sister and his parents, too. For everyone he’d loved who he hadn’t been able to save.
 
 The next morning, he went to the council and said he wanted to banish harbingers, to exile them for good. The others agreed; harbingers had always been bad omens, and a few had gone rogue before, using their connections to death in unfavorable ways, not unlike the one who had killed Lucille. He wasn’t the first, and he probably wouldn’t be the last. They were just too dangerous to allow in society.
 
@@ -178,9 +178,9 @@ It took years for him to sleep soundly enough for her to visit, longer still for
 
 So Henri did the best he could to make amends. Now regretting his revenge-driven decision to send the harbingers away, he threw himself harder than ever into the establishment of new cities, of the union of Neverland races. If he couldn’t right his past wrong, he thought, at least he could make up for it.
 
-He never fully forgave himself for any of it, of course. Not for his family’s deaths, not for the deaths of the harbingers. Even as colorful cities blossomed and the gaps between species began to be bridged, he carried a heavy guilt on his heart. He was never truly happy. And griffins mate for life, so he had no desire to find a new love. His heart would always lie with Lucy. 
+He never fully forgave himself for any of it, of course. Not for his family’s deaths, not for the deaths of the harbingers. Even as colorful cities blossomed and the gaps between species began to be bridged, he carried a heavy guilt on his heart. He was never truly happy. And griffins mate for life, so he had no desire to find a new love. His heart would always lie with Lucy.
 
-Then, one night, he dreamed of something different. Not of Lucy, but of a place where *all* beings could be on equal ground. Not just werewolves and dwarves, either; oh, no. *All* beings, inhumans and humans alike. For someone whose lifelong goal had been to mend the divides of the world, it was the perfect dream. 
+Then, one night, he dreamed of something different. Not of Lucy, but of a place where *all* beings could be on equal ground. Not just werewolves and dwarves, either; oh, no. *All* beings, inhumans and humans alike. For someone whose lifelong goal had been to mend the divides of the world, it was the perfect dream.
 
 He did what Henri does best: research. He read every book he could on dimensions and the structure of reality and how to cross between the inhuman and human. And after a few mishaps, he found it: the edge of reality. The spot where the two dimensions meet as equals, where anyone can step foot safely.
 
@@ -188,10 +188,10 @@ And that’s where he constructed his bar. Once Griffin’s Edge was up and runn
 
 Seeing humans and dragons drink together, well, it was the closest to happy Henri had been in a long time. There was still a hole in his heart, but it was smaller now. He hung Lucille’s picture over the door and blew her a kiss every morning for luck. He told himself it was enough, that he was okay with never having a family again, because the bar gave him all the family he needed.
 
-But then, eighteen years ago, a baby was left on the path outside. After hours, of course; no one saw who left it. He heard it crying as he swept up for the night. 
+But then, eighteen years ago, a baby was left on the path outside. After hours, of course; no one saw who left it. He heard it crying as he swept up for the night.
 
 Henri says that the moment he walked out and saw that baby, he knew that he’d been lying to himself: that he wanted a family, and that this was it. He didn’t know what species it was, whether it was human or inhuman, but it didn’t matter. He would love it like his own.
 
-That was me, of course. And it’s true: through all my ups and downs—which must be more than even he bargained for—Uncle Henri has loved me like his own. 
+That was me, of course. And it’s true: through all my ups and downs—which must be more than even he bargained for—Uncle Henri has loved me like his own.
 
-That is, until I brought a member of the very race that killed his wife and sister, that he banished to the dark forests in the darkest moment of his life and thought extinct, to Griffin’s Edge.
+That is, until I brought a member of the very race that killed his wife and sister, that he banished to the dark forests in the darkest moment of his life and thought extinct, [to Griffin's Edge](https://www.reddit.com/r/nosleep/comments/10so2iy/burning_sky_the_bar_at_the_edge_of_reality_part_11/?utm_source=share&utm_medium=web2x&context=3).

@@ -198,7 +198,7 @@ He also urged us not to share this to the internet but we already did that years
 
 &#x200B;
 
-At least I learned one thing, everyone has a breaking point, some are weak and some will hold but will crack under pressure. It’s also important to be respectful around people you don’t know what they are going through.
+At least I learned one thing from the experience, everyone has a breaking point, some are weak and some will hold but will crack under pressure. It’s also important to be respectful around people you don’t know what they are going through.
 
 &#x200B;
 
