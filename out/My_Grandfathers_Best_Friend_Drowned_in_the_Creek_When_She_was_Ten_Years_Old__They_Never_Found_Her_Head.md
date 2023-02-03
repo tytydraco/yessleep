@@ -238,6 +238,8 @@ He stared into my eyes with this kind of quiet desperation that I’d never seen
 
 We had been inseparable for so many years. Such a deep trust and love existed between us. I was probably the only person he’d ever told this story to.
 
+Even though Gramps couldn’t *say* it, he was never one for sentimental words, I could feel what he was trying to tell me. There was this deep intimacy to that look.
+
 I didn’t have too many questions, which was rare for one of Gramps’ stories. Usually once they finished, I couldn’t keep my mouth shut. With that dark and almost hopeful look I saw in Gramps’ eyes, I could tell he *wanted* me to talk. Wanted me to ask how or what or why.
 
 Or ask my usual immediate follow up to one of his yarns:
@@ -256,12 +258,12 @@ I had to get out of there and away from that farmhouse as quickly as humanly pos
 
 Because, ya see, Gramps’ stories were *always* true. 
 
-And when that story ended, I couldn’t take my eyes off the massive and deep pink scar that had always covered the exact middle of my grandfather’s neck. 
+And when that story ended, I couldn’t take my eyes off the massive, gouged and deep pink scar that had always covered the exact middle of my grandfather’s neck. 
 
 The one he’d had my entire life. The one that, way it had always been told to me, came from an accident with a thresher when he was a boy. 
 
 I was right about one thing - that meeting and that story *was* the last time I ever saw Gramps. 
 
-Because that night, that midnight in the deep and murky dark, when I heard a tapping on my bedroom window? 
+Because that night, at midnight in the deep and murky dark, when I heard a tapping on my bedroom window? 
 
 I damn sure didn’t open the curtains.

@@ -250,7 +250,7 @@ Kaian didn’t reply, his jaw clenching.
 
 “Your dad,” I said quickly, “Do you want to drag him into this?”
 
-“Again.” Kaian started to sign, Riss elbowing him to shut up. It was no secret Jem and his father had been under fire back home after discovering a document he shouldn’t have. All he did was read it. According to the boy himself, he had the Men In Black In Black trying to crash through his door at 4am.  Jem  was lucky Professor Quincy decided to use his curiosity as a tool instead of sending his family to jail.
+“Again.” Kaian started to sign, Riss elbowing him to shut up. It was no secret Jem and his father had been under fire back home after discovering a document he shouldn’t have. All he did was read it. According to the boy himself, he had the Men In Black trying to crash through his door at 4am.  Jem  was lucky Professor Quincy decided to use his curiosity as a tool instead of sending his family to jail.
 
 Jem blinked, like he was waking from a trance. “No.” He said, quickly, his resolve crumbling. My colleague allowed Kaian and Riss to take the subjects and put them back in their cages. I expected him to fight back, but the guy seemed weirdly fine with us taking the rabbits back, stumbling away from them like they were contagious. 
 
