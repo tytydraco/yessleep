@@ -10,7 +10,7 @@ The top of his class, as well as students who seemed far too interested in what 
 
 Sure, I wanted to know what was so special about his research that it warranted that kind of seal, but it’s not like I broke into his lab unlike my colleagues. (You would think biology students would be smart, but those idiots didn’t stand a chance with the amount of security our college had). 
 
-I thought that would be a sure fire suspension, and it almost was until the professor himself had pardoned them before inviting the group alongside me to work with him on this secret project. I know I sound crazy for taking a voluntary job, but the job was on a tiny island just off of the coast of Indonesia—which meant I was working in paradise. It was like being on a permanent vacation. We had the beach at our disposal, and the local resort was just a walk away. After sweating in the lab on weekdays, we headed to the private resort down the road. 
+I thought that would be a sure fire suspension, and it almost was until the professor himself had pardoned them before inviting the group alongside me to work with him on this secret project. I know I sound crazy for taking a voluntary job, but the job was on a tiny island just off of the coast of Indonesia—which meant I was working in paradise. It was like being on a permanent vacation. We had the beach at our disposal, and the local resort was just a walk away. After sweating in the lab on weekdays, we headed to the private pool down the road. 
 
 Professor Quincy was a well-known local, so he had managed to get us free entry. I guess you could say I was living the dream. Three years prior, I was in my freshman year of college and I had no idea what I was doing with my life. Fast forward two years, and I had the opportunity of a lifetime. I was working in literal paradise. 
 
@@ -42,7 +42,7 @@ The thing was, I was so used to knowing things in advance. I knew when work was 
 
 Well, it could play out either one way or the other. And I had seen the movies. I knew the basis, or at least the fictional re-enactment. 
 
-So, sweating through baking heat, I sat cross legged on prickly carpet, squeezing the phone in my palmy hands. I could glimpse Kaian through the window, slumped on a sun-lounger with his head tipped back. He was frowning at an odd looking bird which was perched on the upper deck. It was early evening, and the sun was starting to set. God, I loved watching the sunset. It was like the sky had turned into cotton candy, streaks of burning red and pink enveloping crystal blue and dimming the sky, making it easier to get a good luck at the sun.
+So, sweating through baking heat, I sat cross legged on prickly carpet, squeezing the phone in my palmy hands. I could glimpse Kaian through the window, slumped on a sun-lounger with his head tipped back. He was frowning at an odd looking bird which was perched on the upper deck. It was early evening, and the sun was starting to set. God, I loved watching the sunset. It was like the clouds had turned into cotton candy, streaks of burning red and pink enveloping crystal blue and dimming the sky, making it easier to get a good luck at the sun.
 
 Kaian’s light brown hair exploded into hues of vivid red, and I was momentarily taken-aback by the sight—like the sky had set his hair on fire. Ever since meeting him in my freshman year, I’d had a crush on Kaian. Being half-Thai with striking features and a Hollywood smile, my ass was already on the floor. 
 
