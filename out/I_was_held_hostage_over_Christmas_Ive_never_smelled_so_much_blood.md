@@ -96,6 +96,10 @@ The bleach blocked a few hours of memory, but unfortunately, I still woke up. I�
 
 If it doesn’t work, I’ll finish telling about my experience. 
 
+
+
+[It didn't work](https://redd.it/10smgp4)
+
 ----------------
 
  [FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
