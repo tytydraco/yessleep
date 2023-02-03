@@ -174,6 +174,14 @@ I noticed Jessica’s expression first then Beck’s. They were wide eyed and te
 
 “Danny, look out!” Beck shouted, trying to warn me, but it was too late.
 
-The loud bang of a gun going off sounded from behind me as I started to turn behind me. It wasn’t long after that a bullet pierced the back of my skull. I felt my brain go all fuzzy and my eyesight started to go dark as a sharp burning pain radiated from the back of my head.
+The loud bang of a gun going off sounded from behind me as I started to turn behind me. It wasn’t long after that a bullet pierced the back of my skull. I felt liquid drip down my face as my brain got all fuzzy. My eyesight started to go dark as a sharp burning pain radiated from the back of my head.
 
 I had been shot.
+
+***
+
+I woke up on the musty floor of the motel room with a pounding headache. I rubbed the back of my head as I picked myself up off the floor. I had face planted on the ground. After wiping away the stray strands of drool off my face, I looked around to find an empty room. The vampire bodies were gone and so were Benny, Beck, and Jessica. God, my  head was buzzing.
+
+I quickly found the source, it was my cell phone. I’m guessing the incessant buzzing is what woke me up. A little bit dazed, I answered the phone, not bothering to check the caller I.D.
+
+“Tell me something Danny,” Benny’s hoarse voice rang out,” do you think I’m an idiot?”

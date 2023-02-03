@@ -166,3 +166,7 @@ If you notice a charge on your credit card, Paypal, or bank account, which says 
 Just quietly pay it.  And every charge that follows.  
 
 Because trust me, the alternative is much, much [worse.](https://youtu.be/8phAm6XprnQ)
+
+[JG](https://www.reddit.com/r/JGcreepypastas?utm_medium=android_app&utm_source=share)
+
+[TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
