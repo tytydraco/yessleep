@@ -182,7 +182,7 @@ The last scene shows Brick on the building looking over the city. Blossom soon j
 
 &#x200B;
 
-The screen then plays the normal ending scene but cuts abruptly afterwards with a black screen. Two distorted Photo realistic eyes appeared in the darkness as a spotlight appeared over it. It’s Boomer’s ghost. He looked at us for a few seconds until it cut to nothing but a message saying, "Your words have your own consequences."
+The screen then plays the normal ending scene but cuts abruptly afterwards with a black screen. Two distorted Photo realistic eyes appeared in the darkness as a spotlight appeared over it. It looked like Boomer, or at least his ghost. He looked at us for a few seconds until it cut to nothing but a message saying, "Your words have your own consequences."
 
 &#x200B;
 
