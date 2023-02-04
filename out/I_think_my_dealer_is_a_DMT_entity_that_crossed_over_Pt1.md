@@ -217,3 +217,5 @@ What was even more odd was how I felt. Despite the absolute fever-dream of a nig
 To my immense displeasure, I realized I was out of mushrooms. As much as I dreaded going back to *that place* in my dreams, the refreshment I drew from the stuff was worth it. I decided I’d try to find Spence again the next day to nab some more.
 
 Little did I know, the trajectory of my life was already set. I’d already irrevocably damned myself to a living hell. By reaching out to Spence a second time, I wasn’t changing my life for the worse. I was merely speeding up the descent. Things were already heading south. But what was about to come was utter freefall.
+
+&#x200B;

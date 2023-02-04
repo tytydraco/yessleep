@@ -20,7 +20,7 @@ The red light blinked. One. Two. ~~"Beep."~~
 
 It then got close to my face. Closer than any of them had before. And it beeped again.
 
-I could hear footsteps coming from outside in the hallway. I only took my eyes off the Mimic for a second to look. But it was gone as my Mom threw open my door. I started crying before she could yell at me for not hearing that noise. "What? Did you want to die from getting burned up?"
+I could hear footsteps coming from outside in the hallway. I only took my eyes off the Mimic for a second to look. But it was gone as my Mom threw open my door. I started crying before she could yell at me for not hearing that noise. "What? Did you want to die from getting burned up," she asked me. "Quit crying."
 
 &#x200B;
 
@@ -74,7 +74,7 @@ The taller kid pulled on Reggie's leg. "Get down you fucking dipshit."
 
 Reggie yelped.
 
-I could hear the two of them struggling inside. By now more kids had come. From the distance I could see Ms. Marin come rushing over. More kids following behind her.
+I could hear the two of them struggling inside. By now more kids had come. From the distance I could see Ms. Marin rushing over. More kids following behind her.
 
 "Put your hands down," the taller boy yelled at Reggie.
 
@@ -94,7 +94,7 @@ When the police finally arrived. They were able to pull out the bodies. Reggie w
 
 &#x200B;
 
-I've slept with all of my lights on for weeks after that. Terriffied; I hide a flashlight under my pillow. But perhaps I wasn't scared enough. Because I let it catch me in the dark.
+I've slept with all of my lights on after that. Terriffied; I hide a flashlight under my pillow. But perhaps I wasn't scared enough. Because I let it catch me in the dark.
 
 &#x200B;
 
@@ -102,7 +102,7 @@ My cousin had invited me to a sleep over. It was only the two of us, and she was
 
 Meanwhile I woke up at every sound.
 
-And it was some time past 2 O'Clock when the TV is still, and the screen asks in a lonely glow, if we wanted to play the next movie. When I saw it standing in the corner of the living room. It wasn't my house, but I was familiar enough ' to know that there was suppose to be nothing in that corner. But it wasn't the surprise of seeing a Mimic that made me wish I could die. No. That already terrifies me. It was seeing the One from school.
+And it was some time past 2 O'Clock when the TV is still, and the screen asks in a lonely glow, if we wanted to play the next movie. When I saw it standing in the corner of the living room. It wasn't my house, but I was familiar enough ' to know that there was suppose to be nothing in that corner. But it wasn't the surprise of seeing a Mimic that made me wish I would die. No. That already terrifies me. It was seeing the One from school.
 
 I recognized this One immediately. How wouldn't I? Its image has been permanently scarred into my brain. Every side eye. Creature hurry. Parent doorway standing. Younger sibling sneaking. Shadow. Reminded me of this particular Mimic. And I knew it was this one. Because the way it moved. Its size. It was much wider than any of the others. And the feeling of dread that locks me in place. Too afraid to move a muscle. Waiting for me to run out of air until my lungs gasp like an inaudible scream.
 

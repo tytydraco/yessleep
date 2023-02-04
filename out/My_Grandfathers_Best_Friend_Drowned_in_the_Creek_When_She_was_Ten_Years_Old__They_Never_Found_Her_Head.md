@@ -84,7 +84,7 @@ We didn’t worry so much - what the hell did we care? Little kids always think 
 
 That was, until Gertie drowned. 
 
-Day was like any other, nothin’ out of the ordinary. The four of us had met up outside Simon’s parents’ chicken farm, then headed to the creek. We’d goofed the whole way there , shovin’ each other and deciding what games we’d play. Hot that day, hot like it is now. 
+Day was like any other, nothin’ out of the ordinary. The three of us had met up outside Simon’s parents’ chicken farm, then headed to the creek. We’d goofed the whole way there , shovin’ each other and deciding what games we’d play. Hot that day, hot like it is now. 
 
 Wasn’t long after we’d stripped down and jumped in that Gertie yelled about her leg. 
 
