@@ -8,7 +8,7 @@ Anyways, it was March 19th. It was a rainy night, the rain wasn't too hard, and 
 
 So I was scared to fucking shit because it was just *there*. I walked wearily back to the camera room, and there it was. The thing that scared me. Someone else crying. Wasn't the same person, no. It was a different person in different clothes. And they were crying, not terrified crying, *mourning crying*. Like they were crying because someone **died**. They looked back at me like they knew I was watching. 
 
-I came to figure out that it was a woman, and when she stared me down, looking at the camera, she stopped crying. Not where she was calming down, no. Just a blank expression. And then she disappeared. Ceased to be visible. After that, it was just a fuckfest of power outages, crying heard, and even screams from the upstairs cafeteria (which was CLOSED mind you). I was at this point considering calling the fucking police when I decided it was just my imagination. I hadn't smoked any weed since, I dunno, since June? I'll keep you guys updated/posted.
+I came to figure out that it was a woman, and when she stared me down, looking at the camera, she stopped crying. Not where she was calming down, no. Just a blank expression. And then she disappeared. Ceased to be visible. After that, it was just a fuckfest of power outages, crying heard, and even screams from the upstairs cafeteria (which was CLOSED mind you). It was at this point considering calling the fucking police when I decided it was just my imagination. I hadn't smoked any weed since, I dunno, since June? I'll keep you guys updated/posted.
 
 \[UPDATE\] Hey, lookie here, someone RATIONAL and NOT FUCKING CRYING came in to load a couple of clothes.
 
