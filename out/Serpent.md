@@ -8,7 +8,7 @@ But I still have my writing, the only thing I’ve ever been good at. But I can�
 
 I suspect Dennis can take the form of anything he chooses, yet he has revealed himself to me as an immense, albino python, with the face of my dead grandfather, who killed himself when I was in high school.
 
-Shot himself with .22 caliber revolver that I would use to go hunting with whenever I would stay with him and help him work his farm in the summers as a kid. I’d always thought it was a tiny round to shoot yourself with. And right in the side of his head. I suspect it wasn’t an instant death.
+Shot himself with a .22 caliber revolver that I would use to go hunting with whenever I would stay with him; help him work his farm in the summers as a kid. I’d always thought it was a tiny round to shoot yourself with. And right in the side of his head. I suspect it wasn’t an instant death.
 
 And I can’t forget the chair, oh that sanguine chair from which he always sat and ate his butter cookies. I helped move the furniture from the house and the deep red of the cushions had been sprayed with an even deeper red liquid that had since dried even deeper still; almost black.
 
@@ -46,7 +46,7 @@ Do you see? Dennis is right.
 
 And Dennis is pleased.
 
-Once he’s done with me, he’ll eventually coil his body around mine, squeeze until my guts spew from my mouth, and open his own, gaping wide to consume me, smiling all the while. And I’ll be gone. But for now, he allows me to use him as my dark muse, so I can share this with you.
+Once he’s done with me, he’ll eventually coil his body around mine, squeeze until my guts spew from my mouth, and open his *own* gaping wide to consume me, smiling all the while. And I’ll be gone. But for now, he allows me to use him as my dark muse, so I can share this with you.
 
 So I can plant this idea in your head and let it grow until you’ve got your own ghost.
 
@@ -72,4 +72,4 @@ But you’re here on this thread, reading the darkest of the dark you can find, 
 
 So, tell us:
 
-What does it look like?
+What does it look like

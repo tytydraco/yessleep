@@ -12,11 +12,11 @@ Of course, she said.  If it was her life on the line.  Hadn’t she managed to t
 
 Also Maria is, uh, not exactly a realist about anything, but especially her own capabilities.  I’d tell him myself, I insisted.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 I texted Daniel and asked if he’d meet me at the student union.  I’d found a solution to the scratching problem, I said.
 
-He made time to meet me immediately after my text.  I hustled over to the union and found him already there, waiting for me at one of the small tables against the wall in the cafeteria area.  
+He made time to meet me immediately after my text.  I hustled over to the union and found him already there, waiting for me at one of the small tables against the wall in the cafeteria area.
 
 “So?” he demanded as I slid into the chair and dropped my backpack on the ground.  “What do I do?”
 
@@ -40,7 +40,7 @@ People were staring.  Weren’t they staring?  They heard the chair fall.  I did
 
 His yelling was starting to attract attention.  I gestured for him to sit back down and hopefully lower his voice in the process.  He did neither.
 
-“You say you want to help but then you just foist something like this off on me and that’s *it*?  I bet you’re just going to go back to your dorm, congratulate yourself on a job well done, and sleep soundly while I’m off having to deal with this - this *bullshit!*” 
+“You say you want to help but then you just foist something like this off on me and that’s *it*?  I bet you’re just going to go back to your dorm, congratulate yourself on a job well done, and sleep soundly while I’m off having to deal with this - this *bullshit!*”
 
 Then he glanced around, perhaps realizing that he was making a scene.  He teetered for a moment and I tried to think of something I could say to salvage this situation for him.  But the words were caught in my throat, I was frozen in place, and then he was turning and walking away and the moment was lost.
 
@@ -78,7 +78,7 @@ My heart skipped a beat.  I broke into a jog, holding onto my backpack straps to
 
 “I got away from you twice now,” I replied, panting.  “What’s that say about you?”
 
-“An *infuriating* situation.”  
+“An *infuriating* situation.”
 
 The voice sounded like it was right next to me.  A raindrop fell on my cheek.
 
@@ -122,7 +122,7 @@ But at the time, I was nothing but pure panic, jerking in his grip like a rabbit
 
 His grip tightened.  He turned, holding the door in front of him open, and he tugged at my arm.  He was going to drag me out there.  Out into the rain.  Force whatever condition that constituted a violation of the rules to occur so that he could kill me without getting in trouble with the administration.
 
-I didn’t know what else to do, so I went limp.  Just let my knees buckle and I collapsed to the ground, my legs weak and my shoulders trembling.  The flickering man retained hold of my wrist, but he turned back and stared down at me in exasperation.  I stared dumbly up at him, pushed past the point of being able to think.  I just… *sat there*… not able to cooperate, not able to fight.  
+I didn’t know what else to do, so I went limp.  Just let my knees buckle and I collapsed to the ground, my legs weak and my shoulders trembling.  The flickering man retained hold of my wrist, but he turned back and stared down at me in exasperation.  I stared dumbly up at him, pushed past the point of being able to think.  I just… *sat there*… not able to cooperate, not able to fight.
 
 “I am not above carrying you out there,” he threatened.  “Don’t think I’m not.”
 
@@ -150,7 +150,7 @@ Then the steam took form in front of us.  A face peeled out of the vapor, mouth 
 
 Behind me, the flickering man shrieked.  And in panic, he shoved me straight at the steam ghost.
 
-Searing heat enveloped me.  It stole the air out of my lungs.  I couldn’t breathe.  
+Searing heat enveloped me.  It stole the air out of my lungs.  I couldn’t breathe.
 
 The only way was through.  I stumbled forward, covering my face with my hands.  Tendrils of steam wrapped around my arms and legs like fingers, then slid off just as quickly, like ropes of hair.  They tugged on me, pulling me this way and that, and I stumbled blindly in the steam.  I didn’t dare open my eyes or take my hands away from my face.  I could feel the heat searing into the back of my hands.  I felt like I was drowning, my lungs aching for air.
 
@@ -170,13 +170,15 @@ Yes, I’m okay.  Keeping my face covered was the right move, because only the e
 
 The flickering man is being careful though.  If the steam ghost hadn’t scared him off, he’d have carried me out into the rain just so that he could stay within the rules.  I don’t think this is going to be as easy as the laundry lady made it sound.  He’s not some stupid creature of instinct and hunger.  We’re locked into this game now, waiting to see who slips up first.
 
-I don’t feel good about my odds.  I’m up against an inhuman creature, something that’s older than me, stronger in every way, and who has the advantage of knowledge on his side.  I thought the laundry lady asking for me to do this with her meant that she believed I was capable of it, but now I’m wondering… what if she was just looking for someone convenient?  The devil himself said there’s nothing special about me, I just happened to be someone with the right background and in the right place for him.  
+I don’t feel good about my odds.  I’m up against an inhuman creature, something that’s older than me, stronger in every way, and who has the advantage of knowledge on his side.  I thought the laundry lady asking for me to do this with her meant that she believed I was capable of it, but now I’m wondering… what if she was just looking for someone convenient?  The devil himself said there’s nothing special about me, I just happened to be someone with the right background and in the right place for him.
 
 What if it's the same thing with the laundry lady?  And if I fail, then she simply tries something else?
 
 I can’t back out.  The only thing I can do is keep going forward.  That’s the only way left for me.  But I’m not the only person with no options left.
 
 I’m going to let Maria talk to Daniel first.  He needs to calm down first.  Then I’ll have a talk with him myself and tell him that it’s not right and it’s not fair what’s happening to him.  But the only way he can go is forward and when he’s through, when it’s done and he’s out, we’ll be waiting for him on the other side. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/10t4mvt/how_to_survive_college_why_are_software_licenses/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
