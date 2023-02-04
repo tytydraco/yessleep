@@ -50,7 +50,7 @@ Once he’s done with me, he’ll eventually coil his body around mine, squeeze 
 
 So I can plant this idea in your head and let it grow until you’ve got your own ghost.
 
-Well, you already do, don’t you…
+Well, you already do, don’t you?
 
 It might not have taken form just yet, but deep down you know it’s in there -- in you.
 
@@ -70,6 +70,6 @@ And it may give you power, but it will also almost certainly destroy you, for th
 
 But you’re here on this thread, reading the darkest of the dark you can find, so you’re already halfway there, aren’t you?
 
-So, tell us:
+So, tell us…
 
-What does it look like
+What does it look like?
