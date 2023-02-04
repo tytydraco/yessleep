@@ -96,3 +96,8 @@ Within two weeks I was taking Alexander home from the hospital. Doctors were sti
 On the night of September thirtieth, I went into labor. Alexander drove us to the hospital and labor went surprisingly fast for Lila being my first. It’s when I pushed the final push that I realized what was taken. 
 
 They placed Lila on my chest. She didn’t cry, or even whimper. She only looked at me with her dark, cold eyes. My own child terrified me. I wanted to scream, to push her away from me. Instead I did my best to put my arms around my newborn daughter. My daughter, who had no soul.
+
+
+Part 2 
+
+(https://www.reddit.com/r/nosleep/comments/10tsf1j/the_devils_atm_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
