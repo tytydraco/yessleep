@@ -1,8 +1,8 @@
-~ Cureall ~ 
+#~ Cureall ~ 
 
-"No more stress or sadness for miles; you're all smiles!"
+#”No more stress or sadness for miles; you're all smiles!"
 
-Comes as a twice daily injection or a chip in the arm.
+#Comes as a twice daily injection or a chip in the arm.
 
 ***
 
