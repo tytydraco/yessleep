@@ -246,7 +246,7 @@ Afraid the ice was going to give in, I backed off onto dry land, still unable to
 
 I couldn't contain myself. Before I even knew what I was doing, a sharp cry of joy had left my lips, and I found myself stumbling over to the other person on wobbly legs. Every step hurt, straining muscles I didn't even know I had. I stopped a few feet ahead of the newcomer. The gun dropped from my trembling hands, sinking into the snow, and I followed shortly after. Before my upper body could hit the ground though, I felt strong arms wrap around me, holding me up. 
 
-*This was like a fairy tale. Sure, I was bleeding and aching all over, and the tongue that moved to lick the warm tears of my face was rough and forked, but still. This was like a fucking fairy tale.*
+*This was like a fairy tale. Sure, I was bleeding and aching all over, and the tongue that moved to lick the warm tears off my face was rough and forked, but still. This was like a fucking fairy tale.*
 
 Jacek pulled back, tilting his head at me with a lopsided smile.
 
