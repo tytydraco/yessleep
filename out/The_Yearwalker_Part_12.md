@@ -1,4 +1,4 @@
- [\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- [\[9\]](https://www.reddit.com/r/nosleep/comments/104xf3u/the_yearwalker_part_9/) \- [\[10\]](https://www.reddit.com/r/nosleep/comments/10bdhm2/the_yearwalker_part_10/) \- [\[11\]](https://www.reddit.com/r/nosleep/comments/10hed24/the_yearwalker_part_11/) \- \[12\] 
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/zhe3sv/the_yearwalker_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/) \- [\[9\]](https://www.reddit.com/r/nosleep/comments/104xf3u/the_yearwalker_part_9/) \- [\[10\]](https://www.reddit.com/r/nosleep/comments/10bdhm2/the_yearwalker_part_10/) \- [\[11\]](https://www.reddit.com/r/nosleep/comments/10hed24/the_yearwalker_part_11/) \- \[12\] - [\[13\]](https://www.reddit.com/r/nosleep/comments/10t0epl/the_yearwalker_final/)
 
 Losing a finger is unbelievably painful. It’s like you have this need to try and move it, to flex, but all it does is burn your exposed nerves. It shoots this white-hot lightning kind of pain straight through your arm with every heartbeat. I tried my best to just keep the hand still, but even the breeze from moving forward shot through me. There are so many nerves, it felt like licking a live wire.
 
@@ -34,7 +34,7 @@ I don’t know where he got the knife from. It seemingly just appeared in his ha
 
 &#x200B;
 
-Leah stopped smiling. A darkness sunk over her face as she locked eyes with John. 
+Leah stopped smiling. A darkness sunk over her face as she locked eyes with John.
 
 “You heard me. I know,” John grinned.
 
@@ -82,7 +82,7 @@ Over the next few days, I’d see his joints lock up mid-stride, causing him to 
 
 &#x200B;
 
-I guess it came as no surprise that Oliver moved out. I didn’t answer when he knocked on my door that last time. I was a hazard to him and all his friends, that much was certain. I wouldn’t risk any of them a second time. 
+I guess it came as no surprise that Oliver moved out. I didn’t answer when he knocked on my door that last time. I was a hazard to him and all his friends, that much was certain. I wouldn’t risk any of them a second time.
 
 John wasn’t taking any chances. If it meant the two of us being locked inside that apartment for two months straight, he was fine with it. Going crazy together was better than being murdered. If we could just hold out a little longer, the Yearwalk would be over.
 
@@ -120,7 +120,7 @@ What was he gonna do, stop me?
 
 I tucked him in and put out a big glass of sugar water with a straw straight to his mouth. I took his phone and wallet; then I left the apartment for the first time in weeks. I could hear him wheezing. A weak protest. But I wouldn’t let him die.
 
-Walking down the hall, I checked his phone. Several anonymous numbers saved, unmarked and never dialed. They could mean anything, and lead anywhere. But I had to try. 
+Walking down the hall, I checked his phone. Several anonymous numbers saved, unmarked and never dialed. They could mean anything, and lead anywhere. But I had to try.
 
 There was no one in the reception. No one in the hallways. No Leah, no Roy; just me and a phone. Stepping outside, it was already dark. I hadn’t considered checking the time. I’d stopped checking the time of day weeks ago; the days sort of blend together in isolation.
 
@@ -246,7 +246,7 @@ Her voice came from everywhere. The field of blue sunflowers shivered and shook 
 
 And neither could the madmen.
 
-They dragged me back to the root cellar, locking me in this completely black room. Nothing but stone walls and a damp floor. I could hear them outside, praying. For death, for her, for some nonsense I couldn’t even understand. And every now and then, I could hear her voice in the distance; resonating through whatever electronics these people had gathered. 
+They dragged me back to the root cellar, locking me in this completely black room. Nothing but stone walls and a damp floor. I could hear them outside, praying. For death, for her, for some nonsense I couldn’t even understand. And every now and then, I could hear her voice in the distance; resonating through whatever electronics these people had gathered.
 
 And the ground shivered, every time.
 
