@@ -76,7 +76,7 @@ He laughed, and Tanya thumped him on the arm.
 
 Corey shrugged, and the pair of them became absorbed in a different topic of conversation. They were tucking into their sandwiches, talking between mouthfuls, but I wasn’t eating. I couldn’t take my eyes off Corey’s phone on the table. The red marker was circling the park, looking for him. I couldn’t stop thinking about those people on the Discord server who had spoken so solemnly of the supposedly-deadly game.
 
-Suddenly, the marker was in the park. Lee was wrong. It had found him. I prepared for something dreadful to happen. I prepared for my friend to be caught.
+Suddenly, the marker was in the park. Corey was wrong. It had found him. I prepared for something dreadful to happen. I prepared for my friend to be caught.
 
 “And that’s a wrap!” Corey said, scooping up his phone. “Four o’clock. Yet again, I bested the game. It got close this time, though... Damn. Just a hundred yards away!”
 

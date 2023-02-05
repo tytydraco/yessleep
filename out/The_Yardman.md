@@ -1,4 +1,4 @@
- The following accounts were found in the back of an old rusted 1992 Toyota pickup truck. Inside the truck was an old yellow notepad. This is what it contained. 
+The following accounts were found in the back of an old rusted 1992 Toyota pickup truck. Inside the truck was an old yellow notepad. This is what it contained. 
 
 The winter had taken a toll on business. Like it always does. Landscaping is pretty much dead in the winter here in Arizona. 
 
@@ -24,11 +24,11 @@ Email: C\_Raskin1930@hotmail.com
 
 And the phone number
 
-I jumped on it immediately, I texted Joe, I preferred texting since I was always awkward on the phone, plus everyone prefers texting now. 
+I jumped on it immediately, I texted Charles, I preferred texting since I was always awkward on the phone, plus everyone prefers texting now. 
 
 I texted the following:
 
-Hey Joe! Oscar here from 88th St Lawncare I got your quote via google. Following up to see if we can visit the property and identify the issue with the broken pipe.
+Hey Charles! Oscar here from 88th St Lawncare I got your quote via google. Following up to see if we can visit the property and identify the issue with the broken pipe.
 
 Charles responded:
 
@@ -66,9 +66,9 @@ I opened to valves to identify the leak of the pipes. I turn the valves clockwis
 
 Bam! I saw the fucking leak; it wasn’t a pipe it was a riser from one of the sprinklers that busted.
 
-I took a picture of the broken riser, and texted Joe.
+I took a picture of the broken riser, and texted Charles.
 
-Hey Joe, looks like we got a broken riser. I can replace it with a new one. It’ll be $85 with materials. Once the job is done you can Venmo or Zelle.
+Hey Charles, looks like we got a broken riser. I can replace it with a new one. It’ll be $85 with materials. Once the job is done you can Venmo or Zelle.
 
 Great! Get it done said Charles 
 
@@ -118,13 +118,13 @@ I dug from the next few hours with tears rolling down my cheek. I found more and
 
 The time was now 4:30 PM. It started to get dark. 
 
-I grabbed a bucket and put all my old shit in it. I held his dead body for a while and thanked him for everything.  I buried Cisco in my backyard and held a little memorial for him. I texted Joe telling him the problem was fixed. 
+I grabbed a bucket and put all my old shit in it. I held his dead body for a while and thanked him for everything.  I buried Cisco in my backyard and held a little memorial for him. I texted Charles telling him the problem was fixed. 
 
-Joe replied: Thanks Oscar I just Venmo’d you I gave you a little extra for coming in such short notice. Please lock the gate. Thanks!
+Charles replied: Thanks Oscar I just Venmo’d you I gave you a little extra for coming in such short notice. Please lock the gate. Thanks!
 
-I texted Joe back.
+I texted Charles back.
 
-Hey Joe, your lawn is overgrown. I suggest that we mow the lawn, trim the bushes, clean up the leaves and clean everything up.
+Hey Charles, your lawn is overgrown. I suggest that we mow the lawn, trim the bushes, clean up the leaves and clean everything up.
 
 In reality I didn’t want to do the job. I wanted to come back to the yard and see what else was here.
 
@@ -132,7 +132,7 @@ I was getting obsessed with the yard. All I wanted to do was go back and dig. Pe
 
 It was a strange phenomenon. 
 
-Joe replied: Thanks Oscar, we will pass for the moment. I am looking forward to doing it myself when I get back next week. Thanks.
+Charles replied: Thanks Oscar, we will pass for the moment. I am looking forward to doing it myself when I get back next week. Thanks.
 
 Okie doke. I responded.
 
