@@ -56,6 +56,6 @@ After reading the repulsive words we both decided to report this to the police u
 
 We both know what we saw out there, the proof is written in that note.
 
-We haven’t been in that forest since, heck we ain’t even spoke about it. Someone out there knows what that place is. Maybe his family, maybe he had an accomplice. That house didn’t board up and lock itself.
+We haven’t been in that forest since, heck we ain’t even spoke about it. Someone out there knows what that place is. Maybe his family, maybe he had an accomplice. That house didn’t board up and lock itself, did it?
 
 At this point to be honest, I would rather just forget the whole damn thing.
