@@ -1,8 +1,8 @@
 My grandma has lived in Colorado County, the literal middle of nowhere, her whole life, she just recently moved out into the country, and me and my wife were visiting for Easter.
 
-“How do you not know where her house is?” my wife questioned
+“How do you not know where her house is?” my wife questioned.
 
-“She just moved, and I can’t get any service” I explained
+“She just moved, and I can’t get any service” I explained.
 
 “Well, it’s your grandma you should know where she lives. Let’s just start driving back to town” she had a map sprawled across her in the front seat. She deeply examined it and gave me a puzzled look.
 
