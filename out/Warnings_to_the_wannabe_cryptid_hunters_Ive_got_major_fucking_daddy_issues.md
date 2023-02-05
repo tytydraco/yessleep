@@ -314,3 +314,5 @@ I mirrored the movement before everything turned black.
 [Part 22](https://www.reddit.com/r/nosleep/comments/10o38a5/warnings_to_the_wannabe_cryptid_hunters_there_was/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 23](https://www.reddit.com/r/nosleep/comments/10qzp5u/warnings_to_the_wannabe_cryptid_hunters_i_cant/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 25](https://www.reddit.com/r/nosleep/comments/10uoaa7/warnings_to_the_wannabe_cryptid_hunters_re_jeremy/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
