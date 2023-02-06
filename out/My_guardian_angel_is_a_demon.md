@@ -18,7 +18,7 @@ I don't remember much of it, the blaring of the 1970's disco music combined with
 
 She was the love of my life. I even quit my fucking job for her, to spend more time with her when she said our relationship was on the edge, when she said I wasn't "expressing myself enough" or some shit. But I did it for her, for us.
 
-I swear on my life I did everything I; anything and everything she ever wanted. She made enough money off her dad's back for the both of us to live comfortably, so it seemed reasonable decision at the time for me to quit to save our relationship.
+I swear on my life I did everything I could; anything and everything she ever wanted. She made enough money off her dad's back for the both of us to live comfortably, so it seemed reasonable decision at the time for me to quit to save our relationship.
 
 In retrospect, it was a foolish decision. But I was just twenty, and I never expected her to pull the rug out from under me like that.
 
@@ -96,7 +96,7 @@ I remember fear racking my body, my fingers trembled so badly I could hardly dia
 
 What happened next was a blur. Sirens, screaming, detainment, a visit from my livid ex-Girlfriend. It was a a living nightmare. I'm sure you understand, Doc. You probably go through a million cases like this a day. You get it.
 
-Bit it wasn't until after the third questioning, when I was able to piece the story together on my own. They told me I flinched hard enough while pulling the trigger that the bullet managed to barely miss my head. Then, I guess it flew straight through the ceiling, and into the back of my upstairs' forty-year old neighbor, Rebecca. They told me she died minutes after impact.
+But it wasn't until after the third questioning, when I was able to piece the story together on my own. They told me I flinched hard enough while pulling the trigger that the bullet managed to barely miss my head. Then, I guess it flew straight through the ceiling, and into the back of my upstairs' forty-year old neighbor, Rebecca. They told me she died minutes after impact.
 
 I was a murderer, Doc. A fucking killer. I couldn't process what was happening.
 

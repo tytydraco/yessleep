@@ -242,7 +242,7 @@ Keeping low, I slowly crept to the pile of Gaz's clothes. Some of the seams were
 
 Screams could still be heard over the beats that continued to play. I looked up at the cube. The underside was like a swirl of clouds. The green auras would be visible for a moment before being masked entirely.
 
-When I reached the hangar my heart was pounding. There was a small opening on the side and I peeked through it. It felt like most of the acids effects had worn off, the things I'd witnessed being incredibly sobering. I could still see the auras though.
+When I reached the hangar my heart was pounding. There was a small opening on the side and I peeked through it. It felt like most of the acid's effects had worn off, the things I'd witnessed being incredibly sobering. I could still see the auras though.
 
 I saw a gold raver shot point blank by something with a red aura. I covered my mouth as I watched in terror. The raver's body turned in on itself. It was just a bloody mass of muscle and bone, trembling on the hangar floor. When they stopped moving their aura slowly fizzled out.
 
