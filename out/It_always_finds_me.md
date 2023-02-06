@@ -1,5 +1,3 @@
-(Hey everyone! This is my first time posting. This is a little short story I wrote. my punctuation might be off I struggle with it. Any way I hope you enjoy!)
-
 
 I clawed at the ground as it dragged me away, dirt was trapped under my nails as I clawed and fought. I sobbed defeated, hopeless, no matter what I do it always finds me. Its claws dug into my ankle as it laughed at my suffering, it laughed knowing I was so close to giving up.
 “Please go away! Please! please! please!”
