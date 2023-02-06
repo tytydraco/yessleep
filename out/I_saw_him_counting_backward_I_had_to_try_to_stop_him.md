@@ -30,7 +30,7 @@ That’s when I saw my wife and Evan walking to entrance. My heart nearly stoppe
 
 “Stop,” I was shouting. “Stop!”
 
-But Evan only got more excited as he saw me. He started running for the door, running for daddy. As far and out of shape as I’ve gotten, I dug down deep and sprinted faster than I ever had before.
+But Evan only got more excited as he saw me. He started running for the door, running for daddy. Despite how far out of shape I’ve gotten, I dug down deep and sprinted faster than I ever had before.
 
 I collided with Evan right on the threshold, tackling him to the ground.
 
