@@ -34,7 +34,7 @@ One younger officer took me aside though and handed me a crumpled up piece of pa
 
 “I know you’ve seen her,” he whispered. “These other guys don’t get it. Honestly, it’s easier for them to just let her take you and pretend it never happened. But if you want to live, you can. It just won’t be easy.”
 
-I looked down at the paper in my hand and considered throwing it in my face. But then I slipped it in my pocket and walked away.
+I looked down at the paper in my hand and considered throwing it in his face. But then I slipped it in my pocket and walked away.
 
 At night, I could hear a scraping at my window. A little louder each night. Sometimes, there’d be thumps on the roof, and then the air would freeze around me, so cold that I could see my breath in the moonlight.
 

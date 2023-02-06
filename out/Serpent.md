@@ -46,7 +46,7 @@ Do you see? Dennis is right.
 
 And Dennis is pleased.
 
-Once he’s done with me, he’ll eventually coil his body around mine, squeeze until my guts spew from my mouth, and open his *own* gaping wide to consume me, smiling all the while. And I’ll be gone. But for now, he allows me to use him as my dark muse, so I can share this with you.
+Once he’s done with me, he’ll eventually coil his body around mine, squeeze until my guts spew from my mouth, and open his *own*, gaping wide to consume me, smiling all the while. And I’ll be gone. But for now, he allows me to use him as my dark muse, so I can share this with you.
 
 So I can plant this idea in your head and let it grow until you’ve got your own ghost.
 
