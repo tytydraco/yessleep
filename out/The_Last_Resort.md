@@ -422,4 +422,11 @@ There was a moment of silence and I worried I had lost her, but then she replied
 
 “Bye Lucy.”
 
-She hung up and I stared at the phone in my hand for a long time. Then, I heard the bell and rose from my bed. There were more guests to greet.
+She hung up and I stared at the phone in my hand for a long time. 
+
+
+I wonder, when did I get so disconnected from... everyone? So much so that no one even really noticed I was gone. Manny has this theory that those of us that get stuck, the staff, get stranded here because we don't belong anywhere else. We didn't fit in, in our own lives, and so we don't have strong bonds to anyone, to guide us back from the Resort. So, that's why I thought maybe, if I post these journals for people to see, that could help me feel more connected. Maybe find my way back, someday. The internet here is kind of spotty, like the phone signal, so I don't know how often I will be able do this, or respond to comments, but i will try to update when I can. And to anyone reading this: thanks, I think it helps. Well, I am going to post this now, I hope it goes through, because I just heard the bell and that means there are more guests to greet.
+
+Until next time,
+
+Lucy

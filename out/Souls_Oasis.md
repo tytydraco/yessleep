@@ -119,6 +119,7 @@ His words carved through my prickling skin, releasing traumatic memories I’d s
 Yet if this wasn’t fake, then that only left one other possibility.
 
 Tristan wasn’t a charlatan. He offered the real deal.
+
 “I d-don’t know how this is happening, but I never loved you,” I said, fighting to control the fear in my voice. “You harassed me. Stalked me. Terrified me. You tried to kidnap me!”
 
 “I never meant to scare you. I love you. I can’t imagine myself without you. After my arrest, the idea of never seeing you again was too much to bear. But today, you showed up. You showed up! You were a beacon in the dark, and I came running, my butterfly. Now we can be together forever."
