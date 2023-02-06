@@ -76,7 +76,7 @@ He raised his hands and whispered:
 
 *For we know that broken hearts can’t hide*
 
-*The ice the lies inside our body’s tomb.*
+*The ice that lies inside our body’s tomb.*
 
 Old Tom made me say it with him after that. Once, when I missed a word, he slapped me hard across the face.
 
