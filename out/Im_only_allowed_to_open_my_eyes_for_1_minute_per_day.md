@@ -38,7 +38,7 @@ I assumed it had still been Monday. I should’ve kept my eyes closed. I had bee
 
 “A new day,” The voice whispered. “Second strike.”
 
-Suddenly, the lights in my pitch-black room sprung to life. And what I saw was so horrific that I’m struggling to put it into words. I’ll try. In the chair to the side of me, I saw my girlfriend. Lucy. She hadn’t gone home.
+Suddenly, the lights in my pitch-black room sprang to life. And what I saw was so horrific that I’m struggling to put it into words. I’ll try. In the chair to the side of me, I saw my girlfriend. Lucy. She hadn’t gone home.
 
 She was still smiling at me, frozen in the position she had assumed earlier. Lucy’s skin was lifeless, and her clothes were soaked in blood. The bottom of her shirt had been lifted to reveal her disembowelled corpse. I wasn’t sure how my tormenter had inflicted such a dire, excruciating death without altering the contented expression on her face, but I didn’t *want* to know.
 
