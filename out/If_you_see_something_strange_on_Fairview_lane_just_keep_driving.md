@@ -116,7 +116,7 @@ It was just a vague shape again, periodically blinking orange. We sat there for 
 
 “What are we gonna do!?”
 
-We went on like this for a good, until eventually, we saw another pair of lights. An approaching van, some way away. As it got closer, it noticed our hazard lights and slowed down to a halt a little way behind us.
+We went on like this for a good 20 minutes, until eventually, we saw another pair of lights. An approaching van, some way away. As it got closer, it noticed our hazard lights and slowed down to a halt a little way behind us.
 
 \--
 
@@ -278,7 +278,7 @@ We raised it up, carried it over to the truck and swung the tarpaulin, letting i
 
 “Go on then. You’ve got the keys to his van. You know what to do babe.” Said Jesse, rubbing my back with her palm.
 
-I fumbled with the keys a little, my hands still shaking, and I clambered into Mr. Coopers van. I sat for a minute, eventually managing to get the keys into the ignition, and I left them there for a while as I googled routes to the reservoir on my phone. I selected a path with that avoided the main roads. Better not to be seen, I figured.
+I fumbled with the keys a little, my hands still shaking, and I clambered into Mr. Coopers van. I sat for a minute, eventually managing to get the keys into the ignition, and I left them there for a while as I googled routes to the reservoir on my phone. I selected a path that avoided the main roads. Better not to be seen, I figured.
 
 The van had those old school manual windows and I rolled down the one next to me to ask Jesse something. “What do I do? Once it’s done I mean. Will you pick me up?”
 
@@ -292,4 +292,4 @@ I rolled up the window, and turned the key.
 
 The radio jumped to life with the engine, and started playing out some oldie.
 
-I changed the station.
+[I changed the station.](https://www.reddit.com/r/bigkoala/comments/10aq9ek/bigkoala_the_next_great_american_author/)
