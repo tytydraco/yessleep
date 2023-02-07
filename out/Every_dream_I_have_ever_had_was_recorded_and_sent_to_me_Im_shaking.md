@@ -223,8 +223,7 @@ Consider you may have imagined a dream you have misconstrued as a dream you had 
 When I had the time, like… two weeks later, I revisited the late November 2012 file and scanned through it until the title mentioned above popped up at the top of the screen. Child me was in a bright home. He opened the door revealing the twisted scene I already described. It was that dream. Why would they find it so interesting? Was it the code-like message floating in the sky? I waited for the message to pop up, then I transcribed it. This is what it reads:
 
 
-- .... . / -.-- ..--- -.- / -... ..- --. / -.-. .-. . . .--. . -.. / .. -. - --- / --- ..- .-. / .-. . .- .-.. .. - -.-- .-.-.- / .... . .-.. .--. / ..- ... .-.-.-
-
+- .... . / -.-- ..--- -.- / -... ..- --. / -.-. .-. . . .--. . -.. / .. -. - --- / --- ..- .-. / .-. . .- .-.. .. - -.-- / .... . .-.. .--. / ..- ...
 
 I need to continue on with my usual business right now. After that, I'm going to give myself A LOT more time to process all the dream stuff. I don't want to watch certain dreams again. I may even avoid opening the files those dreams are in despite the dozens of lighter dreams that accompany them. I'm just going to think about what all of this might mean. Well, out of what I watched anyway. There are dozens of files I haven't opened yet, and I don't feel very eager to. What if I think a dream about me dying is foretelling something?
 
