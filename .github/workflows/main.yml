@@ -2,7 +2,7 @@ name: Update archive
 
 on:
   schedule:
-    - cron: '0 */1 * * *'
+    - cron: "0 */1 * * *"
   workflow_dispatch:
 
 jobs:
@@ -26,6 +26,11 @@ jobs:
         run: |
           dart pub global activate inc
           inc -i index.base.md -o index.md
+
+      - name: Generate ebooks
+        run: |
+          sudo apt-get install pandoc
+          bash util/gen_ebooks.sh
 
       - name: Push
         run: |
