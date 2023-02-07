@@ -376,6 +376,10 @@ I see Mike as a shadow, standing on the top of a building. He shrugs at me, “I
 
 I hear the thing behind me take slow lumbering steps as I try to wake Rabbit. 
 
-It’s no use, he’s out cold, or maybe dead. But the thing is, as much of a piece of shit as I am, I’m not that heartless piece of shit on the roof. 
+It’s no use, he’s out cold, or maybe dead. But the thing is, as much of a piece of shit as I am, I’m not that heartless jester on the roof. 
 
-I get his limp body over one shoulder and start to hobble toward a thin alley, tuning out the sound of certain death behind me.
+I get his limp body over one shoulder and start to hobble toward a thin alley.
+
+For all I know, this post will be my last, it's being typed with my free hand as that thing closes in. But I'm going to keep putting one foot in front of the other.
+
+I bought the ticket, now I get to take the ride.
