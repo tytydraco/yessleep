@@ -1,0 +1,33 @@
+Hello Reddit. I need some advice from you guys. I generally only browse a few subreddits when I’m bored at work, but something’s been bothering me the past few nights. I’m struggling to get good sleep and thought this sounded like the best subreddit to discuss my problem. 
+
+So it started last Monday. It was late at night and I made the mistake of watching a horror movie before going to bed (Barbarian). While I pride myself in having grown up from most of my fears some movies still get me worked up. This movie terrified me and I had to pause it multiple times while watching. I was relieved when it was done but exhausted from the mental gymnastics I felt I was forced to go through. 
+
+I decided to lay down and try to go to sleep. I live by myself and complete silence makes it difficult to fall asleep (too many thoughts) so I put on Hulu and chose Bob’s Burgers since it is light hearted and something I can easily fall asleep to. I put the TV on the lowest volume setting and close my eyes. 
+
+I could hear the TV as well as the wind blowing through the trees and the chirping of the crickets outside my window. It was relaxing. But after a few minutes of tossing around in my bed I realized there was another sound I could hear. There was a bird whistling somewhere outside. It sounded far away but I could hear it clearly. It was odd though cause you don’t usually hear birds whistling at night. Also this whistle didn’t sound normal. I’m not sure how to describe it but it wasn’t a rapid whistling like you might hear from most birds in this area. It was a single whistle every 10 seconds or so that was drawn out and long. Almost like something was calling to me specifically. 
+
+After hearing it for a couple of minutes I got nervous. I’m used to hearing weird noises sometimes at night (like that one time it sounded like something was walking through the fallen leaves right outside my window), but it still gets me worried since I’m living by myself. However, like the other times I hear weird noises, I calm myself down remembering that I’m safe in my room. Whatever is out there can’t come in here without breaking a door or window. 
+
+I heard the whistling for another couple of minutes before it suddenly stopped. While I was confused, I tried to not think much of it and it must of worked because I eventually slipped into a deep slumber. 
+
+I had completely forgotten about it by the next night. While I didn’t watching any more horror movies I still turned on the TV to fall asleep to. Other than some rare exceptions I always sleep with it on. I was nearly asleep when I heard the whistling again. Instantly I remembered the previous night and shot up in my bed. I listened to it carefully. It sounded the same as before, but maybe a little louder? I thought I was imagining things. Once again, after a few minutes it stopped. Now that I was awake, I watched some TV to get my mind off of it. I left the volume a little louder this time and fell asleep relaxed once more. 
+
+Wednesday night I was thinking about the whistling. Was it actually a bird making the sound? It sounded artificial. I’m not a social person so I didn’t have any friendly neighbors to discuss this with. I also thought it was a little crazy. Who cares about some whistling? Maybe it was a weird owl. It’s nothing to get scared about. 
+
+I heard the whistling that night. And the night after. I was certain it was getting louder. I tried looking outside of my window one of the nights, but it was pitch black outside. Even the light from the moon couldn’t penetrate the darkness. I had the eerie feeling I was being watched, so I shut the blinds before going to bed. 
+
+Last night was awful. I had come to expect the whistling. But when it started I was shocked at how loud it was. It sounded like the source of the whistling was right outside my window. I was visually shaking. I turned on my TV, chose Bob’s Burgers again, and turned the volume up as loud as I could. It was deafening, but at least I could barely hear the whistle. It was a nice distraction, and even when the whistling stopped I kept TV loud, enjoying its comfort. 
+
+All I could think about today was the whistling. I couldn’t focus on work but I didn’t care. Is this going to be my new normal? I didn’t like it but maybe I could get used to it. How would I explain it to potential partners though? Any friends or family who stay over? Maybe whatever it was I could feed it. Even though it freaked me out I love animals. 
+
+I wish I still had these thoughts. Once again, I was laying in bed. I was ready to fall asleep but knew I would hear the whistling again and it would keep me up. I was watching TV when I heard the whistling. 
+
+This time, my breath caught in my throat. Did I hear it right? I figured it was loud, so I must have misheard it. But when the whistling came again I know for certain what I heard. The whistling was even louder this time, but that wasn’t what scared me. The direction it was coming from had changed. It no longer came from my window, but was coming from the opposite side of my room. I looked at my closet door, remembering the last time I was in there was this morning, before I left for work. 
+
+The whistling emitted from my closet door. I took my first breath in what felt like minutes. I could feel myself visibly shaking as I slowly got out of bed. Wearing only my pajama bottoms, I began walking towards my closet. The whistling was threatening to give me tinnitus. But I was enticed. It was like a siren’s song. I was on autopilot and couldn’t stop as I walked toward my closet door. 
+
+I stopped right outside the closet door. I stood there looking at the door handle. I was breathing heavy and my hand was shaking as I reached for the door handle. 
+
+Before I touched the handle I realized the whistling had stopped. But I could still hear *it*. There was a deep breathing coming from the other side of the door. I heard a low growl and a constant dripping sound. Looking down at my feet, I noticed a dark, red liquid seeping from my closet. Suddenly, I was out of my trance. My fight or flight instincts kicked in, and choosing the latter I ran out of my room. I ran outside and jumped into my car, turning it on and driving away without even thinking of locking my front door. 
+
+So here I am now at the parking lot of the local Walmart. It’s pretty empty, but full of light and a good distance away from my house. I don’t want to leave my car because I’m only in my pajama bottoms and feel naked without a shirt or shoes. What should I do? Am I overreacting?? I feel like I must be imagining things, or maybe in a really long nightmare. Either way, I don’t want to go home, but I can’t stay in a parking lot for the rest of my life.

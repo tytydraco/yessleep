@@ -4,6 +4,8 @@ Part 3: https://www.reddit.com/r/nosleep/comments/zkfl7t/im_in_a_military_rescue
 
 Part 4: https://www.reddit.com/r/nosleep/comments/zm5zza/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
 
+Part 5: https://www.reddit.com/r/nosleep/comments/zn0aea/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
+
 *******************
 
 They said it was nothing. A routine rescue op at a facility known as the Tantalus Site.

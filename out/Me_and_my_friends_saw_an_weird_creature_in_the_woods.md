@@ -1,0 +1,13 @@
+Hi I’m Matt but y’all can call me Tolyas. It was a rainy day when me and some of my friends let’s call them Lucas, Jerry and Paul went to the woods for a camping weekend, I’m also from Russia so I’m sorry for my bad english, anyways, we got there and I was the one who was driving so I parked the car next to the entrance in the woods so it could be easier for us to find the car. 
+
+We got our stuff ready such as our tents, sleeping bags etc, and we needed to make the fire before it’d get darker. Lucas said he’s gonna go search for some sticks with Jerry and they’ll be back in a few minutes while me and Paul were just chilling waiting for them to come back so we could make the fire so we can eat some marshmallows. 
+
+They got back so fast forward we already ate something and we were telling horror stories to keep the horror ambience going because it was dark and only our fire was making light. Paul told a story about a creature that was living in woods and like eating everything it sees and it’s usually active at night and search for campers like us, first we got goosebumps but no one believed him because it was a legend so we remained silent so he could continue the story. 
+
+Fast forward through the story Lucas fell asleep so we went to sleep too, I was sleeping with Paul and Jerry with Lucas, everyone was sleeping but at 2:12am I woke up and looked at my phone and saw the clock so that’s why I know the time, I heard a sound outside that sounded like a growl but I thought it’s a bear or something and maybe he got there because we left our food at the fire and I wouldn’t be bothered if he would’ve ate the food as long as he wasn’t about to eat us. 
+
+I grabbed my flashlight and went outside, looked with the flashlight through the trees but it was empty, just when I was about to go back to sleep I realized that Lucas and Jerry weren’t there anymore so I went to wake up Paul and in that moment we both heard their screams so we quickly went to where the screaming was coming from and we turned into stone when we saw a big creature with red bloody eyes and evil face that was about to eat them. 
+
+In that moment we heard a gunshot that scared the creature away so our friends were fine and me and Paul took them to the car and started driving home as fast as we could but on the way back home we saw the creature following us with an amazing speed and we were all scared for our lives but we somehow managed to escape alive. I’ll never forget the creature’s bloody eyes with a goat’s face looking evil. We’re all fine and we’ll never go camping again, and we managed to make that story Paul told us true.
+
+I know this story isn’t too creepy but it was very creepy for us to live those moments.

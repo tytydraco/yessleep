@@ -4,6 +4,8 @@ Part 2: https://www.reddit.com/r/nosleep/comments/zj34y5/im_in_a_military_rescue
 
 Part 4: https://www.reddit.com/r/nosleep/comments/zm5zza/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
 
+Part 5: https://www.reddit.com/r/nosleep/comments/zn0aea/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
+
 I work with an Aeromedical evac unit for the military. Our job is to treat and evacuate wounded soldiers in dangerous situations. Recently, my unit was assigned to a military facility known as the Tantalus Site where they developed a deadly biological toxin that wrought unimaginable havoc on their test subjects. A leak at the compound was reported before the entire place went dark.
 
 When we arrived, we encountered a mess of people torn apart by something monstrous, I was chased by emaciated humanoids, and we were told by the final survivor that the creatures were prisoners of war who’d been used as test subjects. Despite degenerating on a cellular level, they still retained some degree of intelligence; being smart enough to harvest the organs needed to sustain their ever-depleting bodies and to mimic ordinary human behavior. Like closing the main doors and locking us in this infernal hellhole with them.

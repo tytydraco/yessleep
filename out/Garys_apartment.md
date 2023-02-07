@@ -1,0 +1,28 @@
+My name is Lauren Shadwick, I am 26 years old, and I used to rent a now abandoned apartment. This happened about 4 years ago when I was 22 after I moved out of my parent's house. The owner, Gary, welcomed me with open arms. I didn't expect that from the landlord. He showed me around, He even let me into his office. 
+
+I lived on the 4th floor, I don't really know anyone that lives on my floor. In fact, I don't know anyone there except the landlord and Jacob Anderson, The guy next door. Jacob was about my age and he was really friendly. He made me feel at home. He visited my unit and brought food. I was shy at first but we became friends, I visited him a couple of times and I also invited him to my apartment. 
+
+Everything was going well, Jacob and I became really close, and I fell in love with him. I never confessed my love for him because I was too scared that it would ruin our friendship. I did think about it a couple of times but my fear overcame me. I lived there for a couple of years, but one day everything changed. Jacob started talking about a second death, I didn't understand what he meant. 
+
+I finally decided to confess to him, But when I was about to, he wasn't there. He left me a note saying “Hello Ms. Shadwick, I won't be home for a day or 2, Please do not bother calling me for I will be busy. You can ask Mr. Gary if you need any help, Please go meet him at his office. Sincerely, Jacob Anderson.” I found it weird, He never addressed me as Ms. Shadwick. I knew something was off but I decided to just wait for him. 
+
+It's been 2 days and he never came back, I was very worried so I decided to go to Gary’s office. I told him about the note Jacob left me. He told me that Jacob is doing something important for him and that I could join him, I felt a bit relieved. But then He asked me if I'm Interested in the second death, and I was confused. He explained to me what it was about but all I can think about was Jacob. He showed me a contract, I declined, and I felt watched as I got out of his room as if someone or something was following me. 
+
+I used the elevator to go down, But in the middle of the ride, it stopped. I was on the 6th floor, I was about to use the stairs but there were headless statues blocking the way down. I then turned around to go back but a bunch of headless statues appeared in front of me. I was terrified, I ran up to use the other stairs but headless statues kept appearing blocking my way, I ran up again and there were candles all around. 
+
+I stopped on the 8th floor. I tried pushing the statues but they were too heavy. I then heard a strange noise, Sounded like an animal, I came down to check and it was a man, his clothes were very dirty, I decided to call him. It looked at me, His face was brutally mutilated. It rushed towards me and I freaked out, I ran upstairs as fast as I could. I got to the 10th floor and headless statues appeared preventing him from catching me. 
+
+I turned around to see candles leading to Gary’s office, There were headless statues blocking the way down so there was no escape. I got to his office, And there was a note from Gary. The note read 
+“If you wish to see Jacob there is no other way but to sign this contract, Do not think about turning around without signing the contract for they are waiting for you.
+Do not worry for they will lead you to him once you sign it and become a devoted follower of mine. Once you become a devoted follower you will become a vessel of the second death. Remember: Gary loves you”
+There was no other way of escape, I can't go back but I can't sign this contract and be part of whatever the second death is. I just know that whatever it is, It mutilated that man's face. There's only one way down using the dumbwaiter. It's big enough for a human to fit, and I used it to go down but it broke because I was too heavy. The fall broke my back but I could still break the door, and walk out. I was followed by a mutilated creature and men wearing red clothes. It was terrifying, and I tried my best to run out of the basement, But I passed out from exhaustion. 
+
+I woke up in a hospital bed. The nurse said a guy brought me there and left me an envelope. It was a letter from Jacob. The letter read
+
+“Dear Lauren.
+I'm sorry I wasn't there to help you, I have been very busy with work but don't worry, I'm fine. But don't come back to the apartment. Don't bother visiting me because I will be moving places. It's best if you move back to your parent's home or somewhere far from here. Please don't think that I'm trying to put you away. Things are just complicated right now.
+I wanted to thank you for making this past year the best year of my life. You don't know how lonely I was before you came. Thank you for being there for me, And I'm sorry that I wouldn't be there for you. I wish I could but things are very complicated for now. I will come to visit you once I'm done with work. 
+Get well soon, and stay safe.
+Love, Jacob”
+
+And that was the last time I heard from him. I hope that wherever he is now, He's safe, and away from that hell. What I’ve seen will forever traumatised me, I hope Jacob isn't one of them. I'm now 26 years old and living alone far from that apartment, I often get nightmares from that place. I sent a letter with my address to his place years ago hoping he would read it before he left that place. I'm still waiting for him to come to visit me.

@@ -1,0 +1,19 @@
+This year started off looking exciting but I'm not so sure anymore.
+
+I finally succeeded in the millennial dream and bought a house this year. It's not much but it's mine. I bought it back in the spring from this old woman and everything seemed fine. It's a 3 bedroom ranch with a full basement and 2-car garage. I've been looking forward to taking this step for a long time and decided to take the jump right before the interest rates started to get out of control.
+
+Of course the first thing I did after buying the place was to start making a list of all the things I wanted to change to really make it feel like it's my home.
+
+At first everything seemed great as I tackled the first tasks of some fresh paint and replaced some old light fixtures with modern ones. I am pretty handy so I've been doing all the work myself. I had to climb into the attic in my order to run some electrical wire and as I shifted away some insulation I found something strange.
+
+It was an old polaroid photo that was on the ceiling drywall but the picture was so faded I couldn't tell what I was supposed to be a picture of. I picked it up and on the back were three dates: 2/19/70, 3/1/70, and 9/10/70 in blue then black and finally red ink. I thought it was odd but was so focused on what I was working on that I discarded the picture and kept working.
+
+Fast forward to last weekend, and just a warning this still gives me shivers down my spine when I think about it. I had noticed some water leaks coming from behind this old work bench in the basement and needed to dismantle it in order to access the wall behind and get it repaired before it became an expensive problem in the future. There I uncovered what I now am struggling to rationalize as anything other than evidence of something deeply sinister.
+
+It looked like a piece of antler at first but then I realized it was a handle to a knife but without the blade. It had been wedged underneath the work bench wrapped in a cloth. As I turned it over in my hand I found deep groves in the surface each about a finger apart running the entire length. A total of 10 grooves and as I looked closer at the end there looked to be etchings I couldn't make out in the dim basement light. The only number I could make out was each line ended with 8 and one more digit.
+
+I started pulling apart the work bench more carefully fearing what I might find. As I kept looking I found 3 more similar handles each with the same etchings. I took the handles upstairs where there is more light and I will never forget this for the rest of my life. As I looked closer in clear light it was clear each etch was a date. 5/12/83, 7/31/84, and so on. I started checking the other handles when I saw it. I had a flash of memory of that polaroid and my blood ran cold. 9/10/70 was the first etch on the second handle. In total I had 4 handles with dates ranging from 1960 to 1999.
+
+I haven't told anyone until now about what I've found so far and at this point I'm scared of what I might find if I keep doing renovations around the house. I looked up the old owner and found an obituary of her husband in 2007. I did go back to the attic but so far haven't found another polaroid. If I'm right that means there's probably another handle with with 6 or 7 notches attached to a blade somewhere in my house.
+
+A part of me wants to go to the cops but I don't know what they would even do since right now I just have these handles and that polaroid I found has long since been thrown away. The idea that my house could get swamped by police and the media is really unsettling but if what I'm able to help provide closure for someone out there I need to do that right?

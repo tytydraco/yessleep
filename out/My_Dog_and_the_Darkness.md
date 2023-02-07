@@ -1,0 +1,15 @@
+I stumbled through the woods, my shoes crunching the white untouched snow, the waning moon my only light source. I was calming walking just 30 minutes ago, enjoying the crisp December air as I tried to exhale all the stress I’ve accumulated from the hustle and bustle of Houston. What better place to do so than the Jersey woods. I left the cabin around 11:30 after the roaring chimney and book on stoicism no longer interested me. A light stroll around the 50 acres of property didn’t seem like a bad idea. It surely didn’t seem like a bad idea to Otto as he sprung awake to the sound of his leash being dangled.His pleasantly surprised face always got me when I grabbed his leash. My Otto, my poor poor Otto. The last thing he said to me was fearful whimper before he tore himself loose of my grip and sprinted into the woods. Otto was a dogs dog, a defender, mans BFF. My BFF. But 15 minutes into our leisure stroll around the property that changed. 
+
+I didn’t see it at first, Otto did of course, his barking was what stopped me in my tracks and initially saved me. How could I see it though? The thing blended perfectly with the darkness in between the trees. It was so well camouflaged that I was walking straight towards it. We were about 50 feet away from it when Otto pulled back, growling towards the seemingly harmless trees. I looked back at him puzzled.
+
+“What’s wrong Bud?” I asked knowing he could understand the concerned tone of my voice.
+
+As I turned forward to make out the issue I saw it. It was like the blackness between the trees moved in front of the tree next to it. 
+
+“Oh god!” I whispered as Otto barked loudly. The last time he barked this aggressively was when I came home from a halloween party wearing a gorilla suit. I wished it was actual gorilla in front of us then. 
+
+I stared at it for god knows how long trying to understand what I was looking at as it stood as still as a statue. It had to be over 7 feet tall and wide enough to cover the tree behind it and more. I noticed I could still make out the base of the tree by several inches. 
+
+“Its floating” I whispered in fear and devastation. As my eyes moved back up towards its head it began to floating towards me. It moved at the speed of a ballon caught in a light breeze. I stood as frozen as the winter around me. Otto whimpered as he ripped loose from my grip and dashed ahead of the thing coming towards us. The sudden and violent yank of his leash started me back up like a lawn mower and I began to run behind Otto. That was 30 minutes ago.
+
+At first I could still see his Ottos hind legs in front of me, then only the end of his bright orange leash, then I could only faintly hear the jangle of his dog tags. Now I only hear the crunching of my shoes on the white untouched snow. Im not running anymore but stumbling forward. I know it’s still behind me. Its darkness targeting my back as its continues to move at the pace of ballon caught in a light breeze. I hope Otto’s okay.

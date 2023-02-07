@@ -1,0 +1,61 @@
+I’d figured it was just “her thing”, some kind of kink, or maybe even a long-form joke. She played the part well throughout the night; dancing her little elf dance whenever something fun 0r funny happened, the bells affixed to her taut green hat and garb jingling merrily in the motions. Not once did she break character, or react in a way that wasn’t “elf-like”. She was almost frustratingly consistent, to the point where at one point I even asked her if she could drop the act; but she persisted, insisting that she was in fact one of Santa’s elves, who’d stealthily escaped from his wintry compound after having spent nearly a thousand years toiling under his artic regime.  
+
+Naturally, I dismissed the claims, but begrudgingly played along, in the hopes that I’d be able to undo the various bells and buckles of her costume, later on.   
+
+As the night wound down, and people began to filter out of the bar, I finally got her to agree to come home with me; and even at this she did a little twirl, and even threw a handful of glitter at me, from a pocket I was sure hadn’t been there before. Surprised—but still very much wanting to bring her home—I brushed the glitter away, paid our tab, and led her through the stumbling herd of merrily dressed drunkards.  
+
+After an annoyingly chatty Uber ride, we arrived at my apartment, and promptly headed in. I live alone, and am thankful for it, because as soon as we stepped inside, she shouted, “Oh, what a lovely home!”, and cavorted around the living room; as if she had never been inside the incongruently decorated apartment of a guy in his late twenties. Despite the obnoxiousness of her behavior, I found her voice oddly soothing: soft and melodious, as if she’d spent her entire life going in and out of song. When she had either tired herself out or grown tired of that particular performance, she settled into my old, dingy couch, as gracefully as someone who hadn’t had seven “Holiday-themed” shots of tequila.  
+
+Still very much into her, I joined her on the couch and asked if she’d like to watch anything. Clapping her hands together and putting on an almost uncannily broad smile, she said, “Ooo, let’s watch a Christmas movie!”  
+
+Despite the time of the year—and her outfit, which she’d yet to even play at removing—the last thing I wanted to watch was a Christmas movie, given the circumstances. I’ve got nothing against Christmas cheer, but in that moment, I didn’t exactly want to see something so “wholesome” and family friendly, if you catch my drift.  
+
+But she was my guest, so I complied. I brought up the streaming services I use and went through them all, sorting by Christmas-themed movies, and eventually she found one she thought would be “the most cheerful.”  
+
+I had—disdainfully—expected her to spend the whole movie glassy-eyed and smiling, perhaps even making me join her in some song; but after only twenty minutes her face had assumed an expression of what I can only describe as grim repulsion. I asked her what’s wrong, and practically on the verge of tears she said, “This isn’t right. None of this is right. We’re not short and stupid. And Santa isn’t some bumbling idiot. Sure, he’s harsh, even a bit cruel at times; but he’s no idiot—he's a wise and calculating autarch, if anything.”  
+
+At first, I thought she was referring to some other movie; that maybe the one we’d been watching was actually a remake, and they’d got everything wrong. But then I realized that she was still doing the *elf bit,* only it was obvious—by her genuinely pained face—that it was no bit; that sitting beside me, dressed in a perfectly fitting elf costume, was an actual, bona fide elf of the North Pole.  
+
+And like some kind of enchantment abruptly wearing off, I began to notice all the physical peculiarities—the subtle, though decidedly inhuman features—in her face, and hands, and even her figure. She was fit, which in itself was by no means unusual; but *too* fit, perfectly proportioned in form and frame, beyond anything achievable by routine gym attendance or carefully honed genetics. I’d watched her down an entire family basket of mozzarella cheese sticks back at the bar; surely no one who could do such a thing would have such an immaculate figure. And yet her body was as one sculpted by hands whose owners had gazed upon faery models of fable and myth.  
+
+And her face—it was cute, sure; but also a bit...creepy, uncanny in the subtlest of ways, like an AI-generated image. She reminded me of those old paintings of Fae and forest-folk, those ancient and elusive dwellers of sylvan abodes. There was also a an easily discernible glow about her, one I had somehow failed to notice both at the bar and the subsequent Uber ride, despite the relatively dim lighting in both spaces. Even though it (presumably) served to enhance her already beautiful, elfin features, I felt intimidated by that photic aura—there was something alarming to my human sensibilities about its nature and potency. And still—as if truly ensorcelled—I ignored these weird and nigh fantastical features, and tried to placate her sudden unrest. 
+
+But my attempts proved futile, for she pushed me away and stood up, hands balled into fists. I was immediately unnerved, because I had never once been shoved with such forcefulness; and her bodily glow, which had not changed in color, nonetheless now seemed like a radiance of malice; a smoldering aura of contempt for the circumstances, if not me, directly.  
+
+“Is this common? This manner of depicting Santa, and the elves? Is this how you people see our kingdom?”  
+
+Unsure of how to properly respond—and still clinging to a doubt (or hope) that she was just kidding—I simply nodded. Her eyes, which before had been fixed on the paused movie, now met mine; and I saw within them twin fires which dwarfed in intensity any volcano or subterranean kiln.  
+
+“You...you disrespectful insects! After all we’ve done for you, all we’ve *given* you, expecting NOTHING in return, this is how you portray us? This mockery of our people?! Were it not for the joy and jolly of Christmas, we would march upon your lands and slaughter you at Santa’s order. And believe me, he’s drawing very near to issuing just such a command. You are all so boldly, insolently ungrateful, and he’s grown tired of it.”  
+
+Her once cute face was now a near-demonic visage of fury, and her posture no longer possessed anything of the relaxed gracefulness, of the parade dancer’s gaiety she’d displayed before; she stood as a warrior might stand before a felled foe, ready to deal the final crushing blow to the victim’s skull.  
+
+Terrified, I raised my hands in surrender, sensing—knowing—that she possessed a strength well beyond my own, despite my larger size. Her small, compact, bell-adorned figure belied the assuredly baleful power that lurked within.  
+
+“I risked everything to come here. My duty, my home, my immortality—all to experience the world below The North. And what did I find? Mockery. Lies. Ridicule. You think us children? Dwarves? The Great Snow Cleric a fat, milk-guzzling drunkard? His fortress no more than some sweatshop, wherein toys and knick-knacks are cobbled together by whiny-voiced slaves? Do you think me a slave, human?”  
+
+Tears ran from my eyes as her stature seemed to grow, and the emanation of malignance seemed to swell around and envelop me, until I felt choked by some palpable expression of misanthropy. I stuttered out an apology, not knowing how to respond, the unreality of the situation beyond anything I could’ve ever imagined. My apartment, rather spacious given my singleness, now seemed to shrink upon me, until I felt sure that she had either grown in size or that I had dwindled to some dwarven state.  
+
+I tried to think of a film, book, or even video game that had portrayed elves in a more “serious” light, but my mind couldn’t recall anything; and even if it had, I’m sure I wouldn’t have been able to speak it, as terrified as I was.  
+
+Not accepting my babbling apology, she seized me by the throat with a single hand and lifted me well above the couch. Her grip was tight enough to hold me aloft but not enough to actually strangle me, a feat I absentmindedly attributed to her unhuman dexterity. The fiery pits that served as her eyes bored into mine, and my soul shrank away, a pitiful ember in comparison to the great conflagration of hers.  
+
+“You are not worth killing, wretch of mankind. I will let you live, if only so that you may tell others what you’ve seen here, today. Tell them of how my kind *actually* are, and of the strength and power we possess. There are things we can do, abilities we possess, that would make your greatest feats of science seem like the dubious works of charlatans. The dark thaumaturgies of Santa Claus could wipe out countries. He is a gift-giver, yes, but he is first and foremost a sorcerer—a warlock of frost—and we are his well-trained acolytes. Should your kind ever dare to visit his impregnable fortress, horrors unimaginable would be unleashed upon you. We hail from times dark and unrecorded—you are but infants to us, untouched by The Frost.”  
+
+Still holding me in the air with one arm, she then raised the other. I watched, breathless and horrified, as the fingers of her hand joined together, the red nails fusing into a single, knife-sharp point. The skin of the hand, once frostily pale, became red at evenly spaced intervals. My horror was now mingled with stupid incredulity as I realized her hand had transformed into the sharpened end of a massive candy cane.  
+
+“But before I leave, a taste of The Snow Cleric’s enmity.”  
+
+She then plunged her monstrous hand into my side, piercing the flesh as a toothpick might pierce a cheese cube.  
+
+The pain, as agonizing and thought-disintegrating as it was, was not white-hot; no, it was just the opposite: a chillness, a breath-freezing frigidity came with the impalement, and my entire body seized as if blasted by some boreal gale. The cold dead sterility of outer space would’ve been preferable to that unrelatable sensation; starving and dehydrated on the sweltering surface of some sun-blasted desert a more tolerable circumstance. I felt my very soul ice over as she worked the hand-blade deeper into my body, somehow pushing aside but not piercing my ribs and vital organs.  
+
+Finally, terribly, I felt her hand return to its normal form, the fingers wriggling free of their fusion within the very core of my body. And just before the pain became too much to bear and my mind mercifully shut itself down, I felt those chill-instilling fingers grip and stroke the center of my spine. Once. Twice. Three times. I’m ashamed to say that for a moment, agony became indistinguishable from ecstasy...my nervous system experiencing a sensation heretofore unfelt and unfathomed... 
+
+Just before sight and sound left me, I saw her eyes—alight with hyper-natural malevolence—double in size, nearly filling the entirety of her cadaverously pale face. Her nose, once a cute, blush-tipped nob, was pulled to utter flatness; becoming little more than a red smear. And her mouth, stretched ear to pointed ear, whispered from crimson lips a final, deathly phrase: “All things, in the end, will fall to the frost.”  
+
+I awoke a few hours later, lying on my coffee table—on which I’d apparently been dropped, judging by the cracks in the wood—with a lingering pain in my side. Still lying on the table, I slowly pulled up my shirt, expecting to find a massive bleeding gash where she had stabbed me. But shockingly, there was instead a closed wound, sewn together by...tinsel.  
+
+Carefully, I rolled off the table and sat on my knees. After only a moment I had to adjust, because there was something digging into my kneecaps. Clearing away the mental and visual fog that had arisen following my abrupt awakening, I examined the area around me, and saw that the carpet was littered with broken glass. Looking up, I found the source of the shards: There was a large candy cane embedded in my TV.  
+
+Elf chicks are crazy, man.

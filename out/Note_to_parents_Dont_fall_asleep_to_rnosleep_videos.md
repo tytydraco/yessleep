@@ -1,0 +1,13 @@
+Like a totally normal person I love true crime and horror stories. So every night I turn on a horror or true crime story video, tonight “best of December 2022 nosleep compilation” at around 9 pm. I woke up to my young son (about 6 or 7) in front of the television, and when I asked what he as doing all he would say through tears was “mommy tell them they scared me” “they scared me” so I told him to get into my bed and that I would deal with it once he went to sleep, so here I am. 
+
+If you have kids maybe don’t be like me or you’ll have a scared child to deal with. He will probably be sleeping in the bed with me for awhile now. 
+
+EDIT: First if all I would like to say I am sorry to the moderators and people theorizing about if this means something or not in the threads. Let me explain what happened and why I posted what I did. 
+
+I’m usually good at determining what is and isn’t a dream. Many times through my life I have had dreams recounting traumatic experiences in my childhood. Because of this I’ve worked with therapists and I can often tell when something is a dream, when the circumstances get so bizarre it’s like I am able to tell it isn’t real. 
+
+That being said, when I woke up this morning the first thing I did was check my phone and was surprised to see notification after notification from Reddit. I opened the app to see that I was being bombard about sub rules and not making irrelevant posts in the sub, all underneath this post. 
+
+Lo and behold I made a post in my sleep. Makes sense because I had a dream about it last night, about my son blaming you guys for scaring him. Somewhere along the line I had gotten the impression he wanted me to post on Reddit, and having realized it was a dream chose to go along. I had realized it was a dream because I have never had a child, I’m a 23 year old woman living alone. I do actually fall asleep to these videos, so I assume that’s how Reddit got involved. Sorry bout that folks but considering the creepy nature of the dream I feel as if it may qualify to stay up! Let me know!
+
+EDIT 2: I got up to make my bed, but when my feet hit the ground I heard I a small voice coming from underneath the bed “Mommy! You didn’t deal with them, I went out there and they scared me again.” and quickly retracted my feet back into the bed. I don’t know how I would begin to describe this to a 911 dispatcher, let alone without the boy hearing. Whatever happens happens, maybe I’m over reacting but maybe I’m not. I took a moment to pray before deciding to make this update so my family knows that I will leave my final remarks (just in case) in drafts on this account- the password is my first dog and birthday.  May the lord help my soul.

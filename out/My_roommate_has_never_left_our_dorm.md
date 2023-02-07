@@ -1,0 +1,39 @@
+I have seen something so unlikely, disturbing, uncanny, and absolutely messed up that I don’t think I’ll ever be the same again. What I have seen should have been impossible. I can’t understand why or how this is happening.
+
+My junior year of college started out pretty predictably. The day before the start of the fall semester, I moved into my dorm room in one of the coveted suite-style upperclassmen buildings with the help of my dad. Shortly after the last of my belongings were piled into my room and my dad said goodbye, my new roommate arrived with her parents.
+
+She introduced herself to me with a bright smile and a perky wave. Her name was Marie. She had shoulder-length blonde hair—the natural kind you see in people with Nordic ancestry—and black, thick-rimmed glasses. She told me she was 20 and a junior this year as well. I thought she looked and sounded much younger, but having been mistaken for a high school kid myself during college more times than I care to admit, I knew better than to point that out.
+
+Her parents seemed oddly disinterested in anything other than bringing her stuff in as quickly as possible. They didn’t discuss where to put everything, ask her if she was excited to start the school year, or even hug her goodbye. I felt bad for Marie, but she seemed entirely unfazed. I figured she was used to it. My dad has always been amazing, but I had known people with toxic parents before and understood that some people’s parents just didn’t care.
+
+Marie had a bright pink, retro, 90s blowup chair that she always sat on in the corner of the common room. As the semester wore on, I began to notice that Marie hardly ever left that chair. She was almost always sitting in the blowup chair with the TV on when I came back from class, no matter what time of day it was.
+
+Occasionally I saw her get up to do various things around the room, leave the room to use the bathroom, or leave the building just to grab food from the cafeteria. She never left with any books or said she was going to class, though. It seemed like she didn’t have any classes at all, or at least didn’t attend any of them. Even the worst slackers tend to at least go to class at the beginning of the first semester before burning out, but Marie never went to class *at all*.
+
+Even though it was none of my business, it did bother me a little. I guess it was just hard for me to watch someone waste their time and money like this. I mean, why even enroll if you aren’t even going to entertain the idea of going to at least one class? And why go through college just holed up in your dorm and missing out on the experience? I wanted to ask her what her deal was, but I figured that would be rude and make things rather awkward for the rest of the school year. She was nice enough. We occasionally talked about our lives and our interests. I tried to invite her to hang out with my friends or come to my symphony concerts. But she was, of course, never interested.
+
+Right before the semester ended, it was announced that after the next semester, this building would be closed in preparation to be torn down so a similar but much nicer suite-style dorm could be built in its place. As per usual, at the end of the spring semester I packed my belongings and headed home, feeling a bit sad that the building I had looked at with envy since freshman year was going away but excited to see what was going to be built on the lot in the future.
+
+This was in 2013.
+
+Unfortunately, plans to tear down the building and start the new project never came to fruition for some reason. That building stood empty as I finished up my senior year. In fact, it was still there when I started a new job at a housing organization this past summer. We ended up purchasing it with plans to turn it into an apartment for senior citizens. Why they chose an old dorm on a college campus to house the elderly, I will never understand.
+
+Being a small operation, the office crew that I was part of was also in charge of checking out potential housing sites before plans were made to renovate. We had to sweep through the building, make sure it didn’t need any serious repairs, and remove any trash or junk left behind. After months of waiting to do so while we wrapped up other important projects, just yesterday they finally sent us out to the site.
+
+I felt intensely nostalgic just being back in that building, walking through those halls, after nearly a decade. The building was a hollowed out shell of what it was in my memories, with all the lobby furniture gone and the front desk dark, gated and empty. I found it strange that the vending machines were still on and still held food and beverages when there was no reason at all to keep them running, but didn’t have time to ponder over this too much as we had a lot of work to do.
+
+I admit I inspected the second floor a little more quickly than I should have just because I couldn’t wait to get to the third floor. That was the floor I had lived on. What I was expecting to see there, I didn’t know. It would definitely be as empty, dusty, and sad as the other floors. I guess I just wanted the extra nostalgia hit.
+
+I paused when I got to room 315, on the left side in the middle of the hallway. That had been my suite. I grabbed the knob to open the door, but the door was locked. I sighed and rolled my eyes. I wasn’t sure how we were going to unlock this door unless we called a locksmith. Luckily the doors still had classic keyholes, so it wouldn’t be complicated.
+
+I was just about to move on when I heard a faint voice coming from behind the door to suite 315. Any rational person would assume people were in there doing maintenance work, but I thought the voice sounded soft and distant, like it was coming from a radio or a TV. I furrowed my brow and hesitantly knocked on the door. I heard footsteps shuffle toward the door and then it slowly opened.
+
+There in the doorway stood Marie. She held up her hand and waved her perky wave. Her lips spread into her usual bright smile, though her teeth were now rotted and yellow, with one missing in the front. Her blonde hair was far past her shoulders now—with large knots in it, and looking like it hadn’t been washed in years. Those same dark-rimmed glasses sat on her now very thin and very pallid face.  I was so transfixed by the anomaly and relic that stood in front of me, that I almost didn’t notice the horrible, rotten, deathly odor peeling out of the room.
+
+I peered slightly over Marie’s shoulder and noticed her blowup chair was still in the corner it had always sat in, though by now it was mostly deflated. Empty snack bags and candy wrappers littered the floor across the entire common room. And then at last, I noticed she was still wearing a pair of bright red, plaid pajama pants she had lounged around in nearly every day when we lived together. All I managed to say to her was, “Why are you here?”
+
+Marie’s smile fell into a look of sadness. “Why did you leave?” she asked me, her bloodshot blue eyes widening into innocent puppy-dog eyes. I shook my head and began to back away toward the wall behind me. “I don’t know understand how this happened,” I said. “You can’t be here—you can’t *still* be here. This place was emptied years ago. Didn’t our RA…? Didn’t your parents…?”
+
+I shook my head again, reached for my phone in my pocket with shaking hands, thought for a second, and then put it back in my pocket, deciding it best to run and get my supervisor immediately.
+
+My supervisor called the police and apparently they went in last night and removed her. I don’t know what will happen to her and I still don’t understand how she slipped through the cracks for so many years.

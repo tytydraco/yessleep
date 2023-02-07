@@ -10,4 +10,4 @@ The guest bedroom was around 2 rooms away from me. I had stayed quiet until it b
 
  After 10 minutes it stopped, lingering outside the door. I tapped on the door twice to see if any reaction would happen. I instantly regretted it as it started banging, and screaming. Picture the screams you hear in horror movies, and multiply it by 2. After a good hour of my ears being tortured, it stopped. I am still in the bathroom. It is 8 am, and whatever the hell is out there, is still there.
 
-Part 2 soon
+If I survive the night, I will make sure to tell you everything.

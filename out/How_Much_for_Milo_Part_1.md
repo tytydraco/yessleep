@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/zpaazo/how_much_for_milo_part_2/)
+
 ”I beg your pardon?” I responded.
 
 The 5:26pm train home from Manchester is usually brimming with commuters. On this evening, however, it was oddly empty. I know it wasn’t a particularly late train, but the sun sets unnaturally early on dark, frosty, wintery nights. Plus, I was already a little frightened. I hate the dark, and the world outside the train window was nothing but an endless abyss. To ensure I stayed awake and didn’t miss our stop, I pressed my face against the ice-cold window beside me. But when a voice disrupted the silent carriage on which I found myself, I slowly peeled my frozen cheek from the window and twisted to face the figure sitting across the aisle from me.
@@ -215,3 +217,5 @@ I felt, much as I had felt in the bank, that I was moments from death. It was no
 Obviously, the drivers were furious, but their anger quickly subsided when I explained my horrifying predicament. One of them proceeded to call 999, and he waited with me until a police vehicle arrived. The officers escorted Milo and me home. The police collected all of the information that I had on the man, but I had this horrible feeling that it was a fruitless endeavour. They could not help me, and I could no longer lie to myself.
 
 The thing that wanted my baby was not human.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/zpaazo/how_much_for_milo_part_2/)

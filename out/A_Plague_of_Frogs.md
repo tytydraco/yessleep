@@ -1,0 +1,83 @@
+Hi, my name is Amber and I survived. It happened a few months ago, before the weather cooled off a bit. I had just moved into a new place, an apartment complex way out on the edge of town. Things were awesome at first, though my whole outlook at the time was admittedly biased. I had just gotten out of a relationship, the last couple years of which were abusive, and not just verbally. When he beat me to a pulp one night in a Wendy’s, it ended with him going to jail, and me filing a restraining order. This was my fresh start, and one I wasn’t going to waste. I moved about an hour away. New town, new place, new me.
+
+My new apartment wasn’t anything special, just a one bedroom, one bathroom that you had to go through my bedroom to get to, and a closet for a kitchen. It was small, but I preferred to think of it as cozy. The complex that my apartment resided in was a sprawling mass of single story buildings, six apartments to a building, and cramped little parking spots that were always in short supply. Like I said, nothing special, but definitely within my frugal budget.
+
+Since Drew, my asshole ex, got locked away for beating me within an inch of my life and I left town, money has been tight. You can’t put a price tag on freedom, though. And that’s exactly how I felt moving into my cozy little hole-in-the-wall apartment with limited parking. Free. 
+
+I managed to get a job just right down the street, within walking distance. I got new furniture to replace our old couch, full of cigarette burns and alcohol stains. New dishes to replace all of the ones that Drew smashed. A new outlook on life, paid for by my youthful stupidity. I was on my own for the first time, probably ever. My wounds healed, life went on.
+
+It wasn’t long after I moved in that I noticed the frogs. You see, on one side of the apartment complex was a pond. It wasn’t exactly visually appealing, either. More like a swampy bog with random bits of trash floating around, and a layer of unnaturally green scum skimming the water's surface. An all around polluted eye sore. 
+
+That’s not even the worst part, you see, around dark every evening the frogs start. They congregate on the water’s edge and climb atop whatever debris happens to be floating at the time, and start their croaking. It’s deafening. A chorus of nonstop chirping and croaking until the sun rises, and they scatter back to their little holes and dens, or wherever in the hell frogs go. By the sound of it, there must be thousands of the little blighters out there, screaming at the top of their inflated little lungs. I can hear them through the walls, my bedroom window looks right out at the pond, a mere stone throw away from the amphibious bastards.
+
+It took me quite a while to get used to them, I hated it. Every evening with their noise pollution from dusk until dawn, the warmer the weather the worse they became. I live in the deep south so that’s almost year round y’all. I was born and raised a country girl and am used to the sounds of nature, but this noise was ridiculous. Some nights it was so loud I barely got any sleep if any at all.
+
+Complaining to the management did no good. Mrs. Tina, the property manager, told me that none of my neighbors in that area had complained, thus in her mind, it wasn’t that big of an issue. Hearing that I was the only person bothered by it and that they refused to take action sent me into a state of irritation and confusion. She had to be lying! How was this blasting of unbearable frog songs every night being ignored by everyone? Standing in the parking lot at midnight was like standing next to a train track with a train chugging along, and didn’t stop until daylight. Mrs. Tina offered to move me to another apartment on the other side of the complex, but the only ones that were available were newer two bedroom units that were more expensive and definitely outside of my budget. I was ready to be looking for somewhere else to live.
+
+I got some terrifying news shortly after that exchange with management. Drew had escaped custody. From what I was told, he had somehow managed to seduce one of the guards, and with their help, walked right out the front gate. I was furious, and scared. He always did have a silver tongue, able to con and talk his way out of things, or into me not leaving and dumping his sorry ass. If he hadn’t beat me within an inch of my life, I probably wouldn’t have had the courage or incentive to leave him. I’d still be right there by his side, doing whatever he wanted me to do. 
+
+It was only after he almost killed me that my eyes were finally fully opened and I saw him for the piece of shit that he really was. I had decided to press charges, and under conditions of full immunity I spilled the beans to the authorities about his many illegal endeavors and enterprises. And now he was loose again, and I knew he’d be looking for me. He knew I ratted him out, and this time he wouldn't spare me that last inch of my life. No, he’d go the full mile and kill me.
+
+I was in contact with the detective that had worked his case, he’d been the one who broke the bad news to me, and was awaiting his call back when my phone rang. It was the detective. He was updating me on the situation when I heard what sounded like him dropping his phone. There was yelling and a scuffle on the other end of the line, before I heard what was unmistakably a gunshot. I sat there, clutching the phone to my ear as fear and panic began creeping upon me. Unbearable silence for many moments, until I heard a familiar voice that made my blood run cold.
+
+“Amber, Amber… Why were you talking to that pig? Did he tell you the good news? Daddy’ll be home sooner than planned. They cut my sentence due to, let’s just call it, good behavior” my ex said with a menacingly jovial tone.
+
+I was frozen with shock. Panic had taken over as I just sat there, my heart going a mile a minute while I was in the process of hyperventilating.
+
+“Got nothing to say? That’s fine, I’ll do the talking for the both of us, like old times, right? I just wanted to let you know that I haven’t forgotten about you, about us. We got unfinished business, babe. Sit tight, I’ll be home soon. I hope you got the new apartment all spruced up for me, we’ll break it in properly when I get there.” I hung up in terror, tears streaming down my cheeks.
+
+I went into full flight mode at that point. He knew about my new apartment. He knows where I live, despite me trying to burn all of my bridges and start a new life, somehow he knew. He was always too clever for his own good. I knew him probably better than anyone, and I knew that he didn’t bluff. He would come, and he’d kill me, but only after he had his fun. He’d start things off slow, letting me think there was a chance, slowly building up to it, then he’d murder me.
+
+In a mad dash, I began rushing about my apartment and packing up some of my things. I didn’t own much, but what little I had I needed if I was going to go on the run. I eventually thought about calling the cops, letting them know that he was coming and that he’d most likely killed that detective. I wasn’t in my right state of mind in my panic, and after the thought finally occurred to me, I knew it was the smart thing to do. 
+
+Still panicking, I was just about to call them when I slipped on something in my hallway. The last thing I remember was plunging toward the tile floor, then darkness. In my haste, I had knocked myself unconscious.
+
+I woke up as a bucket full of cold water was dumped on my face. The shock of it took my breath away as I sat tied to a chair in my living room and gasped. Confusion overwhelmed me as I rapidly transitioned from the warm embrace of nothingness, back to the cold reality it had temporarily sheltered me from. I yanked with my limbs only to find that they were bound, feeling the tight ropes cutting off circulation to my extremities. As I sat there, tugging on them and finding absolutely no slack, I heard a deep chuckle come from behind me that sent chills down my spine.
+
+“Always so clumsy. I was expecting to have to chase and track you down. Thrill of the hunt. But you made things easy for me, I see.” Drew’s voice came from behind me. I dared not say a word. Then after a moment, he went on “What’s the matter? I thought you’d be happy to see me, darling. Aren’t you happy to see me?” He stepped around in front of me and bore into me with his eyes. They radiated pure evil, despite the grin on his face.
+
+I started screaming at the top of my lungs, hoping that maybe one of my neighbors would hear. He quickly backhanded me, leaving my world spinning. I don’t know why I thought they’d hear and save me. The same neighbors that never complained about the noise coming from the frog pond behind us were going to hear me? Doubtful! Hell, they were probably deaf, they had to be. I could hear the chorus of croaking now, which meant that it was dark outside. My screams, if heard, would be mingled with the screams of a thousand little frogs in a symphony that wouldn’t be paid any attention to.
+
+“Do that again, and I’ll cut your tongue out. I’d hate to do that, too, I’ve got big plans for that tongue” he said, the smile on his face finally reaching up into his eyes. He looked like a kid on Christmas morning, elated as he was.
+
+Many things happened after that. Things I don’t wish to relive, even in the telling of this tale. Use your most twisted imagination and you probably won’t be very far off the mark. I’ll just say that I was beaten, tortured, and beaten again. Amongst other things… What felt to me like days wasn’t the case at all, as throughout that whole ordeal I could hear the frogs. I even used the noise as something else to focus on, anything but the pain and dread. He was taking his sweet time with me, and the amphibians outside gave me a sort of escape toward the end, and as you’ll soon hear, in more ways than one.
+
+The night dragged on as I was thrashed about. At some point during all of the violence, one of the struts of my chair became loose. I could feel it wiggle with my hands bound to it. I knew if I could just get him to hit me hard enough to knock me over once or twice more, it would break free, and my hands along with it. In my desperation, it was all I had, just a glimmer of hope. 
+
+He had long since gagged me because my screams of pain were coming out unbidden, so I’d have to find a way to provoke him without my voice. I shot him my best go-fuck-yourself look, my eyes radiating defiance. 
+
+SMACK! 
+
+The world became populated with stars at the strength of the blow. Damn, so close! The chair tilted, but didn’t fall over. Once I regained my vision and the stars faded, I did it again. This time, with my muffled chuckles escaping past the rag stuffed in my mouth, I could tell I had struck a nerve. 
+
+“You think it’s funny, bitch?” He exploded into a rage, his face contorting as he reared his arm back for another blow. 
+
+SMACK! THUD! 
+
+I felt my equilibrium shift through the pain, and then the impact on my right side as I struck the ground. When my vision returned this time, I was lying horizontal on the floor, my hands were still bound, but free of the chair.
+
+As he walked around in front of me to bend over and gloat, I shot my hands up and raked his face with my fingernails, aiming for his eyes. I knew I had got one of them, as I felt something wet and sickening beneath my fingernails. He jumped away and clutched his face in agony, as I used the opening to free my legs. Quickly unbinding them, I scramble up and kick him in the genitals as hard as I could just as he was beginning to recover. The pain in my knees and joints was astounding, having been bound to that chair and beaten for what felt like an eternity, but the adrenaline was pumping and I had to escape. 
+
+He was standing between me and the front door, so without even thinking I bolted away, toward the back bedroom of the apartment. I locked the door behind me as I could still hear him screaming in pain at what I had done to his sensitive areas. I ran to the window, ripping the blinds away and fumbling with the two window latches that kept it locked and shut. 
+
+Already, I could hear him kicking at the bedroom door, and the wood splintering as he made progress.
+
+I finally got the latches undone, and was opening the window before one last kick obliterated the door frame and the door shot open, slamming into the wall with enough force to sound like a gunshot. Panicking, I scrambled out of the window, falling onto the soft ground. Instantly, the sound of the frogs in their pond drowned out the noise of everything else. I turned as I was getting up to see Drew bounding out of the window right behind me, mere steps behind me as I ran in the first direction my feet would take me, downhill. Downhill and towards the pond.
+
+I hit the water and I kept on going, and before I realized what I had even done, I was waist deep in brownish green muck water. I turned to look at my pursuer, and he was right at the water’s edge, no longer chasing me, but just standing there with a pistol raised and pointed right at me. He smiled in the moonlight. I could see blood trickling down his face where I had ruined one of his eyeballs with my nails, but he just smiled. He had me, dead to rights and he knew it. One pull of the trigger and it would all be over. 
+
+I removed the gag from my mouth, far too busy escaping to have worried about it up until this point. I wanted to say something, tell him he wasn’t shit, that he could burn in hell, that he had never satisfied me sexually, something. Mulling over my last words, something crucial had finally caught my attention. It was quiet. The frogs had stopped singing.
+
+“Any last words, bitch?” he said, still smiling with smug satisfaction. It was about to be over. My life was flashing before my eyes.
+
+Then something small hit him in the face. It hadn’t hit him hard enough to knock him off balance, though he jerked out of reflex. Something from another direction pelted him again. And another and another. It took me a moment to realize that it was the frogs. Before I knew it, dozens upon dozens of them were attacking him. It was a barrage of small amphibians smacking him from every angle, inconsequential by themselves, but multiplied by the hundreds they had staggering effect. He was swinging his arms and thrashing about as the weaponized choir continued their assault.
+
+I felt something large and slimy brush against my leg under the water, and as freaked out as I should have been, I was too mesmerized by the mass of frogs that were still jumping at and clinging to him. Large ripples were cast on the water’s surface, and something large surfaced a bulbous head into the night air. I looked, and the only distinguishing thing I could see on it was a large yellow eye on the side closest to me. I like to think that it had winked at me, though it was probably just blinking as I couldn’t see the eye on the other side.
+
+I thought it was some kind of alligator, though it was far too large and rotund. Only after it opened its mouth and shot out a stretchy mass that I swear was more tentacle than tongue, did I realize it for what it really was. It was a toad the size of a Volkswagen, and that thing that shot out of its putrid mouth was wrapped around Drew’s head. The impact of it alone knocked him off of his feet, but he hadn’t fallen as the tongue was strong enough to hold him up. His feet dangled limply in a ragdoll-like effect as he was suspended a couple of inches above the shore for several long moments.
+
+I was fucking stunned. I dared not move, I don’t even think I breathed. I’m pretty sure I didn’t scream when the tongue retracted, as lightning quick as it was. The water from the resulting splash did make me flinch though. Some of that swamp water got in my mouth and it was just reflex. After that, I just stood there. I know it’s probably weird, but I didn’t feel in any danger from the beast. I kept standing there, and as it slowly retracted backwards into the deeper waters of the pond, I whispered “thank you”.
+
+I don’t know what to say after that. I kept living my life. I never called the police, either. As far as the authorities are concerned, Drew is in that statistic of people who managed to escape jail and get away scott free. As far as I’m concerned, the bastard is finally what I always knew he was, a piece of shit. Now literally.
+
+I don’t mind the frogs so much anymore. I actually quite enjoy them now. Hell, after they saved my life, the least I could do was keep them well fed.

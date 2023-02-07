@@ -1,0 +1,13 @@
+Hello, My names Axel and i love everything creepy. But this just unnerves me on so many levels.
+
+I moved in the summer of 2022. Theres a park nearby, walking distance. Ive been there a plentiful amount of times and i love the park. But half of those time i see something running through the trees. This last time it was more worry some. 
+
+December 30th 2022
+
+I was getting ready to go on another walk. I was sure i would encounter a weirdo as i did the last time i was there but getting there was smooth sailing. I pack my headphones, phone and throw on a coat. I walk out and pass the apartment complex as i make my way to the gate. I always get a feeling of dread when I enter this park. I walk up the path, past the floor control dugout and up the hill towards the swing set. I hop on it and get a bit of momentum. A few minutes passed of just me swinging and listening to music and as i looked back towards the direction of my home, which was downhill and had a patch of thick trees i swear i see something run from one tree to the other pretty far away. I stare for a bit and nothing happens. The moment i look away it happens again and it moves closer. I stare and nothing. I look away and its just me for a minute but then it happens again. It was now at a tree at the bottom of the hill near the road that leads to where i was. I took off my headphone on one ear and listened. At which point it came closer. It was now in the middle of the hill and just to prove i wasn’t hallucinating like do when I’m in the dark i heard a crack. Distant but vivid. I got off the swing set and tried texting one of my friends. I skip the sidewalk and begin running straight down the hill. I stumble a bit but soon reach the sidewalk again. I glance back and see something on top of the hill. I run to the gate and slow down. I make it out and continue walking home. I turn back as i near the office of my apartments. 
+
+I see someone the height of a grown man standing there.. smiling. Thats the only thing i could make out in the dim lighting of the streetlamp at the edge of the park. No face, no clothing, no define area of where their body parts are, just that sickening smile. I got lucky that time and Im worried what will happen when i go back. This scared me and this isn’t the first time this has happened. But I’ve never actually seen the thing till then. I hear knocking and I’m trying to ignore it. It wants in. It knows i know it exists. Im its prey, its food. My dog is the only one awake with me, glaring at the door. Its getting louder and i can hear it saying something.. it sounds like me.
+
+Not saying..
+
+Its singing one of my favorite songs.

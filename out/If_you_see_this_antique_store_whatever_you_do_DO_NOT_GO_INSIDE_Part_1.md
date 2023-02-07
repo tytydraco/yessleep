@@ -1,0 +1,29 @@
+I don't know where else to put this, because if i tell anyone else they'll think im crazy. I really can't explain it with a few words so I'll just tell you the story
+
+It was cold outside, frigid, even. The snow was nipping at my nose as I walked to my car, and my breath turned to steam like smoke from a campfire. It had been a long 6 hours of work at my lousy ass office job. I was part of the call-center that took care of everyone's gripes and problems with the company, and having people yap in your ear for that long is enough to drive anyone mad. I needed to cool down, find somewhere nice to rest and take a break before I go home and cook dinner. I spotted an old antique shop nearby, that somehow, I hadn't seen before, the sign on the front spelt “Wynderhile’s Antiques” in old rotting wooden letters. It seemed interesting enough so I decided to check it out. Walking inside gave me an eerie feeling, the kind you get when nothing is outrightly wrong, but you know something is off. Nonetheless, the place had some pretty cool looking stuff. An old looking wind instrument with pictures carved into it, alongside it was a ritual knife in an old glass container, with writing from an old, forgotten language on it. But what fascinated me the most was a simple pen. The outsides of the pen were metal, engraved with symbols of dragons, minotaur's, and various other mythical creatures. Without knowing it, I had picked it up. The weight, size, and grooves all fit perfectly into my hand, as if it were designed for me. I was lost in my own world, hypnotized by the pen, entranced by the details of the metal, the subtle curves of it flowing perfectly through my hand. I was lost in a world, beyond the one my body was in.
+
+&#x200B;
+
+&#x200B;
+
+All of a sudden, i was snapped back to reality as an old lady seemingly appeared at the front desks saying
+
+“Sir, if you touch it, you have to buy it” Her voice creaked with every word.
+
+She was pointing at a sign behind me that affirmed what she said. I didn’t remember that sign at all though, I would have stumbled into it had it been there before. Too tired to argue and too creeped out to stay, I paid for the pen and pen case and began walking out the door but was quickly halted by the old lady.
+
+“By the way, don’t get caught” The old lady said
+
+The words were cold, a heavy weight carried behind them, they sent ice down my spine and wanted to ask her what she meant, but when I looked back, no one was there. Confused for a moment, I shook it off and walked out the door to my car.
+
+&#x200B;
+
+&#x200B;
+
+My apartment welcomed me like a cup of hot coffee after a 10 hour hike in the snow. I sunk into my couch cushions, exhausted with the long day of work, and the weird antique shop. I flicked through channels on my old crummy television, hoping to find some rerun of Friends or any other sitcom, it ended up just all being crappy news channels and documentaries. I sighed and groaned as I sat up, bored and looking for some form of entertainment. I glanced at the pen-case, which held my newly bought pen. I realized I couldn't even remember how much it had cost, or what I had played with. After checking my wallet, no cash was missing, so what had I paid with? I pushed the thought aside, designating it as a simple lack of memory and clicked open the pen case, the metal reflecting the light from my lamp, lighting up the details inscribed on it. I remembered when I used to draw various sketches of household objects back when I was younger. Thoughtlessly, I grabbed my notebook and began drawing. The pen was smooth, and it glided over the paper effortlessly, the more I drew the more I became used to it, as my strokes became better and better, forming beautiful curving lines. It was almost like the pen was propelling my hand forward to represent whatever my imagination desired. I was lost in the drawing, hand gliding to and fro across the paper. By the time I was done I had perfectly drawn a vase, with a perspective likened to where I was sitting. It looked so realistic, not like anything I had drawn before, I squinted, something was off.. I shifted in my chair and craned my neck to get a different angle to see what was wrong, yet I couldn't quite put my finger on it. I reached out to pick up the paper but as my hands went to grasp the edges, I felt the smooth, cold touch of glass of a real vase.
+
+&#x200B;
+
+&#x200B;
+
+My mind was thrown for a loop, but before I could even think a buzzing feeling shot up through my body. It felt as if reality itself was trying to hold itself together, tearing and shredding, but then putting back together itself, images flashed through my mind, fighting for dominance over my own memories like two oceans meeting. A mental war raged between me and whatever this thing was. The images were blurry yet I still comprehended a couple, they all involved a dark beast, with four long pointy legs, and thick, black, tendrils sprouting out of its back. It was slightly bigger than a human and it had no features on its face at all. The images became clearer and clearer, and now the creature was walking towards me, step by step, my heartbeat raced as I stood there, unable to move. Step by step, an aura of malice and hatred washed over me, my entire body was screaming to get away, at any cost, but I couldn't. It was right next to me, close enough for me to bump heads if I were to lean forward. If it had eyes it would’ve been staring at me, yet it was just a featureless, black face, flickering in and out of existence. It lunged, aiming for a lethal blow, just before contact, the buzzing subsided, and everything had suddenly returned to normal. Everything except for one thing. The flower pot. It remained in front of him, filled with flowers and water, just as he had painted it, yet somehow, with whatever the hell just happened, he had *brought it* into existence.

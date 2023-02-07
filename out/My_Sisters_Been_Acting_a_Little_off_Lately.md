@@ -1,0 +1,27 @@
+I had always been close with my sister, but lately I couldn't shake the feeling that something was off. My sister, Sarah, had always been a bit odd, with her interest in the occult and love for all things dark and mysterious. But lately, I couldn't shake the feeling that Sarah had changed. She seemed more distant, more secretive, and more obsessed with her interests. I tried to brush it off, but I couldn't shake the feeling that something was wrong.
+
+One night, I woke up to the sound of chanting and followed the noise to the basement, where I found Sarah and Alex performing a satanic ritual. I was horrified and didn't know what to do. I confronted my sister, but Sarah denied everything and convinced me that I was just imagining things. I wanted to believe my sister, but I couldn't shake the feeling that something was wrong.
+
+Days turned into weeks and I couldn't shake off the feeling that something sinister was happening. I started noticing strange symbols etched on the walls, strange smells, and strange noises. I couldn't shake the feeling that I was being watched. I began to suspect that my sister had summoned some kind of demon or spirit, and that it was now possessing her.
+
+I tried to confront my sister again, but Sarah denied everything and convinced me that I was just imagining things. But as the days went on, Sarah's behavior became more erratic and violent. She would lash out at me for no reason, and I began to fear for my own safety. One night, Sarah attacked me in my sleep, and I was forced to flee my own home.
+
+I was terrified and didn't know what to do. I went to the police, but they didn't believe my story. I went to a priest, but he told me that my sister was possessed by a demon and there was nothing he could do. I was desperate and didn't know where to turn. I began to investigate on my own and found out that my sister had been dabbling in black magic and had summoned a demon to do her bidding. The demon had taken possession of my sister's body and was using her to carry out its evil plans.
+
+I was determined to save my sister and stop the demon. I gathered all the information I could and came up with a plan to exorcise the demon from my sister's body. I prepared myself for the ritual, but I knew that it would be dangerous. As I was about to start the ritual, I heard a knock on the door. It was Sarah, but something about her was different, her eyes were black, and she had a sinister grin on her face. She whispered "I told you, you can't escape from me" and the story ends with the uncertainty of what is going to happen next.
+
+As I stood there, staring at my possessed sister, I knew that I had to act fast. I quickly began the ritual, reciting the incantations and performing the necessary actions to exorcise the demon. But as I reached the climax of the ritual, Sarah lunged at me, her eyes filled with rage. I managed to push her back and continue with the ritual, and to my relief, the demon's hold on her body began to weaken.
+
+But just as the exorcism seemed to be working, the demon unleashed its full fury. The room shook, objects flew off the shelves, and a deep, otherworldly voice filled the air. The demon was not about to give up its host without a fight.
+
+I fought back with everything I had, determined to save my sister. I could see the conflict within Sarah, as if the demon and her were fighting for control of her body. But finally, the demon was vanquished, and Sarah collapsed on the floor, unconscious.
+
+I rushed to her side, relieved that the exorcism had been successful. But as I looked at her, I couldn't shake the feeling that something was off. Sarah had no memory of the demon possessing her, but I couldn't help but wonder if it was truly gone, or if it had left behind some kind of lasting effect.
+
+I stayed by her side, watching her closely for any signs of the demon's return. But as the days passed, Sarah seemed to be back to her old self, and I couldn't help but wonder if it was all just a figment of my imagination.
+
+But as I lay in bed at night, I couldn't shake the feeling that something was still lurking in the shadows, waiting for the opportunity to strike again. The fear of the unknown, the fear of what the demon might be planning, and the fear of what it might do to my sister, consumed me.
+
+I decided to take matters into my own hands and started researching more about the demon that possessed my sister, I found out that it is known for jumping from host to host and that it takes control of its host's mind, making them do its bidding. I also learned that the demon is extremely powerful and that it is not easy to get rid of it.
+
+I was determined to protect my sister and to ensure that the demon would never harm her again. I began to prepare myself for the possibility of another possession and to be ready to exorcise the demon if it ever came back. But the fear of the unknown, the fear that the demon might come back stronger, and the fear that I might not be able to save my sister, haunted me every day. The story ends with me, the author, sitting in my room, researching and planning for the unknown, but always with the fear that the demon might come back for my sister and for me.

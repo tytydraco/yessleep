@@ -137,3 +137,5 @@ Again, she did not answer. I ran back to my room as fast as I could and shut the
 I grabbed the Bible on my dresser and a pen. My hand shook as I wrote out all of the events of the evening on the introductory page. “To whoever sees this, please help me.”
 
 [part two](https://www.reddit.com/r/nosleep/comments/zmp7y0/my_lover_karmen_wont_stop_killing_and_im_afraid/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+[part three](https://www.reddit.com/r/nosleep/comments/zoxs72/my_lover_karmen_wont_stop_killing_and_im_afraid/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

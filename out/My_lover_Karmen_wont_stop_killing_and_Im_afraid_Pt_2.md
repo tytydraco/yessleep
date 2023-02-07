@@ -111,3 +111,5 @@ Mother seemed to be strangely cheery as she sat down across from me. There were 
 I was at a loss for words. 
 
 That's when I noticed the newspaper on the table. I flipped through it rapidly only to notice the front page headline after I set it back down on the table: “Mayor, police chief and detective found dead in a ditch.”
+
+[part three](https://www.reddit.com/r/nosleep/comments/zoxs72/my_lover_karmen_wont_stop_killing_and_im_afraid/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)

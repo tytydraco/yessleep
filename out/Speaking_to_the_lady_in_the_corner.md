@@ -1,0 +1,14 @@
+At a family dinner, we were joking about memories. My mother interrupted, with a usual "creepy story".. enticed, everyone let her speak. 
+
+&#x200B;
+
+She goes on to explain, when I was 4 years old, around 8pm to 9pm, I would routinely, almost like a ritual, head to this dark corner, in the front of the house we lived in at that time. It was an older house, circa 1950s, though heavily refurbished. But we had this extremely poorly lit room, with this eery corner she described. She goes on to explain, I would proceed to this dark corner, and just start talking, in an "almost babble, but foreign sounding language", she says, I was young, but old enough I was able to speak english and I was long out of the "babble phase". She goes on explaining how I would talk to this empty shadow void of a corner, as if I was having a conversation in this "foreign rambling". She of course thought I was just doing typical pretend play stuff, but when she approached me, she says  I would go into a fit (I remember bits of this), screaming "I'm trying to speak to the woman in black", "Let me speak to the woman in black!".. Where stuff gets weird, was when I was starting to have knowledge of things, that typically kids that age, haven't learned and couldn't comprehend yet. 
+
+And I remember one moment that I remember vividly... I asked her "How's sissie doing?, I never knew of my biological sister, or was told.  She for a few years thought my step-father, whom I never met,  was some how getting  in contact with me through school, and I remember (This is stuff you don't forget), social services questioning me if that was the case.. I never met the man... My  aunt who is quite spiritual, and is sort of a nut, she kept telling my mother that "we had a dark presence", as an explanation, and my mother quickly shrugged it off, as rationally you would. 
+
+&#x200B;
+
+As I got older, stuff escalates into the typical "Ghost haunting" stuff, and one moment that still chills me to this day was when I getting ready for bed, I had \*something\* just breathing on me, as if a person is just exhaling in my face, I felt the warm air, even moisture to it... I remember running out of the house, down to my neighbors, I cannot forget this.. I am not one to believe in the paranormal, but that is one memory I cannot forget.. I am skeptical of it, I am skeptical of all of this.. But as my mother finished up her story, we ended up finding out, as we moved out, the original owner of the house, was a widow who unfortunately passed 1 year, after my parents bought the house..   
+
+
+As we moved out, and I grew up, everything "weird" stopped.. Today, I view most of this as mere coincidence, though someone suggested people here might like hearing my "spooky ghost" childhood story.

@@ -4,6 +4,8 @@ Part 2: https://www.reddit.com/r/nosleep/comments/zj34y5/im_in_a_military_rescue
 
 Part 3: https://www.reddit.com/r/nosleep/comments/zkfl7t/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
 
+Part 5: https://www.reddit.com/r/nosleep/comments/zn0aea/im_in_a_military_rescue_unit_theres_a_reason_we/?ref=share&ref_source=link
+
 ***************
 
 “Where the fuck is he?” I repeated. The table where his lifeless corpse had laid was now empty save for a circle of blood at one end. 
@@ -34,7 +36,7 @@ In the meantime, Keys assumed the role of the delegator. She had us strip oursel
 
 Judging by our rations and water, we could stretch things for three days. Perhaps four. 
 
-Weapons-wise, we still had most of our ammo save for the clip Bronson sprayed when he got grabbed. 
+Weapons-wise, we still had most of our ammo save for the magazine Bronson sprayed when he got grabbed. 
 
 Larson kept himself busy by tending to my wounds more often than necessary, but I let him do whatever he needed because I think taking care of someone kept his mind off Bronson and, to some extent, Ketterman. Evil as the man was, Larson had still taken a vow to care for everyone to the best of his ability. 
 

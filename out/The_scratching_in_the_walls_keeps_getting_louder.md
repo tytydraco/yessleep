@@ -1,0 +1,16 @@
+I recently moved into a new house. Like most young people I couldn’t afford anything that new or put together. My new place is a bit of a fixer upper but I’m making it cozy and peaceful. It started a few days after moving in, or at least that’s when I noticed it. A soft scratching noise. I figured it was just some rats running through the walls. I’m not a fan of most traps so naturally I got a harmless trap but the scratching continued as the cage set empty. I tried cheese, crackers, peanut butter everything.
+
+ Sometimes I could see buttercup (my 5 year old rescue cat) staring at the wall almost seconds before the scratch happened which just furthered my belief that it was a rodent.  It kept getting louder tho. The scratching turned into scrapping. Instead of short bursts of scratching far apart it became longer and closer in time. Two weeks ago it got to the point it’s almost always happening when I’m home. 
+
+In an attempt to make the ever persistent noise stop I spent the little spare money I had on a pest control specialist. To my surprise he said there wasn’t any rodent issues, no dropping or food or anything. He told me there most have been some really big ones before tho maybe even a cat or rabbit based on how large the scraps in the walls were. Almost as soon as he left it began again. Needless to say I wasn’t staying the night. 
+
+I started packing a bag for me and buttercup when it started. The shadows… in moments of silence I saw her..him..it? Whatever it is I didn’t think it could be human. It didn’t like it at first. It scurried from darkness to darkness avoiding the light as much as possible. Almost disappearing. I thought I was going crazy but couldn’t afford therapy. That was until my friend stayed over. After the first time I had my parents take my cat it didn’t feel safe having my baby there. When my friend looked at the hall halfway through the movie then at me like she’d seen a ghost I new it wasn’t just me. 
+
+A week ago I saw it up close. She was curled up at the top of my closet looking almost like an imitation of spider man but she wasn’t like anyone I’ve seen before. She had bloodshot eyes with yellow where blue or brown would normally be, her hair was stingy but kept with two butterfly clips. She looked dehydrated and as though she hadn’t eaten in at least a year her skin almost falling off her with a green/gray tint. But when she moved it was Graceful, incredibly fast, and somehow supernaturals. I tried to go to a friend but I had to figure out who or.. what she was. It was definitely modeled after a human woman. I should have left it’s been three days since I cornered her. She looked so scared I just wanted to help when she suddenly bounced. Digging her nails into me and down my thoughts ripping me apart and exposing bone. 
+
+The scratching got worse since then. It’s more than one place now. I think more are coming but all I can do is continue to check my weight as I eat more and more still losing weight. I’m still not moving even though my leg is better. Overnight it heeled without help. But I’m scared to move it feels heavier in my house. Today I notice a green tint to my skin and an urge to hide…but not from her… from who she was hiding from… she tried to warn me
+.
+.
+.
+
+maybe the next renters will understand our warnings

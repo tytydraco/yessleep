@@ -1,5 +1,4 @@
-[Previous](https://www.reddit.com/r/nosleep/comments/zhltj4/i_do_it_for_the_supernatural_im_missing_a_day_of/?utm_source=share&utm_medium=web2x&context=3)  
-
+[Previous](https://www.reddit.com/r/nosleep/comments/zhltj4/i_do_it_for_the_supernatural_im_missing_a_day_of/?utm_source=share&utm_medium=web2x&context=3)
 
 I spent the first few days ranting, throwing a full-time tantrum. I banged my fists against the walls, destroyed the furniture, smashed the art on the ground and stomped on the pieces. I could punch through the wall, but what appeared to be drywall on the other side may as well have been concrete. I bruised my knuckles slamming against them, always waking up the next day healed. I wondered if I killed myself somehow if I'd wake up the next day? If so, would that make the time jump forward?
 
@@ -63,7 +62,7 @@ I was on the ground of a large warehouse. It looked somewhat familiar, but I was
 
 I clutched my stomach, the raw ache there stealing my breath. Taking a huge breath of air in, I gingerly rolled to sit up. 
 
-In front of me were three women. A short black woman I recognized after a moment as Moira, the owner of Evans Arcade. A tall Japanese woman that I did not recognize. And to my baffled reaction, Connie, a being I'd met while working a corporate case for Eli. 
+In front of me were three women. A short black woman I recognized after a moment as Moira, the owner of Evans Arcade. A tall Japanese woman that I did not recognize. And to my baffled reaction, Monica, a being I'd met while working a corporate case for Eli. 
 
 I don't know what she is, but I do know she stole my finger. She told me she had gifted me some magic when she returned it, but I hadn't noticed a difference. I was mostly happy about that, magic always came at a cost and I wasn't sure I wanted to pay. 
 
@@ -71,7 +70,7 @@ Besides, of the two, Moira is far more dangerous. Through my muddled memories, I
 
 I've known two out of three of these women to be teasing, mischevious, but two wore solemn looks at the moment. Moira looked, if I had to guess, a little surprised and a lot satisfied. 
 
-Connie leaned down, squatting and helping me to shakily stand. As she pulled me up by my arm with way too much ease, she whispered in my ear, "Say thank you, bow, and leave. I'll speak to you soon."
+Monica leaned down, squatting and helping me to shakily stand. As she pulled me up by my arm with way too much ease, she whispered in my ear, "Say thank you, bow, and leave. I'll speak to you soon."
 
 Thinking back, I should have been furious. I know I should be thankful to be alive, but thinking of all the time I spent in torture, miserable and terrified, not knowing when it would end, still sets my teeth on edge. 
 
@@ -79,7 +78,7 @@ But at the time, a gust of wind would have blown me over and I couldn't remember
 
 I hope I didn't shatter anyone's idea that I'm some supernaturally strong person just because I deal with them regularly. I was shaken after that and it took time to stop living in the fear that I would wake up on that bed, staring at that awful wallpaper and that impotent door. 
 
-By the time I'd cleaned myself up, wiping my wet face on my sleeve, Connie had slipped out and paced over to me. 
+By the time I'd cleaned myself up, wiping my wet face on my sleeve, Monica had slipped out and paced over to me. 
 
 "Hi, Sweetie," she said, softly. 
 
@@ -137,7 +136,7 @@ She laughed at my bug-eyed stare.
 
 "Hey, having a demon and a shapeshifter on your side could be a real asset," she grinned.
 
-"Oh yeah, they definitely seemed 'on my side', Connie," I couldn't even boil to a good mad. I just got up off the ground and wiped the gravel from my slacks. 
+"Oh yeah, they definitely seemed 'on my side', Monica," I couldn't even boil to a good mad. I just got up off the ground and wiped the gravel from my slacks. 
 
 "Okay." I said wearily, rubbing my still sore stomach, "I'm going to go order like 6 cheeseburgers. The next time I see you, I'm going to want more answers."
 

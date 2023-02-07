@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- \[5\]
+[\[1\]](https://www.reddit.com/r/nosleep/comments/ysqnb5/the_yearwalker_part_1/) \- [\[2\]](https://www.reddit.com/r/nosleep/comments/yyuy6v/the_yearwalker_part_2/) \- [\[3\]](https://www.reddit.com/r/nosleep/comments/z4qvx8/the_yearwalker_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/zb2quj/the_yearwalker_part_4/) \- \[5\] - [\[6\]](https://www.reddit.com/r/nosleep/comments/znuzku/the_yearwalker_part_6/) \- [\[7\]](https://www.reddit.com/r/nosleep/comments/ztyy9l/the_yearwalker_part_7/) \- [\[8\]](https://www.reddit.com/r/nosleep/comments/zzja0k/the_yearwalker_part_8/)
 
 It was close to noon when John and I rolled up to this desolate old house on the outskirts of town. A two-story building that looked like it’d been abandoned for years. Broken windows, a spotty paintjob, and a messy yard. Empty planters lined the walkway to the front door, and a smashed greenhouse peeked out of the back yard. A dry miscolored sunflower rested in one of the windows, and a pile of spray cans were piled up in the middle of the yard.
 
@@ -242,7 +242,7 @@ The guest room window had been opened, and I was pulled through it.
 
 &#x200B;
 
-It happened so fast. I fell from the second floor, only to land on something soft and vaguely humanoid. 
+It happened so fast. I fell from the second floor, only to land on something soft and vaguely humanoid.
 
 I got up and looked down. I’d landed on what looked like a cushion. I was standing out in the yard, and there was no one there.
 
@@ -266,7 +266,7 @@ Closer.
 
 &#x200B;
 
-Something stabbed me. 
+Something stabbed me.
 
 A sharp, painful brun, just to the right of my spine. About an inch deep, no thicker than a pencil. But to have your flesh severed… I can’t explain the pain. I almost fell forward as this bright, searing warmth burned me.
 
@@ -274,7 +274,7 @@ As I spun around, there was a lampshade right behind me. I heard something sharp
 
 Waving my arm back, I felt something sharp brush against the palm of my hand. On my left side, something pierced the skin under my arm. Something poked against my right knee, but couldn’t pierce the fabric.
 
-Then, a large hand caught my hair. I was stuck. 
+Then, a large hand caught my hair. I was stuck.
 
 They got me.
 
@@ -302,7 +302,7 @@ Finally, something let go of my hair, leaving only a severed hand behind.
 
 &#x200B;
 
-I curled up on the driveway. I covered my head and tried to drown out the screams. 
+I curled up on the driveway. I covered my head and tried to drown out the screams.
 
 So many screams.
 

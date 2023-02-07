@@ -1,3 +1,13 @@
+part 2
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/zuhbad/the\_sisters\_of\_perdition\_part\_2/](https://www.reddit.com/r/nosleep/comments/zuhbad/the_sisters_of_perdition_part_2/)
+
+&#x200B;
+
+&#x200B;
+
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found the journal of someone named Kyle. After reading it I found this part particularly fascinating and wanted to share it.
 
 RIP Dora Duskwood 1766- 1839 the tombstone read.
@@ -40,7 +50,7 @@ The next day at breakfast my father ate his eggs and commented "Your grandmother
 
 "She really did" Deb chanted.
 
-"I saw her last night and that's what she said" I said with a smile.
+"I saw her last night and that's what she said" I said with a confused smile.
 
 "She'll be back, she always is" Deb chanted.
 
@@ -48,17 +58,17 @@ That night when I was getting ready for bed I saw Dora behind me in the mirror. 
 
 "I love you" she said, forked tongue moving about.
 
-I saw her again as I was falling asleep. This time her head her head was halfway up the bed. Her Needle like teeth glistened in the moonlight. 
+I saw her again as I was falling asleep. This time her head her head was halfway up the bed. Her Needle like teeth glistened in the moonlight.
 
 "I love you" she said with an demonic ring.
 
 "I love you too granny" I said in a trance.
 
-The next day at breakfast I ate my bacon and asked. "Has anyone else seen Dora? She appeared to me last night too." I said in a trance.
+The next day at breakfast I ate my bacon and asked. "Has anyone else seen Dora? She appeared to me last night too." I said in a terrified trance.
 
 "She loved you so much" my mother chanted. "That's why only you can see her. She will get you soon."
 
-That night as I got ready for bed I looked in the mirror, Dora was right behind me this time. She put her hand on my shoulder.
+That night as I got ready for bed I looked in the mirror, Dora was right behind me this time. She put her hand on my shoulder. I had never been more terrified in my life.
 
 "Tonight is the night. I love you" She chanted like a demon.
 

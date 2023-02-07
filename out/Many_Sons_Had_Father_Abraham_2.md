@@ -589,3 +589,5 @@ It used to make me feel safe.
 &#x200B;
 
 Now I couldn’t help but notice that it didn’t quite seem to reach his eyes.
+
+[3](https://www.reddit.com/r/nosleep/comments/zpj4ax/many_sons_had_father_abraham_3/)

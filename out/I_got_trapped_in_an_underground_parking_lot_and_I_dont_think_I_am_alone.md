@@ -1,0 +1,16 @@
+Me (18M) and my mother (56F) recently found out that my grandpa who died 5 years ago owned a parking lot in an underground area. 
+
+Yesterday, my mother decided that it was time to take advantage of the parking lot since it was located near the city center and finding a place to park during Christmas isn't easy. We drove toghether to my grandparent's house to get the keys. She is keeping all his things, inculing the key in a drawer. We took the two keys and headed our way to the parking. Even though it was near the city center, the whole neighborhood was old and abandoned.
+I could already tell there was something odd in the atmosphere but I completely ignored it thinking my mind was messing with me.
+
+We opened the main garage door. An extremely disgusting smell came out and I asked my mother to leave since I had a creepy feeling. She said that I'm watching too many thrillers and that everything is fine so we kept on going while it was getting darker and darker. After a minute I had to open my phone's flashlight. For some reason my mother refused to open hers. We went down some brick stairs and got to the first level. Newspapers from the 80's and brocken beer bottles where everywhere.
+
+- "I doubt anyone has been here the last decade." I said.
+
+My mother didn't reply. I froze. Where was my mother? 
+
+-"mum?!" I yelled.
+
+-"mum where the have you gone?! Please show up this isn't funny"
+
+Still no answer. I started running behind in hopes of finding her but she was nowhere to be found. I started stressing out while still yelling to find her. I went back to the exit of the parking and while getting closer to it my hands touched something. A wall? How the hell could the exit just disappear in front of my own eyes? My mind was messing with me. I sat down and closed my flashlight to save up some battery. Then, I opened my phone just to find out my battery was at 11%. I immediately tried to call 911 and then my girlfriend but there was obviously no signal. I forced myself to calm down in order to think clearly but I eventually ended up crying. After 15 hopeless minutes I was about to get up when I heard a creepy "crack". It sounded like glass shattering into pieces. My heart almost stopped. I froze. Thinking it was my mother I opened my flashlight and run towards the sound. Then I saw it. A dark, short figure with round eyes looking through my soul. I begun running in a random direction while screaming at the top of my voice in terror. Out of the corner of my eye I saw it crawling away. In a matter of seconds I had reached a dead end. Too afraid to open my flashlight again I am standing in a corner. My only hope is that this thing is an illusion. After writing all of this my battery is at 5%. It may be a fault but I wanted to prevent YOU from coming down here. But if you are ready to encounter the creepy thing and my soon dead body you are welcome. While posting this I am sure that I am stuck here. Without my mother or anyone else. In an underground parking lot. Alone. Or probably not.

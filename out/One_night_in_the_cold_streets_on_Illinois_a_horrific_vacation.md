@@ -1,0 +1,13 @@
+Hi, Reddit, I'm just a normal guy from the country Taiwan, this is my real-life encounter with a man called the Smiling Man, leave in comments if you have met the same person, so we can share our stories, I don't have much time, so this is going to be a short summary of the horrific encounter about me and that terrifying but mysterious man, I still can't forget about him yet, please leave in the comments ways to forget about creepy things, to continue my normal life, without nightmares in my sleep.
+
+&#x200B;
+
+It happened in the year 2017, before the pandemic, I was having a vacation in Illinois after a long time of work, thinking that this vacation would be a relaxing one, but I had some bad luck, my old Toyota ended up without gas since I forgot to fill the tank with gas, frustrated with myself, I dragged the extra gas tank back to the gas station to get gas for my car after some time, I finally got the gas and filled it in my car, then I noticed something, or someone standing at the cold alley, slightly dancing, weird, I thought, as I looked closely at the man, he had strange with eyes, like they were bulging out of his eye sockets, and he had a smile that made me get goosebumps, it was not a happy smile, it's more like a smile that came out of a horror movie,
+
+&#x200B;
+
+Oh god, I thought, that's so weird,
+
+&#x200B;
+
+then the man started to walk to where I was, still dancing, then he suddenly just started to run towards me, chasing me away from my car, I could have run away if I was in my car right now, then I started to run as fast as I could since he was chasing me, but he just kept getting close to me, then I remembered the gun that I had in my back pocket, I pulled it out as fast as I could, then pulled the trigger at the weird man, he kept on dodging the bullets though, at that moment I was getting anxious that I would get killed by that guy, at that moment, I ran towards my car, opened the door and put the key in the starter, then I drove away from the mysterious man, I looked at the mirror and saw him smiling at me, then walking away, that night I kept on having nightmares about the man The next day, I searched for stories about the mysterious guy on my phone, then I found out that he was called the Smiling Man, then I thought, of course, he is called that because of the horrific smile on his face, then I also found out close encounters of people with him, I could never forget that man, the Smiling Man with his big, white, bulging eyes, and that terrifying smile, so I told myself to never again go to Illinois, forever, for my life.

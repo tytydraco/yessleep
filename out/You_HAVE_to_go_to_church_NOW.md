@@ -1,0 +1,15 @@
+Hello, I'm David and I think I am 33 at the time of writing, although I could be 2,026 years old. I live in the small Jewish town of Beit Guvrin, and I just experienced what happened in the year 33 A.D. while still in 2023. Here's the story, in detail.
+
+&#x200B;
+
+This starts off at my very own house. I was on my PC shitting on religion, as I was a big atheist. Suddenly, Everyone gets kicked out of the group chat including me and no one knows what happened. We assume it was just some glitch. Fast Forward 2 weeks later. My friend hadn't been replying to my messages so I walked over to his house and knocked. No response. I opened the door and I couldn't see him. He had a lot of posters related to religion in his house, which was weird. I make my way to the living room and I see my friend crucified. He had nails in his arm, a thorn crown, and His stomach was cut open. I immediately called the police. When they arrived, they acted like they saw nothing and left. I cried at the bottom of the crucifix, screaming "WHY!".
+
+On the same day a year later, I head to another friend's house. We pay our respects to him before going to bed. It was a sleepover. That night I had a scary dream that my friend came back to life and was begging me to go to church. I was scared. I suddenly woke up to screams and pleading to god. I thought this was my friend getting intimate, but these sounded like desperate pleas. Not being able to sleep, I listen in to the screaming.
+
+I hear a calm voice saying "Yes, my child. Believe." His girlfriend and he have some weird-ass roleplay, I thought to myself. Bored, I scroll on my phone. I immediately notice the Jesus wallpaper there which wasn't there before. What the hell, did someone hack my phone? I notice the wallpaper of Jesus staring exactly at me, even when I'm not looking at the phone. Bored, I decide to make a quick snap. When the light comes on, I briefly saw a silhouette of a man in the camera. Scared, I look behind me just to find nothing. The screaming stopped so I go to my friend's room. I look down the stairs at the landing and it looks like downstairs never existed. I enter the room now just to find my friend and his girlfriend crucified. I stand still there for what felt like days. Luckily, he did not get to me yet. I run out immediately and get a taxi out of the town to Jerusalem to fly out of the country. I check the time.
+
+&#x200B;
+
+"26:130?" I ask. The cab driver nods, "Ay, that's the time." For some reason, I didn't question it after that. If you get into a scenario like that, QUESTION IT MORE!
+
+I now look on Google Maps to see we've passed Jerusalem. I ask the cab driver, "Hey, we passed Jerusalem" to which he replies, "Your Google Maps must be glitched." How did he know I used my phone? After about an hour we finally get there. I pay the guy and, when I exited, I got traveled back to the year 33 AD.

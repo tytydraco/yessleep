@@ -1,0 +1,37 @@
+I met Alice on one of my business trips to California, she was just something else. She was a woman whose spirit could befriend you before you could ever go to her beauty, but even so, she was dead-drop gorgeous. She was kind, and somehow when I spent my time with her, I felt free, like something was holding me, and she was the only one who could free me.
+
+Not only that, but she was always keen to do new things, and nothing stopped her. Even when she was afraid, she never showed it and smiled and did whatever had to be done. I remember how I was afraid of skydiving and was against it, but she somehow managed to make me agree, and we even ended up doing it together. She was just something else…she always said that *the life we live is short, so stop doubting yourself and start living…*
+
+That was then and now, I am writing this from my own basement where I locked myself till my wife's best mother arrives so that at least someone can believe what I am going through. My wife is still weeping in the room where I locked her before she tries to escape and kill me…again. I can hear her screams and bang, but I am too afraid.
+
+It all started with that damn party, I don't clearly remember, but I will try to detail whatever happened before and after that party. So last year, my wife was invited to a party her boss hosted at her house.
+
+My wife is a writer, and she works for a magazine, but her skill set is rather wide, she is a photographer, editor artist, and a bright chef, so I was always proud of her. She was a famous figure in the whole office after Lisa (her boss) so she was supposed to be the life of the party.
+
+(Also, I would like to clarify we were married for 7 years, and we never fought, seriously and just had a perfect understanding, and she used to look at me with teddy eyes whenever I was angry or frustrated. I used to forget whatever I felt just by looking at her. I just loved her. Somehow I still do…)
+
+We went to the party and everyone greeted her, everyone had respect or admiration in their eyes whenever they saw Alice, so I was happy for her. She went to greet the boss while I was supposed to go to the restroom when I heard glass shatter, which was not supposed to be a big deal, but then I heard a kid crying and heard Alice's voice. I went down to see what happened, the glass pieces were on Alice's hand and blood was running down, but the kid panicked and started crying, Alice was still hugging him calming him down.
+
+I rushed down to Alice, and we left early from the party to get her to the hospital, the cut wasn't too deep and after a proper wrapping from the doctor we were on our way home. I was still thinking about her kindness and her expression calming the kid and looking at me and smiling while shrugging, I kissed her when we got home.
+
+We took things to bed pretty soon and were sleeping after a few hours when I heard someone weeping I woke up and saw that Alice wasn't there, so I went downstairs in a hurry to see where she was when I saw her looking from the window towards the moon. The moonlight falling on her made her look…pale immediately like she didn't have blood running in her.
+
+I went to her and hugged her from behind, calling her name out, but even her eyes were white. Her iris was…not there I immediately took a step back and pulled her from the moonlight and there suddenly her skin became lively again and her iris came back and her tears stopped. She was thirsty so I gave her water but she still wasn't able to speak for a few minutes so we sat down she slept in my arms so I slept on the sofa too.
+
+The next day was normal and I didn't focus too much on the previous night and Alice too was smiling again and was normal so we went to work as usual and returned in the evening nothing strange then too so we took dinner and went to sleep.
+
+It was cloudy that day as I checked before hitting the bed but once again at 2:09 I heard a child weeping we didn't have a child yet so I was surprised my wife was missing from the bed so I went downstairs. Alice was again looking at the sky from our window and moonlight was falling on her, her skin white as ice and no iris in her eyes but this time she was hugging herself and was crying watching the moon.
+
+I called her out but she didn't hear, I tried pulling but she didn't move an inch. It was almost like she became a statue there. Now I am a regular reader here on r/nosleep so I was well aware of things that could happen. So I sat on my sofa to observe before taking any actions. I sat there in utter silence just the moonlight falling from a window and my wife weeping...
+
+She cried till 3 and just sat there against the wall her head between her knees and elbows crossed. She stopped weeping now so I approached her to enquire her of her sudden actions but when I touched her she was burning, not like someone with fever, but she was literally burning.
+
+I could see her pale skin vibrating...it was her blood boiling but after touching her, she looked up this time her eyes were full black like the iris took the whole space and her pale skin was somewhat a little reddish, she broke the vas near her and started to stab the window with the glass. I was confused at first but then I saw my reflection in the window, she was stabbing at my reflection, and that too on the hand of my reflection, the same spot where she got the cut at the party.
+
+I filled the glass of water and threw it at her, the water immediately turned to steam when it touched her skin and she fell down. I picked her up and carried her to the bedroom. She was perfectly asleep. I sat on the bed searching for psychiatrists as well as paranormal experts. The next morning she didn't remember what happened and refused to seek medical help as she said she was feeling fit and fine.
+
+I requested her and seeing my concern she agreed after a few minutes, we went to the psychiatrist and I explained to her everything, every word of my mouth seemed like a shock to Alice, and in the end, she became speechless. The doctor prescribed medicine for a night of proper sleep and told us that this might be the result of the shock from the incident at the party but she couldn't explain her deep black or white eyes.
+
+That night went out in peace Alice was asleep but I was awake to see what exactly happened to her although her skin did turn white at 2:09 she was still asleep and soon the sun came out. After a few nights, she started to sleep without any changes in her even at 2:09 and that's when one night I slept too I heard a weep but this time loud and near me, I woke up to turn but Alice was sitting on top of me glaring at me with those white eyes and the moonlight fell on her this time too, her skin white and she titled her head a little she had a glass piece in her hand, she was weeping but this time the smile which she flashed at me while hugging the kid at the party that same smile was plastered on her face.
+
+That smile back then was of sympathy but this time it sent a chill down my spine she now started to look at my hand and when she was about to stab my hand I picked up the lamp near my bed and smashed at her head and pushed her, she was still like a stone but the smash at her head might've made her shaky so I was able to push her off and run down while locking her to call her mother to inquire about whether she had this sort of behavior in the past...but I am not afraid of her actions I am rather afraid of the smile she flashed before I locked her in our bedroom...

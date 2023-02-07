@@ -1,0 +1,20 @@
+I have always been very fascinated by paranormal events and very interested in them. I have tried in my life already most different rituals for spirit conjurations and the same. But nothing really worked until a few months ago. I drift around a lot on the Internet and look for the most diverse things. Then about 4 months ago I came across the so-called "tape voices". This is a way to contact spirits via audio tapes. I read up a lot on the subject because I really wanted to try it myself and contact my deceased great-grandmother, whom I never met. 
+
+I decided to conduct the tape voice experiment. I got the necessary equipment and a few tapes and began the preparations. I chose a quiet evening, turned off all the lights, and sat down in my room with the tape recorder. I began by asking questions of my late great-grandmother and asked her to record her voice on the tape if she was able. I left the tape running and waited anxiously to see what would happen.
+
+When I played the tape later, I was disappointed at first because nothing seemed to be recorded on it. But then I suddenly heard a soft whisper, which I at first thought was imagination. I played the tape again and this time the whisper was more audible. It sounded like a woman's voice and I was sure it was my great-grandmother's voice.
+Needless to say, I was very excited and decided to make further attempts. 
+
+The next few nights I repeated the experiment and each time it seemed that I had made contact with my great-grandmother. However, I began to feel very tired and had less and less energy. I also found myself sleeping less and less and my appetite decreased. I thought that maybe it was because of the emotional stress that had been taken up by the contact with my deceased great-grandmother.
+
+But then, suddenly, eerie things began to happen. I started seeing shadows in my room and there was knocking on my door, although no one was there. I also heard voices that I couldn't explain and it seemed like someone was invading my room when I was asleep. I began to feel uncomfortable in my own room and just slept fitfully. I tried to give up my experiments with tape voices, but the eerie events did not stop. I felt that I had awakened something that I could not send back to its world. 
+
+I began to investigate and find out what I had done and how I could undo it. I came across many theories about spirit summoning and the effects it can have. Some people said that I had summoned an evil spirit and that I needed to have an exorcism performed to get rid of it. Others said that I simply needed to stop the ritual and separate myself from the tape.
+
+I decided to try the latter method and stopped my experiments with the tape. I took the tape out of my room and stashed it in a box that I hid in my basement. I thought that would be the end of it all. But the eerie events continued. I was still seeing shadows and still hearing voices. It seemed as if what I had conjured up was still there, haunting me.
+
+I was desperate and didn't know what to do anymore. I was afraid to be in my own house and spent most of my time outside. I was also unfocused, had trouble sleeping, and felt like I was being watched. 
+
+I decided to seek professional help and spoke with a parapsychologist. He helped me understand what I had done and how to undo it. He explained to me that I had made an unsafe and inexperienced attempt and that I had created an opening for unwanted energy. With his help and support, I finally managed to bring the uncanny events to a stop. I realized that it is important to proceed carefully and with great caution when experimenting with paranomal phenomena. 
+
+I learned that sometimes it is better to let some things rest and not try to understand or control them. But I would still like to know what that being was.

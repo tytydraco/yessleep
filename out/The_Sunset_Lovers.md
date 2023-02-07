@@ -1,0 +1,21 @@
+I am Scott, a young man from a small village nestled deep in the forest. Growing up, I had heard the stories of the "The Sunset Killer," a mysterious figure that had been terrorizing our village for years. I never gave it much thought, as it seemed like just a legend or a superstition, but one day, my life would change forever when I discovered the truth.
+
+It was a warm summer evening, and I was out for a walk in the woods. I had heard that the posse had finally caught up with the killer, and I wanted to see for myself. As I was making my way through the forest, I stumbled upon a small cabin, hidden deep in the woods. I had never seen it before, and my curiosity got the better of me.
+
+As I approached the cabin, I heard a noise coming from inside. I cautiously pushed open the door and was met with a sight that I would never forget. There was a woman, covered in blood, and with a crazed look in her eyes. It was Kataryna, my childhood friend, the kind and gentle girl that I had known all my life. I couldn't believe it, but as she began to speak, she told me the truth. She had stumbled upon an ancient curse, the curse of the setting sun, and it had been controlling her actions, forcing her to kill every time the sun went down.
+
+I was in shock and didn't know what to do, but I knew I couldn't just leave her there. I tried to help her, to find a way to break the curse, but she was still under its control. She lunged at me with a knife and I barely escaped, running through the woods.
+
+I was hurt and terrified, I couldn't understand why she would try to kill me. I knew I had to find a way to break the curse before it was too late. I spent the next few days, consulting with seers, witches, and anyone who might have a way to break the curse. I scoured through ancient texts and searched for any information that could help.
+
+Finally, I found an old hermit who lived on the outskirts of the village. He had spent his life studying ancient magic and curses, and I believed he could help me. He told me about the ritual that could break the curse, but warned me that it was extremely dangerous and that I would have to face the curse head-on. I knew I had to do it, and I returned to the cabin where I found Kataryna. I performed the ritual under the light of the full moon, and as the sun set, something miraculous happened. The curse was broken, and Kataryna was free. She was no longer compelled to kill, and the villagers were safe once more.
+
+We returned to the village together, and I told the villagers the truth about Kataryna. They were shocked but relieved that the curse was broken and that the killings had stopped. Kataryna was welcomed back with open arms, and she lived the rest of her days in peace.
+
+I will never forget the day that I discovered the truth about Kataryna. It was a day that changed my life forever, and I will always be grateful that I was able to help her break the curse and find redemption. But I will also never forget the fear, the danger and the sacrifices that it took to break the curse, it was a price I was willing to pay for the safety and well-being of my friend and my village. Despite the fact that Kataryna was no longer under the curse, the memories of her actions haunted her and she couldn't forgive herself for the deaths she caused.
+
+As we spent more time together, helping her come to terms with what had happened and find peace, I found myself falling in love with her. I couldn't help but admire her strength and her courage in the face of such a terrible curse. And as it turns out, my feelings were mutual. We started dating, and eventually we got married. We moved away from the village, trying to start a new life together, and we were happy.
+
+Our love helped her to heal and to find closure, knowing that she had someone who loved and accepted her despite everything. We were each other's rock, and we knew that we would face any challenge together. The curse had brought us together in the most unexpected way, and we were grateful for the second chance that we had been given.
+
+We lived the rest of our days together, in peace and in love, knowing that we had overcome the curse, and that we had each other. We never forgot the past but we were determined to move forward and start a new chapter in our lives. Together, we could face anything.

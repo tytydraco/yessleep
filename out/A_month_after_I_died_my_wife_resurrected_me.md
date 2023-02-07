@@ -108,7 +108,7 @@ The man’s face was a nightmarish apparition. It was no more than a skull coate
 
 His arms and legs were broken and twisted in ways that I can only imagine must have been agonising. Eventually, the man’s incessant writhing ceased. With unnatural ease, my wife carried his corpse to her vehicle, dumped the crumpled mess into the trunk, and drove away.
 
-I didn’t go home. I’ve been living in my car. Whatever my wife did to resurrect me, it exacted a vile toll. I’ve conducted online research, but I can’t find anything on the subject. I assume she feeds on the essence of others to sustain herself.
+I didn’t go home. I’ve been living in my car. Whatever my wife did to resurrect me, it extracted a vile toll. I’ve conducted online research, but I can’t find anything on the subject. I assume she feeds on the essence of others to sustain herself.
 
 Should I go home? I can’t run and hide for the rest of my life. I think I have to stop her.
 
