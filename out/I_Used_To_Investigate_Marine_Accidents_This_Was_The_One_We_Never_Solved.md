@@ -62,7 +62,7 @@ According to the report I got, a rescue team had been called in although honestl
 
 &#x200B;
 
-Going below deck, the rescue team found more bodies. These ones were more intact and a couple of them were even armed. Yhe team theorized that there had been some sort of skirmish and that the crew had been trying to defend themselves from something, although exactly who they’d been trying to defend themselves from was unclear. Whoever the attackers had been, they didn’t seem to have suffered any casualties and every body on that ship would later be positively ID’d as a member of the crew. The bodies had all suffered severe burns which were later determined to have been the most likely cause of death, although just what kind of weapon could have killed them was never identified.
+Going below deck, the rescue team found more bodies. These ones were more intact and a couple of them were even armed. The team theorized that there had been some sort of skirmish and that the crew had been trying to defend themselves from something, although exactly who they’d been trying to defend themselves from was unclear. Whoever the attackers had been, they didn’t seem to have suffered any casualties and every body on that ship would later be positively ID’d as a member of the crew. The bodies had all suffered severe burns which were later determined to have been the most likely cause of death, although just what kind of weapon could have killed them was never identified.
 
 &#x200B;
 
@@ -388,4 +388,4 @@ Maybe I’m just crazy.
 
 &#x200B;
 
-God, I hope I’m just crazy.
+God, I hope I’m just [crazy.](https://www.reddit.com/r/HeadOfSpectre)
