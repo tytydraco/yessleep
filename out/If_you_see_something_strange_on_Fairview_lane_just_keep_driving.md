@@ -16,15 +16,17 @@
 
 “—is that! Stop the car! Jesse! Stop the car!”
 
-She slammed down the breaks and the tires screamed out. The truck bounced around and she jerked the wheel to the right, turning us sharply. We damn near rolled over in the road, and came to a stop so close to a hedgerow it was almost funny.
+She slammed down on the breaks and the tires screamed out. The truck bounced around and she jerked the wheel to the right, swerving us sharply. We damn near rolled over in the road, and came to a stop so close to a hedgerow it was almost funny.
 
-I tried to say, “Jesse, quick turn on the emergency lights!“ But before I could even finish my sentence, she was already pulling her finger off the button. Hazard lights engaged.
+I tried to say, “Jesse quick, turn on the emergency lights!“ But before I could even finish my sentence, she was already pulling her finger off the button. Hazard lights engaged.
 
 For a few seconds, the slick croons of Elvis Presley were the only sounds filling the forested silence.
 
-Then, Jesse was shouting. Something like, “Harry, Harry. Oh my god, Harry. Did you see that? Did you see it?” And, of course I had seen it. I’d been the one to point it out in first place, the strange shape on the road.
+Then, Jesse was shouting. Something like, “Harry, Harry. Oh my god, Harry. Did you see that? Did you see it?” And, of course I had seen it. I’d been the one to point it out in the first place, the strange shape on the road.
 
-You could drive out on those lanes and not run into another person or house for hours. At night, the roads are lit only by the moon and your headlights, and those of the rare passing cars. It was dark. Inky. The alchemical kind of black that fuses objects, and transforms them into unfamiliar and unsettling assemblages.
+You could drive out on those lanes without running into another person or house for hours. At night, the roads are lit only by the moon, your headlights, and those of the rare passing cars. And, on that night, there was no moon in the sky, no other car in sight.
+
+It was dark. Inky. The alchemical kind of black that fuses objects, and transforms them into unfamiliar and unsettling assemblages.
 
 “What was that?” she said and “God. I thought we were gonna crash right into it,” and paused for a moment, and added, “did we?”
 
@@ -50,21 +52,23 @@ But, she said “oh I can get it, I don’t mind. Just keep an eye on that fucki
 
 Jesse opened the door, hopped out and then crept over to the boot. I could hear her rummaging around back there, but I kept my eyes fixed forward, locked on to the shape.
 
+Elvis was still going on about how he loved someone too much, and I took great pleasure turning the volume dial till it clicked, killing him again.
+
 What was it? It almost looked like road kill now, but before... Before it was…
 
 Tap, tap, tap. The sound startled me, but it was just Jesse, knocking on the glass with the crowbar. She signalled for me to come out. My shoes hit the ground softly, lock-up keys betraying me, jangling on their chain.
 
 I whispered. “Jesus Christ, you nearly gave me a heart attack, babe.”
 
-She mouthed at me, “you should’ve seen your face. It was priceless.” and laughed silently. Then she held a finger to her mouth, to say “Hush!”
+She mouthed, “you should’ve seen your face. It was priceless.” Then she held a finger to her mouth, to say “Hush!”
 
-She turned on her phone torch, pointing towards the ground, and led the way.
+She turned on her phone torch, pointing it towards the ground, and led the way.
 
 We edged closer to the strange shape on the road, bit by bit, until Jesse got close enough to give it a good look.
 
 “Oh, we are so dumb.” She said, laughing out loud now. “Harry, I think it’s just a deer.” She nudged it with the crow bar, and sure enough, it was a deer, albeit bloodied and a little broken up. “Pretty dead though.” She observed.
 
-“A deer? Ugh, ridiculous.” I said, feigning confidence. “But, you know, I could’ve sworn it looked like something else. It looked kind of *different* when we were driving.” I pushed out an uneasy laugh.
+“A deer? Ugh, ridiculous.” I said, feigning confidence. “But, you know, I could’ve sworn it looked like something else. It looked kind of *different* when we were driving.” I pushed out an uneasy chuckle.
 
 “No, you are right. In the car it looked. It was like a.... Like it was—” she took a quick step back. An uncertainty entered her voice. “What?”
 
@@ -244,11 +248,11 @@ She left her headlights on this time, and we got out of the truck. The beams spo
 
 "But, that doesn’t make any sense,” then, whispering angrily, “the man has a family. The van doesn’t say Cooper, the lonely guy who no one'll even know is missing. Its Cooper and *Family*. Family, Jesse. Family. Surely *now* we can call the police? Right?”
 
-“Okay. Let run with that, call the police and tell them what exactly, Harry?” She said, pointing to the chunks, the smears, the steam-rollered boiler-suit. The word overkill hadn’t ever been more appropriate.
+“Okay. Let run with that, call the police and tell them what exactly, Harry?” She said, gesturing to the chunks, the smears, the steam-rollered boiler-suit. The word overkill hadn’t ever been more appropriate.
 
 “Fine, I get it. I feel like you’re actually kind of enjoying this. You are, aren’t you?
 
-She said, “don’t be ridiculous,” but I could see that she was holding back a smile as she turned to get the blue tarpaulin from the back of her truck.
+She said, “don’t be silly,” but I could see that she was holding back a smile as she turned to get the blue tarpaulin from the back of her truck.
 
 We laid it out flat on the road, and she began kicking the remnants into the centre of the plastic sheet.
 
@@ -284,6 +288,6 @@ The van had those old school manual windows and I rolled down the one next to me
 
 I rolled up the window, and turned the key.
 
-The radio jumped to life with the engine and started playing some oldie.
+The radio jumped to life with the engine, and started playing out some oldie.
 
-I switched it to a different station.
+I changed it to a different station.
