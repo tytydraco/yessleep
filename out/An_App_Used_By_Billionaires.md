@@ -2,9 +2,9 @@ A guy once told me that he had bad luck. I told him it was an app used by billio
 
 All because I wouldn't mind my own business.
 
-But I think that even if I kept my nose out of places. I would have found them anyway. Because according to my mother, I have a penchant for being in the wrong places at the right time. See. When I was 16 or so. I realized that school wasn't for me. But I had been taught that money is freedom and who doesn't want to be free. So I figured a way to make money by uncovering when someone was getting cheated. And it all started when I found my neighbor having an affair with the girl next door.
+But I think that even if I kept my nose out of places. I would have found them anyway. Because according to my mother, I have a penchant for being in the wrong places at the right time. See. When I was 16 or so. I realized that school wasn't for me. But I had been taught that money is freedom and who doesn't want to be free. So I figured a way to make money by uncovering when someone was getting cheated. And it all started when I found my neighbor having an affair with somebody's daughter.
 
-All I was doing was watering the plants like my mom told me to. It was part of my chores. When they stumbled into my yard. They were in several states of undress and I have no idea what they were thinking. Like next to the gnomes? Well, my neighbor bribed me of course. I didn't know it was a bribe then. He didn't even know that I didn't know that he even had a wife. If he had known, he'd have saved himself a used piano.
+All I was doing was watering the plants like my mom told me to. It was part of my chores. When they stumbled into my yard. The pair were in several states of undress and I have no idea what they were thinking. Like next to the gnomes? Well, my neighbor bribed me of course. I didn't know it was a bribe then. He didn't even know that I didn't know that he even had a wife. If he had known, he'd have saved himself a used piano.
 
 And after that happened, everything clicked. I realized that I could finally answer the question in Mrs. Peterson's 2nd grade class during Future Me Day. The question was something like: What does the world need? Which triggered the idea in my then teenage brain to figuring out what the world would always have, what would be the thing that I could monetize.
 
@@ -24,7 +24,7 @@ It was within a high profile phone that I was looking through, when I found the 
 
 From a typical home screen, the app is unassuming. The logo changes from user to user, and so do the words beneath it. The common color schematics have been muted greys and blues. My version of the app was named Ripple. Upfront it looks like an uninteresting app. It could easily be mistaken as a utility that's bundled with the operating system.
 
-That is until it loads. And again. Even getting to the menu, which is often designed to mimic a filter app or some kind of health tracker. And if they did their due diligence, then all the buttons would work. Which is what generally stops most people from digging further. But it's like walking into a paper skyscraper. Something is off, even if it does look solid. And within a few clicks, experience tells me that this is a DD.
+That is until it loads. And again. Even getting to the menu, which is often designed to mimic a filter app or some kind of health tracker. If they've done their due diligence, and all the buttons work. It will generally stop most people from digging further. But it's like walking into a paper skyscraper. Something is off, even if it does look solid. And within a few clicks, experience tells me that this is a DD.
 
 They're rare in the wild. Serving essentially as a front gate for apps. It was once widely used by 8-bit video game developers who needed to jump through different stages of a game from the menu screen.
 
@@ -50,9 +50,9 @@ A man died right outside the shop. He was waiting at the back of the line, leani
 
 I was taking pictures of the crime when the notification popped up. It was for the money deposited in my account for completing the contract.
 
-And I might have rummaged through the dead man's wallet and found out his name was Frank and some basic information. Which allowed me to track the man's itinerary several hours before the accident. And everyone that I spoke to along Frank's day, seemed to have the impression he was running late. It wasn't until I questioned a co-worker that it started coming together.
+And I might have rummaged through the dead man's wallet and found out his name was Frank, and some basic information. Which allowed me to track down the man's itinerary several hours before the accident. And everyone that I spoke to along Frank's day, seemed to have the impression that he was running late. It wasn't until I questioned a co-worker when it started coming together.
 
-I had snuck into the dead man's office building as an employee. And was striking up conversations randomly. I tried a bunch of different tactics to get people to talk. But it was the coffee gag that got me a piece of the puzzle.
+I had snuck into the Frank's office building as an employee. And was striking up conversations randomly. I tried a bunch of different tactics to get people to talk. But it was the coffee gag that got me a piece of the puzzle.
 
 The pot was empty for the fifth time this hour. I had been dumping it. And was in the middle of a brew coming down when this guy about 6'1, medium built, 40 or 45, is standing nervously behind me.
 
@@ -86,7 +86,7 @@ I still remember that look he gave me. I almost felt bad for lying to him back t
 
 "Mmm."
 
-"So I asked around. If y-you know. Anyone knows anything. And." He stared at me. "It was just some app. Asking me to do a bunch of nothing. And that morning. A contract popped up asking me to give Frank all sorts of papers. Send over calls. Referrals. Stuff like that. Keep him busy any time he looked open. For no reason, all morning. But after I heard what happened. I figured. It must have been me. I took up too much of his morning. And he died. But, it was management. Oh thank God."
+"So I asked around. If y-you know. Anyone knows anything. And." He stared at me. "It was just some app. Asking me to do a bunch of nothing. And that morning. A contract popped up asking me to give Frank all sorts of papers. Send over calls. Referrals. Stuff like that. Keep him busy any time he looked open. For no reason, all morning. But after I heard what happened. I figured. It must have been me. I took up too much of his time. And he died because of me. But, it was management. Oh thank God."
 
 &#x200B;
 
@@ -148,7 +148,7 @@ The man set an empty glass in front of me and left.
 
 &#x200B;
 
-Being without water is a slow and painful. My skin became dry to the touch. Pieces would flake off without being rubbed. Eventually cracking whenever I moved. I ate those pieces. My eyeballs would stick. Distorting my vision. Along with it, the perception of time, as everything seemed to judder. The fluid in my brain thinned. It didn't recover even when I was finally given a drink to prolong my suffering. In fact, it has never returned to normal.
+Being without water is slow and painful. My skin became dry to the touch. Pieces would flake off without being rubbed. Eventually cracking whenever I moved. I ate those pieces. My eyeballs would stick. Distorting my vision. Along with it, the perception of time, as everything seemed to judder. The fluid in my brain thinned. It didn't recover even when I was finally given a drink to prolong my suffering. In fact, it has never returned to normal.
 
 I became so dehydrated that eventually I began wondering if I could melt the glass in my mouth. It looked so clear and crispy. If I had been able to reach it. I wasn't. But I know for a fact that if I had been able to reach it, I would have tried to swallow that glass whole. I was that thirsty.
 

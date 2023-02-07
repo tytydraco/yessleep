@@ -1,10 +1,10 @@
-The guy was clearly nervous.  After all, it would take a special kind of mental state to ignore the overgrown parking lot and darkened sign. *Maybe I should have flipped on the old thing*, at least it would have said “No Vacancy.” Then again, given this guy's state of desperation, it probably wouldn’t have mattered.  
+The guy was clearly nervous.  After all, it would take a special kind of mental state to ignore the overgrown parking lot and darkened sign. *Maybe I should have flipped on the old thing*, at least it would have said “No Vacancy.” Then again, given this guy's state of desperation, it probably wouldn’t have mattered.
 
 “We’re closed. Permanently.” I said, adding to the finality of my words by crossing my arms.
 
 “Listen, lady, I saw a light on. I’ll pay cash.” He didn’t meet my eyes, constantly glancing around him, cradling a black duffel bag like it was a newborn baby. His appearance was nondescript; age neither old nor young.  Perhaps the leather jacket had been a bit flashy at one point, but it had seen better days. He smelled strongly of the river and boat fuel, his accent was Canadian. *A clandestine border crossing, clearly.*  Intriguing circumstances, however, did not change the fact that there hadn’t been housekeeping around here in at least a decade.
 
-“Where’s your car?” I asked innocently. I could feel the man’s anxiety mounting. With a trembling hand he reached into his pocket and threw down a wad of American money, each a hundred-dollar bill.  
+“Where’s your car?” I asked innocently. I could feel the man’s anxiety mounting. With a trembling hand he reached into his pocket and threw down a wad of American money, each a hundred-dollar bill.
 
 “Just take my money. I’ll sleep on the floor.”
 
@@ -20,13 +20,13 @@ Just as I opened my mouth to refuse him again, a leathered hand snatched up the 
 
 “Just wait. We’ll be back in a minute.”
 
-I pulled Martina into the office behind the reception desk and closed the door behind us. Martina was laughing again. 
+I pulled Martina into the office behind the reception desk and closed the door behind us. Martina was laughing again.
 
 “What’s your problem, kid? Did you see the cash this guy is handing over?”
 
 “I did. But this is not a functioning motel!”
 
-“Even after your uncle closed this place down, he would make exceptions. People in need, you know.” 
+“Even after your uncle closed this place down, he would make exceptions. People in need, you know.”
 
 I sighed. Martina had been around Calnon’s Cottages and Motel since my grandfather built the motel in the 1960s. A five-foot-tall woman with a salt and pepper bob, and a penchant for cat sweaters who largely resembled a raisin after decades of tanning and smoking, she had almost single handedly managed the property after the old man died. I was hugely grateful for her and while I realized that I had only shown up to run the place a week ago, I didn’t want any trouble from the cops. I can’t help it. Uncle Jim was the business mind, but my dad was a lawyer. I inherited his deep sense of risk aversion. Martina patted me on the arm. She wasn’t an affectionate woman, but she did always have a soft spot for me.
 
@@ -46,11 +46,11 @@ Martina frowned and pulled back the old blinds. It was a clear night, the snow h
 
 “Uncle Jim never told you about the taxes?”
 
-“Martina, I assure you. We’re perfectly fine with taxes.” 
+“Martina, I assure you. We’re perfectly fine with taxes.”
 
 She turned towards me, yellowed black eyes wide, and crossed herself the Greek way. I had never known Martina to be a particularly religious or superstitious woman, and yet suddenly her face was full of dread. Or perhaps it was just the way the shadows filtered through the blinds.
 
-“Nora, please, let me handle this.” 
+“Nora, please, let me handle this.”
 
 I nodded and opened the door.  I had to trust her. Martina was back to smiling.  She brushed past me and placed the key into the hand of our guest.
 
@@ -68,7 +68,7 @@ Martina paused her count, and I could detect a small tremor in her hand. She shu
 
 “That would be nice, but we’d have to get lifeguards.  And the liabil–”
 
-Martina interrupted me with a croaking belly laugh. 
+Martina interrupted me with a croaking belly laugh.
 
 “Denny’s kid, you always have been, doll.  How’s this? You go back to your cottage and get some rest. I’ll sleep in the office. He won’t dare try anything when old Martina is around!”
 
@@ -88,9 +88,9 @@ Her change in tone was a bit jarring. In fact, Martina had been all over the pla
 
 Despite everything in the office having been purchased in the late 70s, Martina kept the place in clean, functioning order. Though we hadn’t had a real business on the property in years, my uncle had paid her handsomely to maintain things. The motel itself only had a handful of simple rooms, but there were fifteen cottages scattered across the rest of the property. The cottages predated the motel by about fifty years, my great-grandparents had built those themselves back in the heyday, when hordes of vacationers from downstate traveled up to the Thousand Islands to summer on the Saint Lawrence River.
 
-I have big plans for those cottages, perched so close to that watery vein that provides our area with its lifeblood. Who wouldn’t want to spend a few days in those adorable bungalows, once I get a chance to bring them up to date? It was a nice dream to keep me occupied, at least. Martina was generally supportive of my plans and tolerated the piles of books with endless arrays of paint and fabric swatches cluttering her desk. 
+I have big plans for those cottages, perched so close to that watery vein that provides our area with its lifeblood. Who wouldn’t want to spend a few days in those adorable bungalows, once I get a chance to bring them up to date? It was a nice dream to keep me occupied, at least. Martina was generally supportive of my plans and tolerated the piles of books with endless arrays of paint and fabric swatches cluttering her desk.
 
-I had to keep myself busy, now that my dad’s estate was settled. After the accident, I hadn’t wanted to move back up to the North Country. Hadn’t wanted to look at that beautiful river that took the lives of my father and uncle. *Freak boating accident.* Even thinking about it made my stomach churn, my cheeks flush. But it was Mom who finally pushed me and convinced me it would be good to make peace with the Islands. 
+I had to keep myself busy, now that my dad’s estate was settled. After the accident, I hadn’t wanted to move back up to the North Country. Hadn’t wanted to look at that beautiful river that took the lives of my father and uncle. *Freak boating accident.* Even thinking about it made my stomach churn, my cheeks flush. But it was Mom who finally pushed me and convinced me it would be good to make peace with the Islands.
 
 Anyway, I’m still a mess. And I still haven’t gotten around to explaining why I’m writing this here. That will come soon enough.
 
@@ -130,7 +130,7 @@ She took her seat and closed her eyes.
 
 The lights began to flicker in Room 2, at first slowly then steadily increasing to a constant frenetic pace.  The heaviness of the air pressed down around my head and I began to gasp. Bile formed at my throat as though my insides clamored to expel themselves.  A hand clamped hard at my shoulder; Martina pulled me down beside her with a frenzied cry, her hands moving to cover my mouth, my eyes, my ears, as though she didn’t quite know what to shield me from.
 
-And then the sky erupted. 
+And then the sky erupted.
 
 I knew this despite being huddled on the floor, face pressed against Martina’s tobacco scented sweatshirt, I could feel a great fissure in the groaning atmosphere, that smell of ozone that always accompanies lightning, yet the only light was the flickering in Room 2.  An inescapable sound rattled our bodies, initially reminding me of a train, but then, as the sound broke against us like a wave, my ears could distinguish voices, hundreds and hundreds of voices, all far away and yet near, deep, melancholy voices moaning in a language outside of time, borne away together by a single, terrible force.
 
@@ -140,9 +140,9 @@ I awoke on the floor of the office, my cheek covered by the astringent cleaner M
 
 I raced out to the reception area, but she wasn’t there either. Everything was perfectly in its place. With dread I gazed out at the door to Room 2. Though fear tugged at my stomach, I knew I needed to enter. I stepped outside, finding courage in the warmth of the sunlight and braced by the fresh, cold air. I knocked on the door, but there was no answer. My heart sank as I dug my master key set out of my pocket and braced myself for what I would find inside.
 
-The room seemed entirely normal: musty smell, ancient cathode ray tube television, burgundy bedding completely untouched. Even the worn mauve carpet looked immaculate. The only sign that someone had been inside was the man’s precious duffel bag abandoned in the middle of the floor. From my brief moments observing him last night, I didn’t think that the man would have parted with his bag willingly. There was no sign of him in the bathroom either, save for the torn toilet seat sanitary seal on the floor. 
+The room seemed entirely normal: musty smell, ancient cathode ray tube television, burgundy bedding completely untouched. Even the worn mauve carpet looked immaculate. The only sign that someone had been inside was the man’s precious duffel bag abandoned in the middle of the floor. From my brief moments observing him last night, I didn’t think that the man would have parted with his bag willingly. There was no sign of him in the bathroom either, save for the torn toilet seat sanitary seal on the floor.
 
-That left the bathtub as the only remaining area I hadn’t inspected. The shower curtain was just as dated as everything else, a sad shade of dusty pink likely installed in the first years of the Reagan administration. I pulled back the shower curtain and immediately began dry heaving, my empty stomach contracting uncontrollably. Carefully placed around the edge of the tub were ten fingernails, forcibly removed, each leaving a thin rivulet of blood down the side of the tub. The room began to spin around me and I caught myself on the towel bar. 
+That left the bathtub as the only remaining area I hadn’t inspected. The shower curtain was just as dated as everything else, a sad shade of dusty pink likely installed in the first years of the Reagan administration. I pulled back the shower curtain and immediately began dry heaving, my empty stomach contracting uncontrollably. Carefully placed around the edge of the tub were ten fingernails, forcibly removed, each leaving a thin rivulet of blood down the side of the tub. The room began to spin around me and I caught myself on the towel bar.
 
 From the other room I heard a zipping and an excited cry. I staggered out of the bathroom to find Martina removing piles of cash from the duffel bag, grinning with a cigarette between her teeth, looking as though she had had the most restful of nights cozy in her bed.
 
@@ -160,7 +160,7 @@ From the other room I heard a zipping and an excited cry. I staggered out of the
 
 “Stop.  Just STOP.  Enough with this bullshit!  Look at the fucking bathtub.”
 
-She reluctantly removed herself from the money, put the unlit cigarette in her pocket and made her way to the macabre display I had discovered. For a moment, her face turned a shade of sickly white, but only for a moment. She immediately regained her composure. 
+She reluctantly removed herself from the money, put the unlit cigarette in her pocket and made her way to the macabre display I had discovered. For a moment, her face turned a shade of sickly white, but only for a moment. She immediately regained her composure.
 
 “This is what we’re going to do. I’m going to clean up this mess. You are going to take a nice walk and go back to your cottage. Get some sleep. No one is going to miss this guy. Remember that. This isn’t the first time this is happened, nor will it be the last. Far from it.”
 
@@ -170,14 +170,16 @@ I opened my mouth to question, protest, scream, but she silenced me with an impa
 
 I nodded. She gave me a low chuckle and tossed me her pack of smokes.
 
-“Trust me. You’ll be needing these.” I smiled weakly. 
+“Trust me. You’ll be needing these.” I smiled weakly.
 
-She was right, of course. Walking outside by the light of day, I began to feel more at ease. The river was shimmering, the gentle lapping was something natural and familiar. Even the lonely boat tied up to the deck, belonging to the man who had vanished in the terror of the night, couldn’t jar me from my determination to feel tranquil. 
+She was right, of course. Walking outside by the light of day, I began to feel more at ease. The river was shimmering, the gentle lapping was something natural and familiar. Even the lonely boat tied up to the deck, belonging to the man who had vanished in the terror of the night, couldn’t jar me from my determination to feel tranquil.
 
-In those moments of deliberate calm, I remembered this online forum. I’m writing here hoping this can serve as a warning. We’re not open. You can’t come stay here. Please, don’t bother looking for us. We absolutely do not have a website. 
+In those moments of deliberate calm, I remembered this online forum. I’m writing here hoping this can serve as a warning. We’re not open. You can’t come stay here. Please, don’t bother looking for us. We absolutely do not have a website.
 
-But let’s be real, I need to say something. I need the catharsis. It’s pathetic, I know. I still want to restore the cottages to their former glory. They’re really beautiful, I promise. I just have to figure out how to make things safe. Not really something that can be accomplished by looking at paint swatches, I guess. 
+But let’s be real, I need to say something. I need the catharsis. It’s pathetic, I know. I still want to restore the cottages to their former glory. They’re really beautiful, I promise. I just have to figure out how to make things safe. Not really something that can be accomplished by looking at paint swatches, I guess.
 
 After about a half an hour walking around, staring at the river, I made my way back to my cottage. I stepped on to the small screened in porch with my uncle’s Adirondack chairs facing the water, admiring the pretty gable trim. Outside the front door, I noticed something on top of the ‘Welcome to the River’ mat. It was a yellowed spiral bound notebook. I picked it up. On the faded green cover was one word written in large caps by a blue ballpoint pen.
 
 “TAXES”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/)
