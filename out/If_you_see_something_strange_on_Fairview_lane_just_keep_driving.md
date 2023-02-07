@@ -54,11 +54,13 @@ Jesse opened the door, hopped out and then crept over to the boot. I could hear 
 
 Elvis was still going on about how he loved someone too much, and I took great pleasure turning the volume dial till it clicked, killing him again.
 
-What was it? It almost looked like road kill now, but before... Before it was…
+What was it? It almost looked like a run down animal now. But before... Before it was…
 
-Tap, tap, tap. The sound startled me, but it was just Jesse, knocking on the glass with the crowbar. She signalled for me to come out. My shoes hit the ground softly, lock-up keys betraying me, jangling on their chain.
+Tap, tap, tap.
 
-I whispered. “Jesus Christ, you nearly gave me a heart attack, babe.”
+The sound startled me, but it was just Jesse, knocking on the glass with the crowbar. She signalled for me to come out. My shoes hit the ground softly, but my lock-up keys betrayed me, jangling on their chain.
+
+I whispered to Jesse. “Jesus Christ, you nearly gave me a heart attack, babe.”
 
 She mouthed, “you should’ve seen your face. It was priceless.” Then she held a finger to her mouth, to say “Hush!”
 
@@ -246,9 +248,9 @@ She left her headlights on this time, and we got out of the truck. The beams spo
 
 "You have to."
 
-"But, that doesn’t make any sense,” then, whispering angrily, “the man has a family. The van doesn’t say Cooper, the lonely guy who no one'll even know is missing. Its Cooper and *Family*. Family, Jesse. Family. Surely *now* we can call the police? Right?”
+"But, that doesn’t make any sense,” then, whispering angrily, “the man has a family. The van doesn’t say Cooper, the lonely guy who no one'll even know is missing. It says Cooper and *Family*. Family, Jesse. Family. Surely *now* we can call the police? Right?”
 
-“Okay. Let run with that, call the police and tell them what exactly, Harry?” She said, gesturing to the chunks, the smears, the steam-rollered boiler-suit. The word overkill hadn’t ever been more appropriate.
+“Okay. Lets run with that, ring the police and tell them what exactly, Harry?” She said, gesturing to the chunks, the smears, the steam-rollered boiler-suit. The word overkill hadn’t ever felt more appropriate.
 
 “Fine, I get it. I feel like you’re actually kind of enjoying this. You are, aren’t you?
 
@@ -256,29 +258,29 @@ She said, “don’t be silly,” but I could see that she was holding back a sm
 
 We laid it out flat on the road, and she began kicking the remnants into the centre of the plastic sheet.
 
-She asked me if I’d found the keys, and I said “no,” and then she sighed and rolled her eyes again, muttering something about having to do everything, all by herself. And she began to search the pockets of the recently vacated boiler-suit.
+She asked me if I’d found the keys, and I said “no,” and then she sighed and rolled her eyes again, muttering something about having to do everything, all by herself, as she began to search the pockets of the recently vacated boiler-suit.
 
-“Gotcha.” She shouted, proudly, and threw them in a perfect arc, into my palm. Then, wiping off her hands on her trousers, she said, “I think that’s everything. Help me wrap this up and bring it to the back.”
+“Gotcha.” She shouted proudly, and threw them in a perfect arc, into my palm. Then, wiping off her hands on her trousers, she said, “I think that’s everything. Help me wrap this up and bring it to the back.”
 
 “God, do we have to? I think I'll be sick.”
 
-“Harry, are we just gonna leave it here now, after all of that? For some random person to find?”
+“What, are we just gonna leave it here now, after all of that? For some random person to find?”
 
 “No I just… It’s just disgusting thats all, I—“
 
-“Exactly, now you take this end, and, on the count of four we lift.”
+“Exactly. Now you take this end, and, on the count of four we lift and fold. Meet me in the middle.”
 
 “Fine, fine.”
 
 “One, two, ah-one, two, three, *four!*”
 
-We raised it up, carried it over to the truck and swung the tarpaulin, letting it fall into the open boot. As it landed, the fractured skull of the deer bounced out, hairy tendrils splaying out from within. And on the surface, it’s broken, human face, looking up, frozen in a death mask, somehow still looking remarkably peaceful. A stray lock of auburn hair curled down over its remaining blue eye.
+We raised it up, carried it over to the truck and swung the tarpaulin, letting it fall into the open boot. As it landed, the fractured skull of the deer bounced out, hairy tendrils splaying out from within. On the surface, it’s broken, human face, looking up, frozen in a death mask, still looking remarkably peaceful. A stray lock of auburn hair curled down over its remaining blue eye.
 
 “Go on then. You’ve got the keys to his van. You know what to do babe.” Said Jesse, rubbing my back with her palm.
 
 I fumbled with the keys a little, my hands still shaking, and I clambered into Mr. Coopers van. I sat for a minute, eventually managing to get the keys into the ignition, and I left them there for a while as I googled routes to the reservoir on my phone. I selected a path with that avoided the main roads. Better not to be seen, I figured.
 
-The van had those old school manual windows and I rolled down the one next to me to asked a something. “What do I do? Once it’s done I mean. Will you pick me up?”
+The van had those old school manual windows and I rolled down the one next to me to ask Jesse something. “What do I do? Once it’s done I mean. Will you pick me up?”
 
 “Yeah, but not by the reservoir, just in case. Meet me at the intersection, off of Bidford lane. You know, the one by that old barn we always point out?”
 
@@ -290,4 +292,4 @@ I rolled up the window, and turned the key.
 
 The radio jumped to life with the engine, and started playing out some oldie.
 
-I changed it to a different station.
+I changed the station.
