@@ -90,7 +90,7 @@ TRANSCRIBED DIARY ENTRIES
 >  
 >***06/15 - 6:46 PM***  
 >  
->I hate it I hate it I hate it I hate it please let me out I hate this I want Abigail I want Jane I want my mom I have to go to her but Abigail said no and shes so scary I cant do this. Please let me out.   
+>I hate it I hate it I hate it I hate it please let me out I hate this I want Abigail I want Jane I want my mom I have to go to her but Abigail said no and shes so scary I cant do this. Please let me out.  
 >  
 >***06/15 - 7:00 PM***  
 >  
@@ -108,8 +108,7 @@ TRANSCRIBED DIARY ENTRIES
 >  
 >***06/28***  
 >  
->I keep waking up with a bunch of bruises and stuff all over my arms and legs and sometimes my face. Today I had a big scratch on my forehead. Abigail seemed really worried even though it didnt hurt a lot and she made me bandage it before I went to school.  
-Today my teacher Ms Cunningham asked me if I was ok and I said yeah why coz Abigail said if anyone finds out then theyll take me away. Ms Cunningham looked worried and she talked to someone on the phone and made me stay after class.  
+>I keep waking up with a bunch of bruises and stuff all over my arms and legs and sometimes my face. Today I had a big scratch on my forehead. Abigail seemed really worried even though it didnt hurt a lot and she made me bandage it before I went to school.Today my teacher Ms Cunningham asked me if I was ok and I said yeah why coz Abigail said if anyone finds out then theyll take me away. Ms Cunningham looked worried and she talked to someone on the phone and made me stay after class.  
 >  
 >I got really scared coz I wanted to be home before mom. Finally I ran out of the classroom and I know its bad I feel so bad dairy. But I got home and went to my room but then on my bed I dont know what it was. It made me really sick diary. It was all of this red stuff and bones like the kind that dogs chew and there was some slimy pinky things everywhere and I think I saw a heart in there.  
 >  
@@ -161,4 +160,4 @@ Today my teacher Ms Cunningham asked me if I was ok and I said yeah why coz Abig
 
 Underneath the house, there was a basement which may have once served as a bomb shelter. The floor, walls, and ceilings were covered in red paint and symbols which experts have identified as Satanic sigils. There were also various stains of blood, vomit, saliva, and fecal matter.
 
-The patient in question has been transferred to a secure mental health facility to treat diagnoses of post traumatic stress, paranoid schizophrenia, psychotic depression, borderline personality disorder, anxiety, major depressive disorder, and others. The investigation is still underway, with primary suspects including \[Patient\]’s parents, who may have been involved in cult activity. There is no record of recorded missing cases under the names “Abigail” or “Jane” during the time that \[Patient\] claims that both respectively did so. “Abigail” was most likely an imaginary friend, whereas “Jane” may be among the unidentified victims whose brutalized remains were discovered scattered around the house.
+The patient in question has been transferred to a secure mental health facility to treat diagnoses of post traumatic stress, paranoid schizophrenia, psychotic depression, anxiety, and others. The investigation is still underway, with primary suspects including \[Patient\]’s parents, who may have been involved in cult activity. There is no record of recorded missing cases under the names “Abigail” or “Jane” during the time that \[Patient\] claims that both respectively did so. “Abigail” was most likely an imaginary friend, whereas “Jane” may be among the unidentified victims whose brutalized remains were discovered scattered around the house.

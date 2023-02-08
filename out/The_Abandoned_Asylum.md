@@ -1,0 +1,15 @@
+I've always been fascinated by abandoned places, the remnants of forgotten lives and memories. So, when I heard about the old abandoned asylum on the outskirts of town, I couldn't resist the urge to explore it. I had heard the rumors, of course - the whispers of strange noises and ghostly apparitions - but I didn't believe in such things. I thought it would be an exciting adventure, a chance to see a piece of history up close.
+
+But as soon as I stepped through the rusted iron gates, I knew I had made a mistake. The air was thick with a sense of foreboding, and the creaking of the old wooden floors echoed through the empty halls. The wallpaper was peeling, and cobwebs clung to the corners of the ceiling. But it was the stains on the walls and floor, dried and brown, that truly made my heart race.
+
+I tried to shake off the feeling of unease and continued down the hallway, my footsteps ringing out in the silence. The rooms were empty, the furniture long gone, but the atmosphere was suffocating. It was as if the walls were closing in on me, and the whispers of the past were all around me. I was tempted to turn back, but my curiosity got the better of me.
+
+I finally came to a large, open room, with a single, rickety chair in the center. I approached it cautiously, and as I reached out to touch the armrest, I heard a voice whisper in my ear, "Don't sit. Don't sit." I stumbled back, my heart pounding in my chest, but there was no one there.
+
+I knew then that I needed to get out of the asylum, but the door was locked, and the windows were boarded up. I was trapped. The whispers grew louder, and I could feel the spirits of the past surrounding me, closing in. I stumbled through the dark, desperate to find a way out, but every door was locked.
+
+And then, I saw her. The ghost of a young woman, with long, tangled hair and a sad expression. She reached out to me, beckoning me forward, and I followed her, driven by a desperate need to escape. She led me to a door that was slightly ajar, and I squeezed through it, my heart in my mouth.
+
+The ghost was gone, but I was finally free. I stumbled out of the asylum, gasping for air, and collapsed onto the grass. The sun was just beginning to rise, casting a warm glow over the world. But I couldn't shake the feeling that the asylum was still watching me, that the ghosts were still there, waiting for their next victim.
+
+I never returned to the asylum, but the memory of that place still haunts me to this day. I know I was lucky to escape, but I can't help wondering about the others who entered that place and never made it out. I can still hear their whispers, echoing through the halls, and I can still see the ghostly face of the young woman who saved me. And so, I know that the abandoned asylum will always be a place of fear, of horror, and of death.

@@ -229,3 +229,5 @@ I think just about everyone active in the dating community has had the occasiona
   "Oh yeah," she said; I could almost hear the smile in her voice, as my head fell limp to the table, "I just know he's the one!"
 
   "What…what did…" was all I managed to get out before everything went dark.
+
+[Final](https://www.reddit.com/r/nosleep/comments/10xdxq3/alls_fair_in_love_and_war_a_valentines_nightmare/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
