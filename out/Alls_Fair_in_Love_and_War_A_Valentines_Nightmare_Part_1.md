@@ -84,7 +84,7 @@ I think just about everyone active in the dating community has had the occasiona
 
   Needless to say (but I will anyway), I was well aware that I was in the presence of a 'crazy eyes'; perhaps the most aggressive case I had personally witnessed. 
 
-  As things progressed; my date kept her gaze fixed on me, and even when the waiter arrived to take our drink order, I was growing almost desperate to escape. When I asked for a glass of water, making a lame excuse that I had to be at work early in the morning, Rainey practically barked at the waiter, demanding that he bring me a Jack and coke instead. 
+  As things progressed, my date kept her gaze fixed on me, and even when the waiter arrived to take our drink order, I was growing almost desperate to escape. When I asked for a glass of water, making a lame excuse that I had to be at work early in the morning, Rainey practically barked at the waiter, demanding that he bring me a Jack and coke instead. 
 
   While that may have been partially my own fault, as I had mentioned this to be my favorite drink over the previous days of texting, I still tried to give the waiter; who looked almost dumbfounded, an apologetic shrug. With the expression he returned, I had a feeling he knew where my head was at the time. 
 
