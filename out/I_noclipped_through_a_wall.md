@@ -1,4 +1,4 @@
-My sister told me about a place where people noclip. 
+My sister told me about a place where people noclip.
 
 Seriously.
 
@@ -196,9 +196,9 @@ There I was, standing on the precipice of fate, one *Tango in the Night* in each
 
 I placed the tapes side by side in the trough, and I mounted my steed.
 
-Instantly something went wrong. My steed bucked. 
+Instantly something went wrong. My steed bucked.
 
-My stomach jumped into my chest and my body tumbled forward, but I did not bang my forehead on the American Standard’s ergonomic flusher assembly. No. 
+My stomach jumped into my chest and my body tumbled forward, but I did not bang my forehead on the American Standard’s ergonomic flusher assembly. No.
 
 I had not fallen off the urinal, but rather *through* the urinal, as I had been direly warned would happen. Big yikes. But also hell yes.
 
@@ -220,7 +220,7 @@ The whole time, there was this strange feeling of freedom I never had before. I 
 
 I soared further now, past the apartment buildings and hospitals and schools and malls, with Pyramid Lake appearing in the distance as a jagged blue bowl filled with trout and tui chub, decorated with moored fishing boats and wobbling jet skis.
 
-But above me, directly above me, was my sister’s apartment complex. 
+But above me, directly above me, was my sister’s apartment complex.
 
 Time to spook the heck out of her.
 
@@ -244,7 +244,7 @@ I reached out a hand to touch her shoulder. As I got nearer she seemed to turn t
 
 When I made contact with her shoulder, everything gave out. The collision detection algorithm of reality must have been broken, because the moment of contact sent me into a total freefall.
 
-I plummeted. 
+I plummeted.
 
 My body passed through the carpeting of her living room, then into the apartment below hers, then the unfinished basement of her building, descending down into the pale blue vastness. The bardo. The space below. The great synonym generator beneath our feet.
 
@@ -252,9 +252,9 @@ The world above me got smaller, and smaller, and smaller, and smaller, and small
 
 With nothing to compare my location against, all velocities in this non-space became the same velocity. Maybe I was sailing past at Mach speed. Maybe I was still and stationary as a monk.
 
-That’s when I realized there was something down here with me. 
+That’s when I realized there was something down here with me.
 
-A small piece of geometry, off in the distance. Quickly the geometry became a box, and the box became a room. It had taken on some kind of gravity, sucking me toward it with increasingly irresistible force. Flail and contort as I might, I couldn’t escape its gravity well as I was sucked closer and closer to the event horizon of its four walls. 
+A small piece of geometry, off in the distance. Quickly the geometry became a box, and the box became a room. It had taken on some kind of gravity, sucking me toward it with increasingly irresistible force. Flail and contort as I might, I couldn’t escape its gravity well as I was sucked closer and closer to the event horizon of its four walls.
 
 There was no avoiding it.
 
@@ -266,11 +266,11 @@ When I opened my eyes I was lying on my back in a small symmetrical room.
 
 I looked around me. The furniture was austere and low-poly, just a bed and a dresser and a Fleetwood Mac calendar on the wall. The calendar showed the page for March 1987.
 
-I rose to my feet and realized the awful truth: there were no doors or windows in this room. To be sure, I walked the perimeter, feeling around the edges, and confirmed the horrible truth. 
+I rose to my feet and realized the awful truth: there were no doors or windows in this room. To be sure, I walked the perimeter, feeling around the edges, and confirmed the horrible truth.
 
 When I got to the calendar, I noticed that the print on it was pixelated and low-res, like a poor-quality jpeg had been used to create it. I tried to turn the page from March 1987 to now (since it was significantly later). But the calendar pages didn’t turn. The material was some kind of concrete, rough and cold to the touch.
 
-In fact, it turned out everything in the room was made out of the same concrete material. Which meant that I was stuck in a room with no doors or windows. No way to get out. There was a uniform amount of light in every corner of the room, so I could see just fine, despite the fact that there seemed to be no light sources at all. 
+In fact, it turned out everything in the room was made out of the same concrete material. Which meant that I was stuck in a room with no doors or windows. No way to get out. There was a uniform amount of light in every corner of the room, so I could see just fine, despite the fact that there seemed to be no light sources at all.
 
 The room must have been an unfinished part of the map. A part of reality they built but never used. Who were *they*? Were they God? Were they the Developers? And if they were the Developers, were they still developing? And what are they developing? And why?
 
@@ -286,7 +286,7 @@ After 38 hours of this, *Tango in the Night* began to grow on me. By hour 923, I
 
 By hour 723,298,519,823,479,825 I had developed a profound psychic connection with the secret meanings behind the record that those in power did not want us to know. For instance I learned that, at its core, the album was about a tango. In the night.
 
-Whatever you do, do not send help. 
+Whatever you do, do not send help.
 
 Someone else could get trapped down here, and I must warn you it is a fate worse than death. Unless you’re an absolutely enormous fan of this album. But probably even then too.
 
@@ -294,6 +294,8 @@ I’ve been looking for places in the room where I can noclip outta Dodge. This 
 
 So far I have failed to noclip out of the *Tango* room. But I feel like I am making progress.
 
-And now I must deliver my message. A message which is my purpose here and maybe even my purpose in life. 
+And now I must deliver my message. A message which is my purpose here and maybe even my purpose in life.
 
 If you’re out there, if you can hear me, whatever you do, do not grab your *Tango*s *in the Night* from the used section. Grab both *Tango*s from the new release section, like an adult, or your fate (unlike one of my *Tangos*) will be sealed.
+
+[X](https://www.reddit.com/r/theawfullest/)
