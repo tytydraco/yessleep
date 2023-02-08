@@ -36,25 +36,25 @@ The stewardesses got up and quickly attended to the chaos.
 
 I counted at least five bodies that didn’t move. 
 
-“*Hello?*” I asked no one in particular. “*Hwello*”
+“Hello?” I asked no one in particular. “Hwello”
 
 I tried to speak and the words came out all wrong. I put my finger to my lip and came back with a handful of blood. I didn’t remember getting hit. 
 
 “*Sir?*” someone said. 
 
-“*Are we still in the air?*” I asked the void. 
+“Are we still in the air?” I asked the void. 
 
 “*Sir?*” a softer tone this time. 
 
 I heard the stewardess’s voice but couldn’t see her face. My waning attention fixated on a point across the cabin.
 
-“Are you okay?”
+“*Are you okay?*”
 
 Most of the passengers shut their side windows at the start of the turbulence. But one of them slipped back open in the chaos. All the way at the end, at the bottom of one in particular, a pale green light shone through. Something about that light drew me like a moth to flame. 
 
 “*Do you need medical attention?*”
 
-I unclicked the seatbelt and got up out of my chair. I needed to investigate further. I suppose the window closest to me would have been easier… but the thought never entered my mind. The stewardess followed me, calling out impatiently from behind. 
+I unclicked the seat-belt and got up out of my chair. I needed to investigate further. I suppose the window closest to me would have been easier… but the thought never entered my mind. The stewardess followed me, calling out impatiently from behind. 
 
 “*Sir? Are you a doctor?*”
 
@@ -64,7 +64,7 @@ I edged past the bloody pools and bewildered folks attending to the numerous inj
 
 I leaned over a bewildered woman with a gash on her forehead. I heard a commotion as she tried to move out of my way. I didn’t care. I just wanted to see the light. That sweet, beautiful, magnificent light. I had never seen anything like it. I pulled back the window shade. A symphony of blues of grays and pinks erupted through the glass. My skin felt alive, like every pore opened, like every disease disappeared in an instant. 
 
-“What is it?” my new seat mate moaned. “It’s wonderful.”
+“*What is it?*” my new seat-mate moaned. “*It’s wonderful.*”
 
 People gasped at the beauty of the moment. All of them. 
 
