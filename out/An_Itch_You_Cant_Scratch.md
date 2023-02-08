@@ -1,8 +1,8 @@
-“I know you don’t want to be here, but it won’t kill you to act like you’re having fun.” 
+“I know you don’t want to be here, but it won’t kill you to act like you’re having fun.”
 
 The sentence was muffled beneath the sound of overused bass and snares and the empty conversations of the surrounding party-goers. “It means the world to me that you’re here though, believe me. I wouldn’t have had the balls to show up if you didn’t tag along.”
 
-Jeremy, my not so innocent best friend since preschool, was much…*much* more into the “get drunk on Friday and sober on sunday” lifestyle than I ever could have been. He always found himself at some random person's house on a Saturday night, inevitably being so inebriated that I would get the predestined jumble of incoherent texts and voicemails from him needing me to pick him up. 
+Jeremy, my not so innocent best friend since preschool, was much…*much* more into the “get drunk on Friday and sober on sunday” lifestyle than I ever could have been. He always found himself at some random person's house on a Saturday night, inevitably being so inebriated that I would get the predestined jumble of incoherent texts and voicemails from him needing me to pick him up.
 
 Mind you, we’re still in high school, so this entails me walking around town in the middle of the night, sometimes walking the streets as the sun begins to rise, looking for some house that had far too many cars parked in front of it to be considered safe. And yet I would consistently do it, because that’s what you do for your friends. You make sure their safe, and you save their asses from their holier than thou parents ever finding out that their son likes more than a sip of wine during Sunday mass.
 
@@ -12,7 +12,7 @@ So here we are, in a basement that smells of sweat, spilled alcohol, tobacco and
 
 “Jere, I know you’re having fun, but we need to get going soon,” I shouted over the copious sounds around us, “it’s nearly four A.M, and it’s going to take us at least an hour to walk home.”
 
-Our eyes met, but I swear to you, Jeremy wasn’t there. 
+Our eyes met, but I swear to you, Jeremy wasn’t there.
 
 “I hear you man, and I agree…” his thought faded from his head as his eyes left my gaze and had locked on to something behind me, something that to him was so magnificently incredible that even my existence beside him became obsolete.
 
@@ -26,17 +26,17 @@ Silence. Fear. My heart rate doubled in an instant. Was everything going in slow
 
 Decadent caramel. The first warm day after the winter equinox. A baby’s first laugh. Getting a raise at work without asking for it. That first time you tried ice cream and remembered it. Being told that your clothing style is actually nice and you don’t need to lose ten or fifty pounds to look better. The embrace you needed on your worst day. Some gas you just couldn’t pass because too many people were around finally being released.
 
-All of these things combined wouldn’t equate to the sound of her voice. She was shy, timid, and yet so pleasantly soft to my ears. How I heard her through the riotous party around us, I do not know, but the heavens opened and blessed me with this moment and I was so happy I couldn’t speak. I wanted to return the greeting but it was already too long of a pause. Or was it only a second? Was it a minute? How long was she here? Wait…*what?* 
+All of these things combined wouldn’t equate to the sound of her voice. She was shy, timid, and yet so pleasantly soft to my ears. How I heard her through the riotous party around us, I do not know, but the heavens opened and blessed me with this moment and I was so happy I couldn’t speak. I wanted to return the greeting but it was already too long of a pause. Or was it only a second? Was it a minute? How long was she here? Wait…*what?*
 
-Girls don’t look at me. *Guys* don’t look at me. 
+Girls don’t look at me. *Guys* don’t look at me.
 
 *I’m not something people look at.*
 
-She was gorgeous. Her long, flowing blonde hair partnered with her delicate facial features and her smile that made me jump over the moon. She was leaving me speechless. 
+She was gorgeous. Her long, flowing blonde hair partnered with her delicate facial features and her smile that made me jump over the moon. She was leaving me speechless.
 
 Off ramp signs are more appealing than me, so how was *she* saying hello to *me*?
 
-“Are you going to say hi back or did I make a fool of myself…?” Her voice was shaky, nervous over *me* not responding to *her*. 
+“Are you going to say hi back or did I make a fool of myself…?” Her voice was shaky, nervous over *me* not responding to *her*.
 
 “No. I mean, not no I’m not going to say hi, I mean no I’m not *not* going to say hi, I wanted to say hi back, just so we’re clear. I mean I-”
 
@@ -52,27 +52,27 @@ My hand began to itch, slightly on the back, I didn’t want her to think I was 
 
 “Can we go somewhere a little quieter to chat? I’m not trying to make a quick move on you, you just seemed…*interesting* to me.”
 
-“Yeah, yes, yes please.” I think I stood up before I even responded. Without even looking back to Jeremy, I followed Shelby out of the basement and into the living room upstairs. No one else was up here, and the sound of the party was muffled enough that I could hear my breath finally. 
+“Yeah, yes, yes please.” I think I stood up before I even responded. Without even looking back to Jeremy, I followed Amber out of the basement and into the living room upstairs. No one else was up here, and the sound of the party was muffled enough that I could hear my breath finally.
 
 I felt as if enough time had passed to finally scratch my hand, so I finally went to do so but was stopped by Amber grabbing the hand and looking at me, that bright smile melting me down yet again.
 
 The itch wasn’t even that bad anyway. *What itch?*
 
-“So Mark, what do you do for fun?” She asked as we walked to the living room sofa, sitting down side by side, hand in hand. 
+“So Mark, what do you do for fun?” She asked as we walked to the living room sofa, sitting down side by side, hand in hand.
 
-“Well, where do I begin?” 
+“Well, where do I begin?”
 
 The itch was getting a little bit annoying by now, but I just buried it behind my focus on her. “I read a lot, I actually just finished reading Stephen King’s *Dark Tower* series.”
 
-“That’s the books about the gunslinger and the man in black right?” 
+“That’s the books about the gunslinger and the man in black right?”
 
 She didn’t. She *knew* the books?
 
 “Yeah..that’s…that’s the one.”
 
-The itch was now crawling to my wrist, beginning to feel like a thousand spiders burrowing into my skin. She was still more important. 
+The itch was now crawling to my wrist, beginning to feel like a thousand spiders burrowing into my skin. She was still more important.
 
-“How about you? What do you do for fun?” 
+“How about you? What do you do for fun?”
 
 *Focus. On. Amber.*
 
@@ -82,7 +82,7 @@ My entire hand was turning into white noise.
 
 “Oh that’s nic…wait what?”
 
-“I’m going to let you in on a little secret now, okay Mark?” Something about Amber’s entire posture…no, her entire being, changed. She seemed…taller. Her hair didn’t seem as nice, and there was something behind her smile. Something that wanted to hurt me. 
+“I’m going to let you in on a little secret now, okay Mark?” Something about Amber’s entire posture…no, her entire being, changed. She seemed…taller. Her hair didn’t seem as nice, and there was something behind her smile. Something that wanted to hurt me.
 
 I wanted to scratch my hand *so bad* but she just wouldn’t let me.
 
@@ -108,7 +108,7 @@ Just as I grabbed a knife, I heard the basement door open.
 
 This whole thing happened about three months ago.I’m now in a hospital getting professional help for my apparent mental break.
 
-The doctors believe this whole thing was caused from “stress from trying to please my peers”, and my belief that a meaty, puss filled ball with teeth was from a paranoid break. 
+The doctors believe this whole thing was caused from “stress from trying to please my peers”, and my belief that a meaty, puss filled ball with teeth was from a paranoid break.
 
 So when I tell them that I still hear that *fucking laugh* every night, they take it with a grain of salt.
 
