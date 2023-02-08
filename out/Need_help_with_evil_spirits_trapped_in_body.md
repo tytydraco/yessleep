@@ -1,0 +1,13 @@
+I don't know what else to do about this, and I can’t sleep 
+
+A year ago, I touched something in my backyard late at night. I felt that there was something back there the past few days, as if something was calling me, but I had been too scared to check it out. Well, on this night, I told myself I wasn’t going to let that fear stop me, because I had had a rough day and this was my way if trying to prove myself weird as that may sound. 
+
+When I mustered up the courage to face whatever was back there, I’m not exactly sure what it was that I saw. It was dark, around midnight, and it was raining, which didn’t help. There was this black mist that was everywhere. I could see vague outlines of shapes in the mist. As ridiculous as it sounds, I felt I was communicating telepathically with these “shapes.” 
+
+I can’t seem to remember these conversations for some reason, but, next thing you know I'm having all kind of weird sensations in my body, and I remember I even had my pants down at one point. I also remember hearing whispers in a foreign language, but I’m not sure which. I remember running in place for a good 15 minutes because I was trying to prove myself to these shapes / evil spirits. I didn’t think they were evil at the time, I thought of them as my friend, but I was sorely mistaken, and incredibly naïve to think they could do no harm to me. They also made me eat pork, which is unclean food by religious standards.
+
+After a long night, I woke up feeling. . . . strange. I kept having these thoughts of ending the world, and I just didn’t quite feel like myself. I still don’t feel like myself after that night.
+
+Now, I'm pretty sure I'm possessed . Whenever I think about the event, my legs go numb, and I can feel sensations/ numbness moving up and down my legs. I also have intrusive thoughts, thoughts that just don’t sound like me. Sometimes it feels like there’s two people inside me and I can’t tell how the thought applies to me or the both of “us,” whoever “us” is. The worst part is that I don't feel like myself at all.. I was also very high on THC when this happened, by the way.
+
+ After a year of my life going downhill, I think I’ve been cursed because bad stuff keeps happening to me. I lost my car, nearly all my clothes and can’t seem to find a job. Now, I'm here asking for help because I don\t know where else to go. I would be open to an exorcism at this point, but I’m not sure how to find one.  Please if there's anybody out there that has any idea what to do, let me know. Thank you for reading. Also I’m not the best story teller so if you want more details don’t hesitate to ask.
