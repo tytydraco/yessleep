@@ -18,7 +18,7 @@ Julie Mitchelle: Waitress - Steven's Bistro, 23, Caucasian
 
 Phillip Neman - 911 Call operator, 42, African American
 
-On February 8, 2023, at around 18:45, Steven Wilson and his wife, Carla Wilson, were seen leaving Steven's Bistro. It was reported by their waitress, Julie Mitchelle, the couple were having a hostel dinner that included yelling and abrupt banging on the table. Ms. Mitchelle says she had to ask the couple multiple times to keep their voices down. Ms. Mitchelle reports that the couple eventually calmed down and finished their meal quietly, leaving the restaurant around 20:00.
+On February 8, 2023, at around 18:45, Steven Wilson and his wife, Carla Wilson, were seen leaving Steven's Bistro. It was reported by their waitress, Julie Mitchelle, the couple were having a hostile dinner that included yelling and abrupt banging on the table. Ms. Mitchelle says she had to ask the couple multiple times to keep their voices down. Ms. Mitchelle reports that the couple eventually calmed down and finished their meal quietly, leaving the restaurant around 20:00.
 
 It is presumed the couple drove straight to their home at 557 Maple Street. At approximately 20:23, a person identifying themselves as Carla Wilson contacted 911 Emergency Services. The operator she spoke to, Phillip Neman, reported that Mrs. Wilson stated in her call that an unknown woman was standing in her driveway. Mr. Neman says he instructed Mrs. Wilson to stay on the line and in her vehicle. During their conversation, Mr. Neman could hear Mrs. Wilson interact with an unidentified male, believed to be Mr. Wilson.
 
