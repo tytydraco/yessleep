@@ -2,7 +2,7 @@ My name is Ethan and I live in a world of darkness.
 
 I don't know how old I am.
 
-I call myself Ethan, but that's the oldest name I can remember. I've been called many names since then because every time I fall asleep, I get transported to a new reality, a new life, with a new family, friends, and identity. It's been happening for as long as I can remember.
+I call myself Ethan, but that's just the oldest name I can remember. I've been called many names since then because every time I fall asleep, I get transported to a new reality, a new life, with a new family, friends, and identity. It's been happening for as long as I can remember.
 
 At first, I think I am just dreaming, but as the years go by, it becomes clear that there's something more sinister at play. Every time I close my eyes and drift to sleep, I wake up in a new reality and I am always the only one who remembers my previous lives. I'm a prisoner in my own mind, trapped in a cycle of endless horror and detachment.
 
@@ -18,7 +18,7 @@ I feel alone, lost, and scared.
 
 Every time I try to talk to someone, they think I am crazy or delusional. I'm filled with pain and heartache. I am always leaving behind people I love and I never know if I will see them again in another life. But the cycle will go on and I will wake up in another reality and the process will repeat itself.
 
-The one thing I have never tried is to die. I have always gone to sleep. I am always afraid of what might happen if I don't wake up again. But now, I am at the end of my rope. I can't keep living like this, constantly losing everything and everyone I have ever loved. I have come to realize that there is no escape from this cycle unless I end it myself.
+The one thing I have never tried is dying. I have always gone to sleep. I've been afraid of what might happen if I don't wake up again. But now, I am at the end of my rope. I can't keep living like this, constantly losing everything and everyone I have ever loved. I have come to realize that there is no escape from this cycle unless I end it myself.
 
 So, I have made the decision to try and break the cycle.
 
