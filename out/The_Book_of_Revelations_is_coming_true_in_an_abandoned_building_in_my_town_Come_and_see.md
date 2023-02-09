@@ -52,7 +52,7 @@ I shuddered inwardly. Everyone around here knew the story of Jeremiah Lands, the
 
 “I knew it,” I muttered. “That was where I saw… something. Something horrible.” I wondered if Jeremiah Lands had anything to do with the melting shadow-being I had encountered the previous night, if indeed that hadn’t just been a nightmare. Maybe his ghost was upset that I was sleeping in the room where he had committed suicide and taken his final stand.
 
-“By the way,” the old man said, reaching out his hand, “my name is Henry. I’m looking for some help in Angel Trace, and I am willing to pay quite handsomely. I think you are the only one qualified to help me.” He took out a wad of cash from his inner coat pocket. “$2000, in cash, if you show me exactly where this event happened to you, and give me some minor help with a ritual I am planning tonight.” My eyes widened at the money in front of me. I could potentially use that money for a security deposit,, and maybe get out of this constant cycle of homelessness and joblessness.
+“By the way,” the old man said, reaching out his hand, “my name is Henry. I’m looking for some help in Angel Trace, and I am willing to pay quite handsomely. I think you are the only one qualified to help me.” He took out a wad of cash from his inner coat pocket. “$2000, in cash, if you show me exactly where this event happened to you, and give me some minor help with a ritual I am planning tonight.” My eyes widened at the money in front of me. I could potentially use that money for a security deposit, and maybe get out of this constant cycle of homelessness and joblessness.
 
 “My name is Dmitri,” I said, shaking his hand and feeling the small, bird-like bones beneath his skin, “and you have a deal.”
 
