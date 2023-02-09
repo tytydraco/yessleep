@@ -1,0 +1,117 @@
+I moved into the abandoned apartment complex, which the locals called Angel Trace Park, at the edge of town. No one had lived there for decades. Even drug addicts and homeless people avoided it like the plague. I never understood it, but I wasn’t questioning my luck. I had lost my job and was literally penniless- I didn’t even have enough spare change to ride the bus across town. I was able to get food from the food bank, and find a good Samaritan or two to bum a few cigarettes from, but other than that I was living the life of a monk. I had a backpack with a few spare clothes in it, a toothbrush, toothpaste and soap, some ID, a pocketknife- and that was it.
+
+I had spent a week at Angel Trace without incident. On the seventh day, I began to realize something was wrong. It was summertime, the crickets buzzing outside the window, a fresh-smelling breeze flowing in through the broken windows of Angel Trace. I used my backpack as a pillow in the corner and fell asleep. I had explored the entire complex, and carefully chosen an apartment in the back of the floor with only one exit and entrance, so that no one could sneak up on me to rob me- or worse. Sometimes the homeless around here were beaten by drunk gangs of youths for fun, and the police almost never did anything about it. 
+
+The broken windows of the bedroom allowed wisps of light to flow through, allowing me to see silhouettes but nothing more substantial than that.
+
+As I slept, I kept feeling something softly tickling my cheeks, my forehead, my hair, but every time I stirred and looked around, I saw nothing. I hoped it wasn’t spiders, vigorously rubbing at my face in case one had landed on me. I felt around my backpack for a flashlight, turned it on, and immediately began to scream.
+
+Someone stood before me, their face appearing to melt and liquefy. I saw their eyes changing from blue to brown to green, their pupils dilating and constricting rapidly as they stared down at me. The flesh over their cheeks formed into a beautiful woman, then reformed into an old man with wrinkled skin, before changing to the face of a small child. It was as if a thousand faces were all shifting and appearing in the mass of melting skin, quickly showing the bones and muscle underneath before changing to the next shape.
+
+I immediately began to push against the hardwood floor with my legs, rapidly scooting back away from the creature. In the process I dropped the flashlight and it began to twirl on the floor, sending dancing silhouettes and strobing shadows on the walls. By the time I picked it up again and focused it on the spot where I had seen the melting being, the monstrosity was gone.
+
+Then the flashlight shut off, a twanging sound echoing across the room as something in it broke, and I was plunged back into darkness. I heard heavy, creaking footsteps as something approached. An overwhelming weight descended upon my chest, and I started thrashing and screaming. I felt fingers shoved in my mouth, fingers whose skin seemed to melt off, as if decomposing under a strong acid. I tasted the rancid skin, the copper and iron of blood, and a deeper and more foul taste that overpowered all of it- a taste like meat that has been left out to rot in the summer sun for weeks on end.
+
+“Shh, don’t struggle so, my child,” a wheezing, decrepit voice said in my ear, blowing the smell of decay directly next to my face. I started to gag, thrashing with all my might to push the thing off of me, but it felt like I was fighting a mountain. “It may feel bitter to die, but in the end it is the sweetest thing of all.”
+
+Terrified and furious, I reached up at the thing’s face, frantically clawing at its skin. It came off in chunks, sticking to my hand and sliding down my arm and wrist in warm, wet trails. Finally I felt one of its eyes, and using all my strength, I shoved my thumb into it. The thing on top of me screamed so loudly that I thought my eardrums would burst. But it didn’t sound human. It sounded more like a plane engine revving up in a deafening cacophony that shook the floors.
+
+In an instant, I was free, taking in deep gasps of sweet air, the suffocating fear that had enveloped me slowly receding. I grasped around for the flashlight, finding it on the floor nearby. I tried turning it on again but no light came out. I began to feel around my pockets, finding a lighter and flicking it. After a couple flicks, the flame shot out. That thing was gone, but some melting flesh-colored substance still dripped off my fingers. Pieces of blood, teeth and bone littered the floor. I could see a random eyeball stuck to the floor by tacky blood, next to pieces of blackened, rotten intestines.
+
+All I could hear in the silence was my own heavy breathing, the pounding of my heart, the faint cries of the bugs outside. Nothing else stirred or moved. I shone the lighter around, but whatever had attacked me had disappeared.
+
+“I have to get out of here,” I said softly to myself. “This is all wrong. This place feels… evil..” But I didn’t leave. I was tired and had nowhere else to go in the middle of the night. I took a pocket knife out of my backpack and kept it in my hand, in case I got attacked again. Within a few minutes, fatigue overpowered me, and I had fallen back asleep, resting my head on my backpack and staring at the single pane of light that shone through the broken window. When I awoke, it was morning. All signs of the attack the previous night were gone.
+
+There was no melted flesh on the floor, no bone fragments, no remnants of the monster at all. Even my fingers and hands were clean. Daylight poured in and drove all the horrors of the nighttime away. I assumed I had simply had an extremely vivid nightmare. I had heard of cases where people had sleep paralysis and thought someone, or something, was standing on their chest, suffocating them. It seemed to fit exactly with my experience the previous night.
+
+I spent the rest of the day panhandling, going to soup kitchens to get meals, walking around the park and exploring the local library. I did not want to be homeless forever.
+
+It was a terrible life, full of cold, heat, fear, hunger and thirst. But worse than all of that was the *hopelessness* of my situation. I felt I couldn’t get a job without getting an apartment, and how could I possibly afford housing without a job? I couldn’t focus on a relationship or friendships because I was too worried about the lack of money, housing and transportation I had, so my life felt constantly meaningless and lonely. It felt like I was stuck in some endless catch-22, and without family or friends nearby to help me, it seemed I had few options to get back on my feet. 
+
+I contacted social services about potential help securing work and housing, and before I knew it, the sun was setting again. Sighing, I began to walk back to Angel Trace.
+
+As the sun faded behind the complex, sending red spikes through the clouds, I took in the scenery around the abandoned building. The trees and bushes near it all seemed dead, their leaves gone and their branches dry and cracking. The building itself soared over twenty stories in the air, reminding me of some ancient Mayan pyramid for sacrificing captured prisoners. It had a slight pyramidal shape and was the gray, lifeless color of concrete. Most of its windows were smashed. I looked at the upper stories, and saw a face peering down at me from the thirteenth floor. It was far away, but as I squinted and tried to capture all the details I could, I saw the thing staring down at me had skin melting off of its grinning face. All of its teeth shone, along with the bone from its lower skull, making its smile stretch from ear to ear.
+
+“Sir?” a man asked from a bench to my right. I jumped, having not seen him. I had been so totally focused on the building that I would have walked right past him. He wore all black and sat in the shadow of a group of oak trees. He looked ancient, at least ninety, with a face like a sad, wrinkled bulldog. His eyes were hidden under countless folds, and he sniffled constantly. It looked like a strong breeze might blow him off the bench.
+
+“Do you live here?” he said in a trembling, low voice. He pointed to Angel Trace with a shaky finger.
+
+“Yes, I do,” I said, seeing no point in lying to this old man.
+
+“I’m looking to pay someone who knows the complex, inside and out,” he said. “I’m looking for a special area to do a ritual. This place, the locals say, is cursed, and I need the presence of… something unusual. Something powerful. Maybe somewhere where people tend to see beings that are not of this world, or feel a presence, like someone watching you. Would you know any place in the complex like that?” My heart stopped as he looked up at me. It was as if he knew what had happened to me the previous night.
+
+“Something happened to me in the back-most room on the 13th floor last night,” I said. “I think something is living there. Something not human.” Remembering the melting, decaying fingers being shoved in my mouth, I shuddered.
+
+“This place was terrible when people used to live here,” the old man said, giving a wary sideways glance to the Angel Trace building. “I have lived in this town my entire life, and we used to hear constant rumors about the goings-on there. Apparently it was full of gang members, pedophiles, sex offenders, criminals and drug dealers of the worst types. The police were constantly being called in for suicides, drug overdoses and murders, to the point where the city wanted to shut it down permanently. But it wasn’t until Jeremiah Lands killed himself on the 13th floor that this place really began to get… let’s say, out of control.” 
+
+I shuddered inwardly. Everyone around here knew the story of Jeremiah Lands, the serial killer who raped and tortured at least seven women. I knew he used to dispose of their bodies in the nearby river, so the media began calling him the “Mapoho River Slasher”. Eventually police got a break in the case when they saw his license plate on some security camera in the same block where the last victim disappeared on her way home from high school. They got a search warrant and started breaking down the door of his apartment in Angel Trace, but he started shooting through the door with shotgun slugs, killing two police officers before putting the gun in his mouth and pulling the trigger.
+
+“Oh my God,” I said, more to myself than the old man. “His apartment was on the 13th floor?” My heart fluttered in my chest as I put together the connections.
+
+“Yes sir,” the old man said, “the last apartment on the right side.”
+
+“I knew it,” I muttered. “That was where I saw… something. Something horrible.” I wondered if Jeremiah Lands had anything to do with the melting shadow-being I had encountered the previous night, if indeed that hadn’t just been a nightmare. Maybe his ghost was upset that I was sleeping in the room where he had committed suicide and taken his final stand.
+
+“By the way,” the old man said, reaching out his hand, “my name is Henry. I’m looking for some help in Angel Trace, and I am willing to pay quite handsomely. I think you are the only one qualified to help me.” He took out a wad of cash from his inner coat pocket. “$2000, in cash, if you show me exactly where this event happened to you, and give me some minor help with a ritual I am planning tonight.” My eyes widened at the money in front of me. I could potentially use that money for a security deposit,, and maybe get out of this constant cycle of homelessness and joblessness.
+
+“My name is Dmitri,” I said, shaking his hand and feeling the small, bird-like bones beneath his skin, “and you have a deal.”
+
+As the last rays of sun disappeared, we walked into the musty entrance of the complex. The noises and smells of summer faded behind us as we walked up the staircase to the thirteenth floor. The entire building smelled like dust, decaying wood and mold.
+
+By the time we got to the apartment of Jeremiah Lands, I took out my new flashlight to guide our way. The sunlight had all disappeared, and with no nearby streetlamps, only the light of the full moon shone through the broken windows.
+
+Henry quickly assembled his materials for the ritual, drawing a seven-pointed star across the entire floor of the room with blood. I didn’t ask what kind of blood it was or where he got it. Some questions might be better left unasked.
+
+He lit thirteen black candles around the star, claiming that the candles had cremated human remains mixed in with the wax. Then he got down on his knees in the center of the star and started chanting in a language I had never heard before. It almost sounded like Hebrew or Arabic, but I knew a little of each and could tell it wasn’t either. 
+
+Without a word or a moment of hesitation, he took out a dagger from his pocket and sliced his left hand wide open, letting the flood of blood pool in the center of the star. He started chanting faster and louder, and I saw with horror that his blood was reforming itself into a bloody, cataract-covered eye on the floor. It looked quickly around in all directions, its milky pupil dilating rapidly. The chanting stopped, but the room was humming, as if with thousands of electrical power lines overhead. It felt hard to breathe, like the room was closing in around me. And then, within the space of a moment, the humming stopped and all Hell broke loose.
+
+Outside the windows, I saw endless insectoid eyes all the way to the horizon. They flitted rapidly, looking in all directions. As I drew closer, I realized the building was surrounded by millions of massive buzzing monstrosities. Dragonflies the size of airplanes flew through the sky, their blood-red eyes coldly regarding the earth below.
+
+A black, fetid-smelling stream now ran directly beneath the window. Scorpions and snakes continuously crawled out of it, their stingers and fangs looking like swords, their gargantuan bodies moving unbelievably fast, blurring across the ground. I heard countless overlapping screams and saw thousands of naked, bleeding people, constantly stung by the scorpions or bitten by the snakes. Their bodies swelled and turned purple and blue, their throats closing from the effects of the poison, but as soon as they stopped thrashing and died, their injuries all miraculously healed themselves. They would rise up, screaming and gagging, until a new horror overtook them.
+
+“Where are we?” I asked myself as I looked into the alien world outside. There were no stars in the sky, no moon, just an endless inky gray sheet above us. I knew we weren’t on Earth anymore.
+
+“This is the place where the insane dream and the gods of old drink the blood of the lambs,” Henry said in a hoarse voice behind me, choking and gasping for breath. I turned around and saw that the bloody seven-pointed star had disappeared, as if the hardwood floor had simply drunk up every drop of blood and left no trace. The eye that had been in the floor in the center of the room now belonged to a tall eldritch abomination.
+
+It stood over ten feet tall, its single milky eye constantly searching, its body pure black and shining, like the skin of a poisonous snake. Its mouth opened, unhinging and dropping nearly to the floor, and it began to speak in a buzzing, insectile voice. Its word had no changes in cadence or pitch, and an almost robotic emotionless quality to them.
+
+“Thirsty,” it said in a monotone voice. “Henry Lands, let me drink.” It spoke his name as if it were one word. Henry raised his still gushing hand, standing up slowly, and the monstrosity put its mouth underneath, letting small rivulets of blood rush into his mouth.
+
+“They are welcoming the queen home,” Henry said cryptically as the creature drank his blood. As my anxiety and terror rose, I backed away from them as far as I could, going to the corner of the room and trying not to look out the window. I just wanted this bizarre ritual to be over. What was his endgame in all this? Why did he need me to be with him? I felt like I wouldn’t like the answers to the questions I asked myself.
+
+“Wait,” I said, fear and horror overwhelming me, “did he call you Henry *Lands?* As in the father of Jeremiah Lands?” Henry smiled at me. Blood began to flow out of his nose and eyes as his frail body quivered next to the monstrous creature.
+
+“I am giving myself to bring my son back. His mission was not completed. We needed only one more victim to break through this illusion and open up the doorway to the true world beyond. You see it now before you, just as my son and I did at the beginning.” He raised the bloody dagger to his throat, coughing up a few droplets of blood before putting it underneath his right ear. “And I am the last victim. I give myself to you, my son!” Henry cried out, quickly cutting his throat from ear to ear. The dagger was so sharp that for a moment, it didn’t even look like there was a separation in his flesh. Then his entire head began to fall backwards, held on by only a thin layer of muscle, skin and bone. Blood poured like a waterfall over the front of his chest, soaking his shirt instantly.
+
+The creature throbbed with excitement and energy as its one blind eye looked down on Henry’s dying body. With an insectile voice, it cried, “Your sacrifice is worthy, my father! Worthy is the lamb, but how much greater is the dragon that consumes the world. I have always loved you, father, and what I do now, I do for us- to bring the truth to those without eyes.” It opened a gaping maw with hundreds of shark-like teeth, kneeling down in front of his father’s body and sucking all the blood from his spurting neck. I saw a look of complete and total peace in Henry’s eyes as this demonic spirit of his son ate his remaining life force. He looked like a saint who died knowing Heaven is only seconds away- but there was something twisted and unnatural about the peace that radiated from his dying eyes.
+
+Within seconds, the body began to wither and dry up like a husk. I could see the blood being pulled out of his veins and arteries, the thin, old skin pressing in on itself under the pressure as the son finished consuming the last few drops of vital life essence given to him by his father. The body of the thing that had once been Jeremiah Lands vibrated with shimmering electricity, raising the hairs on my arms.
+
+“Come to us, queen,” he said, his voice growing louder and stronger as he spoke. “The insects welcome you home.”
+
+From outside the window, a booming voice began to roar. I looked out the window and saw a dragon there, its skin fiery red, its huge black eyes staring into the window as it spoke.
+
+“I am the first and the last,” it said, making my ears ring from the sheer force of its voice, “the alpha and the omega, and this world is mine. We shall fill the oceans with the blood of the believers. Open the portal, Jeremiah, and let us bring a new world to humanity.” Jeremiah walked over to the broken window and began smashing the wall open with his black fists, using a superhuman speed and strength to knock the wood out. It flew down thirteen stories, clattering on the sidewalk below, and as I looked through it, I realized that I was no longer solely in the alien world of the ritual. I could see the buildings of the town, the streets and streetlights, along with countless people rushing out of their houses and yelling in panic as they stared up at the red dragon and the thousands of huge insects, snakes and scorpions that rapidly descended upon them. The sky had returned to the one I knew, with stars and a full moon shining brightly, but the swarms of flying monsters soon blocked out all of it.
+
+I heard countless alarms and police cars in the distance, and the wail of what sounded like a tornado siren. The town had certainly begun to notice what was going on, and they rightly were terrified beyond belief. As I looked out the broken wall, I saw tiny figures in the distance carried off by huge dragonflies, bitten in half by giant snakes or stung to death by scorpions the size of a bus.
+
+“The queen dragon welcomes you,” Jeremiah said, turning his thrumming body towards me and looking down at me with his single milky eye. “Will you take the mark of the beast? Only those who follow the queen and have her mark will be free from the stinging horrors.” Jeremiah showed me his hand, where a seven-pointed star was engraved into his palm, red light shining out of it as if illuminated by an inner fire. I looked around at all the people dying, the screams fading away, and I knew I had no choice. I ran.
+
+I knew the Angel Trace complex better than anyone, and it saved me. Jeremiah sprinted after me, but my head-start and my knowledge of the twists and turns of its dilapidated halls let me escape him within a couple minutes. I ran down the floors, heading to the basement. I hid in an old industrial elevator lift that had been built into the structure, slamming the metal door shut behind me and hiding in my own private bunker.
+
+I hid there for what felt like days. As the thirst and hunger began to weaken me, I knew I had to leave or die. I left, walking slowly up the stairs and peering out the front door.
+
+Bodies were strewn all over the streets, but the monsters and the red dragon were gone. There was no sign of Jeremiah Lands. I walked throughout the town and saw only a few living people, all having a seven-pointed star carved into the palm of their left hand. They smiled at me, but none of them said anything. I raided the local grocery store, grabbing food and bottled water, stepping over the bodies of children and their parents as I stuffed whatever I could into my pockets. Then I set out for the border of the town.
+
+I saw a perimeter of military vehicles, the bodies of soldiers strewn over the roads, many of them cut in half or swollen to twice their normal size, their bodies infested with unknown alien poisons. There was not a single police officer or soldier left alive that I saw. I tried to keep my eyes down, avoiding the chaos and bloodshed that surrounded me. I ended up cutting through the woods, walking for over ten miles until I reached the next town over.
+
+There, everything seemed normal, though government agents manned checkpoints on all the roads leading into the town where Angel Trace was located. Police in SWAT gear and gas masks held assault rifles every few feet on the road, and they appeared to glance nervously around. I stopped an elderly woman walking out of the nearby restaurant, and said hello to her. Then I asked her what was going on. She smiled at me.
+
+“Looks like the next town over had some sort of chemical plant explosion,” she said. “The entire area is quarantined. The US military is everywhere, stopping everyone who heads in that direction.”
+
+I wondered where the red dragon had gone, where Jeremiah Lands and all those creatures from the alien world had headed. They were now in our world, and I knew they couldn’t be contained for long.
+
+As I looked down at the old woman’s hand, I saw a seven-pointed star carved into her hand, red light shining out and giving her smile a bloody glow.
+
+“But I think we both know better,” she said to me, leaning close. “The end is near, my son. Will you come and see?”
