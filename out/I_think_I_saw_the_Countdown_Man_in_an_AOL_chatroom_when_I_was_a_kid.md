@@ -27,3 +27,5 @@ After that, I hadn’t had any encounters for years until I read that story.
 And then, a few hours later I’m in the comments section of some random thread on some memes forum, and I see him there, user 222cc34 or something like that. Counting down as people made their comments. And I just noped out of there without a word. To be honest, I’m pretty much ready to delete my account altogether and just go live in the woods where ten people never get together at once.
 
 But… since that’s never gonna actually happen, I just kind of wanted to post here and see if anyone else has experienced anything like this or seen this guy around? [Thanks in advance!](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Related!](https://www.reddit.com/r/nosleep/comments/10xm531/my_dads_countdown_man_stories_make_the_ones_from/)
