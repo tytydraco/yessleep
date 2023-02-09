@@ -1,6 +1,6 @@
-My dad isn’t exactly what you’d call your typical redditor. He’s more of your grizzled, mountain man type guy. Vietnam vet, constantly pissed at me for ‘wasting time on my computer’ (I’m a dev lol.) 
+My dad isn’t exactly what you’d call your typical redditor. He’s more of your grizzled, mountain man type guy. Vietnam vet, constantly pissed at me for ‘wasting time on my computer’ (I’m a dev lol.)
 
-Anyway, I saw a couple of posts pop up recently [here](https://www.reddit.com/r/nosleep/comments/10vcx5u/i_saw_him_counting_backward_i_had_to_try_to_stop/) and [here](https://www.reddit.com/r/nosleep/comments/10wguxp/i_think_i_saw_the_countdown_man_in_an_aol/) that reminded me of some old scary stories he used to tell us right before bedtime (thanks, dad!) and I decided to ask him if there was any truth to them. 
+Anyway, I saw a couple of posts pop up recently [here](https://www.reddit.com/r/nosleep/comments/10vcx5u/i_saw_him_counting_backward_i_had_to_try_to_stop/) and [here](https://www.reddit.com/r/nosleep/comments/10wguxp/i_think_i_saw_the_countdown_man_in_an_aol/) that reminded me of some old scary stories he used to tell us right before bedtime (thanks, dad!) and I decided to ask him if there was any truth to them.
 
 After the conversation started getting interesting, it occurred to me that maybe I should record it. Full disclosure: my dad believes 5G is making us sterile and Covid was a bad cold, so take the whole thing with a grain of salt. I have to admit, though, the whole thing has left me a little unsettled. Transcript below:
 
@@ -8,7 +8,7 @@ After the conversation started getting interesting, it occurred to me that maybe
 
 *Me: Nah, just keep going. Well–actually, maybe start with the baby thing again?*
 
-*Dad: I mean, that’s just something that my mother told me. Back when I was born, they put me in one of those big nursery rooms with a dozen other kids. Kept wheeling them in one at a time for the dads to see through a big window. And then at one point, they wheeled one in and it dropped dead. Heart attack, so they said.* 
+*Dad: I mean, that’s just something that my mother told me. Back when I was born, they put me in one of those big nursery rooms with a dozen other kids. Kept wheeling them in one at a time for the dads to see through a big window. And then at one point, they wheeled one in and it dropped dead. Heart attack, so they said.*
 
 *Me: Are you saying you saw the Countdown Man then? Like, when you were a day old?*
 
@@ -24,9 +24,9 @@ After the conversation started getting interesting, it occurred to me that maybe
 
 *Me: But what about that incident in Vietnam? That seems different than the others. Can you walk us through that?*
 
-*Dad: Right. Well, that was right when we were getting resupplied. Something like summer of ‘68. We were parked pretty far north, and supply drops were a little less frequent. Anyway, we were all pumped because a new drop meant new contraband. It also meant some fresh faces, which was good and bad.* 
+*Dad: Right. Well, that was right when we were getting resupplied. Something like summer of ‘68. We were parked pretty far north, and supply drops were a little less frequent. Anyway, we were all pumped because a new drop meant new contraband. It also meant some fresh faces, which was good and bad.*
 
-*Anyway, just as the choppers were coming in, I saw him standing there, right at the treeline where the open field around the base met the jungle. He was counting quietly, but somehow, I heard his voice clear as day even over the choppers. The first one landed, and guys started jumping out. And every time a new one pops out, I’m hearing ‘Ten, nine, eight.’ You get it.* 
+*Anyway, just as the choppers were coming in, I saw him standing there, dressed in his black coat and his shiny dress shoes, right at the treeline where the open field around the base met the jungle. He was counting quietly, but somehow, I heard his voice clear as day even over the choppers. The first one landed, and guys started jumping out. And every time a new one pops out, I’m hearing ‘Ten, nine, eight.’ You get it.*
 
 *I told my guys to run for fucking cover, and they did, but by then it was too late. All at once, bullets were raining out of that jungle, coming from all directions. One of the new guys got clipped first, right as I heard ‘zero.’ I figured that was the end.*
 
@@ -60,8 +60,8 @@ At this point, my dad stopped talking for a second, and I noticed him staring do
 
 At that point, I kind of figured the interview was done. Honestly, I was getting kind of upset, so I said a quick goodbye and headed home.
 
-Whether the coat and the shoes actually came from the Countdown Man is highly suspect. But there’s no question that my dad is losing it. 
+Whether the coat and the shoes actually came from the Countdown Man is highly suspect. But there’s no question that my dad is losing it.
 
-I guess I just wanted to share this in case anyone else had any insight into what’s going on. There’s no way this story is real, right? It’s just some kind of urban legend. 
+I guess I just wanted to share this in case anyone else had any insight into what’s going on. There’s no way this story is real, right? It’s just some kind of urban legend.
 
 Anyway, if you know anything, [hit me up.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
