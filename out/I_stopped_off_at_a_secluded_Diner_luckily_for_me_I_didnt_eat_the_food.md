@@ -45,7 +45,7 @@ I went through the restroom doors and turned into the restaurant. The tables wer
 
 A voice sounded behind me,
 
-“I hope you will feel more comfortable now sir, please enjoy your meal.” A sinister voice stated behind me. 
+“I hope you will feel more comfortable now sir, please enjoy your meal.”
 
 The waiter had followed me out of the restroom and was stood uncomfortably close behind my back.
 
