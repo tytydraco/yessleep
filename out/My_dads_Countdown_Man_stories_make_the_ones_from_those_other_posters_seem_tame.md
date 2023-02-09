@@ -58,7 +58,7 @@ At this point, my dad stopped talking for a second, and I noticed him staring do
 
 *Me: Is that… is that his fucking coat? Dad, what the fuck?*
 
-At that point, I kind of figured the interview was done. Honestly, I was getting kind of upset, so I said a quick goodbye and headed home.
+At that point, I kind of figured the interview was done. Honestly, I was getting kind of freaked out, so I said a quick goodbye and headed home.
 
 Whether the coat and the shoes actually came from the Countdown Man is highly suspect. But there’s no question that my dad is losing it.
 
