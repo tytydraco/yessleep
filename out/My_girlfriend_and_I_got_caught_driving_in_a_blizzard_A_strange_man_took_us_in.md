@@ -471,7 +471,7 @@ All I can see now when I look at other people, even Jenny, is Randall Mitchell, 
 It's like highway [robbery…](https://youtu.be/7Fz62mJsg7c)
 
 
-[JG](https://www.reddit.com/r/JGcreepypastas/comments/raq7ay/all_stories_20212022/?utm_medium=android_app&utm_source=share)  
+[JG](https://www.reddit.com/r/JGcreepypastas/comments/10y5pnp/please_take_a_minute_to_check_out_my_youtube/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)  
 
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)

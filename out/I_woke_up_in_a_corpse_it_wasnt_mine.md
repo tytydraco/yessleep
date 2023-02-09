@@ -130,7 +130,7 @@ I did not respond in this conversation of one part voice, one part telepathy, in
 
 *Are you one, or are you of many?*
 
-“I am both, one whole divided and bestowed amongst the millions upon billions of corpses left in the wake of life. You must be able to see but a shred of truth in giving myself something to experience other than endless darkness, no?”
+“I am both, one whole divided and bestowed amongst the millions upon billions of corpses left in the wake of life. You must be able to see but a shred of justice in giving myself something to experience other than endless darkness, no?”
 
 Again, I held my imaginary tongue. I had no reason to trust this being’s words, but the cold truth implied did not fail to make me shudder. I felt like a child, learning from a teacher or parent about the world for the first time, and I inadvertently began to believe it.
 
@@ -150,7 +150,7 @@ I then felt warm fingers gently interlock with my remaining hand, and I was pull
 
 Death then began to sing in that haunting tone, playing my vocal cords like a master violinist. I felt the squirming around me, and those repulsive tendrils emerged once again, snaking over my body and slowly covering it. Darkness smothered my existence as I lay embraced in an uncomfortably comforting warmth. Before the light was totally chased away, the singing stopped, and the last thing I saw was my body turn, and walk toward the bathroom door.
 
-\- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - 
+\- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 
 I awoke feeling well-rested and serene. In fact, I had never felt better in my life. I looked around to see that not a single strand of mold remained anywhere in the room, and I sprung off the bed and into the bathroom, remembering the terror I had experienced the day before.
 
