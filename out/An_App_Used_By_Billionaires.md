@@ -156,7 +156,7 @@ And I was kept on that verge for time without, until everything became meaningle
 
 Then almost like a joke. I was dragged, gagged, and bagged. Waking up in a bowling alley, in some city I've never laid eyes on. Not a handler in sight and the smell of crusty shoes in my nose. And I had never been so happy in my life for it. To be done with the app used by billionaires.
 
-Except, I ask myself I if I ever really escaped. Because everyday since they let me go. I've been afraid to do anything. Accomplish anything. Because if I secure anything. They'll just come back and take it from me. To remind me of what loss is, if anything. But if I have nothing. Then I can be free.
+Except, I ask myself I if I ever really escaped. Because everyday since they let me go. I've been afraid to do anything. Accomplish anything. Because if I secure anything. They'll just come back and take it from me. To remind me of what loss is, if anything. But if I have nothing. Then I can be free from everything.
 
 &#x200B;
 
