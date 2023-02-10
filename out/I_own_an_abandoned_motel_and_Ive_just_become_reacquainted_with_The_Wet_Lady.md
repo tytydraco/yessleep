@@ -24,9 +24,9 @@ But that day I hadn’t been in the water. It was overcast and humid and I had s
 
 “I didn’t! I haven’t been swimming today.”
 
-My mom shook her head in disbelief. 
+My mom shook her head in disbelief.
 
-“Then what’s this?” She gestured inside. I sullenly followed her, brimming with injustice. My stomach sank. She was right. There was a trail of sloppy, wet footprints leading from the front door back to the bedroom, culminating in a large puddle in front of the door. 
+“Then what’s this?” She gestured inside. I sullenly followed her, brimming with injustice. My stomach sank. She was right. There was a trail of sloppy, wet footprints leading from the front door back to the bedroom, culminating in a large puddle in front of the door.
 
 “It wasn’t me,” I said, my voice barely above a whisper. My mom was not pleased with the denial.
 
@@ -36,19 +36,19 @@ My face burned in indignation, but I began to wipe up the footprints anyway. It 
 
 I made sure she saw how mad I was at dinner, refusing to speak to her while inhaling my hot dog, pointedly looking past her while slurping my lemonade.
 
-My mom sighed. 
+My mom sighed.
 
 “Listen, Nora. I’m sorry for yelling earlier. I know you didn’t do it on purpose. Can we be friends now?”
 
 “I didn’t do it at all, though!”
 
-She shook her head as she brought our plates to the sink. While I tried to not be as cross the rest of the night, we both were mildly annoyed with each other and went to bed earlier than usual. 
+She shook her head as she brought our plates to the sink. While I tried to not be as cross the rest of the night, we both were mildly annoyed with each other and went to bed earlier than usual.
 
 Despite the day’s unpleasantness, I immediately fell into a deep sleep, as only children can. I opened my eyes hours later. The clock read 3:00 in the morning. Confused as to what had awoken me, I sat up and looked around. My mom was sound asleep, the room was quiet. I decided I needed to use the bathroom, since I was already awake. As I carefully opened the bedroom door so as to not wake my mother, my bare foot made contact with another giant puddle of freezing cold water, sending a chill up and down my little body. I somehow managed to suppress a cry.
 
-Down the hallway, I could see something in the living room. A person, it looked like, standing with its back towards me. *Maybe Martina is back*, I thought hopefully. She would often be doing things around the property at all hours, though she had been noticeably absent the couple days we had been at the Cottages. 
+Down the hallway, I could see something in the living room. A person, it looked like, standing with its back towards me. *Maybe Martina is back*, I thought hopefully. She would often be doing things around the property at all hours, though she had been noticeably absent the couple days we had been at the Cottages.
 
-I took several hesitant steps forward, eyes straining to see the visitor in the dark. The person appeared to be a woman, but it had long pale hair. It stood dripping wet from head to toe, as though it had just left the waters of the river. My heart began to palpitate frantically. *Not Martina*. *Not Martina. Not Martina.* Just then the floorboards under my feet made an agonizing creek. With unnatural speed, the thing’s head whipped around. I couldn’t scream, but tears began to flow down my cheeks in terror. The thing, maybe it had been a person once, had no eyes, just dismal pools of blackness, it’s nose long rotted away. It beckoned to me with dripping, emaciated arms. 
+I took several hesitant steps forward, eyes straining to see the visitor in the dark. The person appeared to be a woman, but it had long pale hair. It stood dripping wet from head to toe, as though it had just left the waters of the river. My heart began to palpitate frantically. *Not Martina*. *Not Martina. Not Martina.* Just then the floorboards under my feet made an agonizing creek. With unnatural speed, the thing’s head whipped around. I couldn’t scream, but tears began to flow down my cheeks in terror. The thing, maybe it had been a person once, had no eyes, just dismal pools of blackness, it’s nose long rotted away. It beckoned to me with dripping, emaciated arms.
 
 “N..n..no,” I whimpered, shaking my head, as though that would dispel the nightmare before me. The thing’s mouth opened and it emitted a strangled, wretched shriek, as if the last breath before drowning. And that was the last thing I remembered before crumpling to the ground.
 
@@ -56,13 +56,13 @@ I took several hesitant steps forward, eyes straining to see the visitor in the 
 
 My mother gathered me in her arms. She was sweating, so warm. I was so cold.
 
-“What…what happened?” I asked feebly. 
+“What…what happened?” I asked feebly.
 
 “I woke up and you weren’t in bed. There was a trail of water leading from the bedroom and out the door of the cottage. In the river, I...” My mother began to sob. “You were floating there. I ran as fast as I could and pulled you out.”
 
 “Mom, it wasn’t me. It was the Wet Lady. She… she didn’t have any eyes.”
 
-She pulled me in tighter and I clung to her nightgown, trying to banish the sound of that terrible cry. 
+She pulled me in tighter and I clung to her nightgown, trying to banish the sound of that terrible cry.
 
 “Shhhhh…It’s okay. You’re safe now. You were just sleepwalking. Sleepwalking to your favorite place. There’s no lady, sweetheart. It’s going to be okay.”
 
@@ -92,9 +92,9 @@ On the first yellowed page, the notes began, in the same blue ballpoint pen as t
 
 That was the only text on the page. *Fiscal quarters?* I would have laughed, had I not been so nauseated by the prospect of having what happened the night before be a *quarterly* event. I grabbed the notebook and went outside to find Martina.
 
-I found her sitting in a folding chair at the dock, dressed in her warmest parka, a woolen hat with cat ears pulled over her head, a thick cat blanket wrapped around her legs. She was fishing. 
+I found her sitting in a folding chair at the dock, dressed in her warmest parka, a woolen hat with cat ears pulled over her head, a thick cat blanket wrapped around her legs. She was fishing.
 
-“We need to talk,” I said waiving the notebook. 
+“We need to talk,” I said waiving the notebook.
 
 She shrugged.
 
@@ -106,7 +106,7 @@ She shrugged again.
 
 “Thought that page should be pretty clear to you. Especially after last night.”
 
-“That happens *four* times a year*?* And what’s with the fiscal quarters nonsense? Taxes? Also, what does it mean to ‘burn the offering’?”
+“That happens *four* times a year\*?\* And what’s with the fiscal quarters nonsense? Taxes? Also, what does it mean to ‘burn the offering’?”
 
 She sighed and looked down at her line into the water.
 
@@ -176,7 +176,7 @@ Martina laughed dryly.
 
 “I appreciate your concern, but, Martina, when is the last time you had a vacation? Don’t you want to retire? I sure as hell didn’t sign up for a lifetime of being responsible for the world’s most terrifying tax regime, but here I am. My name was in the will. Let me learn. Let yourself rest for once. Move to Florida or something.”
 
-“I’m a River Rat through and through, kid. There’s no Florida in it for me. But I hear what you’re saying. I thought it was unfair you got left with this on your shoulders. But…” She trailed off. Her shoulders sagged. She folded up her chair. I grabbed the bucket with the agitated fish. 
+“I’m a River Rat through and through, kid. There’s no Florida in it for me. But I hear what you’re saying. I thought it was unfair you got left with this on your shoulders. But…” She trailed off. Her shoulders sagged. She folded up her chair. I grabbed the bucket with the agitated fish.
 
 “It’s hard for me to admit it. But it would be nice to have the help.”
 
@@ -188,11 +188,11 @@ I thought she would chuckle at my attempt at humor, but instead I thought I coul
 
 \++
 
-She told me to meet her after dark, naturally, but that the exact hour wasn’t important. We settled on ten o’clock. I insisted on meeting at the motel, then walking over. I was not quite ready to be standing in front of Cottage 9 after dark alone. 
+She told me to meet her after dark, naturally, but that the exact hour wasn’t important. We settled on ten o’clock. I insisted on meeting at the motel, then walking over. I was not quite ready to be standing in front of Cottage 9 after dark alone.
 
-We walked over in silence, with only the sloshing of the fish’s bucket as a rhythm to our movement. When we arrived, she handed me a leather pouch. I could feel the smooth marbles inside. The cottage looked completely ordinary, the same pretty wood trim around the gables as the others, an attractive porch, though the screen on this one was perforated in several spots. Martina hobbled over to the door and put down the bucket, splashing a little excess water over the side. 
+We walked over in silence, with only the sloshing of the fish’s bucket as a rhythm to our movement. When we arrived, she handed me a leather pouch. I could feel the smooth marbles inside. The cottage looked completely ordinary, the same pretty wood trim around the gables as the others, an attractive porch, though the screen on this one was perforated in several spots. Martina hobbled over to the door and put down the bucket, splashing a little excess water over the side.
 
-At the sound of the water, I could hear a scurrying sound from inside the cottage that froze me to my place, hand clenched around the bag with the marbles. Martina had hurried behind a bush just out of view and was violently gesticulating for me to put the marbles down and go. My chest was tight, I couldn’t move, my breaths came in short stuttering spurts. 
+At the sound of the water, I could hear a scurrying sound from inside the cottage that froze me to my place, hand clenched around the bag with the marbles. Martina had hurried behind a bush just out of view and was violently gesticulating for me to put the marbles down and go. My chest was tight, I couldn’t move, my breaths came in short stuttering spurts.
 
 Before I could shake myself out of my panic, the door flew open and there before me was the Wet Lady. The black holes locked on to me and it cocked its head, almost as if in recognition. I tried to lift my arm to offer the marbles but the thing let out that ghastly shriek, half gasp, half cry and lunged at me with preternatural speed, wrapping its wet, cold fingers around my neck. It began to squeeze.
 
@@ -202,7 +202,7 @@ I shut my eyes tight against the horror choking the life out of me. With that bu
 
 Almost gingerly, the Wet Lady placed one marble in each of its eye holes. The marbles began to glow a sickly white and it let out another shriek, this one not nearly as filled with malice. It plunged its bony arm into the fish bucket and caught the fish, shoveling it down its throat whole. Satiated, it glided towards the river, not giving me a second glance, terrible eyes illuminated, and dove into the water. I watched the light of the eyes fade as it sunk down to the depths.
 
-I tried to sit up, my head throbbing uncontrollably. Martina stood over me, visibly relieved. 
+I tried to sit up, my head throbbing uncontrollably. Martina stood over me, visibly relieved.
 
 “I’m going to be okay,” I choked out.
 
@@ -210,6 +210,8 @@ I tried to sit up, my head throbbing uncontrollably. Martina stood over me, visi
 
 “No shit.”
 
-I went back to my cottage and poured myself some scotch with a trembling hand, but even that sweet peaty burn wasn’t doing much to calm my nerves. So I typed everything out again, forcing myself to put into words something that has haunted me since childhood. Crazy how well that seems to work. Maybe I’ll actually get some sleep now.  
+I went back to my cottage and poured myself some scotch with a trembling hand, but even that sweet peaty burn wasn’t doing much to calm my nerves. So I typed everything out again, forcing myself to put into words something that has haunted me since childhood. Crazy how well that seems to work. Maybe I’ll actually get some sleep now.
 
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new)
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/)

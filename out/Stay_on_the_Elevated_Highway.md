@@ -1,10 +1,10 @@
 Strange encounter with a dog at a gas station.
 
-Driving on a road under elevated highway, I had to make a stop at an almost-rundown gas station at the edge of a city to buy some snack and use the restroom. It was midday, and while this gas station was always had few visitors, it was never this quiet.  No one was at the pump, and no one was at the convenience store.
+Driving on a road under an elevated highway, sharing it with cement trucks and black smoke spewing 10-wheelers, I had to make a stop at a gas station to buy some snack and use the restroom. It was midday, and while this gas station always had few visitors, it was never this quiet.  No one was at the pump, and the lights were not turned on inside the convenience store.
 
 &#x200B;
 
-There was a faint banging sound that I heard only when I got out of the car. I thought it was a wind blowing on a rusted iron sheet. As I moved closer towards the convenience store, I saw what was causing the sound. **It was a dog with a bucket on its head.** **It was ramming its head up against the iron sheet wall** of an old shanty shack that housed the gas station's water pump.
+There was a faint banging sound that I heard only when I got out of the car. I thought it was a wind blowing on a rusted iron sheet. As I walked away from my car, I saw what was causing the sound. **It was a dog with a bucket on its head.** **It was ramming its head up against the iron sheet wall** of an old shanty shack that housed the gas station's water pump.
 
 &#x200B;
 
@@ -12,7 +12,7 @@ My first thought was, poor thing. The stray probably got its head stuck in a buc
 
 &#x200B;
 
-I hesitate for about a second, but then I immediately set out to get the bucket off of the dog's head right away.  I hesitated because there were news reports of stray dogs with rabies in the area. I didn't want that fear to stop me from helping this poor dog.
+I hesitate for about a second, but then I immediately set out to get the bucket off of the dog's head right away.  I hesitated because there were news reports of stray dogs with rabies in the area. But even then, I didn't want that fear to stop me from helping this poor dog.
 
 &#x200B;
 
@@ -60,4 +60,4 @@ Then suddenly, a welcome sound is heard. A ten-wheeler blasted its horn from beh
 
 &#x200B;
 
-I never appreciated the existence of ten-wheelers before in my life.
+I never appreciated the existence of ten-wheelers before in my life. 
