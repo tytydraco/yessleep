@@ -24,7 +24,7 @@ When I got a closer look,  I realized that it was not a bucket that was on its h
 
 &#x200B;
 
-I paused. As I slowed down my steps, I reconsidered pulling the smiling tiger mask off of this dog. It turned its head following my movement when I move to the side, meaning it could see just fine underneath the mask. Besides, it was a smiling tiger mask, not a bucket. May be it wasn't a stray, but a dog that belong to the gas station owner. I decided to change direction and walk towards the bathroom.
+I paused. As I slowed down my steps, I reconsidered pulling the smiling tiger mask off of this dog. It turned its head following my movement when I move to the side, meaning it could see just fine underneath the mask. Besides, it was a smiling tiger mask, not a bucket. May be it wasn't a stray, but a dog that belong to the gas station owner. I changed direction and walked towards the restroom.
 
 &#x200B;
 
@@ -60,4 +60,4 @@ Then suddenly, a welcome sound is heard. A ten-wheeler blasted its horn from beh
 
 &#x200B;
 
-I never appreciated the existence of ten-wheelers before in my life. 
+I never appreciated the existence of ten-wheelers before in my life.

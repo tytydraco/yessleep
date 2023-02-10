@@ -50,4 +50,4 @@ It turned out that the pillow thingy was a toy pillow their grandchild who was l
 
 I said sheepish goodbyes to them and left.
 
-The baby's wail we heard was the sound the pillow thingy was making when the old man was hugging it when he was sleeping. In my inebriated state, I thought that the sound was coming from the outside, while in reality, it was from the inside of the house.
+The baby's wail we heard was the sound the pillow thingy was making when the old man was hugging it when he was sleeping. In my inebriated state, I thought that the sound was coming from the outside, while in reality, it was from the inside of the house. 
