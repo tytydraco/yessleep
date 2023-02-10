@@ -4,7 +4,7 @@ The night it happened started like any other. I had shot up dope, nodded off for
 
 I first saw the man by accident, as I heard a car passing by the nearby road and peeked my head out to make sure it wasn’t a cop. If someone nearby had seen me hiding behind this fetid-smelling dumpster, waiting, they might call the cops out of spite. But it was just some pick-up truck, his headlights illuminating the silhouette of the man walking towards me. He wore an expensive suit, his hair professionally styled with gel, a heavy gold chain hanging off of his neck. He looked like he was in his late 40s, but still had a strong and chiseled frame.
 
-As soon as he got close, I jumped out of my hiding spot, pulling the gun up. His eyes didn’t even widen in surprise. He didn’t yell out. He just smiled at me, his gray eyes flicking from my gun to my face, covered in a surgical mask, then focusing in on my eyes.
+As soon as he got close, I jumped out of my hiding spot, pulling the gun up. His eyes didn’t even widen in surprise. He didn’t yell out. He just smiled at me, his blue eyes flicking from my gun to my face, covered in a surgical mask, then focusing in on my eyes.
 
 “Empty your pockets, now,” I said, gesturing with the gun at his pants. 
 
