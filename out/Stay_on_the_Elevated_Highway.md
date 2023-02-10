@@ -1,12 +1,12 @@
-This story took place in South East Asia. I had to make a stop at a pretty rundown gas station at the edge of a city to buy some snack and go to the bathroom. Most people would go to the one well lit gas station that were strategically placed before the ramp to the elevated highways. The road under the highway belong the cement trucks, thick black smoke spewing 10-wheelers, and me.
+This story took place in South East Asia. I had to make a stop at a remote gas station at the edge of a city to buy some snack and go to the bathroom. Most people would go to a clean and well-lit gas station that was strategically placed before the ramp to the elevated highways. Few visit this gas station. The road under the highway belong the cement trucks, thick black smoke spewing 10-wheelers, and me.
 
 &#x200B;
 
-It was midday, and I stopped at this gas station before, and it was always quiet, but not this quiet.  No one was at the pump (like New Jersey, in this country you cannot pump your own gas), no one was at the convenience store. There were a few cars there but they could have been parked there for months. It was only me. My tank was still half full, so I just settle for using the restroom.
+It was midday, and while it was always quiet, it was never this quiet.  No one was at the pump (like New Jersey, in this country you cannot pump your own gas), no one was at the convenience store. There were a few old cars there but they could have been parked there for months.
 
 &#x200B;
 
-Contrasting the eerie silence was a light banging sound that I heard only when I got out of the car. At first I thought it was a wind blowing on a rusted iron sheet. As I moved closer towards the convenience store , I saw what was causing the sound. **It was a dog with a bucket on its head.** It was ramming its head up against the iron sheet wall of an old shanty shack that housed the gas station's water pump.
+Contrasting the eerie silence was a faint banging sound that I heard only when I got out of the car. I thought it was a wind blowing on a rusted iron sheet. As I moved closer towards the convenience store, I saw what was causing the sound. **It was a dog with a bucket on its head.** **It was ramming its head up against the iron sheet wall** of an old shanty shack that housed the gas station's water pump.
 
 &#x200B;
 
@@ -14,23 +14,23 @@ My first thought was, poor thing. The stray probably got its head stuck in a buc
 
 &#x200B;
 
-While hesitate for about a second, I immediately move in to get the bucket off of its head right away.  I hesitated because there were news reports of stray dogs with rabies in the area. I didn't want that fear to stop me from helping this poor dog, though.
+While hesitate for about a second, I immediately set out to get the bucket off of the dog's head right away.  I hesitated because there were news reports of stray dogs with rabies in the area. I didn't want that fear to stop me from helping this poor dog.
 
 &#x200B;
 
-As I was walking towards it, the dog stopped ramming its head. It turned in my direction. I was pretty far from it, but it knew exactly which direction I was coming from.
+As I was walking towards it, the dog stopped ramming its head. It turned to my direction. I was still several feet away from it, but it knew exactly which direction I was coming from.
 
 &#x200B;
 
-When I got a closer look,  I realized that it was not a bucket that was on its head. It was some sort of a latex mask, similar to those popular horse mask that people wears at sport events. But this one is a mask of a cartoon tiger. A poorly drawn cartoon tiger, as if it was drawn by a child, or someone who drew it from memory. The tiger's eyes curved upward, and it also had a wide grin. The smile didn't show fangs, but human teeth,  which somehow made it even more unsettling.
+When I got a closer look,  I realized that it was not a bucket that was on its head. It was some sort of a latex mask, similar to those popular horse mask that people wears at sport events. But this one is a mask of a crudely drawn cartoon tiger. It was like a tiger drawn by a child, or someone who drew it from memory. The tiger's eyes curved upward, and it also had a wide grin. The smile didn't show fangs, but human teeth,  which somehow made it even more unsettling.
 
 &#x200B;
 
-I paused. As I slowed down my walking towards it, I started to change my mind about pulling the mask off of this dog. It didn't ram its head on the wall anymore. As I moved, it turned its head following my movement, meaning it could see just fine underneath the mask. Besides, it was a mask, not a bucket. May be it wasn't stray, but a dog that belong to the gas station owner. They will get the mask off of it when they got back, if they weren't the one putting the mask on it in the first place. But what I didn't like the most was that its tail was raised up high, but it was not wagging.
+I paused. As I slowed down my steps, I reconsidered pulling the mask off of this dog. As I moved, it turned its head following my movement, meaning it could see just fine underneath the mask. Besides, it was a mask, not a bucket. May be it wasn't stray, but a dog that belong to the gas station owner. They will get the mask off of it when they got back, if they weren't the one putting the mask on it in the first place.
 
 &#x200B;
 
-I decided to change direction slightly and moved towards the bathroom. I was surprised by how clean it was. Well, as clean as a run-down gas station's bathroom that used water can be anyway.
+I decided to change direction slightly and moved towards the bathroom.
 
 &#x200B;
 
@@ -42,15 +42,15 @@ The dog followed me into a bathroom? Why? Did it think I was going to help it pu
 
 &#x200B;
 
-My urge to relief myself was gone, so this is what scared -less meant. I decided to open the stall very fast and very wide so that it would block the view of from the direction I heard the dog came in. I did not even look and quickly sprint out the other side of the bathroom. I know a dog is more likely to chase you if you run, but I didn't care.
+My urge to relief myself was gone, so this is what scared -less meant. I decided to open the stall very fast and very wide so that it would block the view of from the direction I heard the dog came in. I did not even look and quickly sprint out the other side of the bathroom.
 
 &#x200B;
 
-I got to my car, and got inside. After taking a deep breath, I felt foolish. It's the middle of the day. You can see cars passing by at the entrance of the gas station, this is silly. And it was a dog with a mask stuck on its head, it wasn't going to bite. Why do I have to psych myself up?  If it comes right down to it, I can just fight with this dog. It won't win, I will. That's what I told myself. Then as I was about to drive off, that dog blocked my path. Despite its moving forward cutting in front of me, the mask was turned to its side, directly facing me.
+I got to my car, and got inside. After taking a deep breath, I felt foolish. It's the middle of the day. You can see cars passing by at the entrance of the gas station, this is silly. And it was a dog with a mask stuck on its head, it wasn't going to bite. I even considered going back to take the mask off the dog. Just as I was finishing the thought, that dog blocked my path. Despite its moving forward cutting in front of me, the smiling tiger mask was turned to its side, directly facing me.
 
 &#x200B;
 
-I honked the horn again. This time something I couldn't explain happened. As the dog rearranged its body to face me, the mask looked like it was readjusted by an invisible hand. The movement of the dog's body couldn't have changed the direction of the mask like that. The dog was now facing me, and so was the mask.
+I honked the horn.  It didn't budge. I honked again, and something I couldn't explain happened. As the dog rearranged its body to face me, the mask looked like it was readjusted by an invisible hand. The movement of the dog's body couldn't have changed the direction of the mask like that. The dog was now facing me, and so was the mask.
 
 &#x200B;
 
