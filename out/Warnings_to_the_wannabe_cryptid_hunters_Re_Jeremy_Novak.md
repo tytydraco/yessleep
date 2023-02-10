@@ -200,3 +200,5 @@ I know I've pledged allegiance to another party, but I'm not going to be complic
 [Part 23](https://www.reddit.com/r/nosleep/comments/10qzp5u/warnings_to_the_wannabe_cryptid_hunters_i_cant/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 24](https://www.reddit.com/r/nosleep/comments/10s4uvu/warnings_to_the_wannabe_cryptid_hunters_ive_got/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 26](https://www.reddit.com/r/nosleep/comments/10y9ltj/warnings_to_the_wannabe_cryptid_hunters_my_dad/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

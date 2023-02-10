@@ -10,7 +10,7 @@ One morning, I wake up as a man in his mid-thirties, living in a small town in r
 
 I struggle to maintain any sense of self because I am constantly losing my memories and identity. The cycle continues and I become more and more detached until I feel like I am nothing more than a ghost, haunting the lives of others. How can I love them, be there for them? I am there as long as I can stay awake, then I'm gone. Who takes my place?
 
-As I've lived through countless lives, I've tried to find some answers, some explanation for what's happening, but no one ever seems to remember me or even believe my story. I can't remember if I've been more good or bad. I have wonderful memories. I have memories I wish I didn't.
+As I've lived through countless lives, I've tried to find answers, some explanation for what's happening, but no one ever seems to remember me or even believe my story. I can't remember if I've been more good or bad. I have wonderful memories. I have memories I wish I didn't.
 
 I wake up and I'm in college. I find a dead body next to me. A girl's. I throw up. I call the police and go back to bed. I try to process it. Is it my fault or the fault of the person I'm inhabiting?
 

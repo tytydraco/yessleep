@@ -430,3 +430,5 @@ I wonder, when did I get so disconnected from... everyone? So much so that no on
 Until next time,
 
 Lucy
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10y9aaq/the_last_resort_the_house_always_wins/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
