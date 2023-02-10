@@ -18,31 +18,27 @@ While hesitate for about a second, I immediately set out to get the bucket off o
 
 &#x200B;
 
-As I was walking towards it, the dog stopped ramming its head. It turned to my direction. I was still several feet away from it, but it knew exactly which direction I was coming from.
+As I was walking towards it, the dog stopped ramming its head. It turned to my direction. I was still several feet away, but it knew exactly which direction I was coming from.
 
 &#x200B;
 
-When I got a closer look,  I realized that it was not a bucket that was on its head. It was some sort of a latex mask, similar to those popular horse mask that people wears at sport events. But this one is a mask of a crudely drawn cartoon tiger. It was like a tiger drawn by a child, or someone who drew it from memory. The tiger's eyes curved upward, and it also had a wide grin. The smile didn't show fangs, but human teeth,  which somehow made it even more unsettling.
+When I got a closer look,  I realized that it was not a bucket that was on its head. It was some sort of a latex mask, similar to those popular horse mask that people wears at sport events. But this one is a mask of a crudely drawn cartoon tiger. It was like a tiger drawn by a child, or someone who drew it from memory. The tiger's eyes curved upward, and it also had a wide grin. The smile didn't show fangs, but instead, human teeth,  which somehow made it worse.
 
 &#x200B;
 
-I paused. As I slowed down my steps, I reconsidered pulling the mask off of this dog. As I moved, it turned its head following my movement, meaning it could see just fine underneath the mask. Besides, it was a mask, not a bucket. May be it wasn't stray, but a dog that belong to the gas station owner. They will get the mask off of it when they got back, if they weren't the one putting the mask on it in the first place.
+I paused. As I slowed down my steps, I reconsidered pulling the smiling tiger mask off of this dog. It turned its head following my movement when I move to the side, meaning it could see just fine underneath the mask. Besides, it was a smiling tiger mask, not a bucket. May be it wasn't a stray, but a dog that belong to the gas station owner. I decided to change direction and walk towards the bathroom.
 
 &#x200B;
 
-I decided to change direction slightly and moved towards the bathroom.
+As I was about to do my business in a stall, I felt someone coming in the bathroom. And for once, I was relieved. Finally, another human being at this gas station. But then, something didn't feel right. The footsteps weren't heavy. It sounded like, small feet. Little feet tapping on wet floor tile. Four of them. It was the dog!
 
 &#x200B;
 
-As I was about to do my business, I felt someone coming in the bathroom. And for once, I was relieved. Finally, another human being at this gas station. But then, something didn't feel right. The footsteps weren't heavy. It sounded like, small feet. Little feet tapping on wet floor tile. Four of them. It was the dog!
+The dog followed me into a bathroom? Why? Did it think I was going to help it pull off the mask or something? I was beyond creeped out. Was I being irrational? I did feel sorry for the dog, but if it could see fine and moved fine, someone else can help it later. It sounded selfish, but the fear of rabies and this dog not behaving like a dog should was really freaking me out, more than I wanted to admit to myself at the time.
 
 &#x200B;
 
-The dog followed me into a bathroom? Why? Did it think I was going to help it pull off the mask or something? I was beyond creeped out. Was I being irrational? I did feel sorry for the dog, but if it could see fine and moved fine, someone else can help it later? It sounded selfish, but the fear of rabies and this dog not behaving like a dog should was really freaking me out, more than I wanted to admit to myself at the time.
-
-&#x200B;
-
-My urge to relief myself was gone, so this is what scared -less meant. I decided to open the stall very fast and very wide so that it would block the view of from the direction I heard the dog came in. I did not even look and quickly sprint out the other side of the bathroom.
+My urge to relief myself was gone, so this is what scared -less meant. I decided to open the stall very fast and very wide so that it would block the view from the direction that I heard the dog came in. I sprinted out the other side of the bathroom.
 
 &#x200B;
 
@@ -66,4 +62,4 @@ Then suddenly, a welcome sound is heard. A ten-wheeler blasted its horn from beh
 
 &#x200B;
 
-I have never appreciated existence of 10-wheelers before in my life.
+I never appreciated the existence of 10-wheelers before in my life.
