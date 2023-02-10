@@ -158,4 +158,4 @@ Spotless. Nothing indicated anything had been here at all, not even a single ble
 
 Not my own… no, no, a… a stranger’s face greeted me.
 
-A stranger, named Robert M. Pilford.
+[A stranger, named Robert M. Pilford.](https://www.reddit.com/r/rephlect/comments/10y98z9/i_woke_up_in_a_strangers_corpse/)

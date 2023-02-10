@@ -164,4 +164,4 @@ I don’t participate in that life anymore, really. I still see those friends, b
 
 Those words linger in my head, still. “This one.” Were they referring to me? I really don’t have any rational explanation for what happened that night, what those beings were, their motives… needless to say, the image of that pale sun unfolding is forever etched into my memory.
 
-All I can say now is that if the sun stops setting, and hangs there like a glazed-over eye, don’t stay to see it open up. Don’t be brave, or curious. Just get as far as you can from wherever you find yourself – or be taken somewhere our minds were never intended to witness.
+All I can say now is that if the sun stops setting, and hangs there like a glazed-over eye, don’t stay to see it open up. Don’t be brave, or curious. Just get as far as you can from wherever you find yourself – [or be taken somewhere our minds were never intended to witness.](https://www.reddit.com/r/rephlect/comments/10rpt04/behold_the_pale_sun/)
