@@ -1,11 +1,6 @@
 Strange encounter with a dog at a gas station.
 
-  
-I had to make a stop at a remote gas station at the edge of a city to buy some snack and go to the bathroom. Most people would go to a clean and well-lit gas station that was strategically placed before the ramp to the elevated highways. Few visit this gas station. The road under the highway belong the cement trucks, thick black smoke spewing 10-wheelers, and me.
-
-&#x200B;
-
-It was midday, and while it was always quiet, it was never this quiet.  No one was at the pump, no one was at the convenience store, and a few old cars that was there could have been there for months.
+Driving on a road under elevated highway, I had to make a stop at an almost-rundown gas station at the edge of a city to buy some snack and use the restroom. It was midday, and while this gas station was always had few visitors, it was never this quiet.  No one was at the pump, and no one was at the convenience store.
 
 &#x200B;
 

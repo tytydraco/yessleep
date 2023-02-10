@@ -1,5 +1,3 @@
-CKX Broadcast Intrusion
-
 For a brief period in 1987 I worked as a technician for a television station called CKX-TV in Manitoba. The channel mostly just aired CBC content like Sesame Street, Anne of Green Gables, Babar, and other children shows. At least that’s what they usually aired in the morning and sometimes in the afternoon, I didn’t work at night. 
 
 There was this show called “Not my Department” It was this shitty sitcom about civil servants, it honestly sucked and I don’t recommend anyone watching it. Anyways, it was a late afternoon in November and I was getting ready to leave when some girl working at the station ran up to me as I was putting my mucks on and urged me to go see what was currently being transmitted. I sighed and walked through the hallways of the station and looked at the first television set I saw.
