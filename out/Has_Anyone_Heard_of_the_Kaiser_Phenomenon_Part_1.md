@@ -16,7 +16,7 @@ But I asked them anyway, and they broke the theory down into fundamental parts. 
 
 There's also an extremely rare but non-zero case that someone can get stuck in-between the main vector and sub-scalar timelines, and in that case their existence is like, superimposed on top of the scalar timeline. I KNOW this doesn't make sense. I might be relaying this wrong, I don't know, it honestly doesn't really make sense to me either, but anyway.
 
-I tried asking xAffo_gato about the video itself and the channel it was on, but I never got a response. Since this whole interaction, I've been feeling really strange. Like, chills down my spine, can't sleep kind of strange. I don't know what it means, but since that incident I've been dealing with a weird buzzing in my head that I can't get rid of.
+I tried asking xAffo_gato about the video itself and the channel it was on, but I never got a response. Since this whole interaction, I've been feeling really strange. Like, chills down my spine, can't sleep kind of strange. I don't know what it means.
 
 Oh, and I figured out why the video was so strange to me. I know the woods in the thumbnail, because I live near them. I was out walking this morning and it dawned on me. It's in Ashpan City, North Carolina (ironic name, considering Ashpan is much less a city and much more a rural hellscape of the greatest proportions). And I am a little freaked out because of this, considering my city's… extensive… history with sketchy shit. Cults, coverups, stuff like that. Not a safe place to live. If I could, I would have gone back in time and warned myself NOT to move here.
 
@@ -24,7 +24,7 @@ There is some truth to some of the stories they tell here. Like how in 2017 ther
 
 Or when, in 2011, three highschool kids were found at the bottom of a lake, and autopsies revealed that the bodies' decay indicated they had been dead for weeks. Only problem is, the three of them went missing only two days before they were found.
 
-And ever since I saw that video, time feels like it's slower and faster all at once. And I can't get rid of the tinnitus. It's less like ringing and more like... A fluorescent light constantly flickering on and off.  Things flash in the corner of my eyes, and I am overtaken by a sense of paranoia. Like I'm being watched. 
+And ever since I saw that video, time feels like it's slower and faster all at once. And I can't get rid of the tinnitus. It's less like ringing and more like... A fluorescent light constantly buzzing; flickering on and off.  Things flash in the corner of my eyes, and I am overtaken by a sense of paranoia. Like I'm being watched. 
 
 I've tried to find the video again. I can't. The idea of stumbling upon it again terrifies me, to the point where I can't turn my phone on without the overhead light in my bedroom turned on. I don't know why; I can't quite place what it was about the video that wracked me to my core with fear.
 

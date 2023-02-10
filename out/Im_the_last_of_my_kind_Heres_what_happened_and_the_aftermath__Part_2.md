@@ -68,7 +68,7 @@ When the other lawyer was done the Investigator stood up and walked forward with
 
 It was the investigator who answered, “Her name was Cecelia Flot, and she was hired as the boy and his twin sister’s nanny.”
 
-“A n\*\*\*\*\* woman hired as a ‘royal’ nanny? Interesting,” The judge commented to himself. A few of the jury members gave him a sideways glare as he continued, looking back to me, “Who killed her? Point.” He demanded. I shakily took my prosthetic hand and pointed at the large man who continued to stare at me, unmoving. It was here I got a glimpse of one of the other men in the group and noticed the striking similarities between him and the judge. “And what’s the proof of this?”
+“A black woman hired as a ‘royal’ nanny? Interesting,” The judge commented to himself. A few of the jury members gave him a sideways glare as he continued, looking back to me, “Who killed her? Point.” He demanded. I shakily took my prosthetic hand and pointed at the large man who continued to stare at me, unmoving. It was here I got a glimpse of one of the other men in the group and noticed the striking similarities between him and the judge. “And what’s the proof of this?”
 
 Once again the investigator answered, “His scars contain a visual record of the events. We watched that man do it.” The man’s face soured into a scowl at this. It was almost scarier than the smile.
 
