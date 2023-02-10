@@ -18,6 +18,12 @@ Published August 2021
 
 **Part Two: the Autopsy**
 
+&#x200B;
+
+[Part Three: a Letter](https://www.reddit.com/r/nosleep/comments/10qu4nr/i_found_evidence_of_a_nuclear_accident_that_never/)
+
+&#x200B;
+
 The story of the woman at the bar left me floored. Nobody could have predicted such a gruesome turn of events, and I left the interview quickly. I’d given Kitts the money I had promised, but internally, I brushed him off as a grifter. However, this led me down a rabbit hole. How would I verify what happened that day, outside of eyewitness accounts?
 
 This line of thought led me on a short road trip to Manassas, Virginia. Due to the number of casualties resulting from the incident at Grouse Springs, many coroner’s offices from across Virginia, Maryland, and D.C. were required to step in and assist in the examination and identification of bodies. Grouse Springs was considered the primary jurisdiction of the Northern Virginia office, so I figured that would be my best starting point. Luckily, it also was my last.
