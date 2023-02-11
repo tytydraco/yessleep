@@ -1,6 +1,6 @@
 Strange encounter with a dog at a gas station.
 
-Driving on a road under an elevated highway, sharing it with cement trucks and black smoke spewing 10-wheelers, I had to make a stop at a gas station to buy some snack and use the restroom. It was midday, and while this gas station always had few visitors, it was never this quiet.  No one was at the pump, and the lights were not turned on inside the convenience store.
+Driving on a road under an elevated highway with cement trucks and black smoke spewing 10-wheelers around me, I had to make a stop at a gas station to buy some snack and use the restroom. It was midday. while this gas station always had few visitors, it was never this quiet.  No one was at the pump, and the lights were not on inside the convenience store.
 
 &#x200B;
 
@@ -12,7 +12,7 @@ My first thought was, poor thing. The stray probably got its head stuck in a buc
 
 &#x200B;
 
-I hesitate for about a second, but then I immediately set out to get the bucket off of the dog's head right away.  I hesitated because there were news reports of stray dogs with rabies in the area. But even then, I didn't want that fear to stop me from helping this poor dog.
+I hesitated for about a second, but then I immediately set out to get the bucket off of the dog's head right away.  I hesitated because there were news reports of stray dogs with rabies in the area. But, I didn't want that fear to stop me from helping this poor dog.
 
 &#x200B;
 
@@ -20,11 +20,13 @@ As I was walking towards it, the dog stopped ramming its head and turned to my d
 
 &#x200B;
 
-When I got a closer look,  I realized that it was not a bucket that was on its head. It was some sort of a whole-head latex mask, similar to those popular horse mask that people wears at sport events. But this one is a mask of a crudely drawn cartoon tiger. It was like a tiger drawn by a child, or someone who drew it from memory. The tiger's eyes curved upward, and it also had a wide grin. The smile didn't show fangs, but instead, human teeth,  which somehow made it worse.
+When I got a closer look,  I realized that it was not a bucket that was on its head. It was some sort of a whole-head latex mask, similar to those popular horse mask of a crudely drawn cartoon tiger. It was like a tiger drawn by a child, or someone who drew a tiger from memory. The tiger's eyes curved upward, and it also had a wide grin. The smile didn't show fangs, but instead, human-like teeth,  which somehow made it worse.
 
 &#x200B;
 
-I paused. As I slowed down my steps, I reconsidered pulling the smiling tiger mask off of this dog. It turned its head following my movement when I move to the side, meaning it could see just fine underneath the mask. Besides, it was a smiling tiger mask, not a bucket. May be it wasn't a stray, but a dog that belong to the gas station owner. I changed direction and walked towards the restroom.
+I paused. As I slowed down my steps, I reconsidered pulling the smiling tiger mask off of this dog. It turned its head following my movement when I move to the side, meaning it could see just fine underneath the mask. Besides, it was a smiling tiger mask, not a bucket.
+
+ May be it wasn't a stray, but a dog that belong to the gas station owner. I changed direction and walked towards the restroom.
 
 &#x200B;
 
