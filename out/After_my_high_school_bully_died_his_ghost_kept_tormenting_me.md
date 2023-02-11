@@ -116,4 +116,8 @@ As it turned out, that was the last word Mason ever spoke.
 
 For some reason, from that day on, his voice didn’t seem to work anymore. He was still there, a lurking presence, but it was like someone had pressed the mute button. I could tell he was screaming, shouting every epithet in the book. But nothing was getting through any more.
 
-The last time I saw him was on the bus as it took me down to L.A. for college. He was sitting there next to me like usual. Trying to yell, trying to flick at me with completely no effect. And then when we reached the county line, it was like he hit a wall. The bus kept going, but Mason was trapped. And before I knew it, he’d disappeared in the [rearview mirror](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
+The last time I saw him was on the bus as it took me down to L.A. for college. He was sitting there next to me like usual. Trying to yell, trying to flick at me with completely no effect. And then when we reached the county line, it was like he hit a wall. 
+
+The bus kept going, but Mason was trapped in place. We moved forward as he sat in thin air.
+
+And before I knew it, he’d disappeared in the [rearview mirror](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).
