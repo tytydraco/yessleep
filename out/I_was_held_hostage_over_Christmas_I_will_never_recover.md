@@ -26,7 +26,7 @@ Side by side, we walked through the sticky mess of blood, hair, and viscera that
 
 She opened the door, and we stepped into the world.
 
-The sun was shining despite the fact that I felt like it had no right to do so. I blinked, trying to understand why I was seeing something familiar. A sign above the exit door read “1913 Hope Street.” I looked behind me and saw the familiar landscape of Garfield Park.
+The sun was shining despite the fact that I felt like it had no right to do so. I blinked, trying to understand why I was seeing something familiar. A sign above the exit door read “1913 xxxx Street.” I looked behind me and saw the familiar landscape of Garfield Park.
 
 My house was just three blocks away. 
 
@@ -34,7 +34,9 @@ My house was just three blocks away.
 
 Discomfort curdled in my stomach as I realized that all five of us had probably resided nearby. Dirty Santa wanted us to suffer close to home.
 
-“This moment,” I responded in a trembling voice, “is everything. After that experience, we’ll never see life the same way again. We’ll take this with us for the rest of our lives.” I ran a hand through my hair with shaking fingers.
+And so we faced a split path. The cloudless sky was the brightest I’d seen it after a week of slate-gray clouds. It was exactly the sort of thing I’d taken for granted when it was easier to look down and get pissed at an untied shoe or a flat tire, because we focus on the transient at the expense of any bigger picture. Three people would never again experience a bright blue sky, while I had decades of them before me, even if it would never look quite the same. In the end, it was the mundane things I feared losing most when I made the decision to take a man’s life in the hopes of sparing my own.
+
+“This moment,” I responded in a trembling voice, “is everything. After that experience, we’ll never see life the same way again. We’ll take this with us for as long as we live.” I ran a hand through my hair with shaking fingers.
 
 She looked at me without blinking. Concrete silence stiffened between us. 
 
@@ -46,9 +48,9 @@ Then she raised the barrel to her temple and pulled the trigger.
 
 For the fourth time in an hour, I witnessed a death that was far less dignified than I would have believed. Her jaw flapped, one leg jittered, and more blood poured from her skull crater than I thought a person could hold. She foamed at the mouth and vomited while pissing and shitting. 
 
-The kids in the park screamed.
+The kids in the park screamed. I marveled, distantly, at the years of therapy that would inevitably spawn from this brief moment. We suffer because we want to believe that life isn’t fragile. 
 
-Her eyes stayed open the whole time. When they finished twitching, they were staring at me.
+The blonde woman’s eyes stayed open the whole time. When they finished twitching, they were staring at me.
 
 -------
 
