@@ -8,9 +8,9 @@ I sat paralyzed and lifted my hand pointing out to the field.
 
 “Would you look at that? Guess I bit it,” he said. He didn’t even seem bothered, more like amused. “Bet you thought this was gonna be the best day of your life, huh? I wouldn’t bet on it, you little fucking piggy. Now I’m gonna be with you 24/7. I’m gonna watch you piss. I’m gonna watch you shit. I’m gonna watch you stuff that little piggy face. Welcome to the suck, fat boy.”
 
-I grew up in the red half of California, out in a rural section of the central valley. Back in 2016, when I was a senior in high school, every house but mine had a Trump/Pence sign on the front lawn and a Ford truck in the driveway.
+I grew up in the middle of nowhere, California. There wasn’t much to do there, and since 8th grade, Mason Gardner’s favorite hobby was making my life hell. 
 
-There wasn’t much to do there, and since 8th grade, Mason Gardner’s favorite hobby was making my life hell. At least before he died, I’d been able to escape him whenever I went home, retreating into a world of books and video games. After school, I’d usually try to bike home before I saw him, then plop on the couch and devour a bag of chips while I tore through old Arthur C. Clarke novels or played League of Legends.
+At least before he died, I’d been able to escape him whenever I went home, retreating into a world of books and video games. After school, I’d usually try to bike home before I saw him, then plop on the couch and devour a bag of chips while I tore through old Arthur C. Clarke novels or played League of Legends.
 
 Now, there was no retreat. Mason was always there, lurking over my shoulder, whispering in my ear.
 
@@ -116,7 +116,7 @@ As it turned out, that was the last word Mason ever spoke.
 
 For some reason, from that day on, his voice didn’t seem to work anymore. He was still there, a lurking presence, but it was like someone had pressed the mute button. I could tell he was screaming, shouting every epithet in the book. But nothing was getting through any more.
 
-The last time I saw him was on the bus as it took me down to L.A. for college. He was sitting there next to me like usual. Trying to yell, trying to flick at me with completely no effect. And then when we reached the county line, it was like he hit a wall. 
+The last time I saw him was on the bus as it took me down to L.A. for college. He was sitting there next to me like usual. Trying to yell, trying to flick at me with completely no effect. And then when we reached the county line, it was like he hit a wall.
 
 The bus kept going, but Mason was trapped in place. We moved forward as he sat in thin air.
 
