@@ -50,6 +50,6 @@ I tried once to push and prop myself up but that was to no avail, I was shaking 
 
 “Cold…” I muttered to myself before promptly passing out.
 
-Part 4
+[Part 4](https://www.reddit.com/r/nosleep/comments/110pp2s/im_the_last_of_my_kind_heres_what_became_of_me/)
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/10wk5kk/im_the_last_of_my_kind_heres_what_happened_and/?utm_source=share&utm_medium=web2x&context=3)
