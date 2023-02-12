@@ -2,7 +2,7 @@ This was it. My swan song.
 
 My name is Robert Grant.
 
-I just turned 73 last weekend and am enjoying my mornings at Zaza's sipping cappuccinos in my pajamas. I live in a quaint, nice apartment in Montreal and am almost never interested in leaving the comfort of it. I'm a retired P.I. 157 cases successfully closed, 14 left cold, and dozens I never took.
+I just turned 73 last weekend and am enjoying my mornings at Zaza's sipping cappuccinos in my pajamas. I live in a quaint, cozy apartment in Montreal and am almost never interested in leaving the comfort of it. I'm a retired P.I. 157 cases successfully closed, 14 left cold, and dozens I never took.
 
 But my last case is one that continues to haunt me.
 
@@ -12,7 +12,7 @@ It all begins on the morning of August 12, 2019... already two years into my ret
 
 “Mr. Grant! Mr. Grant!” A man yelled outside the door of Apartment 712.
 
-I admit the smoke detector should have woken me. It was blaring throughout the entirety of the seventh floor of the apartment complex. I had been lying on the couch either napping or daydreaming… or perhaps in a state somewhere in between. The alarm continued until my neighbor Will came barreling through the front door, quickly distinguishing the smoky, near fire at the oven by waving a dish towel vigorously at the billowing smoke. I remember him pulling out a burnt, ashy black disc. I don't really remember putting the frozen pizza in the oven, to be honest.
+I admit the noise should have woken me. It was blaring throughout the entirety of the seventh floor of the apartment complex. I had been lying on the couch either napping or daydreaming… or perhaps in a state somewhere in between. The alarm continued until my neighbor William came barreling through the front door, quickly distinguishing the smoky, near fire at the oven by waving a dish towel vigorously at the billowing smoke. I remember him pulling out a burnt, ashy black disc. I don't quite remember putting a frozen pizza in the oven, to be honest.
 
 “You’ve gotta be more careful, Mr. Grant,” William said to me.
 
@@ -58,7 +58,7 @@ I remember looking at my cappuccino and scone, wondering if this silly call and 
 
 Frankie laughed. He knew had me on the hook.
 
-"Those will have to come in person. My client would prefer to discuss all of this in person. Today at 1pm."
+"Those will have to come in person. Client would prefer to discuss all of this in person. Today at 1pm."
 
 "Where?"
 
@@ -104,7 +104,7 @@ We didn't talk much until we had ordered and sat across from each other in a sma
 
 "Were those on the news?" I asked her, genuinely curious.
 
-I then quickly felt terrible I hadn't paid more attention to news outside the entertainment and arts industries. But Marla didn't seemed bothered by my answer. In fact, she grew much quieter all of a sudden, almost disappearing into herself.
+I always feel terrible that I don't pay more attention to the news outside of the arts and entertainment. But Marla didn't seemed bothered by my lack of knowledge. In fact, she grew much quieter all of a sudden, almost disappearing into herself.
 
 "It's alright," I said. "I think I'm tracking with you. Missing kids, a handful of them. And no one is reporting on it."
 
@@ -114,15 +114,15 @@ There was a long bit of silence as she contemplated if she was going to continue
 
 I laughed. I thought she was joking at first, but I quickly realized she wasn't.
 
-"I believe the missing children... that they're all connected. There is a man I believe is running a trafficking ring. He's calling himself Osvaldo."
+"I believe the missing children... that they're all connected. There is a man I believe is running a sort of trafficking ring. He's calling himself Osvaldo."
 
 "Jesus."
 
-"No..." She said softly. "Osvaldo is a fallen angel and I believe he is on Earth collecting children for Satan. Osvaldo is acting as an advisor to the wealthy. He's playing the role of an art dealer and has gotten in deep with the rich and powerful. The media is looking the other way."
+"No..." She said softly. "Osvaldo is a fallen angel and I believe he is on Earth collecting children for Satan. Osvaldo is acting as an advisor to the wealthy. He's playing the role of an art dealer and has made himself invaluable to the rich and powerful. The media is looking the other way."
 
 I sat there speechless. I remember thinking I couldn't wait to slap Frankie for setting up this lunch. I think Marla could tell she was losing me.
 
-"No, Mr. Grant. You must believe me. I've studied him by many names in art. That's my background. There are stories of collectors of innocent souls who work for the devil.
+"You must believe me. I've studied him by many names in art. That's my background. There are stories of collectors of innocent souls who work for the devil.
 
 "Look, I think I could maybe help you out... if you had some sort of proof... Maybe..."
 
@@ -130,6 +130,6 @@ A lightbulb went off for her.
 
 "Of course!" She nearly yelled, frantically looking through her purse for something.
 
-She then stopped and turned back towards me, now holding something in her hands.
+I have to admit, the hair on my arms started standing up. She was so confident. Then she stopped rummaging through her purse and turned back towards me, now holding something in her hands.
 
 \*\*\*\*\*\*\*\*\*\*
