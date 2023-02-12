@@ -2,7 +2,7 @@ This was it. My swan song.
 
 My name is Robert Grant.
 
-I just turned 73 last weekend and am enjoying my mornings at Zaza's sipping cappuccinos in my pajamas. I live in a quaint, cozy apartment in Montreal and am almost never interested in leaving the comfort of it. I'm a retired P.I. 157 cases successfully closed, 14 left cold, and dozens I never took.
+I just turned 73 last weekend and am enjoying my mornings at Zaza's sipping cappuccinos in my pajamas. I live in a quaint, cozy apartment in Montreal and am rarely interested in leaving the comfort of it. I'm a retired P.I. 157 cases successfully closed, 14 left cold, and dozens I never took.
 
 But my last case is one that continues to haunt me.
 
@@ -24,7 +24,7 @@ I admit the noise should have woken me. It was blaring throughout the entirety o
 
 “You usually do that at the same time?”
 
-“What?”
+“I do many things simultaneously.”
 
 "No one was hurt, that’s all that matters. How about you come over for dinner tonight? Corrine’s making a turkey," he finally said.
 
@@ -118,11 +118,11 @@ I laughed. I thought she was joking at first, but I quickly realized she wasn't.
 
 "Jesus."
 
-"No..." She said softly. "Osvaldo is a fallen angel and I believe he is on Earth collecting children for Satan. Osvaldo is acting as an advisor to the wealthy. He's playing the role of an art dealer and has made himself invaluable to the rich and powerful. The media is looking the other way."
+"No..." She said softly. "Osvaldo is a fallen angel and I believe he is on Earth collecting children for Satan. Osvaldo is acting as an advisor to the wealthy. He's posing as an art dealer and has made himself completely invaluable to the rich and powerful. The media is looking the other way."
 
 I sat there speechless. I remember thinking I couldn't wait to slap Frankie for setting up this lunch. I think Marla could tell she was losing me.
 
-"You must believe me. I've studied him by many names in art. That's my background. There are stories of collectors of innocent souls who work for the devil.
+"You must believe me. I've studied him by many names in art. That's my background. There are stories of collectors of innocent souls who work for the devil."
 
 "Look, I think I could maybe help you out... if you had some sort of proof... Maybe..."
 
@@ -130,6 +130,26 @@ A lightbulb went off for her.
 
 "Of course!" She nearly yelled, frantically looking through her purse for something.
 
-I have to admit, the hair on my arms started standing up. She was so confident. Then she stopped rummaging through her purse and turned back towards me, now holding something in her hands.
+I have to admit, the hair on my arms started standing up. She was so confident. Then she stopped rummaging through her purse and turned back towards me, now holding two things in her hands. Her phone and a small, gold lighter.
 
+She passed me the lighter and began pulling up something on her phone.
+
+"What am I looking at here?" I asked her.
+
+"Osvaldo's lighter."
+
+I noticed the odd markings on the case. An outline of an archaic serpent.
+
+"Here," she said, holding up her phone.
+
+It was a picture of a painting, a renaissance style painting of what looked to me to be angels and demons fighting outside a farmhouse. All had various weapons.
+
+"Are you following?" she asked. "Gold lighter with those markings."
+
+"A bit," I said.
+
+She used her fingertips to zoom in on her phone on one of the angels in particular, who seemed to be on neither side of the battle but was simply there watching. Based on appearances, you would guess he was on the side of the angels. But as she kept zooming in, you could see a small gold scepter in his right hand. It had that same archaic serpent symbol etched on the side.
+
+\*\*\*\*\*\*\*\*\*\*  
+(END OF PART 1)  
 \*\*\*\*\*\*\*\*\*\*
