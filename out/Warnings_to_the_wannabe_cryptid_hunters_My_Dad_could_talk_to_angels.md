@@ -216,7 +216,7 @@ On that rather frustrating note, we parted ways. We spent some time searching th
 
 "Best to just hope he has something else on his plate at the moment. If I bring you up again, he might end up doing the exact opposite; drop by early out of pure spite."
 
-I got that, and thus settled on waiting back home. It was all we could think to do. It was weird, though, sitting in the living room together with Cas napping on the couch beside us. Part of me wanted to talk about Jacek and myself in a “where do we go from here?”-kind of way; but that was a conversation I truly did not want to rush. Like he’d said, with everything going on, it truly would be more sensible to wait. We chatted about some lighter stuff, and then ended up turning on the television. There was a rerun of an old horror movie which we tuned into. I hadn't taken the time to really get into a movie for a while, so I didn't recognize it until Jacek spoke up.
+I got that, and thus settled on waiting back home. It was all we could think to do. It was weird, though, sitting in the living room together with Cas napping on the couch beside us. Part of me wanted to talk about Jacek and myself in a “where do we go from here?”-kind of way; but that was a conversation I truly did not want to rush. Like he’d said, with everything going on, it would be more sensible to wait. We chatted about some lighter stuff, and then ended up turning on the television. There was a rerun of an old horror movie which we tuned into. I hadn't taken the time to really get into a movie for a while, so I didn't recognize it until Jacek spoke up.
 
 "That's Eight Legged Freaks."
 
