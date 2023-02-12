@@ -47,7 +47,7 @@ In need of eye bleach I scrolled straight down to the comments. How the hell was
 
 &#x200B;
 
-Those are just examples in what was a sea of praise for Jack\_Rabbit\_Slime's gross story. But then I noticed one comment that stood out from the rest.
+Those are just examples in what was a sea of praise for **Jack\_Rabbit\_Slime's** gross story. But then I noticed one comment that stood out from the rest.
 
 &#x200B;
 
@@ -55,13 +55,13 @@ Those are just examples in what was a sea of praise for Jack\_Rabbit\_Slime's gr
 
 &#x200B;
 
-Thank God the site hadn't gone completely mad! I took a leaf out of bastianbeast's book and reported the story to the site admins. Then I settled on something from an author I knew would make those mental images disappear; something a little more *Sylvanian Families.*
+Thank God the site hadn't gone completely mad! I took a leaf out of **bastianbeast's** book and reported the story to the site admins. Then I settled on something from an author I knew would make those mental images disappear; something a little more *Sylvanian Families.*
 
 About a week later, another story by **Jack\_Rabbit\_Slime** appeared in the most liked of the day. Morbid curiosity made me click, and I started reading through squinted eyes.
 
 It began with a cat giving birth to a litter of kittens, which was described as a traumatic event for the mother. The mental and physical aspects of giving birth were described in great detail, including the injuries received as a result.
 
-Once the last kitten was born, the mother began to lick them clean. But she realised only one of the litter had survived. As a result of her suffering, the mother carried the only surviving kitten to a stream, where she proceeded to hold it under water.
+Once the last kitten was born, the mother began to lick them clean. But she realized only one of the litter had survived. As a result of her suffering, the mother carried the only surviving kitten to a stream, where she proceeded to hold it under water.
 
 I stopped reading there, although when I scrolled the page there were still several paragraphs left to go. It was clear that the disturbing story didn't fit within the site's rules. But once again, there was an abundance of love for the author in the comment section. Apart from one.
 
@@ -95,7 +95,7 @@ At least a week went by and I hadn't received a response, despite them leaving c
 
 ***Apologies for not getting back to you sooner. I've been reluctant to open chat requests, having received a lot of abuse here. You are well and truly a breath of fresh air!***
 
-***I have no idea why their stories continue to be allowed but my attempts to shut them down have been fruitless. I've reported every story, and sent several direct messages to the mods. Each time I eventually get a reply it's along the lines of 'after investigating, we've decided they're not breaking any rules, blah blah blah.' Are they for real??***
+***I have no idea why their stories continue to be allowed but my attempts to shut them down have been fruitless. I've reported every story, and sent several direct messages to the admins. Each time I eventually get a reply it's along the lines of 'after investigating, we've decided they're not breaking any rules, blah blah blah.' Are they for real??***
 
 ***Honestly, I don't know why I bother. But I'm really happy to hear you are on my side. Perhaps together we can make a difference*** 🙂
 
@@ -105,7 +105,7 @@ At least a week went by and I hadn't received a response, despite them leaving c
 
 He was actually Seb from Omaha, Nebraska. My real name is Nate and I reside just outside of Tulsa, Oklahoma. We became friends and chatted regularly via Skype, realizing we had more in common than just a mutual appreciation for a particular type of fiction. Not being a million miles away from each other, we even discussed meeting in person at some point in the near future.
 
-We continued to report Jack\_Rabbit\_Slime's stories, and I began publicly commenting on them too in hope it would encourage other readers to do the same. One evening I logged in to the site and had a chat notification. My heart jumped when I saw who it was from:
+We continued to report **Jack\_Rabbit\_Slime's** stories, and I began publicly commenting on them too in hope it would encourage other readers to do the same. One evening I logged in to the site and had a chat notification. My heart jumped when I saw who it was from:
 
 **Jack\_Rabbit\_Slime wants to chat. Accept / Decline**
 
@@ -153,13 +153,13 @@ Once our conversation was over I reported the message. Despite what Seb had said
 
 ***Fuck them. Fuck Jack. Let's go for it***.
 
-We went through Jack\_Rabbit\_Slime's entire back catalogue of stories and bombarded the comment sections in protest. It didn't take long before I started to receive my own hate mail from his fans. Each one made me feel awful, but it had become a personal mission to cancel him. So we continued.
+We went through **Jack\_Rabbit\_Slime's** entire back catalogue of stories and bombarded the comment sections in protest. It didn't take long before I started to receive my own hate mail from his fans. Each one made me feel awful, but it had become a personal mission to cancel him. So we continued.
 
 Jack had posted at least twice a week for several years. Almost a week went by with no new story. By the end of the next week there was still no story, and the harassment from his fans began to dwindle too. It was a small win but it felt like we’d achieved something.
 
-One evening I was chatting to Seb over Skype when my doorbell rang, so I said I’d call him right back. I looked through the peephole and couldn’t see anyone, just the dimly lit hallway of my apartment building. I opened the door and looked both ways down the hall. There was no one around. As I turned back my foot tapped something.
+Last night I was chatting to Seb over Skype when my doorbell rang, so I said I’d call him right back. I looked through the peephole and couldn’t see anyone, just the dimly lit hallway of my apartment building. I opened the door and looked both ways down the hall. There was no one around. As I turned back my foot tapped something.
 
-It was a bright pink gift box, about 6x6”. It was sealed with white ribbon and topped with an elaborate bow. I crouched down to pick it up, wondering if it was left by mistake. But there was a tag tucked under the ribbon handwritten with *Nathan x*. I smiled to myself as I shut the door and carried it through my apartment. I had no idea what the occasion was but it was quite exciting!
+It was a bright pink gift box, about 6x6”. It was sealed with white ribbon and topped with an elaborate bow. I crouched down to pick it up, wondering if it was left by mistake. But there was a tag tucked under the ribbon handwritten with '*Nathan x*'. I smiled to myself as I shut the door and carried it through my apartment. I had no idea what the occasion was but it was quite exciting!
 
 I placed the box on my dining table and sat down, untying the ribbon and removing the lid. There was a printed card sitting on top of white tissue paper. It was postcard sized, white with an ornate pink border. The words were written in black in beautiful handwriting:
 
@@ -177,7 +177,7 @@ I heard a notification sound come from my laptop. I stepped away from the table 
 
 &#x200B;
 
-***Jack: very happy un-birthday to you, Nate. I hope you liked the gift?***
+***Jack: A very happy un-birthday to you, Nate. I hope you liked the gift?***
 
 ***Me: How do you know where I live you sick fuck??***
 
@@ -201,7 +201,7 @@ I checked the post feed on the website and sure enough, there was a new story fr
 
 **Have you ever seen a panther that is pink?** ***Think!*** **A panther that is positively pink?**
 
-**When you were a little boy, all you ever dreamed about was seeing a** ***real*** \*\*pink panther. The day your mommy told you '\*\****pink panthers are only in cartoons'*** **was a sad day for lil Nate, wasn't it?**
+**When you were a little boy, all you ever dreamed about was seeing a real pink panther. The day your mommy told you 'pink panthers are only in cartoons' was a sad day for lil Nate, wasn't it?**
 
 ***Surprise!***
 
@@ -217,7 +217,7 @@ Already on edge, I jumped out of my skin as the ringtone kicked in.
 
 **Jack wants to connect with you on Skype**
 
-The profile picture was of a cute cartoon rabbit, with rosy whiskered cheeks and sparkled eyes. I stared at the screen in disbelief, my heart racing.
+The profile picture was a cute cartoon rabbit, with rosy whiskered cheeks and sparkling eyes. I stared at the screen in disbelief, my heart racing.
 
 Another line appeared on the post.
 

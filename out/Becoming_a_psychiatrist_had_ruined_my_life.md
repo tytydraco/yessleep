@@ -62,7 +62,7 @@ I woke up in the nurse's office, strapped to a chair. I get approached by a nurs
 
 
 I felt very nauseous about the whole day, and just wanted some rest. So, I decided to ignore my gut feeling, and try going home. I get into my car and start driving. A figure appears into the backseat and scares me. My heart is beating faster in my chest, as I start to pull over and inspect my car. I frantically check, but nothing seemed to be there. Just as I was turning around to continue driving, a sharp hand pulled my shoulder. I start to cry out in pain, but the figure simply covers my mouth.  
- I bite the monster's hand as hard as I can, which makes it retreat a little bit, and I started to run away, abandoning my car.   
+I bite the monster's hand as hard as I can, which makes it retreat a little bit, and I started to run away, abandoning my car.   
 
 
 I felt better after running for a few minutes and not seeing it around. I enter my home, and desperately climb into bed. My heart continued to pound as I started to sleep.   
