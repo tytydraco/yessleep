@@ -12,7 +12,7 @@ I bought a bottle of whiskey I couldn’t afford as soon as I was sure Thomas wa
 
 I was on my second sip when an email flashed across my phone which stole my attention. 
 
-The email came from mountainfortune@gmail.com \- subject Re: What you did to Thomas
+Subject Re: What you did to Thomas
 
 The title made my entire body go cold even though I had just taken drinks of warm whiskey.
 
