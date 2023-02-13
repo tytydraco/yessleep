@@ -58,7 +58,9 @@ One of the men looked down at the water and with an uneven look on his face said
 
 He needn't worry. When we finally passed the white ocean, and pulled up the lines. All of the life in the nets that we had been trolling, were dead.
 
-We were ordered to toss our haul back into the water, as the ship chugged along. That morning one of the younger guys who had been sleeping, talked about seeing something in the water at night. A face. A woman's face, but she was clear as glass. He told us she curled her fingers and beckoned him. And the urge to be by her side made him consider smashing the window. But the First Mate had snuck up behind him and covered his mouth. Dragging him away into the hall, to explain to him that it is better to believe that there was nothing there. That the ocean does funny things to our brains. That the salt changed our chemistry.
+We were ordered to toss our haul back into the water, as the ship chugged along.
+
+That morning one of the younger guys who had been sleeping, talked about seeing something in the water at night. A face. A woman's face, but she was clear as glass. He told us she curled her fingers and beckoned him. And the urge to be by her side made him consider smashing the window. But the First Mate had snuck up behind him and covered his mouth. Dragging him away into the hall, to explain to him that it is better to believe that there was nothing there. That the ocean does funny things to our brains. That the salt changed our chemistry.
 
 I soon forgot about it as the others laughed at him. I laughed too, although I never did sleep facing the window again.
 
@@ -108,7 +110,7 @@ And in the morning, as I stared out to this sea of green. I knew that there was 
 
 I hadn't come this far to be skewered by glorified bamboo sticks, so I started breaking down the weeds. Using their own splinters for binding as they were quite malleable. In order to make a raft to leave from the receded shoreline in the distance.
 
-Each day I would wake up and clear my work area. I had left the hole far behind and had setup camp near the water's edge. The waves would hit the newfound shore but it never climb much further.
+Each day I would wake up and clear my work area. I had left the hole far behind and had setup camp near the water's edge. The waves would hit the newfound shore but it never climbed much further.
 
 I began to believe that this island was seasonal. Appearing when the water was low and being engulfed during high tides throughout the year. And that the hole had always been there. stretching into the mantle and dispersing into steam as tectonic plates shifted. Which led me to think that there must be more of these bottomless holes out there, dotting the globe, hiding under the water as we floated over them.
 
@@ -134,15 +136,15 @@ It was night at the chance encounter, and yet I was roaring to go to work. Which
 
 One slug turned to two. It was only a matter of time before I was stuffing down handfuls of them throughout the day in order to sustain the euphoria. And when that wasn't enough. I finally drove myself to the top of the third type of weed. And picked the fruit. Peeled it. And ate it right from the source.
 
-I came in and out of consciousness for many days and many nights afterwards. Or perhaps it was only several hours. I do not remember. All I know is that when I regained my humanity. The hole was groaning in the distance, the water was harsh against the shore, and my legs were covered in slugs. I screamed as I felt one crawl against my neck. I felt it reach into my mouth, probe against the roof above my tongue, and tickle me. It was like a flashback that I could see. Then another. Soon I was having trouble controlling my arm. Instead those fingers caressed my face as if it had longed to be touched. Immediately I suspected the prolonged effects of the fruit as I lost my left eye. The vision shut down completely. The suddenly darkness on one side, caused me to come tumbling into the sand.
+I came in and out of consciousness for many days and many nights afterwards. Or perhaps it was only several hours. I do not remember. All I know is that when I regained my humanity. The hole was groaning in the distance, the water was harsh against the shore, and my legs were covered in slugs. I screamed as I felt one crawl against my neck. I felt it reach into my mouth, probe against the roof above my tongue, and tickle me. It was like a flashback that I could see. Then another. Soon I was having trouble controlling my arm. Instead those fingers caressed my face as if it had longed to be touched. Immediately I suspected the prolonged effects of the fruit as I lost my left eye. The vision shut down completely. The sudden darkness from one side of my brain, caused me to come tumbling into the sand.
 
 The fall shocked my senses, and with my free hand I reached into my mouth to pull the slug out as I got to my feet. I could feel its thin slimy tendrils pressed into my throat as I pulled the suctions off the pink of my skin and squeezed my hand shut around its body. I could almost hear it scream as the slug oozed out of my palm. Slowly I felt my vision return to normal. And regained control of my lost appendage. I got to my feet and tried tearing off as many slugs off of me as I could. But there were just too many, and the tides were closing in. I could hear the water coming.
 
 So I shut the qualm wailing in my heart and ran with all my might toward the raft. Several times I was nearly lifted off my feet as I jumped and dove through the jungle as the hole began to breathe, uprooting bits and pieces of the dead within its grave. But I managed to hang on to the last banded straws and forced myself aboard the flotation device.
 
-Ocean water came circling in. I prayed that we would float as the water rose, crashing past me like long fingers tearing out the ground as I was lifted into the air. I opened my sail but to my horror the thing folded backwards. The raft crashed into the remaining limbs that punched through the surface of the cold water, before settling enough for me to slash the sail open. But it was no use. My raft and I were dragged toward the center. As I went over the edged, I had one look of the darkness staring back at me before it swallowed me whole.
+Ocean water came circling in. I prayed that we would float as the water rose, crashing past me like long fingers tearing out the ground as I was lifted into the air. I opened my sail but to my horror the thing folded backwards. The raft crashed into the remaining limbs that punched through the surface of the cold water, before settling enough for me to slash the sail open. But it was no use. My raft and I were dragged toward the gaping hole. And just as I went over the edged, I had one good look of the darkness staring back at me before I was swallowed whole.
 
-It felt like falling in a dream that never stopped, an unending rollercoaster all the way down to the bottom. Until there was nothing.
+It felt like falling in a dream that never stopped, an unending rollercoaster all the way down to the bottom. Even though there was nothing.
 
 When I woke up. I was being hauled onto a large ship. It was grey steel all over and the deck hands were stripping me naked as I stood unevenly. I could hear their voices but not make out any of the words. Several of them recoiled in horror as they saw the slugs on my ankles and thighs. One of the older men pushed the shocked others, and brushed roughly at my legs as he wrapped me in a blanket.
 
@@ -150,4 +152,4 @@ I watched numbly as the older man forced me to sit. And when I finally leaned ag
 
 When I told them what had happened to me. None of them believed me. They said I had grown delirious from the solitude and perhaps from swallowing salt water. Not even after I rested, would the captain hear my pleas.
 
-Instead on our voyage to a nearby port, the crew spent their time trying to convince me that I had conjured the island and this impossible fantasy in order to cope with my ordeal. But I know they're wrong. Because once I was strong enough to stand in front of a mirror, and open my mouth wide. I could still see the tiny ring marks in the back of my throat whenever I say [ahhhhhh](https://www.reddit.com/r/CornerCornea/comments/u6rx8n/subscribe/).
+Instead, on our way to a nearby port, the crew spent their time trying to convince me that I had conjured the island and this impossible fantasy in order to cope with my ordeal. But I know they're wrong. Because once I was strong enough to stand in front of a mirror, and open my mouth wide. I could still see the tiny ring marks in the back of my throat whenever I say [ahhhhhh](https://www.reddit.com/r/CornerCornea/comments/u6rx8n/subscribe/).
