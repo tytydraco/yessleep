@@ -1,14 +1,14 @@
+This is a love story.
+
 Theresa walks into our *Advanced Game Design: A Sytems Approach* seminar. A guy friend of hers makes a joke as she walks over. She tells her guy friend to f#$k off as she sits down.
 
 She is the embodiment of beauty.
 
 Her sparkling eyes, radiant smile, and blunt language make my heart skip a beat. Her dark, soft skin and silky hair are a constant temptation to gaze at, and the sound of her laughter is music to my ears.
 
-I promise I wasn't a stalker.
+I promise I'm not a stalker. We have known each other for two years.
 
-We had known each other for two years. We were decent friends.
-
-I admit I had been harboring a massive crush on her but would never actually tell her. We were both comp-sci majors. Both of us planned on going into the gaming industry. I sometimes caught myself daydreaming about starting a company together and getting married. I know... a bit pathetic.
+I do have a crush on her. We're both comp-sci majors. Both of us plan on going into the gaming industry. I sometimes catch myself daydreaming about starting a company together and getting married. Maybe we even have kids. I know... a bit pathetic.
 
 The semester rolls by. We both independently stand out to our professor, Andrew. He's a legend in the gaming industry and wants to show us what he's working on. An immersive VR.
 
