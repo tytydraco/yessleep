@@ -4,7 +4,7 @@ This letter is long, and I know you won’t want to read it. But you have to. Yo
 
 After May and I left home, I went to college, got a job as a counselor at an agency, and moved on. But not her. I loved her to death. I always will. But she wasn't cut out for it.
 
-She made bad decisions, especially when it came to men. It wasn't her fault—we both know that Christopher, even if you choose to lie to yourself—but that didn’t make it any easier. Whenever things went wrong, and they always did, she would call me. And I would come running. No matter where I was, or what I was doing, I would go. Sometimes at great cost to both my emotional well-being and my professional life.
+She made bad decisions, especially when it came to men. It wasn't her fault—you and I both know that, even if you choose to lie to yourself—but that didn’t make it any easier. She would call me every time things went wrong and I would go running, no matter where I was or what I was doing. Sometimes at great cost to my emotional well-being and professional life.
 
 I’m not telling you this because I want pity. I made those choices. And I’ve learned now that not everybody can be saved, no matter how much love you pour into them, how much pain you endure trying to separate them from twisted parts of themselves that they never asked for—that they never deserved.
 
