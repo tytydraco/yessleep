@@ -1,13 +1,3 @@
-**CW: Child abuse, suicidal thoughts, animal abuse**
-
-*I posted a small part of this letter a couple of months ago but it was too painful for me to finish. It’s reposted here now, in full, with links to all the parts because the text is too long. I hope the difference is significant enough to allow that, but I understand if it’s taken down.*
-
-*Apologies if I don’t reply to comments, the hurt is still raw.*
-
-*This is my closure.*
-
-\*\*\*
-
 Hi, Christopher.
 
 This letter is long, and I know you won’t want to read it. But you have to. You’re in danger.
@@ -243,7 +233,3 @@ At least, that’s what I told myself. But looking back now I know it was all li
 So I went back to bed, barred the door with a chair under the handle, and told myself I’d convince her to leave in the morning.
 
 It was the biggest mistake of my life.
-
-\*\*\*
-
-*Nosleep won't let me post the second part until tomorrow, so I'll do it then.*
