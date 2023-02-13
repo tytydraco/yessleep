@@ -212,6 +212,8 @@ I tried to sit up, my head throbbing uncontrollably. Martina stood over me, visi
 
 I went back to my cottage and poured myself some scotch with a trembling hand, but even that sweet peaty burn wasn’t doing much to calm my nerves. So I typed everything out again, forcing myself to put into words something that has haunted me since childhood. Crazy how well that seems to work. Maybe I’ll actually get some sleep now.
 
+[x](https://www.reddit.com/r/Wine_Dark_Sea_1239)
+
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new)
 
 [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/)

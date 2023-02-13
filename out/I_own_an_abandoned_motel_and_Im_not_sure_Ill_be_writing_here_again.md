@@ -1,10 +1,10 @@
-  [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/)
 
 “Well, he sure did a number on that porch.” Martina said, squinting in the bright winter sun at the ruins in front of my cottage. “I have to say I’m surprised. I’ve stayed around on full moons before and I’ve never seen it try to attack me. Piss me off? Sure. Seems to be its favorite pastime. But never like this.”
 
-“Some form of hazing, perhaps?  Or maybe he was offended by the flat beer?” 
+“Some form of hazing, perhaps?  Or maybe he was offended by the flat beer?”
 
-Martina scoffed. 
+Martina scoffed.
 
 “He never touches the beer. Thinks he’s fucking hilarious, remember?”
 
@@ -20,11 +20,11 @@ She shrugged. “Probably. What does it matter?”
 
 “Not at all. Have enough on my plate and one day a lunar cycle is about all I can handle of this asshole. Now, come on. Let’s start cleaning this up.”
 
-In my previous life, I had worked basic desk jobs so the manual labor aspect of owning the property was painfully new to me. We spent hours hauling away the fragments of wood and metal destroyed by the beast into the dumpster behind the motel office. We buried the remains of the deer in a ditch at the end of the property that Martina had been using for that purpose for ages. Sometimes there were remains, she explained, and other times the entire animal would be taken. 
+In my previous life, I had worked basic desk jobs so the manual labor aspect of owning the property was painfully new to me. We spent hours hauling away the fragments of wood and metal destroyed by the beast into the dumpster behind the motel office. We buried the remains of the deer in a ditch at the end of the property that Martina had been using for that purpose for ages. Sometimes there were remains, she explained, and other times the entire animal would be taken.
 
 I was so winded and achy after we finally finished that I wanted to just lay on the ground and never get up. For Martina, however, it was all in a day’s work, even though as far as I could tell, the woman subsisted entirely on cigarettes and hamburgers. She was examining the walls of my cottage with concern.
 
-“Now what?” I wheezed. 
+“Now what?” I wheezed.
 
 “Pretty deep claw marks. Lots of cracking.”
 
@@ -36,7 +36,7 @@ I was so winded and achy after we finally finished that I wanted to just lay on 
 
 “Not the way I’d want to go.”
 
-Cottage 7 was the cottage closest to my own and from the exterior appeared to be in good shape. Porch screen was a little warped, but otherwise intact. I stepped into the main room of the cottage.  Furniture and decorations from the late 90s, but also seemed okay. I flipped the faucet on and off, checked the fridge, flushed the toilet—all in functioning order. After my uncle closed down the motel, there was minimal upkeep to the cottages, enough that they wouldn’t fall into complete disrepair. I would have to do a good deep cleaning, but it could work. 
+Cottage 7 was the cottage closest to my own and from the exterior appeared to be in good shape. Porch screen was a little warped, but otherwise intact. I stepped into the main room of the cottage.  Furniture and decorations from the late 90s, but also seemed okay. I flipped the faucet on and off, checked the fridge, flushed the toilet—all in functioning order. After my uncle closed down the motel, there was minimal upkeep to the cottages, enough that they wouldn’t fall into complete disrepair. I would have to do a good deep cleaning, but it could work.
 
 I sat down in one of the chairs at the small dining table and felt the rug underneath it dip. *That’s not a good sign.* I got down, carefully moved the chair and the rug, and promptly groaned.
 
@@ -56,7 +56,7 @@ She pointed to the entry.
 
 *Number 14*
 
-*Lay down in the center of the room.* *Do not speak to them.* *Leave when they are gone.* *Can be satisfied at any time either day or night.* 
+*Lay down in the center of the room.* *Do not speak to them.* *Leave when they are gone.* *Can be satisfied at any time either day or night.*
 
 *Payment schedule: Every three months*
 
@@ -82,17 +82,17 @@ When I stepped on the porch, the whispers began. They came from inside, faint ye
 
 It did not take the denizens of the cottage long to find me. I felt a hand clasp my ankle tentatively, but saw nothing. I suppressed a gasp. More hands joined the first, firmly but not painfully squeezing my arms, shoulders, legs. The whispering gradually increased, but was still soft, barely louder than the gentle rustling of leaves. Just when the rhythm of hands on my limbs became almost relaxing, the hands started touching my face. Invisible, cold fingers combed themselves through my long hair, pressing their palms against my forehead, tracing my lips.  One hand clamped itself over my mouth over and over, then doing the same to my nose, as if trying to understand the warmth of my breath. I couldn’t count them, but they were many, all grasping at me like they had never seen a human made of flesh and bone.
 
-Amidst the whispering, there were words that I could detect here and there. Not English words, French perhaps, yes, yes, *cheveux* and maybe *jeune*. I do not speak French, but could catch the simple vocabulary. 
+Amidst the whispering, there were words that I could detect here and there. Not English words, French perhaps, yes, yes, *cheveux* and maybe *jeune*. I do not speak French, but could catch the simple vocabulary.
 
 Hands began to push at my back. A pair took my arms, another pushed my legs from behind and this time the whispers were right next to my ears.  *Levez, levez, stand!*  Hands pushed at the soles of my shoes, raising me into nothingness. I felt clammy, almost numb at the loss of that last sensory connection.
 
-I opened my mouth to protest, but remembered the admonition of the notebook. All around me, shadowy forms took shape, delineated from the blackness by weak, white light that illuminated the figures like silhouette portraits. They were humans, but practically formless, bent and wraithlike. One stood taller in the center and began to speak to me, in a crackling, parched voice, perhaps that of a woman, but I could not understand. It was French again, but spoken quickly and far beyond my extremely meager capabilities. I didn’t dare speak to ask if there was any way she could *parlez anglais*. 
+I opened my mouth to protest, but remembered the admonition of the notebook. All around me, shadowy forms took shape, delineated from the blackness by weak, white light that illuminated the figures like silhouette portraits. They were humans, but practically formless, bent and wraithlike. One stood taller in the center and began to speak to me, in a crackling, parched voice, perhaps that of a woman, but I could not understand. It was French again, but spoken quickly and far beyond my extremely meager capabilities. I didn’t dare speak to ask if there was any way she could *parlez anglais*.
 
-The leader placed its hand over my heart. She spoke again, a flurry of words I could not understand but carried the intensity of a warning, then a phrase that sounded like “*ne te laisse pas seule.*” 
+The leader placed its hand over my heart. She spoke again, a flurry of words I could not understand but carried the intensity of a warning, then a phrase that sounded like “*ne te laisse pas seule.*”
 
-Suddenly, the spirits around me writhed in pain, the once pale light that had surrounded them intensifying, whipping upwards like flames. I was surrounded by screaming, human screaming, the screaming of hundreds of people. I could feel hot sparks against my skin, underneath my clothes, pricking, escalating into burning. Smoke filled my nostrils, my lungs, and, gasping, I clawed at the air, reaching for the spirits who themselves were reaching beyond me. I fell and there were no hands to catch me. 
+Suddenly, the spirits around me writhed in pain, the once pale light that had surrounded them intensifying, whipping upwards like flames. I was surrounded by screaming, human screaming, the screaming of hundreds of people. I could feel hot sparks against my skin, underneath my clothes, pricking, escalating into burning. Smoke filled my nostrils, my lungs, and, gasping, I clawed at the air, reaching for the spirits who themselves were reaching beyond me. I fell and there were no hands to catch me.
 
-My body hit the wood floor and the spirits and their flames were gone. The darkness was just the ordinary darkness of a cottage shuttered against the daylight, the door and my escape outlined in the vibrant orange of early evening. I scrambled towards it, nearly tripping over my own feet, skin still flushed and hot. I flung the door open and let out a cry of relief as the cold freshness enveloped me. 
+My body hit the wood floor and the spirits and their flames were gone. The darkness was just the ordinary darkness of a cottage shuttered against the daylight, the door and my escape outlined in the vibrant orange of early evening. I scrambled towards it, nearly tripping over my own feet, skin still flushed and hot. I flung the door open and let out a cry of relief as the cold freshness enveloped me.
 
 Martina was waiting, seated in the folding chair she used for fishing, wrapped in her favorite cat blanket.
 
@@ -112,7 +112,7 @@ She glared at me.
 
 “You’ve never seen them, then?”
 
-Martina blanched. 
+Martina blanched.
 
 “They showed themselves to you?”
 
@@ -120,9 +120,9 @@ I nodded.
 
 “And spoke to me. In French. I don’t think it was necessarily hostile, but there was anger there. Misery. The only thing I could catch sounded like, *don’t let yourself be alone.* And then it was as though they all were set on fire, and I too felt the flames, the smoke.”
 
-Martina folded her arms as if beset by a sudden chill.  
+Martina folded her arms as if beset by a sudden chill.
 
-“Something has changed around here. And I don’t like it one bit.” She narrowed her eyes against the sun that had just dipped below the horizon. 
+“Something has changed around here. And I don’t like it one bit.” She narrowed her eyes against the sun that had just dipped below the horizon.
 
 “It felt like I was in there for no longer than ten minutes, but from the look of the sky I guess it’s been—”
 
@@ -186,12 +186,14 @@ I obeyed. The wood crumbled all too easily. The scratching stopped. I brushed aw
 
 “Maybe there’s some form of identification on him,” I asked. At least part of what appeared to be trousers seemed intact. I reached toward the pocket, thinking there could be a wallet or some other clue.
 
-With a cracking lurch the bony arm shot forward and clasped my shoulder with an awful strength pulling both me and itself upright with a sickening hiss. The eyes bored into me, dead and corpselike, yet somehow *alive*. It began to open its mouth with an appalling click.  I tore at its grip, twisting my face as far away as I could, using my entire weight to knock it off balance, but to no avail. 
+With a cracking lurch the bony arm shot forward and clasped my shoulder with an awful strength pulling both me and itself upright with a sickening hiss. The eyes bored into me, dead and corpselike, yet somehow *alive*. It began to open its mouth with an appalling click.  I tore at its grip, twisting my face as far away as I could, using my entire weight to knock it off balance, but to no avail.
 
 Martina brought her prybar down on its side, shouting and cursing. The thing let out an angry moan and threw me aside like a ragdoll. My body made contact with the table, flipping it over and on top of me. For a moment I blacked out, exploding with pain. My vision returned to me and I saw the thing clutch Martina and lift her to its mouth with a frenzied shriek, tearing into her throat. With all my might I pushed the table aside, head spinning, weeping, crying Martina’s name. She slackened in its grip and in an instant the thing bounded out the door of the cottage and into the night.
 
 I managed to crawl out of the wreckage of the furniture. Martina lay silent on the floor, eyes staring ahead, skin a deathly gray. *Lifeless.*
 
-“No, no,” I whispered. I tried to bring my shaking fingers to her neck to check for a pulse, but…I could not find any skin intact. I screamed as I cradled her to me.  
+“No, no,” I whispered. I tried to bring my shaking fingers to her neck to check for a pulse, but…I could not find any skin intact. I screamed as I cradled her to me.
 
 I screamed long and hard enough for every damned creature, every bloodthirsty revenant to hear.
+
+[x](https://www.reddit.com/r/Wine_Dark_Sea_1239)

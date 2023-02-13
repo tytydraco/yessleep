@@ -182,6 +182,8 @@ After about a half an hour walking around, staring at the river, I made my way b
 
 “TAXES”
 
+[x](https://www.reddit.com/r/Wine_Dark_Sea_1239)
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new)
