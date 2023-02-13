@@ -26,7 +26,7 @@ I had just started the morning shift when she called.
 
 Her voice was timid. Unsure. Like she only half-meant what she was saying.
 
-‘What’s wrong?’
+‘Talk to me.’
 
 ‘Max isn't well.’
 
