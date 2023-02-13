@@ -1,4 +1,4 @@
-When I lost my job. It signaled the beginning of a downward spiral in my life to where my inhibitions were multiplied, and my need for self destructive behavior were fueled as the culpability for my actions were diminished in the wake of my suffering. I suppose it could be said that there was a hole in my life. One that I chose to fill with endless bottles of alcohol and drugs. And I suppose that is how I found myself, jumping from town to town, trying to erase my latest mistake until they all blurred into one.
+When I lost my job. It signaled the beginning of a downward spiral in my life to where my inhibitions were multiplied, and my need for self destructive behavior were fueled as the culpability for my actions diminished in the wake of my suffering. I suppose it could be said that there was a hole in my life. One that I chose to fill with endless bottles of alcohol and drugs. And I suppose that is how I found myself, jumping from town to town, trying to erase my latest mistake until they all blurred into one.
 
 When I finally woke up. Penniless. I found myself on the rocky shores of northern Maine where there were still wooden boats rocking in the docks like a cradle. Here I was able to stumble upon a crew, and become a deckhand. The first couple of days on the ship were incoherent pieces with wide empty gaps in my memory.
 
@@ -36,7 +36,7 @@ A week would pass and the demands of the ocean had weathered away my resentments
 
 I had adapted to the rigors of the fisherman's life. Eating and sleeping below deck in what was essentially a hallowed cork floating in the world's largest swimming pool. Gathering fish and the occasional crustacean for would be consumers back on land. For their tiny tables and dimly lit atmospheres. And overpriced wine, on date nights, in hopes to be touched by a woman.
 
-The dreams came to me softly at first. A brush of hair, a lingering hand, a kiss on the lips. Before their vividry consumed my nights. The madness for contact drove me to stare endlessly out of the round window that hung below the waterline. As I wondered how many seamen its beauty has captured since we first tried to tame it.
+Those dreams came to me softly at first. A brush of hair, a lingering hand, a kiss on the lips. Before their vividry consumed my nights. The madness for contact drove me to stare endlessly out of the round window that hung below the waterline. As I wondered how many seamen its beauty has captured since we first tried to tame it.
 
 My lonely nights drew the ire of the other members in the crew. And tensions mounted as the close living quarters and phobia inducing hallways kept us on edge. The peace was bordering, when something changed.
 
@@ -52,7 +52,7 @@ The water was milk white, it looked as if the moon had spilled out from the hori
 
 "I've read about red waves near Florida..."
 
-The Skipper nodded, "No one touch the lines until we're out of this mess."
+The Skipper shook his head, "No one touches the lines. Until we're out of this mess."
 
 One of the men looked down at the water and with an uneven look on his face said, "I wouldn't be eating any of that raw stuff if I knew that this was where it was coming from."
 
