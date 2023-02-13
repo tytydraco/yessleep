@@ -8,7 +8,7 @@ Her sparkling eyes, radiant smile, and blunt language make my heart skip a beat.
 
 I promise I'm not a stalker. We have known each other for two years.
 
-I do have a crush on her. We're both comp-sci majors. Both of us plan on going into the gaming industry. I sometimes catch myself daydreaming about starting a company together and getting married. Maybe we even have kids. I know... a bit pathetic.
+But I do have a crush on her. We're both comp-sci majors. Both of us plan on going into the gaming industry. I sometimes catch myself daydreaming about starting a company together and getting married. Maybe we even have kids. I know... a bit pathetic.
 
 The semester rolls by. We both independently stand out to our professor, Andrew. He's a legend in the gaming industry and wants to show us what he's working on. An immersive VR.
 
