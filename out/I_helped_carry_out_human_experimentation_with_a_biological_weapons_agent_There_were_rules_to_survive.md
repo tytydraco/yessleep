@@ -26,7 +26,7 @@ I came back to the present moment, the doctor staring at me with his cold, gray 
 
 “So, it got out,” I said flatly, unsurprised. 
 
-“Yes, yes, sadly, it did,” he said. “But the good news is, you have a genetic mutation. You’re not even affected. Except for the memory loss.”
+“Yes, yes, sadly, it did,” he said. “But the good news is, you have a genetic mutation. You’re not even affected. Except for the memory loss. The memory loss occurs in many of the immune subjects, as a result of the massive release of cytokines upon first exposure. It is transient and quickly fades.”
 
 “The memory loss?” I asked, still feeling unsure. There was too much going on, it felt like, and I only had one tiny piece of what I needed. And then it all came flooding back to me.
 
@@ -70,7 +70,7 @@ Within a few minutes, the final preparations were complete, and we were all in o
 
 No one did.
 
-“OK, OK, then let’s go!” he said, ushering the crowd into the auxiliary containment room. A buzzing sound went off behind us in the main containment room on the other side of the laboratory. “The agent has been released! You now have sixty seconds to get into the room and lock the door before each of the subjects is released from their cells. In case of danger, the auxiliary containment room has tranquilizer guns as well as semi-automatic assault rifles with extra pre-loaded clips along the back wall. Remember that information. It could *save your life.*”
+“OK, OK, then let’s go!” he said, ushering the crowd into the auxiliary containment room. A buzzing sound went off behind us in the main containment room on the other side of the laboratory. “The agent has been released! You now have sixty seconds to get into the room and lock the door before each of the subjects is released from their cells. In case of danger, the auxiliary containment room has tranquilizer guns as well as semi-automatic assault rifles with extra pre-loaded magazines along the back wall. Remember that information. It could *save your life.*”
 
 As soon as we were all safely in the containment room and the door was locked behind us, a second buzzer went off. With a slamming sound, all the doors of the cells opened and out stepped the subjects- terrorists, rapists, murderers, serial killers and gang members. All of them were men.
 
@@ -118,7 +118,7 @@ The door to the auxiliary containment room started to issue an alarm, then slowl
 
 “What the fuck do I do now?” I thought to myself, too petrified to speak. Did I close my eyes, since the lights were flashing, or did I shoot anyone that came towards the containment room? How was I supposed to shoot with my eyes closed?
 
-I stepped in front of the crowd, closing my eyes and began rapidly shooting towards the front door with the AR-15 I held in my arms. I had no idea whether I was hitting anything, but I heard a few bullets connect with meaty thuds. The roaring of the gunshots made my ears ring, and I heard countless screams from all around me. I tried to block it all out and find some center of peace inside during the mayhem. I slowly counted to 100 as I kept firing, and to my surprise, when I reached 100, I was still alive.
+I stepped in front of the crowd, closing my eyes and began rapidly shooting towards the front door with the AR-15 I held in my arms. I had no idea whether I was hitting anything, but I heard a few bullets connect with meaty thuds. The roaring of the gunshots made my ears ring, and I heard countless screams from all around me. I tried to block it all out and find some center of peace inside during the mayhem. I slowly counted to 100 as I kept firing, and to my surprise, when I reached 100 and opened my eyes, I was still alive.
 
 I couldn’t say the same for most of the staff in the auxiliary containment room. Many of them had been ripped to shreds, pieces of skin and muscle littering the walls and tables, gore completely covering the screens of the security camera feeds. Looking around, I saw only Dr. Kreutzmann, Dr. Viserio and myself still standing. The dozens of other staff members, doctors and scientists all died while I had my eyes closed.
 
