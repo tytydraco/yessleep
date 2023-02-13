@@ -168,6 +168,6 @@ Perhaps I’ve chosen the safer of the two options. I know many of the Discord u
 
 I haven’t heard anything yet, and the game hasn’t started playing. But Corey didn’t seem to hear the creak when he was playing the game. Maybe, like him, I’ve just been missing it.
 
-I’m horrified of the Creaker. I’m horrified of where he might take me.
+I’m terrified of the Creaker. I’m terrified of where he might take me.
 
 [X](https://www.reddit.com/r/dominiceagle)
