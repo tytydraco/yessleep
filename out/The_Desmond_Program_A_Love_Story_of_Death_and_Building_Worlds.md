@@ -46,7 +46,7 @@ The program seems to pick up steam. Andrew gets attention from the government. T
 
 On one occasion, during the initial six days as we build out a new world, Theresa and I talk about the future. Our future. Things change. We make promises to one another. We live out one more life together, knowing it will probably be the last one as part of the *Desmond* program.
 
-We meet Andrew for dinner one night. At a restaurant I chose. It's not in an amazing part of the city, but the reviews are great. Theresa and I explain that it's time to find new folks for the program.
+We meet Andrew for dinner one night. At a restaurant I choose. It's not in an amazing part of the city, but the reviews are great. Theresa and I explain that it's time to find new folks for the program.
 
 Andrew understands but wishes we were more open to continue ideating new realities. At least until he can find replacements. We laugh and explain that we want to focus on living a real life together.
 
@@ -60,13 +60,13 @@ It only takes a second to see Theresa's body lying on the sidewalk, a hole in th
 
 I collect all of the data I can from the *Desmond* project.
 
-I work at home developing a custom profile of her from all of our lifetimes together. I recreate a form of her. I go to the classroom at 2 am where we always met Andrew and load everything up.
+I work at home developing a custom profile of her from all of our lifetimes together. I recreate a form of her. I go to the small office at 2 am where we always met Andrew and load everything up.
 
 I hook myself up. It's challenging, piercing my temporal lobe with the sharply pointed, thin metal rod that connects to a series of cables that connect to the primary machine. I begin to lose consciousness. And the more consciousness I lose, the more *Desmond* comes to life, slowly then all at once.
 
 The classroom of our *Advanced Game Design: A Systems Approach* seminar appears, where our blank worlds always begin, where I asked Theresa to marry me the last time we were in the program together. I can feel her profile being loaded. She's on her way. As she appears, I'm overcome with emotion. She is my world this time around. It's her, truly and utterly.
 
-I take a step toward her, but her face is uninviting. She can tell by my demeanor what I've done.
+I take a step towards her, but her face is uninviting. She can tell by my demeanor what I've done.
 
 She tells me she loves me and reminds me that we've talked about this already. That we agreed to let each other go if this happened. I tell her I know, but I wanted to ask her if she was happy with the lives we lived together. She nods and tells me she feels lucky to have had a love story.
 
