@@ -54,7 +54,7 @@ Which brings us to tulips. Oh my god. So much information about tulips online. T
 
 &nbsp;
 
-The problem is I can't tell what's meaningful from what's not. I needed an expert. Fortunately, as it turns out there are quite a few of them. There's even a tulip exhibit about 45 minutes away. The website even features a black tulip on the homepage. Best of all admission is free for students (I'm pretty sure I have an old student ID somewhere in my mess of a closet. Our movie theater used to do half off for students pre-pandemic. Ah, the days.) 
+The problem is I can't tell what's meaningful from what's not. I needed an expert. Fortunately, as it turns out there are quite a few of them. There's even a tulip exhibit about 45 minutes away. The website featured a black tulip on the homepage. It must be a sign. Best of all admission is free for students (I'm pretty sure I have an old student ID somewhere in my mess of a closet. Our movie theater used to do half off for students pre-pandemic. Ah, the days.) 
 
 &nbsp;
 
@@ -82,7 +82,7 @@ I took a deep breath and opened the door. That's when it hits me; the freaking p
 
 &nbsp;
 
-The detectives came in followed by the lawyer lady. Turns out she's not a lawyer but an insurance investigator. 
+The detectives entered followed by the lawyer lady. Turns out she's not a lawyer but an insurance investigator. 
 
 &nbsp;
 
@@ -98,11 +98,11 @@ Insurance lady spotted Angela's beat up camera and asked if it was the one that 
 
 &nbsp;
 
-The detectives said they could get a warrant since ths was an ongoing investigation. They made it very clear if that's the route I wanted to go, when they came back they would literally tear my apartment to shreds looking for evidence, for which I don't have. It wasn't even a veiled threat. It was threat threat with a capital T. 
+The detectives said they could get a warrant since this was an ongoing investigation. They made it very clear if that's the route I wanted to go, when they came back they would literally tear my apartment to shreds looking for evidence, for which I don't have. It wasn't even a veiled threat. It was threat-threat with a capital T. 
 
 &nbsp;
 
-And that's the story abouyt how I lost the camera, my printouts the CF card. I still have dropbox backups but, with the camera gone... I'm not even sure what I'm after anymore. Maybe the police will look at it and Angela will reveal herself to them instead. Let the professionals handle it. 
+And that's the story about how I lost the camera, my printouts, the CF card. I still have dropbox backups of the first photos, but with the camera gone... I'm not even sure what I'm after anymore. Maybe the police will look at it and Angela will reveal herself to them instead. Let the professionals handle it. 
 
 &nbsp;
 
