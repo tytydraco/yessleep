@@ -197,3 +197,5 @@ I managed to crawl out of the wreckage of the furniture. Martina lay silent on t
 I screamed long and hard enough for every damned creature, every bloodthirsty revenant to hear.
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239)
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/)

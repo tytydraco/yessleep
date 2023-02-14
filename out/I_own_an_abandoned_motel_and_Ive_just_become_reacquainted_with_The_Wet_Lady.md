@@ -217,3 +217,5 @@ I went back to my cottage and poured myself some scotch with a trembling hand, b
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new)
 
 [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/)
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/)
