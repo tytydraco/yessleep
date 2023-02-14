@@ -22,7 +22,7 @@ The second strange death call ended up being for a body inside a building. The d
 
 The station worked double time following up on any lead. Every available man stayed late at the station or on the move grasping at any kind of straw possible. Finally, some test results came back. When they landed on our boss’s desk, none of us believed it. The lab tested parts of the tree to see if there was anything inside the wood like glue that may have helped keep the poor girl in place. The results came back as human DNA mixed perfectly with the tree. I noticed the wood looked a bit darker, but how the hell did the DNA get there? Did the blood seep in and stained it somehow? Because of the results, more pieces of the tree were cut out to be tested. 
 
-They kept finding human DAN mixed into the wood. Far too deep for just blood getting slightly absorbed. The traces finally ended and we added how much of the tree had been contaminated. With some effort and math, the lab determined the DNA mixed with wood was equal to the same amount of missing from the girl. 
+They kept finding human DNA mixed into the wood. Far too deep for just blood getting slightly absorbed. The traces finally ended and we added how much of the tree had been contaminated. With some effort and math, the lab determined the DNA mixed with wood was equal to the same amount of missing from the girl. 
 
 They then tested the cement of the car garage finding the same results. Again, no one could even begin to offer up theories of how this was possible. It was as if somehow, those bodies became a part of the material they were found inside. 
 

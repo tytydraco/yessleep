@@ -232,4 +232,4 @@ At least, that’s what I told myself. But looking back now I know it was all li
 
 So I went back to bed, barred the door with a chair under the handle, and told myself I’d convince her to leave in the morning.
 
-It was the biggest mistake of my life.
+[It was the biggest mistake of my life.](https://www.reddit.com/r/nosleep/comments/111pd1t/last_year_something_ancient_and_inexplicable_took/)
