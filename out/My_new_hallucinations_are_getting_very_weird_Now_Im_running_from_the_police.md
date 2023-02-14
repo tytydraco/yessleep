@@ -29,3 +29,44 @@ I want to live my normal life as a school girl. I don't want this to end with me
 If do not reply I am probably dead. So I want to say this to everyone I have known. My parents, my ex, my friends and my teacher:
 
  I will "never" forgive you.
+
+Update:
+
+11 Days have passed, For the ones who didn't know: I tried to get help from the church but that was one of my stupid ideas. 
+
+They locked me up in a empty room with just a dirty old bed and a chair, nothing else and all they said was: "Wait".
+
+Every morning two armed soldiers and one priest with a cross and a blindfold came into my room. They gave me foul soup and the dirtiest water I have ever drank. I couldn't possibly escape, they would instantly kill me if I would. I had my phone for  at least 3h until it ran out of power so I had nothing to do in all these days. 
+
+I went insane
+
+But every time it would escalate something made me go unconscious. I don't know what it was but it at least calmed down. 
+
+This went on like this for the next 3-4 Days I can't even remember but one day, out of nowhere, I'm in a big room enchaned on a chair. Idk if they got me when I was sleeping but looking around I saw at least 12 Priests. The didn't have any blindfolds on this time no, they even looked at me. 
+
+Now that was something completely new in the last weeks. Someone looking at me without screaming, running etc? However the longest one of them looked was maybe 2 seconds until they looked away of fear. 
+
+Some minutes pass like this in silence and finally, one of them grabs a book while all the others circle around me. 
+
+They started to draw a red circle around me and the  one with the book started chanting in a probably holy language or something like that but as he was chanting the now completed red circle started glowing
+
+I don't know what I saw, what happened after that but what I remember perfectly is the 𝕡𝕒𝕚𝕟. 
+
+It was everywhere, on my eyes, on my skin and even inside of me. I've seen so many hallucinations, all so fricking disturbing with again this demonic figure which haunted me in the hospital. It was screeching and screaming but this time, of pain. 
+
+It felt the same pain I did, finally. 
+
+Well, I wake up in a church themed hospital so I knew I was defently still in the church. There was a nun smiling at me telling me: "You're awake, finally".
+But wait, he was smiling while looking at me??? 
+
+There was a small mirror in the room so I naturally went to it and you won't believe it but, I could see me again, without the mirror breaking. 
+
+My face was like I remembered, completely untouched. That was the best day of my life. 
+
+I thanked the church and I could actually walk around outside without my face completely hidden, no one screamed, no one attacked me or called the police when seeing my face. 
+
+I definitely wanted to finally go home, after all this stress. Take a shover and sleep in a finally comfortable bed. I didn't look at my parents even ones when entering the house and just went straight to my room. Fortunately they were understanding so I could be alone for a while. 
+
+My live went back to normal, well I did get traumatized and all my classmates were asking me questions all the time, I mostly ignored them or said please leave me alone, not even my friends could know about this. If one of my classmates reads this then please do not spread it, thank you.
+
+u/oomten I am so thankful for your idea with the church, you're a live saver
