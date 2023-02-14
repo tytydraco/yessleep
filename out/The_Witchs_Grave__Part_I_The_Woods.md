@@ -664,3 +664,5 @@ The wind was furious and blew my hair into my face. But in the wind, I heard a d
 Oh, no.
 
 This was very bad.
+
+[Part II](https://reddit.com/r/nosleep/comments/111q90h/the_witchs_grave_part_ii_the_cemetery/)
