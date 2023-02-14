@@ -54,9 +54,9 @@ We all had our own safe places once Quincy officially declared us as successes. 
 
 After being swallowed up by Kaian and Riss’s collective energies combined, creating a Plunge powerful enough to rip away reality in that room, I found myself exactly where I wanted to be. I was at the beach. To be specific, right near the coves where my colleagues and I used to have picnics and paddle in bioluminescent plankton as humans.
 
-Plunging didn’t exactly give me an option how I would land, and if I would make impact in the physical plane at all. I was nothing, just scattered atoms, an outline of a human figure which enough physical elements to allow me to stumble and staggered, tumbling through folds of energy glittering in air crackling with energy. It’s like walking in the air, except you don’t have legs or arms, or even a body. You are just there, as atoms, slowly being pieced back together again.  
+Plunging didn’t exactly give me an option how I would land, and if I would make impact in the physical plane at all. I was nothing, just scattered atoms, an outline of a human figure with enough physical elements to allow me to stumble and stagger, tumbling through folds of energy glittering in air crackling with power. 
 
-Reality does not like Plunging. 
+It’s like walking in the air, except you don’t have legs or arms, or even a body. You are just there, as atoms, slowly being pieced back together again.  Reality does not like Plunging. 
 
 Every time one of us slips through, the ground rumbles like mother nature herself is screaming at us to stop. After several attempts to land, and then finally slamming into damp sand, I struggled to get a hold of myself and my body. I was whole. Mostly. 
 

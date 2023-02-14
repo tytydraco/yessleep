@@ -1,37 +1,21 @@
-(When I was around 11 years old I had a very unusual experience. Being 29 years ago I still remember it very clearly.)
+When I was 11 years old, I had a peculiar experience that remains vivid in my memory, even 29 years later. It was an ordinary day, just like any other. My mother, grandmother, and I had gone to the local grocery store in our small town in Southwest Missouri. The trip was uneventful, as usual, but it felt like an eternity before we returned home.
 
-One evening I had went to the local grocery 
-store in small town southwest Missouri with 
-my mother and my grandmother. It was just
-a usual ride to town and being 11 years old 
-it was quite boring, going to the grocery 
-store with my mom and grandma. I always 
-remember as a kid that it felt like ages
-before we would be back at home. 
+As we drove back, the sun had just begun to set. I could still see fairly well, but I was eager to get home. When we arrived, my mother exclaimed, "Trixie is out!" Trixie was our family's large female Rottweiler. Looking in the direction she pointed, it indeed appeared like our dog was outside. However, my mother was worried that Trixie might see us and run across the highway, potentially putting herself in danger.
 
-Anyway, on the way back home it was late in the evening. The sun had just started going down, so I could still see fairly well. Upon arrival at home my mom says “Trixie is out!” Which was a large female Rottweiler, our family dog. I looked in the direction my mom was pointing and sure enough it looked like Trixie! This was as we were pulling into my childhood houses driveway which was across the highway from my grandparents
-place.
+In a panic, I jumped on my bicycle and raced towards my grandparents' house, which was across the highway from our home. After a minute or so of cycling, I spotted a large, black creature. It was not a dog, nor was it a bear. I had no idea what it could be.
 
-So in a panic and thinking Trixie may 
-see that we’re back home and run across 
-the highway and get hit by a vehicle, I
-jumped on my bicycle and headed towards
-my grandparents house. It took me about a 
-minute or so to get over there and as I was 
-coming up to where we thought we had seen “Trixie”, I noticed a very very large black creature! Not a dog, not a bear…I still have no idea what it was! 
+As I approached the creature, I locked up the brakes on my bike, causing it to skid sideways and crash to the ground. The creature then turned and looked straight at me. I froze in fear as the creature frantically ran and jumped over a barbed wire fence, disappearing into the woods.
 
-I locked up the brakes on my bike
-and slid sideways crashing to the ground. I
-watched as the creature looked directly at
-me, then it frantically ran and jumped a 
-fence (barbed wire) and ran off into the 
-woods! I remember being so scared and 
-getting back on my bike and racing back to where my mom and grandma were unloading groceries and told them about what I had seen. 
+I quickly regained my composure, mounted my bike, and raced back to where my mother and grandmother were unloading groceries. I told them about what I had seen, but they were just as puzzled as I was. Trixie was in the yard, so they knew it wasn't our dog.
 
-They didn’t know what  it could have been but Trixie was in the yard so they knew it wasn’t our dog. I know this story is probably dumb and I’m not a very good writer but I just wanted to share it and get it out there, and see if anyone else has had similar experiences. 
+The sighting of the unknown creature sent shivers down my spine, and I couldn't stop thinking about it. The image of the creature's eyes glaring at me was seared into my memory, and it haunted me for many sleepless nights.
 
-I think we can all agree that there are creatures in the world that we don’t understand or know about yet. I am not claiming that it was Bigfoot…or anything like that. I just feel like it was something that lives deep in the Missouri wilderness in the Ozark mountains that few have ever seen. 
+Despite my terror, I continued to explore the very same woods where I had seen the creature. I never encountered anything else like it again, but stories in the area persisted of a black panther or a family of large black cats. However, I had never seen any evidence of such creatures, and I was pretty sure that I would have recognized a panther if I had seen one.
 
-I grew up taking walks in the very same woods I seen the creature vanish into, but never seen anything else like it again. There are numerous stories in this area of a black panther living out here or a family of big black cats but I haven’t seen any signs of them. I’m pretty sure that I could’ve recognized a panther. 
+As I grew older, I continued to venture into the wilderness to hunt and fish in Missouri, but I never encountered any such animal again. This experience, though terrifying, taught me that the world is full of creatures that we don't understand, and it made me appreciate the mysteries of the natural world even more.
 
-I have been in the outdoors hunting and fishing in Missouri my entire life and never have I ever encountered any such animal again. This story caused me many nights of no sleep as a kid. Worried about this thing being in the woods and every time the dogs would bark at night I would think about what it was I seen.
+Looking back, I realize how strange it was that my family and I were never able to identify what I saw that day. There are plenty of possibilities that could explain what I encountered, but I will never truly know. Despite the years that have passed, I still vividly remember the moment I saw the creature. The size and color of the animal were so distinct that it was unlike anything I had ever seen before.
+
+As a child, I was always interested in wildlife, so it wasn't unusual for me to go exploring in the woods by myself. I knew the area like the back of my hand, so when I saw something that didn't fit, it was extremely unnerving.
+
+I've thought a lot about what it could have been. I've heard stories of black panthers, mountain lions, and even escaped exotic pets in the area, but I'll never be able to say for sure what I saw. Even though it's been almost 30 years, the incident still feels fresh in my mind, and I can still see the creature's black coat.
