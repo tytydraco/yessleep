@@ -1,5 +1,4 @@
 
-
 ___________
 
 Rob: *Babe I’ve got bad news*
@@ -160,7 +159,7 @@ That did not happen.
 
 I made it to the diner about twenty minutes late, offering the weakest apology I could to my boss and immediately began serving tables. Since it was Valentines, we were swamped and time flew by quickly. 
 
-Whenever I did get a chance to catch my breath, I texted Diane. 
+Whenever I did get a chance to catch my breath, I texted Diane with my work phone. I know it’s a little weird to have two phones but this one was for emergency… and I guess this counted as one. 
 
 Rob: *I'm sorry about earlier but you were really freaking me out earlier.*
 
