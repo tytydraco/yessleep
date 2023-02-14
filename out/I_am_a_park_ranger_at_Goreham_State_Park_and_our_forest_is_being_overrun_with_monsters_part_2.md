@@ -139,3 +139,7 @@ I turned to Wickie, who looked fairly calm and placid despite all that had occur
 “I hope you at least have a plan,” he said to me as we began trekking towards the forest.
 
 “Not at all,” I replied.
+
+&#x200B;
+
+Part 3: [https://www.reddit.com/r/nosleep/comments/1126rfy/im\_a\_ranger\_at\_goreham\_state\_park\_and\_theres\_a/](https://www.reddit.com/r/nosleep/comments/1126rfy/im_a_ranger_at_goreham_state_park_and_theres_a/)
