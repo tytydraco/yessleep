@@ -1,6 +1,6 @@
 This time of year is always hard for me. Ten years ago, on February 13th, my boyfriend went missing. His body was found washed up on the edge of the river bank the next day.
 
-Matt and I had been dating for three years, and it would have been three years on Valentine's Day. He was sweet and mature, unlike a lot of the boys at our school. I remember that Valentine's Day, he wrote me a poem in a handmade card and left it with a single rose on my desk. It had a question at the bottom: "Will you be mine?" I, of course, said yes; how could I say no?!
+Matt and I had been dating for three years, and it would have been three years on Valentine's Day. He was sweet and mature, unlike a lot of the boys at our school. I remember that first Valentine's Day, he wrote me a poem in a handmade card and left it with a single rose on my desk. It had a question at the bottom: "Will you be mine?" I, of course, said yes; how could I say no?!
 
 I know this sounds silly looking back, considering we were so young, but we made big plans for our future. I couldn't see any other reality than us being together. He and his family lived just around the corner from mine, and we often sneaked out to our local park. The nights we spent planning every detail of our future under the stars were magical.
 
