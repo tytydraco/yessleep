@@ -6,7 +6,6 @@ Yes, this is the professor that drones on about dinosaurs and puts everyone to s
 
 Anyway, I made the bold choice to skip class that day because I was pretty sure if I walked into the classroom, I was going to die.
 
-  
 (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 I was running late to class.  It wasn’t my fault, I always left the dorm room with plenty of time to spare because I’m just paranoid like that.  Look, I’ve sacrificed a lot to be here and maybe some of my classmates can afford to blow it off and not take it seriously, but I can’t.  I just can’t.  I’m on scholarship and if I lose that, there is *nothing* to fall back on.
@@ -57,7 +56,7 @@ His backpack was still clutched in his hand and he was making no move to offer i
 
 “*Who* told you that?” I asked as evenly as I could manage.
 
-He didn’t know, he said.  It was a note that was slipped under his door, a few days after our argument in the student union.  It said that I knew more than I was telling him.  Which… was true… but I wasn’t sure if it was meant in the way he’d taken it.  He knew everything that I did about the scratching.  But more importantly - who had sent it?  Who was *meddling*?  
+He didn’t know, he said.  It was a note that was slipped under his door, a few days after our argument in the student union.  It said that I knew more than I was telling him.  Which… was true… but I wasn’t sure if it was meant in the way he’d taken it.  He knew everything that I did about the scratching.  But more importantly - who had sent it?  Who was *meddling*?
 
 Inhuman things were cryptic by nature, but a note under the door didn’t seem like their style.  Then again, this campus is a strange blend of old rules and new rules, so perhaps this *is* something they would do.  The laundry lady, perhaps?  If I did manage to stop the scratching, then that would surely piss the flickering man off even more and further her aims.
 
@@ -183,7 +182,7 @@ I stared at it for a moment while he waited expectantly.  It was somewhat rounde
 
 “I know,” he laughed.  “But I was trying to figure out how to propose to my wife at the time and I thought that a heart-shaped piece of petrified wood would be romantic.  Then I realized how stupid the idea was and bought her a ring like a normal person.  Anyway, I’ve kept it for good luck, I guess.”
 
-I set it back on the desk, back into the recess in the root, exactly as I’d found it.  I knew better than to leave things like that disturbed.  
+I set it back on the desk, back into the recess in the root, exactly as I’d found it.  I knew better than to leave things like that disturbed.
 
 “Do you think it works?” I asked.  “As a good luck charm, that is.”
 
@@ -194,6 +193,8 @@ I set it back on the desk, back into the recess in the root, exactly as I’d fo
 It’s not invisible to the professors.  That stabbed student is really in here and other people have seen it.  But not him.  Not when it was right above him.
 
 *I need a piece of that petrified wood.*[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+Update: so uh I think I should have paid better attention to our conversation because now that I think back on it I think I might have said something was fine without really processing what I was agreeing to and that something was a timeslot and I just got a phone call from the counseling center confirming my appointment for next Tuesday at 4
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
