@@ -1,5 +1,9 @@
 [Part I](https://www.reddit.com/r/nosleep/comments/10pydev/the_witchs_grave_part_i_the_woods/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
+II.
+The Cemetery
+
+I.
 
 I met Caleb before I met Beck. We sat next to one another in 7th grade Marine Bio.
 
@@ -141,7 +145,7 @@ I turned to Beck and Ezra, who examined the barrier, careful not to touch it. Ez
 
 “Are you sure there was nothing in Caleb’s notebook? Like positively sure?”
 
-Her face scrunched up.
+Her face scrunched.
 
 “I’m not sure,” she admitted. “I mean, there could have been something I missed.”
 
@@ -361,7 +365,7 @@ I have never told anybody that I had watched him die. It has always been my secr
 
 I watched as the headstone blurred and the drawing transformed. It was as though the stars were projecting onto his grave the last picture of Aiden Green ever to grace the earth.
 
-His body lay on the muddy banks, and his eyes were open and filled with dirt and algae. Dark liquid seeped through his puffy lips, his stomach was bloated, and I knew it was full of bugs.
+His body lay on the muddy banks, and his eyes were open and full dirt and algae. Dark liquid seeped through his puffy lips, his stomach was bloated, and I knew it was full of bugs.
 
 And then it changed. The dead boy turned into a dead girl. Her hair was long and curly, and her skin was dark brown.
 
