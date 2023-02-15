@@ -28,7 +28,9 @@ I couldn’t breathe, and I had to be told repeatedly that I was okay. But mom h
 
 Because for the first time in what felt like forever, mom had actually looked at me. Spoke to me. Without slurring her words or getting distracted. Dad took me to therapy, but I was just told I was a child with an over-active imagination in grief. It did get better eventually. Before I knew it, I was eight years old. Four years since my mother’s death, and I only ever heard her voice when I was upset or alone. 
 
-Her words were still deeply rooted inside of me, though I knew how to control my thoughts. I even got over my fear of school buses, after dad had practically dragged me onto on my first day of third grade and embarrassed me enough to suppress my fear. I don’t know what I expected. Maybe I expected the bus to grow sharp teeth and eat all of us. But that didn’t happen. It was just a normal bus—and I felt stupid for listening to my mom. Dad was right. I had an overactive imagination, and yellow school buses were nothing to be afraid of. My third grade teacher was called Mrs White, and on the very first day of third grade, she had told our class that we were special, before planting her face into a pie made of whipped cream, making us all laugh.
+Her words were still deeply rooted inside of me, though I knew how to control my thoughts. I even got over my fear of school buses, after dad had practically dragged me onto on my first day of third grade and embarrassed me enough to suppress my fear. I don’t know what I expected. Maybe I expected the bus to grow sharp teeth and eat all of us. But that didn’t happen. It was just a normal bus—and I felt stupid for listening to my mom. Dad was right. 
+
+I had an overactive imagination, and yellow school buses were nothing to be afraid of. My third grade teacher was called Mrs White, and on the very first day of third grade, she had told our class that we were special, before planting her face into a pie made of whipped cream, making us all laugh.
 
 The boy in front of me laughed so hard, he snorted on a gummy worm he had been slyly chewing on. Mrs White was different to my other teachers. They talked about math and fractions, and boring stuff like that. Mrs White told us stories about her times traveling the world and sang songs to match each country. I loved her classes. 
 
@@ -64,7 +66,13 @@ Now, that sparked excitement.
 
 With the promise of a possible field trip if we all managed to see through the invisible paper, our class tried harder. There were more headaches, more nose bleeds and crying, before Jax jumped up from his chair one day, practically vibrating with glee. I think he was so excited he didn’t notice blood dripping down his chin. 
 
-Mrs White cleaned him up, and praised him, promising him and other kids that they could go on the field trip. Maddy was next. Of course she was. The girl was super dramatic, doing a twirl in her dress, claiming that she was the best because she didn’t suffer a headache or a nosebleed. I did, however, glimpse the girl shoving bloody tissue paper into the trash bin during recess. I started to notice a change in kid’s who had been granted permission for the fiend trip, and the rest of us who were still struggling. Pippa has grown unusually silent since announcing that she could read the paper. 
+Mrs White cleaned him up, and praised him, promising him and other kids that they could go on the field trip. Maddy was next. 
+
+Of course she was. 
+
+The girl was super dramatic, doing a twirl in her dress, claiming that she was the best because she didn’t suffer a headache or a nosebleed.
+
+I did, however, glimpse the girl shoving bloody tissue paper into the trash bin during recess. I started to notice a change in kid’s who had been granted permission for the fiend trip, and the rest of us who were still struggling. Pippa has grown unusually silent since announcing that she could read the paper. 
 
 Mrs White had given her extra work to do, though every time I slipped past her to go to the bathroom, I noticed the girl wasn’t even writing. Instead, her eyes were half lidded, her lips set into a dreamy smile. 
 
@@ -82,17 +90,25 @@ Or… I tried to.  I was one of the last ones to break through the barrier. Ther
 
 One night, I asked dad if he could help me solve a problem. Mrs White told us not to tell our parents about the super fun games we were all playing, so I asked him how I could solve a particularly hard math sum—to which he had looked up from his laptop, and offered me a pensive smile over his coffee. “Try relaxing your mind, and think about something else,” dad told me. “And then, who knows? Maybe if you put less strain on yourself, it might come to you?” He did pull a face though. “Cole, what exactly was the math sum? I can give you the answer if you want?”
 
-Shaking my head, I insisted I could do it myself. Then I did exactly what dad told me to do. I didn’t think about the blank piece of paper all night, and during normal classes, I pushed it out of my head. At recess, there was nobody to play with anymore. The kids who could read the message stayed in class, staring into thin air. 
+Shaking my head, I insisted I could do it myself. Then I did exactly what dad told me to do.
+
+I didn’t think about the blank piece of paper all night, and during normal classes, I pushed it out of my head. At recess, there was nobody to play with anymore. The kids who could read the message stayed in class, staring into thin air. 
 
 Sometimes, Mrs White brought people into class to talk to them. They weren’t teachers. I didn’t know who they were. All of them had scary faces and were my dad’s age. I watched them poke and prod my classmates, asking them questions like, “Are you able to see this?” While holding several blank pieces of coloured card. Jax, Maddy, and the others nodded their heads while Mrs White stood by with an odd look on her face. I had decided that day I would become like them. I wouldn’t be left out like the other two kids. 
 
 So, I slumped down at my desk, put my head down, and glared at the paper until a dull pain was blossoming behind my eyes, the lights above me suddenly far too bright. Blank. I stared harder. Blank. I gritted my teeth so hard I could taste rusty coins at the back of my mouth. Getting progressively more frustrated, I decided that I was going to pretend that I didn’t care. Just like when my PlayStation didn’t work, and I squeezed my eyes shut, praying for the game to load. 
 
-Trying the same tactic, I clenched my fists and mentally told the piece of paper I didn’t care. I was through caring, and the stupid thing could go away. Stubbornly, I sat with my arms folded, staring into the backs of my eyes, before deciding I had spent enough time ignoring the paper. Cracking one eye open, I expected to find the same blank piece of paper in front of me. However, this time the paper wasn’t blank. I was half aware of rivulets of sharp, startling red spotting white, but my eyes were glued to a sentence written in bold at the very top. “Mrs White’s Third Grade Class! You’re Going On A Field Trip!”
+Trying the same tactic, I clenched my fists and mentally told the piece of paper I didn’t care. 
 
-Dad was right. Ignoring my own blood staining the collar of my shirt, and pooling on my desk, my own lips split into a grin.
+I was through caring, and the stupid thing could go away. Stubbornly, I sat with my arms folded, staring into the backs of my eyes, before deciding I had spent enough time ignoring the paper. Cracking one eye open, I expected to find the same blank piece of paper in front of me. However, this time the paper wasn’t blank. I was half aware of rivulets of sharp, startling red spotting white, but my eyes were glued to a sentence written in bold at the very top. “Mrs White’s Third Grade Class! You’re Going On A Field Trip!”
 
-It was trying too hard, trying to force it, that was stopping me from breaking through. Once I told everyone I could see the paper, I was let into this secret group they were all part of. This time I knew what they were doing. Our teacher told us to focus on a blank piece of paper, just like the one we had already been tested on, and then try and visualise certain things in front of us. Blobs, to be exact. We were reassured that the field trip would elaborate on what Blobs were, so until then we had to practise. The first piece of paper I received was a teddy bear.
+Dad was right. 
+
+Ignoring my own blood staining the collar of my shirt, and pooling on my desk, my own lips split into a grin.
+
+It was trying too hard, trying to force it, that was stopping me from breaking through. 
+
+Once I told everyone I could see the paper, I was let into this secret group they were all part of. This time I knew what they were doing. Our teacher told us to focus on a blank piece of paper, just like the one we had already been tested on, and then try and visualise certain things in front of us. Blobs, to be exact. We were reassured that the field trip would elaborate on what Blobs were, so until then we had to practise. The first piece of paper I received was a teddy bear.
 
 That was easy. I could visualise it perfectly, until I could reach out and touch its prickly fur. Then the images started to get blurry. So did the sessions. I remembered the start of them, but time seemed to pass by quickly, and before I knew it, I was sitting in the back of dad’s car, trying to remember what I had been doing all afternoon. But I was still happy I broke through the barrier. Mrs White reiterated that on the day of the field trip, when we were lining up to board a bright yellow school bus. I tried not to look at it. 
 
@@ -132,7 +148,7 @@ Mrs White’s field trip’s became an everyday sort of thing. We learned everyt
 
 I could see it right outside the window, and Maddy screamed so loud everyone laughed. I loved every field trip, and anticipated where we would be going each time. I got used to the flying school bus. Instead of screaming, like my first few times, or just staring in shock, I threw up my hands like everyone else, singing songs with my classmates and Mrs White. It wasn’t until the new girl started when things started to get a little less clear. 
 
-The new girl was called Cassandra, and according to her, the field trip’s at her old school were tonnes batter than ours. She made sure she let out know every class, which got annoying. Cassandra didn’t believe us about our adventures, only folding her arms across her chest and snorting. “Well, at MY school, we went to Paris.” She said smugly. We knew she was lying, and neither of us wanted her to come along on our adventures. I did find it strange that Cassandra didn’t’ have to try and find the message on the blank piece of paper like the rest of us. 
+The new girl was called Cassandra, and according to her, the field trip’s at her old school were tonnes batter than ours. She made sure she let us know every class, which got annoying. Cassandra didn’t believe us about our adventures, only folding her arms across her chest and snorting. “Well, at MY school, we went to Paris.” She said smugly. We knew she was lying, and neither of us wanted her to come along on our adventures. I did find it strange that Cassandra didn’t’ have to try and find the message on the blank piece of paper like the rest of us. 
 
 Mrs White eagerly welcomed her to join us on the bus, and I couldn’t resist feeling jealous that she got to come without breaking through the barrier. To my annoyance, Cassandra stalked onto the bus, pushing past Maddy and Jax, and slumping down in the seat next to me. “We had better looking school buses at my old school,” she said loudly, shooting me smile.
 
@@ -160,7 +176,7 @@ I snorted, and was ready with a comeback, before Mrs White came over, ducking in
 
 “I will call you Cassandra if you move seats for me, okay? It’s not hard, sweetie.”
 
-Mrs White ushered Cassandrea to a window seat opposite me. My gaze followed her, as she sighed dramatically, and dragged herself to her allocated space. I was frowning at Cassandra’s backpack, at a superhero I couldn’t figure out the name of, when I saw it. On the seat in front of the girl was a small Tv screen.
+Mrs White ushered Cassandrea to a window seat opposite me. My gaze followed her, as she sighed dramatically, and dragged herself to her allocated space. I was frowning at Cassandra’s backpack, at a superhero I couldn’t figure out the name of, when I saw it. On the seat in front of the girl was a small TV screen.
 
 I had never noticed it until right then—and once I had seen it, I couldn’t take my eyes off it. Cassandra looked equally confused. She pointed at the screen. “Mrs White, are we going to be watching TV? We weren’t allowed to at my old school.”
 
@@ -178,7 +194,7 @@ We had delved right into the centre of a man called Peter. Mrs White explained h
 
 One by one, we jumped off the bus, and Cassandra followed us hesitantly, her eyes still wide and unseeing. She looked like she was going to cry, and I couldn’t resist poking her helmet teasingly. What I expected was for her to shoot me a glare or poke me back, but the girl didn’t even look at me. I don’t even think she noticed I was there.
 
-It was so strange being inside a real human. When I reached out my hands, I envelope my hands in huge white blood cells beginning to attack the virus, or Blob. “Alright, everyone!” Mrs White stood at the front. “Now, do you all want to help the white blood cells fight the evil virus?”
+It was so strange being inside a real human. When I reached out my hands, I enveloped my hands in huge white blood cells beginning to attack the virus, or Blob. “Alright, everyone!” Mrs White stood at the front. “Now, do you all want to help the white blood cells fight the evil virus?”
 
 “Yes!” Maddy giggled.
 
@@ -186,7 +202,7 @@ It was so strange being inside a real human. When I reached out my hands, I enve
 
 Our teacher laughed along with us. “Okay, so I want you to do exactly what you did in the classroom, okay? When you broke through the barrier, I told you to visualise certain objects in front of you.” She cleared her throat. “Now, you’re going to destroy the blob with it.”
 
-I knew exactly what I was visualising. It came to me straight away, bleeding into my mind. I sketched it out in my head, something which was heavy and weighty in my hand, and that I could grasp on for. It was perfect for killing Blobs. Once I was imagining the object, I could feel it in my hands, sleek metal pressed into my skin. It felt right, and I knew exactly how to hold one. Looking around, everyone else did too.
+I knew exactly what I was visualising. It came to me straight away, bleeding into my mind. I sketched it out in my head, something which was heavy and weighty in my hand, and that I could grasp on to. It was perfect for killing Blobs. Once I was imagining the object, I could feel it in my hands, sleek metal pressed into my skin. It felt right, and I knew exactly how to hold one. Looking around, everyone else did too.
 
 “When do we shoot, Mrs White?” Noah asked, pointing his object at the blob. With narrowed eyes, his finger played with the trigger.
 
@@ -200,7 +216,7 @@ Nodding along, I focused all my attention on the blob. I got ready, squeezing th
 
 Before Cassandra let out a sharp cry, slicing through my concentration, and snapping me from my focus. When I turned to her, the girl’s eyes finally found mine, and she looked… scared. No. Terrified. In her hand was the object, and she was pointing at the blob—but her lips mouthed words I couldn’t understand. 
 
-Mrs White’s voice suddenly felt far away, and I found myself mesmerised by the girl’s words coming from her lips. She was bleeding. Badly. The sight of startling claret painting her face caused something in my mind to snap, and I felt my body jolt, like I had been electrocuted. Cassandra was still crying, but my surroundings were bleeding into nothing, from the thick red walls of Peter’s immune system, to tress and cloudy skies. So many trees. 
+Mrs White’s voice suddenly felt far away, and I found myself mesmerised by the girl’s words coming from her lips. She was bleeding. Badly. The sight of startling claret painting her face caused something in my mind to snap, and I felt my body jolt, like I had been electrocuted. Cassandra was still crying, but my surroundings were bleeding into nothing, from the thick red walls of Peter’s immune system, to trees and cloudy skies. So many trees. 
 
 I recognised where we were automatically. It was the forest I used to go on walks with dad. Blinking rapidly, I was suddenly aware of something wet and sticky dripping from my nose, tainting my lips. I was standing in the exact same spot. I hadn’t moved. My classmates and Mrs White hadn’t moved. Though we weren’t inside the immune system of Peter, ready to shoot an evil blob. Cassandra’s words finally made sense, and I felt the heavy weight of something pressed into my hand.
 
@@ -240,11 +256,17 @@ The others cheered, and I found myself taking slow steps back. I didn’t run. I
 
 They started to sing, marching into the trees, and once I was sure my teacher had turned her head, and the men and women tending to Cassandra couldn’t see me, I turned and forced myself into a sprint.
 
-I don’t remember falling. I remember my foot getting caught on a rock, though after that there was just the dark. I had vague memories of an oldish looking man looming over me, and the wet snout of a dog sniffing my neck and face, licking at blood staining my chin and face. When I woke, I was in hospital. Dad was next to me, and according to him, I had fallen during a field trip. I sat up, automatically spewing everything about Cassandra, and the gun’s, and the strange people with Mrs White. Dad’s expression crumpled, and he grasped my hand, telling me had hit my head and was having nightmares. 
+I don’t remember falling. I remember my foot getting caught on a rock, though after that there was just the dark. I had vague memories of an oldish looking man looming over me, and the wet snout of a dog sniffing my neck and face, licking at blood staining my chin. 
 
-The next day, when I asked if my classmates were okay, he nodded, again shooting me a look of worry. I quickly understand what he meant, and how he was feeling, because when I walked into my third grade class a whole week later, with a bandage around my head, there was no sign of them. Pippa, Jax, and Maddy and Noah. Even Cassandra. They were all gone. Mrs White too. It was the same classroom and the same desks. 
+When I woke, I was in hospital. Dad was next to me, and according to him, I had fallen during a field trip. I sat up, automatically spewing everything about Cassandra, and the gun’s, and the strange people with Mrs White. 
 
-I even saw the plastic horse Maddy kept under her desk to regularly remind everyone she liked pony’s. However, Maddy was gone. Her entire existence had been wiped away.  I tried to tell dad. I tried to tell the principal, naming all of them and demanding to see their parents. Except there weren’t any parents, or if there were, they didn’t remember their own children. After school one day, after driving myself crazy trying to figure out where the evil school bus had taken my classmates, and what it had done to them, I saw Pippa’s mom standing just outside the school gate.
+Dad’s expression crumpled, and he grasped my hand, telling me had I had hit my head and was having nightmares about childish things. The next day, when I asked if my classmates were okay, he nodded, again shooting me a look of worry. I quickly understood what he meant, because when I walked into my third grade class a whole week later, with a bandage around my head, there was no sign of them.
+
+Pippa, Jax, and Maddy and Noah. Even Cassandra. They were all gone. Mrs White too. It was the same classroom and the same desks. 
+
+I even saw the plastic horse Maddy kept under her desk to regularly remind everyone she liked pony’s. However, Maddy was gone. Her entire existence had been wiped away.  I tried to tell dad. I tried to tell the principal, naming all of them and demanding to see their parents.
+
+Except there weren’t any parents, or if there were, they didn’t remember their own children. After school one day, after driving myself crazy trying to figure out where the evil school bus had taken my classmates, and what it had done to them, I saw Pippa’s mom standing just outside the school gate.
 
 I already knew her name. Pippa’s mom made cookies for everyone when it was her daughter’s birthday.
 
@@ -268,7 +290,7 @@ There was no way I was getting on another fucking school bus. In my senior year,
 
 By the end of high school, I had managed to convince myself through smoking weed, a hell of  a lot of conversations with guys I hung with, and recreational drugs, that I had imagined it. 
 
-For college, I moved the city. In my freshman year, I stayed in student dorms, and then moved into a house with a bunch of friends from class. They were like a second family, and yes, they did know about the school bus hallucination. In fact, my housemates bought me the full DVD boxset of The Magic School Bus for my nineteenth. So yeah, thanks a lot guys.
+For college, I moved to the city. In my freshman year, I stayed in student dorms, and then moved into a house with a bunch of friends from class. They were like a second family, and yes, they did know about the school bus hallucination. In fact, my housemates bought me the full DVD boxset of The Magic School Bus for my nineteenth. So yeah, thanks a lot guys.
 
 My girlfriend didn’t help. She thought it was… cute.
 
@@ -286,7 +308,7 @@ It took me a second to take in his words.
 
 “What?” His words dragged me to my feet. “Ethan, what—”
 
-“There is a fucking flying school bus outside out window.” He said in a hiss. “And no, I am not making this shit up!”
+“There is a fucking flying school bus outside out the window.” He said in a hiss. “And no, I am not making this shit up!”
 
 Something ice cold crept down my spine, and I shook my head.
 
@@ -300,7 +322,7 @@ Instantly, my focus was on my housemates, while Ethan started jumping up and dow
 
 “Where is he?”
 
-“I don’t know! I came to see Freddie, and the door was open. I headed upstairs to check his room, I turn around…and there’s a FUCKING GIANT SCHOOL BUS FLYING OUTISDE HIS BEDROOM WINDOW.”
+“I don’t know! I came to see Freddie, and the door was open. I headed upstairs to check his room, I turn around…and there’s a FUCKING GIANT SCHOOL BUS FLYING OUTSIDE HIS BEDROOM WINDOW.”
 
 My body was already in fight or flight. “Stay here.” I told him. “Don’t move, okay?”
 
@@ -314,7 +336,7 @@ Once I was on my feet, I twisted around to see the school bus had vanished out o
 
 “Where did it go?” Ethan hissed. “What the fuck is going on?”
 
-I caught him wrinkle his nose, swiping at his suddenly, and something inside me came apart.
+I caught him wrinkle his nose, swiping at it suddenly, and something inside me came apart.
 
 “Pepper.”
 
@@ -324,7 +346,7 @@ Ethan sniffled again.
 
 “Pepper!”
 
-I grabbed him, dragging down to the kitchen, yanking open cupboards, my breath in my throat. Thankfully, there was pepper in the cupboard. I poured some into my hand, pressing it over Ethan’s mouth. “You need to sneeze, okay?” I urged him. “Sneeze, or you’re going to die.”
+I grabbed him, dragging him down to the kitchen, yanking open cupboards, my breath in my throat. Thankfully, there was pepper in the cupboard. I poured some into my hand, pressing it over Ethan’s mouth. “You need to sneeze, okay?” I urged him. “Sneeze, or you’re going to die.”
 
 His eyes widened. “What?”
 
@@ -332,9 +354,13 @@ Ethan’s gaze wandered behind, however, and he stumbled back, still swiping at 
 
 “Cole, where have you been?”
 
-Jax was standing in the doorway, his arms wrapped around Freddie’s neck, a gun firmly pressed into his temple. Freddie’s eyes were wild, but he wasn’t fighting back. Despite being a loose cannon, he was choosing to stay calm. I hated how I recognised the way Jax held the gun. I remembered knowing exactly how to hold it, how to finger the trigger, and find my attacker’s weak spot. In my head, it had been a blob. Until reality had split open, and I was in fact murdering human beings, who were being wiped from my mind, twisted into a whole other world my childish brain could comprehend. Cassandra was next to him, pouting. She swung her weapon playfully, before pointing it directly at Jax. “We looked for you.” She said. “Mrs White looked for you, but we couldn’t find you, and that made us really, really sad.”
+Jax was standing in the doorway, his arms wrapped around Freddie’s neck, a gun firmly pressed into his temple. Freddie’s eyes were wild, but he wasn’t fighting back. Despite being a loose cannon, he was choosing to stay calm. 
 
-“Reallllyyyy saaaddddd.” Isssac nodded. He sounded exactly like when he was a kid, and the same expression on an eighteen year old guy looked wrong.
+I hated how I recognised the way Jax held the gun. I remembered knowing exactly how to hold it, how to finger the trigger, and find my attacker’s weak spot. In my head, it had been a blob. Until reality had split open, and I was in fact murdering human beings, who were being wiped from my mind, twisted into a whole other world my childish brain could comprehend. Cassandra was next to him, pouting. She swung her weapon playfully, before pointing it directly at Ethan, who flinched. “We looked for you.” She said. 
+
+“Mrs White looked for you, but we couldn’t find you, and that made us really, really sad.”
+
+“Reallllyyyy saaaddddd.” Jax nodded. He sounded exactly like when he was a kid, and the same expression on an eighteen year old guy looked wrong.
 
 With words stuck in my throat, I couldn’t speak.
 
@@ -342,7 +368,7 @@ Cassandra stepped forward and handed me something.
 
 It was a piece of paper. Old. Crumpled.
 
-I snatched it from her hand and found myself looking at what looked like some kind of contract.
+I snatched it from her hand and found myself staring at what looked like some kind of contract.
 
 “I, _____ _______ give permission for my child _______ to become part of the MSB Foundation.
 
