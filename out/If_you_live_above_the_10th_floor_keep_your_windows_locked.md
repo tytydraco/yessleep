@@ -6,7 +6,7 @@ The first floor? Well, maybe. People won't exactly climb up. But still, don't le
 
 Anything above that? Seems pretty safe. People leave some windows open literally constantly. I mean, what kind of dangers are going to find you so high up...?
 
-If you live above the 10th floor, you won't want to find out. Leaving a window open could be the most innocent grave mistake you could possibly mistake. My warning to you is not about falling from your window ledge - Even windows that are restricted to only open by about an inch are dangerous. If there is the slightest way inside, he will find it.
+If you live above the 10th floor, you won't want to find out. Leaving a window open could be the most innocent grave mistake you could possibly make. My warning to you is not about falling from your window ledge - Even windows that are restricted to only open by about an inch are dangerous. If there is the slightest way inside, he will find it.
 
 Stories of The Thing That Hovers circulated when I was a child. Kids would claim that at night, they saw something slowly hovering down the street, about 100ft in the air. They would all have different descriptions of it - A small glowing orb, a creature with red eyes, a dark cylinder. But the stories all hit the same notes.
 
