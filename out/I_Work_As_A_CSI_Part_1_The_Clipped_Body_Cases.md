@@ -1,3 +1,5 @@
+( Next: https://redd.it/112j8ei )
+
 I work as a crime scene investigator and let me tell you it’s not as fun or easy as the media portray. Long hours at random locations. Most of which smell horrible. You need to bag everything hoping you picked up something relevant to the case and take at least ten thousand photos at different angles. Not to mention all the sketches and diagrams you need to make with accurate notes. The DNA you send off to be tested doesn’t come back for months and most of the time doesn’t even help the case you’re working on. But it’s a job. Most of my career has been documenting drug dens. Drug crimes in my area are way higher than any other kind. 
 
 I was called to a scene of a death caused by unknown circumstances. It was a sight none of us would ever forget. A ghastly scene and we still haven’t been able to unravel the mystery of it. It was a murder. What else could it have been? It wasn’t possible that death happened due to natural circumstances. 

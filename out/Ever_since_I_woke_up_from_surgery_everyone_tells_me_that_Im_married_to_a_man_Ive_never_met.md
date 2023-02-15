@@ -56,7 +56,7 @@ All of it left me absolutely baffled and confounded. I had no idea what to do. I
 
 Over the next few days, I met with practitioner after practitioner. Many had records or notes reflecting my marriage to Brandon, such as me mentioning him in response to routine questions, and none could clearly explain what was happening. They all agreed that I exhibited no signs of mental or physical illness that could explain why three years of memories of my husband had somehow vanished from my mind.
 
-“Regardless of what’s causing this,” said the surgeon who’d performed the operation, “whether it’s a truly novel side effect of the surgery, or a psychological breakdown of some kind – what’s unequivocal is that you are, in fact, married to Mr. Harrison, and that you’ve known him for several years.” 
+“Regardless of what’s causing this,” said the surgeon who’d performed the operation, “whether it’s a truly novel side effect of the surgery, or a psychological breakdown of some kind – what’s unequivocal is that you are, in fact, married to Mr. Harrison, and that you’ve known him for several years.”
 
 I was sitting on my living room couch, tall glass of red wine in hand, when Brandon called. I hit ‘decline,’ took a big gulp of my drink, and leaned my head back against the wall.
 
@@ -92,9 +92,9 @@ Months passed with us living together like roommates. At first, we handled our o
 
 I asked him questions about our time together, and he supplied me with plenty of stories – the early date during which I’d putted a golf ball so badly that it went spiraling over a fence and onto a nearby highway, the time he’d carried me for nearly half a mile after I injured myself during a jog, and our honeymoon on an Alaskan cruise. We had a natural chemistry, and he often made me laugh. At the end of the night, he’d retire to the pull-out couch downstairs.
 
-We took many walks together at a nearby public park. These outings were generally uneventful, except for one occasion when Brandon intervened to stop a crazed woman from harassing me. 
+We took many walks together at a nearby public park. These outings were generally uneventful, except for one occasion when Brandon intervened to stop a crazed woman from harassing me.
 
-I’d been giving her dog, a sweet ridgeback who’d run up to me, some scratches and pets, when she started  to scream at me. As I backed away from the dog, she made a hostile, guttural sound, and I noticed what looked like narrow streams of blood running down from her eyes as she wailed. She charged at me, but Brandon intervened, shoving her off me and telling her to leave me alone. Another bystander restrained her as we hurried away, and I thanked Brandon for looking out for me. 
+I’d been giving her dog, a sweet ridgeback who’d run up to me, some scratches and pets, when she started  to scream at me. As I backed away from the dog, she made a hostile, guttural sound, and I noticed what looked like narrow streams of blood running down from her eyes as she wailed. She charged at me, but Brandon intervened, shoving her off me and telling her to leave me alone. Another bystander restrained her as we hurried away, and I thanked Brandon for looking out for me.
 
 Otherwise, life fell into a mundane routine. We were watching a tense movie once when I realized I’d been gripping Brandon’s hand. Afterwards, he told me his back was aching from all the nights he’d spent on the foldout downstairs.
 
@@ -130,7 +130,7 @@ It was an old, tattered book. A pattern was infused into its otherwise blank mah
 
 Its aged, browned pages were of uneven sizes. Curious about their contents, I tried opening the book, only to discover that it was locked by a narrow, metal clasp with a tiny key hole.
 
-I didn’t know what to make of it. I couldn’t find the key for it, and when I looked online, I couldn’t identify anything that matched the pattern on the cover. 
+I didn’t know what to make of it. I couldn’t find the key for it, and when I looked online, I couldn’t identify anything that matched the pattern on the cover.
 
 It could just be something as innocuous as a vintage private diary, or a family heirloom. But the way Brandon had tucked it out of sight disturbed me. Clearly, he didn’t want me to find it, and this was the first time, to my knowledge, that he’d tried to hide something from me.
 
@@ -244,7 +244,7 @@ As he drove, he spoke to me in a frantic voice. “April, I need you to listen t
 
 That got my attention. “Start talking.”
 
-“You have no idea how hard I’ve worked to pull this off. We only have a brief window before he catches on. If we’re lucky, it’ll be just enough time to get to Emma, and then the two of you need to get as far away from here as possible.” 
+“You have no idea how hard I’ve worked to pull this off. We only have a brief window before he catches on. If we’re lucky, it’ll be just enough time to get to Emma, and then the two of you need to get as far away from here as possible.”
 
 “Emma? Who the hell is Emma?”
 
@@ -274,7 +274,7 @@ I remembered the blood running down the woman’s – Emma’s – face as she s
 
 “Fine, Jean. So, you’re telling me that this *thing*, whatever you called it, is making all of this happen? But *why*? And if he can fool everyone else, why can’t he just make me remember being married to him?”
 
-“That’s how he harnesses his power,” said Jean, as he took an unfamiliar exit. “He latches onto a particular target, and there are limits on how much trickery he can use on that person. Sure, he can change pictures or legal documents, but he can’t go in and actually alter your memory. The more you choose, out of your own free will, to believe his lies, the stronger he becomes, and the more elaborate his illusions can become.”
+“That’s how he harnesses his power,” said Jean, as he took an unfamiliar exit. “He latches onto a particular target, and there are limits on how much trickery he can use on that person. Sure, he can change pictures or legal documents, but he can’t go in and actually alter your memory to insert himself into your past. The more you choose, out of your own free will, to believe his lies, the stronger he becomes, and the more elaborate his illusions can become.”
 
 “But why *me*, in particular?” I asked as the car turned down a dirt road that led through a thick forest.
 
