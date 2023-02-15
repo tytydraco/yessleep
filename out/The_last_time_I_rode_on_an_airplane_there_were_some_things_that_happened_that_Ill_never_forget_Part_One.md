@@ -288,4 +288,4 @@ I looked down at my wife's beautiful face, sound asleep, and wondered just what 
 
 *But what was going on with her body?* I ran my hand along her back again. other than being maybe a *bit* warmer than normal, her skin was otherwise completely normal. She remained still, not fidgeting or talking in her sleep the way she usually would if she was having a nightmare. She was sound. She was safe. I hugged her as close to me as I could and held her like that until the sun rose the next morning.
 
-*"... All coming to an end..."*
+["... All coming to an end..."](https://www.reddit.com/r/nosleep/comments/112owen/the_last_time_i_rode_on_an_airplane_there_were/?utm_source=share&utm_medium=web2x&context=3)
