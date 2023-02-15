@@ -45,3 +45,5 @@ It always has a different shape for every person. One that creeps them out. Not 
 Everything about it seems to show that it hates to be seen. A silent killer, that only targets people who think they're safe, and does everything it can to make sure you never see it coming.
 
 So, if you live above the 10th floor, don't leave your windows open. Not unless you're ready to meet The Thing That Hovers.
+
+[===](https://www.reddit.com/r/BriteWrites)
