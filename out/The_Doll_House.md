@@ -8,7 +8,7 @@ My co-worker, Yamamoto Date, pronounced Dah Tae, was a man with two last names. 
 
 Which was likely why we drew the ire of the local seniors who had gathered around the zoning tape we had masked around the property.
 
-"Date," I had discovered the damage surrounding the perimeter.
+"Date," I had discovered damage surrounding the perimeter.
 
 "It looks like char," he rubbed the wood post. "Smells like it too."
 
@@ -84,7 +84,7 @@ And I was glad that we were at least met with much of the same dust that had set
 
 "Perhaps they were," I commented, "But the records could have been lost after the department digitized everything."
 
-"Hmm," he nodded. "Shame that we have to cart this stuff off to a storage somewhere. Antiques are profitable today, you know."
+"Perhaps," he nodded. "Shame that we have to cart this stuff off to a storage somewhere. Antiques are profitable today, you know."
 
 "Don't even think about it," I snapped a photo of him holding an old paper weight from the writing desk.
 
