@@ -4,7 +4,7 @@ Over the years, the local officials have made promises to tear the place down. B
 
 And although many have tried, I never expected to be involved. But there I was, a member of the zoning committee for the Chambers of Commerce, working alongside my co-worker to determine how to expand the nearby shopping district.
 
-My co-worker, Yamamoto Date, pronounced Dah Tae, was a man with two last names. Which according to my mother, was given to children who couldn't readily identify their fathers. However, the truth is - custom dictates that a man with two last names was difficult to address properly as we often referred to acquaintances by their surnames, and close family and friends by their given name. So it became rather confusing addressing my colleague and friend as either Yamamoto or Date due to the impressions that our department wasn't close knit. Which is important in our prefecture, as we believed that well accustomed workers - signified an efficient system.
+My co-worker, Yamamoto Date, pronounced Dah Tae, was a man with two last names. Which was problematic as custom dictates that a man with two last names was difficult to address properly as we often referred to acquaintances by their surnames, and close family and friends by their given name. So it became rather confusing addressing my colleague and friend as either Yamamoto or Date due to the impressions that our department wasn't close knit. Which is important in our prefecture, as we believed that well accustomed workers - signified an efficient system.
 
 Which was likely why we drew the ire of the local seniors who had gathered around the zoning tape we had masked around the property.
 
@@ -30,7 +30,7 @@ The old man cracked his dry lips, "There was a boy who wandered inside the house
 
 "Yes. The dolls. Have you been told nothing?"
 
-"I have been briefed by my seniors," Date admitted. "However, I wasn't aware that there were still belongings inside." He turned to me, "Perhaps we would have to document and store all of the items in case the family comes looking in the future."
+"I have been briefly instructed by my seniors," Date admitted. "However, I wasn't aware that there were still belongings inside." He turned to me, "Perhaps we would have to document and store all of the items in case the family comes looking in the future."
 
 "Bahh," the old man grunted. "They're never coming back here."
 
@@ -82,9 +82,9 @@ And I was glad that we were at least met with much of the same dust that had set
 
 "I wonder why this wasn't noted by the local clerks?"
 
-"Perhaps they were," I commented, "But the records were lost after the war."
+"Perhaps they were," I commented, "But the records could have been lost after the department digitized everything."
 
-"That or digitization," he added. "Shame that we have to cart this stuff off to a storage somewhere. Antiques are profitable today, you know."
+"Hmm," he nodded. "Shame that we have to cart this stuff off to a storage somewhere. Antiques are profitable today, you know."
 
 "Don't even think about it," I snapped a photo of him holding an old paper weight from the writing desk.
 
