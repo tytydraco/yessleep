@@ -1,0 +1,13 @@
+My mom has been stalked by something or somebody for years now. I now understand why she was so terrified. It all started back in 2006(September 30th). My mom slid under her covers to sleep.*Tap Tap* she thought it was just her dream coming into her mind better.*BANG BANG* she gazed over at the window a little scared. There standing in the flood lights was a man. His jaw it looked like it had been broken at least seven times, the white light of the flood lights contrasted with his yellow sharp teeth. He gave her a little her cock as she ram to her parents room. They didn’t believe her thinking she just wanted attention. She slowly crept back to her room. He was still there, knowing she couldn’t go to her parents my mom slid into to bed uncomfortably. This went on until she was 24.
+
+Once she got her own home she bought metal shutters for every window and door. My mom(30yrs old now) told me this story many times growing up. A month ago I (15f) convinced her that he’s definitely gone now since it’s been six years. We left the blinds open that night. At around 3AM I woke up to banging on my window. I carefully gazed over at the window. There was the man, the man that terrorized my mom for years.
+
+The man that my mom has been terrified of coming back for six years. I let out a blood curdling scream. Seconds later my mom rushed in. When she asked what was wrong all I could do was point at the window. My mom slowly crept over to the window and slid open the curtains. She gasped seeing a message written in blood on the glass pane. The message read “guess who’s back?”.
+
+It’s been a month since that happened. My mom and I were stalked and scared for a month. My mom didn’t want me going out on Halloween this year, I understood since I didn’t have plans any ways. At around 1AM I woke up to my mom screaming bloody murder. I rushed down the hall to her door and tried the door knob.
+
+It was locked. I rushed back to my room to grab a bobby-pin. As I grabbed it the screams from my moms room stopped. I ran down the hall way to her door again. I picked the lock and rushed inside. There layer my mom, gutted. I screamed seeing a figure in the corner of the room rise up. I lost the ability to scream and stood there with my mom hanging open in pure terror. 
+
+I ran as fast as I could towards my neighbors house. Until the man tackled me to the concrete of the street. He started slashing and stabbing at me, until his brains were blown out. The man fell face first to the ground revealing my neighbor holding a gun. 
+
+I couldn’t move all I could do was lay on the ground,crying and shaking. Until the police arrived. So god please never look at your window if you hear banging on it.
