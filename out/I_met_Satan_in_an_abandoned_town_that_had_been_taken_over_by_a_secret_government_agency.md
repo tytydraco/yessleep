@@ -104,7 +104,7 @@ As I came out from the dry riverbed I had taken refuge in, I realized no one was
 
 “Your suspicions have been correct for a long time,” Satan said, his face totally expressionless. “Your girlfriend has been having sex with your best friend nearly every day for the past year. When you were working to support her, she was betraying you over and over. They are traitors to you, totally unworthy of your attention. Ants in the afterbirth have more meaning than their lives did. And I did you a favor by killing them. 
 
-“They were worthless sheep, and the world is full of worthless sheep. But you, my friend, are different. Will you follow me?” I thought for only a moment and nodded. I had a feeling if I said no, I would die a horrible death on the spot.
+“They were worthless sheep, and the world is full of worthless sheep. They are more sheep for the Sheep God. But you, my friend, are different. Will you follow me?” I thought for only a moment and nodded. I had a feeling if I said no, I would die a horrible death on the spot.
 
 “Every President and world leader in the past two centuries has given me his allegiance,” Satan said to me, showing me his perfectly white, sharpened teeth in a grisly smile. “Everyone from Hitler to JFK to Stalin to Obama has pledged his soul to me, and in exchange, I gave them the power they desired. And now I ask you, do you also wish for power, for money, followers, or anything else your heart desires?” I barely had to think about it.
 
@@ -116,7 +116,7 @@ As I came out from the dry riverbed I had taken refuge in, I realized no one was
 
 “Just sign here,” he said, pointing to a thick line on the bottom. I took the quill pen and began to move it towards the line, but he laughed.
 
-“Not like that!” he said, giving me a dagger. “Cut your hand and sign it in your blood.” I put the knife over my left palm, hesitating for a moment, before taking a deep breath and slashing it into the skin. A burning pain shot through my hand. I dipped the tip of the quill in the drops of blood pooling in my palm, signing my name in cursive on the parchment. As soon as I had finished, the paper disappeared back into a puff of smoke. As soon as it did, my hand re-knitted itself, healing within seconds, and I began to feel a rush of euphoria and light enter my body.
+“Not like that!” he said, giving me a dagger. “Cut your hand and sign it in your blood.” I put the knife over my left palm, hesitating for a moment, before taking a deep breath and slashing it into the skin. A burning pain shot through my hand. I dipped the tip of the quill in the drops of blood pooling in my palm, signing my name in cursive on the parchment. When I had finished, the paper disappeared back into a puff of smoke. As soon as it did, my hand re-knitted itself, healing within seconds, and I began to feel a rush of euphoria and light enter my body.
 
 It felt as if someone reached into my heart with invisible hands made of light and pulled out all the stress, all the anxieties and insecurities built up there. All my depression and sickness at finding out my girlfriend had been cheating on me with my best friend evaporated in an instant, and I felt pure bliss, thinking of their burnt bodies in the dirt of the destroyed ghost town. 
 
