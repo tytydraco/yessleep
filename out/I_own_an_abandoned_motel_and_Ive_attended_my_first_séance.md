@@ -156,8 +156,10 @@ The notebook had once defined the code of conduct between the entities and their
 
 Surprisingly, I fell asleep quicky and without conflict that night. By the time I awoke the next day, the sun was already setting. I was horrified, but also strangely refreshed. Sometimes our bodies take what they truly need, I guess. I treated myself to a long, hot shower, put on clean clothes and then forced myself into the kitchen.
 
-Unfortunately, sixteen hours of sleep hadn’t replenished my empty fridge. I found a block of cheddar and began to cut it up. Halfway through my task, something caught my eye. I put the cheese down and stood at my sink, looking out the window. 
+Unfortunately, sixteen hours of sleep hadn’t replenished my empty fridge. I found a block of cheddar and began to cut it up. Halfway through my task, something caught my eye. I put the cheese down and stood at my sink, looking out the window.
 
 There was a light on in Cottage 7.
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/)

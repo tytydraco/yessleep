@@ -1,14 +1,14 @@
- I moved to Piney Point in 1995, shortly after my marriage fell apart. I was already drifting away from my wife, working a brutal corporate job that dulls your capacity for affection. Then my dad fell ill in Houston, and we moved back to Texas to help him see out his last days in dignity. He soon passed, leaving me behind a row house in East Texas and two unopened bottles of Oxycodone. Pretty soon, I was lost at sea. I hardly even remember signing the papers, but I don’t blame her for leaving. Those little blue pills will snatch away a piece of your soul. 
+I moved to Piney Point in 1995, shortly after my marriage fell apart. I was already drifting away from my wife, working a brutal corporate job that dulls your capacity for affection. Then my dad fell ill in Houston, and we moved back to Texas to help him see out his last days in dignity. He soon passed, leaving me behind a row house in East Texas and two unopened bottles of Oxycodone. Pretty soon, I was lost at sea. I hardly even remember signing the papers, but I don’t blame her for leaving. Those little blue pills will snatch away a piece of your soul.
 
 I eventually got clean and moved away, figuring the shack my father gifted me would help me disappear. I needed to leave the world, just for a while at least. The rest of my life began that day.
 
-Piney Point’s a tiny, mundane town surrounded by endless acres of the East Texas forest. Folks around here call the woods “The Big Thicket,” which stretches over 54,000 miles across five states. I found my sense of purpose in the Big Thicket. Exploring the woods teeming with nature slowly brought me back to life. The townies teased me about spending so much time there, jokingly referring to me as the “Forest Ranger” even though I worked at the local bank. 
+Piney Point’s a tiny, mundane town surrounded by endless acres of the East Texas forest. Folks around here call the woods “The Big Thicket,” which stretches over 54,000 miles across five states. I found my sense of purpose in the Big Thicket. Exploring the woods teeming with nature slowly brought me back to life. The townies teased me about spending so much time there, jokingly referring to me as the “Forest Ranger” even though I worked at the local bank.
 
-What makes our neck of the woods so special is that we have a specific species of Lyrebirds. You can find Lyrebirds all over North America, but those living here are native to Australia. The founder of this town, Leamon Tuttle, brought the superb fowl back to Texas after spending some time in the Outback. He raised them on his property, and they were carelessly released into the wild after he passed, soon becoming almost invasive.  I love the birds. My house is filled with drawings of them, puffing out their tails shaped like Apollo’s golden lute. 
+What makes our neck of the woods so special is that we have a specific species of Lyrebirds. You can find Lyrebirds all over North America, but those living here are native to Australia. The founder of this town, Leamon Tuttle, brought the superb fowl back to Texas after spending some time in the Outback. He raised them on his property, and they were carelessly released into the wild after he passed, soon becoming almost invasive.  I love the birds. My house is filled with drawings of them, puffing out their tails shaped like Apollo’s golden lute.
 
-If you don’t know about them, Lyrebirds are amazing creatures. First, they’ve been around for fifteen million years, practically making them living dinosaurs. Secondly, they can mimic almost any sound. Most of the time, they copy the sounds of other birds to attract mates, but they’ve also been observed mimicking human sounds. They sing car alarms, chainsaws, and can even pick up remnants of conversations from human passerbys. 
+If you don’t know about them, Lyrebirds are amazing creatures. First, they’ve been around for fifteen million years, practically making them living dinosaurs. Secondly, they can mimic almost any sound. Most of the time, they copy the sounds of other birds to attract mates, but they’ve also been observed mimicking human sounds. They sing car alarms, chainsaws, and can even pick up remnants of conversations from human passerbys.
 
-I walk on the trails during my lunch break every afternoon to reset my brain for the day.  It also helps me power through any stress I might be having. Even though I’ve been sober for almost thirty years, unresolved tension can move the needle toward falling off the wagon. I am not going through opioid withdrawal ever again. 
+I walk on the trails during my lunch break every afternoon to reset my brain for the day.  It also helps me power through any stress I might be having. Even though I’ve been sober for almost thirty years, unresolved tension can move the needle toward falling off the wagon. I am not going through opioid withdrawal ever again.
 
 During this walk, I heard an exciting call that resembled a kookaburra’s. Kookaburras don’t reside anywhere else, but in Australia and New Guinea, so it had to have been a Lyrebird. I was in awe that the Lyrebirds remembered one of their long-lost cousins from the homeland. I sat on a nearby stump to take in the sounds of nature when I suddenly heard a human voice.
 
@@ -22,7 +22,7 @@ I whipped around, looking for the culprit, only to see a large male Lyrebird nip
 
 I was so startled I nearly jumped out of my boots. Another Lyrebird sauntered by echoing the same call before switching to the sound of a woodpecker. I composed myself and then continued on the trail, realizing I was late for work. The calls were definitely copied from a human’s voice, but looking back, they didn’t really sound human. The voice was deeper and more visceral. I began to feel unsettled and hurried back to my office, yet I couldn’t shake the feeling of unease until I got ready for bed. Were the birds talking to me? Was it someone else?
 
-The following day was Saturday, which meant I was going on a longer hike. One of my coworkers said they ran into an alligator, so I was interested in spotting the elusive creature to draw in my trailbook. It was a beautiful Saturday morning, but the woods felt unusually sleepy. I followed my coworker's directions to carefully reach the alligator habitat when I suddenly heard another voice. 
+The following day was Saturday, which meant I was going on a longer hike. One of my coworkers said they ran into an alligator, so I was interested in spotting the elusive creature to draw in my trailbook. It was a beautiful Saturday morning, but the woods felt unusually sleepy. I followed my coworker's directions to carefully reach the alligator habitat when I suddenly heard another voice.
 
 ‘*HELP!”*
 
@@ -36,17 +36,17 @@ I sprinted north toward the voice, borrowing through the pines and bushes, not e
 
 I ran harder than ever before until I lost my footing and tripped over a tree root. I tumbled forward, feeling the earth cut, gnaw, and scrape at my skin. My glasses were knocked off my head, and I fumbled around on the damp ground looking for them. I put them on and found myself in an area of the forest I’d never seen before.
 
-It was a beautiful meadow surrounded by pine trees, even more prominent than the ones I was used to. White dogwood flowers covered the ground, and American beautyberry bushes were everywhere. How had I never seen this place before? 
+It was a beautiful meadow surrounded by pine trees, even more prominent than the ones I was used to. White dogwood flowers covered the ground, and American beautyberry bushes were everywhere. How had I never seen this place before?
 
 In the middle of the meadow was an ancient-looking stone cross covered in moss. I could faintly hear the sound of rushing water in the distance, but other than that, the field was silent. It was strange how quiet it was in a place usually teeming with nature. I could almost hear my organs working to keep me alive. I walked to the cross to study it when I heard the voice again.
 
 “HELP ME, PLEASE! I’M BEGGING YOU.”
 
-I quickly turned around, none other to see a Lyrebird trotting in the distance. The Lyrebird perched its head up and whistled again, nipping at the ground for a worm. I shook my head in disbelief and walked toward the stone cross, hoping to find my way out of the forest. 
+I quickly turned around, none other to see a Lyrebird trotting in the distance. The Lyrebird perched its head up and whistled again, nipping at the ground for a worm. I shook my head in disbelief and walked toward the stone cross, hoping to find my way out of the forest.
 
-“FOUND YOU!” 
+“FOUND YOU!”
 
-I darted around to look at the Lyrbird. It was the same disembodied voice from yesterday, though it sounded far more coherent. 
+I darted around to look at the Lyrbird. It was the same disembodied voice from yesterday, though it sounded far more coherent.
 
 “FOUND YOU!” The voice cried again. But to my horror, the sound wasn’t coming from the bird who was now gone. I whipped around but just saw an open field. I had never felt more alone in my entire life.
 
@@ -93,5 +93,3 @@ It’s mine.
 ….help me please.
 
 &#x200B;
-
-[The Piney Point Tales](https://www.reddit.com/r/PineyPointTales/)

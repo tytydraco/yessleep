@@ -199,3 +199,5 @@ I screamed long and hard enough for every damned creature, every bloodthirsty re
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239)
 
 [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/)
+
+[\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/)

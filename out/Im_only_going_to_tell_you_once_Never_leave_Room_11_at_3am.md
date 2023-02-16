@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/113wkj6/dont_make_me_tell_you_twice/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
 Eleven is a conniving number. Wedged between two round, robust integers, it sits on the fringe of all that is balanced. It sneaks and schemes. It lurks and loiters.
 
 I only learnt of the number’s limitless layers when I left a hotel room — numbered eleven — at precisely three in the morning. Right on the hour, minute, and second. I believe that’s how it works, but I only ever received fragmented answers.
@@ -121,5 +123,7 @@ Sydney eventually swung to her right, fumbling with a door handle, and we both s
 Thankfully, we heard the chambermaid’s abnormally-quiet footsteps pitter-patter across the carpet past our room and disappear into the distance. And how wonderful it would have been for the horror to end there.
 
 But a telephone rang in the darkness.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/113wkj6/dont_make_me_tell_you_twice/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [X](https://www.reddit.com/r/dominiceagle)
