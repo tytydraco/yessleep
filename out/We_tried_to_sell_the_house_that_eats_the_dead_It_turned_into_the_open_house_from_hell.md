@@ -205,3 +205,5 @@ I thought back, and it was true. I hadn’t loved the house or hated it. I’d j
 She closed her eyes as if remembering something, and then nodded her head. For a moment, I couldn’t tell if she was afraid or amused.
 
 Finally, she just whispered, “It does attract a certain kind of buyer, [doesn’t it?](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)”
+
+[Update!](https://www.reddit.com/r/nosleep/comments/113jtos/we_owned_a_house_that_eats_the_dead_it_wasnt_the/)

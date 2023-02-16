@@ -78,7 +78,7 @@ Another shot sent the beast onto the burning stove, it's cheap jacket and scarf 
 
 "Steph, are you for real? If not for you I wouldn't be here! You're like, some kind of Van Helsing!".
 
-" Oh, what do you know. When I was in the village with my dead hub..he had such demons amongst his friends, you wouldn't believe it. Even now my blood runs cold thinking of it".
+" Oh, what do you know. When I was in the village with my dead hub..he had such ghouls amongst his friends, you wouldn't believe it. Even now my blood runs cold thinking of it".
 
 I downed my glass in two gulps"And uh, you weren't even a little bit scared?"
 
