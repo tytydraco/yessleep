@@ -257,3 +257,5 @@ I stayed there for a long time, thinking about everything he had said. It was to
 [Part 8](https://www.reddit.com/r/nosleep/comments/10oipwq/i_work_at_a_clothing_store_my_day_off/)
 
 [Part 9](https://www.reddit.com/r/nosleep/comments/10pq5g5/i_work_at_a_clothing_store_i_made_my_coworker_cry/)
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/113y7xs/i_work_at_a_clothing_store_going_for_a_swim/)

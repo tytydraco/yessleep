@@ -48,7 +48,7 @@ The woman clicked her tongue again, "Just let them do their jobs. Do not put ide
 
 Genji scoffed, "See Chibi. I'm doing the community a service."
 
-"Then it is well gossiped that the daughter of the household gave birth to a doll."
+"Then it is well gossiped that the Daughter of the household gave birth to a doll."
 
 At this the others gasped.
 
@@ -120,9 +120,9 @@ It was all I needed to to see before running through the doorway on the other si
 
 "After you took the photo, I saw this behind me. Look!"
 
-The room was unlike any of the others we had seen. It was taller than any cathedral I had ever been inside, so dark that our flashlights shied away from the top as they gleaned the entrenched floor. There on the ground was a miniature city.
+The room was unlike any of the others we had seen. It was taller than any cathedral I had ever been inside, so dark that our flashlights shied away from the top as they illuminated the entrenched floor. There on the ground was a miniature city.
 
-"It's a scaled version of the area," Yamamoto exclaimed. "Look, I can see my house," he pointed to a nearby corner."
+"It's a scaled version of the area," Yamamoto exclaimed. "Look! I can see my house," he pointed to a nearby corner."
 
 "Yamamoto," I told him. "You don't understand. I saw a doll blink."
 
