@@ -1,19 +1,19 @@
 The adrenaline was strong. Not fear though. Not yet. I was intrigued. The options were laid out in a simple list.
 
 
-Video of every dream you have ever had (from Age 3 onwards) - $100.00
+Video of every dream you have ever had (from Age 3 onwards) - $99.99
 
 
-Video of every memory you have (Including forgotten and damaged memories) - $1000.00
+Video of every memory you have (Including forgotten and damaged memories) - $999.99
 
 
-Video of every daydream/fantasy you have ever had (from Age 2 onwards) - $10,000.00
+Video of every daydream/fantasy you have ever had (from Age 2 onwards) - $9,999.99
 
 
-Audio of every thought you have ever had - $20,000.00
+Audio of every thought you have ever had - $19,999.99
 
 
-A transcript of every word and sentence you have ever spoken - $30,000.00
+A transcript of every word and sentence you have ever spoken - $29,999.99
 
 
 I had enough money for the video recording of my dreams, so I bought it and eagerly waited for the team to show up. The team is part of a company named Disinter.

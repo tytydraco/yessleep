@@ -392,7 +392,7 @@ It was much later, when Ethan was sleeping downstairs, and I was sitting in the 
 
 I caught her nose twitch, and she chuckled. “I think I’m getting a cold. It just came on suddenly, like out of the—”
 
-I didn’t have enough time to stumble back or register what was happening—before a vivid explosion of crimson was coating my eyes, my face, my fucking cheeks. It painted me. I can still fucking feel it. My girlfriend covering me like paint. She was so warm, dripping from every piece of me. I’m not going to say my school bus exploded from her like in the fucking cartoons, because that shit isn’t real. But what I did, see, was her face expanding and bloating, like something was under her skin. I was standing in glistening, pooling red when I heard them.
+I didn’t have enough time to stumble back or register what was happening—before a vivid explosion of crimson was coating my eyes, my face, my fucking cheeks. It painted me. I can still fucking feel it. My girlfriend covering me like paint. She was so warm, dripping from every piece of me. I’m not going to say my school bus exploded from her like in the fucking cartoons, because that shit isn’t real. But what I did see, was her face expanding and bloating, like something was under her skin. I was standing in glistening, pooling red when I heard them.
 
 Something whizzed past my face, like a fly. I wanted to swat it, but my body wouldn’t move.
 

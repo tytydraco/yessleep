@@ -1,4 +1,4 @@
-(First: https://redd.it/111m676 )
+(First: https://redd.it/111m676  Next: https://redd.it/113cjed)
 
 A few months ago, I started working on some very strange cases as a CSI. Bodies were being found inside solid objects. Inside a tree, inside a building, and inside a car. It simply wasn’t possible for them to be in those places in such a short amount of time. And the lab results came back suggesting that somehow, the bodies became fused into the material they were found inside. 
 
