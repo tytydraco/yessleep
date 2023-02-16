@@ -1,0 +1,15 @@
+I've always been a skeptic when it comes to the supernatural. Ghosts, spirits, and all manner of things that go bump in the night always seemed like nothing more than figments of overactive imaginations, the ideas of people who watch too much TV, paranoid and have lived sheltered, boring and uneventful lives. That is, until I moved into my new house.
+
+From the moment I stepped through the front door, I felt like I was being watched. It was as if the walls had eyes, and every creak and whisper was a sinister laugh directed at me. At first, I tried to brush it off as my own paranoia, how could there possibly be anything haunting a house, let alone anything to be remotely afraid of? Yet, the feeling only grew stronger as time went on.
+
+Then the nightmares started. I would wake up in the middle of the night, drenched in sweat, my mattress and duvet soak. I had the sense that something was standing at the foot of my bed. I would hear whispers and moans, as if a multitude of voices were speaking to me from the shadows from every direction, filling my mind with endless torment.
+
+As the days went by, the incidents became more frequent and intense. I would see shadowy figures darting in and out of my peripheral vision, and sometimes I would hear footsteps echoing in the halls even though I knew I was alone in the house and that it wasn’t possible for someone to be there with me.
+
+But the worst was yet to come. One night, as I was lying in bed, eyes closed, trying to fall asleep, I felt a cold breath on my face. I opened my eyes to see a figure hovering over me, its eyes glowing like embers in the darkness. It reached out to touch me, and I felt a chill run down my spine that seemed to freeze me to the core.
+
+I tried to scream, but my voice was caught in my throat. Then, as quickly as it had appeared, the figure vanished, and I was left alone in my bed, shaking and once again, drenched in sweat. But I knew for sure now that I wasn't alone in the house anymore. Something was there, something malevolent and evil.
+
+The next few weeks were a blur of constant fear, terror and anxiety. I would wake up in the middle of the night to find furniture overturned and objects scattered across the floor. I would hear voices, something calling my name, and footsteps, and the number of shadowy figures darting across the room increased tenfold but not just at night or while I was in bed now, but they would appear during the day no matter what I was doing!
+
+Eventually, I couldn't take it anymore. I moved out of the house and never looked back. But the experience left me scarred for life. I realised that there are things in this world that we can't explain, things that defy our understanding and our science. And sometimes, those things are dark and terrifying beyond all [measure.](https://youtu.be/BMm0eBNuG5M)
