@@ -152,7 +152,7 @@ They were moving so perfectly that it almost looked magical.
 
 And as I drew closer, I noticed something else unusual. It was difficult to see, so I got even closer, until I was nearly standing inside the city. I saw the doll of a woman walking along the side of the road. She looked so lifelike that her hair even moved as if it were windy, but it moved oddly as pieces of it were stuck to a nearly translucent string attached to the top of her head. I got even closer and touched it. The doll nearly tripped, but I didn't care, as I followed the string upwards with my finger and shining the light to the ceiling.
 
-There were masks looking down at me!
+There were masked figures clad by the shadows looking down at me!
 
 They dotted the upper banisters like owls in a barn. My knees buckled as I backed roughly into a corner, pulling out my phone and dialing the police. I was so relieved that an operator picked up that I immediately began screaming for help. I told them that I was at the Doll House and that there were people inside. That they had killed my friend! The officer on the line kept reassuring me that they were sending help right away.
 
