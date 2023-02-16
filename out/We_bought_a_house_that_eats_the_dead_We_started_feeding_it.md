@@ -1,4 +1,4 @@
-The first time we noticed it was when the house ate the flowers. It was a little bouquet of peonies that Aaron’s mom had picked from her garden. We left them out in a vase overnight, and when we woke in the morning, they were gone.
+The first time we noticed it was when the house ate the flowers. It was a little bouquet of peonies that Aaron’s stepmom had picked from her garden. We left them out in a vase overnight, and when we woke in the morning, they were gone.
 
 “I never brought you flowers,” she told us. The kids didn’t remember either. Only Aaron and I had any memory of the moment where she burst in the front door holding them, welcoming us to our new home.
 
