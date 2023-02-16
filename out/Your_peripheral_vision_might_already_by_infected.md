@@ -112,4 +112,4 @@ I still have no idea of the smiles at the edge are real or if Randy was just a n
 
 But I guess I got my answer after all. I keep showing up to work, not because of any grand rebellion against fate or misguided attempt to seize control, but because I don’t know what else to do. No one would believe me. I don’t even know for sure if I believe myself. So I just keep showing up, filing reports, and going home, because what else can I do?
 
-But I make sure always carry a knife, just in case.
+But I make sure I always carry a knife, just in case.

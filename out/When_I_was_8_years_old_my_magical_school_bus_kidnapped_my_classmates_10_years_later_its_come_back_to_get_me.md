@@ -28,7 +28,7 @@ I couldn’t breathe, and I had to be told repeatedly that I was okay. But mom h
 
 Because for the first time in what felt like forever, mom had actually looked at me. Spoke to me. Without slurring her words or getting distracted. Dad took me to therapy, but I was just told I was a child with an over-active imagination in grief. It did get better eventually. Before I knew it, I was eight years old. Four years since my mother’s death, and I only ever heard her voice when I was upset or alone. 
 
-Her words were still deeply rooted inside of me, though I knew how to control my thoughts. I even got over my fear of school buses, after dad had practically dragged me onto on my first day of third grade and embarrassed me enough to suppress my fear. I don’t know what I expected. Maybe I expected the bus to grow sharp teeth and eat all of us. But that didn’t happen. It was just a normal bus—and I felt stupid for listening to my mom. Dad was right. 
+Her words were still deeply rooted inside of me, though I knew how to control my thoughts. I even got over my fear of school buses, after dad had practically dragged me onto one on my first day of third grade embarrassing me enough to suppress my fear. I don’t know what I expected. Maybe I expected the bus to grow sharp teeth and eat all of us. But that didn’t happen. It was just a normal bus—and I felt stupid for listening to my mom. Dad was right. 
 
 I had an overactive imagination, and yellow school buses were nothing to be afraid of. My third grade teacher was called Mrs White, and on the very first day of third grade, she had told our class that we were special, before planting her face into a pie made of whipped cream, making us all laugh.
 

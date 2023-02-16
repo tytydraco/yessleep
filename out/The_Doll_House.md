@@ -42,7 +42,7 @@ The old man cracked his dry lips, "There was a boy who wandered inside the house
 
 Genji's eyes widened, "Rumors? How is it a rumor when we have all heard it. Still scrawling around at night. Waking me up. Disturbing my sleep. Giving no decency or regards to the tired. Bahh."
 
-The woman clicked her tongue again, "Just let them do their investigation. Do not put ideas into their heads."
+The woman clicked her tongue again, "Just let them do their jobs. Do not put ideas into their heads."
 
 "Ma'am, if you don't mind. I would quite like to hear about what happened," Date said. Turning to Genji, "It could prove invaluable."
 
@@ -106,9 +106,9 @@ I shook my head.
 
 I sighed and reluctantly snapped a photo, the bright light consuming the darkness, and when I looked up. Date was missing.
 
-"Date," I called out. He didn't answer. I shined my flashlight across the seemingly endless row of dolls that this room was built for. "Yamamoto," I shouted angrily. "Stop messing around." Still he did not answer. I could see the doorway at the end slightly ajar when it had been closed earlier.
+"Date," I called out. He didn't answer. I shined my flashlight across the seemingly endless row of dolls that this room was built for. "Yamamoto," I shouted angrily. "Stop messing around." Still he did not answer. I could see the doorway at the end, now slightly ajar, when it had been closed earlier.
 
-I took a single step forward to order give to him an earful about his manners when I heard my feet crisp the board beneath me. And jumped as the door behind me slammed shut! I nearly wet myself as I scrambled to the other side. My flashlight bouncing across the top of the dolls heads.
+I took a single step forward in order to give him an earful about his manners when I heard my feet crisp the board beneath me. And jumped as the door behind me slammed shut! I nearly wet myself as I scrambled to the other side. My flashlight bouncing across the top of the dolls heads.
 
 "Yamamoto," I shouted. "This isn't funny."
 
@@ -164,7 +164,7 @@ And it was from my corner cornea that I saw it, from a pile of buses and cars on
 
 Then as if a curtain were slightly drawn, a window appeared to the left of the room. And I realized that we were now looking at the same street that was being shown on the board. There was even a real live police vehicle zooming toward us. I see the red and blue lights punching the sky as the siren wailed in the distance.
 
-I was still smiling as I turned around at the sight of my rescue. But I stopped smiling when I saw that the creature had reappeared and was standing on the other side of the room. It reached a long skinny arm across the city, and with its finger it pushed the police toy on the board away as it neared the Doll House, using its withered nail to guide the car down the street until it rolled off the board and onto the floor.
+I was still smiling as I turned around at the sight of my rescue. But I stopped smiling when I saw that the creature had reappeared and was standing on the other side of the room. It reached a long skinny arm across the city, and with its finger it pushed the police toy on the board, away as it neared the Doll House, using its withered nail to guide the car down the street until it rolled off the board and onto the floor.
 
 Behind me, I could hear the police sirens disappearing. Their sound growing further and further away.
 
