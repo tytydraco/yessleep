@@ -12,7 +12,7 @@ Anyway, she didn't have a purse or an ID or a phone or anything. I swear I asked
 
 We got to my house, and I doubled check she was okay with going in. I said I would be glad to have the Uber take her somewhere else. I'm pretty sure the driver heard this. You could ask him. She didn't say anything other than like this little growl, hiss sound. So I figured maybe she was hungry. 
 
-I took her inside, in a definitely plutonic, with no bad intention kind of way, and sat her on the sofa. I told her I'd get her something to eat. I asked what she liked, but she didn't say. I'm pretty sure she felt more comfortable here than at the bar. I was confident I was doing the right thing. 
+I took her inside, in a definitely platonic, with no bad intention kind of way, and sat her on the sofa. I told her I'd get her something to eat. I asked what she liked, but she didn't say. I'm pretty sure she felt more comfortable here than at the bar. I was confident I was doing the right thing. 
 
 I figured maybe she wasn't hungry, so I sat down next to her, like in a friendly way, not in any sort of stranger danger way. She didn't move. I leaned in close, just to see if maybe she was speaking low, and I couldn't hear her, not for any other reason, really. I put my arm around her in case she was cold. If she had said to move it, I definitely would have, no questions asked, but she didn't, so I figured it was fine. That's when everything went downhill.
 

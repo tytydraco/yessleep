@@ -188,7 +188,7 @@ Until I heard clinking at the window. I opened it and saw Sean.
 
 I turned my head to show the bruise on my cheek. Sean calmed down and realized what happened.
 
-I had tears in my eyes. "My mom locked me in my room. I don't have a cell phone. They are keeping me prisoner."
+I had tears in my eyes. "My mum locked me in my room. I don't have a cell phone. They are keeping me prisoner."
 
 Sean gasped. "Okay. Here's what I want you to do. Get your bag, get a few changes of clothes, and climb down. We are going through with our plan early!"
 
