@@ -24,7 +24,7 @@ I ate alone like usual. I tend to eat the same thing because it's predictable. M
 
 My usual bully, Finn, came up and picked up my soda.
 
-"Oi, Sioban! Want this?"
+"Oi, Siobhan! Want this?"
 
 I kept my cool. "Yes. Now, give it back."
 
@@ -66,7 +66,7 @@ I sighed. "Yes, but please don't call me that."
 
 The punk realized that he said something offensive. "Sorry. I never heard your real name. What is it?"
 
-"Sioban."
+"Siobhan."
 
 "I'm Sean." He replied.
 
@@ -118,7 +118,7 @@ We went up to their bedroom. The bedroom looked like how you would expect a punk
 
 I sat on a beanbag chair. Sean sat on his bed across from me.
 
-"So, Sioban. Tell me a bit about yourself?"
+"So, Siobhan. Tell me a bit about yourself?"
 
 "Well, I am 16 years old. My parents are Mary and Rick Macpherson. I haven't been to a doctor, and we don't have the internet-" I stopped when I saw Sean's face go from happily intrigued to concerned.
 
@@ -150,7 +150,7 @@ My parents did not like Sean. I found this out when I was about to leave for sch
 
 I was about to leave until my mom stopped me. 
 
-"Sioban. I don't want you around Sean."
+"Siobhan. I don't want you around Sean."
 
 This confused me. She never cared about me until now. 
 
@@ -184,7 +184,7 @@ I sat in my room for the whole day, starving, bored, and alone.
 
 Until I heard clinking at the window. I opened it and saw Sean.
 
-"What the fuck, Sioban?!" Sean stage whispered to me to avoid alerting my parents. "Why did you ditch me!?"
+"What the fuck, Siobhan?!" Sean stage whispered to me to avoid alerting my parents. "Why did you ditch me!?"
 
 I turned my head to show the bruise on my cheek. Sean calmed down and realized what happened.
 
@@ -202,7 +202,7 @@ As we drove, my stomach growled. We decided to grab dinner at a fast food place 
 
 Once we were back on the road, we were quiet. I think we were just wired from all of the sneaking around. 
 
-Sean spoke. "Y'know, Sioban. My parents suck too. My mum leaves me alone for days to even a month on end."
+Sean spoke. "Y'know, Siobhan. My parents suck too. My mum leaves me alone for days to even a month on end."
 
 "Yeah, I gathered. No responsible parent would let their child eat Doritos and Monster for breakfast."
 
@@ -218,7 +218,7 @@ We saw the sign for the record room and got in. We found the computer and I type
 
 I found my record, not expecting much. Until I saw something interesting.
 
-"Sioban Macpherson was diagnosed with Autism Spectrum Disorder at age four after her parents, Mary and Rick Macpherson, grew concerned about her development being slower than normal, overstimulation, repetition, and hyperfixation on the same topics.
+"Siobhan Macpherson was diagnosed with Autism Spectrum Disorder at age four after her parents, Mary and Rick Macpherson, grew concerned about her development being slower than normal, overstimulation, repetition, and hyperfixation on the same topics.
 
 After testing and asking questions, we were able to diagnose her properly and point her parents to resources to help her.
 
@@ -248,9 +248,9 @@ The door opened and we jumped.
 
 It was a doctor with gray red hair and a beard. "Hey! You're not supposed to be here! This is private!"
 
-"Sir, I am Sioban Macpherson! I need to tell you something!"
+"Sir, I am Siobhan Macpherson! I need to tell you something!"
 
-"Wait. Sioban?" The doctor seemed to remember and got excited. "Oh, I remember you! You were just a wee little lass! Look how big you are! How have you been?"
+"Wait. Siobhan?" The doctor seemed to remember and got excited. "Oh, I remember you! You were just a wee little lass! Look how big you are! How have you been?"
 
 I started to remember him. He was younger and I remember him being really fun and excitable.
 
@@ -274,7 +274,7 @@ My mother pointed to Sean. "There he is! That hooligan kidnapped my daughter!"
 
 "What-No! I went of my own accord!" I sputtered out.
 
-"Look at that bruise on you, Sioban!" My father shouted.
+"Look at that bruise on you, Siobhan!" My father shouted.
 
 "Mum gave me that! You were there!" I shouted back.
 

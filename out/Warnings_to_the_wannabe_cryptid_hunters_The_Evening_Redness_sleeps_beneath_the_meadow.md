@@ -328,3 +328,5 @@ I'm Fiona Novak, descendant of Arkadiusz the traveler, and I'm not scared of mon
 [Part 25](https://www.reddit.com/r/nosleep/comments/10uoaa7/warnings_to_the_wannabe_cryptid_hunters_re_jeremy/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 26](https://www.reddit.com/r/nosleep/comments/10y9ltj/warnings_to_the_wannabe_cryptid_hunters_my_dad/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 28](https://www.reddit.com/r/nosleep/comments/114rsuk/warnings_to_the_wannabe_cryptid_hunters_my_house/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
