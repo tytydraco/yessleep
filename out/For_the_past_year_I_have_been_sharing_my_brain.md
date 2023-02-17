@@ -1,6 +1,6 @@
 $250
 
-That's how much my sane mental state is worth me, apparently.
+That's how much my sane mental state is worth to me, apparently.
 
 About 2 years ago, I was a little low on money. Not dangerously so, but enough where I was looking for a little extra. So, when I saw that a science company called Visiones was offering $250 for "non-dangerous tests & samples", I almost immediately signed up.
 
