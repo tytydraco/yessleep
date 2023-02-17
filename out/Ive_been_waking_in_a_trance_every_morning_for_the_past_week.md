@@ -1,6 +1,6 @@
 The recurring pattern in which I've found myself for the last week exhibits itself as follows:
 
-It begins always with a rich and fulfilling sleep. This is interrupted by a startling awakening, which brings with it an anxiety so disorienting and profound that for fifteen minutes or so, I'm reduced to the irrational behaviours of a mad person.
+It begins always with a rich and fulfilling sleep. This is interrupted by a startling awakening, which brings with it an anxiety so disorienting and profound that for around a quarter of an hour, I'm reduced to the irrational behaviours of a mad person.
 
 I rise and hurridly drink the air in three deep breaths, as if in my sleep I've been completely deprived of all oxygen. Then I am held captive by a paranoia, sending suspicious glances careering out into the darkness. I am yet to see anything. Inevitably, I rest my head back down again onto its pillow and, briefly, try to sleep. Sleep however does not come. Instead, I find the disquiet growing in intensity, and become compelled to rise again, to take 3 more breaths, and to investigate the darkened room with my eyes once more.
 
