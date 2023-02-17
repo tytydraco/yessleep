@@ -187,3 +187,5 @@ Sometimes, when my thoughts get dark like that, I think about how hard it is to 
 See, I used to think the house wanted us because of Aaron, but in the moment where push came to shove, it chose me.
 
 And sometimes, as I lay awake at night, peacefully listening to it feed, I wonder if I was the one it wanted [all along.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update.](https://www.reddit.com/r/nosleep/comments/114ckwe/i_had_a_house_that_eats_the_dead_i_wasnt_the/)
