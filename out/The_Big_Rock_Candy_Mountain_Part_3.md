@@ -383,3 +383,9 @@ I get his limp body over one shoulder and start to hobble toward a thin alley.
 For all I know, this post will be my last, it's being typed with my free hand as that thing closes in. But I'm going to keep putting one foot in front of the other.
 
 I bought the ticket, now I get to take the ride.
+
+
+
+Link to part 4
+
+https://www.reddit.com/r/nosleep/comments/114dpv9/the_big_rock_candy_mountain_part_4/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
