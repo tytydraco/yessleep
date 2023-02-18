@@ -1,6 +1,3 @@
-**I am the author please reach out to me if you want to reuse this or narrate it (I doubt anyone will but I'm proud of my first foray into horror writing.)
-
-
 It was late, or so Timothy thought. 
 
 He'd found himself in another drunken stupor. He went outside to light another cigarette and wished the elderly woman down the road a "good morning"! 
