@@ -127,3 +127,5 @@ I was quickly startled out of my pity party by a gentle hand on my shoulder, mak
 [Part 8](https://www.reddit.com/r/nosleep/comments/10oipwq/i_work_at_a_clothing_store_my_day_off/)
 
 [Part 9](https://www.reddit.com/r/nosleep/comments/10pq5g5/i_work_at_a_clothing_store_i_made_my_coworker_cry/)
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/1156rux/i_work_at_a_clothing_store_eleanora/)

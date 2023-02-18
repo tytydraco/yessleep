@@ -46,7 +46,7 @@ In true dark forest fashion *again,* the forest apparently took his words as a c
 
 No. I wasn’t. A second later, the bushes trembled on each side of the small clearing we stood in, and nearly simultaneously, *two* more of the tiger-like monsters stalked out of the undergrowth. We were now surrounded.
 
-“You were *saying*?” Milo whispered. 
+“You were *saying*?” Milo whispered.
 
 “I’m so happy for him that he has friends,” I said. “I just wish they weren’t even hungrier than he is.”
 
@@ -58,17 +58,17 @@ Still, I immediately shook my head at Asher’s thought. “Oh, hell no,” I sa
 
 “Well, you just might get that chance,” retorted Asher.
 
-I guess the tigers agreed, because they chose that moment to attack. 
+I guess the tigers agreed, because they chose that moment to attack.
 
-Asher, Milo, and I all cursed simultaneously as we scattered to avoid their claws and quills. I swung Sgrios at the closest tiger as it lunged past, getting in only a glancing blow. Backing up to edge myself against a gnarled tree, I let it turn and advance, then jabbed forward, aiming for its face. It roared and managed to sink a fang into my forearm. 
+Asher, Milo, and I all cursed simultaneously as we scattered to avoid their claws and quills. I swung Sgrios at the closest tiger as it lunged past, getting in only a glancing blow. Backing up to edge myself against a gnarled tree, I let it turn and advance, then jabbed forward, aiming for its face. It roared and managed to sink a fang into my forearm.
 
 Groaning, I twisted against its tooth, reaching with my free hand into my pocket for my lighter. Some kind of green-black smoke was emitting from the spot where its fang broke my skin; I was already feeling light-headed. I cursed mentally. Quite possibly its fangs were tipped with venom, which wouldn’t be fun to deal with in the next few minutes.
 
-I pulled out the lighter and flicked it on. Luckily, Henri had finally gotten me an upgrade: a phoenix-made lighter. While not quite as extravagant as a dragon’s style, anything crafted by phoenixes is a force to be reckoned with. A massive ball of fire rolled outwards from the lighter, singeing my fingertips as it collided with the tiger’s chest. 
+I pulled out the lighter and flicked it on. Luckily, Henri had finally gotten me an upgrade: a phoenix-made lighter. While not quite as extravagant as a dragon’s style, anything crafted by phoenixes is a force to be reckoned with. A massive ball of fire rolled outwards from the lighter, singeing my fingertips as it collided with the tiger’s chest.
 
 I covered my face with my arms, flinching back against the tree as the monster roared and fell backwards, flailing, going up in flames. The phoenix fireball burned it to ash unnaturally fast; I had barely clicked the lighter shut by the time the tiger that had just been attacking me collapsed to the ground, nothing but a pile of venom-tipped quills and smoldering embers.
 
-I straightened up against the trunk of the tree, wincing as I looked down at the jagged hole in my jacket sleeve, beneath which my wound was black and green around the edges. The roots seemed to sway slightly beneath my feet. I took a deep breath to steady myself. Its fangs had *definitely* been venomous. 
+I straightened up against the trunk of the tree, wincing as I looked down at the jagged hole in my jacket sleeve, beneath which my wound was black and green around the edges. The roots seemed to sway slightly beneath my feet. I took a deep breath to steady myself. Its fangs had *definitely* been venomous.
 
 I’d have to worry about that in a minute. For now, I pushed myself off the tree, still wielding my lighter in one hand and Sgrios in the other. For the first time since the monsters had attacked, I caught a glimpse of how Milo and Asher were faring.
 
@@ -76,13 +76,13 @@ We weren’t near the river, so Milo had apparently tried to work with what he h
 
 Asher, on the other hand, was—where else? —in a tree. I squinted, the whole forest tilting around me, my vision blurring as the venom began to take hold. It was getting harder to tell, but it looked like Asher was standing on a tree branch, wielding daggers in each hand, swinging at the last tiger as it attempted to climb the tree to reach him. Blood sprayed across the dark roots as he sliced its paws.
 
-I had to help. The phoenix lighter didn’t have a large range, but if I could just get across the clearing, if I could just get closer to the two remaining tigers, I could open my lighter again and burn the other two monsters before they finished off my friends. 
+I had to help. The phoenix lighter didn’t have a large range, but if I could just get across the clearing, if I could just get closer to the two remaining tigers, I could open my lighter again and burn the other two monsters before they finished off my friends.
 
 Easy, right?
 
 Well, it would’ve been, if the venom wasn’t rapidly spreading through my body. I made it a few steps, trudging through the ash and bones at my feet, reaching the lighter out in front of me. The woods were truly swaying now; I felt dizzy and nauseous all at once. Everything seemed to move both way too fast and in slow motion. It was like the world’s worst acid trip.
 
-I tried to tell Milo and Asher that I had the lighter, that it had killed one tiger and could kill theirs too, that I could throw it to them—but I’m pretty sure all that came out was a groan. And then I fell. 
+I tried to tell Milo and Asher that I had the lighter, that it had killed one tiger and could kill theirs too, that I could throw it to them—but I’m pretty sure all that came out was a groan. And then I fell.
 
 Everything was so blurry. I felt dull pain in my arm, saw the black-green smoke slowly wafting upwards from the festering wound there, heard the roars as the tigers continued to attack Milo and Asher. I tried to flick open the lighter, but my finger slipped, and the lighter tumbled onto the leaves beside me—my eyes drifted shut, and everything began to sound very far away, like I was hearing it through a tunnel—
 
@@ -94,13 +94,13 @@ With an effort, I stopped coughing and swallowed hard several times, wincing as 
 
 I twisted to see Acacia crouching next to me, smirking. The resemblance between her and her brother had never been more obvious. “Thank you,” I said.
 
-She reached out a gloved hand and pulled me up to my feet behind her. I slowly glanced around. Milo was still standing ankle-deep in muddy water, looking exhausted. Dirt coated his arms and face, and his glasses were skewed, nearly falling off his face. Asher was still up on a tree branch, though he now sat on it, his legs dangling in the open air. 
+She reached out a gloved hand and pulled me up to my feet behind her. I slowly glanced around. Milo was still standing ankle-deep in muddy water, looking exhausted. Dirt coated his arms and face, and his glasses were skewed, nearly falling off his face. Asher was still up on a tree branch, though he now sat on it, his legs dangling in the open air.
 
 There were also two additional piles of ash, bones, and quills. As my gaze came full circle, I realized that a flamethrower, intricately carved with the same runes I’d seen on Asher’s, lay at Acacia’s feet. “Do all of you carry around flamethrowers?” I asked weakly.
 
 Asher grinned, jumping down from the branch and landing lightly, as if he’d merely stepped off a ledge. “Except when we travel to the human dimension unexpectedly.”
 
-Acacia raised her eyebrows, looking back and forth between me and Asher. “Is *that* where you went? I guess I was right to be worried.” 
+Acacia raised her eyebrows, looking back and forth between me and Asher. “Is *that* where you went? I guess I was right to be worried.”
 
 “My bad,” I said.
 
@@ -128,7 +128,7 @@ As they vanished into the mess of dark, gnarled trunks, Asher turned to me, grin
 
 “Don’t have to tell me twice,” I muttered. He began to pick his way over twisted roots, pushing branches out of his way, and I followed, half a step behind. We’d already lost sight of Acacia and Milo, but I was sure she’d take care of him. Plus, they had the flamethrower.
 
-However, this just left me and Asher, cautiously clambering over roots and through bushes in the darkness. 
+However, this just left me and Asher, cautiously clambering over roots and through bushes in the darkness.
 
 “So,” I said as I focused on stepping exactly where Asher did, assuming he knew safe footholds. “You know what I do. How I exist in both dimensions. How I—unintentionally—do what you said was impossible.” I took a deep breath, feeling awkward. “What about you? What did you mean when you said your people exist on both the *Alive* and *Dead* planes?”
 
@@ -184,10 +184,10 @@ I looped my arm through Milo’s, winked at him, and said, “It’ll be fun. An
 
 Milo looked at me, and his smile widened. His blue eyes seemed to sparkle behind his glasses. “Promise?”
 
-“Never,” I said solemnly. 
+“Never,” I said solemnly.
 
-“Well, come on then,” said Acacia, rolling her eyes. “May as well get it over with.” 
+“Well, come on then,” said Acacia, rolling her eyes. “May as well get it over with.”
 
-With a deep breath, trying to ignore the lingering soreness of the ashen handprints on my neck from the last time I’d been seen here, I followed her out of the trees, Asher and Milo beside me. 
+With a deep breath, trying to ignore the lingering soreness of the ashen handprints on my neck from the last time I’d been seen here, I followed her out of the trees, Asher and Milo beside me.
 
-At least whatever came next, I wouldn’t be facing it alone.
+At least whatever came next, I wouldn’t be facing it [alone](https://www.reddit.com/r/nosleep/comments/1156ldn/ashes_to_ashes_the_bar_at_the_edge_of_reality/?utm_source=share&utm_medium=web2x&context=3).

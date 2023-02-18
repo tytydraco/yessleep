@@ -106,7 +106,7 @@ As I came out from the dry riverbed I had taken refuge in, I realized no one was
 
 “They were worthless sheep, and the world is full of worthless sheep. They are more sheep for the Sheep God. But you, my friend, are different. Will you follow me?” I thought for only a moment and nodded. I had a feeling if I said no, I would die a horrible death on the spot.
 
-“Every President and world leader in the past two centuries has given me his allegiance,” Satan said to me, showing me his perfectly white, sharpened teeth in a grisly smile. “Everyone from Hitler to JFK to Stalin to Obama has pledged his soul to me, and in exchange, I gave them the power they desired. And now I ask you, do you also wish for power, for money, followers, or anything else your heart desires?” I barely had to think about it.
+“Every President and world leader in the past two centuries has given me his allegiance,” Satan said to me, showing me his perfectly white, sharpened teeth in a grisly smile. “Everyone with real power has pledged his soul to me, and in exchange, I gave them whatever they desired. And now I ask you, do you also wish for power, for money, followers, or anything else your heart desires?” I barely had to think about it.
 
 “Of course I do,” I said quickly. With a puff of smoke, an old-looking, rolled-up parchment appeared in Satan’s left hand. He unrolled it, handing me an ancient quill pen and pointing to the bottom line. I didn’t even read the contract, nor could I if I wanted to. It was written in some language I had never seen before, almost reminding me of an ancient Tibetan script I had seen in history books.
 

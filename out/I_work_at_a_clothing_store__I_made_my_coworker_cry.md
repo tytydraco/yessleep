@@ -203,3 +203,5 @@ I stared at him, watching a million emotions flash through his eyes, before he f
 [Part 8](https://www.reddit.com/r/nosleep/comments/10oipwq/i_work_at_a_clothing_store_my_day_off/)
 
 [Part 10](https://www.reddit.com/r/nosleep/comments/113y7xs/i_work_at_a_clothing_store_going_for_a_swim/)
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/1156rux/i_work_at_a_clothing_store_eleanora/)

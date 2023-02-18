@@ -79,7 +79,7 @@ Simon tastes like kittens.
 -------
 
 
-[FB](https://www.facebook.com/P-F-McGrail-181784199029462/).”
+[FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 

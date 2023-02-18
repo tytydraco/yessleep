@@ -1,0 +1,25 @@
+I have been losing most of my hearing since I was young. I can talk and interact with people with hearing aids, but without them, I am completely deaf. I used to have a roommate who practiced playing the tuba while I slept only ten feet away. This does suck sometimes because I can't properly enjoy music; radio is just white noise to me, and it's hard to hold down a job when your customers keep getting frustrated at your poor communication but usually, I don't mind it. 
+
+I've always been the type who enjoys peace and quiet, so when I'm home, I can take my hearing aids out and relax in total silence. As you may have gathered from the title, the problem with this is I can’t tell if the silence is complete or not.
+
+One day, I had a woman over at my new house. Things were getting hot and heavy between us when she heard something downstairs and asked me to check it out. Truth be told, I was more than happy to stay there behind a locked door. I may be deaf, but I'm not dumb. I've seen plenty of horror movies, and we all know what happens to the one who goes off on their own to investigate a strange noise. 
+
+I crept downstairs silently knowing that if I didn’t I most likely wouldn’t get any action with the girl if you know what I mean. Once I got down the stairs to my surprise there was no one there. When I went back upstairs, I found that she had fled. After a few weeks, I had all but forgotten about that incident. 
+
+But the next big red flag came when two police officers suddenly kicked in my door and pointed their guns at me while I was playing a video game in the living room. They shouted commands at me but I couldn’t understand them, I just sat there frozen in fear until they came over and cuffed me. They searched my house and eventually spoke to each other briefly and started asking me questions which I couldn't understand. It took a while, but I finally convinced them to uncuff me so I could put my hearing aids back in. What they told me after gives me chills to this day. 
+
+Apparently, my neighbors heard screaming coming from my house and called 9-1-1. When those two officers arrived, they too heard screaming themselves and kicked in my door. The one who searched the house found no sign of anyone else being there. Since they had nothing on me, they eventually did just leave, albeit with a warning to keep my video game turned down (it was on mute, by the way). That was when I actually started getting scared. I decided to leave my hearing aids in from now on. 
+
+Three days later, I heard footsteps upstairs while making myself dinner. It sounded like someone was running back and forth between the rooms. When I went upstairs with a kitchen knife in hand, I found a secret room that I never knew existed in my guest room. Let me give a bit of context on how I found this secret room: 
+
+There's a large dresser with a mirror on top of it in the guest room. It reaches almost to the ceiling. I never paid much attention to it before, but something about it today seemed off. When I drew closer, it became clear what was wrong. The dresser was sitting on a slight angle I'd never noticed before, there were wheels underneath the dresser, and it made almost no noise when I pulled it away from the wall to reveal a large hole that opened up a room I never knew existed. 
+
+Inside the room was a pile of old ratty blankets with a noticeable dent in the middle of them, almost like a birds nest but made out of blankets. Candy bar wrappers, empty potato chip bags, and open cans were strewn across the floor around the pile of blankets. There was a rusty old fillet knife in the corner, like the kind my grandfather used to own by the dozen. 
+
+As you can imagine, I decided that the best thing to do was to leave as quickly as possible. I left the guest room and headed towards my bedroom, but I stopped in the hallway before I could get to it. The door was slightly ajar, and I could see a shadow moving around in there. I slowly walked to the stairs, and when I took the first step, I somehow managed to place my foot directly on the loudest creaky spot on the whole staircase….
+
+The noise was deafening, even to me, and as soon as it was over, a new set of sounds followed: piercing screams and footsteps rushing towards me from behind. I didn't waste any time trying to look behind me I ran down the stairs, bouncing through the front door seconds later. Thankfully, the distance to the police station was short, and I was able to reach it in just a matter of minutes. 
+
+The authorities never did find out who was living in my guest room. Now, I've all but given up on finding a buyer for this place. I don't live there anymore, and the memories of that night still give me the chills. It's a shame that such a beautiful home had to become a site of terror.
+
+If there's one lesson I learned from this experience, it's to always wear my hearing aids. It might sound like a minor thing, but it could be the difference between life and death. So, my advice to everyone out there is to be cautious, stay alert, and take good care of your senses. You never know what kind of danger might be lurking around the corner.
