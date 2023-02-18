@@ -1,5 +1,3 @@
- 
-
 The atmosphere was thick with an ominous energy, and I could feel an unexplainable sense of dread that was growing with each step I took closer. The once-grand building loomed over me, its walls covered in ivy and its windows boarded up. As I pushed my way through the overgrown garden and up to the entrance, I noticed that the air was thick with a musty, damp scent that made my skin crawl.
 
 As I made my way through the first few rooms, I saw that the place was indeed grand, with high ceilings, intricate moldings, and beautiful antique furniture that had been left to decay. The hallways were dimly lit, with flickering candles casting long shadows on the walls. I could hear strange noises coming from one of the rooms, like a faint whisper that seemed to be calling out to me.
@@ -20,4 +18,4 @@ I took a step back, away from the creatures, and reached out towards the girl. A
 
 She smiled at me, and I knew that I had made the right choice. Together, we walked out of the mansion, leaving the creatures behind. As we stepped out into the sunlight, I felt a sense of relief wash over me. I knew that I had narrowly avoided a fate worse than death, and that I owed everything to the girl who had saved me.
 
-But as we walked away from the mansion, I couldn't shake the feeling that something
+But as we walked away from the mansion, I couldn't shake the feeling that something was wrong.
