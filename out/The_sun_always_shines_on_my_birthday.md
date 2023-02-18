@@ -104,7 +104,7 @@ When I was calm enough, I set up my phone to take a picture of my back.
 
 I'm 99% sure that some random passerby didn't sneak up, slap me, then run away. And I don't think it's a coincidence that I happen to be in the vicinity of where my dad spent his final moments. I won't lie; I'm freaking out. But I'm alive!
 
-For those that don't know already, look up how perform the Heimlich Maneuver on yourself. It could save your life one day! You know, if you don't have a dead loved one to [help you.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2Fdisco-dingus)
+For those that don't know already, look up how to perform the Heimlich Maneuver on yourself. It could save your life one day! You know, if you don't have a dead loved one to [help you.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2Fdisco-dingus)
 
 [dd](https://www.reddit.com/user/disco-dingus/comments/10f0v6u/all_my_stories_compiled_into_one_sooperdooper_post/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
