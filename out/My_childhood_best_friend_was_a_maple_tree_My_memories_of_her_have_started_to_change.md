@@ -182,7 +182,7 @@ She took a moment to respond, and said,
 
 “YOU ATE MY FRIEND YOU-”
 
-“Please, listen, I must do these things so I can live. They become a part of me. In this way, they never truly die, because I will always remember them and cherish what they gave to me.”
+“Please, listen, I must do these things so I can live. They become a part of me. In this way, they never truly die, because I will always remember them and cherish what they gave to me. I only gave you those memories to protect you.”
 
 I already felt the churning in my stomach as she said that, and yet again a steaming jet of vomit erupted from my throat. That’s why it had tasted coppery, masked by the bitter sap.
 
