@@ -216,7 +216,7 @@ The teacher straightened up from where she had been helping Eleanor Chase. The t
 
 “What does it say, Pippa?”
 
-I hadn’t noticed how pale the girl was, until I was looking at her properly. Pippa was a redhead, so her skin complexion was practically pallid Teller, while her hair bounced in a ponytail. Her hand holding the piece of paper was trembling, but her smile only stretched right across her face. 
+I hadn’t noticed how pale the girl was, until I was looking at her properly. Pippa was a redhead, so her skin complexion was practically pallid white, while her hair bounced in a ponytail. Her hand holding the piece of paper was trembling, but her smile only stretched right across her face. 
 
 “It says,” Pippa cleared her throat dramatically to make sure everyone was listening, and that she was the centre of attention. I didn’t like Pippa. She pretended to be the smarty pants, despite knowing all her test answers were wrong. I couldn’t help feeling jealous of her.
 
@@ -228,7 +228,7 @@ I hadn’t noticed how pale the girl was, until I was looking at her properly. P
 
 Pippa’s eyes narrowed. “I’m not lying!”
 
-“Then tell us what it says!” Evie’s lip curled. “You’re just pretending so you can be all dramatic. I know you’re game.”
+“Then tell us what it says!” Evie’s lip curled. “You’re just pretending so you can be all dramatic. I know your game.”
 
 “Evie, that’s enough.” Mrs Teller shot the girl a look, and Evie backed down, turned around in her chair and huffed loudly. The teacher’s attention flicked back to Pippa. “Alright, what does it say? You can tell the whole class, sweetie. Don’t worry, they’ll be able to see it soon.”
 
