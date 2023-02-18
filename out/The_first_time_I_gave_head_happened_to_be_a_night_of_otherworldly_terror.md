@@ -268,6 +268,6 @@ Before I go I just want to mention one more thing from that night.
 
 After the drugged up alien thing left, I heard a rooster crow. It confused the hell out of me for a while until I realised it was coming from the speakers. The decks had been repeatedly spinning *Little Fluffy Clouds* by The Orb since the DJ had been carried off by the cube. I went to stop the music, acknowledging the DJs sequined cowboy hat on the floor. But I was distracted by a whistle. My blood ran cold.
 
-I'm 99% sure it was the naked guy. He was still dancing, surrounded by a fading gold aura. He was so high he was oblivious to his surroundings. Even oblivious to being inside-out.
+I'm 99% sure it was the naked guy. He was still dancing, surrounded by a fading gold aura. He was so high he was oblivious to his surroundings. Even oblivious to being [inside-out.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2Fdisco-dingus)
 
 [dd](https://www.reddit.com/user/disco-dingus/comments/10f0v6u/all_my_stories_compiled_into_one_sooperdooper_post/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
