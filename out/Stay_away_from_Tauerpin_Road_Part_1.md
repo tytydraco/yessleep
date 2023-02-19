@@ -415,5 +415,3 @@ Another cold gust of wind raked its cruel tendrils over my face, and I shivered.
 Mark grabbed my hand, and without a word, led me deeper into the darkness.
 
 My shoes slid on the mud, thorns stuck into my thin coat, and the rain continued to sap me of whatever body heat I had left. Still, I never let go of his hand, for fear this strange labyrinth would swallow him like it had my old beater and leave me at the mercy of whatever other apparitions were out there. My fate was sealed now, my survival intwined with Mark’s, and I followed him blindly through the abyss, hoping with every step that he had some plan to get me out of Tauerpin Road.
-
-*To be continued . . .*

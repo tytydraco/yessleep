@@ -32,7 +32,7 @@ This wasn’t the work of some careful taxidermist. The animals were still blood
 
 “You’re not eating them,” I whispered to the house. “Why? Trying to avoid revealing yourself to him?”
 
-The house didn’t answer. I didn’t have to. I could sense its fear.
+The house didn’t answer. It didn’t have to. I could sense its fear.
 
 I’m not sure how long I stood there looking at the mess, but at some point, I heard keys jangling at the exterior door. Perhaps he’d forgotten something.
 
@@ -60,11 +60,11 @@ Of course, I’d already broken that promise once.
 
 The urn said nothing. I lingered for a while there, watching the clear, uncaring stars. Then I went inside. As I did, the sound of snoring ceased. Trying not to make a sound, I padded over to the kitchen and pulled a steak knife from the block.
 
-From the man’s side of the house, I heard footsteps now, slow and steady coming down the hall toward the thin door separating us. And as I watched, the handle began to rattle. I gripped my knife and waited for him to burst through. 
+From the man’s side of the house, I heard footsteps now, slow and steady coming down the hall toward the thin door separating us. And as I watched, the handle began to rattle. I gripped my knife and waited for him to burst through.
 
 I’m not sure how long we waited there, me on my side of the door, he on his. The dark was silent, though sometimes I swore I heard things that sent my imagination spinning, like the sound of metal scraping gently on paint. And then, just at the edge of perception, I sensed a soft deep, soft lowing sound, like that of a cow or a sheep.
 
-Finally, though, deep into the night, I heard the footsteps retreat. They went slowly down the hall and all the way to the exterior door. Then I heard it open and shut, and I knew the man was outside. 
+Finally, though, deep into the night, I heard the footsteps retreat. They went slowly down the hall and all the way to the exterior door. Then I heard it open and shut, and I knew the man was outside.
 
 I parked myself by the front door now and waited up as long as I could, knees to my chest, shaking in the night cold, listening for knocks at the front door, or rattles at the downstairs windows. I listened and listened to nothing for hours before sleep finally took me.
 
@@ -82,7 +82,7 @@ Derek was right there, and he ran up, throwing his arms around me.
 
 “What happened?” he asked. “What happened?”
 
-Just then, there was a knock on the door. 
+Just then, there was a knock on the door.
 
 “Take Grace and go to your room. Don’t unlock it for anyone but me.”
 
@@ -104,7 +104,7 @@ A shiver went through me as he smiled and ran his eyes slowly over my body.
 
 “Oh, I’d rather show you,” he said. “I’d hate to have to leave you a one star review. Those can just kill your business.”
 
-He took a step inside and I backed up. 
+He took a step inside and I backed up.
 
 “Does that door over there go through to my side?” he asked. And without another word, he walked past me and unlocked it. “Come with me,” he commanded, and I followed him into his quarters. “You like following orders, don’t you?” he asked. “I could tell by the sweater. Sheep’s wool.”
 
@@ -120,7 +120,7 @@ I walked slowly over and opened the suitcase, and the stink washed over me. Ther
 
 “And that one,” he whispered. “That one is for you, sheep. You and your little lambs.”
 
-He started reaching in his pocket for something. For a split second, I considered going for my knife, but I was almost sure he’d win a fight. 
+He started reaching in his pocket for something. For a split second, I considered going for my knife, but I was almost sure he’d win a fight.
 
 Instead, I reached forward for the suitcase. I flung it off the luggage rack, sending the contents all over the floor. The man’s eyes opened wide as his trophies landed at his feet.
 
@@ -132,13 +132,13 @@ And it did. The sound of grinding filled the air, as the animals began to disapp
 
 “No,” he said, panic filling his eyes. “No, no, no.”
 
-He knelt on the floor, trying to scoop them up, cradling them to his chest, weeping. And as he did, I pulled the knife from my back pocket. And I realized in that moment that I was not a sheep, not at all. I was no animal ready to be carted off to the slaughter. 
+He knelt on the floor, trying to scoop them up, cradling them to his chest, weeping. And as he did, I pulled the knife from my back pocket. And I realized in that moment that I was not a sheep, not at all. I was no animal ready to be carted off to the slaughter.
 
-I was merely wearing sheep’s clothing. 
+I was merely wearing sheep’s clothing.
 
 An hour later, I sat on the stairs to the basement, watching the hot spot devour the last of the man’s body. Next to him lay his obscene suitcase, now licked free of its contents. The next time I saw Roopa, she’d have no recollection Otto had ever existed. The same was true for the rest of the pets’ owners. I hoped that was a kindness.
 
-The man hadn’t put up much of a fight, ultimately. I’d plunged the knife right into his back, just in the right spot. Perhaps Pamela’s letter had inspired me. 
+The man hadn’t put up much of a fight, ultimately. I’d plunged the knife right into his back, just in the right spot. Perhaps Pamela’s letter had inspired me.
 
 And maybe that had been the point all along. Some people needed to be put down, erased. Maybe that’s why places like this house existed. Maybe death wasn’t enough for the worst people in the world.
 
