@@ -13,9 +13,9 @@ That's mean I need to reset the phone myself. So the phone are about 40 dollar s
 
 I charge it full and browse inside it. It seems like this phone old owner is an office lady. Last picture taken is around one year ago. It had some picture and apps but this phone still had around 80gb storage left so I said to myself. "Well some picture woulndt bother me. Besides, this girl is kinda cute"
 
-I honestly admired the girl, shee looks cute and energetic. Atleast from her video and picture. She also have media social account but I will not go into detail to protect her privacy.
+I honestly admired the girl, she looks cute and energetic. Atleast from her video and picture. She also have media social account but I will not go into detail to protect her privacy.
 
-After all of that I manage to set the phone to my regional simcard setting. It is a bit of work but I god?t it done.
+After all of that I manage to set the phone to my regional simcard setting. It is a bit of work but I got it done
 
 Suddenly a pop out come. 「In order to fully guarantee your safety, au disaster alert need to ignore your location privacy」
 

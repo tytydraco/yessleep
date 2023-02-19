@@ -376,3 +376,5 @@ I reached out to him, extending my hand for him to take. ***"Nothing man. Don't 
 I heard the sound of his bolt being pulled back as I began walking. 
 
 ***“Right behind you.”***
+
+Part 2: https://www.reddit.com/r/nosleep/comments/1163w5x/i_work_with_an_elite_team_called_the_alpha/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
