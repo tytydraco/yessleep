@@ -1,0 +1,13 @@
+
+
+
+
+I know that the end of my life is near I everyday I pretend that i am okay when I’m not I’m literally dead inside and nobody can see that nobody can see that I’m hanging by a thread I try to fill my life with people that I thought were friends but after the friendships end I am reminded of how miserable I truly am I endured the worst type of childhood there is I was severely bullied in school I thought it would end when I got to college but it didn’t 
+
+I am in a program that I completely hate when I applied to the psychology program they didn’t even consider me as a candidate and rejected me with no explanation when I was clearly qualified I struggle everyday to bathe, brush my teeth, and get out bed I hate getting dressed every single they say it was supposed to make feel better but it don’t it’s like everything I do drains me and now the little things are starting to make me rage uncontrollably 
+
+and it makes me a and object of ridicule nobody genuinely loves me not even my family especially my sister and brother my sister literally says hurtful jokes she made a joke saying that I look like the type of female that goes around stinking she also told me on multiple occasions that I’m ugly and disgusting she even got a tattoo with her best friend that’s says “sisters” and that shows me I am nothing to her but how can she can be like when I slept in the same bed with her for 22 years it’s like I’m nothing to her she also tells me that I’m slow and that’s why I got rejected and I told my brother how I’m depressed I am and he told me that I’m not depressed and need to stop because I’m people out in the world are really depressed 
+
+but he don’t see how I fantasize about killing myself everyday and day by day those fantasies become more enticing I have tried to ignore these feelings like they don’t exist but they are getting stronger and I am getting weaker and people constantly tell me I’m focused on the wrong shit but it truly kills me that I am incapable of making friends at 25 and men flee when they see me coming I always get rejected when I approach men so I must be ugly I am so miserable to the point that 
+
+I can’t even spark a blunt I rolled 5 hours ago nothing is helping it’s only hurting I’m tired of fake friends, trying to get in a program I will never be a part of, and most definitely being alone with my thoughts but I say all this to say that I will be ending my life soon I’m tired of being shalaine and I’m tired of trying to get to know myself when I’m not worth getting to know
