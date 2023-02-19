@@ -20,7 +20,7 @@ I heard the old wooden doors creak open, and I flipped around, hoping to see my 
 
 “Go all the way down,” he said, motioning towards the window. He had a weird look on his face. Like somethin’ had sucked out all his happiness.
 
-“What’s the matter?” He put his finger to his lips and shushed me. He could probably tell I was about the work myself up into protest because he just kept talkin’, in a whisper.
+“What’s the matter?” He put his finger to his lips and shushed me. He could probably tell I was about to work myself up into protest because he just kept talkin’, in a whisper.
 
 “I saw something.”
 
