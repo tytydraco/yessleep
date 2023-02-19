@@ -137,3 +137,5 @@ I sat on the doorstep for a long while, reading and rereading the letter. I wond
 I picked up the brown parcel and examined it in the fading sun. I hadn’t expected it to be so light.
 
 Then I told him, "I'm not sure," and we headed back into the house together, leaving the package [on the porch.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/116luo2/i_had_a_house_that_eats_the_dead_it_became_an/)

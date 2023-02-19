@@ -76,7 +76,7 @@ Her skin looked like it was ripping at the seams. Her mouth split open and a hug
  
 Before I could scream, shout, run, anything, the thing that was wearing my wifes skin had filled our kitchen.
  
-It was at least seven feet talk, its mouth more like a gash, too many fangs and that too long tongue. It’s body, oh God, its body was that of a rotting old man, buried long enough ago that the vile smell of decay filled the room. Its eyes were voids. Nothing inside them but eternal darkness. And the most terrifying thing of all was that it was looking at me…
+It was at least seven feet tall, its mouth more like a gash, too many fangs and that too long tongue. It’s body, oh God, its body was that of a rotting old man, buried long enough ago that the vile smell of decay filled the room. Its eyes were voids. Nothing inside them but eternal darkness. And the most terrifying thing of all was that it was looking at me…
  
 *…and grinning.*
  

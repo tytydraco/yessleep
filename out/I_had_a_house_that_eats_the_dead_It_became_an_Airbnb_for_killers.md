@@ -1,4 +1,4 @@
-I was still processing the implications of [Pamela's letter](https://www.reddit.com/r/nosleep/comments/114ckwe/i_had_a_house_that_eats_the_dead_i_wasnt_the/), but now I had a more pressing concern: with Aaron gone, money quickly became an issue. Looking over my finances, the banker was incredulous that I’d ever gotten a mortgage. After all, I was just a single mom with no discernable income.
+I was still processing the implications of[ Pamela's letter](https://www.reddit.com/r/nosleep/comments/114ckwe/i_had_a_house_that_eats_the_dead_i_wasnt_the/), but now I had a more pressing concern: with Aaron gone, money quickly became an issue. Looking over my finances, the banker was incredulous that I’d ever gotten a mortgage. After all, I was just a single mom with no discernable income.
 
 “My advice?” he told me. “Either sell that house or start renting out rooms. Otherwise, this bank will end up auctioning it to the highest bidder.”
 
@@ -48,7 +48,7 @@ Just as the exterior door opened, I speedwalked back to inside door of the main 
 
 “Are you going to make him go away?”
 
-I put my head in my hands. “I don’t know.”
+I put my head in my hands. “I don’t know how.”
 
 That night, the man’s snores filled the house. They were almost inhumanly loud, as if a hibernating bear had taken up residence downstairs.
 
@@ -56,9 +56,17 @@ After I put the kids to sleep, I stepped out onto the front porch. For the first
 
 Of course, I’d already broken that promise once.
 
-“What am I supposed to do?” I asked the urn. “Grab a knife from the kitchen. Sneak into his room and stab it in his throat. What if I miss? Is it my job to erase every creep who sleeps here?”
+“What am I supposed to do?” I asked the urn.
 
-The urn said nothing. I lingered for a while there, watching the clear, uncaring stars. Then I went to sleep.
+The urn said nothing. I lingered for a while there, watching the clear, uncaring stars. Then I went inside. As I did, the sound of snoring ceased. Trying not to make a sound, I padded over to the kitchen and pulled a steak knife from the block.
+
+From the man’s side of the house, I heard footsteps now, slow and steady coming down the hall toward the thin door separating us. And as I watched, the handle began to rattle. I gripped my knife and waited for him to burst through. 
+
+I’m not sure how long we waited there, me on my side of the door, he on his. The dark was silent, though sometimes I swore I heard things that sent my imagination spinning, like the sound of metal scraping gently on paint. And then, just at the edge of perception, I sensed a soft deep, soft lowing sound, like that of a cow or a sheep.
+
+Finally, though, deep into the night, I heard the footsteps retreat. They went slowly down the hall and all the way to the exterior door. Then I heard it open and shut, and I knew the man was outside. 
+
+I parked myself by the front door now and waited up as long as I could, knees to my chest, shaking in the night cold, listening for knocks at the front door, or rattles at the downstairs windows. I listened and listened to nothing for hours before sleep finally took me.
 
 The next morning, I awoke to the sound of screaming. Out on the street, my neighbor Roopa was standing over some kind of bloody carcass in the street. When I ran out to her, a chill ran through me. It was her beloved calico cat, Otto, minus his head.
 
@@ -68,39 +76,75 @@ The next morning, I awoke to the sound of screaming. Out on the street, my neigh
 
 She shook her head. “It must have been early this morning. I didn’t let him out until at least midnight.”
 
-I managed to hold in my sobs until I reached the house, but I broke the minute I walked inside. Derek was right there, and he ran up, throwing his arms around me.
+I managed to hold in my sobs until I reached the house, but I broke the minute I walked inside. I had invited this man into my neighborhood, my house. I had brought this evil in.
+
+Derek was right there, and he ran up, throwing his arms around me.
 
 “What happened?” he asked. “What happened?”
 
-“I need you and Claire to go stay with Aunt Amy for a little while,” I said. “Everything will be okay. But there’s something I need to take care of.”
+Just then, there was a knock on the door. 
 
-A few hours later, I saw the man walking to his car. His suitcase seemed just a little bit heavier as he wheeled it to his car. He gave me a small wave.
+“Take Grace and go to your room. Don’t unlock it for anyone but me.”
 
-“How did you enjoy your stay?” I asked quietly.
+For a second he didn’t answer. I could tell he was scared.
 
-“Oh, better than I could have imagined,” he said. “I’ll certainly be telling all of my friends and acquaintances about it.”
+“Promise me,” I said, and he nodded. Then he ran upstairs. As another knock rocked the front door. Shaking, I located my steak knife and slipped it bladeside down into the back pocket of my jeans.
 
-For a second, I turned, ready to retreat, to let him leave. But something in me couldn’t let that happen.
+I opened the door to see the guest on the other side.
 
-“One last thing,” I said after a few seconds. “We should do a final walkthrough together. Just to make sure there were no damages–or anything that would incur an additional cleaning fee.”
+“Is everything okay, sir?” I asked quietly, trying not to hyperventilate.
 
-“Is that part of the regular procedure?” he asked, curious.
+“There was a slight problem with the accommodation,” he said.
 
-“I can do it myself if you like,” I said. “If you’re eager to get on the road, that is.”
+A shiver went through me as he smiled and ran his eyes slowly over my body.
 
-The man took one more look at the house and smiled.
+“Same sweater as yesterday,” he muttered.
 
-“I wouldn’t mind a few more minutes inside,” he said.
+“What was the problem?” I asked hesitantly.
+
+“Oh, I’d rather show you,” he said. “I’d hate to have to leave you a one star review. Those can just kill your business.”
+
+He took a step inside and I backed up. 
+
+“Does that door over there go through to my side?” he asked. And without another word, he walked past me and unlocked it. “Come with me,” he commanded, and I followed him into his quarters. “You like following orders, don’t you?” he asked. “I could tell by the sweater. Sheep’s wool.”
+
+“What was the problem?” I repeated.
+
+He smiled and pointed to the side of the room. There was another suitcase next to the first now, the exact same kind. This one was open though, and totally empty.
+
+“I filled my first suitcase,” he explained. “Finally got the last piece. Endings are bittersweet. But this one is also a beginning. A graduation, you might call it. Go on. Open it.”
+
+For a moment I hesitated. This time, he shouted, “Open it!”
+
+I walked slowly over and opened the suitcase, and the stink washed over me. There in the center was Otto’s little head, fresh and bloody, stuffed into the middle of the mess.
+
+“And that one,” he whispered. “That one is for you, sheep. You and your little lambs.”
+
+He started reaching in his pocket for something. For a split second, I considered going for my knife, but I was almost sure he’d win a fight. 
+
+Instead, I reached forward for the suitcase. I flung it off the luggage rack, sending the contents all over the floor. The man’s eyes opened wide as his trophies landed at his feet.
+
+“Terrible mistake,” he said. “I was going to make things quick.”
+
+“Eat,” I whispered to the house. “Eat.”
+
+And it did. The sound of grinding filled the air, as the animals began to disappear in fast motion. The guest looked down horrified, watching his life’s work disappear.
+
+“No,” he said, panic filling his eyes. “No, no, no.”
+
+He knelt on the floor, trying to scoop them up, cradling them to his chest, weeping. And as he did, I pulled the knife from my back pocket. And I realized in that moment that I was not a sheep, not at all. I was no animal ready to be carted off to the slaughter. 
+
+I was merely wearing sheep’s clothing. 
 
 An hour later, I sat on the stairs to the basement, watching the hot spot devour the last of the man’s body. Next to him lay his obscene suitcase, now licked free of its contents. The next time I saw Roopa, she’d have no recollection Otto had ever existed. The same was true for the rest of the pets’ owners. I hoped that was a kindness.
 
-The man hadn’t put up much of a fight, ultimately. I’d asked him to bend down to examine an imaginary stain. Then I’d plunged a kitchen knife in his back. I hadn’t hesitated for a moment. It had been easy.
+The man hadn’t put up much of a fight, ultimately. I’d plunged the knife right into his back, just in the right spot. Perhaps Pamela’s letter had inspired me. 
 
-Perhaps Pamela’s letter had inspired me. And maybe that had been the point all along. Some people needed to be put down, erased. Maybe that’s why places like this house existed. Maybe death wasn’t enough for the worst people in the world.
+And maybe that had been the point all along. Some people needed to be put down, erased. Maybe that’s why places like this house existed. Maybe death wasn’t enough for the worst people in the world.
 
 Pamela had done enough now. I saw that. She had sent the letter and set me on my course. And if she, too, wanted to join the erased, who was I to stop her?
 
-Before I could reconsider, I grabbed her ashes from the front porch and took them inside, fling them all through the house. The glittered in the air like falling snow, disappearing before they even hit the floor, slurped into the gray void that was the house’s stomach.
+Before I could reconsider, I grabbed her ashes from the front porch and took them inside, flinging them all through the house. They glittered in the air like falling snow, disappearing before they even hit the floor, slurped into the gray void that was the house’s stomach.
 
 And for the first time, I saw the house for what it truly was. Not evil unto itself at all, but a vortex for evil, a wasp trap filled with some kind of irresistible nectar.
 
