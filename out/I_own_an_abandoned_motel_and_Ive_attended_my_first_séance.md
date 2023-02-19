@@ -163,3 +163,5 @@ There was a light on in Cottage 7.
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/)
+
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/)

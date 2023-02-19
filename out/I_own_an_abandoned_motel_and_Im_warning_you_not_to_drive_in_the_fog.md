@@ -1,6 +1,6 @@
 [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new) [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/) [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/)
 
-I bolted out the door, pulling the knife out of the side table drawer. Halfway to Cottage 7, I realized I didn’t have shoes on, but I didn’t care. The cold felt good. So did holding the knife. I had no idea what I expected to find there. That didn’t bother me either. Maybe I’m just sick of being scared. 
+I bolted out the door, pulling the knife out of the side table drawer. Halfway to Cottage 7, I realized I didn’t have shoes on, but I didn’t care. The cold felt good. So did holding the knife. I had no idea what I expected to find there. That didn’t bother me either. Maybe I’m just sick of being scared.
 
 I opened the porch door as quietly as I could. Inside I heard the creak of floorboards, but not much else. I threw open the front door, and pointed my knife at…
 
@@ -10,7 +10,7 @@ Some guy.
 
 “Who are you and what are you doing? This is private property!” I shouted in rather unhinged way.
 
-“Okay, okay.” He was trying not to hyperventilate.  “I…I got a call for some carpentry work. From a…a…can I…” He faltered and made a tentative motion towards his pocket. I nodded but didn’t lower my knife. He pulled out a sheet of crumpled paper, which he waived in my direction as some sort of peace offering. 
+“Okay, okay.” He was trying not to hyperventilate.  “I…I got a call for some carpentry work. From a…a…can I…” He faltered and made a tentative motion towards his pocket. I nodded but didn’t lower my knife. He pulled out a sheet of crumpled paper, which he waived in my direction as some sort of peace offering.
 
 I grabbed it with my left hand. It said “Martina” and “Calnon’s” followed by our office number.
 
@@ -20,7 +20,7 @@ I grabbed it with my left hand. It said “Martina” and “Calnon’s” follo
 
 “Why would we hire someone who doesn’t even do carpentry full time?”
 
-“Martina said it would be fine. My dad and grandpa used to help out here. Been doing this all my life, but my dad closed his official business down a few years ago. So now it’s mostly a night thing for me.” 
+“Martina said it would be fine. My dad and grandpa used to help out here. Been doing this all my life, but my dad closed his official business down a few years ago. So now it’s mostly a night thing for me.”
 
 “So, I assume you’re priced accordingly?”
 
@@ -28,7 +28,7 @@ He chuckled nervously. “I’m pretty flexible.”
 
 I sighed and lowered the knife.
 
-“Fine.” 
+“Fine.”
 
 “If Martina is around she could probably explain.”
 
@@ -40,11 +40,11 @@ He appeared genuinely embarrassed.
 
 “I’m so sorry. Listen, this was a really stupid idea of mine. I thought I would swing by after my shift to get the lay of the land. I didn’t see anybody around, but there was a light on in here so I thought I’d see what’s up. I’ll just get going now, it’s fine.”
 
-“Wait a second. I’m sorry. It’s been a tough couple of weeks. We really do need the help.” I tried running a hand through my almost frozen hair.  I corrected myself.  “*I* need the help.” 
+“Wait a second. I’m sorry. It’s been a tough couple of weeks. We really do need the help.” I tried running a hand through my almost frozen hair.  I corrected myself.  “*I* need the help.”
 
 He hesitated, undoubtedly still concerned about my wild appearance and sharp knife. I lowered it to the ground and took a step closer to him, hand outstretched.
 
-“Nora Calnon.” 
+“Nora Calnon.”
 
 He took my hand.
 
@@ -56,13 +56,13 @@ He took my hand.
 
 “Can we go back to my cottage? I’ll change and I can show you some of the things we need help with.”
 
-“I’m assuming you’d want to start here?” He gestured at the torn-up floor. 
+“I’m assuming you’d want to start here?” He gestured at the torn-up floor.
 
 “Yeah, that’s…definitely on the list.”
 
 I gingerly picked up my knife and he picked up his backpack and followed me out. I sincerely regretted neglecting to grab a pair of shoes. I could see him staring at my feet with concern.
 
-“Not my best decision,” I chuckled. 
+“Not my best decision,” I chuckled.
 
 “Are you okay? Looks like you’re injured. I could carry you if…” He blushed profusely; clearly sorry he had said those last few words out loud.
 
@@ -80,7 +80,7 @@ After what seemed like a lifetime, we made it to my cottage. René’s eyes wide
 
 “Also something on the to-do list. I’ll be right back out.” I ran inside, leaving him to survey the damage. I replaced the knife and hurried to my bedroom, embarrassed by how quickly my heart was racing. I shuddered at my hair and pulled it back, throwing on my favorite sweater and jeans.  I’m not too proud to admit that I may have dabbed a touch of perfume at my neck as I tied up my boots.
 
-I found him inspecting the deep claw marks on the side of the cottage. He glanced up, probably relieved to see me presentable. 
+I found him inspecting the deep claw marks on the side of the cottage. He glanced up, probably relieved to see me presentable.
 
 “What did this? This doesn’t look like anything I’ve seen before.”
 
@@ -90,7 +90,7 @@ I found him inspecting the deep claw marks on the side of the cottage. He glance
 
 “Do you think I’m going to have any issues with the structure?”
 
-“I think it’s going to be fine. I can take a better look when I do the porch, but I think you don’t have to worry.” 
+“I think it’s going to be fine. I can take a better look when I do the porch, but I think you don’t have to worry.”
 
 “I’ll take any relief I can get!”
 
@@ -100,13 +100,13 @@ We stood there for a long minute, smiling and nodding at each other in silence.
 
 “Do you want to step inside out the cold for a second? I can talk about a few other projects I was thinking about. Also, I have cheese!” *Oh god, what is wrong with me.*
 
-“Sounds great.” 
+“Sounds great.”
 
-I busied myself by fussing with the cheese cubes, arranging them on a plate while René took his coat and gloves off. 
+I busied myself by fussing with the cheese cubes, arranging them on a plate while René took his coat and gloves off.
 
-“Oh, you don’t have to bother with that,” he said, gesturing at the cheese. “I’ll just stick to my soup.” 
+“Oh, you don’t have to bother with that,” he said, gesturing at the cheese. “I’ll just stick to my soup.”
 
-He took a chrome thermos out of his backpack and took a sip. I nodded lamely. He sat on the couch, took out a notepad and began to write. The only seating in the living area of my cottage is the couch and the couch is actually more of a glorified loveseat. If I sat down, there wouldn’t be a lot of space between us. I’ll be honest—I was entirely okay with that. 
+He took a chrome thermos out of his backpack and took a sip. I nodded lamely. He sat on the couch, took out a notepad and began to write. The only seating in the living area of my cottage is the couch and the couch is actually more of a glorified loveseat. If I sat down, there wouldn’t be a lot of space between us. I’ll be honest—I was entirely okay with that.
 
 As I put away my cheese knife, I noticed the silver bangles on my kitchen counter. With a pang, I was plunged back into the reality of my surroundings, the pain, the danger. I slipped them on my left hand. After all, there were a lot of things on the loose around here. *Better safe than sorry.*
 
@@ -134,13 +134,13 @@ He waived his notepad. “I can run some numbers tomorrow and stop by after my s
 
 “Yes!” I said, probably a bit too eagerly. He smiled. Did I mention he had a great smile? I’m sorry. I’ll behave.
 
-“Great. Motel office number best place to reach you?” 
+“Great. Motel office number best place to reach you?”
 
 “You should probably use my cell.”
 
-He retrieved the crumpled paper from his pocket and I added my number. We hovered next to each other for a few seconds. He nodded, put on his coat, and gathered his things. I followed him out the door and watched him walk away from the cottage towards the motel parking lot. 
+He retrieved the crumpled paper from his pocket and I added my number. We hovered next to each other for a few seconds. He nodded, put on his coat, and gathered his things. I followed him out the door and watched him walk away from the cottage towards the motel parking lot.
 
-The high I felt from sitting with him faded away and I began to feel pathetic. It was nice to talk to someone. It was nice to smile, especially with an attractive guy. I took a deep breath and reluctantly put aside those pleasant thoughts to focus on the task at hand. 
+The high I felt from sitting with him faded away and I began to feel pathetic. It was nice to talk to someone. It was nice to smile, especially with an attractive guy. I took a deep breath and reluctantly put aside those pleasant thoughts to focus on the task at hand.
 
 Sleeping so late, I had little concept of the actual time of day. *Maybe I can force myself to nap a bit before dawn.* In the meantime, I pulled out the notebook. I recalled I had a payment coming up the following night.
 
@@ -158,19 +158,19 @@ I decided to attempt sleep, setting my alarm for a decent morning hour lest I be
 
 I slept fitfully, besieged by odd dreams featuring turnips instead of handsome carpenters. Still, I didn’t feel groggy when my alarm went off. *Nothing a little coffee can’t fix.* I checked my phone, hoping to find a text from him and tried to downplay my disappointment that none appeared. *Totally fine.* *I have turnips to buy anyway.*
 
-I had big plans to try the farmer’s market first, but then, upon further reflection, whatever this thing was, it wasn’t getting organic. Although I had feared I would be cleaning out every local grocery store in the area, the local big box superstore had plenty even if it was nearly forty minutes away. 
+I had big plans to try the farmer’s market first, but then, upon further reflection, whatever this thing was, it wasn’t getting organic. Although I had feared I would be cleaning out every local grocery store in the area, the local big box superstore had plenty even if it was nearly forty minutes away.
 
 Driving home, I noticed a dense fog had descended over the river, like a veil hiding the numerous islands that are our area’s namesakes. It enclosed the road in a wooly darkness, but luckily I was the only vehicle for miles. Out of the corner of my eye, fading in and out of sight was the shape of something emerging from the thickness, bobbing up and down like a buoy, but far above the waterline. Not wanting to distract myself, I tried to focus only on what was before me.
 
-The object followed me for several miles and I began to become uneasy. I tried flipping on a radio station, but I could not divert my attention from it. *Maybe it’s a bird*, I thought, not convincing myself. It was swinging closer and closer, weaving back and forth.  I didn’t dare look, though it felt as if I was being watched. 
+The object followed me for several miles and I began to become uneasy. I tried flipping on a radio station, but I could not divert my attention from it. *Maybe it’s a bird*, I thought, not convincing myself. It was swinging closer and closer, weaving back and forth.  I didn’t dare look, though it felt as if I was being watched.
 
-With a shriek, the thing swung out in front of my windshield. I slammed on the brakes, seatbelt knocking the wind out of me. Bobbing before me was a severed human head, it’s blackened tongue lolling out of its mouth, eyes frozen in the last moments before death, bulging with terror or perhaps surprise. The phantom head lingered, waving as if it were suspended on a great thread and dangled before me. After a few minutes, it faded back into the fog. 
+With a shriek, the thing swung out in front of my windshield. I slammed on the brakes, seatbelt knocking the wind out of me. Bobbing before me was a severed human head, it’s blackened tongue lolling out of its mouth, eyes frozen in the last moments before death, bulging with terror or perhaps surprise. The phantom head lingered, waving as if it were suspended on a great thread and dangled before me. After a few minutes, it faded back into the fog.
 
 I tried to catch my breath, unsure if I had hallucinated the entire incident. Weeks ago, I would have come down firmly on that side, citing stress or lack of proper nutrition as the likely culprit. Now, I knew otherwise.
 
 I finished the remaining miles home with the classic rock station blasting, trying to cleanse myself of the experience. The fog had largely dissipated by the time I arrived, revealing a crimson sunset. I sat on the bench with my turnips and took in the fresh air, regulating my breathing until I finally felt somewhat normal. I knew about various local legends and histories, but I never considered something haunting me outside of the property lines.  It wasn’t a comforting thought.
 
-When René came walking up the hill after the sun had dipped below the horizon, I was relieved. 
+When René came walking up the hill after the sun had dipped below the horizon, I was relieved.
 
 “Good evening,” he said with a friendly wave. “Are those…turnips?”
 
@@ -186,23 +186,23 @@ He chuckled. “Okay, then.”  He sipped from his thermos a few times before si
 
 He pretended to be aghast. “Damsel in distress? Weren’t you just lunging at me with a knife last night?”
 
-We laughed. He told me that he not only had found his great-grandfather’s sketches for the gable trim, but also an entire set of blueprints of the cottages from the 1920s. 
+We laughed. He told me that he not only had found his great-grandfather’s sketches for the gable trim, but also an entire set of blueprints of the cottages from the 1920s.
 
 “Was there anything…out of the ordinary in those blueprints?”
 
 He raised his eyebrows. “Not that I saw. Why did you ask?”
 
-I contemplated telling him. On the one hand, I envied his innocence, living in the normal world without a thought about anything beyond. But if he wanted to work here, he deserved to know. Perhaps in years past, when the terms of engagement had been more predictable and limited, I could keep away the strangeness from someone like him. Ultimately, based on recent events, his life was just as much at risk as my own. Not just from the creatures haunting the cursed cottages. I thought of that …thing…that animated corpse that had attacked us in Cottage 7. If it killed Martina, it could kill any one of us. And I had no idea where it was. 
+I contemplated telling him. On the one hand, I envied his innocence, living in the normal world without a thought about anything beyond. But if he wanted to work here, he deserved to know. Perhaps in years past, when the terms of engagement had been more predictable and limited, I could keep away the strangeness from someone like him. Ultimately, based on recent events, his life was just as much at risk as my own. Not just from the creatures haunting the cursed cottages. I thought of that …thing…that animated corpse that had attacked us in Cottage 7. If it killed Martina, it could kill any one of us. And I had no idea where it was.
 
-I handed the proposal back to René. 
+I handed the proposal back to René.
 
 “This is going to sound weird. And I completely understand if you never want to step foot onto this property again. But these cottages, this motel—the simple way to put it is that the whole place is haunted.”
 
-I paused to gage his reaction. He didn’t scoff. He looked me in the eyes, listening, eyebrows knitted together in concentration. Emboldened, I elaborated, telling him that various cottages required certain payments, or offerings at designated times. I didn’t describe each entity, or even broach the more…serious…contribution on tax day. But I emphasized that these things were dangerous and that there was likely more danger to come. 
+I paused to gage his reaction. He didn’t scoff. He looked me in the eyes, listening, eyebrows knitted together in concentration. Emboldened, I elaborated, telling him that various cottages required certain payments, or offerings at designated times. I didn’t describe each entity, or even broach the more…serious…contribution on tax day. But I emphasized that these things were dangerous and that there was likely more danger to come.
 
 When I finished, he sat thoughtfully for a moment, nodding.
 
-“You’re not laughing in my face or trying to forcibly commit me to a psychiatric ward, so I’m assuming you don’t think I’m crazy.” 
+“You’re not laughing in my face or trying to forcibly commit me to a psychiatric ward, so I’m assuming you don’t think I’m crazy.”
 
 He shook his head. “Sounds like you have a lot on your plate.”
 
@@ -216,13 +216,13 @@ He smiled and patted my hand. I placed my other hand on top. He leaned in closer
 
 “What is that?”
 
-I turned around. *Shit. Shit. Shit.* On the island directly across from us, there were lights, multiple lights, a bright burning green, moving around almost as if processing. I grabbed the turnips, leaving a confused René on the bench and bolted to Cottage 5. I shook the vegetables out of their bags in front of the porch door. I prayed I hadn’t lost that much time. Now I just had to complete my least favorite part—the confirmation of receipt. 
+I turned around. *Shit. Shit. Shit.* On the island directly across from us, there were lights, multiple lights, a bright burning green, moving around almost as if processing. I grabbed the turnips, leaving a confused René on the bench and bolted to Cottage 5. I shook the vegetables out of their bags in front of the porch door. I prayed I hadn’t lost that much time. Now I just had to complete my least favorite part—the confirmation of receipt.
 
-René came running after me. 
+René came running after me.
 
 “Is this a… a payment?”
 
-I nodded, winded. 
+I nodded, winded.
 
 “Now what?”
 
@@ -236,9 +236,9 @@ He didn’t seem pleased with my command, but he shrugged and walked away. I saw
 
 I forced myself awake and found myself surrounded by the flames. At the center of each was a turnip, carved with some jagged tool into faces of agony. The cottage behind me was completely illuminated from within—no, it was *burning*, green flames flickering out the windows. The circle of flames began to tighten around me, the droning became more intense, the sound was excruciating, as though it was coming from inside my ears, inside my skull, like insects writhing. I cried out and began to scratch at my face, but the noise only intensified.
 
-The flames were so close to my face now, but they emitted no warmth. The sharp, angry faces of the turnips radiated hatred. I thrashed my head around, desperate to be free. The throbbing felt as though it was coming from behind my eyes, as though at any moment they would explode. *You are fool*, a voice pulsed through the sound. *Fool.* *Fool.* *Fool.* *There is only one mistress here.* 
+The flames were so close to my face now, but they emitted no warmth. The sharp, angry faces of the turnips radiated hatred. I thrashed my head around, desperate to be free. The throbbing felt as though it was coming from behind my eyes, as though at any moment they would explode. *You are fool*, a voice pulsed through the sound. *Fool.* *Fool.* *Fool.* *There is only one mistress here.*
 
-“Get away from her!” 
+“Get away from her!”
 
 At the sound of René’s voice, the hex was broken and the sound abandoned me. I collapsed, screaming, holding my face covered in blood. The flames recoiled and with a deafening shriek they disappeared one by one until we were alone. The grass where they had made their circle was blackened and scorched. René pulled me up, but took a horrified step back when he saw I was bleeding.
 
@@ -250,7 +250,7 @@ At the sound of René’s voice, the hex was broken and the sound abandoned me. 
 
 “I don’t know. This is my first go around, remember?”
 
-He looked off into the distance, agitated and unnerved. 
+He looked off into the distance, agitated and unnerved.
 
 “You still have a chance to hop in your car and never come back,” I said.
 
@@ -279,3 +279,5 @@ He hung his head and placed his hand on my shoulder.
 He walked me back to my cottage in silence and we said our goodbyes. Alone, shocked, and empty, I curled up with Martina’s blanket and willed myself to sleep.
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/)

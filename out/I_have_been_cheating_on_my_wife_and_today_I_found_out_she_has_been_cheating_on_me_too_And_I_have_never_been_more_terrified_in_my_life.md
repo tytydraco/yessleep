@@ -84,7 +84,7 @@ I stumbled backward turning to run but before I could, the thing reached out and
  
 My arm…my arm looked like it belonged to an old man.  It had withered with just a single touch from that thing. I wrenched my arm out of its grip and ran to the door, only to find it locked. I pounded it on it hoping, praying the neighbours, SOMEONE would hear me, it was morning and someone would-
  
-I heard the cold, low chuckle behind me and my blood froze. Without even thinking, I turned and ran past it for the stairs, I could hear its slow shuddering footsteps behind me as I rushed up the stairs to the bedroom, throwing myself inside. Quickly I locked the door behind me and then ran to the window to get out. It didn’t budge so I tried to throw a window against the glass.
+I heard the cold, low chuckle behind me and my blood froze. Without even thinking, I turned and ran past it for the stairs, I could hear its slow shuddering footsteps behind me as I rushed up the stairs to the bedroom, throwing myself inside. Quickly I locked the door behind me and then ran to the window to get out. It didn’t budge so I tried to throw a chair against the window.
  
 It. Wouldn’t. Break.
  
