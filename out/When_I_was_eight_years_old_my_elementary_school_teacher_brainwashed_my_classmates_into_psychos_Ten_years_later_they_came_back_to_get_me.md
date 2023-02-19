@@ -56,9 +56,7 @@ I knew it would, because even pressed against my father’s jacket which smelled
 
 This specific memory always came back to haunt me—even now, 10 years after my mind was twisted and purged out of shape.
 
-Six weeks ago, I was sitting in a coffee shop with my housemates. I was enjoying the creaminess of macchiato, revelling its warmth as I wrapped my freezing cold hands around it, nursing the coffee to my chest. I can’t remember what I was doing. My laptop was in front of me, but I’d given up on actually working a few hours ago. My housemate Freddie sat opposite, his eyes glued to his phone. I was staring into the dregs of my coffee, when Issac finally slumped down in his seat, throwing an arm around Freddie. “Brainwashing support group, huh.”
-
-That caught my attention.
+Six weeks ago, I was sitting in a coffee shop with my housemates. I was enjoying the creaminess of macchiato, revelling in its warmth as I wrapped my freezing cold hands around it, nursing the coffee to my chest. I can’t remember what I was doing. My laptop was in front of me, but I’d given up on actually working a few hours ago. My housemate Freddie sat opposite, his eyes glued to his phone. I was staring into the dregs of my coffee, when Freddie's boyfriend Issac finally slumped down in his seat, throwing an arm around my housemate. “Brainwashing support group, huh.” That caught my attention.
 
 Lifting my gaze, I frowned at my housemate’s boyfriend. “What?”
 
