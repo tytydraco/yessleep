@@ -310,3 +310,5 @@ I squared my shoulders and lifted my head. A smile began to unfurl on my lips as
 [Part 26](https://www.reddit.com/r/nosleep/comments/10y9ltj/warnings_to_the_wannabe_cryptid_hunters_my_dad/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 27](https://www.reddit.com/r/nosleep/comments/1118e0d/warnings_to_the_wannabe_cryptid_hunters_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 29—season finale](https://www.reddit.com/r/nosleep/comments/116zfcj/warnings_to_the_wannabe_cryptid_hunters_the_devil/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
