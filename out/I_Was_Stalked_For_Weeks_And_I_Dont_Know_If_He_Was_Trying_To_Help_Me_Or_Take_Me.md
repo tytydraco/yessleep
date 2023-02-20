@@ -116,7 +116,7 @@ The van collided with a nearby tree at full speed and crumbled instantly. There 
 The black hooded figure looked down at me, turned and looked at the crash, then back at me again. 
 
 
-He nonchalantly shrugged his shoulders and walked away towards the crash. As he approached the drivers body, I heard him scream a thousand screams, and raised his arms to remove his hood...
+He slowly turned and walked away towards the crash. As he approached the drivers body, I heard him scream a thousand screams, and raised his arms to remove his hood...
 
 
 *POOF!*
