@@ -1,4 +1,4 @@
-( First: https://redd.it/111m676 Previous: https://redd.it/112j8ei )
+( First: https://redd.it/111m676 Previous: https://redd.it/112j8ei Next: https://redd.it/117mo1o )
 
 No matter how much I wanted to interrogate Jackalope about his previous job, I refused to put any kind of pressure on him for the first week he stayed at my place. He needed to get settled in and hadn’t fully adjusted to missing an arm. He made attempts to help out around the house, but was pretty slow doing chores. 
 
