@@ -78,7 +78,7 @@ I don’t know how I managed to sleep that night, but I did. And life continued.
 
 The urges vanished for a little while. My appetite was still gone. I was looking worse and worse for wear, and I couldn’t possibly hide my pregnant belly.
 
-My mother knew. Maybe she almost knew. I could tell by the pained looks she shot me, the way she sometimes had to cover her eyes to stop her tears when she saw me. But my father was mostly oblivious. He was concerned about my bloating, and because he was certain in the notion that his daughter would *never* dare defy the scriptures and perform most unholy acts with a man before I was wed, he took me to the doctor to see if I had a tumor. And who would’ve guessed—I was well into my third trimester. Wow, what a surprise!
+My mother knew. Maybe she knew the entire time. I could tell by the pained looks she shot me, the way she sometimes had to cover her eyes to stop her tears when she saw me. But my father was mostly oblivious. He was concerned about my bloating, and because he was certain in the notion that his daughter would *never* dare defy the scriptures and perform most unholy acts with a man before I was wed, he took me to the doctor to see if I had a tumor. And who would’ve guessed—I was well into my third trimester. Wow, what a surprise!
 
 He took it much, much better than I expected. All the way home, I cried and begged him to speak to me, but he refused to say a word. His face was drained of all color, and he kept shaking his head and muttering under his breath.
 
