@@ -1,5 +1,3 @@
-
-
 They may be a child selling flowers on the side of a run down street, or even a scruffy-looking man stood by a market stall flogging fake branded t-shirts. It doesn’t matter in what situation you are in, do not, under any circumstances give them the time. Make an excuse, run or just say nothing.
 
 My name is Tom and I came face to face with one of them 4 years ago, me and Scott were out in town on our way to the sports bar to watch the game. As we rounded the corner onto our destined street, Cherry Road, we were suddenly approached by a frail man. He had smokey-grey thinning hair and a rugged world-weary face. His shabby, brown, moth-eaten suit jacket hung upon his tired body, as he tightly clutched a case full of jewellery. 
@@ -135,7 +133,7 @@ The next day we were all called back to the station, as there was an update on t
 
 “Play the video again” I hastily said. 
 
-I watched in horror as I focused on the person in the back seat, he had smokey-grey thinning hair and was dressed in shabby an old brown suit jacket. That’s when I realised, it was the man that was trying to sell us the jewellery. 
+I watched in horror as I focused on the person in the back seat, he had smokey-grey thinning hair and was dressed in a shabby, old brown suit jacket. That’s when I realised, it was the man that was trying to sell us the jewellery. 
 
 “It’s him, the man Scott said was following him” I said while pointing at the screen. 
 
@@ -153,3 +151,5 @@ I spent the next few days searching for any sort of logical answer to this madne
 Many of the experiences sounded all too familiar and yet it couldn’t possibly be real, the things these people were talking about did not exist, they just, couldn’t exist. 
 
 Whatever happened to Scott in my eyes was a tragedy, but I can say with full confidence if a stranger asks me the time again, I will say nothing and get as far away from them as possible.
+
+I would advise you do the same.
