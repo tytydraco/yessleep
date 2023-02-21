@@ -1,4 +1,4 @@
-*[On the killing fields between a pillow and a head]*
+*[transcribed from the mind of a monster]:*
 
 By mid-winter the war was already lost. The soldiers mustered rank and file, thin and slouching. For all their brave victories, they had suffered a defeat of morale. None of them had expected the war to rage quite so long, nor to drag as it had in the quiet between the screams of battle where a failing breath during the night was as devastating as any other grievous bodily wound. 
 
