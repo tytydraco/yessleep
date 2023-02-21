@@ -98,3 +98,5 @@ I have just used google lense to translate a still from the footage of the weird
 “Lost dog. Responds to [sic] Κέρβερος. Mercy upon your soul.”
 
 What the hell do I do now?
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1184255/i_adopted_a_dog_she_knows_some_weird_people/?utm_source=share&utm_medium=web2x&context=3)
