@@ -1,4 +1,3 @@
-
 [Part Two](https://redd.it/10m3x3j)
 [Part Three]( https://redd.it/10ranq4)
 
@@ -209,3 +208,8 @@ When I asked Holliman why we were going there, there was none of his usual jokes
 He raised his bloodshot eyes to mine in the rearview mirror, and I felt dread pooling in my chest like poison.  
 
 [“We have to wake them up.”](https://redd.it/10h9jfw)
+
+
+****
+
+[Part Five](https://redd.it/118hzr8)
