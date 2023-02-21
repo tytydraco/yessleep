@@ -153,3 +153,5 @@ All it had ever needed was some kind of poison inside.
 And as I watched the last of Pamela’s ashes fade into nothing, I knew I would never let another evil man leave my house alive again.
 
 [I would be the poison.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/118azzi/i_had_a_house_that_eats_the_dead_it_wasnt_the/)
