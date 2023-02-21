@@ -56,13 +56,19 @@ The girl’s head whipped in my direction. As it did, she straightened out her l
 
 This was no girl. Hell, it wasn’t even human.
 
-As a glowing pair of eyes settled on me, I turned and bolted across the hall, into the bathroom, and locked the door. Beyond it, sharp nails dragged roughly across wooden floorboards.
+As a glowing pair of eyes settled on me, I turned and bolted across the hall, slamming into sidetables and skidding across the carpet. Finally, I reached the bathroom door. It refused to budge. 
 
-Ceramic lamps crashed onto the ground and framed photographs got knocked off walls as thuds and bumps moved throughout the house. 
+Across the hall, the creature ducked through the lounge door, into the light of the hall. This gave me my first proper look at the intruder.
 
-At one-point, heavy footsteps travelled above my head. I would have left my safe spot, but, judging by the silence, Alex already found a hiding spot. If I went out, it might have exposed us both. So I made the heroic decision to stay put.
+Rib bones shone through holes and tears in the filthy rag it wore for cover, and it had a cavernous mouth filled with needle-like teeth. As it scrambled forward, still on all fours, lampshades got set swinging from where its head collided with the ceiling.
 
-My heart slammed against my chest so fast and so loud I didn't notice the house fall into a dead silence. With my heart in my throat, I slowly creaked open the door.
+I took a half step back and gritted my jaw and shoulder charged my way into the bathroom. A split second after I twisted the lock, the door bounced in its frame once, twice. I held my back against it, camera still in hand. Those repeated thumps became scratches, before finally tapering off.
+
+Around the house, photographs got knocked off walls, furniture tipped over, and pots and pans drum rolled around the kitchen. At one-point, claws scraped roughly across the wooden floor direction above my head. Part of me wanted to go check on Alex, but, judging by the silence, she'd already found a safe hiding spot. If I went out, it might have endangered us both. And so I made the heroic decision to stay put.
+
+My heart slammed against my chest so fast and so loud I didn't notice the house falling into a dead silence. 
+
+With my heart firmly in my throat, I creaked open the door.
 
 The walls and ceiling were covered with deep gouges like an axe wielding-maniac had gone back and forth. My hands would not stop shaking as I reviewed the footage my phone recorded—this had the potential to go mega viral. Think of it, a real-life Cryptid.
 
