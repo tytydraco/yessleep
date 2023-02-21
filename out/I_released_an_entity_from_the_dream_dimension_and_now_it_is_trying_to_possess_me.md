@@ -14,7 +14,7 @@ We met up at the local park at noon the next day. I saw him sitting on a bench. 
 
 “Happy to see you too, bro” I responded. “You got the… special product?”. He nodded and we both sat on the bench. 
 
-He reached into his backpack and took out some kind of tea bag. “What is this?” I asked. “I thought you were gonna give me shrooms or something or something to smoke.”
+He reached into his backpack and took out some kind of tea bag. “What is this?” I asked. “I thought you were gonna give me shrooms or something to smoke.”
 
 He went on to explain that the tea bag contained various mushrooms and herbs that would help me “reach the upper plane”. I asked him what the hell he was talking about. All I wanted was something to help me sleep peacefully. He began giggling like a schoolgirl. At this point, I was losing my patience, so I got up to leave. But Oscar stopped me and begged for me to hear him out. I sat back down reluctantly.
 

@@ -74,6 +74,10 @@ But … is it possible I didn't imagine it?
 
 I know it sounds crazy. I feel crazy. I just want answers.
 
+.
+
+**Edit:** I'm still at the hospital and can't pay the cat (?) tax, but maybe you'll accept a quick [sketch](https://www.reddit.com/r/SkittishReflections/comments/117w5u4/gremlin_story_link_in_comments/) instead?
+
 \-----
 
 [SR](https://www.reddit.com/r/Skittishreflections)
