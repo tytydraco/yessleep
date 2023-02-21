@@ -56,17 +56,17 @@ The girl’s head whipped in my direction. As it did, she straightened out her l
 
 This was no girl. Hell, it wasn’t even human.
 
-As a glowing pair of eyes settled on me, I turned and bolted across the hall, slamming into sidetables and skidding across the carpet. Finally, I reached the bathroom door. It refused to budge. 
+As a glowing pair of eyes settled on me, I turned and bolted across the hall, slamming into sidetables and skidding across the carpet. Finally, I reached the bathroom door. It refused to budge.
 
-Across the hall, the creature ducked through the lounge door, into the light of the hall. This gave me my first proper look at the intruder.
+Across the hall, the creature ducked out of the lounge, into the light of the hall. This gave me my first proper look at the intruder.
 
 Rib bones shone through holes and tears in the filthy rag it wore for cover, and it had a cavernous mouth filled with needle-like teeth. As it scrambled forward, still on all fours, lampshades got set swinging from where its head collided with the ceiling.
 
 I took a half step back and gritted my jaw and shoulder charged my way into the bathroom. A split second after I twisted the lock, the door bounced in its frame once, twice. I held my back against it, camera still in hand. Those repeated thumps became scratches, before finally tapering off.
 
-Around the house, photographs got knocked off walls, furniture tipped over, and pots and pans drum rolled around the kitchen. At one-point, claws scraped roughly across the wooden floor direction above my head. Part of me wanted to go check on Alex, but, judging by the silence, she'd already found a safe hiding spot. If I went out, it might have endangered us both. And so I made the heroic decision to stay put.
+Around the house, photographs got knocked off walls, furniture tipped over, and metal pots and pans drum rolled around the kitchen. At one-point, claws scraped roughly across the wooden floor direction above my head. Part of me wanted to go check on Alex, but, judging by the silence, she'd already found a safe hiding spot. If I went out, it might have endangered us both. And so I made the heroic decision to stay put.
 
-My heart slammed against my chest so fast and so loud I didn't notice the house falling into a dead silence. 
+My heart slammed against my chest so fast and so loud I didn't notice the house falling into a dead silence.
 
 With my heart firmly in my throat, I creaked open the door.
 
@@ -76,7 +76,7 @@ Unfortunately, to my horror, the second the entity crawled inside the house, the
 
 Upstairs Alex hid in her walk-in closet, amongst the clothes from her latest 'try on haul' vid. Also, Jinx had disappeared.
 
-That brings us to right now. I’ve purchased a $43,000 camera that reviewers say never blurs or pixelates. I’ve also bought specialist hunting gear, such as bear traps and remote-controlled cages. The plan is to catch this otherworldly entity on film and silence the haters.
+That brings us to now. I’ve purchased a $43,000 camera that reviewers say never blurs or pixelates. I’ve also bought specialist hunting gear, such as bear traps and remote-controlled cages. The plan is to catch this otherworldly entity on film and silence the haters.
 
 I wanted to post because a lot of you have been asking for updates. Just know there’s content on the way, and for those of you interested in the NFT space, we’ve got an extra-special announcement coming soon.
 

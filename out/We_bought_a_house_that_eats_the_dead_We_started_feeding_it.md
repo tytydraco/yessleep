@@ -6,7 +6,7 @@ The house’s appetites soon became obvious. Anything that could be consumed dis
 
 Every time it happened, Aaron and I would exchange a knowing glance, even as the children denied we’d even been grocery shopping the day before or that the dining room table had ever existed.
 
-I was afraid, of course. I wondered if I’d wake one morning to find myself missing a limb, or one of the children gone. Aaron tried to reassure me: living things were unaffected. He and I were healthier than ever. Even our kindergartner, Grace, barely ever got sick. Our older boy, Derek, was healthy as a horse and acing second grade. Even our white lab, King, seemed extra spritely, though he was getting on in years.
+I was afraid, of course. I wondered if I’d wake one morning to find myself missing a limb, or one of the children gone. Aaron tried to reassure me: living things were unaffected. He and I were healthier than ever. Even our preschooler, Grace, barely ever got sick. Our older boy, Derek, was healthy as a horse and acing second grade. Even our white lab, King, seemed extra spritely, though he was getting on in years.
 
 “We should leave,” I told Aaron. “We don’t know what it’s capable of. It’s clearly some kind of curse. Who knows when it’ll come for us.”
 
