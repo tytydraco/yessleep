@@ -1,4 +1,4 @@
-I just moved into a new home, a beautiful, remodeled house with a grand entrance and a sprawling lawn. I was so excited to start their new life and spent the following weeks unpacking and decorating. But there was something strange about the house that I couldn't quite put my finger on.
+I just moved into a new home, a beautiful, remodeled house with a grand entrance and a sprawling lawn. I was so excited to start my new life and spend the following weeks unpacking and decorating. But there was something strange about the house that I couldn't quite put my finger on.
 
 It started with a door. The first time I noticed it was in the hallway. It was an old wooden door with intricate carvings, and I assumed it led to a storage space or a closet. I tried to open the door but, found that the handle was missing. So, I left the door alone and continued to unpack figured I would investigate it in the morning.
 
