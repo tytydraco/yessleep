@@ -18,7 +18,7 @@ I described the creature, and he began muttering nervously to himself. “H-hey,
 
 Now, just let that sink in: eldritch beings that “own” a Limbo-esque dimension are unaware of a creature able to enter and exit pocket dimensions, and they're straight-up disturbed by it. As I spoke to Mr. A, I looked at my watch, seeing that the big hand was on twelve, and the little hand was on two. 
 
-Remember when I said in my last post that I “wasn’t a mind-reader, that’s my watch’s job”? Well, said watch is capable of telling not only if someone I’m speaking to is being honest, but how much so, and if the secret they’re telling is potentially harmful. According to the watch, yes, he was keeping some secrets, but no, they weren’t overly harmful. It went back to both hands on midnight when he said he cared about his employees, that we weren’t just food for the Vagrant or anything of the sort. 
+Remember when I said in my last post that I “wasn’t a mind-reader, that’s my watch’s job”? Well, said watch is capable of telling not only if someone I’m speaking to is being honest, but how much so, and if the secret they’re keeping is potentially harmful. According to the watch, yes, he was keeping some secrets, but no, they weren’t overly harmful. It went back to both hands on midnight when he said he cared about his employees, that we weren’t just food for the Vagrant or anything of the sort. 
 
 Eventually, he told me to keep an eye out, be careful, let him know if the Vagrant came back or did anything out of the ordinary, and whatever happens, don’t let it through the front door. Then he hung up. 
 
