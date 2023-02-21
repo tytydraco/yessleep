@@ -52,7 +52,7 @@ My father and the police found me, alone, with no trace of the creature or Nash.
 
 As we watched the footage, we could see Nash breaking into the garage and smashing things left and right. Then, we saw Gremlin slink inside. With all the commotion, I'd almost forgotten about it, and I began to worry that the creature had devoured it too.
 
-I jumped when a black line streaked across the screen of one of the indoor cameras, cracking the lens before the feed disappeared. This happened to a few more cameras a distance from Nash, so it couldn't be him. He didn't even seem to notice, too preoccupied with his own destruction.
+I jumped when a black line streaked across the screen of one of the indoor cameras, cracking the lens before the feed disappeared. This happened to a few more cameras a distance from Nash, so it couldn't have been him. He didn't even seem to notice, too preoccupied with his own destruction.
 
 After four cameras broke, Nash turned towards the door. That must've been when I leaned on the horn. We watched him stomp outside and begin smashing my car, and I sat up, my pulse racing as I waited for the creature to appear. Instead, all we got were black streaks that broke the feed.
 
@@ -66,7 +66,7 @@ Many vine-like tails.
 
 I blinked, and it was just a regular tail. 
 
-One, singular, fluffy tail.
+One, singular, fluffy, crooked tail.
 
 My heart thudded. Maybe I imagined it. It's possible, after everything that just happened.
 
