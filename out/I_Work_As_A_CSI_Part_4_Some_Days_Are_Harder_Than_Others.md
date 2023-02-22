@@ -1,4 +1,4 @@
-( First: https://redd.it/111m676 Previous: https://redd.it/113cjed )
+( First: https://redd.it/111m676 Previous: https://redd.it/113cjed Next: https://redd.it/119h6gc )
 
 In a very short amount of time, I found out that not only supernatural creatures were real, but they also needed a CSI. I debated whether I wanted to accept their job offer. The extra income was the main factor that swayed my choice. A handful of cases were sent to my email along with the amount each job paid. I gained a bonus if I trained a few Agents while working on the job. Since there were so many cases to cover, I doubted that having more people trained in my skills would ever dip into my income.
 
