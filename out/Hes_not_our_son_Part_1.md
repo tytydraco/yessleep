@@ -421,3 +421,7 @@ Her brow furrowed. Tears crowded her eyes a moment later.
 “…Fuck.”
 
 Rachel wept and I stared ahead and a few minutes later the session concluded.  Eddie emerged, holding Nameis in his arms, smiling like an angel with [blood upon its wings](https://www.reddit.com/r/decogent/comments/v85m4g/you_found_me/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+-
+
+[Final](https://www.reddit.com/r/nosleep/comments/118m4u1/hes_not_our_son_final/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
