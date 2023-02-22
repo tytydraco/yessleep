@@ -2,7 +2,7 @@
 
 
 She's been up there for the last few weeks now, but that's just when I first noticed her. She very well could have been up there for much longer…
-e certainly looks like it. 
+It certainly looks like it. 
 
 
 
@@ -363,7 +363,7 @@ The female officer stepped forward, threateningly. "Sir, I'm going to need you t
 
 
 
-The male officer stepped toward me, so close that I could smell the stale remnants of spearmint gum on his breath.  He clenched his jaw, eyes narrowing as if he wanted to hit me. For a second I thought he might. "She's a grown woman and is free to sit in a tree on *public* property if she likes. You don't own the tree, sir. And let me remind you that it is a crime to misuse 911. Now, don't call us again about this, or we'll be coming to arrest *you*." 
+The male officer stepped toward me, so close that I could smell the stale remnants of spearmint gum on his breath.  He clenched his jaw, eyes narrowing as if he wanted to hit me. For a second I thought he might. "She's a grown woman and is free to sit in a tree on public property if she likes. You don't own the tree, sir. And let me remind you that it is a crime to misuse 911. Now, don't call us again about this, or we'll be coming to arrest you." 
 
 
 
@@ -418,12 +418,12 @@ I tried to prepare him for what he would see, but he waved me off as if I were j
 
 
 
-"No. Not yet." I said through gritted teeth. 77
+"No. Not yet." I said, through gritted teeth. 
  
 
 
 
-"So she just…. sits up there then?" He asked. I could tell he wasbreathing breathingAs 4eudging me, 9th inning 9th inning me a fool for being afraid of a woman who hadn't done anything to me. But he didn't know. He would though. 
+"So she just…. sits up there then?" He asked. I could tell he was thinking me a fool for being afraid of a woman who hadn't done anything to me. But he didn't know. He would though. 
 
 
 
@@ -449,7 +449,7 @@ He strolled across the street as though he were walking in a park, oblivious to 
 
 
 He looked up into the tree, and that stupid smirk instantly fell from his face, his skin going pale. The longer he stared the worse he looked. His mouth went slack, and his legs looked as if they were ready to buckle. 
-All of a sudden something dropped from the tree, something much too small for me to distinguish what it was. His hands flew to his face, frantically wiping at it desperately.  
+All of a sudden something dropped from the tree, something much too small for me to distinguish what it was. His hands flew to his face, frantically wiping at it.  
 
 
 
@@ -743,7 +743,7 @@ As quietly and carefully as I could, I sneaked down my basement steps, leaving t
 
 
 
-I made little to no sound, certainly nothing *she* could hear. I was sure of that. 
+I made little to no sound, certainly nothing she could hear. I was sure of that. 
 I knew I probably wouldn't be able to see her in the dwindling light, but I needed to try. I had to know whether she was somehow able to anticipate where I'd be. 
 
 
