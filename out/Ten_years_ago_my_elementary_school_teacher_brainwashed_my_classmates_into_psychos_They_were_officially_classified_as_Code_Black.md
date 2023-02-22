@@ -58,7 +58,7 @@ Agony. A scream ripped from my throat, and he slammed his hand over my mouth. He
 
 “We had so many adventures, and you’re going to be super jealous when I tell you about them, Matilda.” His grin grew, ice-cold breath tickling my face. I was all too aware of my dangling legs, and that he was somehow holding me three feet in the air. Which, thankfully, gave me the opportunity to kick him in the face. That got rid of his smile. When Jack let go, being caught off guard when the heel of my converse slammed into his mouth, I dropped to the ground, already propelling myself back to my feet with my hands. My vision was foggy and disjointed, but I didn’t care. I had to get away from him. Running footsteps rumbled in my skull, entangled with the sound of laughing fused with the wind.
 
-They has found me.
+They had found me.
 
 Surprisingly, Jack didn’t follow me. When I was halfway down the walk, throwing myself through the late evening commute and trying to keep a straight face, I risked twisting around. He was gone. But I already knew his game. I knew exactly where he was going to go, to strike where it would hurt me.  It took me ten minutes to run home, and once I was rounding our street, something caught my eye. A bright yellow school bus. It looked out of place sitting there across the road from our shared house. To anyone else, the sight might have been amusing.
 
