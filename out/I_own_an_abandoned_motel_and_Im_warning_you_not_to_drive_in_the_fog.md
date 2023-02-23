@@ -281,3 +281,5 @@ He walked me back to my cottage in silence and we said our goodbyes. Alone, shoc
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/)
+
+[\[Part 8\]](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/)
