@@ -1,10 +1,10 @@
-Over the next few months [after my encounter with the pet killer](https://www.reddit.com/r/nosleep/comments/116luo2/i_had_a_house_that_eats_the_dead_it_became_an/), I erased two dozen men. I had some close calls before I developed a consistent methodology involving a camera, quiet slippers, and a very good knife. 
+Over the next few months [after my encounter with the pet killer](https://www.reddit.com/r/nosleep/comments/116luo2/i_had_a_house_that_eats_the_dead_it_became_an/), I erased two dozen men. I had some close calls before I developed a consistent methodology involving a camera, quiet slippers, and a very good knife.
 
 My only regret was that for various reasons, a few guests left alive. Some never slept or stirred at the slightest sounds, and I couldn’t take those kind of chances. I couldn’t risk leaving my children orphans.
 
-Still, I was proud of the work I did. That said, the details are fairly mundane. By summer, I’d fallen into a pretty standard routine. 
+Still, I was proud of the work I did. That said, the details are fairly mundane. By summer, I’d fallen into a pretty standard routine.
 
-And then I got a booking far different than any of the others. It was for a 70-year-old woman. The whole thing felt off, but then, the house always attracted a certain kind of person. I figured it was never wrong. 
+And then I got a booking far different than any of the others. It was for a 70-year-old woman. The whole thing felt off, but then, the house always attracted a certain kind of person. I figured it was never wrong.
 
 I was more right than I realized.
 
@@ -14,7 +14,7 @@ She arrived in an old white Buick, a boat of a car. She was so short and bent he
 
 “I travel light these days,” she said, looking right past me and up at the house. “Just a purse.”
 
-Then, I heard quick footsteps approaching from behind me and looked back to see Grace and Derek running up. 
+Then, I heard quick footsteps approaching from behind me and looked back to see Grace and Derek running up.
 
 “Who are you?” asked Grace.
 
@@ -26,7 +26,7 @@ Then, I heard quick footsteps approaching from behind me and looked back to see 
 
 Something about the way she looked at the children set me on edge.
 
-“You two go and play while I get our guest settled in,” I said. 
+“You two go and play while I get our guest settled in,” I said.
 
 The kids ran back inside, and the old woman watched them leave wistfully.
 
@@ -40,31 +40,31 @@ A chill went through me. Could she possibly know about Aaron? He was supposed to
 
 “Which way to the room?” she asked.
 
-“This way,” I said, trying not to betray any reaction to what she’d just said. 
+“This way,” I said, trying not to betray any reaction to what she’d just said.
 
 As soon as I’d left the woman alone in the room, I ran back to my side of the house and turned on the camera feed. As I watched, she took a small bundle of fabric out of her purse and unrolled it on the bed. Inside were what seemed like a random assortment of items: a chocolate bar, a lock of hair, a single rose, and dead bird. The woman put them down on the bed and waited, staring at the items intensely.
 
-Then, just barely, I could hear her whispering. 
+Then, just barely, I could hear her whispering.
 
 “Eat,” she said. “Go ahead. There must be something here you like.”
 
-The house had always been smart, careful not to reveal its nature to dangerous people. But this woman wasn’t like the rest. The men it had helped me eat had all been obvious in their appetites, even if they thought they hid them well. 
+The house had always been smart, careful not to reveal its nature to dangerous people. But this woman wasn’t like the rest. The men it had helped me eat had all been obvious in their appetites, even if they thought they hid them well.
 
 This woman held her true nature close. This woman was like me.
 
-“Don’t do it,” I whispered to the house. 
+“Don’t do it,” I whispered to the house.
 
 “You’re a good boy, aren’t you?” said the old woman. Then she reached into her bag and took out a small knife. “Of course, we all have our weaknesses. The little treats we just can’t resist.”
 
 With that, she cut the tip of one finger. Blood began to drip down onto the bedspread. Then I heard the sound of sandpaper, and the blood was gone.
 
-The old woman nodded slowly. 
+The old woman nodded slowly.
 
 “It’s okay dear,” she told the house. “I can see you now. Go ahead and have the rest.”
 
-As I watched, the rose began to wilt before disappearing into dust. Then, one by one, the rest of the objects began to disappear. 
+As I watched, the rose began to wilt before disappearing into dust. Then, one by one, the rest of the objects began to disappear.
 
-After they were gone, the old woman rose and rolled up the fabric, placing it back in her purse. Then she calmly rose and walked out the door. 
+After they were gone, the old woman rose and rolled up the fabric, placing it back in her purse. Then she calmly rose and walked out the door.
 
 A minute or two later, I heard a knock at the main house and opened it to find her standing outside.
 
@@ -72,7 +72,7 @@ A minute or two later, I heard a knock at the main house and opened it to find h
 
 I nodded and walked out, shutting the door behind me.
 
-“Who are you?” I asked, my heart pounding. 
+“Who are you?” I asked, my heart pounding.
 
 “Oh, I’ve had a lot of names. People who don’t like me call me the Crone. I used to hate that name, but I suppose it’s become a bit of a badge of honor.”
 
@@ -80,7 +80,7 @@ I nodded and walked out, shutting the door behind me.
 
 “Nothing at all,” she said. “I’d just heard rumors of a new homeowner in town and wanted to reach out. We’re in the same business, you see, you and I. For a moment, I was worried we might step on each others’ toes. I’ve dealt with that in the past, and it was most unpleasant. But I can tell that your house and mine have very different tastes.”
 
-“I’m not so sure I know what you’re talking about,” I said. 
+“I’m not so sure I know what you’re talking about,” I said.
 
 “Oh, I think you do,” she said. “But I admire your discretion. It’s always served *me* well, and I’ve been at this game far longer than you.”
 
@@ -100,7 +100,7 @@ Of course, I had no idea where she lived. Somewhere in the city, she had said, b
 
 Just as she’d said, I hoped we’d never see each other again.
 
-And then one day when I was picking Derek up at school, I noticed a cubby next to his with no name on it. But inside there was clearly a backpack and an extra pair of clothes. The school asked parents to write names on the tags, so trying not to draw suspicion I dug through the bag, looking for any name, any trace of the child that owned them.
+And then one day when I was dropping Derek off at school, I noticed a cubby next to his with no name on it. But inside there was clearly a backpack and an extra pair of clothes. The school asked parents to write names on the tags, so trying not to draw suspicion I dug through the bag, looking for any name, any trace of the child that owned them.
 
 I didn’t find a word.
 
@@ -116,7 +116,7 @@ I didn’t find a word.
 
 “Maybe ten?” He said. “Eleven?”
 
-As he spoke, I looked past his shoulder out to the chain link fence that bordered the school. And that’s when I saw her. 
+As he spoke, I looked past his shoulder out to the chain link fence that bordered the school. And that’s when I saw her.
 
 The Crone was watching us from the window of her car, a small smile on her face. There was something different about her, too. She looked younger than before, like a woman in her 50s. She was sitting up straight, and her hair was a dark gray now instead of white.
 
@@ -144,7 +144,7 @@ I could have screamed and shouted. I could have called the cops. I knew neither 
 
 “You have a sister,” I told Derek as we got in the car. “You remember her, right?”
 
-“You mean Grace? Of course I do!” 
+“You mean Grace? Of course I do!”
 
 “Good,” I said. “Because as long as we remember her, it means she hasn’t been erased. And that means we still have a chance to save her.”
 

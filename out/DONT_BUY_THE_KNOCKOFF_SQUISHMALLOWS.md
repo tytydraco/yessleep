@@ -208,7 +208,7 @@ But one thing was for sure.
 
 The man who sold me those knock-off Squishmallows had the situation contained.  The shapeshifters, the living toys, he had figured out a way to convince them that was all that existed on this side of the portal.  He convinced them his house was our entire world.  And then I shattered his window.  
 
-And let those THINGS out into the [world.](https://youtu.be/rHcK2TpBeG4)  
+And let those THINGS out into the [world.](https://youtu.be/4OCqsuZgIyk)  
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
