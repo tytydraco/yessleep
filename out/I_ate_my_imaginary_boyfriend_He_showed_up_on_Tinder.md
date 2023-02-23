@@ -6,7 +6,7 @@ Whenever I felt empty or bored, which was a lot of the time to be honest, I clos
 
 Though last night, reality hit me like a wooden spoon on the ass. A message from Brock University read,
 
-"   *Miss Grace Powell,*
+"   *Miss Amelia Powell,*
 
 *As you may know, you were placed on academic probation last term due to your overall cumulative average not meeting the threshold considered acceptable by Brock University. Students on probation are required to earn a minimum average of 60% to stay in the program,however, you did not fulfill this requirement. Regretfully, we must inform you that your admission to Brock University has been terminated, and we wish you well for all your future studies.*
 
