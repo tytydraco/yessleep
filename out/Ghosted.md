@@ -1,6 +1,12 @@
-As a physical therapist student who spends most of his time hunched over biology, chemistry and anatomy textbooks, I believe in science. But I was about to discover that there are certain things in our world that science can’t explain. Mysteries that defy logic or simple human reasoning. Mysteries that are far older and more powerful than we can imagine.
+As a physical therapist student who spends most of his time hunched over biology, chemistry and anatomy textbooks, I believe in science. But I was about to discover that there are certain things in our world that science can’t explain.
 
-But I’m getting ahead of myself. Best to start at the beginning. Go back to that faithful day.
+Mysteries that defy logic or simple human reasoning.
+
+Mysteries that are far older and more powerful than we can imagine.
+
+But I’m getting ahead of myself.
+
+Best to start at the beginning.Go back to that faithful day.
 
 The day I first heard her name.
 
@@ -160,7 +166,7 @@ Of his final cryptic message.
 
 What was he talking about?
 
-A week has passed since that terrible day. I don’t even remember dialing 911. Everything is hazy, like a bad dream. But I do recall the fireman’s theory after they stretchered Josh’s disfigured body to a waiting ambulance. As the rear doors slammed shut, erasing my dying brother from view, he said, ”We found pot in the bedroom and empty beer bottles all over the house. Your brother may have passed out, dropped the roach and then the bedspread caught fire. By the time he knew what was happening, it was too late\*\*.”\*\*
+A week has passed since that terrible day. I don’t even remember dialing 911. Everything is hazy, like a bad dream. But I do recall the fireman’s theory after they stretchered Josh’s disfigured body to a waiting ambulance. As the rear doors slammed shut, erasing my dying brother from view, he said, ”We found pot in the bedroom and empty beer bottles all over the house. Your brother may have passed out, dropped the roach and then the bedspread caught fire. By the time he knew what was happening, it was too late.”
 
 No offense, but I call bullshit. I’m not buying it, not for a second. The bed’s iron frame was a warped mess. Steel melts at 2800 degrees. So how could a small fire generate such heat without spreading? And why didn't any of the goddamn fire alarms go off?
 
