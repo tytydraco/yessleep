@@ -104,19 +104,19 @@ Out of options, and still wanting to believe myself sane, I purchased a decibel 
 
 Hope welled in me but was squashed as I kept checking. In the kitchen, the meter read 87 dBs. Then I went to the living room, the bedroom, and the bathroom. Every, single, one: 87 dBs. The sound never gave a hint of dipping by a single decibel. I thought the fucking thing was broken. I turned it off, replaced the windscreen on the wand, the batteries, and tried again. The sound scale remained static. According to the meter, the crying was coming from every inch of the apartment equally.
 
-I resolved that it had to be an issue with the wand; Some cheap piece of sound equipment that didn’t work right. It wasn’t possible that the crying could be coming from every part of the apartment. It was a mistake. It had to be. I tossed the Db meter onto my fading baby shit brown couch and opened a microphone app on my phone. I hit record and allowed the ongoing tidal wave of tears to pour into its speaker. Ten seconds later, I hit stop and stepped out of the apartment to get clear of the crying. I clicked play on the new recording.
+I resolved that it had to be an issue with the wand; Some cheap piece of sound equipment that didn’t work right. It wasn’t possible that the crying could be coming from every part of the apartment. It was a mistake. It had to be. I tossed the dB meter onto my fading baby shit brown couch and opened a microphone app on my phone. I hit record and allowed the ongoing tidal wave of tears to pour into its speaker. Ten seconds later, I hit stop and stepped out of the apartment to get clear of the crying. I clicked play on the new recording.
 
 The only sound the phone picked up was the hum of my air conditioning.
 
-I escalated things. I bought ceiling tiles, those big flat asbestos-filled puzzle pieces found in every office and public school in America. I pasted them over any naked section of my ceiling. The effort took two days and three trips to Home Depot. The result: 87 Dbs.
+I escalated things. I bought ceiling tiles, those big flat asbestos-filled puzzle pieces found in every office and public school in America. I pasted them over any naked section of my ceiling. The effort took two days and three trips to Home Depot. The result: 87 dBs.
 
-The muffling had done as much as a polite “shh.”
+The renovation had done as much as a polite “shh.”
 
-I searched for alternative ways to cope. I stayed out more in month three of my lease. I’d spend hours at coffee shops, drink at bars till last call, go to movies I’d seen before, and grade papers at school till my eyes turned red from strain. I’d go anyplace that wasn’t home. But the coffee shops would close, the movies would end, and I’d run out of papers to grade, leaving me with no other choice than to come back to the apartment. Back to the ever-present cry of the walls.
+I searched for alternative ways to cope. I stayed out more in month three of my lease. I spent hours at coffee shops, went to movies I’d seen before, and graded papers in the classroom till my eyes turned red from strain. I’d go anyplace that wasn’t home. But the coffee shops would close, the movies would end, and I’d run out of papers to grade. Eventually I had no other choice than to go back to the apartment. Back to the ever-present cry of the walls.
 
-I tried earplugs, five different sets of noise-canceling headphones, a white noise machine, music, the TV… The moans bested them all. I eventually broke down and drove the rental company’s offices.
+I tried earplugs, five different brands of noise-canceling headphones, a white noise machine, music, the TV, and eventually my own screaming. The moans bested them all. I eventually broke down and drove to the landlord's office.
 
-“Please, you must do something… the crying… it’s never-ending.” I explained to the snake of a landlord who’d trapped me in that place.
+“Please, you must do something… the crying… it’s never-ending.” I explained to the snake of a manager who’d trapped me in that place.
 
 “You tried checking with the neighbors?” The landlord said.
 
@@ -306,7 +306,7 @@ Mary walked around to the kitchen, twirling a mail key that’d been left on the
 
 *Heads, they put an offer in. Tails, they go back to looking at places in the suburbs.*
 
-She dropped the key onto the linoleum counter with a clang.
+She dropped it onto the linoleum counter with a clang.
 
 “Where’s the master bedroom?” She asked.
 
@@ -330,7 +330,7 @@ Two hands wrapped around Mary’s shoulders. She spun around, as Wallace scooped
 
 He put his arms around Mary’s stomach, petting it gently. He squeezed his wife once more and left her alone in the bathroom. She turned to follow him out when a dull noise filtered in like a breeze. A soft and slow song gently lulled in the bathroom walls.
 
-Mary scanned for the source, hunting it down to the closet. It was a woman singing; her voice permeating amongst the closet's mirrors and empty rod coat hangers.
+Mary scanned for the source, hunting it to the closet. It was a woman singing; her voice permeating amongst the closet's mirrors and empty rod coat hangers.
 
 “Hush little baby… don’t say a word… momma’s gonna buy you a mockingbird.” A gentle voice cooed through the drywall.
 
