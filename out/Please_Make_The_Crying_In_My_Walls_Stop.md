@@ -138,7 +138,7 @@ The landlord rolled his eyes, checking a knockoff Rolex clinging to his wrist.
 
 “Did you just call me crazy?”
 
-“Lady, you don’t think I wouldn’t get a hundred emails a day if there was some brat causing a ruckus? Shit, I get a hundred emails anytime that old deaf bitch in 206 plays her Al Jolson records.” He said, heading for the door to escape our conversation.
+“Lady, you don’t think I wouldn’t get a hundred emails a day if there was some brat causing a ruckus? Shit, I get a hundred emails anytime that old deaf bitch in 206 plays her records.” He said, heading for the door to escape our conversation.
 
 “Fine! Fuck this then. Take this for a thirty days' notice.”
 
