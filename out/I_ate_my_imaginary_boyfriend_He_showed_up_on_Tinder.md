@@ -50,12 +50,12 @@ So I did what he said, drew a small sheep in the center of the paper, that's wha
 
 I didn't realize that I had fallen asleep under the tree till I woke up and saw a fucking sheep underneath me. It had fucking crystal blue eyes like Jasper's, gold-ish fur soaked in blood, platinum blonde hair wrapped around it's bleeding mouth. The hair around it was undamaged, and stayed the platinum colour despite blood flowing all round it.  There were holes in it, like the way there are holes in cartoon cheese, and when I peered in, it was missing it's insides, though it smelled like it had been there for weeks, when I touched the hooves, I heard a voice in my head, no longer even slighly human. Imagine male siri on drugs, it was louder than a rock concert, screaming "MY LOVE MY LOVE MY LOVE MY LOVE. TOUCH THE NOSE MY LOVE TOUCH THE NOSE MY LOVE TOUCH THE NOSE MY LOVEEEE"
 
-I was trembling at this point and was trying my best not to gag and I wanted the voice to stop so I did what he told me. The sheep fucking turned. It went inside out, the way you could turn a glove inside out on itself. It was messy with all the blood splattering everywhere. The head didn't turn inside out though and those crystal blue sheep eyes were stating right at me. It happened so neatly and inside the sheep there was a gold inscription written in beautiful cursive. "My love".
+I was trembling at this point and was trying my best not to gag and I wanted the voice to stop so I did what he told me. The sheep fucking turned. It went inside out, the way you could turn a glove inside out on itself. It was messy with all the blood splattering everywhere. The head didn't turn inside out though and those crystal blue sheep eyes were staring right at me. Inside the sheep there was a gold inscription written in beautiful cursive. "My love".
 
 It was like 3 in the morning and no one was there. I then felt the compulsion to check my grades, it felt like I had to, there was a feeling of utter doom and panic, that I hadn't felt in ages. I was somewhat impressed he could make me feel things despite my heavy dose of anti-depressants. Though at this point, I was quite positively terrified and didn't feel in control of myself as I logged into the portal and I saw all eighties.
 
 I looked over at the dead sheep, and it had disappeared. I received a text from Jasper on Tinder,
 
-"I'm so sorry my love. To avoid unintended mishaps, please follow my instructions or we make him angry. If you are dissapointed, unmatch, and you'll never hear from me again"
+"I'm so sorry my love. To avoid unintended mishaps, please follow my instructions to the utmost precision or we make him angry. If you are dissapointed, unmatch, and you'll never hear from me again"
 
-Why does he talk like chat gpt? Sholuld I unmatch?
+Why does he talk like chat gpt? Should I unmatch?
