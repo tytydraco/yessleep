@@ -1,8 +1,10 @@
-Grief stains a place. When something terrible happens in a dwelling, that thing remains long after the home’s owners move on. You can feel it in the bedrock, something sorrowful lingers. That’s what happened to my old home. The hardwood floors absorbed too many of my tears, and every step I took welled that trauma up through the nerve endings of my feet. I could barely sign the bill of sale to the two smiling 30-somethings that bought it when I couldn’t take another step. Tom and I had been like them.
+Grief stains a place. When something terrible happens in a dwelling, that thing remains long after the home’s owners move on. You can feel it in the bedrock, something sorrowful lingers. That’s what happened to my old home. The hardwood floors absorbed too many tears, and every step welled up trauma through the nerve endings of my feet. I could barely sign the bill of sale to the two smiling 30-somethings who bought it when I couldn’t take another step. Tom and I had been like them.
 
 The baby seemed like she was meant to happen. I’d gotten my teaching license. Tom received a promotion. The stars were aligning. We had each other, and soon we’d have little Caroline.
 
-“It’s bad luck naming her this early,” Tom told me one night as I pressed my head against his chest. The gentle thumping of his heart bobbed me up and down like a boat on rolling waves.
+“It’s bad luck naming her this early,” Tom told me one night as I pressed my head against his chest. 
+
+The gentle thumping of his heart bobbed me up and down like a boat on rolling waves.
 
 “You’re being superstitious.”
 
@@ -12,7 +14,9 @@ The baby seemed like she was meant to happen. I’d gotten my teaching license. 
 
 “I didn’t mean it like that. I’m only… nervous. I want to be a good dad.”
 
-I kissed him after he admitted that and rose to hold him like an infant against my breast. I think about that moment a lot. Our three hearts beating as one. For one second, we were a family. That’s as close as we ever got. Caroline stopped kicking a week later.
+I kissed him after he admitted that and rose to hold him like an infant against my chest. I think about that moment a lot. Three hearts beating as one. For one second, we were a family. That’s as close as we ever got. 
+
+Caroline stopped kicking a week later.
 
 “I don’t understand, she’s… the baby’s not developing right?” I asked our family doctor during a panicked visit.
 
@@ -46,31 +50,33 @@ The rent was cheap, and it was only a year’s lease. Lord knows I could use the
 
 I sat alone at the end of move-in day. The shadows of the living room’s plantation shutters created great bars that etched themselves across my couch and coffee table. Across me. The apartment was always ready to remind me what my new home was. The weight of my circumstances bore in as life sat before me packed in neat little boxes with labels like “books” and “silverware.” It was as if time flipped an hourglass and now sand drowned me. I spent the first night crying, vocal cords echoing like chalk dragging across a blacktop’s surface before passing out in the early hours of the morning.
 
-I wonder if my sobs that night awakened it. Perhaps, it heard my tears and mistook them for its mother’s. For you see, the crying in the walls started the next day.
+I wonder if my sobs that night awakened it? Perhaps, it heard my tears and mistook them for its mother’s. For you see, the crying in my walls started the next day.
 
-I couldn’t tell when exactly it began, only that, once it did, it didn’t stop. There was a baby’s cry seeping through the porous walls, breaking against wooden beams and plaster of the apartment. It tore across the living room, bounced around the kitchen, and finally belched into my bedroom. It was everywhere and nowhere at once.
+I couldn’t tell exactly when it began. I can tell you that once it did, it didn’t stop. A baby’s cry seeped through my porous walls, breaking against the wooden beams and plaster of the apartment. It tore across the living room, bounced around the kitchen, and finally belched into my bedroom. 
 
-When I toured the pad, there'd been no hint of neighbors. No pounding music, no scurrying footsteps. Only sunshine and silence. The landlord clearly knew when to show it off. At first, I brushed the crying off: *Just an infant who lives in the complex. Not ideal, but livable*.
+It was everywhere and nowhere at once.
 
-Then - as things seemed apt to do - it got worse.
+When I toured, there'd been no hint of neighbors. No pounding music, no scurrying of footsteps. Only sunshine and silence. The landlord clearly knew when to show the unit. At first, I brushed the crying off: *Only an infant who lives in the complex. Not ideal, but livable*.
 
-The child was a rooster who loved his work, letting out shrill wails every morning until she eventually stopped sometime in the night. The crying refused to fade into the background. It lived in the air and threatened to increase in pitch if I wasn’t properly unsettled. Worse, it triggered something within me. A fifth night of constant ear-shattering noise made my hands shake like I’d skipped all my meals. Hours passed where I could hardly hold in sobs of my own as a response to the audible assault.
+Then - as things seemed to do - it got worse.
 
-“Oxytocin.” The doctor said when I went in for a check-up on my shakes. “Your body has been through a lot and well…”
+The child was a rooster who loved its work, letting loose a shrill wail every morning until she eventually stopped sometime at night. The crying refused to fade into the background. It lived in the air at a pitch that constantly threatened to increase if I wasn’t properly unsettled. Worse, it triggered something within me. A fifth night of constant ear-shattering noise made my hands shake like I’d skipped all my meals. Hours passed where I could hardly hold my own sobs as a response to the audible assault.
 
-His diagnosis was that my insides were mistaking this child’s whimpers as my own phantom infant’s. Internal circuitry flipping mental and chemical breakers in my cerebellum to create a physical response.
+“Oxytocin.” The doctor said when I went in for a check-up on my shakes. “Your body has been through a lot and, well…”
+
+His diagnosis was my insides were mistaking the child’s whimpers as my own phantom infant’s. Internal circuitry flipping mental and chemical breakers in my cerebellum to generate a physical response.
 
 “You’ll be fine. I’ll prescribe something to help you calm down.” My doctor said.
 
-*Fine,* a word doctors love to use. I tried explaining that this sensation felt different. It wasn’t a fight-or-flight response. It was like bits of my sanity were being stripped away.
+*Fine,* a word doctors love to use. I tried explaining this sensation felt different. It wasn’t a fight-or-flight response. It was like bits of sanity were being stripped away by a wrench.
 
 “Have you tried talking to your neighbors about the noise?” The doctor asked in that oblivious all-knowing tone men perfected centuries ago.
 
-Of course I’d spoken with my neighbors. What else do you do about this kind of problem? Two days into the sobbing spells I went upstairs, gritting my teeth to present a kind face, to ask the mother of the brat to kindly shut it the hell up. I tried the upstairs apartment first, figuring it the most likely culprit. I realized I was wrong when the owner arrived at the door.
+Of course I’d spoken with my neighbors. What else do you do about this kind of problem? I went upstairs two days into the sobbing spells, gritting my teeth and presenting a kind face, to ask the mother of the brat to kindly shut it the hell up. I tried the upstairs apartment first. It was the most likely culprit. I realized I was wrong when the owner arrived at the door though.
 
 “Yes?” An elderly woman cooed at me while adjusting coke-bottle glasses.
 
-I explained I was her new neighbor, playing the song and dance of proper domestic etiquette. I peered into her musty place as we talked, noting the litters of pill bottles and Precious Moments figurines hanging on every shelf. But there were no toys. No cribs. None of the accessories kids bring with them. I cut to the chase and interrupted her as she told me about some tapas restaurant a block away from our building.
+I explained I was her new neighbor, playing the song-and-dance of proper domestic etiquette. I peered into her musty place while we talked, noting litters of pill bottles and porcelain figurines hanging on every shelf. But there were no toys. No cribs. None of the accessories kids bring with them. I cut to the chase and interrupted her as she told me about some tapas restaurant a block away from our building.
 
 “I’m sorry. This might seem like a strange question, but you don’t happen to have any children? Or maybe grandkids?”
 
@@ -88,17 +94,19 @@ A muffled murmur replied, inaudible to me.
 
 “Yeah, no. No kids here. Did you check with the upstairs neighbor?”
 
-The rest of the day I became a door-to-door saleswoman in search of the babe responsible. I was met by an endless procession of confused faces and head-scratching. By four, I’d checked every unit and a deep sense of dread filled me like a bottle.
+The rest of the day I became a door-to-door saleswoman. I was met by an endless procession of confused faces and head-scratching. By four, I’d checked every unit and a deep sense of dread filled me like a bottle.
 
 *There wasn’t a child under the age of eight in the whole complex.*
 
 I hypothesized that the baby was being hidden. Maybe there was a fee associated with having an unlisted occupant in the home, or worse, perhaps the poor thing had been stolen. I suddenly felt very guilty over my hatred of it. People hid stranger things in apartments before. During a frantic Google search for solutions, I’d learned about a man who’d made meth in his apartment for ten years under his neighbor's nose. The police only ever found out about his cooking when the chef got lazy mixing chemicals and an explosion made it very obvious what had been going on. The article ended by noting authorities only ever found one of the cook’s arms. It’d blown clean off and lodged in a mailbox.
 
-Out of options, and still wanting to believe myself sane, I purchased a decibel meter. If I could pinpoint where the noise was emanating from I could go to the landlord. The meter included a black plastic wand that made me feel like a TSA agent as I scanned the apartment. I went from end to end hunting the weeping. I started with the ceiling, which came in at 87 Dbs, the sound level of a busy day of traffic. Hope welled in me but was squashed as I kept checking. The kitchen was up next. Again, the meter read 87 Dbs. Then I went to the living room, the bedroom, and the bathroom. Every, single, one: 87 Dbs. The sound never gave a hint of dipping by a single decibel. I thought the fucking thing was broken. I turned it off, replaced the windscreen on the wand, the batteries, and tried again. The sound scale remained static. According to the meter, the crying was coming from every inch of the apartment equally.
+Out of options, and still wanting to believe myself sane, I purchased a decibel meter. If I could pinpoint where the noise was emanating from I could go to the landlord. The meter included a black plastic wand that made me feel like a TSA agent as I scanned the apartment. I went from end to end hunting the weeping. I started with the ceiling, which came in at 87 dBs, the sound level of a busy day of traffic (A fact I learned on the box). 
 
-I resolved that it had to be an issue with the wand; Some cheap piece of sound equipment that didn’t work right. It wasn’t possible that the crying could be coming from every part of the apartment. It was a mistake. It had to be. I tossed the Db meter onto my fading babyshit brown couch and opened a microphone app on my phone. I hit record and allowed the ongoing tidal wave of tears to pour into its speaker. Ten seconds later, I hit stop and stepped out of the apartment to get clear of the crying. I clicked play on the new recording.
+Hope welled in me but was squashed as I kept checking. In the kitchen, the meter read 87 dBs. Then I went to the living room, the bedroom, and the bathroom. Every, single, one: 87 dBs. The sound never gave a hint of dipping by a single decibel. I thought the fucking thing was broken. I turned it off, replaced the windscreen on the wand, the batteries, and tried again. The sound scale remained static. According to the meter, the crying was coming from every inch of the apartment equally.
 
-The only sound my phone picked up was the hum of my air conditioning.
+I resolved that it had to be an issue with the wand; Some cheap piece of sound equipment that didn’t work right. It wasn’t possible that the crying could be coming from every part of the apartment. It was a mistake. It had to be. I tossed the Db meter onto my fading baby shit brown couch and opened a microphone app on my phone. I hit record and allowed the ongoing tidal wave of tears to pour into its speaker. Ten seconds later, I hit stop and stepped out of the apartment to get clear of the crying. I clicked play on the new recording.
+
+The only sound the phone picked up was the hum of my air conditioning.
 
 I escalated things. I bought ceiling tiles, those big flat asbestos-filled puzzle pieces found in every office and public school in America. I pasted them over any naked section of my ceiling. The effort took two days and three trips to Home Depot. The result: 87 Dbs.
 
