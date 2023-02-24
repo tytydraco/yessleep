@@ -1,8 +1,6 @@
 When my face started peeling, I thought it was the new face wash I had recently bought. My friend recommended it, and it was rated 10.0 on the best of lists on several websites.
 
-I was disappointed because the few times I used it, I really liked it, but I couldn’t chance it.
-
-I threw the cleanser in the trash.
+I was disappointed because the few times I used it, I really liked it, but I couldn’t chance it, so I threw the cleanser in the trash.
 
 Two days later, my face was still peeling, and it was much worse. It was so dry, the texture akin to snakeskin. I racked my mind for a possible cause, but couldn’t think of any.
 
