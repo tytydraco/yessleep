@@ -42,4 +42,22 @@ Since moving in, we never utilized the barn. We inspected it when we first purch
 
 Seeing this, I called out his name and began sprinting towards the structure. Just before I was able to reach him, however, the large wooden door slammed shut in my face. I called out to James once more and attempted to push the door open, but the door wouldn't budge an inch, despite pushing on it as hard as I could. 
 
-“the rest of the story will be in the comments👇”
+I looked around, trying to find anything I could use to open the door with when suddenly, a loud and piercing scream echoed from inside the barn. Worry and panic swirled within me, and I charged at the door. When my shoulder connected, I fell inward and onto the wooden floor. I quickly stood up and shined the flashlight around.
+
+In the corner of the barn, I saw James standing there. I ran over to him and asked him what he was doing out here. He said that he didn't know and that he was scared. I hugged him and guided him back to the house. My wife was already making her way over to us after hearing all the commotion. I assured her everything was fine, but that did little to shake the concerned look from her face.
+
+Over the next couple of days, my wife and I had a long discussion about what had been going on, and we decided it would be best to demolish the barn entirely. I contacted a company, and they came out the following weekend to take the barn down. It was a surprisingly painless process overall, and once all was said and done, it felt like a weight had been lifted off of me.
+
+However, during this process, James seemed to become lethargic over the whole ordeal. He refused to leave his room again, was barely eating, and would hardly speak to us. Then, one evening, as I was getting ready for bed, I walked down the hallway. As I passed by James's room, I saw the door was cracked slightly, and I decided to make sure James was all right.
+
+I pushed the door open and found him once again standing at his window. Concerned, I walked over to him and asked him what he was looking at. He didn't answer at first; he just continued staring out of the window towards where the barn used to be. Then, after a few moments, he began to whisper. He said,
+
+"You destroyed their home. Now, where will they go?"
+
+I asked James, "Who?"
+
+He raised an arm and pointed out of the window. I turned to look, and even though there was barely any light in the sky, I could see the reflection of what appeared to be dozens of eyes staring at me from the tree line. After raising his arm and pointing, James collapsed to the ground.
+
+I called my wife, and we immediately took him to the doctor. They ran multiple tests on him but have been unable to find anything wrong with him. They just said he had suffered from a panic attack but were unsure of the cause.
+
+Shortly after that, we moved out of that old farmhouse and into a place much closer to the city. Since then, James has been slowly getting better, but whenever I ask him about the old house and the barn, he seems to have absolutely no memory of ever living there in the first place.
