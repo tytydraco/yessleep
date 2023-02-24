@@ -196,6 +196,8 @@ It’s not invisible to the professors.  That stabbed student is really in here 
 
 Update: so uh I think I should have paid better attention to our conversation because now that I think back on it I think I might have said something was fine without really processing what I was agreeing to and that something was a timeslot and I just got a phone call from the counseling center confirming my appointment for next Tuesday at 4
 
+[Keep reading](https://www.reddit.com/r/nosleep/comments/11aijs7/how_to_survive_college_something_is_after_cassie/)
+
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
