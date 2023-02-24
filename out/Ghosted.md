@@ -6,7 +6,7 @@ Mysteries that are far older and more powerful than we can imagine.
 
 But I’m getting ahead of myself.
 
-Best to start at the beginning.Go back to that faithful day.
+Best to start at the beginning. Go back to that faithful day.
 
 The day I first heard her name.
 
