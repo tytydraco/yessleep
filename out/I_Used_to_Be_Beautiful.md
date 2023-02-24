@@ -50,7 +50,7 @@ I was unnerved, but I wouldn’t show it. I had drank quite a bit, and it annoye
 
 She kept looking at me, and I refused to back down.
 
-And then she smiled, and my vision went completely black.
+And then she smiled, and everything went black.
 
 I heard screams, and I felt flames lick at every part of my body.
 
@@ -68,7 +68,7 @@ She lurched towards me and tapped my forehead with a gnarled, bloated finger.
 
 She caressed the contours of my cheeks, encircled the hollows of my eyes, and traced patterns on my lips.
 
-She gripped the underside of my jaw, and with a surprising strength, she sank her fingers into my flesh and tore off the entirety of my face.
+She gripped the underside of my jaw, and with  surprising strength, she sank her fingers into my flesh and ripped off my face.
 
 The world burned, and I screamed again. I never thought it possible to scream without lips.
 
