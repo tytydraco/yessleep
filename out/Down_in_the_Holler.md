@@ -47,3 +47,5 @@ Don’t really even remember the walk just that the sky was clear. Not sure how 
 
 
 See, there was something that day came outta the Holler. Sounds. Faint and far away like, but sounds all the same. I heard the screaming howls of a dog suddenly cut short followed by the sounds of bones breaking and meat tearing. Then I heard Lee’s wordless screams get further and further away. 
+
+[A Weird Life](https://www.reddit.com/r/AWeirdLife?utm_medium=android_app&utm_source=share)
