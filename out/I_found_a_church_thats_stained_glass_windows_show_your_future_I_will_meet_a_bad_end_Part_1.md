@@ -1,10 +1,10 @@
 Some urban legends have a way of weaving themselves into communities like a sparkling accent. When I was a substantially younger man, our favorite local tale was the Grapevine Angel story. A crumbling and weathered concrete angel stood vigil in Grapevine Cemetary over the grave of someone whose name had long worn away from the porous headstone. The oldtimers in town said if you kissed your true love in front of the stone figure under the light of a full moon, the wings would flutter.
 
-My generation wasn’t satisfied with an endearing folk tale. Most aren’t these days, so it seems. No, at some point it transformed into a grim tale of terror and revenge for anyone foolish enough to cross the angel’s path after sundown. Gone were the sweet thoughts of finding your everlasting love and an angel of vengeance came in its place. Teen angst was well in place with every generation, though I think they get a bit darker every decade or so. 
+My generation wasn’t satisfied with an endearing folk tale. Most aren’t these days, so it seems. No, at some point it transformed into a grim tale of terror and revenge for anyone foolish enough to cross the angel’s path after sundown. Gone were the sweet thoughts of finding your everlasting love and an angel of vengeance came in its place. Teen angst was well in place with every generation, though I think they get a bit darker every decade or so.
 
 Two stone hands that had once reached toward the heavens had long ago broken away. Time and erosion took them if you asked the cemetery caretaker. An angry drunk shot them off in a fit of rage if you asked anyone from my graduating class. He was found down the road, they said, eyes missing and a stone hand shoved down his throat.
 
-Of course, both stories are absolute bullshit. How do I know? Evidence. I always trust the evidence. 
+Of course, both stories are absolute bullshit. How do I know? Evidence. I always trust the evidence.
 
 The first version of the tale is sweet, don’t get me wrong. Who wouldn’t love to think you could kiss your girl in the shadow of a grave marker and find out if they were the one meant for only you? I’ll admit I tried. Rose Ellis and I stood in the moonlight below that angel the summer before our senior year. Those stone wings held firm as we kissed in the darkness. We got married anyway and had a lot of happy years together until a brain aneurysm took her away far too soon.
 
@@ -60,9 +60,9 @@ My thumb fidgeted with the label on one of the folders.  There was nothing befor
 
 \* \* \* \* \*
 
-A glass of scotch in hand, I read the thirty or so pages of the first moldering case file. 
+A glass of scotch in hand, I read the thirty or so pages of the first moldering case file.
 
-Trevor Bates was the sixteen-year-old son of Homer and Amelia Bates. His father worked as a brick mason and his mother was a homemaker. The young man had gone missing in the summer of 1968. His friends reported that he had last been seen at a small gathering at Old Salem Church. 
+Trevor Bates was the sixteen-year-old son of Homer and Amelia Bates. His father worked as a brick mason and his mother was a homemaker. The young man had gone missing in the summer of 1968. His friends reported that he had last been seen at a small gathering at Old Salem Church.
 
 During the evening he vanished, between five and eight teenagers congregated at Old Salem Church to drink beer around a bonfire. It was noted in the file that while teenagers frequently held parties there due to the remoteness of the location, they were always held outside. The church building seemed unsafe even to youth who used the property.
 
@@ -130,7 +130,7 @@ She slid down from the hood of her car and walked in my direction. We made eye c
 
 “Italy Sky,” she responded hesitantly.
 
-“That sounds… unlikely,” I said. The young woman shrugged and looked toward the ground. “Mind showing me some identification?” 
+“That sounds… unlikely,” I said. The young woman shrugged and looked toward the ground. “Mind showing me some identification?”
 
 “I don’t have to show you my ID,” she spat. “Haven’t done anything illegal.”
 
@@ -140,6 +140,6 @@ She fumbled a hand into her back pocket and extended a laminated card in my dire
 
 “Look,” she said. “I didn’t lie. My parents named me Italy when I was born, but changed it a few months later. But I like it. It’s unique. And it keeps people from asking me about my uncle.”
 
-“Who is your…” I began, but the words died off before I could finish the sentence. 
+“Who is your…” I began, but the words died off before I could finish the sentence.
 
-Her uncle was Trevor [Bates.](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
+Her uncle was Trevor [Bates.](https://www.reddit.com/r/gtripp14/comments/11aw8f2/a_note_about_my_writing_future/)
