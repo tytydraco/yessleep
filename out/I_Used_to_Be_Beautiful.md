@@ -4,7 +4,7 @@ I was disappointed because the few times I used it, I really liked it, but I cou
 
 I threw the cleanser in the trash.
 
-Two days later, my face was still peeling, and it was much worse. It was so dry, the texture akin to snakeskin. I racked my mind for a possible cause but couldn’t think of any.
+Two days later, my face was still peeling, and it was much worse. It was so dry, the texture akin to snakeskin. I racked my mind for a possible cause, but couldn’t think of any.
 
 Not only did it look disgusting, but it itched like absolute hell. I found myself scratching absentmindedly.
 
@@ -30,11 +30,11 @@ I slammed down the mirror and ran outside to my car. I blocked the stylist as sh
 
 By the time I got home, all of my hair was gone--every single strand and most, if not all, of my scalp.
 
-My skin fell off in long bloody strips. My face formed boils that burst and spurted foul yellow pus. My eyes which have always been my best feature, were now wet with thick mucous and yellow, like the eyes of a reptile.
+My skin fell off in long bloody strips. My face formed boils that burst and spurted foul yellow pus. My eyes, which have always been my best feature, were now wet with thick mucous and yellow, like the eyes of a reptile.
 
 I looked into those eyes. My once beautiful eyes and
 
-I remembered.
+Oh my god, I remember.
 
 It was a memory I had tossed aside because I didn’t deem it important to remember.
 
@@ -44,43 +44,44 @@ The woman she hired referred to herself as a spiritualist. She told us we were g
 
 We lit red candles and turned off the lights, and then we sat in a circle and held hands.
 
-The Spiritualist chanted a name. I remember how uneasy the name made me feel. When I opened my eyes, the woman was staring right into my eyes.
+The Spiritualist started chanting, and it made me uneasy. When I opened my eyes, she was staring at me.
 
-I was unnerved, but I wouldn’t show it. I had drank quite a bit, and it annoyed me that I had to sit through this shit.
+ I had drank quite a bit, and it annoyed me I had to sit through this shit, so childishly I stuck my tongue out at her.
 
-She kept looking at me, and I refused to back down.
+She kept looking at me, but I refused to back down.
 
 And then she smiled, and everything went black.
 
-I heard screams, and I felt flames lick at every part of my body.
+I was trapped in a sea of fire, and everything was burning.
 
-I tried to scream, but my mouth was sewn shut. My skin turned black and peeled.
+I tried to scream, but my mouth was sewn shut. My skin bubbled, blackened, and peeled.
 
 I saw her then.
 
 She had her back turned to me. She was tall and thin and had the most beautiful black hair I had ever seen.
 
-She looked at me, and this time I did scream. My fear forced me to wrench my mouth open. I didn’t even register the pain.
+And then she looked at me; I screamed. My fear wrenched my lips apart.
 
-She had no face, and what skin clung to it mottled her blue, black, and gray.
+The woman had no face, and her skin was mottled blue, black, and gray.
 
-She lurched towards me and tapped my forehead with a gnarled, bloated finger.
+She lurched towards me and tapped my forehead with a gnarled finger.
 
 She caressed the contours of my cheeks, encircled the hollows of my eyes, and traced patterns on my lips.
 
-She gripped the underside of my jaw, and with  surprising strength, she sank her fingers into my flesh and ripped off my face.
+She gripped the underside of my jaw, and with surprising strength, she sank her fingers into my flesh and tore my face off.
 
 The world burned, and I screamed again. I never thought it possible to scream without lips.
 
-She fit my face over that empty canvas of hers. She smiled at me, and I drained away.
+She molded my face onto her skull and then she smiled at me!
 
-Hell was here for me, and my body sank into its fires. I smelled burning; I heard screaming. I
+My body sank into fire, and I burned.
 
-I awoke on the floor, dripping wet and reeking of alcohol. My cousin and her friends surrounded me. They looked confused and concerned.
+When I awoke, I was on the floor, dripping wet and reeking of alcohol. My cousin and her friends surrounded me. They looked confused and concerned.
 
 “What happened?” I asked, snatching the towel offered to me.
 
-My cousin told me that I had fallen and then started screaming. They didn’t know what to do, so she, my cousin, threw a glass of water on me.
+My cousin told me I had fallen and then started screaming. They didn’t know what to do, so she, my cousin, threw a glass of wine on me.
+
 “Where the fuck is she?” I spat. I took out my compact mirror and vigorously checked my flawless reflection.
 
 “Where is who?” My cousin asked.
@@ -97,29 +98,33 @@ I pushed past her to grab another glass of wine.
 
 So, I drank more, and I forgot. I forced myself to forget.
 
-I don’t believe in the supernatural, at least I never used to, but now, as I was losing everything, I believed. 
+I don’t believe in the supernatural, at least I never used to, but now, I am losing everything, so I believe.
 
-I believed some demon bitch had taken my face and given me hers.
+I believe some ugly demon bitch has taken my face and given me hers.
 
-Every time I looked at my reflection, I cried.
+Every time I look at my reflection, I cry.
 
-What else did I have if I was no longer beautiful? I was not known for kindness. My personality did not win me friends.
+What else do I have if I’m no longer beautiful? I am not known for kindness. My personality does not win me friends.
 
-I have always been an indescribable beauty. The kind of beauty that countries go to war over. And now I was a monster because that bitch had stolen my fucking face. I didn’t know what to do anymore, so I cried.
+I have always been an indescribable beauty. The kind of beauty that countries go to war over. And now I am a monster because some jealous beast thing stole my fucking face.
 
-My tears burned and made holes in my skin.
+I don’t know what to do anymore.
+
+I am tired of crying. It hurts. My tears burn and make holes in my skin.
 
 I’ve been holed up in my bathroom for days now. I broke my mirror with my fist and shattered it with my brittle bones.
 
-There are shards everywhere--reflections of me. I can’t escape it. I can’t run from myself.
+There are shards everywhere—reflections of me. I can’t escape it. I can’t run from myself.
 
-I give up. To whatever took my face, congrats! You win!
+I give up. To you, you demonic bitch, congrats! You win!
 
-I no longer want to see what I look like. I am tired of seeing my soul reflected at me.
+I no longer want to see what I look like. I am tired of seeing my soul reflected back at me.
 
-I thought I would be able to see her. I wanted her to appear. If I saw her, I would reach out and tear off MY face. I would take back what was mine.
+I want to see her again.
 
-She doesn’t appear, though, and why would she? She’s gotten everything she wanted, and I don’t have much time left.
+ You know, for a final showdown. I want my face back! It’s mine! It’s always been mine.
+
+She doesn’t come, though, and why would she?
 
 I am so tired. I’ll close my eyes and rest for a moment.
 
