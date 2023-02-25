@@ -1,3 +1,5 @@
+1
+
 As a physical therapist student who spends most of his time hunched over biology, chemistry and anatomy textbooks, I believe in science. But I was about to discover that there are certain things in our world that science can’t explain.
 
 Mysteries that defy logic or simple human reasoning.
@@ -409,3 +411,5 @@ Peter chews his lips.
 I process this latest revelation. “Are you saying what I think you are?”
 
 “Both Josh and Steve hooked up with Akasha the same week they died in freak fires.”
+
+[2](https://www.reddit.com/r/nosleep/comments/11b55k8/ghosted/?utm_source=share&utm_medium=web2x&context=3)
