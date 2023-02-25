@@ -2,7 +2,7 @@ Liam, I wouldn’t have thought that this needed to be said, but I guess I was w
 
 When you hear sharp scratching – the sound of claws on metal – coming from the inside of a vent, you do not, and, *I cannot stress this enough*, you do not open aforementioned vent and stick your head into that small, dark space to investigate.
 
-Best case scenario, a rat jumps onto your face. Worst case scenario, the next morning we find most of your body laying in a congealed pool of blood. We don’t even know where the rest of you is.
+If you hadn't, maybe we wouldn't have found most of your body laying in a congealed pool of blood one morning. We don’t even know where the rest of you *is*.
 
 Well, I think I might know, but I can’t bear to think about right now.
 

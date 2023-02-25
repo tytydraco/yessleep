@@ -1,11 +1,10 @@
-
 Look, I know, this is the last forum that will offer me any sympathy but please hear me out, I need your help! 
 
 I started a new account posting Reddit videos on the TikTok app a few months back, mainly due to the amount of similar accounts that were on there that seemed to do well. I had previously come across a post from someone showing you how to make this style of video, it was titled ‘How to get Followers quick’. The man in the video explained how you would have access to unlimited content, to post daily with minimal effort. It linked everything from which threads to find the best posts, to which Text-to-speech to use as a narrator. Also the best games to show  in the background of the video. I uploaded my first five videos that day and was seeing real numbers in terms of likes, comments and followers. 
 
 I passed 7000 followers in my first week and was posting 4-5 videos a day. I did mention the Original Poster’s username at the bottom and in the cut out of their post. Maybe looking back I should have asked for permission but at the time I felt this was enough. It would also hinder the amount of videos I could upload per day, as I’d have to wait for replies. I got to 20,000 followers in my first month, with many of my videos surpassing a million views. 
 
-Within a 3 month period I had amassed a following of 345,000, I was also making good enough money off this exposure to enjoy my nights out. I couldn’t believe how easy it was, I even started another account and did the exactly same thing. It was, at the time something that seemed too good to be true!
+Within a 3 month period I had amassed a following of 345,000, I was also making good enough money off this exposure to enjoy my nights out. I couldn’t believe how easy it was, I even started another account and did the exact same thing. It was, at the time something that seemed too good to be true!
 
 I got the first message 2 weeks ago and this is what it read: 
 
