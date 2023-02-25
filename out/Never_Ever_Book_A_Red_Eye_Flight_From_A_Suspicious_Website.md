@@ -74,11 +74,11 @@ Even the pilot who was talking over the intercom no longer sounded human.
 
 Anyway, I began to hear screams (from the few passengers still awake), as the flight crew began attacking the passengers.
 
-Now, it looked like a total blood bath inside the plane.
+Now, there was blood everywhere and it looked like a total blood bath inside the plane.
 
-The sight of blood proved too much for me and soon, I passed out.
+The sight of blood proved too much for me and eventually, I passed out.
 
-When I finally came to, everything was back to normal and there were no signs that a massacre had just taken place a couple of hours ago.
+When I finally came to, everything appeared to be back to normal and there were no signs that a massacre had just taken place a couple of hours ago.
 
 The plane was about to land so, most of the passengers who I thought were dead were now, wide awake.
 
@@ -92,4 +92,4 @@ That's when I noticed the puncture marks on my neck, causing my blood to freeze.
 
 So here's my warning to you...
 
-Never, book a red-eye flight from a suspicious website or you'll end up becoming food for them.
+Never, book a red-eye flight from a suspicious website or you'll end up becoming food for them (whatever they are).

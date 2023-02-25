@@ -143,3 +143,5 @@ She fumbled a hand into her back pocket and extended a laminated card in my dire
 “Who is your…” I began, but the words died off before I could finish the sentence.
 
 Her uncle was Trevor [Bates.](https://www.reddit.com/r/gtripp14/comments/11aw8f2/a_note_about_my_writing_future/)
+
+[\[Final\]](https://www.reddit.com/r/nosleep/comments/11bnb3g/i_found_a_church_thats_stained_glass_windows_show/)
