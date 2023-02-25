@@ -149,3 +149,5 @@ I could have screamed and shouted. I could have called the cops. I knew neither 
 “Good,” I said. “Because as long as we remember her, it means she hasn’t been erased. And that means we still have a chance to save her.”
 
 “My sister is Grace,” he said. [“My sister is Grace.”](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/11bad4h/i_had_a_house_that_eats_the_dead_it_became_my/)
