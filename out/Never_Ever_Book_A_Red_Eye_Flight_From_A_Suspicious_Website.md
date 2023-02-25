@@ -1,4 +1,4 @@
-As you all know, during the height of the pandemic, flights were very scarce which was why I needed to book a red-eye flight for a very important meeting I had the next day.
+As you all know, during the height of the pandemic, flights were very scarce, which was precisely why I needed to book a red-eye flight for an important meeting I had the next day.
 
 While frantically searching online for a flight, I came across this travel agency that I'd never heard of before...
 
@@ -18,7 +18,7 @@ See, every person I talked to had never heard of this travel agency.
 
 On top of that, there were no comments or even ratings online.
 
-Even stranger was their hours of operation from 9 PM to 6 AM.
+Even stranger was their hours of operation which was from 9 PM to 6 AM.
 
 Although I found this strange, I didn't question it because I desperately needed to catch a flight.
 
@@ -88,7 +88,7 @@ Soon enough, I forgot about my dream.
 
 After the meeting, I went back to my hotel room.
 
-That's when I noticed the puncture marks on my neck, which caused my blood to freeze.
+That's when I noticed the puncture marks on my neck, causing my blood to freeze.
 
 So here's my warning to you...
 
