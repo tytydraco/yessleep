@@ -1,6 +1,6 @@
 As you all know, during the height of the pandemic, flights were very scarce, which was precisely why I needed to book a red-eye flight for an important meeting I had the next day.
 
-While frantically searching online for a flight, I came across this travel agency that I'd never heard of before...
+While frantically searching online for a flight, I came across this travel agency that I had never heard of before...
 
 The first thing I noticed was the flights advertised on their website were very cheap (too cheap if you ask me). 
 
