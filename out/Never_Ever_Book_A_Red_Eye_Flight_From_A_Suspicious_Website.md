@@ -18,7 +18,7 @@ See, every person I talked to had never heard of this travel agency.
 
 On top of that, there were no comments or even ratings online.
 
-Even stranger was their hours of operation which was from 9 PM to 6 AM.
+Even stranger was their hours of operation which were from 9 PM to 6 AM.
 
 Although I found this strange, I didn't question it because I desperately needed to catch a flight.
 
@@ -92,4 +92,4 @@ That's when I noticed the puncture marks on my neck, causing my blood to freeze.
 
 So here's my warning to you...
 
-Never, book a red-eye flight from a suspicious website or you'll end up being food for them.
+Never, book a red-eye flight from a suspicious website or you'll end up becoming food for them.
