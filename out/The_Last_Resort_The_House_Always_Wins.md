@@ -337,3 +337,5 @@ Until next time,
 Lucy
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/11441tm/the_last_resort_murder_mystery_weekend/?utm_source=share&utm_medium=web2x&context=3)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/11ba09t/the_last_resort_i_think_im_in_trouble/?utm_source=share&utm_medium=web2x&context=3)
