@@ -24,8 +24,6 @@ I was beyond confused at everything going on so I decided to check what the hubb
 
 In the video, crowds of people stared at the sky, at what I presumed was the moon. After a few moments of just staring at a rogue, hulking specimen of a person stirred from his hypnosis. The man crashed through the scattered crowd like a knife through butter. He was fast approaching the camera, and soon he veered away to the left. The man stood before a car standing at least 2 feet over it. The man tilted his whole body back, and with a jolting motion slammed his head into the window of the car. The window immediately shattered, and upon pulling his head back, blood trickled down his face.
 
-In the video, crowds of people stared at the sky, at what I presumed was the moon. After a few moments of just staring a rogue, hulking specimen of a person stirred from his hypnosis. The man crashed through the scattered crowd like a knife through butter. He was fast approaching the camera, and soon he veered away to the left. The man stood before a car standing at least 2 feet over it. The man tilted his whole body back, and with a jolting motion slammed his head into the window of the car. The window immediately shattered, and upon pulling his head back, blood trickled down his face.
-
 After that, all hell broke loose. People snapped out of their trance and quickly rushed towards anything remotely weak enough to be demolished. Windows were shattered, doors were kicked down, and cars swerved into households. Blood soon followed the rampage. It flowed onto the street. For every shattered window there was a corpse. 
 
 The bloodshed seemed to slow for a moment until all at once, every still living person turned towards the camera. There was a glazed look in every pair of eyes, whilst their blood became a mascara for those who dared to pay a price to obtain it. I soon realized to my dismay that they weren't looking at the camera, but past it. All the entranced humans flocked to where the camera was held. Screams ensued before the camera’s feed quickly cut off.
@@ -195,3 +193,4 @@ I was safe for today.
 Thanks for reading!!! If you have any suggestions or ways I can improve I'll take any suggestions.
 
 Edit, One of the paragraphs was missing.
+Edit, a paragraph was doubled
