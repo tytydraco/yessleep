@@ -64,7 +64,7 @@ I haven’t spent my life around hunters or venison or any aspect of large scale
 
 “Should we uhh…unwrap the meat and the cigarettes?”
 
-“No!”  She spat on the kitchen steps and scowled a look so angry, I thought the cottage door would burst into flame.  “Asshole can figure it out on his own.”
+“No!”  She spat on the cottage steps and scowled a look so angry, I thought the cottage door would burst into flame.  “Asshole can figure it out on his own.”
 
 “We still have a few hours before sundown.  I’ll bring over the beer, and then what?”
 
