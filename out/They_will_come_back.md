@@ -19,3 +19,5 @@ I tried to run, but my legs felt like lead. The shadows were closing in on me, s
 I tried to turn back, but it was too late. The figure stepped toward me, and I felt a cold, clammy hand close around my neck. And then it went black.
 
 When I woke up, I was back in my room, but something was different. The shadows were gone, and I felt a sense of peace that I had never experienced before.  I don't know what happened that night, but I do know one thing. The shadows are real, and they will never stop. Not until they get me.
+
+Next part: [They’re back](https://www.reddit.com/r/nosleep/comments/11cpqfw/theyre_back2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
