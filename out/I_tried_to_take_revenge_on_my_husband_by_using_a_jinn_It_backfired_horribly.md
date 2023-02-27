@@ -1,8 +1,10 @@
 Lightning came down from the sky, hitting the man standing in the street directly in the center of his head. His wife and children started screaming from the sidewalk a few feet away, his young toddler putting out her hands towards her father and yelling, “Dada! Dada!” The mother was carrying the toddler, and her eyes were animalistic and uncomprehending as she looked at the smoking body in the street. The six-year-old son stood next to the mother, not saying or doing anything, his eyes simply wide and shell-shocked as he kept staring at his father’s remains.
 
+I was frightened the entire time, realizing how badly things were going now. This was not how I imagined things would go.
+
 The sound of pouring rain and heavy thunder gave the world a muffling effect. All I could smell was charred meat from the father’s body mixing with springtime flowers and rainstorms. The combination was absolutely nauseating. I thought I might throw up if I had to smell that burning body smell for a moment longer.
 
-As if in slow motion, I saw the body of the father fall to its knees, its arms hanging limply by its sides, its face a blackened, smoking mask of fused skin and blood. The body stayed there, looking like it was praying, then mercifully fell face-first onto the pavement. I was happy I didn’t have to see that face anymore.
+As if in slow motion, I saw the body of the father fall to its knees, its arms hanging limply by its sides, its face a blackened, smoking mask of fused skin and blood. The body stayed there, looking like it was praying, then mercifully fell face-first onto the pavement. I knew I would see that face in my nightmares forever.
 
 His wife immediately put down the toddler, who was wailing, then instinctually ran into the road without looking. I was on the same side of the road as her and started sprinting down the sidewalk towards the family. As she stepped out into the road, a tractor-trailer that had been coming around the corner tried to stop, seeing a man’s body in the road, but the mass of the vehicle was far too great to stop at such a short distance. The driver twisted the wheel and, with a cacophony of shrieking metal, it began to flip. Within a fraction of a second, both the wife and the husband had disappeared from view under the ripping, shredding metal of the trailer. Sparks flew in every direction as my ears rang from all the noise. 
 
@@ -12,9 +14,13 @@ I don’t know what the tractor-trailer had been carrying, but it immediately be
 
 \*\*\*
 
-Later that day, I was back home. I took a hot shower and tried to forget what I had seen. It had all gone terribly wrong. I had wanted them dead, but for them to die in such a graphic way in front of their own kids seemed like overkill. I dried off and dressed for the ritual, entering the basement and taking out the spellbook, “The Shadows of Solomon.”
+Later that day, I was back home. I took a hot shower and tried to forget what I had seen. It had all gone terribly wrong. I had wanted them dead, but I never imagined it would go so badly. I dried off and dressed for the ritual, entering the basement and taking out the spellbook, “The Shadows of Solomon.” I felt sick and scared at the prospect of having to encounter the creature again, but I knew I couldn’t stop now. I was already in too deep.
 
-It had been passed down within my family for countless centuries. Very few people even knew of its existence. As I took it out of the safe, I felt the leathery, black cover, made of human skin. I opened the book, and its pages shone out with their radiant whiteness. I marveled at how the book never seemed to age, the pages never drying out or cracking, the cover never needing any maintenance. It was as if it were a living thing that could heal itself. I had never seen another book quite like it.
+This book had been passed down within my family for countless centuries. Very few people even knew of its existence. My mother and grandmother always warned me to never use it except as a last resort. They seemed as terrified of it as I was.
+
+As I took it out of the safe, I felt the leathery, black cover, made of human skin. I opened the book, and its pages shone out with their radiant whiteness. I marveled at how the book never seemed to age, the pages never drying out or cracking, the cover never needing any maintenance. It was as if it were a living thing that could heal itself. I had never seen another book quite like it.
+
+Every time I touched it, an instinctual dread shot through my body. It was as if my flesh knew it was an evil thing. I wish I had listened to my instincts.
 
 I did the ritual to bring the jinn back, drawing the pentagram with human blood and chanting the proper words in Aramaic. The stuffy basement seemed to open up into something the size of a football field as the consciousness of the jinn entered. At first, it looked like a mist was gathering in front of me, directly outside the safety of the star. But it wasn’t a mist at all, I knew- it was smokeless fire, a kind that most people could never see unless the jinn allowed it.
 
@@ -22,21 +28,23 @@ I did the ritual to bring the jinn back, drawing the pentagram with human blood 
 
 “I am here, daughter,” he said, and his body solidified. He looked like a man and a snake had merged, floating above the ground. He had the body of a man, with legs and arms, but his skin had scales, and his eyes and nose were those of a snake. He had countless serrated teeth, and three bone-white horns extending out of his forehead.
 
-“That was quite a mess today, wasn’t it?” I asked. He simply smiled, an ear-to-ear grin that showed his dozens of shark-like teeth.
+“Why did it go so wrong today?” I asked. “I never wanted them to die in such a horrible way in front of their own children.” He simply smiled, an ear-to-ear grin that showed his dozens of shark-like teeth. My heart pounded, and I felt infuriated and terrified at his expression. I knew he didn’t care in the slightest.
 
-“What is your next wish, *daughter of Eve*?” he said, his voice dripping with condescension and arrogance. “I have eliminated the ones your husband was cheating on you with, the neighbors of sickness. Should I now eliminate the source of the sickness, as well?” I knew you had to be very literal when speaking with jinn. If I said yes, for all I knew, he could use that interpretation to get rid of me, if he could twist the meaning somehow to make me the source of sickness. I had known for quite a while my husband was having threesomes with the neighbors. I could never look at him the same- not only was he cheating, but he was clearly not even straight. How could I have married such a man? It made me sick to my stomach to think about it, even now. And it was certainly no wonder we had such problems in our marriage. I knew he was the cause of all the problems.
+“What is your next wish, *daughter of Eve*?” he said, his voice dripping with condescension and arrogance. “I have eliminated the ones your husband was cheating on you with, the neighbors of sickness. Should I now eliminate the source of the sickness, as well?” I knew I had to be very literal when speaking with jinn. If I said yes, for all I knew, he could use that interpretation to get rid of me, if he could twist the meaning somehow to make me the source of sickness. I had known for quite a while my husband was having threesomes with the neighbors. I could never look at him the same- not only was he cheating, but he was clearly not even straight. How could I have married such a man? It made me sick to my stomach to think about it, even now. And it was certainly no wonder we had such problems in our marriage. I knew he was the cause of all the problems. But my terror fought my hatred for control of my mind. I still had a chance to simply banish the jinn, return to my normal life and get a divorce.
 
-“I wish for you to kill my husband, without me being in any way a suspect to the police or dying as a result of whatever kills him,” I said. The jinn smiled, then his body dissipated back into a fog-like substance. The room returned to a normal basement. I was just a naked woman sitting in the middle of a bloody star in an almost totally bare basement now. Looking out the basement window, I saw a small, smooth face staring in at me. My heart leaped in my chest, but as soon as I blinked, the face was gone.
+I knew it had gone too far, however.
+
+“I wish for you to kill my husband, without me being in any way a suspect to the police or dying as a result of whatever kills him,” I said. The jinn smiled, then his body dissipated back into a fog-like substance. The room returned to a normal basement. I was just a scared, naked woman sitting in the middle of a bloody star in an almost totally bare basement now. Looking out the basement window, I saw a small, smooth face staring in at me. My heart leaped in my chest, but as soon as I blinked, the face was gone.
 
 “What the hell was that?” I wondered to myself. Then I heard my husband’s car pulling into the driveway and slamming the door. Seconds later, he was yelling upstairs.
 
 “Mary?” he said. He sounded as if he were crying. “Did you hear about what happened to the Palmers?” 
 
-I quickly grabbed a bucket of water, washing the blood off the basement floor and allowing it to flow down a drain in the center of the room. I was just finishing cleaning up as he came down the stairs.
+I quickly grabbed a bucket of water, washing the blood off the basement floor and allowing it to flow down a drain in the center of the room. I felt a rising sense of panic. He wasn’t supposed to be home this early. I was just finishing cleaning up as he came down the stairs.
 
 “Mary, what are you doing down here?” he asked. I just shook my head.
 
-“Looking for something I lost,” I said quickly, and we went back upstairs. My husband, John, kept crying about the deaths. He had no idea that I knew about him cheating on me with them, however. I played the part of a supportive wife, hugging him and reassuring him.
+“Looking for something I lost,” I said quickly, and we went back upstairs. We decided to go on a walk around the block. My husband, John, kept crying about the deaths. He had no idea that I knew about him cheating on me with them, however. I played the part of a supportive wife, hugging him and reassuring him.
 
 “So where are the kids going?” I asked, referring to the toddler and the six-year-old boy, the two Palmer children. John shrugged.
 
