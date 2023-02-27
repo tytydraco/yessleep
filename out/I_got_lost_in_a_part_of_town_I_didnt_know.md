@@ -78,7 +78,7 @@ His arms suddenly extended toward me. Monstrous claws replaced his fingernails, 
 
 Like tentacles from hell, they grabbed my head and squeezed. I could feel the life flying away from me, and death’s cold embrace was the only logical outcome. The last thing I saw before my mind went black was his demented grin, but this time a bloody crimson hue painted over his face. The small rivers of blood that came from my eyes made me feel like some stigma in reverse.
 
-I woke up in a glass tank, like a live human exhibit. The man sat behind an old mahogany desk. It smelled like incense, the heavy aroma making me sick to my stomach, even more than I already was. I regained my consciousness but couldn’t just open my eyes yet. The air reeked of incense, the heavy aroma making me sick to my stomach, even more than I already was.
+I woke up in a glass tank, like a live human exhibit. The man sat behind an old mahogany desk. I regained my consciousness but couldn’t just open my eyes yet. The air reeked of incense, the heavy aroma making me sick to my stomach, even more than I already was.
 
 Welcome to Bizzarro World.
 
