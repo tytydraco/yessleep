@@ -94,7 +94,7 @@ Another teenager was strung up from the basement ceiling, wrapped tightly in wha
 
 She impaled the other Ricky’s abdomen with her mouth parts. He convulsed in agony as he was drained of fluids. His body dried up into a mummified state; I watched the life evacuate from his eyes. 
 
-She turned to me and I screamed, unable to move because I was chained to the floor. This time the process was reversed, I was filled with the fluids she had just stolen from the young man now lifelessly swinging back and forth. My belly inflated likens balloon, my feature become rotund — but after a moment I returned to normal. 
+She turned to me and I screamed, unable to move because I was chained to the floor. This time the process was reversed, I was filled with the fluids she had just stolen from the young man now lifelessly swinging back and forth. My belly inflated like a balloon, my feature become rotund — but after a moment I returned to normal. 
 
 “Mom? Dad? Where am I? I just had the worst nightmare.” Innocence filled my voice. 
 
