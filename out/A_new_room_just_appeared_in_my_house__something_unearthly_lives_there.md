@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/11dd987/a_new_room_just_appeared_in_my_house_it_revealed/)
+
 Yesterday morning, I stepped out of my bedroom to find a perturbing door at the far end of my upstairs landing. The festering woodwork, coated in a layer of peeling purple paint, did not horrify me. What horrified me was that I had lived at the property for five years — there had never previously been a door at the end of the corridor.
 
 Even from a distance, I could tell that the ghastly gateway was more than a propped-up plank of wood. It was flush against the outer wall of the house. I strolled outside my property and skirted around to the side-alley. The right-hand wall of my home was still flat. There were no extensions to the original brickwork. The purple doorway couldn’t be leading to anything. Behind it, I knew there couldn’t be anything but the plaster of my wall.
@@ -125,5 +127,7 @@ I nodded. “Terrence Brown. Your mum and I call him Brown the Clown. Always mak
 I agreed to phone Terrence in the morning, but part of me prayed that the horror of the appearing and disappearing room had come to a terrifying end.
 
 No such luck. This morning, I woke to Kate’s piercing scream. Before I even stepped onto the landing, I knew the door had returned. I guess I need to talk to Terrence Brown. I’ll update you as soon as possible.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/11dd987/a_new_room_just_appeared_in_my_house_it_revealed/)
 
 [X](https://www.reddit.com/r/dominiceagle)
