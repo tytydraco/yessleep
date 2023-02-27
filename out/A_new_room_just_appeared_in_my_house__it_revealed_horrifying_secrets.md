@@ -104,9 +104,9 @@ And then I realised that wasn’t true. No bed, no chest of drawers, but I recog
 
 And that was when I saw something in the present-day room which differed from the magical one. There was writing on the wall. Scratched into the cream colouring, presumably with a sharp nail, were the following words:
 
-My name is Molly Brown. I’m going to die down here. Terrence locked me in this room.
+*My name is Molly Brown. I’m going to die down here. Terrence locked me in this room.*
 
-My heart sunk, and everything suddenly made sense. Terrence’s evasiveness. His wife had died down here, the captive of a sadistic tormenter, and her husband had sold the town a twisted tale of an unstable woman who ran away. But Molly had finally shown me the truth.
+My heart sank, and everything suddenly made sense. Terrence’s evasiveness. His wife had died down here, the captive of a sadistic tormenter, and her husband had sold the town a twisted tale of an unstable woman who ran away. But Molly had finally shown me the truth.
 
 “Ryan!” Kate screamed.
 
@@ -126,7 +126,7 @@ Through the wardrobe gateway, back in the real basement room, that ghoulish cont
 
 I finally understood.
 
-Scrambling to my feet, I rugby-tackled Terrence towards the wardrobe. When I took a step back, my heart dropped — he had braces himself on either side of the wardrobe, preventing himself from falling through to the basement room. His victorious grin was utterly horrifying.
+Scrambling to my feet, I rugby-tackled Terrence towards the wardrobe. When I took a step back, my heart dropped — he had braced himself on either side of the wardrobe, preventing himself from falling through to the basement room. His victorious grin was utterly horrifying.
 
 “I’ll look after Kate when you’re gone, Ethan,” He said. “I have a spare room downstairs that I think would be absolutely perfect for her.”
 
@@ -142,7 +142,7 @@ I helped Ryan and Kate out of the upstairs purple room, and the door vanished as
 
 I keep thinking about things I missed. Signs that Terrence was an abhorrent monster who meant my family harm.
 
-Give my best to Kate, won’t you?
+*Give my best to Kate, won’t you?*
 
 I never mentioned my daughter was visiting — I don’t think I even mentioned her name. Anyway, he’s rotting away in the basement now. He won’t last long down there. The basement doorway is concealed by brickwork and plaster in the ground-floor lobby. Nobody will ever find him.
 
