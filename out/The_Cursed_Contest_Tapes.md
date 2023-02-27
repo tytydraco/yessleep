@@ -16,7 +16,7 @@ Now, the tapes we’ve been studying aren’t actually cursed. At least, they ar
 
 &#x200B;
 
-I actually excelled above the other kids I lived with. In fact, that’s why Dean decided to adopt me. It’s also how a lot of people end up working in our branch. In fact, we have a lot of people working for those institutions in order to find new recruits. I can’t say I approve, but someone has to deal with all the weird stuff. 
+I actually excelled above the other kids I lived with. In fact, that’s why Dean decided to adopt me. It’s also how a lot of people end up working in our branch. In fact, we have a lot of people working for those institutions in order to find new recruits. I can’t say I approve, but someone has to deal with all the weird stuff.
 
 &#x200B;
 
@@ -32,7 +32,7 @@ One of our recruiters working as a caretaker at my old foster home is friends wi
 
 &#x200B;
 
-It’s not unheard of for cursed objects to mysteriously appear to people. In such cases, we have a protocol. We have prisoners look at them. Again, I know that’s not exactly ethical, but we’d be losing people left and right to these kinds of things otherwise. Stella sent the tapes over to the sector Dean and I work at. 
+It’s not unheard of for cursed objects to mysteriously appear to people. In such cases, we have a protocol. We have prisoners look at them. Again, I know that’s not exactly ethical, but we’d be losing people left and right to these kinds of things otherwise. Stella sent the tapes over to the sector Dean and I work at.
 
 &#x200B;
 
@@ -50,7 +50,7 @@ The prisoner who viewed them isn’t in any physical danger. Mental is another s
 
 &#x200B;
 
-Dean and Stella believe the footage was most likely filmed on an 8mm camcorder due to the quality as well as the date. 
+Dean and Stella believe the footage was most likely filmed on an 8mm camcorder due to the quality as well as the date.
 
 &#x200B;
 
@@ -160,7 +160,7 @@ Frances: “Can you come down and help your dad out? He’s having trouble.”
 
 &#x200B;
 
-*The footage ceases. It resumes this time during Randy’s party. Gwen isn’t shown. At first, it was thought she was the one filming. However, after further review, she can be seen in the back.* 
+*The footage ceases. It resumes this time during Randy’s party. Gwen isn’t shown. At first, it was thought she was the one filming. However, after further review, she can be seen in the back.*
 
 &#x200B;
 
@@ -172,7 +172,7 @@ Frances: “Can you come down and help your dad out? He’s having trouble.”
 
 &#x200B;
 
-*It should be noted that during this the one holding the camera is never addressed or even acknowledged. That is except in one instance. The film stops again. When it cuts back, this time it shows Gwen crying in her room. There’s a noise similar to that of a cicada.* 
+*It should be noted that during this the one holding the camera is never addressed or even acknowledged. That is except in one instance. The film stops again. When it cuts back, this time it shows Gwen crying in her room. There’s a noise similar to that of a cicada.*
 
 &#x200B;
 
@@ -206,7 +206,7 @@ I should mention it was at this point did I really start worrying. The stuff up 
 
 &#x200B;
 
-*Its eyes stand out, being ruby red, and emit a light that is believed to cause hypnosis. This entity is capable of human speech. However, it seems only able to do so through electronics and possibly reflective surfaces. The evidence for this is that it communicates through the speakers of whatever device it’s currently operating through. For example, it spoke to Gwen and its voice was the same as tv static.*
+*Its eyes stand out, being ruby red, and emit a light that is believed to cause hypnosis. This entity is capable of human speech. However, it seems only able to do so through electronics and reflective surfaces. The evidence for this is that it communicates through the speakers of whatever device it’s currently operating through. For example, it spoke to Gwen and its voice was the same as tv static.*
 
 &#x200B;
 
@@ -250,7 +250,7 @@ For a moment, we thought she would turn away. We wanted her to. I got this urge 
 
 &#x200B;
 
-*Gwen Stops.* 
+*Gwen Stops.*
 
 &#x200B;
 
@@ -280,7 +280,7 @@ For a moment, we thought she would turn away. We wanted her to. I got this urge 
 
 &#x200B;
 
-*Accompanying the heart decorations are cutouts of pterodactyls.* 
+*Accompanying the heart decorations are cutouts of pterodactyls.*
 
 &#x200B;
 
@@ -346,7 +346,7 @@ At this point, we realized we were viewing a memory of Gwen’s.
 
 &#x200B;
 
-*The pov follows Luella walking, revealing a table where the students are all seated. Each person has a sticker of their name in front of them. Directly in front of the pov is the name Gwen. The seat across from it is empty. Luella sits in it.* 
+*The pov follows Luella walking, revealing a table where the students are all seated. Each person has a sticker of their name in front of them. Directly in front of the pov is the name Gwen. The seat across from it is empty. Luella sits in it.*
 
 &#x200B;
 
@@ -508,7 +508,7 @@ Gwen: “Mrs. Preston says I’m a really good artist. I can help you if you wan
 
 &#x200B;
 
-*Gwen turns back to Luella. The message she writes on her card is “Wanna play with me after school?”.  She closes her card and Luella does the same. They exchange. Mrs. Preston passes out candy to her students and then permits them to open their cards.* 
+*Gwen turns back to Luella. The message she writes on her card is “Wanna play with me after school?”.  She closes her card and Luella does the same. They exchange. Mrs. Preston passes out candy to her students and then permits them to open their cards.*
 
 &#x200B;
 
@@ -656,7 +656,7 @@ While I can certainly appreciate a tender moment, all I could feel while we watc
 
 &#x200B;
 
-*Gwen takes the drawing and places it in her backpack. The footage jumps forward in time, showing the pair doing nearly everything together. In every class they share, they are sitting right next to each other. Sometimes they get in trouble for talking while the teacher is.  They always have matching outfits.* 
+*Gwen takes the drawing and places it in her backpack. The footage jumps forward in time, showing the pair doing nearly everything together. In every class they share, they are sitting right next to each other. Sometimes they get in trouble for talking while the teacher is.  They always have matching outfits.*
 
 &#x200B;
 
@@ -732,7 +732,7 @@ While I can certainly appreciate a tender moment, all I could feel while we watc
 
 &#x200B;
 
-*Luella nods. Gwen unzips her backpack and from it pulls out The Exorcist by William Peter Blatty. They open it and begin reading. The footage cuts to the sun setting. It jumps forward again.* 
+*Luella nods. Gwen unzips her backpack and from it pulls out The Exorcist by William Peter Blatty. They open it and begin reading. The footage cuts to the sun setting. It jumps forward again.*
 
 &#x200B;
 
@@ -1060,7 +1060,7 @@ That was when we knew the true danger of this creature. I wish I could have help
 
 &#x200B;
 
-We were on the edge of our seats, hoping for some way that she could overcome this. 
+We were on the edge of our seats, hoping for some way that she could overcome this.
 
 &#x200B;
 
@@ -1098,7 +1098,7 @@ We were on the edge of our seats, hoping for some way that she could overcome th
 
 &#x200B;
 
-**Ludus: “**Only one thing can make people take such drastic actions. Unfortunately, it won’t be enough for you to win. My turn.”
+\*\*Ludus: “\*\*Only one thing can make people take such drastic actions. Unfortunately, it won’t be enough for you to win. My turn.”
 
 &#x200B;
 
@@ -1240,7 +1240,7 @@ Since watching the video we’ve done some investigating. Thanks to the news rep
 
 &#x200B;
 
-**Luella: “**Thank you.”
+\*\*Luella: “\*\*Thank you.”
 
 &#x200B;
 
