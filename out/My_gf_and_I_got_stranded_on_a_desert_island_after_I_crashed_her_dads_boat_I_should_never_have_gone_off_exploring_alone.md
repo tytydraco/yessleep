@@ -122,7 +122,7 @@ We’re fucked. Last night that thing slipped between trees and bushes. I grabbe
 
 The creature was small but strong. My feet lifted in the air as I stabbed it in the face and neck. Its lip was all sideways. I got it in the chest before it threw me off. I thought I landed on a stick but the snap was my ribs. Breathing isn’t easy now. The thing hissed like a snake. It’s teeth looked like needles. Or a porcupine. It ran off on all fours with the knife sticking out. Caitlins thigh looks like minced beef. Black veins are showing through. I put bandages on and she said it burns and kept swatting my hand away and calling me a useless fuck.
 
-After a while she said sorry. I told her sorry for fucking up our lives. I told her her dad was right. She said no her dads a cunt. We both laughed. Then she spat out a tooth.
+After a while she said sorry. I told her sorry for fucking up our lives. I told her her dad was right. She said no her dads a prick. We both laughed. Then she spat out a tooth.
 
 I fucking love her so much. She needs a doctor. I didn’t tell her carrying her makes it hard to breathe now. I found a blood trail and the knife. It was in a patch of red flat grass. I’m not sure if that’s good. The thing looked like a child. What if its parents live at the shack? We might be fucked. I’m a murderer. I carried her south until my feet hurt. Now we’re resting. A few minutes ago she spat out another tooth. The boat can’t be much further. I want to sleep but can’t in case Caitlin gets bad so I’ll write instead.
 
