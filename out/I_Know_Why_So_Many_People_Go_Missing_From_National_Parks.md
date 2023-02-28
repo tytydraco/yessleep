@@ -26,7 +26,7 @@ III. The number of times military units have been deployed to go and search for 
 
 IV. The National Park service gets very, VERY sketchy when it comes to any kind of further inquiry. This has led a lot of people to believe that they’re covering something up.
 
-Now, me being the obsessive person that I am immediately started trying to sleuth around for some kind of conclusion. What was the overall theory? What did people think was going on here? I guess because the speculation can go on forever. The theories go on forever too. Everything from rich megalomaniacs on “Hunting trips”, Aliens, Wendigos and Skinwalkers, Aliens, Bigfoot abductions, parallel universes. The list is truly endless. So many different theories, and as wild as some of them might sound at first. It’s beyond eerie how quickly they begin to sound more than rational, and even possible with just a little bit of explanation.
+Now, me being the obsessive person that I am immediately started trying to sleuth around for some kind of conclusion. What was the overall theory? What did people think was going on here? I guess because the speculation can go on forever. The theories go on forever too. Everything from rich megalomaniacs on “Hunting trips”, Aliens, Wendigos and Skinwalkers, Bigfoot abductions, parallel universes. The list is truly endless. So many different theories, and as wild as some of them might sound at first. It’s beyond eerie how quickly they begin to sound more than rational, and even possible with just a little bit of explanation.
 
 But as I poured through the seemingly endless accounts and rumors. There was one theory that hit a stronger chord with me than the rest.
 
