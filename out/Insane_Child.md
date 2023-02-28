@@ -1,0 +1,15 @@
+This happened around 3 to 4 months ago when I was on the bus ride home from school, me and my friends were at that time talking about Call Of Duty. Randomly this other kid came to the back of the bus, we thought nothing of it. Around 5 minutes later the same kid got in a big argument and threatened a kid with a knife, then just continued to curse him out like nothing happened.
+
+ The crazy thing was that this kid's foster brother heard him and started yelling "Aye don't call him that," and "chill out bro." Then the brother of the kid came to the back, this was a bad idea on his end. They got in an even bigger argument that we had to break up, everybody was screaming "Chill the F out," my friends and I will never forget the moment this dude jumped out the back emergency door. Everybody went crazy as we say him go into the ditch right next to my Rhett's house, the bus driver tried to calm everybody down but to no avail.
+
+ The craziest thing on this bus ride however was 5 minutes later, my friend Rhett was getting dropped off and we saw the kid on the sidewalk. We all told Rhett to get him and make sure he doesn't go missing or anything. The next day we saw Rhett and the crazy kid at school with bandages, black eyes, and swelling. Rhett told me that he had to practically fight him and then call the school for the school police to get him. We thought this was all over after that but no, 2 weeks later we think it was just an insane moment and not like him but this kid proved us all wrong.
+
+ This kid got in another massive argument that again had him jumping out the back door, but this time this psycho decided to headbutt the Emergency Door glass and he actually broke it after 3 headbutts. Everybody went crazy and were screaming horrified, the worst thing is my friend Porter was doing a joke and was behind the seat so he had to crawl out onto the broken glass.
+
+ Me and a few other guys, a passerby, and the bus driver restrained him but he was still kicking windows and got loose after about 30 seconds. The kid jumped out the back and started circling the until he found another striking point, the entrance of the bus. He started to punch, kick, and ram into the door until it broke and he was back in.
+
+ Thankfully I called the cops 10 minutes earlier and the kid was caught. We started to evacuate the bus while me and Rhett comforted a kid who was crying and trembling with fear, then in my right ear I heard this from the insane kid "I'll kill all of you!" The kid rolled down a window and said that.
+
+ Then people started pulling up, more police, ambulance, Principle, Vice Principle, and the crazy kid's homeroom teacher. 
+
+Now this time we really thought it would be over, but no 1 month later the kid has his own private bus with a police officer escorting him around, and mental health counseling all day while inside of the school.
