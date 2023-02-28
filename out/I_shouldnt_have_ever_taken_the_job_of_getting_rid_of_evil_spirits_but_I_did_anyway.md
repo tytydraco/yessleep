@@ -1,3 +1,4 @@
+
 The first demon came in the middle of our living room while I was sleeping with a knife to kill us, but then he saw his reflection on one side of the mirror so now he's trapped behind it forever."
 
 "Oh no!" said Sam. "I've heard about those kind of things from other people too; they're called evil mirrors or devil doors. They can be very dangerous if you don't know how to use them properly. But what does this have anything to do with your dad?"
@@ -59,4 +60,4 @@ This must be where they stored human remains, she thought. Human sacrifices, to 
 Sam continued backing away until she finally found the courage to turn and run for the front door. Her foot slipped slightly on the wet stone floor, sending her tumbling onto her butt. Cursing under breath, she got up and hurried toward the exit. A loud crash erupted from behind as something heavy slammed down hard atop an old wooden table. The noise drew everyone's attention as five figures suddenly appeared in the doorway. Four men wearing black robes and masks, plus one woman in a flowing gown sporting shoulder-length blonde hair. She wore a necklace made of gold rings, bracelets, and earrings dangling from both ears. In addition, she carried two daggers strapped to either side of her waist.
 She glanced at Sam and smiled. "Well met, my dear child. Welcome to your new home."
 
-The sun rose bright and early the following morning. and no one from the put outside world seen Sam ever again.
+The sun rose bright and early the following morning. and sam begins her new journey of finding out how this woman was her mother and what caused her to do what she did.

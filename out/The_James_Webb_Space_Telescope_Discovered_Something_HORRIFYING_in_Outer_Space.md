@@ -200,6 +200,6 @@ They’re here.  The worms that feast on light and leave only darkness in their 
 
 And they’re multiplying [quickly.](https://youtu.be/rumiJJyA2FM)
 
-[JG](https://www.reddit.com/r/JGcreepypastas?utm_medium=android_app&utm_source=share)
+[JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
