@@ -2,13 +2,13 @@ I’ll be honest; I squeezed my eyes shut for most of [our journey](https://www.
 
 “Alright, we’re here. You can stop scrunching up your face now,” he said, sounding amused. “You look constipated.”
 
-“Better than vomiting all over my shoes,” I grumbled, opening my eyes to find Milo doing just that: puking his guts out. Acacia had apparently taken him along on her shadow travels, because she stood next to him looking completely unfazed. 
+“Better than vomiting all over my shoes,” I grumbled, opening my eyes to find Milo doing just that: puking his guts out. Acacia had apparently taken him along on her shadow travels, because she stood next to him looking completely unfazed.
 
 I watched Milo straighten up, his skin tinged blue with nausea. Poor Milo. He’d never shadow traveled before; I hadn’t gotten a chance to warn him to shut his eyes. Sure, I didn’t feel *great* now—my stomach felt like it might still decide to give up its contents with one wrong move—but I was better off than the first time I’d been dragged along with Asher.
 
 “That *sucked,*” said Milo, with great emphasis. “I would like to never do that again. Remind me to take you on a long swim through a tropical storm sometime, return the favor.”
 
-“Remind *me* to leave you behind next time instead,” countered Acacia. “Since you clearly would have preferred that?” She was smirking, her dark eyes twinkling in amusement. 
+“Remind *me* to leave you behind next time instead,” countered Acacia. “Since you clearly would have preferred that?” She was smirking, her dark eyes twinkling in amusement.
 
 “No, no,” said Milo hastily. “Let’s not make any rash decisions here.”
 
@@ -48,7 +48,7 @@ We went through one-by-one, each holding onto the hand of the person after us, l
 
 I couldn’t help staring at the bar, at the familiar sign above its door, at the crowds packed wall-to-wall I could make out through the windows. No doubt it was packed with terrified inhumans as it had been for weeks. Maybe even *more* crowded if Sky had gotten the chance to publicize the fact that harbingers were still alive.
 
-My heart ached to run inside, to check on Uncle Henri, make sure he was okay. And as I continued to stare, Milo’s arm wrapped around my shoulder. “He’s fine,” whispered Milo. 
+My heart ached to run inside, to check on Uncle Henri, make sure he was okay. And as I continued to stare, Milo’s arm wrapped around my shoulder. “He’s fine,” whispered Milo.
 
 I nodded, blinking back tears that I hadn’t even realized were there. Henri could handle himself. He’d even managed to get us a lead, and I couldn’t risk someone else like Sky—or even the murderer himself, since he’d clearly been to the bar—trying to stop me if I went inside. Not to mention that I couldn’t bring Asher and Acacia in, but leaving them out here in the fog where anyone could find them also seemed like a terrible idea.
 
@@ -62,7 +62,7 @@ I didn’t really know where to go from here, but even if I *had,* I don’t thi
 
 “You really think there’s anything out here?” whispered Milo. His voice seemed to echo in all directions, reverberating through the fog.
 
-“No idea,” I whispered back. 
+“No idea,” I whispered back.
 
 “I kind of like it,” said Asher. “Feels peaceful.”
 
@@ -72,7 +72,7 @@ Asher shrugged. “I mean, it’s not so different from the dark forests. All lo
 
 “As far as we know, at least,” Acacia pointed out.
 
-Each word they spoke, even though their voices were quiet, echoed through the fog. So did our footsteps, despite the fact that I couldn’t see any ground—more silver mist surrounded our feet, as if we were walking on smoke. 
+Each word they spoke, even though their voices were quiet, echoed through the fog. So did our footsteps, despite the fact that I couldn’t see any ground—more silver mist surrounded our feet, as if we were walking on smoke.
 
 Suddenly I stopped walking. I felt…weird. It had come out of nowhere; one second I was fine and the next I felt oddly dizzy, like I’d just spun in a circle for too long. The world seemed to tilt around me, and I sank to the ground with a groan.
 
@@ -96,7 +96,7 @@ The dizziness vanished as quickly as it had come, and I slowly got to my feet, n
 
 Milo slowly turned to follow my gaze, but even when he appeared to be looking directly at it—I saw the glint of silver reflected in his glasses—he shook his head. “Ian, I don’t see anything.”
 
-“Maybe he’s going crazy,” suggested Asher. 
+“Maybe he’s going crazy,” suggested Asher.
 
 “You don’t see it either?”
 
@@ -110,11 +110,11 @@ Any concern or doubt on Asher’s face was immediately replaced with excitement.
 
 “Well, what are we waiting for?” Asher grabbed my arm and pulled me forward with a surprising strength, causing me to stumble and nearly lose my balance. He did not seem to notice. “Lead the way!”
 
-“I *would*, if you’d let go of my arm and—” 
+“I *would*, if you’d let go of my arm and—”
 
-I didn’t finish the thought, because suddenly there was a low growling from the fog. Asher and I froze, and he slowly released his grip on my arm to reach for one of the knives in his boot instead. 
+I didn’t finish the thought, because suddenly there was a low growling from the fog. Asher and I froze, and he slowly released his grip on my arm to reach for one of the knives in his boot instead.
 
-“Maybe that was a friendly growl,” whispered Milo hopefully. 
+“Maybe that was a friendly growl,” whispered Milo hopefully.
 
 Turns out, it wasn’t. A moment later, there was another growl, and this one was louder, angrier—and closer. I reached for my lighter carefully—
 
@@ -124,7 +124,7 @@ I heard Asher, Milo, and Acacia all yell, felt something whistle by—probably A
 
 I tried to fight against the beast dragging me along from its mouth like a chew toy. I was pretty sure it was some kind of dog or wolf, based on the thick dark fur and heavy panting noises it made as it carried me, fangs still deep in my arm. But there wasn’t much fighting I could do. Its mouth alone was nearly as big as my entire body, and like I said before, I was dangerously close to blacking out—*again*—from the pain.
 
-I don’t know how long it ran before stopping and unceremoniously dropping me to the ground, pulling its teeth out of my arm slowly and painfully. I groaned and made no move to get up. However long it had been, I knew I couldn’t hear my friends anymore, not even the echoes of their frantic calls. 
+I don’t know how long it ran before stopping and unceremoniously dropping me to the ground, pulling its teeth out of my arm slowly and painfully. I groaned and made no move to get up. However long it had been, I knew I couldn’t hear my friends anymore, not even the echoes of their frantic calls.
 
 But we were still in the fog. Just endless silver mist. Me, and this monster dog.
 
@@ -146,23 +146,23 @@ Hopefully Ian’s Weird Feelings lead to answers soon, but for now all I’ve go
 
 I raised Sgrios in my good hand, keeping it pointed at my new companion. “Real kind of you to send your dog after me. Great opener. I really enjoy starting new relationships by having my arm dislocated.”
 
-The figure didn’t say anything. He simply stood there, motionless, and though I could only see the shadows of a face under his cloak, I could feel his eyes on me. “What? Nothing to say?” 
+The figure didn’t say anything. He simply stood there, motionless, and though I could only see the shadows of a face under his cloak, I could feel his eyes on me. “What? Nothing to say?”
 
-Unease prickled through me as we continued to face each other, silence broken only by the wolf’s quiet growls. Something about the presence of this person was oddly familiar—I couldn’t quite put my finger on it, but I *knew* I’d encountered him before. 
+Unease prickled through me as we continued to face each other, silence broken only by the wolf’s quiet growls. Something about the presence of this person was oddly familiar—I couldn’t quite put my finger on it, but I *knew* I’d encountered him before.
 
 It didn’t help that my mind was both dull with pain and attempting to sift through the many potential memories and connections that might be relevant. It felt like my brain was trying to swim through molasses. Nothing was clicking.
 
-New tactic. “What do you want?” I said. The words, like everything else, echoed. “How are you even out here in this fog? Why did you want *me?* I mean, if you like seafood, Milo’s objectively tastier.” 
+New tactic. “What do you want?” I said. The words, like everything else, echoed. “How are you even out here in this fog? Why did you want *me?* I mean, if you like seafood, Milo’s objectively tastier.”
 
-My joking tone fell utterly flat. And apparently I’d *really* annoyed it, because there was a pause—and then the figure flung itself forward, pulling out some kind of thin blade from beneath its cloak as it did so. 
+My joking tone fell utterly flat. And apparently I’d *really* annoyed it, because there was a pause—and then the figure flung itself forward, pulling out some kind of thin blade from beneath its cloak as it did so.
 
-I cursed and swung Sgrios, trying to keep my balance, but it turns out it’s not so easy to do that with one dislocated arm. The figure avoided my ungraceful knife slashes and crashed into me, sending me flying backwards. I landed *hard* on the invisible ground, immediately wheezing for breath as pain exploded both in my shoulder and my back. 
+I cursed and swung Sgrios, trying to keep my balance, but it turns out it’s not so easy to do that with one dislocated arm. The figure avoided my ungraceful knife slashes and crashed into me, sending me flying backwards. I landed *hard* on the invisible ground, immediately wheezing for breath as pain exploded both in my shoulder and my back.
 
-The figure followed me to the ground, and as it tackled me, as I tried to struggle and get a good stab in with my knife, its hands closed around my throat. 
+The figure followed me to the ground, and as it tackled me, as I tried to struggle and get a good stab in with my knife, its hands closed around my throat.
 
 And that’s when something finally clicked in my sluggish brain: the dream I’d had when Orion had tried to strangle me. The silver eyes, the attacker who made them vanish—it hadn’t just been a dream. This was the same attacker.
 
-No idea what that meant. I’d have to figure it out later, because the dark spots in my vision were rapidly expanding as I gasped for breath. One arm wasn’t enough to fight him off me. 
+No idea what that meant. I’d have to figure it out later, because the dark spots in my vision were rapidly expanding as I gasped for breath. One arm wasn’t enough to fight him off me.
 
 Which left only one option. Gritting my teeth, I threw all my force into rolling over, muffling a scream as my dislocated shoulder took the weight. But it was enough. I’d surprised him, and now *I* pinned him, rolling straight into a thrust of Sgrios into his side.
 
@@ -172,10 +172,10 @@ Man, one of these times I’d really like to maintain consciousness for an entir
 
 I didn’t have any fight left. I’d used all my strength on that last maneuver, and my arm felt like it was on fire. I cursed mentally. Even if my attacker didn’t want to kill me, I was sure whatever came next wasn’t going to be fun.
 
-Then, just as I blinked slowly, vision darkening, I saw it. The silver thread had reappeared. One second it wasn’t there, and the next, after one blink, it was back! And the voice came a second later. *Ian,* it whispered, creaking with age, *You are safe now. Come to me.* 
+Then, just as I blinked slowly, vision darkening, I saw it. The silver thread had reappeared. One second it wasn’t there, and the next, after one blink, it was back! And the voice came a second later. *Ian,* it whispered, creaking with age, *You are safe now. Come to me.*
 
-“I tried,” I murmured, at the same time that the figure shrieked wordlessly, furiously, and lunged forward after me. 
+“I tried,” I murmured, at the same time that the figure shrieked wordlessly, furiously, and lunged forward after me.
 
 I hadn’t even realized I was moving, but apparently I was, and my attacker didn’t like it. I saw the dark figure and the antlered wolf vanish into the fog, and vaguely noticed that it felt like I was floating, though it was hard to tell, since the mist was moving around me too. But the silver thread seemed to pull me along its length, and the voice whispered to me that I was safe, and that I’d be there soon.
 
-And somehow, it made me calm, like its voice was a lullaby I’d known once but forgotten, and I found myself lulled into sleep as it carried me through the silver fog.
+And somehow, it made me calm, like its voice was a lullaby I’d known once but forgotten, and I found myself lulled into sleep as it carried me through the [silver fog](https://www.reddit.com/r/nosleep/comments/11dxi49/lost_and_found_the_bar_at_the_edge_of_the_reality/?utm_source=share&utm_medium=web2x&context=3).
