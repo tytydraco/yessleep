@@ -213,3 +213,7 @@ I was silent. But he took my silence as an answer. Finally he spoke.
 Justine was taken this morning. I spent a long time answering questions from social agencies. I mean a *long* time. Finally, they left. Now, the house is so quiet I want to scream. I don’t know what’s happening. I don’t know what to do. I just want my little girl back.
 
 Though, I suppose, I’m not sure how little she is anymore.
+
+___
+
+[x](https://www.youtube.com/c/SergeantDarwin)
