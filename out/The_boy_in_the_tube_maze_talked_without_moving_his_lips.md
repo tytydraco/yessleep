@@ -4,7 +4,7 @@ However, a few days ago I was visiting with my mother, and she reminded me of so
 
 We were discussing my childhood, when out of nowhere, she remarked "I'm sorry we never let you go back to Jungle Land, I remember you used to have so much fun there, but, well, I just got so scared after that time you fell asleep in the tube maze that I could never bear to bring you back there again."
 
-I was confused, not even remembering what she was talking about, and I asked her what Jungle Land was. She held up a finger, as if to say "one moment", and then shuffled off to her bedroom, arriving a minute later with a photo album. She flipped through the pages, scanning each one, before stopping and pointing at a specific picture.  
+I was confused, not even remembering what she was talking about, and I asked her what Jungle Land was. She held up a finger, as if to say "one moment", and then shuffled off to her bedroom, arriving a minute later with a photo album. She flipped through the pages, scanning each one, before stopping and pointing at a specific picture.
 
 I looked over and saw myself as a young girl, perhaps five or six years old, smiling happily as I stood in front of a large indoor plastic play structure, constructed of multicolored interconnected tubes. I felt sick as I stared at the photo for reasons I couldn't fully fathom, and the room suddenly felt much colder.
 
@@ -18,22 +18,21 @@ I recalled that the incident occurred when I wasn't much older than I had been i
 
 I wasn't a particularly outgoing child, and tended towards shyness and reclusion unless around my friends, so I was understandably frustrated by the whole situation. As I waded in the ball pit despondently, kicking around the multicolored balls in petulant annoyance, I suddenly heard a voice whisper to me from the direction of the tube maze.
 
-"Hey! What's your name?"  
- 
+"Hey! What's your name?"
 
 I turned to look at who had spoken, and saw a young boy, about my age, peeking his head out of the entrance to the maze. He was smiling at me.
 
 "Samantha. What's yours?" I asked, cautiously, not used to talking with other kids who I didn't already know.
 
-"My name is Charlie! Nice to meet you" I heard him say. But, though I could tell that it was the boy's voice, I didn't see his lips move at all.  
+"My name is Charlie! Nice to meet you" I heard him say. But, though I could tell that it was the boy's voice, I didn't see his lips move at all.
 
 I giggled, and asked "Hey, your mouth didn't move, that's cool! How did you do that?"
 
 I heard the boy's voice again, saying "It's a magic trick! If you want, I can teach you how, but you have to follow me." He gestured for me to follow him into the tube maze. Excited to have a new friend and learn the magic trick, I eagerly followed him, quickly forgetting the sadness I felt only moments before. Childhood moods pass quickly I suppose.
 
-I followed close behind my newfound friend at first, but as he continued climbing and crawling his way through the maze I found myself falling behind. I've never been a particularly athletic person, and even as a young girl this still held true.  
+I followed close behind my newfound friend at first, but as he continued climbing and crawling his way through the maze I found myself falling behind. I've never been a particularly athletic person, and even as a young girl this still held true.
 
-The winding plastic tubes seemed to go on forever, with endless twists and turns. The smell of plastic was thick in the stale air, and I felt a little but claustrophobic. Despite how busy the place seemed only minutes before, we didn't come across any other children as I followed Charlie deeper into the maze. After maybe fifteen minutes I started to feel uneasy.
+The winding plastic tubes seemed to go on forever, with endless twists and turns. The smell of plastic was thick in the stale air, and I felt a little bit claustrophobic. Despite how busy the place seemed only minutes before, we didn't come across any other children as I followed Charlie deeper into the maze. After maybe fifteen minutes I started to feel uneasy.
 
 "Are we almost there?" I asked, a slightly whiny tone in my voice.
 
