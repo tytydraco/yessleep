@@ -1,5 +1,5 @@
 September 24th, 2019-8:36pm
-Today marks the first day of our camping trip. My friends and I have been planning this for months, and we were finally able to find a suitable spot deep in the woods. We arrived at our campsite just as the sun was beginning to set. We set up our tents and gathered around the campfire. The night was filled with laughter and good times. But little did we know that our happy camping trip would soon turn into a nightmare.
+Today marks the first day of our camping trip. My friends and I have been planning this for months, and we were finally able to find a suitable spot deep in the woods. We arrived at our campsite just as the sun was beginning to set. We set up our tents and gathered around the campfire. The night was filled with laughter and good times.
 
 September 25th, 2019- 3:27pm
 The second day of our camping trip was when things started to get strange. It began with strange noises outside of our tents, and every time we looked, there was nothing there. We all tried to brush it off as just our imagination, but deep down, we all knew something was off.

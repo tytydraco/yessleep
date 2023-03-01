@@ -2,7 +2,7 @@
 
 &#x200B;
 
-I should have mentioned in the previous post that it takes me so long to update because we have to watch the tapes multiple times to ensure we don’t miss any clues. You’d be surprised what minor details can have vast implications. As for personal updates, I managed to squeeze in a night out with my friends last week, so that’s some good news. 
+I should have mentioned in the previous post that it takes me so long to update because we have to watch the tapes multiple times to ensure we don’t miss any clues. You’d be surprised what minor details can have vast implications. As for personal updates, I managed to squeeze in a night out with my friends last week, so that’s some good news.
 
 &#x200B;
 
@@ -22,7 +22,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-*The video centers around three people, two divorced parents by the names of Gerard and Ellen, ages 34 and 33. Their son’s name is Anson, age 8. There is an alarm beeping before the footage is shown. Upon it coming into focus, it’s revealed to be a POV shot from Gerard’s perspective.* 
+*The video centers around three people, two divorced parents by the names of Gerard and Ellen, ages 34 and 33. Their son’s name is Anson, age 8. There is an alarm beeping before the footage is shown. Upon it coming into focus, it’s revealed to be a POV shot from Gerard’s perspective.*
 
 &#x200B;
 
@@ -30,7 +30,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Gerard**: “Shit! Shit! Shit!”
+**Gerard:** “Shit! Shit! Shit!”
 
 &#x200B;
 
@@ -50,7 +50,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-*His ex-wife Ellen replies. During their conversation a pounding similar to a beating drum is detectable.* 
+*His ex-wife Ellen replies. During their conversation a pounding similar to a beating drum is detectable.*
 
 &#x200B;
 
@@ -60,7 +60,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Gerard:** “Oh, Ellen. Uh, what’s going on?”
+**Gerard**: “Oh, Ellen. Uh, what’s going on?”
 
 &#x200B;
 
@@ -68,7 +68,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Gerard:** “What? Of course, I’ll see him. I’ve been getting ready. Where do you want to meet?”
+**Gerard**: “What? Of course, I’ll see him. I’ve been getting ready. Where do you want to meet?”
 
 &#x200B;
 
@@ -76,7 +76,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Gerard**: “See you then.”
+**Gerard:** “See you then.”
 
 &#x200B;
 
@@ -88,7 +88,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Anson:** “I knew you’d come!”
+**Anson**: “I knew you’d come!”
 
 &#x200B;
 
@@ -100,7 +100,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Gerard:** “I wouldn’t miss seeing you for the world.”
+**Gerard**: “I wouldn’t miss seeing you for the world.”
 
 &#x200B;
 
@@ -266,13 +266,13 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Anson:** “Yeah…”
+Anson: “Yeah…”
 
 &#x200B;
 
 &#x200B;
 
-*He falls asleep. Gerard puts him in the back and straps him in. The footage cuts to them sitting down in the theater to see the movie, Who Framed Roger Rabbit? At first, Anson is excited, seeing all his favorite characters on screen. As it goes on, though, he is again fighting not to fall asleep.*
+*He falls asleep. Gerard puts him in the back and straps him in. The footage cuts to them sitting down in the theater to see the movie, Who Framed Roger Rabbit? At first, Anson is excited, seeing all his favorite characters on screen. As it goes on, though, he is once again fighting not to fall asleep.*
 
 &#x200B;
 
@@ -282,13 +282,13 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-*He offers Anson some Coke and he takes a sip. This gives him a brief energy post. Gerard offers him some popcorn. He eats several handfuls. Time passes and Anson laughs at several points during the movie.* 
+*He offers Anson some Coke and he takes a sip. This gives him a brief energy post. Gerard offers him some popcorn. He eats several handfuls. Time passes and Anson laughs at several points during the movie. All appears to be well.*
 
 &#x200B;
 
 &#x200B;
 
-*All appears to be well. Then he groans.*
+*Then he groans.*
 
 &#x200B;
 
@@ -304,7 +304,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-*He vomits.* 
+*He vomits.*
 
 &#x200B;
 
@@ -394,7 +394,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Wilber:** “I didn’t want to bring this up until we were sure. However, it seems like a pretty clear diagnosis at this point.”
+**Wilber:** “I didn’t want to bring this up until we were absolutely sure. However, it seems like a pretty clear diagnosis at this point.”
 
 &#x200B;
 
@@ -406,7 +406,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Gerard**: “Tell us why he’s sick.”
+**Gerard:** “Tell us why he’s sick.”
 
 &#x200B;
 
@@ -430,7 +430,7 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Ellen**: “No, that…That can’t be.”
+**Ellen:** “No, that…That can’t be.”
 
 &#x200B;
 
@@ -442,17 +442,31 @@ Anyway, I'll be getting to the next tape. A transcription will be provided below
 
 &#x200B;
 
-**Wilber**: “There’s no easy way to say this. I’ve never seen one this bad in my thirty years of working in this field. We can try some treatments. It’s just that with a severe case, it’ll have to be exceptionally strong, and I’m not sure if your son could handle it. We can try it, but I can’t guarantee it’ll be effective.”
+**Wilber:** “There’s no easy way to say this. I’ve never seen one this bad in my thirty years of working in this field. We can try some treatments. It’s just that with such a severe case, it’ll have to be exceptionally strong, and I’m not sure if your son could handle it. We can try it, but I can’t make any guarantees it’ll be effective.”
 
 &#x200B;
 
-**Gerard**: “We’ll try to take it one step at a time then.”
+**Gerard:** “We’ll try to take it one step at a time then.”
 
 &#x200B;
 
 &#x200B;
 
- I’ve seen awful things, Yet,  I know this is the kind of thing that makes someone feel especially powerless.  Seeing someone you love suffering and not being able to do anything about it is a horror I do not wish on anyone. God, if it’s that bad for me just watching the tape, I can only imagine what it was like for them. With tapes such as these, there’s an atmosphere to them that makes you feel as if you are in the footage with the people shown. In a way, you feel as if you’ve already known them for a while
+I’ve seen awful things and yet I know this is the kind of thing that makes someone feel especially powerless.  Seeing someone you love suffering and not being able to do anything about it is a horror I do not wish on anyone. God, if it’s that bad for me just watching the tape, I can only imagine what it was like for them. With tapes such as these, there’s an atmosphere to them that makes you feel as if you are in the footage with the people shown. In a way, you feel as if you’ve already known them for a while
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
 
 &#x200B;
 
@@ -480,11 +494,11 @@ That’s why I find Ludus to be the most dangerous entity we’ve ever come acro
 
 &#x200B;
 
-**Gerard**: “I-i’m sorry! I didn’t see him!”
+**Gerard:** “I-i’m sorry! I didn’t see him!”
 
 &#x200B;
 
-**Ellen**: “Maybe if you cut back on the beers, you would have!”
+**Ellen:** “Maybe if you cut back on the beers, you would have!”
 
 &#x200B;
 
@@ -496,7 +510,7 @@ That’s why I find Ludus to be the most dangerous entity we’ve ever come acro
 
 &#x200B;
 
-**Gerard**: “Fucking hell…”
+**Gerard:** “Fucking hell…”
 
 &#x200B;
 
@@ -534,7 +548,7 @@ That’s why I find Ludus to be the most dangerous entity we’ve ever come acro
 
 &#x200B;
 
-**Gerard**: “Ellen, I-”
+**Gerard:** “Ellen, I-”
 
 &#x200B;
 
@@ -546,7 +560,7 @@ That’s why I find Ludus to be the most dangerous entity we’ve ever come acro
 
 &#x200B;
 
-**Ellen:** “I’m taking him to my parents. I've been meaning to spend a few days out of the house anyway.”
+**Ellen:** “I’m taking him to my parents. I want to spend a few days out of the house.”
 
 &#x200B;
 
@@ -564,7 +578,7 @@ That’s why I find Ludus to be the most dangerous entity we’ve ever come acro
 
 &#x200B;
 
-**Janice**: “After seeing the evidence presented before me, it is this court’s decision that sole custody of Anson Valdez be granted to Ellen Hill. Mr. Valdez, you will get him two weekends of every month.”
+**Janice:** “After seeing the evidence presented before me, it is this court’s decision that sole custody of Anson Valdez be granted to Ellen Hill. Mr. Valdez, you will get him two weekends of every month.”
 
 &#x200B;
 
@@ -606,7 +620,7 @@ That’s why I find Ludus to be the most dangerous entity we’ve ever come acro
 
 &#x200B;
 
-**Unknown Voice**: “This is no trick. It’s all real regardless of whether or not you believe it and I come offering you a chance to save your son.”
+**Unknown Voice:** “This is no trick. It’s all real regardless of whether or not you believe it and I come offering you a chance to save your son.”
 
 &#x200B;
 
@@ -642,25 +656,25 @@ That’s why I find Ludus to be the most dangerous entity we’ve ever come acro
 
 &#x200B;
 
-Ludus: “If you insist. All I’ll need to participate is something shiny.”
+**Ludus:** “If you insist. All I’ll need to participate is something shiny.”
 
 &#x200B;
 
 &#x200B;
 
-*Gerard holds up his knife.*
+*Gerard holds up the knife.*
 
 &#x200B;
 
 &#x200B;
 
-Gerard: “Okay, what now?”
+**Gerard:** “Okay, what now?”
 
 &#x200B;
 
 &#x200B;
 
-*Ludus doesn’t reply. He glances at the eyes of his reflection in the blade. They wink. He yells and drops the knife to the floor. A hand seems to reach out from inside the blade. However, it’s thin and stretched out in a way that’s similar to old cartoons.*
+*Ludus doesn’t reply. Gerard glances at the eyes of his reflection in the blade. They wink. He yells and drops the knife to the floor. A hand seems to reach out from inside the blade. However, it’s thin and stretched out in a way that’s similar to old cartoons.*
 
 &#x200B;
 
@@ -672,7 +686,17 @@ Believe me when I tell you that when we watched this it was like there were spid
 
 &#x200B;
 
-*A second hand follows it. They flail around until grasping the counter and sink. The head squeezes out, looking like Gerard’s face if it were stretched out. Soon, the rest of the body emerges, being so tall its head touches the ceiling. Gerard, staring up at it, scoots back on the floor.*
+*A second hand follows it. They flail around until grasping the counter and sink. The head squeezes out, looking like Gerard’s face if it were stretched out. Soon, the rest of the body emerges, being so tall its head touches the ceiling.  Gerard's voice is understandably shaky.*
+
+&#x200B;
+
+&#x200B;
+
+**Gerard:** "What the fuck?"
+
+&#x200B;
+
+*Staring up at it, he scoots back on the floor.*
 
 &#x200B;
 
@@ -684,7 +708,7 @@ Believe me when I tell you that when we watched this it was like there were spid
 
 &#x200B;
 
-*It offers Gerard a hand up. He refuses to take it and stands on his own.*
+*It offers Gerard a hand up. Trembling, he refuses to take it and stands on his own. Although his voice is still shaky, he manages to sound braver than expected for someone in this situation.*
 
 &#x200B;
 
@@ -710,7 +734,7 @@ Believe me when I tell you that when we watched this it was like there were spid
 
 &#x200B;
 
-*Still grinning, takes the blade and stabs it into the palm of its hand. Blood seeps from the wound when it yanks it out. Then it extends the handle to Gerard who is hesitant to take it. He draws in a breath and takes it. Knowing what is expected of him, he raises the blade above his hand and murmur*s.
+*Still grinning, takes the blade and stabs it into the palm of its hand. Blood seeps from the wound when it yanks it out. Then it extends the handle to Gerard who is hesitant to take it. He draws in a breath and grabs the handle. Knowing what is expected of him, he raises the blade above his hand and murmurs.*
 
 &#x200B;
 
@@ -722,7 +746,13 @@ Believe me when I tell you that when we watched this it was like there were spid
 
 &#x200B;
 
-*He brings the knife down, stabbing the blade into his palm. He lets out a stifled scream as blood also pours from his wound. Much like its game with Gwen, it seems that those participating are granted the ability to survive otherwise fatal injuries. Gerard twists the knife, freeing it. His breathing is rapid.*
+Watching this felt like seeing someone trapped in the lions' den at the zoo if they hadn't been fed in a week. I want to confront Ludus and bring him to justice. However, at the same time, I want to avoid him at all costs, especially after seeing what he makes people do to themselves.
+
+&#x200B;
+
+&#x200B;
+
+*Gerard brings the knife down, stabbing the blade into his palm. He lets out a stifled scream as blood also pours from his wound. Much like its game with Gwen, it seems that those participating are granted the ability to survive otherwise fatal injuries. Gerard twists the knife, freeing it. His breathing is rapid.*
 
 &#x200B;
 
@@ -744,13 +774,19 @@ Believe me when I tell you that when we watched this it was like there were spid
 
 &#x200B;
 
+My breath drew in when we realized what he planned to do. No, he couldn't…
+
+&#x200B;
+
+&#x200B;
+
 **Gerard:** “You think you’re going to win?”
 
 &#x200B;
 
 &#x200B;
 
-*He flips the switch, causing it to whir.*
+*He flips the switch, causing it to whir. His eyes are wide and most likely his mind is telling him to stop repeatedly.*
 
 &#x200B;
 
@@ -786,7 +822,13 @@ I consider myself to have a pretty strong stomach and yet I wanted to throw up w
 
 &#x200B;
 
-**Ludus’s expression is neutral. Then it breaks into an even wider smile than before.**
+*Ludus’s expression is neutral. Then it breaks into an even wider smile than before.*
+
+&#x200B;
+
+&#x200B;
+
+That was when we felt that this game would unfortunately not end in Gerard's favor.
 
 &#x200B;
 
@@ -798,19 +840,25 @@ I consider myself to have a pretty strong stomach and yet I wanted to throw up w
 
 &#x200B;
 
-*It does the same as Gerard. Despite its enjoyment, it is clear that the pain is taking a toll on it. This is evidenced by it staggering back upon freeing its hand.*
+*It does the same as Gerard. Despite its enjoyment, it is clear that the pain is taking a toll on it. This is evidenced by it staggering back upon freeing its hand. While Gerard is still fearful, he does sound slightly more confident.*
 
 &#x200B;
 
 &#x200B;
 
-**Gerard:** “I’ll do whatever it takes.”
+**Gerard:** “How's that? I’ll do whatever it takes.”
 
 &#x200B;
 
 &#x200B;
 
 *Ludus stares down at its finger stubs and then back at him.*
+
+&#x200B;
+
+&#x200B;
+
+We were starting to have hope that Gerard may win after all. Too bad that is one of those things that has a way of turning to dread on a dime.
 
 &#x200B;
 
@@ -846,7 +894,7 @@ I swear I could smell the gas that was filling the kitchen in that video. Knowin
 
 &#x200B;
 
-*I could feel the heat seeing that footage. It was like standing next to a roaring campfire. Unfortunately, it was clear who the winner was.*
+I could feel the heat seeing that footage. It was like standing next to a roaring campfire. I could remember us screaming no as if we were in person instead of just watching a video.  Unfortunately, when the smoke cleared, it was clear who the winner was.
 
 &#x200B;
 
@@ -858,29 +906,41 @@ I swear I could smell the gas that was filling the kitchen in that video. Knowin
 
 &#x200B;
 
+Jesus Christ, I can't imagine how Gerard must have felt, not only to know he failed his son but to be left like that. Do you know what the fucked up thing is? Ludus has done worse because at least his suffering was temporary. No matter how intense it got there was an end to it. However, if I may get slightly ahead of myself, the other tapes have shown me things no drug on Earth will make me forget.
+
+&#x200B;
+
+&#x200B;
+
 **Ludus:** “I know you must be disappointed right now. If it’s any consolation, you were quite entertaining and you will be able to guide your son through his final moments.”
 
 &#x200B;
 
 &#x200B;
 
-*Ludus walks away. Gerard yells both for help and in pain until he passes out. He wakes up later in ICU, covered in bandages with Ellen sitting in the chair beside his bed. She explains that she came by to get a toy of Anson’s from him but called an ambulance when she found him on the floor.*
+*Ludus walks away. Gerard, crying yells both for help and in pain until he passes out. He wakes up later in the ICU, covered in bandages with Ellen sitting in the chair beside his bed. She explains that she came by to get Anson's toy from him but called an ambulance when she found him on the floor.*
 
 &#x200B;
 
 &#x200B;
 
-**Ellen:** “What were you doing in there?”
+**Ellen:** “What were you doing?”
 
 &#x200B;
 
-**Gerard:** “I don’t know how I can explain it. Listen, I don’t know how much longer I’ll last so it’s  important you do something for me.”
+**Gerard:** “I want to talk about it. Listen, I don’t know how much longer I’ll last so it’s important you do something for me. Before you do, though I wanted to say sorry for fucking things up.”
 
 &#x200B;
 
 &#x200B;
 
-*Ellen nods. Gerard tells her to ask that he be put in the same hospital as Anson. His request is granted and the footage cuts to him there in another bed beside Anson’s. Ellen is also there. Her eyes are red and puffy. Some family and friends are also present.* 
+**Ellen:** "No, you've changed. I honestly didn't think you would, but you've proved me wrong. I'll see what I can do for you."
+
+&#x200B;
+
+&#x200B;
+
+*He nods. He tells her to ask that he be put in the same hospital as Anson. His request is granted and the footage cuts to him there in another bed beside Anson’s. Ellen is also there. Her eyes are red and puffy. Some family and friends are also present.*
 
 &#x200B;
 
@@ -896,13 +956,13 @@ I swear I could smell the gas that was filling the kitchen in that video. Knowin
 
 &#x200B;
 
-*Gerard takes his hand. The video concludes by fading to black with the noise of flatlining beeps in the background.*
+*Gerard takes his hand. The video fades to black with the noise of flatlining beeps in the background.*
 
 &#x200B;
 
 &#x200B;
 
-This kept me up for a few days. Every time I closed my eyes, I would somehow find myself going through what Gerard did. Hell, I still have that nightmare sometimes among others. Therapy has helped somewhat at least. I need to wrap up this post, though so I’ll explain what we found by going to the town the events took place in. We managed to get in touch with the family and friends of the victims.
+This kept me up for a few days. Every time I closed my eyes, I would somehow find myself going through what Gerard did. Hell, I still have that nightmare sometimes among others and I'll even cry sometimes when I think about it. Therapy has helped somewhat at least. I need to wrap up this post, though, so I'll explain what we found by going to the town the events took place in. We managed to get in touch with the family and friends of the victims.
 
 &#x200B;
 
@@ -910,7 +970,15 @@ This kept me up for a few days. Every time I closed my eyes, I would somehow fin
 
 &#x200B;
 
-Through them, we learned that Ellen moved away a year after the death of her ex-husband and their son and has since gotten remarried, having three more kids. That’s some good news at least. I sincerely hope she is doing well. As for Ludus, my fear and hatred of it only grow stronger by the day. I know the threat it poses and I will not stop until this monster is ended.
+Through them, we learned that Ellen moved away a year after the death of her ex-husband and their son and has since gotten remarried, having three more kids. That’s some good news at least. I sincerely hope she is doing well. After what she lost, she deserves to be happy. As for Ludus, my fear and hatred of it only grow stronger by the day.
+
+&#x200B;
+
+&#x200B;
+
+I know the threat it poses and despite how much I fear it, I will not stop until this monster is ended.
+
+&#x200B;
 
 &#x200B;
 
