@@ -6,7 +6,7 @@ So I went to the dentist, as one does in such a situation. They did some drillin
  
 Well, years later, I got new insurance and hit up a new dentist as a result. He discovered that at least two of the fillings his predecessor billed me for were bogus. There was no evidence of decay there at all. They were just taking advantage of a kid with a sweet tooth to bilk some extra money out of the family. This led me to, as you can imagine, a deep mistrust of the dental profession outside of this doctor. So once the kindly old man who ran that office retired, I just … stopped going to dentists altogether. 
  
-I did not, however, stop drinking excessive amounts of soda. Eventually, that caught up with me. It was time to face up to tears - actually, damn near a decade - of neglect. I found a new local dentist who had good reviews. I had to have several extractions, a handful of root canals, numerous fillings… it was painful and expensive and I hated my younger self with a burning passion. 
+I did not, however, stop drinking excessive amounts of soda. Eventually, that caught up with me. It was time to face up to years - actually, damn near a decade - of neglect. I found a new local dentist who had good reviews. I had to have several extractions, a handful of root canals, numerous fillings… it was painful and expensive and I hated my younger self with a burning passion. 
  
 But hey, my suffering was over. It’d just take some time for the gums to heal over, and I’d be all good. There was one sore spot in particular, where one of my back teeth had been badly infected and subsequently plucked out of its socket. But the dentist assured me that was normal and it would itch and ache for a bit then go back to normal as the socket healed over. 
  
