@@ -74,7 +74,7 @@ The lower we went, the colder it became, until I could see my breath in the dim 
 
 “Just focus on one step at a time,” he said. “Don’t look beyond that.” After what felt like an eternity, we reached a long hallway. We sped up, walking through it.
 
-It opened into a huge antechamber, the size of a football stadium. As soon as we stepped foot into it, a stone door slammed shut behind us, keeping us from going back the way we had come. Both of us jumped at the land slamming sound, turning abruptly.
+It opened into a huge antechamber, the size of a football stadium. As soon as we stepped foot into it, a stone door slammed shut behind us, keeping us from going back the way we had come. Both of us jumped at the loud slamming sound, turning abruptly.
 
 From behind me a thin hand grabbed my hair, wrenching my head back and putting a cold metal blade to my throat. Adam raised his weapon, but the man behind me simply laughed. His breath smelled like he was rotting from the inside. Combined with the intense odor of sweat, urine and feces that emanated off of him, it made me want to gag. But I knew I couldn’t move a single millimeter with that sharp knife pressing into my jugular.
 
