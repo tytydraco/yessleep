@@ -117,3 +117,5 @@ He began walking towards the cottages at a supernatural speed. I cursed and ran 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 9\]](https://www.reddit.com/r/nosleep/comments/11dnong/i_own_an_abandoned_motel_and_i_dont_think/)
+
+[\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)

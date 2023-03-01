@@ -1,4 +1,4 @@
-  [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new) [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/) [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/) [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/) [\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/) [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new) [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/) [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/) [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/) [\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/) [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/)
 
 “I’m assuming *loup garou* is just a fancy French way of saying ‘werewolf,’ right?”
 
@@ -10,7 +10,7 @@ René was examining the damage that the beast had made to my cottage last full m
 
 “Good,” he coughed, putting his hand over his nose. “I know I’m on the right track.”
 
-He meandered around, following the scent around the property, muttering to himself about the uncouth hygiene habits of the *loup garou*. I followed him to the best of my abilities, but he clearly wasn’t expecting me to be able to keep up. Finally, the trail ended at the bank of the river, almost a quarter mile down from my dock. 
+He meandered around, following the scent around the property, muttering to himself about the uncouth hygiene habits of the *loup garou*. I followed him to the best of my abilities, but he clearly wasn’t expecting me to be able to keep up. Finally, the trail ended at the bank of the river, almost a quarter mile down from my dock.
 
 “There.” He pointed to a small, heavily forested island across from us in the river.
 
@@ -20,7 +20,7 @@ He meandered around, following the scent around the property, muttering to himse
 
 “Well, however he got over here, I’ll have him pay you directly for the repairs to the damage he caused on my property.”
 
-He chuckled. 
+He chuckled.
 
 “You have a grudge against this creature, eh?”
 
@@ -38,7 +38,7 @@ He chuckled.
 
 We stood together staring at the dark island. There was no sign of habitation that was visible to my eyes. I made a mental note to consult some of my uncle’s old nautical charts in my cottage to see if this place even had a name. Luckily, according to the notebook, I had some days before the next payment was due. Good timing for a field trip.
 
-“The night grows late and we are going to need all of our strength,” he said. “Meet me tomorrow at the docks, and bring your pretty silver bracelets.” He smirked, clearly remembering my awkward maneuver with the bangles the first night we met. 
+“The night grows late and we are going to need all of our strength,” he said. “Meet me tomorrow at the docks, and bring your pretty silver bracelets.” He smirked, clearly remembering my awkward maneuver with the bangles the first night we met.
 
 “I know, I know.  It was awkward.”
 
@@ -90,7 +90,7 @@ He held my gaze for a moment and nodded.
 
 \++
 
-The following evening, I waited for René at my dock, silver bracelets on my wrists. In my pocket, I had carefully torn out the relevant page of the nautical chart from my uncle’s library. It was a bit yellowed—like everything around here—but it was sufficiently detailed for our purposes. Our destination was hardly more than a speck, labeled “Glendon Island” in tiny, almost microscopic print. 
+The following evening, I waited for René at my dock, silver bracelets on my wrists. In my pocket, I had carefully torn out the relevant page of the nautical chart from my uncle’s library. It was a bit yellowed—like everything around here—but it was sufficiently detailed for our purposes. Our destination was hardly more than a speck, labeled “Glendon Island” in tiny, almost microscopic print.
 
 I’ve never driven a boat before, despite spending nearly every summer of my life on them. My dad or Uncle Jimmy were always the pilots. I tried to remember only the good times, the times when we’d sail out to a hidden island and swim all day, eating sandwiches in wet bathing suits in the sunshine that always somehow tasted better than at home. I didn’t want to think about their accident, how those memories were poisoned so soon. I tried to push down the dread that rose unbidden within me when I thought of stepping foot in a boat.
 
@@ -138,7 +138,7 @@ He sat, grabbed a paddle, and tossed me one.
 
 “Thanks, but I can pull my weight.”
 
-We began to paddle carefully, but with steady speed. René was able to pilot and steer with ease, even in the dark, icy conditions. A perk of heightened senses, I suppose. His obvious happiness at being on the river was infectious and I found my initial anxiety melting away, the rhythm of my breathing returning to normal. 
+We began to paddle carefully, but with steady speed. René was able to pilot and steer with ease, even in the dark, icy conditions. A perk of heightened senses, I suppose. His obvious happiness at being on the river was infectious and I found my initial anxiety melting away, the rhythm of my breathing returning to normal.
 
 “What else do you know about werewolves?” I asked, voice barely above a whisper.
 
@@ -152,7 +152,7 @@ I nodded. I glanced at the black depths below us. The cadence of my paddle hitti
 
 “René? What is it like to die?”
 
-He frowned. 
+He frowned.
 
 “I can’t rightly say. I’ve never experienced a true death, the sundering of the body and the soul. Please, Nora, don’t think of it.”
 
@@ -168,11 +168,11 @@ He grinned.
 
 “I’ll store it away for future reference.”
 
-The island loomed before us, wreathed in a mist that had not been visible from my dock. Jagged rocks sloped down to meet the river. As far as I could see there were thick growths of trees and bushes. We became silent, aware of every movement, our paddling slowed and René expertly guided our boat to an outcropping. He secured our rope around a large boulder and hopped out without a sound. He added some knots and reached out for me. Upon taking his hand he lifted me out of the boat entirely in one swift motion. *I suppose that was much quieter than my attempts at fumbling my way out.* 
+The island loomed before us, wreathed in a mist that had not been visible from my dock. Jagged rocks sloped down to meet the river. As far as I could see there were thick growths of trees and bushes. We became silent, aware of every movement, our paddling slowed and René expertly guided our boat to an outcropping. He secured our rope around a large boulder and hopped out without a sound. He added some knots and reached out for me. Upon taking his hand he lifted me out of the boat entirely in one swift motion. *I suppose that was much quieter than my attempts at fumbling my way out.*
 
 René contorted his face in disgust and nodded, indicating to me that we were in the right place for a werewolf. We began to explore, careful to avoid stepping on twigs or slipping on any patches of ice. When my eyes adjusted to the darkness of my surroundings, I noticed that among the natural debris of vegetation there was trash, piece of litter that on closer inspection appeared to be cigarette butts and flattened cartons. I tried to stifle the hot anger rising in my face. *Asshole and a slob.* I shook the bangles into the palms of my hands and gripped them tightly.
 
-The island was much larger than I thought by looking at my uncle’s map. After making our way through the trees for what seemed like hours, we came across a clearing pockmarked by tree stumps. In the center was a twisted figure that at first glance appeared alive, but as we crept closer it revealed itself to be a towering structure made entirely of bones, piles and piles of bones. *Hopefully from animals*, I thought uneasily. The thing was crowned by the skull of what must have been a massive buck with enormous antlers draped with what appeared to be dry marine algae. 
+The island was much larger than I thought by looking at my uncle’s map. After making our way through the trees for what seemed like hours, we came across a clearing pockmarked by tree stumps. In the center was a twisted figure that at first glance appeared alive, but as we crept closer it revealed itself to be a towering structure made entirely of bones, piles and piles of bones. *Hopefully from animals*, I thought uneasily. The thing was crowned by the skull of what must have been a massive buck with enormous antlers draped with what appeared to be dry marine algae.
 
 The thing was horrifying, but despite my churning stomach I felt compelled to take a few steps forward, to reach out my hands to touch it. I imagined my fingers caressing the smooth bones, cold and solid, so nice to grasp. I could lay down in the soft grass before it, under its watchful gaze. Yes, it watched, it would love to watch me, it would love to know me. René clamped his hands on my shoulders and I struggled against his powerful grip.  He turned me to face him, and lifted my face to his eyes.
 
@@ -202,15 +202,15 @@ I shook my head. He added two more words.
 
 “Trust me.”
 
-Did I trust him? Did it matter? He was probably right. The werewolf would be more likely to approach, or at least allow himself to be spotted if I were alone. 
+Did I trust him? Did it matter? He was probably right. The werewolf would be more likely to approach, or at least allow himself to be spotted if I were alone.
 
-I bit my lip and nodded. He gave me a reassuring smile and quicker than I could react he had darted away, disappearing into the trees. *Toughen up*, I told myself, repeating Martina’s words. 
+I bit my lip and nodded. He gave me a reassuring smile and quicker than I could react he had darted away, disappearing into the trees. *Toughen up*, I told myself, repeating Martina’s words.
 
-Heartened, I began to explore on my own, not too focused on avoiding sticks and paper and other things that crunched under my boots. I moved in the opposite direction from the clearing, towards the side of the island we had not visited before. After what felt like ages, the trees yielded to smaller shrubberies and I found myself staring at a lopsided log cabin, constructed in a very amateurish fashion. 
+Heartened, I began to explore on my own, not too focused on avoiding sticks and paper and other things that crunched under my boots. I moved in the opposite direction from the clearing, towards the side of the island we had not visited before. After what felt like ages, the trees yielded to smaller shrubberies and I found myself staring at a lopsided log cabin, constructed in a very amateurish fashion.
 
 *I guess this is where the guy lives*. Part of me wanted to simply go knock on the door, but I decided to go around the back instead. As I approached, I suddenly sensed something behind me, the feeling of eyes on the back of my head. *Must be* *René*, I thought, engaging in a bit of wishful thinking.
 
-I turned around. Behind me was the beast, the size of a grown man, its gangly limbs pressed down to the ground, as though ready to pounce. It glared at me with frenzied yellowed eyes and sharp teeth, the face was not as sleek as that of a wolf, but rather misshapen for an animal, the snout was longer, the teeth more jagged and haphazard. 
+I turned around. Behind me was the beast, the size of a grown man, its gangly limbs pressed down to the ground, as though ready to pounce. It glared at me with frenzied yellowed eyes and sharp teeth, the face was not as sleek as that of a wolf, but rather misshapen for an animal, the snout was longer, the teeth more jagged and haphazard.
 
 *If I run, I am dead*. I took a step backwards, raising my hands clutching the silver to a position in front of me.
 
@@ -218,15 +218,15 @@ The werewolf snarled at the glint of silver, almost emboldened. A low, guttural 
 
 René struck at the wolf’s face and bit down on its shoulder and the two struggled against each other, fighting ferociously. With a powerful kick, René finally flung the werewolf backwards, retrieved the silver chain from his pocket and wrapped it around the wolf’s neck with a hideous hiss.
 
-“René! Take these!”  I shouted, throwing him the bangles. He caught them with ease and pressed them into the flesh of its chest. The werewolf howled in agony, the animal sound rising into an ear-shattering crescendo before ceding to the screams of a human man. The claws had retracted into human hands.  
+“René! Take these!”  I shouted, throwing him the bangles. He caught them with ease and pressed them into the flesh of its chest. The werewolf howled in agony, the animal sound rising into an ear-shattering crescendo before ceding to the screams of a human man. The claws had retracted into human hands.
 
-I raced over to find that the beast was gone and in its stead was man in his mid-forties, with dark hair heavily streaked with gray. He was naked and writhing in agony under the silver, which clearly burned his flesh. The wounds that René had inflicted were raw and bleeding, though René had clearly avoided any major arteries. 
+I raced over to find that the beast was gone and in its stead was man in his mid-forties, with dark hair heavily streaked with gray. He was naked and writhing in agony under the silver, which clearly burned his flesh. The wounds that René had inflicted were raw and bleeding, though René had clearly avoided any major arteries.
 
 I turned to René who still glared at the man, fangs bared, panting. The lacerations inflicted by the werewolf had healed, but he was covered in blood from head to toe, newly acquired parka almost entirely shredded. I bent over to remove the silver, but his hand shot out to block me.
 
 “He’s no good to us dead,” I said.  “And that’s what he’ll be soon, by the looks of it, if we don’t remove the silver.”
 
-René’s predatory expression didn’t change, he continued to stare at the man’s bloodied wounds. 
+René’s predatory expression didn’t change, he continued to stare at the man’s bloodied wounds.
 
 “René!” I slapped him across the face, surprising both of us with my strength. He blinked and shook his head.
 
@@ -238,9 +238,9 @@ He pushed me back but I didn’t move.
 
 Before he could stop me, I aimed the hardest kick I could muster into the werewolf’s stomach.  The man’s moan was so pathetic, I almost felt bad about it. *Almost.* René grinned.
 
-“May I?” 
+“May I?”
 
-I nodded. He bent over and carefully removed the silver, taking some skin with it. The man cried out, promptly turning over and vomiting. 
+I nodded. He bent over and carefully removed the silver, taking some skin with it. The man cried out, promptly turning over and vomiting.
 
 “Can you do something to stop the bleeding?” I asked. René narrowed his eyes.
 
@@ -264,7 +264,7 @@ The man grunted and attempted to sit up.
 
 “No sudden movements, wolf, or I’ll put you back on your leash,” René said, brandishing the silver chain.
 
-“Relax, jackass, I’m too weak to shift,” the man croaked in a voice that sounded like it didn’t get much use. He was pale with blood loss, but otherwise seemed to be in good physical condition. His eyes appeared sad and haunted, dark circles underneath, a stark contrast to the fierce yellow stare of the beast he had been only moments before. He gestured to the ramshackle cabin. 
+“Relax, jackass, I’m too weak to shift,” the man croaked in a voice that sounded like it didn’t get much use. He was pale with blood loss, but otherwise seemed to be in good physical condition. His eyes appeared sad and haunted, dark circles underneath, a stark contrast to the fierce yellow stare of the beast he had been only moments before. He gestured to the ramshackle cabin.
 
 “You mind if I put some clothes on?”
 
@@ -292,9 +292,9 @@ At the sound of Martina’s name, the man blanched. He stood and began to pace.
 
 “Martina,” he repeated.
 
-“You killed a friend of hers.” 
+“You killed a friend of hers.”
 
-The werewolf stopped pacing and shook his head. He approached me in wonder and touched my auburn hair, haunted eyes wide and glistening. I felt René immediately behind me at my shoulder. 
+The werewolf stopped pacing and shook his head. He approached me in wonder and touched my auburn hair, haunted eyes wide and glistening. I felt René immediately behind me at my shoulder.
 
 “I remember you,” he whispered in a reverent hush. “Nora Calnon. Nora Calnon, I promise you I would never do anything to hurt Martina.”
 
@@ -309,3 +309,5 @@ Tears sprang to the man’s eyes.
 “My name?” He repeated. “My name is Jake Hubert.”
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)

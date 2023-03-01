@@ -201,3 +201,5 @@ He emerged with a full thermos, ready to talk. The night was clear and almost un
 [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/)
 
 [\[Part 9\]](https://www.reddit.com/r/nosleep/comments/11dnong/i_own_an_abandoned_motel_and_i_dont_think/)
+
+[\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)
