@@ -198,7 +198,7 @@ Only so much time remains.
 
 They’re here.  The worms that feast on light and leave only darkness in their wake.  They are here.  
 
-And they’re multiplying [quickly.](https://youtu.be/rumiJJyA2FM)
+And they’re multiplying [quickly.](https://youtu.be/sNZ63w3d8gk)
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
