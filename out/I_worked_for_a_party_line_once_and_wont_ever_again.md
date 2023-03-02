@@ -67,10 +67,10 @@ Once I got passed the recording segment, the system would start to play greeting
 
 
 
-That was a tame example. There was much worse that I had heard when I called in, That was why I was thankful for the 'block caller' feature which allowed me to block a caller for that session or indefinitely and I wouldn't have to listen to their sick recordings anymore. The demographic from the line was mostly middle aged 'professionals', that is, men that claimed to be lawyers, real estate investors, stock brokers, and such. There would sometimes be recordings that just sounded like someone moaning or listening to porn in the background. Yes. Very cringe. Despite all this, I did manage to connect with some pretty cool people on the line and did find that not everyone was looking for a phone quickie on their lunch break, which made it worth my time. We had already been advised to avoid greetings that sounded like the caller was already 'on the edge' because of the per minute rate. You always wanted to find a caller you could either talk down or seduce over time, whether the ultimate ending involved an orgasm or a promise to find you if they called in again in the future.
+That was a tame example. There was much worse that I had heard when I called in, That was why I was thankful for the 'block caller' feature which allowed me to block a caller for that session or indefinitely and I wouldn't have to listen to their sick recordings anymore. The demographic from the line was mostly middle aged 'professionals', that is, men that claimed to be lawyers, real estate investors, stock brokers, and such. There would sometimes be recordings that just sounded like someone moaning or listening to porn in the background. Yes. Very cringe. Despite all this, I did manage to connect with some pretty awesome people on the line and did find that not everyone was looking for a phone quickie on their lunch break, which made it worth my time. We had already been advised to avoid greetings that sounded like the caller was already 'on the edge' because of the per minute rate. You always wanted to find a caller you could either talk down or seduce over time, whether the ultimate ending involved an orgasm or a promise to find you if they called in again in the future.
 
 
-The cool thing about the line was that I didn't have people calling me through a VOIP or something that masked and rerouted the call. Everyone was connected on the line by pressing a button. If you didn't want to be on the line anymore, you hung up. If you just didn't want to talk to someone and were stuck in a conversation with them, you could hit the asterisk button (star) and return to the main menu recording, so I was only available to receive connection requests when I wanted to be, never 'on call.'
+The other cool thing about the line was that I didn't have people calling me through a VOIP or something that masked and rerouted the call. Everyone was connected on the line by pressing a button. If you didn't want to be on the line anymore, you hung up. If you just didn't want to talk to someone and were stuck in a conversation with them, you could hit the asterisk button (star) and return to the main menu recording, so I was only available to receive connection requests when I wanted to be, never 'on call.'
 
 
 
@@ -82,11 +82,11 @@ There was one party room that I found myself dialing into every chance I got. I 
 
 
 
-One night after I had been a regular to the party line and that room for a couple months, Zeke and I were the only ones on the line and it was about one thirty in the morning. Zeke had brought up the topic of ghosts and hauntings, telling me some paranormal experiences he had had. He didn't know that my solo work and main focus was based around the creation of customized and personalized ritual and divination tools, such as runes, carved crystals, and such. Once I told them this, he got really excited, as it turned out, his wife was a practicing Wiccan. We talked about her beliefs and practices for some time, but I'm not sure at what point we started down the road of discussing curses in lieu of hauntings and the occult. 
+One night after I had been a regular to the party line and that room for a couple months, Zeke and I were the only ones on the line and it was about one thirty in the morning. Zeke had brought up the topic of ghosts and hauntings, telling me some paranormal experiences he had had. He didn't know that my solo work and main focus had been based around the creation of customized and personalized ritual and divination tools, such as runes, carved crystals, and such. Once I told him this, he got really excited, as it turned out, his wife was a practicing Wiccan. We talked about her beliefs and practices for some time, but I'm not sure at what point we started down the road of discussing curses in lieu of hauntings and the occult. 
 
 
 
-"Did you know that these party rooms were actually a feature in this line years ago?"
+"Did you know that these party rooms were actually a feature on this line years ago?"
 
 
 
@@ -98,11 +98,11 @@ He said and that surprised me. The feature didn't open up to me until a month or
 
 
 
-Zeke explained. He had my interest and curiosity piqued. I was sitting there listening to him clothing my coffee mug until my knuckles turned white waiting to see what all happened. 
+Zeke explained. He had my interest and curiosity piqued. I was sitting there, listening to him, clutching my coffee mug until my knuckles turned white, waiting to hear what all happened. 
 
 
 
-"This group was one of the first dark web kidnapping rings. They would find their victims on the main line. Someone would listen to greetings and find a girl they thought would be good to go and they would tell her the pin to their chat room, 000343. I'm not sure the name of the room exactly. I tried to look for it when they came back online but I haven't found one that fits. They would somehow get these girls to blab their real names and locations. Who knows how. Someone would allegedly show up at their house and kidnap them right out of their beds to participate in some fucked up rich people games. The company that owns this line caught on I think before the FBI did and shut down chat rooms before they could be held liable,"
+"This group was one of the first dark web kidnapping rings. They would find their victims on the main line. Someone would listen to greetings and find a girl they thought would be good to go and they would tell her the pin to their chat room, 000343. I'm not sure the name of the room exactly. I tried to look for it when they came back online but I haven't found one that fits. They would somehow get these girls to blab their real names and locations. Who knows how. Someone would allegedly show up at their house and kidnap them right out of their beds to participate in some fucked up rich people games. The company that owns this line caught on, I think before the FBI did, and shut down chat rooms before they could be held liable,"
 
 
 
@@ -114,7 +114,7 @@ Zeke explained. He had my interest and curiosity piqued. I was sitting there lis
 
 
 
-That didn't help my already overactive imagination. Once we got off the line that night, I crawled into bed with my boyfriend and I knew I wasn't going to be able to fall asleep. The adrenaline of an interesting subject was running through my veins. My mind was churning out scenarios that would easily become the plot of a nightmare in the future. As I laid there, staring up at the ceiling, my eyes following the shadows made by our little night light plugged into the wall, I thought I heard something like a vibration coming from where I plugged my phone in on my dresser. Every night before I logged into the chat line I would put my phone on 'do not disturb' before calling in so that notifications or random calls wouldn't cut me off or interfere. My phone shouldn't have been making any sound at all, not even a vibration, until nine o'clock in the morning. The more I ignored it, the louder and more annoying the sound became. Finally, I threw the blanket off of my body and swing my feet around to slide off the bed, padding quietly over to my phone. My boyfriend was snoring so loudly that there was no way that he heard my phone going off at all. When I looked at it, the screen was unlocked and I had a new text message from 'Unknown.'
+That didn't help my already overactive imagination. Once we got off the line that night, I crawled into bed with my boyfriend and I knew I wasn't going to be able to fall asleep. The adrenaline of an interesting subject was running through my veins. My mind was churning out scenarios that would easily become the plot of a nightmare in the future. As I laid there, staring up at the ceiling, my eyes following the shadows made by our little night light plugged into the wall, I thought I heard something like a vibration coming from where I plugged my phone in on my dresser. Every night before I logged into the chat line I would put my phone on 'do not disturb' before calling in so that notifications or random calls wouldn't cut me off or interfere. My phone shouldn't have been making any sound at all, not even a vibration, until nine o'clock in the morning. The more I ignored it, the louder and more annoying the sound became. Finally, I threw the blanket off of my body and swung my feet around to slide off the bed, padding quietly over to my phone. My boyfriend was snoring so loudly that there was no way that he heard my phone going off at all. When I looked at it, the screen was unlocked and I had a new text message from 'Unknown.'
 
 
 
@@ -130,11 +130,11 @@ The second my phone hit the ground, the touch screen cracked. I cursed the cheap
 
 
 
-At first, nothing showed in the results. The matches that were pulled weren't accurate to the exact number, but, weirdly, when I scrolled through the results the website that I had been working for on their party line platform popped up. They had a list of VOIP numbers that talkers could call in if the main lines had too much traffic or wouldn't let them connect. The number that was listed under the 'unknown' ID tag was one of those VOIP numbers, which was weird. I knew that the line was established decades before the internet was a widespread thing. It was highly unlikely that those numbers had any kind of SMS / MMS capability, but I wasn't a technical genius or anything. Had one of them been hacked to pull off some kind of elaborate prank on the talkers? 
+At first, nothing showed in the results. The matches that were pulled weren't accurate to the exact number, but, weirdly, when I scrolled through the results the website that I had been working for on their party line platform popped up. They had a list of VOIP numbers that talkers could call in if the main lines had too much traffic or wouldn't let them connect. The number that was listed under the 'unknown' ID tag was one of those VOIP numbers, which was odd. I knew that the line was established decades before the internet was a widespread thing. It was highly unlikely that those numbers had any kind of SMS / MMS capability, but I wasn't a technical genius or anything. Had one of them been hacked to pull off some kind of elaborate prank on the talkers? 
 
 
 
-Confused, I then typed in '000343' into the search box. The first result was a zip code. Other results referenced everything from UPCs to HTML color codes. It then occurred to me. 
+Confused, I then typed in '000343' into the search box. The first result was a zip code. Other results referenced everything from UPCs to HTML color codes. It then occurred to me..
 
 
 
@@ -142,7 +142,7 @@ When I created my pin numbers, I often looked at my phone keypad and came up wit
 
 
 
-The uneasy feeling I had when I received the text message had grown and festered. It was nearing 3 AM and I didn't want to wake my boyfriend up, especially if I was just being silly. I had already told him about what I had been doing to earn extra cash and he was wary of it. I didn't want him to have any ammunition to talk me out of it entirely. I found the call in number for the chat line in my contacts and dialed in, signing in with my login and pin number. I went onto the party room line in search of Zeke's room, but it wasn't in the line up after listening to them all the way through. I sighed, returning to the main line to listen to greetings. I just wanted to take my mind off of whatever spooky nonsense was happening and maybe get some sleep at some point before the sun came up. 
+The uneasy feeling I had when I received the text message had grown and festered. It was nearing 3 AM and I didn't want to wake my boyfriend up, especially if I was just being silly. I had already told him about what I had been doing to earn extra cash and he was wary of it. I didn't want him to have any ammunition to talk me out of it entirely. I found the call in number for the chat line in my contacts and dialed in, signing in with my login and pin number. I went onto the party room line in search of Zeke's room, but it wasn't live on the line up after listening to them all the way through. I sighed, returning to the main line to listen to greetings. I just wanted to take my mind off of whatever spooky nonsense was happening and maybe get some sleep at some point before the sun came up. 
 
 
 
@@ -150,7 +150,7 @@ Unsurprisingly, there was no shortage of creeps and perverts on the line at that
 
 
 
-The noise seemed to go on and on without end even though the recording had to be under forty seconds per the platform's restrictions. Every muscle in my body was tense. It reminded me when I stupidly used a taser on myself as a kid just because I was curious as to what it felt like. In my mind's eye, I imagined that my heart would also tense up and stop beating. I could feel the sweat beading under my hairline, dripping down my forehead, blurting my eyes, and splashing onto the phone screen in my head. Whether it was my tired eyes or the cracked corner of the screen that was causing it, the display was going in and out, the backlight strobing with it. I could see colorful lines appear across the call timer and number display. My mouth was dry, but all I could do was gulp air as I tried desperately to end the call or even just remove my headset. I was willing to toss my phone in the garbage disposal if I had to at this point. If the noise continued, I thought my ear drums would burst. 
+The noise seemed to go on and on without end even though the recording had to be under forty seconds per the platform's restrictions. Every muscle in my body was tense. It reminded me when I stupidly used a taser on myself as a kid just because I was curious as to what it felt like. In my mind's eye, I imagined that my heart would also tense up and stop beating. I could feel the sweat beading under my hairline, dripping down my forehead, blurring my eyes, and splashing onto the phone screen in my head. Whether it was my tired eyes or the cracked corner of the screen that was causing it, the display was going in and out, the backlight strobing with it. I could see colorful lines appear across the call timer and number display. My mouth was dry, but all I could do was gulp air as I tried desperately to end the call or even just remove my headset. I was willing to toss my phone in the garbage disposal if I had to at this point. If the noise continued, I thought my ear drums would burst. 
 
 
 
@@ -162,7 +162,7 @@ Finally, the noise seemed to cease entirely with a static 'whoosh'. After a paus
 
 
 
-I knew I didn't have a choice. As soon as the message ended, my phone beeped as if I had hit a button on the screen and I was propelled to the main menu where I could only listen as the 'Party Room' option was selected from the menu and the titles and greetings played for each of the rooms that were live until that same voice declared that the live room 'The Blue Room ' was looking for players. I watched in horror as the number '1' was pressed on my keypad to join and then '000343' when prompted for the passcode. Once connected to the room, all I heard was the same noise that I heard on the greeting in the live greetings lobby. Trying to fight whatever had control over me was futile, I knew now. I could feel tears welling up in the corners of my tired eyes and streaming down my cheeks, wetting the phone screen, mixing with the sweat of my terror. I opened my mouth. I didn't want to, but I did. 
+I knew I didn't have a choice. As soon as the message ended, my phone beeped as if I had hit a button on the screen and I was propelled to the main menu where I could only listen as the 'Party Room' option was selected from the menu and the titles and greetings played for each of the rooms that were live until that same voice declared that the live room 'The Blue Room ' was looking for talkers. I watched in horror as the number '1' was pressed on my keypad to join and then '000343' when prompted for the passcode. Once connected to the room, all I heard was the same noise that I heard on the greeting in the live greetings lobby. Trying to fight whatever had control over me was futile, I knew now. I could feel tears welling up in the corners of my tired eyes and streaming down my cheeks, wetting the phone screen, mixing with the sweat of my terror. I opened my mouth. I didn't want to, but I did. 
 
 
 
@@ -178,19 +178,19 @@ I could feel the words starting to form. I knew what I was going to say. In my m
 
 
 
-My boyfriend was standing in the hall that led out into the living room with his arms crossed around his chest and tucked under his armpits. His presence must have broken the possession or the spell that had been cast on me because when he got my attention, I was able to hit the 'End Call' button and take my headset off my head. I had no words to tell him what was about to happen and what had already happened. I was lucky that I wasn't compelled to do something much worse than what was about to happen and I can't imagine what would happen if I had given my personal information to whatever was on the other end of that line. 
+My boyfriend was standing in the hall that led out into the living room with his arms crossed around his chest and tucked under his armpits. His presence must have broken the possession or the spell that had been cast on me because when he got my attention, I was able to hit the 'End Call' button and take my headset off my head. I had no words to tell him what was about to happen and what had already happened. I was lucky that I wasn't compelled to do something much worse than what was about to happen and I can't imagine what would have happened if I had given my personal information to whatever or whomever was on the other end of that line. 
 
 
 
-After that night, I stopped calling in to the line that much, cutting my online time down to a couple days a week, if that, and finding other ways to make extra cash if we needed it rather than put in more time. I didn't tell Zeke or anyone about what had almost happened and I never called in at or after 3 AM anymore. 
+After that night, I stopped calling in to the line that much, cutting my online time down to a couple days a week, if that, and finding other ways to make extra cash if we needed it rather than put in more time. I didn't tell Zeke or anyone about what had almost happened and I never called in at, or after, 3 AM anymore. 
 
 
 
-It would be several weeks before I caught a news story in passing about a raid on what was thought to be an abandoned factory just outside of the metropolitan area where I live that contained the bodies of several young women that had been missing since 1999. The FBI reported finding both wireless receivers and burner phones taped or tied to their hands along with sigils and occult symbols painted on the walls and tattooed or carved into the bodies of the girls. They never mentioned catching anyone they believed to be a suspect and none of the young women were recovered alive. 
+It would be several weeks before I caught a news story in passing about a raid on what was thought to be an abandoned factory just outside of the metropolitan area, only a half an hour drive from where I live, that contained the bodies of several young women that had been missing since 1999. The FBI reported finding both wireless receivers and burner phones taped or tied to their hands along with sigils and occult symbols painted on the walls and tattooed or carved into the bodies of the girls. They never mentioned catching anyone they believed to be a suspect and none of the young women were recovered alive. 
 
 
 
- Shortly thereafter, I received my last deposit from the chat line, along with an email claiming they weren't making enough money in the new 'digital era' to stay afloat financially and there was too much competition with similar, but free to try,  platforms. I don't know if the platform was directly involved in the strange operation that was uncovered at that site, but I'm certain that what the FBI uncovered would have linked them to it some how. I wish I could find out if the phones in the hands of the victims had an outgoing call history or if one had sent me that text I received that night. 
+ Shortly thereafter, I received my last deposit from the chat line, along with an email claiming they weren't making enough money in the new 'digital era' to stay afloat financially and there was too much competition with similar, but free to try,  platforms. I don't know if the platform was directly involved in the strange operation that was uncovered at that site, but I'm certain that what the FBI uncovered would have linked them to it somehow if they dug deep enough. I wish I could find out if the phones in the hands of the victims had an outgoing call history or if one had sent me that text I received that night. 
 
 
 
