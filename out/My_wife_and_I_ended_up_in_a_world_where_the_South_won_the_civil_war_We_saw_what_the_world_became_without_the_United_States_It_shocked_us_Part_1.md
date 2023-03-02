@@ -1,6 +1,8 @@
 Every time I close my eyes, I’m transported back to that fateful summer. The events that unfolded seemed like a never-ending nightmare, and the scars they left behind are still raw. But I’ve made it back home, and after much reflection and contemplation, I know that the story needs to be told. Maybe it’s a way for me to come to terms with what happened, or perhaps it’s to warn others of the horrors that can lurk in the shadows—and sometimes even in the light of day.  Whatever the reason, I’m ready to share it now.
 
 \*\*\*  
+
+
 We were driving on Route 1, the sun shining down on us as we made our way toward Richmond, Virginia for our honeymoon. Shanice was behind the wheel, her hand intertwined with mine, and I couldn’t help but smile at how lucky I was to have her as my wife. It had been a long trip, and we were both tired from the wedding. We couldn’t wait to check in at the hotel and finally start our life together. It had been a long journey to get to this point in our lives, as we had faced many challenges and obstacles along the way, but we had always stuck together, supporting each other through thick and thin. Shanice looked at me, exhausted but still as beautiful as ever.
 
 *Here Comes The Sun* by The Beatles played on the radio and as the sun continued to shine down on us, we sang along to the lyrics, feeling grateful for the love and joy that surrounded us. The scenery passing by was breathtaking and I took it all in, realizing how truly blessed we were to have each other and this moment. As we neared our destination, excitement built up inside us. We looked forward to the adventures and memories we were about to create. I had never felt more at peace. Then something interrupted that peace.
@@ -229,7 +231,8 @@ He then shot at the lock, and the doors swung open. We were pulled out of the ve
 
 “Go!” one of them said. “Go, go, go!”
 
-They rushed us to another vehicle. Shanice stopped in her tracks. At first, I thought it was because of the dead bodies on the road, but then she quickly entered their truck and came out with a cotton bag with the word “EVIDENCE” written on it. It contained our personal belongings. The two men yelled for us to hurry up. Just before I jumped into their car, I noticed Richmond in the distance. The city was unrecognizable from what I remembered. Gleaming white marble buildings towered over the landscape, adorned with grandiose statues and flags bearing the emblem of the Confederacy. At that moment I knew… Shanice had been right all along. This was another Earth.  
+They rushed us to another vehicle. Shanice stopped in her tracks. At first, I thought it was because of the dead bodies on the road, but then she quickly entered their truck and came out with a cotton bag with the word “EVIDENCE” written on it. It contained our personal belongings. The two men yelled for us to hurry up. Just before I jumped into their car, I noticed Richmond in the distance. The city was unrecognizable from what I remembered. Gleaming white marble buildings towered over the landscape, adorned with grandiose statues and flags bearing the emblem of the Confederacy. At that moment I knew… Shanice had been right all along. This was another Earth.
 
+[PART 2](https://www.reddit.com/r/nosleep/comments/11ftr72/my_wife_and_i_ended_up_in_a_world_where_the_south/)
 
 [X](https://www.reddit.com/r/tobiasmalm/comments/112r4le/i_just_released_my_novel_the_cave_to_another/)
