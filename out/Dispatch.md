@@ -20,17 +20,17 @@ What the hell?
 
 Them:
 
-We intervened in the code so you could see the truth: that Elated has an AI clone of you on their servers.
+*We intervened in the code so you could see the truth: that Elated has an AI clone of you on their servers.*
 
-They never solved the latency problem, but they learned that decisions can be precisely predicted. So they bought all the data they could and used it to make AI clones of their entire player base.
+*They never solved the latency problem, but they learned that decisions can be precisely predicted. So they bought all the data they could and used it to make AI clones of their entire player base.*
 
-It feels like you’re playing; making those choices. You’re actually just watching an AI clone of you playing against other AI clones. Cheaper and easier than optimizing latency.
+*It feels like you’re playing; making those choices. You’re actually just watching an AI clone of you playing against other AI clones. Cheaper and easier than optimizing latency.*
 
-With all that data plugged in, these AIs make the same decision as you at the same moment – the direction you’ll walk, when you’ll shoot, what you’ll say.
+*With all that data plugged in, these AIs make the same decision as you at the same moment – the direction you’ll walk, when you’ll shoot, what you’ll say.*
 
 I reply:
 
-Is this a prank?
+*Is this a prank?*
 
 No reply. The weirdness of it all takes me out of myself. I log off, have a drink, go to sleep.
 

@@ -300,3 +300,7 @@ We take turns tending to each other’s wounds, too high and exhausted to even c
 The sign in the distance is massive, and flashes in outdated gaudy red neon, illuminating what looks to be a dive bar the size of a small town. 
 
 “The End Of The Line” it reads,  and we all manage an exhausted cheer at it’s promise.
+
+Link to part 5
+
+https://www.reddit.com/r/nosleep/comments/11fv2lp/the_big_rock_candy_mountain_part_5/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
