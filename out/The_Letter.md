@@ -100,8 +100,20 @@ This is probably some kind of joke. I was about to rip it up, but I wanted to se
 
 "Yusuf it is past your bedtime," I called out to him.
 
-"Coming dad," he replied. I changed into my pajamas and tucked myself in. The next day at around 7:00 AM, I woke up and remembered last night. I was about to dial the number again until I glanced at my nightstand. The alarm clock and dollar bill were back in its place, but there was no sign of the letter. I looked at my bed, my wife wasn't there anymore. I went to Yusuf's room, he wasn't there anymore. I scurried downstairs and looked everywhere. They were nowhere to be found. I looked out the garage window, my BMW was gone. Finally, I looked out the living room window and there was a man standing in my front yard looking straight at me. He slowly picked up his cellphone and called me. I slowly picked up the phone.
+"Coming dad," he replied. I changed into my pajamas and tucked myself in. The next day at around 7:00 AM, I woke up and remembered last night. I was about to dial the number again until I glanced at my nightstand. The alarm clock and dollar bill were back in its place, but there was no sign of the letter. Luckily, I had the number listed in my recent calls. I called the number.
+
+"Hello," he said.
+
+"Hey," I replied.
+
+"Why is the alarm clock and dollar bill back in its place?"
+
+"Are you ready ask for something you really want to disappear?" he replied
+
+"Ok," I said.
+
+"I want my co-worker Fred to disappear." Fred was my least favorite co-worker. He was very sassy and loved to brag. That's when all of a sudden, the phone hung up. I looked at my bed, my wife wasn't there anymore. I went to Yusuf's room; he wasn't there anymore. I scurried downstairs and looked everywhere. They were nowhere to be found. I looked out the garage window, my BMW was gone. Finally, I looked out the living room window and there was Fred standing in my front yard looking straight at me. He slowly picked up his cellphone and called me. To my horror, it was the same number of the eerie voice guy. How did I not recognize his voice? I slowly picked up the phone.
 
 "He- hello?" I spoke.
 
-"You had your chance," he said in his eerie voice and then hung up. He morphed into a shadow that came straight towards me. He held out his hand with 10 sharp claws pointing at me on the other side of the window. I watched in horror as he somehow shot them out of his hand, through the glass like a bullet and straight into my neck. Everything went black all of a sudden. I woke up in a confined space. It is pitch black. My only source of light is my phone which I am lucky to have right now. I've tried calling for help but the location is impossible to trace. I am currently typing this from my phone, and I hear creeping footsteps every minute or so getting closer and closer. I doubt that I will make it out alive but wish me luck.
+"You wanted me to disappear?" he said in his eerie voice and then hung up. He morphed into a shadow that came straight towards me. He held out his hand with 10 sharp claws pointing at me on the other side of the window. I watched in horror as he somehow shot them out of his hand, through the glass like a bullet and straight into my neck. Everything went black all of a sudden. I woke up in a confined space. It is pitch black. My only source of light is my phone which I am lucky to have right now. I've tried calling for help but the location is impossible to trace. I am currently typing this from my phone, and I hear creeping footsteps every minute or so getting closer and closer. I doubt that I will make it out alive but wish me luck.
