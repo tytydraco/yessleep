@@ -153,3 +153,5 @@ It was my father’s face, Kyle’s grandpa we’d just seen over the holidays. 
 Kyle’s hand raised, and he placed it on the window lock. 
 
 “That’s it,” the creature said. “Good boy. Let me in.”
+
+[Final Part](https://old.reddit.com/r/nosleep/comments/11h28az/palisade_gardens_is_a_beautiful_place_to_live/?)
