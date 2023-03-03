@@ -104,7 +104,7 @@ On the way back, a dog started following me.
 
 \-If I take my skin off I die, stupid dog.
 
-\-Hey! Where did this gratuitous swearing come from? I'm her being nice and you curse me. Then you still complain that others mistreat you.
+\-Hey! Where did this gratuitous swearing come from? I'm being nice and you curse me. Then you still complain that others mistreat you.
 
 \-No human cursed me, only that spider.
 
@@ -132,7 +132,7 @@ I closed my eyes again, I don't know how long I stayed there like that. I opened
 
 I left the bathroom and lay down on the bed. The drug's effect seemed to wear off a bit, and with it the anxiety and despair I was feeling subsided to an acceptable level. Lying in bed, I heard the bathroom door move, and footsteps of wet feet in contact with the floor getting louder and louder. The door to my room opened, and I saw the girl walking in slowly. She then lay down next to me on the bed, and stared at me with that grotesquely open mouth and those empty eyes. I turned to the other side and closed my eyes. I felt a chill on the back of my neck, like she was running her fingers through my hair. Even aware that what was happening was the effect of the drugs I used, I didn't have the courage to open my eyes again or to turn towards that figure lying beside me. I stayed in that position for more than an hour, uncomfortably lying there with my eyes closed even though I wasn't very sleepy, and unable to move to stretch my muscles a little. Eventually I managed to fall asleep after an hour of distress. 
 
-The next day, I went to the kitchen to make some coffee, my head exploding with a hangover. I drank a liter of water, the thirst was unbearable. I turned on the computer, put on something to watch and lay down on the bed. I felt something on my arm, when I checked what it was, I noticed that strangely there were strands of long black hair in my bed, even though I live alone and have short hair.
+The next day, I went to the kitchen to make some coffee, my head exploding with a hangover. I drank a liter of water, the thirst was unbearable. I turned on the computer, put on something to watch and lay down on the bed. I felt something on my arm, when I checked what it was, I noticed that, strangely, there were strands of long black hair in my bed, even though I live alone and have short hair.
 
 Hours later, as I left the house, I noticed that the dogs in the neighborhood were crowding around. Even weirder, they started following me the 3-block walk to the bakery, waiting for me at the door, and following me home. They barked friendly as I walked, and stood at my gate as I entered the house.
 

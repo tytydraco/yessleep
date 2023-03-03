@@ -24,15 +24,4 @@ Now let me describe how it looked. It was absolutely hideous. It had a bald head
 
 It also scratched me and it bleeding really bad so im going to the hospital after this. Inky was unharmed thankfully.
 
-I’ll update you if something happens.
-
-
-
-
-
-
-
-
-
-This was my first story on Reddit and I tried to make the typing seem rushed and panicked so sorry about the misspelling.
-By the way this is completely fictional, not real in ANY way.
+I’ll update you if anything happens.
