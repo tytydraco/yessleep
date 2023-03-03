@@ -91,13 +91,13 @@ The entire room seemed to darken, the air got colder. I had goosebumps popping u
 
 “What do you mean? What’s gonna happen?” I asked, my voice began to crack, full of fear and apprehension. 
 
-He laughed like an evil cartoon villain, only it was extremely horrifying and full of malice. “I can’t tell you all that, but you’ll know when it happens. It’ll be very obvious.”
+He laughed like an evil cartoon villain, only it was extremely evil,  horrifyingly vile, and full of malice. “I can’t tell you all that, but you’ll know when it happens. It’ll be very obvious.”
 
 “Why?” I sobbed quietly to myself, and my body became racked with sheer horror and anxiety. 
 
 He continued to laugh. His voice turned even deeper and more acidic, taunting me demonically, “Knowing you can’t do anything to stop it. Knowing you’ll just have to sit back and watch. Having this hanging over your head brings me an unexplainable pleasure.” 
 
-I was at a loss for words, and I just sat there trembling uncontrollably. I could already feel the stress and anxiety creeping up in my stomach. This was the most recent interaction with the evil, Hat Man. So for now I’m just going to be checking the news each day, waiting to see if his dark prediction comes true. I really hope he stays away this time, but I don’t think I would ever be so lucky. 
+I was at a loss for words, and I just sat there trembling uncontrollably. I could already feel the stress and anxiety creeping up in my stomach. This was the most recent interaction with the evil, Hat Man. So, for now I’m just going to be checking the news each day, waiting to see if his dark prediction comes true. I really hope he stays away this time, but I don’t think I would ever be so lucky. 
 
 Until next time, I hope you enjoyed reading about my ongoing encounters with the Hat Man.
 
