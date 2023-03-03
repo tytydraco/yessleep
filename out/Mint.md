@@ -75,3 +75,30 @@ My sister, Janice, was to the right of me, posed in a prayer, eyes focused on th
 Aunt Mary, cousin Chaz, grandma and grandpa all resided here. 
 
 But these weren't their bodies. They were shiny, robotic, mint condition.
+
+
+"You know I can explain."
+
+"Can you?" I gasped, unmoving as i lock dead eyes with my father.
+
+"Some things have to be done for the greater good, Arielle." She takes a step towards me, and I take a step back. It's like being face to face with an intruder.
+
+"Oh."
+
+"Can we sit? Please, let me talk to you, darling." My mother croons, reaching out to me as my arm instinctively twitches back.
+
+"Don't touch me." I whispered, almost begging as she encroached on my space, eyes ever so dark, with a small smile playing on her lips. "Who are you?"
+
+"Arielle?" She repeats, lowering her head as her strides get bigger, slowly backing me into Aunt Mary.
+
+I had to get out of here. There was no telling what she would do to me.
+
+"Arielle." She growls, I grasp at my pocket, fumbling for my phone. Did I drop it? "Come here, darling."
+
+Fuck, where was my phone?
+
+She ebbed even closer, threatening me with soft taunts, she knew I would be trapped. "Ok."
+
+I agreed. I needed to buy myself more time so I could find a phone and get out of here. She visibly relaxed and smiled, standing up straight and fixing her hair. "Let's talk."
+
+Without a word she stepped to the side, extending her arm as a courtesy. I swallowed my fear and walked past her, careful not to notice the subtle agonal breathing coming from the walls behind me.
