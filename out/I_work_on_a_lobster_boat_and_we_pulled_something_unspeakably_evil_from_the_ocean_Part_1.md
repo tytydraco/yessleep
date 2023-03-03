@@ -1,6 +1,7 @@
-This all happened to me and I’m writing it down so it doesn’t happen to you. Maybe these things are immutable, unable to be changed once events are set in motion. So perhaps  I’m telling you not as a service, but as a way to excuse myself for what I’ve done, and what I’m about to do.   
+This all happened to me and I’m writing it down so it doesn’t happen to you. Maybe these things are immutable, unable to be changed once events are set in motion. So perhaps  I’m telling you not as a service, but as a way to excuse myself for what I’ve done, and what I’m about to do.       
 
-I never believed in evil. I believed in right and wrong, of good and bad. But evil? That was a concept that evoked thoughts of religion, the Bible, and sin. Maybe if I’d believed in evil, I wouldn’t have got myself into all of this.  
+
+I never believed in evil. I believed in right and wrong, of good and bad. But evil? That was a concept that evoked thoughts of religion, the Bible, and sin. Maybe if I’d believed in evil, I wouldn’t have got myself into all of this.      
 
 It's hard to get a job when you're just out of jail. I needed money to feed my habit so I'd taken to breaking into seasonal camps around Sebago Lake, scrounging for anything I could pawn for fifteen cents on the dollar.  
 
@@ -18,7 +19,7 @@ I could have done hard labor jobs, demo or something of that nature, which my PO
 
 But I'd have run back to the needle in short order if I had to listen to the job site banter of twenty-something men arguing about the Red Sox pitching staff or their armchair political takes fed by whatever the Facebook algorithm decided to put in front of them while they bided their time until their old lady went to bed and they could migrate to PornHub.
 
-Before I had to go that route, I ran into Billy Mac in the Old Port Tavern one night, soon after I was out early for being a good girl. He was out celebrating his birthday. I knew him from when we went to elementary school together out on Peaks Island, where we'd grown up. But he'd gone to the voke in Portland for high school and my mother had moved us to SoPo. That's what we called South Portland, a mocking attempt to class something up that isn't classy, like pronouncing Target like it's French. Tar-jay.
+Before I had to go that route, I ran into Billy Mac in the Old Port Tavern one night, soon after I was out early for being a good girl. He was out celebrating his birthday. I knew him from when we went to elementary school together out on Peaks Island, where we'd grown up. But he'd gone to the voke in Portland for high school and my mother had moved us to SoPo. That's what we called South Portland, a mocking attempt to class something up that isn't classy, like pronouncing Target like it's French. *Tar-jay.*
 
 He looked the same. Ferret-like, I’d always thought. A wisp of a mustache on his upper lip, even now just north of thirty. He tried to take me home because he was drunk and didn't get the message that I fished off a different pier, if you'll pardon the applicable metaphor. If  I was going to be interested in a guy, it probably wouldn't be one in Carharts and a Fox Racing hat who smelled like he'd dove headfirst into a vat of Fireball.
 
@@ -26,7 +27,7 @@ But I didn't tell him that because it was good to see him. Seeing people from si
 
 We got around to what I'd been up to and I was feeling loosened up from a few Allen’s Coffee Brandy’s with milk. (Known locally as “Bitch Whiskey” “Fat Ass In a Glass” or even “Lewiston Panty Droppers” which makes me chuckle. If you know, you know.) Drugs had always been my problem, and I could still handle my booze in the sense that I didn’t need to drink. 
 
-Counselors advise heavily against that, but the teetotaling thing never worked for me.  I spilled my guts to Billy before I spilled them in the bathroom toilet shortly before closing time. I told him of my plight and he told me that his father had a spot open on his lobster boat, the Mother Machree.  I barely gave it half a thought before saying yes.
+Counselors advise heavily against that, but the teetotaling thing never worked for me.  I spilled my guts to Billy before I spilled them in the bathroom toilet shortly before closing time. I told him of my plight and he told me that his father had a spot open on his lobster boat, the *Mother Machree.*  I barely gave it half a thought before saying yes.
 
 The summer months were hardly like a job. I didn’t sleep much, but I never did anyway. The three of us would steam out of Portland Harbor in Big Mac’s (I know) 45-foot Osmond Beal at about a quarter to four in the morning, past Fort Gorges. As the sky lightened, we’d give a nod to the old World War II Battery Steele on Peaks where we played as kids. As we charged across Casco Bay, gulls trailed our wake, waiting for us to break out the bait so they could poach some breakfast.
 
@@ -101,8 +102,8 @@ As a few flakes of wet snow began to pelt me in the face I heard Billy whistling
 
 I didn’t know if it was an old sea shanty or an Irish drinking song but it’s called “Fiddler’s Green.”  (I Shazam’d it one time) As Billy whistled, I didn’t find myself annoyed, so much as haunted as I recalled one of the lines from the song:
 
-Now Fiddler's Green is a place I've heard tell
-Where fishermen go if they don't go to hell
+*Now Fiddler's Green is a place I've heard tell    
+Where fishermen go if they don't go to hell*
 
 This unease stayed with me and I couldn’t shake it. As the storm pushed further to the Northeast than was forecast and we tried to outrun it, I was slipping into a daze and nearly missed it.
 
@@ -240,6 +241,3 @@ Slowly, I stepped out of the wheelhouse and looked to my left. The snow came at 
 The metal arm that had smashed the window was swung out over the water.  From it, hung Billy Machree, by his belt. 
 
 He swayed in the wind, the tips of his boots beating on the side of the hull with a tunk tunk tunk.
-
-
-To be continued.
