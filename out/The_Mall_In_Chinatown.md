@@ -12,7 +12,7 @@ The masked guy said something menacing in Chinese, and he started chasing me, wh
 
 About 10 minutes later, the mall speakers glitched, and they started playing a scary sounding lullaby. I actually recognized the lullaby, as it was from one of my brother’s toys from when he was a baby. 
 
-Suddenly, the masked guy managed to find me, and I ran in terror. This time, I noticed that he didn’t have his knife, however he was a lot faster, and he managed to catch me. He attacked me several times, and gave me a few small scars. Thankfully, I managed to survive his wrath, and knocked him out for a few minutes. I ran for about an hour, trying to avoid the masked guy while also trying to find a way to escape the mall, but all the front entrances were locked, so I tried the back exit.
+Suddenly, the masked guy managed to find me, and I ran in terror. This time, I noticed that he didn’t have his knife, however he was a lot faster, and he managed to catch me. He attacked me several times, and gave me a few small scars. He also kept speaking in Chinese in a menacing tone. Thankfully, I managed to survive his wrath, and knocked him out for a few minutes by kicking him. I ran for about an hour, trying to avoid the masked guy while also trying to find a way to escape the mall, but all the front entrances were locked, so I tried the back exit.
 
 Suddenly, the lullaby stopped, so it was just complete silence except for my footsteps.
 

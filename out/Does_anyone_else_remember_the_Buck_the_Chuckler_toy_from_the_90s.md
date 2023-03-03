@@ -12,7 +12,7 @@ Lucy jabbed him in his ribcage with two furious fingers, casting a disparaging g
 
 My face lit up. “You know… He just *might*! I don’t remember what my parents did with him, but I know that a lot of my childhood belongings are in the attic.”
 
-It was as I hurried upstairs, drowning out the ruckus of my friends chanting, ‘Show us Buck’, that I started to recall long-repressed events from my youth. I tugged at the cord for the attic ladder, sifting through my corrupted memory banks for reliable information.
+It was as I hurried upstairs, drowning out the ruckus of my friends chanting, ‘Show us Buck’, that I started to recall long-repressed events from my youth. I tugged at the cord for the attic ladder, sifting through my corrupted memory bank for reliable information.
 
 My eighth birthday party was a traumatic event — so effectively suppressed that my parents, for my sake, have never mentioned it since. But pieces of that fateful sleepover returned to my mind as I reached the top of the ladder, peering into the blackened mouth of the attic.
 
