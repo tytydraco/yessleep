@@ -19,3 +19,5 @@ To our surprise, we reached the teeth, that we had not seen for months, after me
 Analysis of the submarine’s materials revealed they had been compromised by an impossibly-strong acid. Like if it had been submerged on it for weeks. Four more days, and the walls of the Zukhov-19 would have let the acid and pressure in. 
 
 I know that, after all the events, the  KGB officer had a talk with the Politburo, and the place was used for nuclear testing not long after. Not many who know about the Maw remain. The dreams never stopped… And not everyone was strong enough to withstand having night-terrors of being swallowed by the Maw of God.
+
+[///](https://www.reddit.com/r/Matgamarra/)
