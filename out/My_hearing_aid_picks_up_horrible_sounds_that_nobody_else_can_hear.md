@@ -52,11 +52,11 @@ Heart still racing, I feigned a smile and shook my head. “I heard your deep, m
 
 Beth smiled and leant calmly against the doorframe. “Jokes aside, I missed our dumb chats. God, it’s good to be able to talk to you again, Ben.”
 
-I smiled, rubbing the sleep out of my eyes, and looked up to reply to my sister. To my horror, I found myself looking upon a hand on Beth’s shoulder — a decaying, near-fleshless hand. Seemingly detached from any visible body, it tightly clenched my sister’s shoulder.
+I smiled, rubbing the sleep out of my eyes, and looked up to reply to my sister. To my horror, I found myself looking at a hand on Beth’s shoulder — a decaying, near-fleshless hand. Seemingly detached from any visible body, it tightly clenched my sister.
 
 “You all right, little man?” She asked, wincing and clutching her shoulder. “You look a bit pale. Maybe you-”
 
-Before my sister could say another word, the frightful fingers tightly clawed her shoulder and tugged. Beth was torn backwards, wrenched by a phantom force, and she tumbled over the bannisters on the upstairs landing.
+Before my sister could say another word, the frightful fingers tightly clawed into her body and tugged. Beth was torn backwards, wrenched by a phantom force, and she tumbled over the bannisters on the upstairs landing.
 
 I screamed and ran out of my room, only to find myself standing at the top of the stairs, faced with a sight I cannot scrub from my memory. My sister’s body lay crumpled and disfigured at the foot of the staircase. My parents quickly emerged, screeching incoherently for help.
 
