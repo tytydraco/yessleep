@@ -1,4 +1,4 @@
-**EDIT: enough people have asked that I've added the link in the comments section**
+**EDIT: I'm on the move now and my computer access is spotty, so I'm unable to respond to DMs. But enough people have asked that I've added the link in the comments section. Please use caution in accessing it and sharing it.**
 
 My sister’s phone was hacked, or at least that’s what she said. But whoever sent me the link sent it from her number.
 
