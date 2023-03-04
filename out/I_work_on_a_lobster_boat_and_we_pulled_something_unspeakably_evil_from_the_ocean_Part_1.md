@@ -221,7 +221,7 @@ So I “took care of it” as they said in old books and I felt guilty for doing
 
 He’d come at me from behind as I was going to my car after having a few too many drinks at Fore Play.  He pushed me up against the wall and all I remember is his breath on my neck and his hand across my mouth. 
 
-I struggled for a bit but then stopped fighting. Tears formed at my eyes and I looked at the inside of his forearm, begging for him to be finished. On his arm was a barcode tattoo, with a number below it 06051992. 
+I struggled for a bit but then stopped fighting. Tears formed at my eyes and I looked at the inside of his forearm, begging for him to be finished. On his arm was a barcode tattoo, with a number below it 06061992. 
 
 
 I let out a gasp and Mac saw that I knew. Levi smiled, because he saw that I knew. I hadn’t known Mac when I was a kid. Billy lived on Peaks with his mother, Liz. Mac and Liz weren’t together, and I’m not sure if they were ever even married. 
