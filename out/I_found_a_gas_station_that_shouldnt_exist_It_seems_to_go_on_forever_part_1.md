@@ -2,7 +2,7 @@ On my way home from work, I noticed a gas station that shouldn’t be there. I h
 
 “Huh wha…” he said groggily, and I slowed down the car, pointing my finger.
 
-“That gas station does not belong there,” I said, pointing. 
+“That gas station does not belong there,” I said, pointing.
 
 “Yeah, I guess not,” he said, and prepared to go back to sleep. I nudged him again.
 
@@ -24,7 +24,7 @@ As the door closed behind me, I realized this was not a normal gas station. Row 
 
 “Whoa, that is awesome!” Adam said, pointing to the mannequins as if they were Halloween decorations. I grabbed his arm.
 
-“I think we need to get out of here,” I said, a rising sense of trepidation sending off alarm bells in my head. 
+“I think we need to get out of here,” I said, a rising sense of trepidation sending off alarm bells in my head.
 
 “It’s just decorations, man,” Adam said, laughing. “Clearly this is some sort of Halloween store or something. Kind of out of season, though.” He shrugged. I shook my head, and tried backing up towards the door. Turning around, I realized it had locked behind us. I tried pulling with all my might, looking for any locks or buttons near it, but there was nothing. It had metal bar after metal bar crisscrossing it vertically and horizontally, as if to keep vandals out- or to keep unwilling hostages in.
 
@@ -54,7 +54,7 @@ Adam massaged his right arm painfully, the shockwaves from hitting the unbreakab
 
 “You better grab a weapon too,” Adam said to me, his eyes serious, his normal joking  manner totally dissipated. “We have no idea what this place is, but I think it is better safe than sorry.” I nodded, going to the medieval torture instrument and weapon aisle, picking up a scimitar. The curved sword felt somehow comfortable in my hand, the weight of the metal blade perfectly balanced. I gave it a few practice swings, then turned back to him.
 
-“Well, let’s go,” I said. We began walking down an aisle with books wrapped in some white, leathery substance that looked suspiciously like human skin. I eyed them with distaste as we passed. I saw the Necronomicon, the Shadows of Solomon, the Malleus Maleficarum, the Wiccan Book of Shadows, and many other tomes I didn’t recognize. Some weren’t even written in the Latin alphabet, but looked as if they had Tibetan or Sanskrit titles instead. 
+“Well, let’s go,” I said. We began walking down an aisle with books wrapped in some white, leathery substance that looked suspiciously like human skin. I eyed them with distaste as we passed. I saw the Necronomicon, the Shadows of Solomon, the Malleus Maleficarum, the Wiccan Book of Shadows, and many other tomes I didn’t recognize. Some weren’t even written in the Latin alphabet, but looked as if they had Tibetan or Sanskrit titles instead.
 
 Adam stopped, grabbing a random grimoire that had caught his attention. On the front it simply read, ‘The Angel of Death,” in huge silver letters. The book itself was shiny and black, like a poisonous snake. A blood-red eye stared out from the bottom of it, and I saw it dripped blood continuously, as if the book itself was crying. He tucked it into his backpack.
 
@@ -129,3 +129,7 @@ We emerged in a massive courtyard. The walls stood hundreds of feet tall, and cr
 Yet I was able to access this site, and so I started writing up my story. I know there’s only one way out, and that’s further in.
 
 That is, if Set wasn’t lying to us. The horrors that await us seem like they’ll only grow worse.
+
+&#x200B;
+
+Part 2: [https://www.reddit.com/r/nosleep/comments/11htasp/i\_found\_a\_gas\_station\_that\_shouldnt\_exist\_it/](https://www.reddit.com/r/nosleep/comments/11htasp/i_found_a_gas_station_that_shouldnt_exist_it/)
