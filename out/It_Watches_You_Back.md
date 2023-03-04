@@ -1,3 +1,5 @@
+**EDIT: enough people have asked that I've added the link in the comments section**
+
 My sister’s phone was hacked, or at least that’s what she said. But whoever sent me the link sent it from her number.
 
 I wish I hadn’t clicked.
@@ -42,15 +44,15 @@ But now these cursed images have invaded my waking life. It might be the woman o
 
 They’re everywhere now. Coming for me. The whole world closing in.
 
-This  morning, I finally lashed out at one of them. It was a man whose face had rotted away like a zombie’s. He started clawing at my face and I snapped, smashing him across the jaw and then pounding him with my fists after he stopped moving.
+This  morning, one of them came at me. It was a man whose face had rotted away. He started clawing at my eyes and I snapped, smashing him across the jaw and then pounding him with my fists after he stopped moving.
 
-It wasn’t until I heard the sirens that I noticed the gathering crowd. I looked back down at the man, only now the vision was gone. It was just an elderly gentleman whose face was now bloody from my fists. I panicked and ran. I don’t know how badly I hurt him. God help me, I might even have killed him.
+It wasn’t until I heard the sirens that I noticed the gathering crowd. I looked back down at the man, only now the vision was gone. It was just an elderly gentleman, face bloody from my fists. I panicked and ran. I don’t know how badly I hurt him. God help me, I might even have killed him.
 
 I’m not safe to be around. And god only knows how many others there are in the same situation. Haven’t you noticed there’s been an uptick in violent crime?
 
 I know I’m a threat to myself and others. I realize the rational thing to do now would be to turn myself in. Allow myself to be committed and try to make peace with what I’ve done. But if I do that, then who will sound the alarm? Somebody needs to put this genie back in the bottle.
 
-To that end, I keep watching the video, searching for some sort of clue, anything that might help me make sense out of what’s happening to me so I can figure out how to stop it. But I’m no expert in the occult. I have no idea what it all means. 
+To that end, I keep watching the video, searching for some sort of clue, anything that might help me make sense out of what’s happening to me so I can figure out how to stop it. But I’m no expert in the occult. I have no idea what it all means.
 
 The closest I can come to an explanation, is that it wasn’t just a film the man in white was making. It was a weapon. A weapon that subsequently was lost in time—perhaps because the Nazis buried it themselves, realizing they couldn’t control it—but a weapon that has now been rediscovered.
 
