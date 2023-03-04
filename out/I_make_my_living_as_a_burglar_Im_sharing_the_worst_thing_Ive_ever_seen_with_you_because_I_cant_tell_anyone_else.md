@@ -62,7 +62,7 @@ Have you ever slurped Jell-O through your teeth before hitting a grape? Imagine 
 
 *SNAP*
 
-And I knew breaking bones when I hear it.
+And I know breaking bones when I hear it.
 
 *SNAP SNAP SNAP SNAP SNAP*
 

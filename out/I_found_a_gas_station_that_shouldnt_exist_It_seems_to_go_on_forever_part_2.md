@@ -70,7 +70,7 @@ The body of her father was swollen to twice its normal size, small dribbles of c
 
 Adam grabbed Mary by the shoulder and rapidly explained the situation. Her eyes dried up rapidly and, even though she seemed to look past us at invisible shadow people or whatever other hallucination her insane mind made up, she understood enough of it. Then Set’s voice echoed all around us, coming from nowhere and everywhere.
 
-“Time is up, friends,” he said, a tone of glee and amusement in his voice. “Open the cages! Release the wanderers.” From very few off, I heard metal doors slamming open, and I knew we had to act.
+“Time is up, friends,” he said, a tone of glee and amusement in his voice. “Open the cages! Release the wanderers.” From very far off, I heard metal doors slamming open, and I knew we had to act.
 
 “Mary, show us the way to the safest room you know,” I said. “We need time to think and…” Except at that moment, time had run out.
 
