@@ -1,0 +1,17 @@
+update. i saw some advice on my last post telling me to pray or use blessed water. my mum is very religious and has holy water in every room in the house. so i grabbed the holy water from the cabinet above the sink and started to pray and prepare myself to fight that creature.
+
+As i was preparing myself the bathroom door started to thud. then it started to splinter so i knew i had been found. I decided i would use a small amount on its leg first or whatever that things is walking on to see how well it would work. once i saw a bit of its leg poking through i put some of the holy water on my finger tips and splashed it towards its leg. Thats when i heard it scream. It sounded like if a dying horse and a dying cat came together with a dying pigeon to form an awful rock band. Thats how i knew it would actually work. Although i didnt have enough, i could try blessing a mop bucket full of water. So thats what i did. i filled the mop bucket up with fresh, unbleached water and i tried to bless it. I did have to watch a few videos with the little of my remaining data and i blessed it. All i had to do now was wait until it came back to try it.
+
+A few minutes later, after it healed i assume, it returned, still trying to get in. once i saw a clear shot i dipped my hand in the water i had blessed and flicked it, hoping it would work and it did. i felt and still feel so relieved that my efforts worked. 
+
+I decided now was my chance to try and end this living nightmare forever. I gave my self a short speech, grabbed the mop bucket and walked to the door. As i opened it, i saw the mess it had made and my mum, unconscious behind the couch, that seemed to be on her. This thing had terrorized me and hurt my mother as well. Thats when i heard it speak again, it sounded like it was chanting something or performing a spell to heal where it had been blessed. 
+
+I inched towards it as it was distracted. My heart racing, body sweating and my hairs on edge. i held the handle of the bucket with my left arm, grabbed the bottom of the bucket with my right arm and threw the water towards it.
+
+the water splashed onto its red, blood dripping and generally disturbing body and started to sizzle. The sound it made was worse than the last. It started to melt, like the wicked witch from the wizard of Oz when dorothy threw the water onto her to save the people and creatures in that weird world. 
+
+after a couple of minutes, it was just a blob on the floor with that boys face. I cleaned it all up into separate jars to make sure it could never return, just in case. 
+
+once i had nearly completely calmed down i remembered that my mum was still unconscious on the living room floor and called for an ambulance. Once they had arrived and got my mum into the ambulance, i entered my bedroom and looked at the now ominous notebook i had nearly forgotten about. Thats brings us again, to now. 
+
+I'm sitting at my desk and staring at the notebook. I'm going to lock it up in a glass case or something. maybe get the case blessed. I might need a priest or someone who'll be able to move it without summoning that things brother or sister. All i know is that there is no point in trying to get rid of it. It will always return. I'm going to visit the hospital now while i wait for my mum to get out of surgery. Just remember if you ever see a notebook that had no label and looks creepy, weird, out of place or odd. Do not touch it. simply ignore it and hope it doesnt follow you.
