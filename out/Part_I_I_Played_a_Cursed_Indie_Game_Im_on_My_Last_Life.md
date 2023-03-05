@@ -1,3 +1,6 @@
+[PART II](https://www.reddit.com/r/nosleep/comments/11iml6g/part_ii_i_played_a_cursed_indie_game_and_im_on_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+
 
 This happened a year ago. I never thought I’d talk about it, so believe me that sharing this is difficult. It feels as though I am betraying my heart by playing the game again and I know I’ll regret it. Please believe me when I say that I had no choice.
 
