@@ -42,9 +42,9 @@ That was a week ago.
 
 But now these cursed images have invaded my waking life. It might be the woman on the subway, sitting across from me, who has empty black holes where her eyes should be. Or it might be the graffiti mural on the side of a building, showing the face of a demon from the film. Or the man standing on the street corner, begging for change, whose limbs have been surgically removed and then reattached again in the wrong places.
 
-They’re everywhere now. Coming for me. The whole world closing in.
+I just want them to stay away but they’re everywhere now. The whole world closing in.
 
-This  morning, one of them came at me. It was a man whose face had rotted away. He started clawing at my eyes and I snapped, smashing him across the jaw and then pounding him with my fists after he stopped moving.
+This morning, one of them came at me. A demon in the form of a man whose face had rotted away. He clawed at my eyes and in a mad terror I took him to the ground,  pounding him with my fists until he stopped moving.
 
 It wasn’t until I heard the sirens that I noticed the gathering crowd. I looked back down at the man, only now the vision was gone. It was just an elderly gentleman, face bloody from my fists. I panicked and ran. I don’t know how badly I hurt him. God help me, I might even have killed him.
 
