@@ -204,10 +204,15 @@ I watched as the shadow formed features, and those features leered at me with re
 
 If hell had a personification, it would be this. The shadow dug its sharp fingers into my shoulder, and I yelped as it stroked my bones.
 
-The last thing I saw before I blacked out was this monster rotating through its cache of faces until it settled on one.
+The monster rotated through its cache of faces until it settled on one.
 
 Benji’s.
 
  Benji stared down at me, and without a word, he gripped the underside of my jaw and tore away my face. Then, he placed it over his own like a mask, and I watched him transform into me. 
 
-Yes, I died, and yes, I am dead. I wish I could end the story here, but I can’t. Instead, I keep thinking of how sometimes death is a mercy, and I wish it had given me its blessing.
+I blacked out and when I woke up, I saw the game was still playing. Red text blared across the screen.
+
+4/5 LIFE LEFT
+LIFE ONE LOST 
+
+The thing had not only stolen my face but it had also taken a part of my soul.
