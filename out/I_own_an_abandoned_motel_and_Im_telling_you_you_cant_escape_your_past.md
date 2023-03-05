@@ -119,3 +119,5 @@ He began walking towards the cottages at a supernatural speed. I cursed and ran 
 [\[Part 9\]](https://www.reddit.com/r/nosleep/comments/11dnong/i_own_an_abandoned_motel_and_i_dont_think/)
 
 [\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)
+
+[\[Part 11\]](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)

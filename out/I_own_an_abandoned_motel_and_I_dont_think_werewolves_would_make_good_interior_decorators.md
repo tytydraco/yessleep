@@ -311,3 +311,5 @@ Tears sprang to the man’s eyes.
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)
+
+[\[Part 11\]](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)
