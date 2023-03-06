@@ -58,7 +58,7 @@ We’d meet up with Daniel in a few days, right before the weekend.  Maria thoug
 
 “I know,” Maria replied uncomfortably.  “But maybe him realizing that will be the push he needs to act.  I don’t think we can wait much longer.”
 
-I had to agree with that.  
+I had to agree with that.
 
 “And if it does work?” Grayson asked.  “If you become the target?”
 
@@ -168,7 +168,7 @@ Cassie was asleep when I returned to the dorm.  She has an early class and tries
 
 So far there haven’t been any monsters showing up there, but I still try not to shower late at night just in case.  Having to run naked down the hallway while being pursued by the evil embodiment of shampoo is pretty high on my list of things I never want to experience.
 
-I wasn’t alone in the hallway when I exited the bathroom.  Someone else was leaning into the open doorway of one of the rooms, his hand on the frame.  I didn’t think much of it at first, until I drew closer and realized that it was leaning into *my* dorm room.  
+I wasn’t alone in the hallway when I exited the bathroom.  Someone else was leaning into the open doorway of one of the rooms, his hand on the frame.  I didn’t think much of it at first, until I drew closer and realized that it was leaning into *my* dorm room.
 
 The one Cassie was currently asleep in.
 
@@ -180,7 +180,7 @@ The fingers were too long.  The fingertips were flattened into round blobs of fl
 
 It wasn’t clothing.  It was the patterning of its skin.
 
-Camouflage.  Like a tiger’s stripes.  So it could blend in with us.  
+Camouflage.  Like a tiger’s stripes.  So it could blend in with us.
 
 It slowly turned its head to look at me.  I was expecting… all sorts of things, honestly.  Sharp teeth.  No face at all.  I got… a fairly ordinary face.  There was a nose.  Lips.  But its eyes were where the resemblance to a human face broke down.
 
@@ -202,7 +202,7 @@ It was halfway through the doorway when I screamed at it to stop.  That’s all 
 
 These things don’t like an audience so I was going to bring one down on its ugly head.
 
-And doors banged open.  It wasn’t so late that everyone was asleep yet.  The creature jerked back out of our room and then sprinted down the hallway.  It hit the doors leading to the stairwell and was then *gone*.  
+And doors banged open.  It wasn’t so late that everyone was asleep yet.  The creature jerked back out of our room and then sprinted down the hallway.  It hit the doors leading to the stairwell and was then *gone*.
 
 Cassie woke up in all the commotion.  Our RA got involved.  (I don’t like our RA)  I cried a lot and told them I saw someone trying to break into one of the dorm rooms.  Some of the doors can be forced with a credit card and that’s what he was doing to our door.
 
@@ -214,13 +214,15 @@ Cassie was still awake.  She’d talked to them as well, just asking dumb questi
 
 I guess Cassie knows by now that nothing is ordinary with me.  I told her about the creature.  How it didn’t seem interested in me.  She didn’t seem surprised by this.  Her shoulders tensed, but that was all.  And when she spoke, I didn’t feel like she was talking to me.
 
-“I guess that’s what got her, then.” 
+“I guess that’s what got her, then.”
 
 That’s all she said.  Then she crawled into bed and I didn’t try to talk to her about it anymore, because she had the covers under her head and was trying to stifle her crying.
 
 Besides, I can put the pieces together well enough on my own.
 
 That creature might be what killed her previous roommate.  And now it’s after her.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/11jo5n3/how_to_survive_college_the_worm_in_the_hallway/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
