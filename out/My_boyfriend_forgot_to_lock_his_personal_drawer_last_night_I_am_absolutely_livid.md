@@ -1,7 +1,5 @@
 As a child I thought my visions were normal—that we all got them whenever someone was about to die, but nobody said anything as a common courtesy. I mean, imagine marching up to a person you’ve never met before and telling them, “Tough luck on the fridge freezer that’s gonna crush your skull later. Nasty way to go, being pinned down under all that weight. Oh well, rest in peace.”
 
-As a child I thought my visions were normal—that we all got them whenever someone was about to die, but nobody said anything as a common courtesy. I mean, imagine marching up to a person you’ve never met before and telling them, “Tough luck on the fridge freezer that’s gonna crush your s later. Nasty way to go, being pinned down under all that weight. Oh well, rest in peace.”
-
 That’s why I didn't realize I was a freak until the night my parents died. There we were, driving home from the beach and singing along with the radio, when the visions showed me glass exploding inward. Another car slammed into ours like a bullet train speeding through a tunnel, then up became down then up again as we plunged over an embankment, my parents’ mangled bodies twisting in mid-air.
 
 The second my vision ended I thrashed around in my seat. “Stop, stop, we have to get out!” I screamed.
