@@ -18,7 +18,7 @@ I jerked my head up to see a lanky man cloaked in a black, billowing robe leanin
 
 "Now, don't stop just for someone like me." He said, in a hollow, rasping voice.
 
-I wouldn't just take orders from a stranger, especially one in my apartment. But the power in his voice, the *authority.* It was so alien and unnatural. This was someone who could kill me with a blink of an eye.  I sat back down. 
+I wouldn't just take orders from a stranger, especially one in my apartment. But the power in his voice, the *authority.* It was so alien and unnatural. This was someone who could kill me with a blink of an eye.  I sat back down.
 
 He smiled. "Good. Now play and don't stop.
 
@@ -58,7 +58,7 @@ The shadow people moved around the room in a slow, deliberate waltz, oblivious t
 
 And the man was me.
 
-Well, not exactly. He was older, hunched over with age, wearing clothes you would never catch me dead in. And yet he was me. I don't know how, but it just made sense. It's like the information simply appeared in my brain. While still playing, I looked expectantly at the robed man. 
+Well, not exactly. He was older, hunched over with age, wearing clothes you would never catch me dead in. And yet he was me. I don't know how, but it just made sense. It's like the information simply appeared in my brain. While still playing, I looked expectantly at the robed man.
 
 "Is...that me?" I questioned.
 
@@ -68,7 +68,7 @@ Well, not exactly. He was older, hunched over with age, wearing clothes you woul
 
 "Your path merged with this woman and remade itself. You became another. Your time was longer."
 
-"Did you kill him...me?" 
+"Did you kill him...me?"
 
 He shifted his gaze away from me, seeming to be in a quiet contemplation. But his silence gave me the answer I needed.
 
@@ -98,7 +98,7 @@ And that knowledge scares me.
 
 I can tell my time in this world has almost passed. My body has reached a breaking point. I can not go further. So with a heavy heart I write this, fearful of what is too come when I eventually choose to stop. But I am hungry for a break. I can see now that a life like this is no life at all. Death welcomes me with open arms. And I am ready to embrace it.
 
-I am hurt. 
+I am hurt.
 
 I am broken.
 
@@ -109,3 +109,5 @@ After I write this, I will begin to play *Clair de Lune* once more, no matter th
 I don't want you to think of this message as a suicide note. No, I died inside days ago. Think of this as my final symphony.
 
 My swan song.
+
+[\[x\]](https://www.reddit.com/r/ineedabettersub/)
