@@ -8,7 +8,7 @@ Gradually, one by one, I was able to coax them away from their individual party 
 
 By this time, it was 12:30 am. I was focusing on the road and mentally mapping out the route which would most efficiently drop each of my drunken buddies off at home as quickly as possible. The sooner I got them home, the quicker I could get to bed. At this point, it was beginning to look more like I'd be getting around 4 hours of sleep before my alarm went off at 6.
 
-It was mid November and I recall that it was cooler than average that evening, around 35 degrees. It had been unseasonably cool for Northern California that week and the car had taken longer than usual to warm up, but we all were wearing jackets, so complaints about the cold were minimal. A different kind of complaint began to grow from the back seat of heaped party goers, tough: hunger
+It was mid November and I recall that it was cooler than average that evening, around 35 degrees. It had been unseasonably cool for Northern California that week and the car had taken longer than usual to warm up, but we all were wearing jackets, so complaints about the cold were minimal. A different kind of complaint began to grow from the back seat of heaped party goers, though: hunger
 
 This was the absolute last thing I need to hear. The chorus of hungry complaints began to grow just as we crossed back into our home town. I tried to reason with my friends, explaining that they would all be home soon and they could feed their munchie monsters then.
 
@@ -40,7 +40,7 @@ First off, their faces, all four, were completely and unusually pale to the poin
 
 Then I noticed something even stranger. Their faces were completely expressionless with mouths slightly agape. No chatting, no smiling, no eating, no blinking, heads slightly tilted upward. They were completely motionless and staring beyond each other as if fixated on something beyond the walls of the diner itself. There were no menus, no glasses of water, no plates of food at their table, and no interactions between themselves or with any members of the wait staff.
 
-I found this to be very strange and unnerving. I felt compelled to get a closer look and made a motion to excuse myself from the table. As I stood up to leave, one of my friends reached out and grabbed me by the elbow. "He man, where ya goin'? Don't forget, you're our ride home."
+I found this to be very strange and unnerving. I felt compelled to get a closer look and made a motion to excuse myself from the table. As I stood up to leave, one of my friends reached out and grabbed me by the elbow. "Hey man, where ya goin'? Don't forget, you're our ride home."
 
 This both startled me and redirected my focus back to my table of friends. As I looked back to them, the various sounds of the dining room banter and clanking of table ware reawakened my auditory senses and flooded back into my consciousness.
 
@@ -48,6 +48,6 @@ This both startled me and redirected my focus back to my table of friends. As I 
 
 I went back to my table and was quiet for the rest of the night, trying to wrap my mind around what I saw. My friends finished their meals and I drove them all home. I got zero sleep that night. I wasn't freaked out or scared by what I saw, just couldn't make sense of it all.
 
-I ran through the list of rational explanations in my head. Was I sleep deprived? Was I hallucinating? Had I been drugged at the part? Did someone spike my water at the diner? All unlikely. Or, was it something paranormal?
+I ran through the list of rational explanations in my head. Was I sleep deprived? Was I hallucinating? Had I been drugged at the party? Did someone spike my water at the diner? All unlikely. Or, was it something paranormal?
 
 I'm not the type to reach quickly for that conclusion, though given the other options, it seems to be equally plausible. Maybe I saw something that wasn't really there. Maybe I was sleep deprived. Maybe I was drugged without my knowledge. Or maybe, just maybe, a vintage dressed foursome from a bygone era wanted one last double date night together at their favorite diner.
