@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 13300
+file count: 13301
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [1 traP  yellaV anuL  Luna Valley  Part 1](out/1_traP__yellaV_anuL__Luna_Valley__Part_1.md)
@@ -4668,8 +4668,8 @@ file count: 13300
 * [I think the tree outside my window wants me dead](out/I_think_the_tree_outside_my_window_wants_me_dead.md)
 * [I Think There is A Reason No Ones Heard of the Breaking Wheel Cartel](out/I_Think_There_is_A_Reason_No_Ones_Heard_of_the_Breaking_Wheel_Cartel.md)
 * [I think there is someone outside my house](out/I_think_there_is_someone_outside_my_house.md)
-* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [i think there is something in my house](out/i_think_there_is_something_in_my_house.md)
+* [I think there is something in my house](out/I_think_there_is_something_in_my_house.md)
 * [I Think There is Something in My Parents Basement PART 2](out/I_Think_There_is_Something_in_My_Parents_Basement_PART_2.md)
 * [I Think There is Something in My Parents Basement](out/I_Think_There_is_Something_in_My_Parents_Basement.md)
 * [I think there is something in the fields behind my work](out/I_think_there_is_something_in_the_fields_behind_my_work.md)
@@ -5476,6 +5476,7 @@ file count: 13300
 * [If Mommy Asks If Youre Fine You Say Yes Even If Youre Not](out/If_Mommy_Asks_If_Youre_Fine_You_Say_Yes_Even_If_Youre_Not.md)
 * [If only Id paid attention before I wouldnt be headed to jail right now](out/If_only_Id_paid_attention_before_I_wouldnt_be_headed_to_jail_right_now.md)
 * [If someone you know seems taller than they were before STAY AWAY](out/If_someone_you_know_seems_taller_than_they_were_before_STAY_AWAY.md)
+* [If the eyes appear from the darkness do not look away back away slowly until you reach the light](out/If_the_eyes_appear_from_the_darkness_do_not_look_away_back_away_slowly_until_you_reach_the_light.md)
 * [If The Ice Cream Man Melts Do Not Eat His Ice Cream](out/If_The_Ice_Cream_Man_Melts_Do_Not_Eat_His_Ice_Cream.md)
 * [If the leaves fall at night while driving turn the other way](out/If_the_leaves_fall_at_night_while_driving_turn_the_other_way.md)
 * [If the rain stops GO HOME](out/If_the_rain_stops_GO_HOME.md)
