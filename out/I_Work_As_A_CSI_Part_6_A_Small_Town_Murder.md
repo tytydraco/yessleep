@@ -1,4 +1,4 @@
-(First: https://redd.it/111m676 Previous: https://redd.it/119h6gc )
+(First: https://redd.it/111m676 Previous: https://redd.it/119h6gc Next: https://redd.it/11jhga3 )
 
 I’ve been exhausted from not sleeping when an odd call came. It was only two days after the Hunter ordeal. The cuts and bruises looked better but were still healing. I assumed the call to be for another job, but for some reason I’d been asked to meet with The Hunter that almost took my life. 
 

@@ -1,4 +1,4 @@
-( First: https://redd.it/111m676 Previous: https://redd.it/117mo1o )
+( First: https://redd.it/111m676 Previous: https://redd.it/117mo1o Next: https://redd.it/11ifyae )
 
 I’d been told to stay off my feet after a rough job. I’d refused the advice and went shopping with Jackalope the day after I nearly died. Being out of the house helped me take my mind off things. I hadn’t told Jackalope about the dark figure I saw the night before yet. When the sun rose, I doubted what I saw was real when I woke up. I didn’t want to worry my roommate until I knew for certain something supernatural was going on or I might just be losing it.  
 

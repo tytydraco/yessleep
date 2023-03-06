@@ -20,4 +20,6 @@ Analysis of the submarine’s materials revealed they had been compromised by an
 
 I know that, after all the events, the  KGB officer had a talk with the Politburo, and the place was used for nuclear testing not long after. Not many who know about the Maw remain. The dreams never stopped… And not everyone was strong enough to withstand having night-terrors of being swallowed by the Maw of God.
 
+[Update](https://www.reddit.com/r/nosleep/comments/11jb2hs/the_ussr_tried_to_research_the_disturbing_thing/)
+
 [///](https://www.reddit.com/r/Matgamarra/)
