@@ -1,6 +1,4 @@
-Welcome to Episode 1, Part 1 of the recreation of the "I Didn't Follow My Father's Rule And Now I'm Working For The Government". Enjoy! (Originally posted at r/mrcreeps).
-
-Hello, My name is Travis Marcella, I'm currently 16, with dark brown hair and pretty skinny. I have green eyes and I'm in 10th grade. Today Is March 23, 2024 and I never expected to be making entries of my life since It was pretty average, but something strange has been happening recently. I'll try to explain what's happening as best as I can.
+Hello, My name is Travis Marcella, I'm currently 16, with dark brown hair and pretty skinny. I have green eyes and I'm in 10th grade. Today Is March 4, 2023 and I never expected to be making entries of my life since It was pretty average, but something strange has been happening recently. This is my first post and I'll try to explain what's been happening as best as I can.
 
 I was riding my bicycle one evening, my backpack barely hanging onto my shoulders as I went as fast as I could to get home in the pouring rain. I eventually reached my fathers cabin and I quickly scrambled inside.
 
@@ -24,9 +22,12 @@ A couple hours later, my father was asleep again and i was watching some 1990s h
 
 I screamed and shook my dad. He woke up and i told him what happened. He immediately grabbed his shotgun and slammed open the front door. He ran off into the night and left me alone for what felt like hours. Eventually he came back and told me he had some new house rules in a serious tone. At first, I was confused but then he pulled out a piece of paper and gave it to me. There were only 5 rules but they were odd nonetheless.
 
-Rule 1) Do not go outside at night  
-Rule 2) If you see anything strange, tell me.  
-Rule 3) Lock the front door before midnight.  
+Rule 1) Do not go outside at night
+
+Rule 2) If you see anything strange, tell me.
+
+Rule 3) Lock the front door before midnight.
+
 Rule 4) Do Not Respond To Any Odd sounds, No Matter How Human They seem.
 
 Rule 5) If you ever encounter any- The rest of the rule was scratched out.
@@ -59,8 +60,14 @@ I wanted to punch him so badly, I wanted him to HURT so badly but I gritted my t
 
 To my surprise I walked home to see him wide awake, sober, and new tires in the corner of the room. He even helped me assemble them onto my bike. I felt something was off though, usually my father was drunk or sleeping but he seemed much more alert and always had his shotgun near. I saw his trigger finger tensing up randomly. I thanked my dad for the tires and immediately went to my room.
 
-Something was off with my dad and I expected him to be drunk but I watched as he just kept staring at the windows as if something was playing peek-a-boo. I considered that he might be seeing the shadows as well but that doesn't explain why- My thoughts were interrupted by a knocking on the window. I turned to see the pitch black night but something was a bit off. I squinted and I swear I could make out 8 eyes staring back. I didn't react much as I thought I was being paranoid like my father said and I got into my bed and tried to fall asleep but...
+Something was off with my dad and I expected him to be drunk but I watched as he just kept staring at the windows as if something was playing peek-a-boo. I considered that he might be seeing the shadows as well but that doesn't explain why- My thoughts were interrupted by a knocking on the window. I turned to see the pitch black night but something was a bit off. I squinted and I swear I could make out 8 eyes staring back. I immediately realized that whatever it was, it was trying to open the window.
 
-As i write this I cant help but feel like I'm being watched. I'm unsure what to make of what's happening but I'll keep in touch.... I promise.
+I quickly ran to the window and locked it before it got inside. I watched as it scraped it's spider-like limbs across the window like daggers. I backed away as the window started to crack. I called out to my father but then i heard a shot go off. These things... they were getting into the house.
 
-Thanks for reading Episode 1, Part 1. This was about 6.5k words and took me a lot of effort to make! Be ready as Part 2 Will be out in the next couple days.
+I quickly ran out of the room to see my father struggling to fend off a giant spider that broke through a nearby window. I ran to my fathers aid and he pointed his finger toward his shotgun on the table nearby. I ran to it but stopped about a foot away before another spider fell from the ceiling, almost onto me. I stood in complete shock as it scurried closer. It was around 4 feet in size and was as wide as the table behind it. It lunged at me and I ducked as it flew over my head. It landed right behind me and I quickly made a grab for the shotgun.
+
+I was able to grab the shotgun as the spider charged, but I was faster. I shot the spider right in its face and quickly finished off the other spider that my father was fighting. I thought it was over when I heard my bedroom window shatter. My blood ran cold as a spider emerged from my room and was charging straight toward me. The shotgun my father owned only held 2 bullets at a time and now it looked like i was about to be trampled when right as it was about to ram into me, a large fire axe slammed into its body and crushed its head.
+
+I looked at my father but all I saw was cold, distant eyes. He brought me to my bedroom after boarding up my window and told me to tell nobody about this. I can hear him right now, fixing up the damage from the spiders. I have to tell someone about this and that's why i'm posting here.
+
+ I'm unsure what to make of what's happening but I'll keep in touch... I promise.
