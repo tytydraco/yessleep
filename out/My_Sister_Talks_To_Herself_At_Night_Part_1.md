@@ -1,6 +1,8 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/11h1hgs/my_sister_talks_to_herself_at_night_part_2_the/)  
 
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/11jyf1p/my_sister_talks_to_herself_at_night_part_3_the/)
+
 The wall between my sister Maia’s room and mine is paper thin. If it wasn’t, I would never have found out. I’d be safer and happier, and I wouldn’t be huddled over my computer screen in the dark, terrified of what’s happening on the other side of the wall.
 
 Things didn’t always used to be this way. We used to live in a big old house with a pear tree out front and plenty of space for everyone, instead of the basement apartment the four of us are crammed into now.
@@ -109,7 +111,6 @@ I hung up before I could say any of the words that were burning in my chest. I c
 
 As much as I hated clubs, dancing, and everything to do with them, it looked like I was going to The Red Room.
 
-[X](https://www.reddit.com/r/beardify)  
-
+[X](https://www.reddit.com/r/beardify)
 
 &#x200B;
