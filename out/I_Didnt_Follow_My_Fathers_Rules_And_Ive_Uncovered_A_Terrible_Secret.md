@@ -1,4 +1,4 @@
-Hello, My name is Travis Marcella, I'm currently 16, with dark brown hair and pretty skinny. I have green eyes and I'm in 10th grade. Today Is March 4, 2023 and I never expected to be making entries of my life since It was pretty average, but something strange has been happening recently. This is my first post and I'll try to explain what's been happening as best as I can.
+Hello, My name is Travis Marcella, I'm currently 16, with dark brown hair and pretty skinny. I have green eyes and I'm in 10th grade. Today Is March 4, 2023 and I never expected to be making entries of my life since It was pretty average, but something strange has been happening recently. I'll try to explain what's happening as best as I can.
 
 I was riding my bicycle one evening, my backpack barely hanging onto my shoulders as I went as fast as I could to get home in the pouring rain. I eventually reached my fathers cabin and I quickly scrambled inside.
 
@@ -60,7 +60,7 @@ I wanted to punch him so badly, I wanted him to HURT so badly but I gritted my t
 
 To my surprise I walked home to see him wide awake, sober, and new tires in the corner of the room. He even helped me assemble them onto my bike. I felt something was off though, usually my father was drunk or sleeping but he seemed much more alert and always had his shotgun near. I saw his trigger finger tensing up randomly. I thanked my dad for the tires and immediately went to my room.
 
-Something was off with my dad and I expected him to be drunk but I watched as he just kept staring at the windows as if something was playing peek-a-boo. I considered that he might be seeing the shadows as well but that doesn't explain why- My thoughts were interrupted by a knocking on the window. I turned to see the pitch black night but something was a bit off. I squinted and I swear I could make out 8 eyes staring back. I immediately realized that whatever it was, it was trying to open the window.
+Something was off with my dad and I expected him to be drunk but I watched as he just kept staring at the windows as if something was playing peek-a-boo. I considered that he might be seeing the shadows as well but that doesn't explain why- My thoughts were interrupted by a knocking on the window. I turned to see the pitch black night but something was a bit off. I squinted and I swear I could make out 8 eyes staring back. I screamed As I immediately realized that whatever it was, it was trying to open the window.
 
 I quickly ran to the window and locked it before it got inside. I watched as it scraped it's spider-like limbs across the window like daggers. I backed away as the window started to crack. I called out to my father but then i heard a shot go off. These things... they were getting into the house.
 
@@ -70,4 +70,4 @@ I was able to grab the shotgun as the spider charged, but I was faster. I shot t
 
 I looked at my father but all I saw was cold, distant eyes. He brought me to my bedroom after boarding up my window and told me to tell nobody about this. I can hear him right now, fixing up the damage from the spiders. I have to tell someone about this and that's why i'm posting here.
 
- I'm unsure what to make of what's happening but I'll keep in touch... I promise.
+I'm unsure what to make of what's happening but I'll keep in touch... I promise.
