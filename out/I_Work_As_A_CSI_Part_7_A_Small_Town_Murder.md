@@ -1,4 +1,4 @@
-( First: https://redd.it/111m676 Previous: https://redd.it/11ifyae )
+( First: https://redd.it/111m676 Previous: https://redd.it/11ifyae Next: https://redd.it/11l6tzn)
 
 Time passed with my eyes closed and yet I didn’t fall asleep. After a while, I sensed eyes looking at me and knew better than to stay still. I rolled off the bed and to the other side of the room within a second. My heart was working overtime as I looked up at the creature that suddenly appeared over my bed.
 
