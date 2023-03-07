@@ -1,6 +1,6 @@
 I’m desperate.
 
-You must read this and understand that my fate can be your’s as well.
+You must read this and understand that my fate can be yours as well.
 
 The last game I’ll ever play started tonight. A game I’ll lose.
 
@@ -14,9 +14,9 @@ It wasn’t worth my time. I immediately logged out of the match and started to 
 
 I stared at my screen for what felt like hours before replying. I thought maybe it was just a kid that didn’t mean any harm. I replied.
 
-**SweatyJabawaki:** It’s cool. Don’t worry about it. It’s just a game. I’m logging off. Have a good one. 
+**SweatyJabawaki:** It’s cool. Don’t worry about it. It’s just a game. I’m logging off. Have a good one.
 
-**BagMan6066:** No. I’m sorry. Don’t get off. I have a better game. 
+**BagMan6066:** No. I’m sorry. Don’t get off. I have a better game.
 
 **SweatyJabawaki:** Sorry. I’m beat. Cya.
 
