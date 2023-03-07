@@ -24,7 +24,7 @@ When I finally made it to my house, I was chilled to the bone. There, it stood d
 
 Everything in me screamed not to go in. The thought of my mother passed out inside forced me up the front steps. 
 
-When I walked in, the house was dark and cold. My grandmother always opened up all the curtains to let the sunshine in every morning. They had all been closed. Not a single light was on. My teeth were chattering from the cold. It had been warm just outside. 
+When I walked in, the house was dark and cold. My grandmother always opened up all the curtains to let the sunshine in every morning. They had all been closed. Not a single light was on. My teeth were chattering. It had been warm just outside. 
 
 I called for my mom and headed for her bedroom. Her usual spot in bed was empty. Next, I headed for the garage; her smoking spot. She wasn't there either. She wasn't responding to me. I searched the entire upstairs; no mom. 
 
