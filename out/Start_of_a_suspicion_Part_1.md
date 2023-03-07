@@ -5,7 +5,9 @@ I will try and be as calm and collected as I can, despite what has happened to b
 I am Cy, (26). Erica, my long term gf, who will appear in this post is (21).
 
 We had been dating for 3 years, and had just discussed moving in together. I was very happy that Erica wanted to take this step, and readily agreed. She had me move in with her, as my apartment was way more crappy than her house, which her parents had helped her buy. It was small, 1 bedroom with 1.5 bathrooms, but in a nice part of town and close to her work. My lease ended in a month, so I didn’t move in until then. 
-When that day came, I moved my few possessions in my beat up car. I terribly poor, but money was tight. And I was frugal. Erica’s parents were wealthy business professionals that had their company take off, doting on their only child. They also seemed to really like me too, they’d welcomed me into their family like I was their own. So basically my life was looking up. I was so happy to move in with the love of my life, and take this step like I said. Erica came out when she saw me pull up and helped me carry stuff in. Her place was about a 40 minute drive from mine. Once everything was in, she made tea and I sat with her. We talked about how happy we were with this and just general small talk. 
+When that day came, I moved my few possessions in my beat up car. I wasn’t terribly poor, but money was tight. And I was frugal. Erica’s parents were wealthy business professionals that had their company take off, doting on their only child. They also seemed to really like me too, they’d welcomed me into their family like I was their own. So basically my life was looking up. I was so happy to move in with the love of my life, and take this step like I said. 
+
+Erica came out when she saw me pull up and helped me carry stuff in. Her place was about a 40 minute drive from mine. Once everything was in, she made tea and I sat with her. We talked about how happy we were with this and just general small talk. 
 
 Fast forward to that evening: 
 We went out for dinner and then came home and watched tv. Erica had work in the morning, I was off. It was Saturday, I had Sat/Sun off, but Erica worked Sundays. Today was her last day off. We sat and watched some Tv, then started to head to bed. I slept on the couch, she slept in the bedroom, we weren’t quite ready to sleep together yet. 
@@ -34,7 +36,7 @@ After that we just went back to normal conversation and watched tv again cuddled
 And I did sleep, until about 1. 
 That’s when I heard something like footsteps. I sat up, waited, then heard them again. With the sound of a door closing. I got up and looked down the hall. The bathroom light was on. It was just Erica. I heard the sink a minute later. 
 
-I went back to bed, the neighbors warning had put me on edge. I half laughed at myself for being so keyed up in my own love’s house. 
+I went back to bed, the neighbor’s warning had put me on edge. I half laughed at myself for being so keyed up in my own love’s house. 
 
 (Monday) 
 I headed out for work, Erica would leave a bit later. I worked as manager for a fast-casual place. As I entered I was greeted by my 2nd in command and best friend Andres. We had been working together at this restaurant for a little over a year now, he’s one of the only faces that stuck around. 
@@ -43,7 +45,7 @@ I headed out for work, Erica would leave a bit later. I worked as manager for a 
 He always is slightly loud, it comes from his enthusiasm and energy. So sweet though. 
 
 “Pretty good, moved in with Eric a couple days ago.” I say in a slightly quieter voice. 
-(Eric is what I call Erica.) 
+(Eric or E is what I call Erica.) 
 
 “Hey, that’s great! Her house is on 7th right?” 
 
@@ -105,4 +107,4 @@ I went back to bed, Erica stirred a bit and asked me if I was okay.
 I just mumbled yeah. 
 I didn’t sleep the rest of the night. 
 
-I will have a post for the next day very soon, I will link the update when I am done.
+The rest will be posted soon.
