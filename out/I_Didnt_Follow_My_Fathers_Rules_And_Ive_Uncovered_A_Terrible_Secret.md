@@ -70,4 +70,6 @@ I was able to grab the shotgun as the spider charged, but I was faster. I shot t
 
 I looked at my father but all I saw was cold, distant eyes. He brought me to my bedroom after boarding up my window and told me to tell nobody about this. I can hear him right now, fixing up the damage from the spiders. I have to tell someone about this and that's why i'm posting here.
 
-I'm unsure what to make of what's happening but I'll keep in touch... I promise.
+I'm unsure what to make of what's happening but I'll keep in touch... I promise. 
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/)
