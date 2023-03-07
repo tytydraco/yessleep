@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/11lc12g/in_1824_i_encountered_a_real_life_vampire_hunter/) 
+
+&#x200B;
+
 *“Pride goes before destruction, a haughty spirit before a fall.”*
 
 That’s how the quote goes, but for me, my greed led to my destruction. In 1748, I along with my family and other members of my village fell ill to a plague. I knew I was bound to die like the others in my town. It was then that a strange man visited me, and he offered me a gift.
