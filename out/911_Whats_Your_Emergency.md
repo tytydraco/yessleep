@@ -1,105 +1,64 @@
-I work in the Greenbrier County sheriff’s office. I have been tasked with digitalizing our old transcripts into our new state database. As I was going through the reams of boxes stored out back, cataloguing our transcripts by date, this particular one from ’94 caught my eye for how… inexplicable it seemed. Apparently, the sheriff at the time had the transcript buried. I’ve decided to disembalm it.
+"H-hello?" My eight-year-old voice trembled, “Is this emergency services?” 
 
-*The following is a transcript of the Jane Heaster 9-1-1 emergency call to the Greenbrier County Sheriff’s office.*
+“It *sure* is!” the cheerful male voice on the other end of the phone line answered. “What’s the trouble, young man?” 
 
-\[**Dispatch**\]:	9-1-1 what’s your emergency? 
+I frowned. *‘Young man?’*  Weren’t they supposed to say *‘9-1-1, what’s your emergency?!’* 
 
-\[**Jane**\]:	There’s someone outside, standing- standing at my front door. 
+Maybe it was his first day. Either way, there was no time to waste.
 
-\[**Dispatch**\]:	Okay, ma’am, do you know this person? Is it a man or a woman? 
+“Something’s wrong with my mom. She fell down all of a sudden.” I pressed the phone to my ear and leaned back. My mother lay where she’d collapsed just minutes ago. 
 
-\[**Jane**\]:	No, I don’t. And- a man, I think. 
+“Oh *no!* That’s too bad! Someone will be over right away.” *Click.* 
 
-\[**Dispatch**\]:	Is he trying to break in? 
+I dropped the phone and crept over to my mother. The faint rise and fall of her chest was the only way I even knew she was alive. *Wait…I hadn’t told the ambulance people our address!* 
 
-\[**Jane**\]:	No. I- I don’t know. I heard him knocking, and then there was a flashlight, I think, shining through my window. He’s just- he’s just standing there, muttering to himself. Saying something, I–I–I can’t quite hear… 
+I ran back to the phone and dialed 9-1-1 again.
 
-\[**Dispatch**\]:	Okay, ma’am, please calm down. What’s your name? 
+“151 Cliffmore Way! 151 Cliffmore Way!” I shouted into the receiver, then hung up. I shut my eyes tight. I wanted to scream, to shatter into a million pieces like the glass that had fallen from my mother’s grasp just before she collapsed–
 
-\[**Jane**\]:	Jane. 
+But all I could do was wait, hold her hand, and pray.
 
-\[**Dispatch**\]:	Jane… 
+It felt like an eternity before the doorbell rang. I sprang to my feet, but froze when I turned the corner. A short, brown-haired white man was peering through the window with a grin on his face. He rang the bell again, more instantly this time, and I noticed he wore a red nurse’s uniform. I left out a sigh of relief. *The ambulance people were here. Everything was going to be okay.*  I yanked the door open.
 
-\[**Jane**\]:	Heaster. 
+“Hello there, young man!” The smiling man exclaimed. I read the name *‘Marbas’* on his nametag, right beside the pens and stethoscope. “Where’s the *un-*lucky lady?” he asked.
 
-\[**Dispatch**\]:	Miss Heaster, what’s your address? 
+“You mean my mom?” I stammered: “S-she’s in here…” 
 
-\[**Jane**\]:	(REDACTED). 
+Two expressionless assistants in identical red uniforms rolled a guernsey to where my mother lay, surrounded by shards of glittering glass. 
 
-\[**Dispatch**\]:	Sorry– did you say, (REDACTED)? 
+“Up, up, and away!” Nurse Marbas rubbed his hands together excitedly while my mother was loaded into the guernsey and rolled out the door. A jolt of helpless fear shot through me: *they were taking my mother away!*
 
-\[**Jane**\]:	Yes! 
+“Uh, mister? Can I ride with my mom to the hospital?” I asked the smiling man. 
 
-\[**Dispatch**\]:	Right. 
+“Hospital?” Nurse Marbas wrinkled his forehead, confused. “Oh, there’s no need for that. We’re *professionals,* you see.”
 
-(Heavy rapping can be heard in the background, along with a muffled male voice). 
+As the assistants loaded my mother into the back of the black ambulance, I looked over their shoulders at the sharp and jagged tools hanging from its walls. They weren’t like any medical instruments that *I’d* ever seen.
 
-\[**Jane**\]:	(In a hushed tone, sobbing): Leave me alone. Please, leave me alone. 
+“We’ll take *excellent* care of your mother,” the smiling man went on, “and call *as soon as* you can see her!” 
 
-\[**Dispatch**\]:	Jane, listen to me. I’ve despatched an officer to your address. Where are you now? 
+Nurse Marbas leapt into the rear compartment, his expressionless assistants climbed into the cab, and the black ambulance began to back out of the driveway.
 
-\[**Jane**\]:	I’m- I’m upstairs in the bedroom. I’ve kept the lights off. I… Oh my god. 
+I ran behind it, waving my hands. I wanted to yell at them to stop, but I was just a kid: who was *I* to contradict the *professionals?* 
 
-\[**Dispatch**\]:	Jane? Ma’am? What happened? Are you there? 
+I was still standing there five minutes later, when flashing red-and-blue lights came skidding around the street corner. The two police officers muttered into their radios and looked worriedly at the scene in front of them: a crying child, a wide-open door.
 
-\[**Jane**\]:	Oh fuck. Oh my God. He saw me! 
+“Did you call 9-1-1?” a blonde policewoman asked.
 
-\[**Dispatch**\]:	What? 
+“I did,” I nodded, “but they already came. They took my mom away.” 
 
-\[**Jane**\]:	He saw me! He saw me looking through the window! 
+The two police officers looked at each other.
 
-\[**Unknown Male**\]:	(Distant voice): Open the door! 
+“I’m afraid that’s not possible. We received a call from this location–a child shouting an address–and we’re the first ones to respond…”
 
-(Heavy rapping can be heard in the background). 
+It’s been twenty years since the black ambulance drove off with my mother. 
 
-\[**Jane**\]:	(Shouting): Leave me alone!... 
+I never learned what became of her, or of the strange nurses in the red uniforms. My foster parents said I made it all up. *Trauma,* they said. I had to forget, move on.
 
-\[**Dispatch**\]:	Jane? What’s happening? 
+But around midnight last night, I received a strange phone call. 
 
-\[**Jane**\]:	… Leave me alone! 
+A woman’s gravelly, rasping voice–almost inaudible over the screams and crackling flames in the background. A voice I recognized:
 
-\[**Dispatch**\]:	Stay on the line with me, Jane, okay? The officer should be there any moment now. 
+*“They told me that I could call…we’re going to be together again soon…son.”*   
 
-\[**Jane**\]:	Why are you here?! Why?! 
 
-(The sound of a door being violently broken can be heard). 
-
-\[**Unknown Male**\]:	Where are you?! 
-
-\[**Jane**\]:	Just go away! Please! Go away! 
-
-\[**Dispatch**\]:	Jane? Ma’am? 
-
-\[**Jane**\]:	(Incomprehensible screaming). 
-
-The line is terminated. 
-
-Approximately three minutes after the call with Jane was terminated. 
-
-\[**Officer**\]:	Kolten Twelve, Code 11. 
-
-\[**Dispatch**\]:	Go ahead. 
-
-\[**Officer**\]:	What’s my RP again? 
-
-\[**Dispatch**\]:	Party of Jane Heaster, female, unknown physical and age, address (REDACTED). 
-
-\[**Officer**\]:	And are we sure she said she lived at (REDACTED)? 
-
-\[**Dispatch**\]:	Correct. 
-
-\[**Officer**\]:	Right, well, it’s as I thought then. There’s nothing here. I’ve had a look through the windows, but the house is derelict. It’s been abandoned longer than I’ve been alive. Heck, I’m pretty sure I had my first kiss here. 
-
-\[**Dispatch**\]:	Okay. Can you Code 13 for a walk-in report? 
-
-\[**Dispatch**\]:	Kolten? 
-
-(Heavy rapping can be heard in the background). 
-
-\[**Officer**\]:	(Distant voice): Hello? Do you need help? 
-
-\[**Dispatch**\]:	Kolten? 
-
-\[**Officer**\]:	I just saw someone in the window. I can hear them screaming. I’m going to break down the door.
-
-[SM](https://www.reddit.com/r/SecretMortician/)
+[X](https://www.reddit.com/r/beardify)

@@ -1,5 +1,3 @@
-
-
 “Don’t go playing in those woods alone.” 
 
 That was my mother’s advice any time I brought up doing something in the forest behind our house.
@@ -137,3 +135,5 @@ Sticks tangled in my hair.
 My body wet with insect’s blood.
 
 My nightmare was just beginning.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11m7k7m/i_got_lost_in_the_woods_when_i_was_nine_years_old/?)
