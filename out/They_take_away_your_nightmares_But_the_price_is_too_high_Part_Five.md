@@ -1,4 +1,3 @@
-
 [Part Four](https://redd.it/10s6582)
 
 
@@ -71,3 +70,7 @@ Graves did turn and look at me then.  “We honestly didn’t know for sure.  An
 I grimaced at her.  “What is ‘this’?  What do we have to do to unfuck this place and get to leave?”
 
 “It’s our understanding that there is a mine underneath this town.”  She pointed her long, thin finger down and bored through the air like a drill headed for the heart of the earth.  “A very old and deep hole that for some reason the people of this town started mining again awhile back.  They dug up, and woke up, something even older than the hole down there.”  Licking her lips, she gave a nervous laugh.  “And now we have to find it.  [And kill it.](https://redd.it/10h9jfw)”
+
+**** 
+
+[Part Six](https://redd.it/11m9kdx)
