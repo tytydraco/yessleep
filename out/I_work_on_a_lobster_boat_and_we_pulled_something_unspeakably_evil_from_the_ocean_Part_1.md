@@ -1,7 +1,4 @@
-This all happened to me and I’m writing it down so it doesn’t happen to you. Maybe these things are immutable, unable to be changed once events are set in motion. So perhaps  I’m telling you not as a service, but as a way to excuse myself for what I’ve done, and what I’m about to do.       
-
-
-I never believed in evil. I believed in right and wrong, of good and bad. But evil? That was a concept that evoked thoughts of religion, the Bible, and sin. Maybe if I’d believed in evil, I wouldn’t have got myself into all of this.      
+This all happened not long ago, before I believed in evil. Good and bad? Sure. But evil? No way. No fucking way. But evil came to me, and now it's inside of me. This is how it happened.     
 
 It's hard to get a job when you're just out of jail. I needed money to feed my habit so I'd taken to breaking into seasonal camps around Sebago Lake, scrounging for anything I could pawn for fifteen cents on the dollar.  
 
@@ -241,3 +238,8 @@ Slowly, I stepped out of the wheelhouse and looked to my left. The snow came at 
 The metal arm that had smashed the window was swung out over the water.  From it, hung Billy Machree, by his belt. 
 
 He swayed in the wind, the tips of his boots beating on the side of the hull with a tunk tunk tunk.
+
+
+
+PART 2: 
+https://www.reddit.com/r/nosleep/comments/11m30sy/i_work_on_a_lobster_boat_and_we_pulled_something/?

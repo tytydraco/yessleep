@@ -86,7 +86,7 @@ Robin looked suddenly alarmed, like a kid with their hand in the cookie jar or a
 
 Robin shrugged.
 
-"I don't know, maybe because it was a while ago? Maybe because most of us forget or try to forget half of the stuff we did in college?"
+"I don't know, maybe because it was a while ago? Maybe because most of us forget or try to forget half of the stuff we did at uni?"
 
 As I frowned and tried to remember this band she pressed on.
 
@@ -177,3 +177,7 @@ On reading the last text I dropped the phone and let out a strangled squeak. My 
 *Just eliminate her.*
 
 What the hell had I gotten myself caught up in? And what even was [‘the project’?](https://www.reddit.com/r/Leavesandink/)
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11m2v74/anna_plays_the_cello_part_2/?utm_source=share&utm_medium=web2x&context=3)
