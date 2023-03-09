@@ -14,7 +14,7 @@ And I had found her.
 
 This house wasn’t haunted; it was infested. There were spider webs everywhere, and I could hear scratching in the walls and the sound of many things crawling.
 
-I was trapped here. They had trapped me in here. They called themselves my friends, but what friends ensured that when they pricked you, they nicked a vein to watch you bleed out.
+I was trapped here. They had trapped me in here. They called themselves my friends, but what friends ensured that when they pricked you, they nicked a vein to make sure you bled out?
 
 I heard them laughing from behind the door. Their voices mimicked every sound I made.
 
@@ -24,9 +24,9 @@ I heard them laughing from behind the door. Their voices mimicked every sound I 
 
 I tried to tell them about Allegra’s body, but they just mocked me. They refused to hear me.
 
-There was a soft clicking noise, and rustling came from the dry corpse of my friend’s dead sister. I watched in wonder as her jaw worked and opened. A wave of spiders crawled out, and so did her voice.
+There was a soft clicking noise, and rustling came from the dry corpse of my friend’s dead sister. I watched in wonder as her jaw worked and opened. A wave of spiders crawled out, as did her voice.
 
-“Help me,” she said. Her voice was so soft. Her withered lips stretched over her teeth and ripped. It sounded just like paper.
+“Help me,” she said. Her voice was so soft. Her paper-thin lips stretched over her teeth and ripped.
 
 “Help me,” she repeated. “Helpmehelpmehelpmehelpmehelpme…Help me.”
 
@@ -38,9 +38,9 @@ Her eyes rolled towards me, the spider‘s web clouding them. I knew she saw me 
 
 They crawled towards me and climbed up my arm; others crept into the crevices of my eyes.
 
-I screamed so loud that my throat felt like it was being ripped apart.
+I screamed so loud that my throat felt like it was being ripped open from the inside out.
 
-I threw myself at the door, clawing until the quicks under my nails bled.
+I threw myself at the door, clawing until my nails broke and bled.
 
 “I can help you,” a voice said behind me gently. “I can help you. “
 
@@ -72,4 +72,6 @@ If I had an answer, I would tell her, but I don’t.
 
 I’m going to go back. I’m going to open the door and climb the stairs. I will take what was mine from the beginning, and maybe Kat will stop cursing me in my dreams.
 
-And if she doesn’t, that’s fine because I will find solace amongst the dead and their bones. Maybe if I unravel the spider web, I can learn its secrets, and in return, I’ll be able to help those who seek it. I will be the one spoken of in hushed tones.
+And if she doesn’t, that’s fine because I will find solace amongst the dead and their bones. Maybe if I unravel the spider web, I can learn its secrets, and in return, I’ll be able to help those who seek it. 
+
+I will be the one spoken of in hushed tones.
