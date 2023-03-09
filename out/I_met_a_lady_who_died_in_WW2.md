@@ -64,4 +64,4 @@ I started hitting the window with the flashlight, but it didn't break. Then I to
 
 I heard her scream. 
 
-I opened my eyes and I was at the entrance to the abandoned train station. I didn't go in this time.
+I opened my eyes and I was at the entrance to the abandoned train station. I touched my chest to see if the scar was still there. It was. I didn't go in this time.

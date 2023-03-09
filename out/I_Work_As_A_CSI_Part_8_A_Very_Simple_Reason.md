@@ -1,4 +1,4 @@
-( First: https://redd.it/111m676 Previous: https://redd.it/11jhga3 )
+( First: https://redd.it/111m676 Previous: https://redd.it/11jhga3 Last: https://redd.it/11mzs2g )
 (Suicide TW )
 
 Jackalope was forced to stay home to rest for a few days after his body rejected his new arm. He needed help changing his bandages every morning, which I agreed to help. I put up his hair first, then went into the process of removing the day-old bandage to apply the new wrappings. 
