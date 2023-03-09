@@ -136,4 +136,4 @@ My body wet with insect’s blood.
 
 My nightmare was just beginning.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/11m7k7m/i_got_lost_in_the_woods_when_i_was_nine_years_old/?)
+[Part 2](https://www.reddit.com/r/nosleep/comments/11n255w/i_got_lost_in_the_woods_when_i_was_nine_years_old/?)
