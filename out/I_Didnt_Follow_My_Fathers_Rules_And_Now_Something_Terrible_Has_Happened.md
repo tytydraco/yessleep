@@ -50,7 +50,7 @@ I tried to process what was happening as I sat down on the floor and started hyp
 
 After a while, to my horror, I stopped hearing any gunshots. I heard the sound of scuttling feet, way too many feet, as the shadows approached the warehouse. I stopped looking out the window at this point and hid under my fathers desk as the shadows climbed around the warehouse, searching for a way inside.
 
-I saw that a shadow had blocked out the window's light and I knew the end was near. Surprisingly, I faintly heard the sound of a helicopter in the distance, followed by what felt like, a mini gun, barreling many bullets into the hull of the warehouse, obliterating many of the shadows in the process. 
+I saw that a shadow had blocked out the window's light and I knew the end was near. Surprisingly, I faintly heard the sound of a helicopter in the distance, followed by what felt like, a mini gun, barreling many bullets into the hull of the warehouse, obliterating many of the shadows in the process.
 
 Someone kicked down the door and searched the room. It took a couple seconds before the person found me and escorted me out of the warehouse. They told me to get into the helicopter as all I could do was follow their instructions.
 
@@ -61,3 +61,5 @@ These books were strange but luckily I also found some comic books. I wanted ans
 I banged on the door but it was locked and made of what looks like steel. I guess the silver lining is that the computer allows me to access the internet. So I'm posting again, like I promised.
 
 I'm not sure what to do at this point but I will keep in touch with you all.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/).
