@@ -1,6 +1,6 @@
 What I’m writing now is 100% real and I’m breaking every promise in my non-disclosure agreement with the US Government. It’s actually part of 18 USC 1905, "Disclosure of confidential information generally" and you can look it up to confirm the language in it. 
 
-There were also other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. I had to agree to all these restrictions to free speech like everyone else working on Plum Island in 2008.
+There were also other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. I had to agree to all these restrictions like everyone else working on Plum Island in 2008.
 
 You might remember Plum Island from that movie “Silence of the Lambs”, it’s the spot Clarice falsely promises Hannibal Lecter will be transferred to if he helps her find the serial killer. It’s not some made up Hollywood location, but a real place, as real as the horrific memories I have from working there. 
 
@@ -51,9 +51,9 @@ The American people lose their taste for war when Jane and Johnny come home maim
 
 So, me and my group were tasked to find more effective ways to uncover mines. We first looked at all the technical methods, using ground lidar, low-flying magnetic detecting drones, sonic resonance, etc. But they all were too expensive. Remember the big Defense Contracting Machine wants money in their pocket and not invested in our actual defense or battles.
 
-That’s when we looked into animal detection. It really was pretty goddam cool. Bees were researched first. Yep, bees. They can detect the scent of explosives with their antennas. I’m not making this shit up, Google it. The scientists in Croatia were on the cutting edge with their bee use to find mines.
+That’s when we looked into animal detection. It really was pretty goddam cool. Bees were researched first. Yep, bees. They can detect the scent of explosives with their antennas. I’m not making this shit up, Google it. The scientists in Croatia were on the cutting edge with their bee experimentation to find mines.
 
-We did some of our own work with the insects but determined they were too fragile a species. They didn’t travel well and since some of the simulated battle plans had America fighting in cold weather areas, they wouldn’t work, as they’d go into torpor, a kind of hibernation.
+We did our own work with the insects but determined they were too fragile a species. They didn’t travel well and since some of the simulated battle plans had America fighting in cold weather areas, the bees wouldn’t work, as they’d go into torpor, a kind of hibernation.
 
 Nope, we decided on the rats.
 
