@@ -92,6 +92,6 @@ When I woke, I was in the hospital. Jake and Cassie were in floods of tears, and
 
 I’m not scared for my family. I’m scared for any fool that steps foot into Anna’s house.
 
-[UPDATE](https://www.reddit.com/r/nosleep/comments/11mgefo/my_dead_wife_lives_in_the_walls_of_our_house_and/)
+[UPDATE](https://www.reddit.com/r/nosleep/comments/11mhi79/my_dead_wife_lives_in_the_walls_of_our_house/)
 
 [X](https://www.reddit.com/r/dominiceagle)
