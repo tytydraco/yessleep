@@ -48,11 +48,12 @@ I screamed and banged on the door. “Help me!”
 
 To my relief, the knob rattled, and then there were heavy thumps. They were trying to kick it in.
 
-“Stand back!” A voice, Ira, yelled. There was a pause, and with a resounding boom, the door popped open.
+“Stand back!” A voice, Ira, yelled. There was a pause, and with a resounding boom, the door burst open.
 
 I rushed out of the room and crashed into Kat and Ira.
 
 “Farrah?” Kat gasped. She looked beyond me into the room and screamed. I ran, and I kept running. Kat kept screaming.
+
 I ran down the hallway and nearly fell down the stairs. Ira was right behind me; her eyes were wide with shock. Kat was nowhere to be seen.
 We opened the door and flung ourselves into the sunlight. I don’t remember much else that day, but we must have gone for help.
 
