@@ -152,7 +152,7 @@ I’d forgotten about his parent for a few minutes. The person he feared the mos
 
 “You have no rights to this power! You were made to serve and nothing else! What an insult! What a disgrace! Those organs do not belong to you, nothing in your body does! I worked hard to find them and you owe everything to me! How dare you use it for your own gain, I shall put an end to this right now!” The monster screeched. 
 
-I knew this thing was stronger than both of us. I didn’t want to die for once. Not know. But I didn’t have any clue how we would be able to get out of this. There was no time to think. A light came from the creature’s main mouth. Jackalope matched it with his power. They both attacked at the same time knowing that energy exploding after hitting each other would cause a backlash that would kill someone here.  
+I knew this thing was stronger than both of us. I didn’t want to die for once. But I didn’t have any clue how we would be able to get out of this. There was no time to think. A light came from the creature’s main mouth. Jackalope matched it with his power. They both attacked at the same time knowing that energy exploding after hitting each other would cause a backlash that would kill someone here.  
 
 At the last second a crack of pure silver lightning came down between two blasts. A shockwave hit us all. I would have been blown off my feet if Jackalope hadn’t kept an arm around my side to support me. When the dust settled a new person stood between us. I stared at someone I never would have expected. 
 
@@ -286,7 +286,7 @@ I didn’t know how much time that might take. I dreaded I might just shut down 
 
 “I have no idea what you’re talking about.” He said matching my tone. 
 
-“Gaslighting now too? I should have seen all these reflags before we got engaged.” 
+“Gaslighting now too? I should have seen all these redflags before we got engaged.” 
 
 He wanted to keep the joke going but the word engaged made his face twist back into a shy smile. He wanted to scream but held it in. 
 
