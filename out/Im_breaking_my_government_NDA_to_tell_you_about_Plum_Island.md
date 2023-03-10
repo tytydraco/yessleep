@@ -102,7 +102,7 @@ An accident.
 
 At first, we were patting ourselves on the backs, a new generation of mine detecting rats were born. They were mega-rodents. Before they were the size of Beagles, but now they were as big as a German Shepherd and bulky like a Pit Bull.
 
-At first, they seemed to exhibit the same behavior as their predecessors, they found the mines, worked well with their handlers and looked to be the answer to a cheap effective way in eliminating a scourge of modern warfare.
+They seemed to exhibit the same behavior as their predecessors, finding the mines and working well with their handlers. We thought we found the answer to a cheap effective way in eliminating a scourge of modern warfare.
 
 There were some rules we had to adhere to with the rats. We had to pay strict attention to their mating habits and sterilize them when they were born, because if we didn’t we’d have an army of rats in just a matter of months. The math was actually frightening, a pregnant rat could produce a litter of 10 and give birth to another litter in only 4 weeks.
 
@@ -180,11 +180,15 @@ We locked the hatch that led from the stairway into our sentry box, as well as p
 
 Bullets were still flying.
 
-The pounding stopped, and we thought that Atlas had been shot, but then we heard a scratching noise and realized the rat was crawling along the outside framework of the tower and was making his way towards our open windows.
+The pounding stopped and we thought that Atlas had been shot, but then we heard a scratching noise and realized the rat was crawling along the tower's outside framework, making his way towards our open windows.
 
-We all scrambled to the hatch and pulled off the table. We had to get out. If we were trapped in the sentry box with that rat it, would be a death no one wanted to imagine.
+We scrambled to the hatch and pulled off the table, panic seized our actions, our hands fumbling, screams rising. 
 
-Atlas screeched when it poked its head into the tower, I looked into its black eyes and saw its whiskers twinge. It made a disgusting noise as its lips rubbed its blood-covered front buck teeth.
+We had to get out. 
+
+Atlas screeched when it poked its head into the tower. 
+
+I looked into its black eyes and saw its whiskers twinge. It made a disgusting noise as its lips rubbed its blood-covered front buck teeth.
 
 I then heard the most wonderful sound in the world, a bullet ripping through Atlas’ head. By crawling outside the tower he had exposed himself to the ACT squad. 
 
