@@ -32,7 +32,7 @@ My son Ned, died yesterday morning in a car crash.
 
 You might ask, then why didn’t they just kill you?
 
-There were 40 of us who worked there,and there are only 3 of us now. I checked with an actuary friend of mine, who told me that statistically that was off the charts. There was no reason that over three-quarters of us should be dead.
+There were 40 of us who worked there, and there are only 3 of us now. I checked with an actuary friend of mine, who told me that statistically that was off the charts. There was no reason that over three-quarters of us should be dead.
 
 If you’re counting at home, that’s 37 men and women who worked with me at Plum Island under the age of sixty, who’ve died in the last fifteen-years. That’s either some monumentally bad luck or a really strange coincidence.
 
@@ -54,7 +54,7 @@ My work was in mines, not gold mines or copper mines, but the kind that go boom.
 
 Upper management had run war game scenarios and the strategists who are paid the big bucks came to a sobering conclusion: the United States’ future “aggressive engagements” would be with countries that loved deploying mines over long stretches of battlefields.
 
-And mines meant two things, troops get bogged down and can’t fight and troops lose limbs from encountering the nasty explosives. The truth is, the powers-that-be didn’t care about actual pain and suffering to the soldiers, but they did worry about the bad publicity with parents back home, seeing their sons and daughters in wheelchairs and walking around with prosthetic limbs.
+And mines meant two things; troops get bogged down and troops lose limbs. The truth is, the powers-that-be didn’t care about actual pain and suffering to the soldiers, but they did worry about the bad publicity with parents back home, seeing their sons and daughters in wheelchairs and walking around with prosthetic limbs.
 
 The American people lose their taste for war when Jane and Johnny come marching home maimed.
 
@@ -182,7 +182,7 @@ Bullets were still flying.
 
 The pounding stopped, and we thought that Atlas had been shot, but then we heard a scratching noise and realized the rat was crawling along the outside framework of the tower and was making his way towards our open windows.
 
-We all scrambled to the hatch and pulled off the table. We had to get out. If we were trapped in the small sentry box with that rat it would be a death no one wanted to imagine.
+We all scrambled to the hatch and pulled off the table. We had to get out. If we were trapped in the sentry box with that rat it, would be a death no one wanted to imagine.
 
 Atlas screeched when it poked its head into the tower, I looked into its black eyes and saw its whiskers twinge. It made a disgusting noise as its lips rubbed its blood-covered front buck teeth.
 
@@ -202,11 +202,11 @@ After everyone was checked out for medical reasons, we were debriefed for sixtee
 
 Each of the dead soldiers had the orders re-routed to Iraq and would officially be classified as killed in action by either an RPG, helicopter crash or of all the ironies you could imagine, a mine. That would explain the terrible conditions of their bodies.
 
-The one rat that got away eventually washed ashore on Long Island, you might remember it as the “Montauk Monster”, go ahead Google it, you’ll see images of it all over the internet.
+The rat that got away  washed ashore dead on Long Island, you might remember it as the “Montauk Monster”, go ahead Google it, you’ll see images of it all over the internet.
 
-The government was able to have biologists explain it away as a dead and decaying raccoon, but I know what it really was and now so do you.
+The government had their biologists explain it away as a dead and decaying raccoon, but I know what it really was and now so do you.
 
-I don’t expect this post will stay up long. If you are reading it copy and paste it and re-post it to other sites and Facebook, hell email it to whoever you want. 
+I don’t expect this post will stay up long. If you're reading it copy and paste it and re-post it to other sites and Facebook, hell, email it to whoever you want. 
 
 The truth is, as I type the last words of this – what should I call it? A recollection? Confession?
 
