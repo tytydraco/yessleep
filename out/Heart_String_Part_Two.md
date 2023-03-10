@@ -1,0 +1,31 @@
+First part: https://redd.it/11lv3qr
+
+Okay, everyone, it’s Kevin, thought I would do an update. Things have gotten a little weird. I guess I’ll go in order though. So I did stop by Champ’s after work on Wednesday night and went in to see Leah. I had a couple of beers and we chatted and I worked up the courage to ask her out. 
+
+To be honest, it was really hard for me, the whole time I was sitting there and chatting with her, I was thinking about Holly. Mostly the first time we met. We were both 18, just out of high-school and I got hired to work at a grocery store she was working at. They sent me to her checkout line on my very first day so she could train me.  We hit it off like crazy and just laughed and laughed. I thought she was so beautiful. We played what I call the question game, where we take turns answering questions, and then both answer. It’s just a good way to get to know someone. What’s your favorite band, movie, food, all that sort of stuff. 
+
+She was dating someone at the time though, he actually worked at the store too. I don’t know, I’m getting all off track. Anyway, so I drink my beers, and Leah chats with me when she’s not helping other patrons, and it was a Wednesday so it wasn’t exactly hopping, you know? Leah is twenty-five so a decent bit under my age, but she’s so cute and she seems interested in me so I just went for it. I asked her if she wanted to go out and she suggested the very next day since it’s one of her off days. So last night, we went to dinner.
+
+I’ll get to that, I’m trying to do this all in order.  I left the bar and went home and took a shower before standing in front of my mirror. The hair was there of course, and it seemed even longer than I had seen it up to that point. This was Wednesday night, so two nights ago. Cutting it just hasn’t been working so I decided to try to pull it out. It was long enough to wrap around my finger twice. I’m so sick of this little fucker. A month it’s been bothering me. Now it’s even worse. Okay, I keep jumping ahead.
+
+So I wrap it around my finger and I can feel it pulsing like it does. Just throbbing. It’s honestly enough to make me wretch. It feels so strange, and the hair was… warm. No, not warm, hot.
+
+I get it wrapped and then I pull. I pull and it starts to move, and the pain is excruciating. Unbearable almost, I immediately stop. A small bit of blood pooled around the base of the hair and my flesh there was so sore. But the strangest thing was the hair itself hurt. When I pulled on it, it hurt. I don’t understand how hair can hurt. 
+
+I didn’t know what to do. I tried again. I wrapped it around my finger and I braced myself and I pulled. The hair, my chest, everything erupted in pain, but I pulled. The hair grew by an inch. Then two. The pain though was unbearable, and I had to stop. I collapsed forward against my bathroom sink. I drew in great ragged gulps of air. I felt like I could collapse. The hair on my chest was pure agony, a pain that I felt in the core of my chest.
+
+I walked quickly to my bed and fell upon it. I must have fallen asleep, because I woke up Thursday morning, late for work. I don’t remember having any dreams. The hair was still there, of course, three and a half inches long I would guess. I went into the bathroom and got my small scissors meant for nails, and clipped the hair, crying out as a new wave of pain passed over me. The hair was so thick and long that it fell into the sink with an audible thump. I left it there.
+
+After work, I went home and showered, dismayed to see the hair was back, an inch or so long, and now coated in a fine reddish sheen. Blood. I almost felt as though I was making it angry by so many attempts to have it removed. I dressed for my date and went to pick Leah up.
+
+The date was very nice. I had a good time, and when I dropped her back off she kissed me on the lips before getting out of my car. But as I drove home I erupted into tears. I had to pull over, I couldn’t even see. I thought about the first sort of date I had with Holly.
+
+I had actually been on a first date with this girl I had met through a common friend. It was a year or so after I had started at the grocery store. Holly and I both still worked there. She called me while I was on the date and when I saw it was her calling I excused myself and went outside to take her call. She was sobbing. She told me her boyfriend had been an asshole and she had broken up with him and he had pushed her down. Man, I hated him before and hearing that made my blood boil. She asked if I could come to pick her up and I told her yes. I went back in and told the girl I was on the date with that my grandmother was sick and I needed to go. I drove her quickly home and then went to get Holly.
+
+We drove around for a bit and ended up at a playground. It was nearly ten, the park was technically closed. We got out and sat on the swings and talked. Then we kissed. Then we went back to her place. She still lived with her parents (I lived with my mom then, to be fair) so we snuck in quietly and went to her room. We made love, and it was amazing, and I knew I was going to marry her. 
+
+God, I can’t tell you how itchy and painful my chest is right now. The hair is growing, even without me tugging at it. I called off work today, the idea of wearing a shirt over the hair all day is one I can’t deal with right now.
+
+I suppose I should go to the doctor but I’m hesitant. I don’t know, what do you all think? Leah has already texted me since our date last night, she was wondering if I wanted to keep her company at the bar tonight. I might head there. Every time I get around her though I just think of Holly. You’d think plenty of time had passed and I could handle dating someone new but Holly was just so damn special, and she’ll always be a part of me. She’ll always be my wife. 
+
+I have to get this damn thing out of my chest. God, it’s so itchy. Maybe I need to just pull and pull until it all comes out. The pain though. I don’t know, I’ll let you all know what I decide to do. One way or the other, I’m going to get this damn thing out of me, and soon!
