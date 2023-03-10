@@ -26,7 +26,7 @@ So why now? Why so chatty today?
 
 My son Ned, died yesterday morning in a car crash.
 
-You might ask, Then why didn’t they just kill you?
+You might ask, then why didn’t they just kill you?
 
 There were 40 of us who worked there,and there are only 3 of us now. I checked with an actuary friend of mine, who told me that statistically that was off the charts. There was no reason that over three-quarters of us should be dead.
 
