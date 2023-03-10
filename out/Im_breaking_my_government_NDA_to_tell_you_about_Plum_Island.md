@@ -1,14 +1,14 @@
 I’m breaking every promise in my non-disclosure agreement with the US Government. It’s actually called the 18 USC 1905,  or the "Disclosure of confidential information generally" form, and you can look it up to confirm the language in it.
 
-There were also other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. I agreed to all these restrictions like everyone else working on Plum Island in 2008.
+There were also other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. I agreed to all these restrictions like everyone working on Plum Island in 2008.
 
-You might remember Plum Island from the movie “Silence of the Lambs”. It’s the place Clarice falsely promises Hannibal Lecter will be transferred to if he helps her find the serial killer. It’s not some made up Hollywood location, but a real island, as real as the horrific memories I have from working there. 
+You might remember Plum Island from the movie “Silence of the Lambs”. It’s the place Clarice promises Hannibal Lecter will be transferred to if he helps her find the serial killer. It’s not a made up Hollywood location, but a real island, as real as the horrific memories I have from working there. 
 
-Located about a mile off the tip of Long Island, it was originally where the government studied deadly agricultural diseases. Since it was isolated from the mainland it was a perfect spot to keep any horrible virus from escaping and reaching our unprotected shores. 
+Located a mile off the tip of Long Island, it was originally where the government studied deadly agricultural diseases. Since it was isolated from the mainland, it was perfect to keep horrible viruses from escaping and reaching our unprotected shores. 
 
 But soon other things were studied and created, some by design and sometimes by accident.
 
-The accidents, those were the things that made you realize why they wanted you to sign an NDA, because if you already knew what I’m telling you now, you’d be terrified.
+The accidents, those were the things that made you realize why they wanted you to sign an NDA, because if you already knew what I’m going to tell you, you’d be terrified.
 
 So, why am I ready to break my vow, opening myself up to jail and fines and the government bringing down the full force of their ability to obfuscate my story.  
 
@@ -16,7 +16,7 @@ I have cancer.
 
 I’m actually in the hospital right now, typing this from my bed with an intravenous in my arm and about two-weeks to live. I’ve entered the who gives a shit moment of my life.
 
-I wanted to let the world know what I saw at Plum Island long before this moment, but I was afraid of what they might do to my son, the only real family I have left. Make no mistake, they’d be able to do whatever they wanted to him if  I didn’t keep my mouth shut.
+I wanted to let the world know what I saw at Plum Island long before this moment, but I was afraid of what they might do to my son, the only real family I have left. Make no mistake, they’d be able to do whatever they wanted to him if I didn’t keep my mouth shut.
 
 They could get him hooked on drugs, frame him for any crime you could imagine, or have him slip in the shower and snap his neck without the cops suspecting a thing.
 
@@ -30,11 +30,11 @@ You might ask, then why didn’t they just kill you?
 
 There were 40 of us who worked there,and there are only 3 of us now. I checked with an actuary friend of mine, who told me that statistically that was off the charts. There was no reason that over three-quarters of us should be dead.
 
-If you’re counting at home, that’s 37 men and women who worked with me at Plum Island between the ages of twenty-six and fifty-eight who’ve died in the last fifteen-years. That’s either some monumentally bad luck or a really bad coincidence.
+If you’re counting at home, that’s 37 men and women who worked with me at Plum Island under the age of sixty, who’ve died in the last fifteen-years. That’s either some monumentally bad luck or a really strange coincidence.
 
 So, the truth is, they are killing us. Slowly, but surely, they’re wiping away any eyewitnesses to the horrors we created on Plum Island.
 
-I told my son before he died that I wanted to let the world know what I saw, but I was afraid for him, and he understood. My son, a code engineer, said they could put a virus on my computer that could relay every website I visited, read every email I sent and every document I created without even being connected to any Wi-Fi, and I believed him.
+I told my son before he died that I wanted to let the world know what I saw, but I was afraid for him, and he understood. My son, a code engineer, said they could put a virus on my computer that could follow every website I visited, read every email sent and document created without even being connected to  Wi-Fi, and I believed him.
 
 Just before his crash he set me up with a laptop he’d said was “clean” and a special VPN that could connect me to the internet by using a burner phone to a burner account. If I followed his instructions no one could hack into my computer and see what I was typing. Because if they could see it, you wouldn’t be reading this.
 
@@ -42,11 +42,11 @@ I’m posting on this forum because there are 17 million readers here and you’
 
 I’m a contractor for the US Army, or was a contractor. I retired two years ago. My work was in mines, not gold mines or copper mines, but the kind that go boom. We were all part of a team that was working on mine detection.
 
-The upper management folk had run some war game scenarios and the strategists who are paid the big bucks came to a sobering conclusion: the United States’ future “aggressive engagements” would be with countries that loved deploying mines over long stretches of battle fields.
+Upper management had run war game scenarios and the strategists who are paid the big bucks came to a sobering conclusion: the United States’ future “aggressive engagements” would be with countries that loved deploying mines over long stretches of battlefields.
 
-And mines meant two things, troops get bogged down and can’t fight and troops lose limbs from encountering the nasty explosives. The truth is the powers-that-be didn’t care about the actual pain and suffering to the soldiers, but they did worry about the bad publicity from parents back home seeing their sons and daughters in wheelchairs and walking around with prosthetic limbs.
+And mines meant two things, troops get bogged down and can’t fight and troops lose limbs from encountering the nasty explosives. The truth is the powers-that-be didn’t care about the actual pain and suffering to the soldiers, but they did worry about the bad publicity from parents back home, seeing their sons and daughters in wheelchairs and walking around with prosthetic limbs.
 
-The American people lose their taste for war when Jane and Johnny come home maimed.
+The American people lose their taste for war when Jane and Johnny come marching home maimed.
 
 So, me and my group were tasked to find more effective ways to uncover mines. We first looked at all the technical methods, using ground lidar, low-flying magnetic detecting drones, sonic resonance, etc. But they all were too expensive. Remember the big Defense Contracting Machine wants money in their pocket and not invested in our actual defense or battles.
 
@@ -60,11 +60,11 @@ Giant rats from Africa.
 
 Specifically Gambian Pouched Rats.
 
-They were about the size of a small Beagle dog, good old Snoopy, but make no mistake they were rats. Chiseled tooth, disease carrying rodents that squealed and scurried and freaked me the fuck out when I first saw them in their electrified-fenced pens. Again, I’m not making this up, we and others had trained these rats to detect the scent of the explosives used in mines. It was the same technique used to teach bomb sniffing dogs, it was just with rats.
+They were about the size of a small Beagle dog, good old Snoopy, but make no mistake they were rats. Chiseled tooth, disease carrying rodents that squealed and scurried and freaked me the fuck out when I first saw them in their electrified-fenced pens. We trained these rats to detect the scent of the explosives used in mines. It was the same technique used to teach bomb sniffing dogs, it was just with rats.
 
 You might ask why rats?
 
-Remember when I mentioned the money grabbing Defense Contracting Machine, the fact was Giant African Rats were cheaper to train then dogs. You could have more of them and they didn’t mind the cold or snow or heat and if they made a mistake no one really cared when Bobo the rat went boom as opposed to Fido the pooch, which broke everyone’s heart.
+Remember when I mentioned the money grabbing Defense Contracting Machine, the fact was Giant African Rats were cheaper to train then dogs. You could have more of them and they didn’t mind the cold, snow or heat and if they made a mistake no one really cared when Bobo the rat went boom as opposed to Fido the pooch, which broke everyone’s heart.
 
 We had a squad of bomb sniffing rodents, about 30 of them.
 
@@ -161,7 +161,7 @@ I glanced outside the tower and looked down and saw the carnage of the dead rats
 
 One of the rats, its fur half-burned off from the electrified fence and limping was making its way to the island’s shoreline. The ACT squad converged and let loose a fusillade of bullets at the creature.
 
-Many if not all the sharpshooters hit their mark, but the creature still managed to make it to the water and paddle away.
+Many of the sharpshooters hit their mark, but the creature still managed to make it to the water and paddle away.
 
 An ACT squad in a chopper and boat were dispatched.
 
