@@ -1,3 +1,5 @@
+my neighbors dog isnt right.
+
 I'm a 28 year old male I have a dog named kloe, have no close family, and I live in the suburbs. Until just recently I have been a normal 9-5 type of guy working, eating, sleeping. Around spring of last year my new neighbor had moved in a, 32 year old female and a dog named Milo. When I tell you that this dog is shaped like no other I mean it. I asked, let's just call her kylie, what type of dog it was and she said it was a Saint Bernard. Automatically I sensed something was off because I've seen those dogs before and they didn't look like hers. But I just brushed it off like it was nothing and went back home. 
 
 The next morning I go went for a jog with kloe through the park. While I was waiting for kloe to do her business I see kylie and Milo. We exchange a conversation and pet each others dogs, at that moment while petting kylies dog I realized how thick and weird it's fur felt, kylie said that it has a rare condition. By that time I felt like it was time to go home.

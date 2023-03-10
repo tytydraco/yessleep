@@ -76,7 +76,7 @@ I want to yell, I want to scream, to tell her that’s not me.  But before I can
 
 He’s not in the hallway anymore, I realize with horror.  
 
-Now he’s in the bedroom.  With my [wife.](https://youtube.com/@JordanGrupe)  
+Now he’s in the bedroom.  With my [wife.](https://youtu.be/y_UClpGmn7E)  
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
