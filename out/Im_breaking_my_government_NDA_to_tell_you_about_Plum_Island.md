@@ -1,6 +1,8 @@
 I’m breaking every promise in my non-disclosure agreement with the US Government. It’s actually called the 18 USC 1905,  or the "Disclosure of confidential information generally" form, and you can look it up to confirm the language in it.
 
-There were also other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. I agreed to all these restrictions like everyone working on Plum Island in 2008.
+There were also other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. 
+
+I agreed to all these restrictions like everyone working on Plum Island in 2008.
 
 You might remember Plum Island from the movie “Silence of the Lambs”. It’s the place Clarice promises Hannibal Lecter will be transferred to if he helps her find the serial killer. It’s not a made up Hollywood location, but a real island, as real as the horrific memories I have from working there. 
 
@@ -10,19 +12,21 @@ But soon other things were studied and created, some by design and sometimes by 
 
 The accidents, those were the things that made you realize why they wanted you to sign an NDA, because if you already knew what I’m going to tell you, you’d be terrified.
 
-So, why am I ready to break my vow, opening myself up to jail and fines and the government bringing down the full force of their ability to obfuscate my story.  
+Why open myself up to jail, fines and the government bringing down the full force of their ability to obfuscate my story?  
 
 I have cancer. 
 
 I’m actually in the hospital right now, typing this from my bed with an intravenous in my arm and about two-weeks to live. I’ve entered the who gives a shit moment of my life.
 
-I wanted to let the world know what I saw at Plum Island long before this moment, but I was afraid of what they might do to my son, the only real family I have left. Make no mistake, they’d be able to do whatever they wanted to him if I didn’t keep my mouth shut.
+I wanted to let the world know what I saw at Plum Island long before this moment, but I was afraid of what they might do to my son, the only real family I have left. 
+
+Make no mistake, they’d be able to do whatever they wanted to him if I didn’t keep my mouth shut.
 
 They could get him hooked on drugs, frame him for any crime you could imagine, or have him slip in the shower and snap his neck without the cops suspecting a thing.
 
 That’s what they could do and did to others.
 
-So why now? Why so chatty today?
+Why now? Why so chatty today?
 
 My son Ned, died yesterday morning in a car crash.
 
@@ -32,25 +36,35 @@ There were 40 of us who worked there,and there are only 3 of us now. I checked w
 
 If you’re counting at home, that’s 37 men and women who worked with me at Plum Island under the age of sixty, who’ve died in the last fifteen-years. That’s either some monumentally bad luck or a really strange coincidence.
 
-So, the truth is, they are killing us. Slowly, but surely, they’re wiping away any eyewitnesses to the horrors we created on Plum Island.
+The truth is, they are killing us. Slowly, but surely, they’re wiping away any eyewitnesses to the horrors we created on Plum Island.
 
-I told my son before he died that I wanted to let the world know what I saw, but I was afraid for him, and he understood. My son, a code engineer, said they could put a virus on my computer that could follow every website I visited, read every email sent and document created without even being connected to  Wi-Fi, and I believed him.
+I told my son before he died that I wanted to let the world know what I saw, but I was afraid for him, and he understood. My son, a code engineer, said they could put a virus on my computer that could follow every website I visited, read every email sent and document created without even being connected to  Wi-Fi. 
 
-Just before his crash he set me up with a laptop he’d said was “clean” and a special VPN that could connect me to the internet by using a burner phone to a burner account. If I followed his instructions no one could hack into my computer and see what I was typing. Because if they could see it, you wouldn’t be reading this.
+I believed him.
+
+Just before his car crash he set me up with a laptop he’d said was “clean” and a special VPN that could connect me to the internet by using a burner phone to a burner account. 
+
+If I followed his instructions no one could hack into my computer and see what I was typing. Because if they could see it, you wouldn’t be reading this.
 
 I’m posting on this forum because there are 17 million readers here and you’re the ones with open minds to believe what I’m about to tell you.
 
-I’m a contractor for the US Army, or was a contractor. I retired two years ago. My work was in mines, not gold mines or copper mines, but the kind that go boom. We were all part of a team that was working on mine detection.
+I’m a contractor for the US Army, or was a contractor. I retired two years ago. 
+
+My work was in mines, not gold mines or copper mines, but the kind that go boom. We were all part of a team that was working on mine detection.
 
 Upper management had run war game scenarios and the strategists who are paid the big bucks came to a sobering conclusion: the United States’ future “aggressive engagements” would be with countries that loved deploying mines over long stretches of battlefields.
 
-And mines meant two things, troops get bogged down and can’t fight and troops lose limbs from encountering the nasty explosives. The truth is the powers-that-be didn’t care about the actual pain and suffering to the soldiers, but they did worry about the bad publicity from parents back home, seeing their sons and daughters in wheelchairs and walking around with prosthetic limbs.
+And mines meant two things, troops get bogged down and can’t fight and troops lose limbs from encountering the nasty explosives. The truth is, the powers-that-be didn’t care about actual pain and suffering to the soldiers, but they did worry about the bad publicity with parents back home, seeing their sons and daughters in wheelchairs and walking around with prosthetic limbs.
 
 The American people lose their taste for war when Jane and Johnny come marching home maimed.
 
-So, me and my group were tasked to find more effective ways to uncover mines. We first looked at all the technical methods, using ground lidar, low-flying magnetic detecting drones, sonic resonance, etc. But they all were too expensive. Remember the big Defense Contracting Machine wants money in their pocket and not invested in our actual defense or battles.
+My group was tasked to find more effective ways to uncover mines. We first looked at all the technical methods, using ground lidar, low-flying magnetic detecting drones, sonic resonance, etc. 
 
-That’s when we looked into animal detection. It really was pretty goddam cool. Bees were researched first. Yep, bees. They can detect the scent of explosives with their antennas. I’m not making this shit up, Google it. The scientists in Croatia were on the cutting edge with their bee experimentation to find mines.
+But they all were too expensive. Remember the big Defense Contracting Machine wants money in their pocket and not invested in our actual defense or battles.
+
+That’s when we looked into animal detection. It really was pretty goddam cool. Bees were researched first. Yep, bees. They can detect the scent of explosives with their antennas. 
+
+I’m not making this shit up, Google it. The scientists in Croatia were on the cutting edge with their bee experimentation to find mines.
 
 We did our own work with the insects but determined they were too fragile a species. They didn’t travel well and since some of the simulated battle plans had America fighting in cold weather areas, the bees wouldn’t work, as they’d go into torpor, a kind of hibernation.
 
@@ -60,7 +74,9 @@ Giant rats from Africa.
 
 Specifically Gambian Pouched Rats.
 
-They were about the size of a small Beagle dog, good old Snoopy, but make no mistake they were rats. Chiseled tooth, disease carrying rodents that squealed and scurried and freaked me the fuck out when I first saw them in their electrified-fenced pens. We trained these rats to detect the scent of the explosives used in mines. It was the same technique used to teach bomb sniffing dogs, it was just with rats.
+They were about the size of a small Beagle dog, good old Snoopy, but make no mistake they were rats. Chiseled tooth, disease carrying rodents that squealed and scurried and freaked me the fuck out when I first saw them in their electrified-fenced pens. 
+
+We trained these rats to detect the scent of the explosives used in mines. It was the same technique used to teach bomb sniffing dogs, it was just with rats.
 
 You might ask why rats?
 
@@ -72,13 +88,16 @@ The Army assigned us ten soldiers to work with the rat squad. They’d learn how
 
 It all seemed pretty normal aside from the fact were we working with rats.
 
-But this is when things went sideways.
+This is when things went sideways.
 
-The folks who wear the black sunglasses and use a lot of acronyms when they speak told us to genetically modify the rodents. They wanted them bigger, because biologists had determined the bigger the rat the longer they’d live. You see, rats were cheaper than dogs but their life expectancy was half that of canines. If we could make them bigger and live longer that meant even a greater return on the investment.
+The folks who wear the black sunglasses and use a lot of acronyms when they speak told us to genetically modify the rodents. They wanted them bigger, because biologists had determined the bigger the rat the longer they’d live. 
+
+Rats are cheaper than dogs but their life expectancy is half that of canines. If we could make them bigger and live longer that meant a greater return on the investment.
 
 Money, money, money.
 
 We were able to use the Infectious Disease Labs on the island to mutate the genes, but we’d eventually learn something went wrong. Some sort of cross-contamination with the viruses they were studying and the DNA work we were doing, no one was sure how it happened, but it did.
+
 An accident.
 
 At first, we were patting ourselves on the backs, a new generation of mine detecting rats were born. They were mega-rodents. Before they were the size of Beagles, but now they were as big as a German Shepherd and bulky like a Pit Bull.
@@ -91,7 +110,9 @@ Which meant that one female rat could produce 1200 rats in a year! Since we had 
 
 But not just rats, giant dog-sized rodents.
 
-The first sign something was wrong was on the third day of working with the new rats. We went to their pen to release them to the handlers and saw that five of the thirty rats were dead. They were torn apart and eaten by their pen mates. All the surviving rats had taken part in the feeding frenzy. Every rat in the enclosure that was still alive sported a blood-soaked jaw and face.
+The first sign something was wrong was on the third day of working with the new rats. We went to their pen to release them to the handlers and saw that five of the thirty rats were dead. 
+
+They were torn apart and eaten by their pen mates. All the surviving rats had taken part in the feeding frenzy. Every rat in the enclosure that was still alive sported a blood-soaked jaw and face.
 
 It wasn’t a squabble, the surviving rats had some sort of group think and decided to eat all the smaller rats.
 
@@ -101,13 +122,19 @@ That day in the practice minefield was when I understood why we signed the NDAs.
 
 The ten soldiers from the Army took the rats out for their normal drills.
 
-We were in our high tower outside the electrical fence observing and filming the training session. Everything seemed normal, until the biggest rat, the one we called Atlas, got up on his haunches and sniffed the air and shrieked. In an instant the pack of rats attacked the soldiers.
+We were in our high tower outside the electrical fence observing and filming the training session. Everything seemed normal, until the biggest rat, the one we called Atlas, got up on his haunches and sniffed the air and shrieked. 
 
-It was coordinated and swift and the most horrible thing you could ever imagine. They worked as pairs, two rats to every human. The soldiers were unarmed. We were on an island off New York doing animal research, no one thought you needed a gun.
+In an instant the pack of rats attacked the soldiers.
 
-The soldiers had no way to fight back, and we had no weapons either, so all we could do was watch as the beasts showed why the Bible is a pack of lies, because from what I saw the meek would not inherit the earth, it would be these rats if they ever left the island.
+It was coordinated and swift and the most horrible thing you could ever imagine. They worked as pairs, two rats to every human. The soldiers were unarmed, since we were only doing animal research, no one thought you needed a gun.
 
-They’re huge spatula sized front incisors tore at the legs of the soldiers, slicing open their femoral arteries and creating human blood-sprinklers all across the training field. Not one person got more than twenty feet before they were shredded alive, crimson spurts shooting out every which way as the rats chewed and gnawed at their victim’s limbs and faces.
+The soldiers had no way to fight back. 
+
+We had no weapons either, so all we could do was watch as the beasts showed me the Bible is a pack of lies. Because from what I saw, the meek would not inherit the earth, it would be these rats if they ever left the island.
+
+They’re huge spatula sized front incisors tore at the legs of the soldiers, slicing open their femoral arteries and creating human blood-sprinklers all across the training field. 
+
+Not one person got more than twenty feet before they were shredded alive, crimson spurts shooting out every which way as the rats chewed and gnawed at their victim’s limbs and faces.
 
 The sight was beyond horrific, but it was the screams, the howls of pain and terror that have kept me up at night for the last decade. The utter futility of their wailing.
 
@@ -117,7 +144,9 @@ The rats had killed every last soldier in less than five minutes.
 
 Then they charged the fence, even though they knew it was electrified. Working as one ravening swarm they pushed against the chain links and sent sparks shooting into the air, the smell of charred fur and animal flesh rose just below us where the rats were making their push. The front line of rats, about 8 of them were dead, smashed up against the fence.
 
-The horde regrouped and charged again. More sparks and the putrid smell intensified. The new front line of rats used the dead ones as stepping stones and leaped up the thirty-foot high fence, shoving their legs into the links so they would hook themselves in as 10,000 volts surged through their bodies and killed them.
+The horde regrouped and charged again. 
+
+More sparks and the putrid smell intensified. The new front line of rats used the dead ones as stepping stones and leaped up the thirty-foot high fence, shoving their legs into the links so they would hook themselves in as 10,000 volts surged through their bodies and killed them.
 
 They were dead but their bodies and the ones earlier could be used as a path of safe passage to leap over the fence.
 
@@ -137,7 +166,9 @@ If I jumped and even survived, I’d probably have a broken leg, which meant I c
 
 There was a gun shot.
 
-A group of men? Or women? It was hard to tell as they were covered, head to toe, in yellow hazmat suits and their faces covered in hoods with face shields. They charged along the outer enclosure’s fence line.
+A group of men? Or women? It was hard to tell as they were covered, head to toe, in yellow hazmat suits and their faces covered in hoods with face shields. 
+
+They charged along the outer enclosure’s fence line.
 
 I assumed they were the Action Containment Team, as each wore Kevlar vests and were draped in ammunition belts while carrying M-16 rifles.
 
@@ -155,7 +186,9 @@ We all scrambled to the hatch and pulled off the table. We had to get out. If we
 
 Atlas screeched when it poked its head into the tower, I looked into its black eyes and saw its whiskers twinge. It made a disgusting noise as its lips rubbed its blood-covered front buck teeth.
 
-I then heard the most wonderful sound in the world, a bullet ripping through Atlas’ head. By crawling outside the tower he had exposed himself to the ACT squad. He plummeted and hit the ground with a thud. More gunshots rang out as the rats were being cut down left and right.
+I then heard the most wonderful sound in the world, a bullet ripping through Atlas’ head. By crawling outside the tower he had exposed himself to the ACT squad. 
+
+He plummeted and hit the ground with a thud. More gunshots rang out as the rats were being cut down left and right.
 
 I glanced outside the tower and looked down and saw the carnage of the dead rats and mutilated soldiers. I hurled a gush of vomit from the open window. My sleeve wiped my mouth clean and then I screamed and pointed.
 
@@ -173,7 +206,9 @@ The one rat that got away eventually washed ashore on Long Island, you might rem
 
 The government was able to have biologists explain it away as a dead and decaying raccoon, but I know what it really was and now so do you.
 
-I don’t expect this post will stay up long. If you are reading it copy and paste it and re-post it to other sites and Facebook, hell email it to whoever you want. The truth is, as I type the last words of this – what should I call it? A recollection? Confession?
+I don’t expect this post will stay up long. If you are reading it copy and paste it and re-post it to other sites and Facebook, hell email it to whoever you want. 
+
+The truth is, as I type the last words of this – what should I call it? A recollection? Confession?
 
 I can honestly say I’m at peace for the first time in 15 years. Although this unburdening has given me some comfort, it doesn't change what happened. I know what I created on Plum Island led to the death of ten US Army soldiers. They died in the most horrible way and no amount of words will ever bring them back.
 
