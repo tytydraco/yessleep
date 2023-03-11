@@ -91,3 +91,5 @@ I shouldn’t have been capable of feeling every sensation, seeing every detail,
 That incident left me with no ability to pretend that this was a single freak accident. Something had happened in those woods, and it wasn’t going to just leave me behind. 
 
 I was too young to do anything about it though. I felt powerless. So I did what I had to: I lived with it.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/11ouczh/i_got_lost_in_the_woods_when_i_was_nine_years_old/?)
