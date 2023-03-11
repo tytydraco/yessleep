@@ -557,3 +557,4 @@ Until next time,
 Lucy
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/11ba09t/the_last_resort_i_think_im_in_trouble/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+[Part 5](https://www.reddit.com/r/nosleep/comments/11o6mah/the_last_resort_hypothetically_how_bad_is_it_to/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

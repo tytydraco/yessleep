@@ -238,11 +238,11 @@ I just kept beating him. I beat him until the white thing stopped moving. Until 
 
 I beat him until my muscles burned, and my breathing turned rapid from exhaustion.
 
-When I finally wiped the salt from my eyes, I was looking at nothing but broken bone and a yellow scarf. 
+When I finally wiped the salt from my eyes, I was looking at nothing but broken bone and a yellow scarf.
 
 &#x200B;
 
-I barely remember making my way back to the main road. I remember collapsing as the sun rose, and a man in a pick-up truck calling for help. I remember a familiar face. A white door. Something blue. 
+I barely remember making my way back to the main road. I remember collapsing as the sun rose, and a man in a pick-up truck calling for help. I remember a familiar face. A white door. Something blue.
 
 Later on, my friend drove down from Morgantown to see me, and I got a dozen calls from friends and family asking me if I was okay. They also had me take a drug test. Apparently, I’d acted “irrationally”.
 
@@ -252,6 +252,6 @@ Just be careful. They can easily be identified. They wear something to cover the
 
 Looking back at it, I can barely even believe it happened. You ever have that one day that is just so different from anything else you’ve ever done? That one day that just feels like another life, another time? That was one of those days. Sometimes I even manage to convince myself that it was all a lie. A nightmare. Something I cooked up in my sleep-deprived brain.
 
-But then I looked at that blue sunflower pin. The one that held that sleeve together.
+But then I look at that blue sunflower pin. The one that held that sleeve together.
 
-And I know they’re still there.
+And I know they’re still out there.
