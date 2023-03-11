@@ -1,0 +1,17 @@
+Have you ever tried one of those impossible burgers? They’re supposed to be the vegetarian alternative to regular burgers. Real meat doesn’t agree with me, so these plant-based burgers are a good way to satisfy that craving I have, without the unpleasant effects that meat has on me. They first came out in 2016, and Burger King started selling them back in 2019. A lot of people don’t know though, they cook those plant patties on the same grill as the real meat patties, so if you want it to actually be vegetarian you have to ask for it to be cooked in the oven instead. I didn’t know that the first time I ever ordered one; it was a good thing the kid working the register told me. It was a big change in my life; I started eating impossible burgers regularly, and everything was pretty good for about 6 years 
+
+ 
+
+There’s this girl I worked with, Millie; you might know somebody like her. She was all about the carnivore lifestyle, bragging about being able to eat a 30-ounce steak by herself, eating sticks of butter for some reason, basically taking pride in never eating vegetables. It’s become something of a trend lately. Despite the opposite lifestyles we had, we got along well; always giving each other shit, like her asking if I was allowed to eat animal crackers. I would joke that if she was ever autopsied, they would open her stomach and find old boots, license plates, and half of a 5-year-old child; like a shark. I’ve tried for a long time not to get attached to people but I did like her; that’s why I’m still torn up about what happened 
+
+ 
+
+On the 4th of July last year, Millie and her boyfriend were having a cookout and she invited a few people from work, me included. Beer, hot dogs, burgers, typical stuff. I brought a pack of impossible burgers and made sure to ask that they be cooked separately, so they wouldn’t be tainted by the real meat.  But Millie though; I don’t know if she was drunk and forgot, or if she did it as a joke. I’m more inclined to think she did it on purpose, considering all the prior back and forth shit talking we had done. She gave me a real burger without telling me, and they do taste very similar. 
+
+ 
+
+2016 to 2022; that was the longest I had gone without eating meat in the 300 years since I was given this curse; since I got lost hunting in the woods with my friend. After 13 days of wandering and not finding any game, I turned in desperation to the only thing that there was to eat; I made it quick, a bullet in the head while he slept. I survived and made it out because of that, but my fate was sealed. The thing about me now, when I eat real meat, I want more meat; I can’t control it. I keep eating until there’s nothing left in the area to eat. They’re never going to find Millie’s body, or anyone else who was at that party; there’s nothing left to find. After they were gone my mind cleared enough that I knew to leave the city. I spent a few days alone out in the desert, until I felt confident that I had it under control again. 
+
+ 
+
+I’ve started over. A new city, a new name. I’ve done it before, but hopefully it’ll be a while before I have to do it again. So yeah, that’s about it; I guess the point I wanted to make is that people really ought to respect other people’s life choices
