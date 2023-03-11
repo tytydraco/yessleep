@@ -34,7 +34,7 @@ He was silent for three seconds before rolling his gaze toward me. “Sorry, wha
 
 *
 
-“Very few people loose nineteen fingers and toes without cracking,” I explained thirteen hours later. I rubbed my forehead with my sleeve, then wiped the coagulated blood off the warm iron yet again. “Here goes the last one.”
+“Very few people lose nineteen fingers and toes without cracking,” I explained thirteen hours later. I rubbed my forehead with my sleeve, then wiped the coagulated blood off the warm iron yet again. “Here goes the last one.”
 
 *
 

@@ -134,7 +134,7 @@ dHill: "Goddammit SARAH! Get something to clean that up, Nelle, QUICKLY glove up
 
 *shuffling feet*
 
-unknownfemale: "Toss me that towel, AI need to wipe this guy off, my water got all..."
+unknownfemale: "Toss me that towel, I need to wipe this guy off, my water got all..."
 
 unknown: "THERE IS NO GOD HERE."
 
