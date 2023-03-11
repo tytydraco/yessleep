@@ -1,4 +1,4 @@
-( First: https://redd.it/o8vgiw Previous: https://redd.it/10lys62 )
+( First: https://redd.it/o8vgiw Previous: https://redd.it/10lys62 Next: https://redd.it/11owsnv)
 
 I think convincing my roommate to get some counselling was a good idea. Sunny started to make friends in the sorting room at the mailing company. I was glad that Max and I weren’t the only people he had to talk to. A big day arrived, and Sunny’s mood dropped. I hated the fact I needed to work that day and offered to stay home for him. Sunny refused and helped me get ready. 
 
