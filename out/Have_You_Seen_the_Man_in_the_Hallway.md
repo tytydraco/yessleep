@@ -78,6 +78,8 @@ He’s not in the hallway anymore, I realize with horror.
 
 Now he’s in the bedroom.  With my [wife.](https://youtu.be/y_UClpGmn7E)  
 
+[MAD](https://www.reddit.com/r/MidnightAllDay?utm_medium=android_app&utm_source=share)
+
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)

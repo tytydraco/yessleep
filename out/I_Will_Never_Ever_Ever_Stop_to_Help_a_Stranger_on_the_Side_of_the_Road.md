@@ -1,6 +1,6 @@
 There’s more ways than one to get lost on the backroads out there. I almost found that out the hard way.
 
-I was with my college sweetheart at the time, Lisa. We both had a few years in the workforce after graduating and we were already burnt out. If there was a Resilience 101 course in college we would have failed spectacularly. She was working as an accountant at the time and I had just quit my job as a structural engineer.
+I was with my college sweetheart at the time, Lisa. We both had a few years in the workforce after graduating and we were already burnt out. If there was a Resilience 101 course in college we would have failed spectacularly. She was working as an accountant at the time and I had just quit my job as a civil engineer.
 
 “You know what would cheer us up?”
 
@@ -8,7 +8,7 @@ I was with my college sweetheart at the time, Lisa. We both had a few years in t
 
 “The great American road trip!”
 
-I agreed to it, of course. It seemed like a good idea. I mean how many people don’t dream about driving across the United States in an open car.
+I agreed to it, of course. It seemed like a good idea. I mean how many people don’t dream about driving across the United States in an open car?
 
 We were barely out of Sacramento when we reached the edge of the Mojave. I’d actually never had driven out of the state up to that point so I was lost. I stopped at an isolated gas station. I told Lisa that I needed to use the restroom but it was really because I had no idea where we were going.
 
@@ -56,7 +56,7 @@ We finally reached the fork.
 
 “Right.”
 
-We turned right and the cactus-filled desert actually started to be filled with trees and shrubs. A few miles on and there was tall grass on either side of the road. I guess cacti weren’t the only things growing out here. 
+We turned right and the cactus-filled desert actually started to be filled with trees and shrubs. A few miles on and there was tall grass on either side of the road. I guess cacti weren’t the only things growing out here.
 
 A few more miles and we turned a corner. It was just sixty yards ahead before I screeched to a stop. There was a car across the road and what looked like two bodies out on the road. Just laying there.
 
