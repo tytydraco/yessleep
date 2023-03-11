@@ -1,0 +1,14 @@
+Hello and I’ve come to share a story that happen years ago to my aunt and other family members.
+It was a dark and chilly night and my aunt  was in a tent with her cousin Jerry. Earlier that night they’d been told the story of a creature that lurked in the woods nearby their house where they were camping at. It was a story about a hunter who’d gone into the woods and had saw a strange creature with a humanoid figure with a red eye that covered the entirety of its face, and a mouth that was located on its chest.
+Of course they didn’t believe it after all my aunt knew that her dad liked telling scary stories and scaring them. So later that night the two are sitting in the tent talking when all the sudden they see something outside their tent. It was a bright light that shined a bloody crimson color on the tent. The two just chocked it up to being my aunts dad.
+So they ignore it and eventually Jerry says he has to go use the bathroom and gets out of the tent a little bit after the light had disappeared.
+So at least an hour or so passes and Jerry doesn’t come back. My aunt starts to get worried and decides to run to the house since it’s nearby. She told her dad that Jerry hadn’t come back and that she wanted to sleep in the house.
+So her dad agreed and that morning the two went looking for him. When they went to the tents they saw something strange.
+There wasn’t blood, there wasn’t anything that screamed murder, but instead there was nothing. Strange I know. So they call Jerry’s parents and get the police involved and after a couple of months of searching they gave up.
+They didn’t find anything, not a trace. 
+
+However a couple years later while a family gathering was taking place in the same area a strange man that everyone, except my aunt recognized showed up. They were a man with tan skin, a plain old tuxedo for the occasion, black slicked back hair, and most strikingly of all, two red eyes. And everyone called him Jerry.
+He briefly spoke to my aunt about something however he ended up bringing up the case of Jerry. My aunt very confused asked why he brought it up and all Jerry said in response was, “I like mystery’s. Nice our family has one.”
+So after the gathering and while my aunt is staying in one of the spare rooms in her parents house, she wakes up in the middle of the night and looks out the window to see Jerry looking back at her. Obviously scared by this my aunt closes the curtains and goes back to sleep. The next morning when bring up the event to her dad he said he didn’t remember anyone named Jerry showing up.
+And her dad tells her that there were claw marks on the door.
+My aunt hasn’t returned to the area since.

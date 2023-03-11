@@ -6,7 +6,7 @@ It was Friday night and I appeared to be peeling long strips off his forearm, ch
 
 That night, we were a 24-hour fast-food restaurant.
 
-He was caught up in its illusion at the time – the thing impersonating me. He wouldn’t have attempted to leave, even if booth he was sitting in hadn’t already been growing into his flesh to the point where the two were nearly indistinguishable. Even if his legs didn’t end in jagged stumps of gnawed bones instead of feet. He was alive, but barely. Already too far gone for our help. 
+He was caught up in its illusion at the time – the thing impersonating me. He wouldn’t have attempted to leave, even if the booth he was sitting in hadn’t already been growing into his flesh to the point where the two were nearly indistinguishable. Even if his legs didn’t end in jagged stumps of gnawed bones instead of feet. He was alive, but barely. Already too far gone for our help. 
 
 I’m not even sure how many lives it has claimed over the years – the bodies don’t exactly pile up; They disappear, pulled into the walls, the floor. Every inch of this place is built upon death.
 
