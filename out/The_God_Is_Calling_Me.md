@@ -13,3 +13,5 @@ Finally he told me that simply I could leave things as they are now, there was n
 already like this leaving control of everything in my hands
 
 I spent a while processing what had happened and at the end of the day I went to a ravine to see if what happened was real and when I closed my eyes and jumped in, I said; I can't believe it, I had landed on my feet and without any problem, after understanding what I had to protect from now on, I looked towards the sun observing one of the biggest stars of life and thus I began to take care of reality and the sky creating new human systems and improving them a little with more physical capacities in which they cannot harm many people, and thus I obtained the knowledge of the concepts of my essence and discovered the infinite and great universes which God had mentioned before that I should take care of , so I decided and thus improve the entire existence of these universes by adding what a single being needs, friends and family, thus eliminating bad tastes and that the poor were no longer like this, creating a perfect existence, thus being a new god.
+
+~Kevin Nauren Fh'Sr
