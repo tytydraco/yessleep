@@ -2,7 +2,7 @@
 
 That’s what they always say, isn’t it? It’s what my mom said when I came home crying with sand in my eyes from being suddenly pushed down. It’s what the daycare worker said when I told her that he had chased me around, trying to put bugs into my hair. It’s what his dad said when I came to his house to get my DS back after he stole it. That’s the explanation given for Noah’s life mission to make me as miserable as possible. That’s such bullshit, isn’t it?
 
-I’d never done anything to him, in fact, I wanted to be his friend when he moved to the neighborhood. For some reason, he didn’t like me at all, but weirdly enough he sought me out. It wasn’t just a “girls have cooties” kid thing either, he kept it up. Through middle school and high school, he was a constant, headache-inducing presence in my life. By senior year, Noah was the most popular guy in the whole school. It made sense in theory, his family was rich, he was on the varsity track team and apparently, he threw the best parties. 
+I’d never done anything to him, in fact, I wanted to be his friend when he moved to the neighborhood. For some reason, he didn’t like me at all, but weirdly enough he sought me out. It wasn’t just a “girls have cooties” kid thing either, he kept it up. Through middle school and high school, he was a constant, headache-inducing presence in my life. By senior year, Noah was the most popular guy in the whole school. It made sense in theory, his family was rich, he was on the varsity track team and apparently, he threw the best parties.
 
 No one seemed to mind him terrorizing me every day, maybe it was because they knew they’d be next if they did mind. Not even the teachers did anything, their reason being that he and his friend had never actually hurt me. I wasn’t beat up every day, but they made me run their errands and forced me to go along as their designated driver when they went out into the woods to drink expensive booze stolen from Noah’s parents. I guess the staff treating it like it was no big deal made me think it’d be best to ride it out. No, he never hit me, but it felt like he’d scrapped out everything inside me, leaving an empty shell. Noah had been breaking me down since we were kids.
 
@@ -46,9 +46,9 @@ I never played any sports, but now I wanted to give the coach some farewell flow
 
 “May I use your bathroom?” I quickly asked, the woman nodded and pointed upstairs. I hurried so much that I didn’t realize that she hadn’t specified which door it was. I tried my luck and opened one, it was Noah’s room, judging by the track medals.
 
-A normal person would just have closed the door, but I opened it wider. The guy had made my school life a lonely hell, I felt like I deserved to have a peek at his room. It was surprisingly clean and organized, like a room you’d see in a furniture ad. 
+A normal person would just have closed the door, but I opened it wider. The guy had made my school life a lonely hell, I felt like I deserved to have a peek at his room. It was surprisingly clean and organized, like a room you’d see in a furniture ad.
 
- I was almost disappointed by the normalcy, but I found one thing that stood out. It was the yearbook, but there were a few colorful page markers sticking out. I picked up the book and flipped to the marked spots, I expected it to be of friends, but what I found make my stomach twist. The marked pages all had me on them.
+I was almost disappointed by the normalcy, but I found one thing that stood out. It was the yearbook, but there were a few colorful page markers sticking out. I picked up the book and flipped to the marked spots, I expected it to be of friends, but what I found make my stomach twist. The marked pages all had me on them.
 
 There was my senior picture and club photo, but he had even marked pictures with me in the background.
 
@@ -56,7 +56,7 @@ I went home, saying that my mom had called.
 
 Oliver had ditched me; he had gone on a college tour that was supposed to only last a day and he hadn’t come home. All I did was check my phone, hoping he’d text me that he was on his way. He had stopped responding that morning, I was hoping for a miracle. The blue dress I loved so much when I bought it felt scratchy and suffocating. I was sitting in my room on prom night, like I had planned originally.
 
-A knock, there was a knock at the door. I zipped down the stairs and threw open the front door. I expected to see Oliver with his dimpled smile and blue tie. The sight that greeted me was straight out of one of my nightmares. 
+A knock, there was a knock at the door. I zipped down the stairs and threw open the front door. I expected to see Oliver with his dimpled smile and blue tie. The sight that greeted me was straight out of one of my nightmares.
 
 Noah stood of my doorstep, wearing a tuxedo, and holding a corsage, his tie was blue, the exact same shade as my dress. His eyes on me felt like they were burning holes through my body.
 
@@ -66,11 +66,11 @@ This wasn’t a prank to show off to his friends, Noah was seriously asking, or 
 
 I rubbed my temple, my head was pulsing, this combined with being stood up was too much.
 
-“I can’t believe it; you *actually* did all of that because you liked me? You need a better grasp on reality if you thought there was chance, I’d say yes, either I’m dreaming or this is a joke because I can’t imagine that anyone is stupid enough to think that”, I said. 
+“I can’t believe it; you *actually* did all of that because you liked me? You need a better grasp on reality if you thought there was chance, I’d say yes, either I’m dreaming or this is a joke because I can’t imagine that anyone is stupid enough to think that”, I said.
 
 It was all crumbling down now, the feelings I’d bottled up in those years of being passive had boiled over. I slammed the door, or I tried to, but Noah kept it open with his grip. His cocky grin had melted away, revealing a cold expression. I felt shivers down my spine, something in him had snapped too.
 
-“I don’t understand, you don’t have anyone else, I spent years making sure that you didn’t”, he put a hand on his chin, like he was the confused one. “You have no friends no social life, I’m all you can depend on, so why won’t you like me back?” He hummed in thought. 
+“I don’t understand, you don’t have anyone else, I spent years making sure that you didn’t”, he put a hand on his chin, like he was the confused one. “You have no friends no social life, I’m all you can depend on, so why won’t you like me back?” He hummed in thought.
 
 I took a step back from the door, something was off, Noah wasn’t making any sense. “Your mom’s not even here for her daughter’s prom! I’m the only one who ever thinks about you”, he spoke lowly, it felt like an earthquake when he took a step into the house.
 
@@ -82,7 +82,7 @@ Noah *laughed*, it was cold and joyless.
 
 “The library boy? The one who’s probably banging a college girl right now?” He kept laughing, now he sounded amused. He took a step forward, I walked backwards, looking around for something, anything to defend myself with.
 
-“How the hell do you know he’s at a college?” I asked, none of this made any sense, he couldn’t have known. Noah gave an exaggerated sigh and reached into the pocket of his tux. He pulled out a familiar item, Oliver’s necklace. He threw it on the floor in front of me, like it was offering.
+“How the hell do you know he’s at a college?” I asked, none of this made any sense, he couldn’t have known. Noah gave an exaggerated sigh and reached into the pocket of his tux. He pulled out a familiar item, Oliver’s necklace. He threw it on the floor in front of me, like it was an offering.
 
 “Well, I guess we’re being honest, I was at the same tour, we all went swimming and it’d be pretty hard to think about someone when you’re at the bottom of a lake”, he stated, walking towards me. Noah was annoying, but I thought there was no way he’d ever *kill* *someone*. But as he walked over the necklace, I could see the look in his eyes clearly. There was no teasing edge, he wouldn’t suddenly reveal that he was messing with me and drive off.
 
