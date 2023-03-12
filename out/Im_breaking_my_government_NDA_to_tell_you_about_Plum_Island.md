@@ -1,6 +1,6 @@
 I’m breaking every promise in my non-disclosure agreement with the US Government. It’s actually called the 18 USC 1905,  or the "Disclosure of confidential information generally" form, and you can look it up to confirm the language in it.
 
-There were also other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. 
+There were other forms signed and pledges made, but you get the idea, no one wants what I know out there in the world. 
 
 I agreed to all these restrictions like everyone working on Plum Island in 2008.
 
