@@ -81,3 +81,5 @@ As I opened the door sitting right in the middle of my porch in plain sight was 
 I don’t know how, I don’t know when, but no one. Not a single person in my town has been able to escape “Knock Knocks” prophecies. No matter how careful they’ve been. As I’m sitting here typing this it’s like I can almost hear that wild laughter just outside my window. Cackling at my pathetic attempts to dodge my inevitable future.
 
 Give me prayers, give me good thoughts, give me some kind of way out of this. I don’t want to die. . . But I know a pattern when I see one, and when he knocks on your door your days are short. . .
+
+https://www.reddit.com/r/nosleep/comments/11pry8s/theres_someone_in_your_town_who_knows_things_he/

@@ -1,4 +1,4 @@
-(First: https://redd.it/o8vgiw Previous: https://redd.it/11nyvou )
+(First: https://redd.it/o8vgiw Previous: https://redd.it/11nyvou Next: https://redd.it/11psg7b )
 
 I’ve gotten into a pretty good routine at work. Sunny started to send me on my way with snacks or a packed lunch. Sometimes those snacks saved my life by offering them to a monster that wanted to take a bite out of me on delivery jobs. On occasion, I did a job with a different co-worker if Max needed to help with another job. I was human in a mailing company of monsters and yet survived this long. Any time I got comfortable, the world decides to show me just how dangerous it can be. 
 
