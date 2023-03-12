@@ -1,6 +1,6 @@
 [PART II](https://www.reddit.com/r/nosleep/comments/11iml6g/part_ii_i_played_a_cursed_indie_game_and_im_on_my/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
-
+[PART III](https://www.reddit.com/r/nosleep/comments/11p0fqn/part_iii_i_played_a_cursed_indie_game_and_im_on/)
 
 This happened a year ago. I never thought I’d talk about it, so believe me that sharing this is difficult. It feels as though I am betraying my heart by playing the game again and I know I’ll regret it. Please believe me when I say that I had no choice.
 
@@ -260,7 +260,7 @@ There was exactly one one-star review.
 
 ⭐️
 
--user deleted-
+\-user deleted-
 
 this game is weird. I don’t know how else to describe it but it’s weird. I wouldn’t say I liked it. and i’ve uninstalled it at least ten times and it keeps reappearing??? and my reviews keep getting deleted. I’m contacting corporate this is ridiculous.
 

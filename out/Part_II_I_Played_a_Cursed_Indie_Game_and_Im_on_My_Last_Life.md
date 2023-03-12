@@ -1,5 +1,7 @@
 [PART I](https://www.reddit.com/r/nosleep/comments/11gohml/part_i_i_played_a_cursed_indie_game_im_on_my_last/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
+[PART III](https://www.reddit.com/r/nosleep/comments/11p0fqn/part_iii_i_played_a_cursed_indie_game_and_im_on/)
+
 You’ve been here before.
 
 Sure, you have.
@@ -40,7 +42,7 @@ I sighed, “Okay! Fine.” Marmalade, curled up on my lap, opened one eye and m
 
 I scratched behind her ear and did what the game wanted of me. I dressed my soul.
 
-Dark brown skin, coily black hair,  galaxy anime eyes. 
+Dark brown skin, coily black hair,  galaxy anime eyes.
 
 I took a deep breath and tapped confirm, and this time, it accepted my choice. I hoped I wasn’t transferring my actual soul to the game. But if I was, it was too late.
 
@@ -52,7 +54,7 @@ After a few minutes of walking, the scenery devolved into a typical horror lands
 
 The sky darkened, the tree branches warped and curled, and the cute animals littered the dirt path dead. Their corpses were visceral, with strings of intestines and clumps of brain beside them.
 
-A large brown house loomed up ahead--the typical haunted house. SOUL stopped at the front door and turned to face me. An involuntary chill trickled down my spine. She was looking right at me, and I swear I could see fear flicker in those large pixelated eyes. 
+A large brown house loomed up ahead--the typical haunted house. SOUL stopped at the front door and turned to face me. An involuntary chill trickled down my spine. She was looking right at me, and I swear I could see fear flicker in those large pixelated eyes.
 
 I didn’t want to do this. I really didn’t. But Benji needed my help and honestly, I was curious. I love horror. I love scary stuff and being scared. I needed to know what was going on and why.
 
@@ -80,7 +82,7 @@ I nodded. “Yup. I downloaded it this morning and have been playing ever since.
 
 She leaned in for a closer look.
 
-SOUL was wandering around the dark, empty mansion. I had been right in my assessment of this being a *~ remember who you are *~ game. For the last two hours, I had been exploring and collecting bits of memories and clues to get my lost identity.
+SOUL was wandering around the dark, empty mansion. I had been right in my assessment of this being a \*\~ remember who you are \*\~ game. For the last two hours, I had been exploring and collecting bits of memories and clues to get my lost identity.
 
 So far, I had found adoption papers, a faded locket, and strands of silver hair. I was still exploring the first floor, which was impressively spacious.
 
@@ -128,7 +130,7 @@ Somebody was in the room with me.
 
 I could hear ragged breathing and felt fingers caress my skin and play with my hair. It was gentle at first, and then it wasn’t.
 
- Whoever, whatever it was, gripped my hair by the roots and pulled so hard that I saw white. My head burned, and I sank to the floor, my eyes blurred in tears of pain.
+Whoever, whatever it was, gripped my hair by the roots and pulled so hard that I saw white. My head burned, and I sank to the floor, my eyes blurred in tears of pain.
 
 There were footsteps around me, and I heard laughter and admonishing whispers. Then, something gripped my chin and breathed in my face; It smelled like rot and shit and death.
 
@@ -144,7 +146,7 @@ That was stupid, though, because the dead felt no pain, and Benji was dead.
 
 His death didn’t stop me from scrambling to my feet and chasing after him. I didn’t stop until I was staring into his skull’s chasm.
 
- “Benji,” I said. I grasped his hand; it was slimy and cold. “Benji, what’s happening? What are you doing here?”
+“Benji,” I said. I grasped his hand; it was slimy and cold. “Benji, what’s happening? What are you doing here?”
 
 He stopped; he didn’t speak. I wondered if he even saw me. And then he pointed to the stairs. The bottom steps were slick with blood and caked in gore.
 
@@ -154,7 +156,7 @@ He stopped; he didn’t speak. I wondered if he even saw me. And then he pointed
 
 He sounded so sad that I wanted to hug him and tell him it was okay. But he buried his face in his hands and sobbed, his grief untethered and raw.
 
-I made to grab him, but this time my hand went right through him, and icy white pain blinded me. The room shook, and Benji contorted. 
+I made to grab him, but this time my hand went right through him, and icy white pain blinded me. The room shook, and Benji contorted.
 
 Bones snapped, tendons tore, and his spine burst from his back like a bloody flower in full bloom. His grin slid off his face when he looked at me, and his eyes rolled madly in their sockets. He walked towards me, jerking erratically, glitching.
 
@@ -162,7 +164,7 @@ He grabbed me by my throat and lifted me into the air effortlessly.
 
 Benji wasn’t Benji anymore. Benji had become a creature of many masks with none to call his own. Right now, that mask was a blur of colors, some I never knew existed.
 
-Benji, no, this thing, squeezed tighter, stealing all breath from me. My vision was fading, and I knew I would pass out, but just before I did, Benji became Benji again. He looked scared, but determined. 
+Benji, no, this thing, squeezed tighter, stealing all breath from me. My vision was fading, and I knew I would pass out, but just before I did, Benji became Benji again. He looked scared, but determined.
 
 Benji let go of my neck and wrapped his arms around me in a hug, and then he grabbed me by my waist and flung me from him as hard as he could. I flew through the air and shut my eyes just as I was about to become well acquainted with the ceiling. I waited for the impact.
 
@@ -180,17 +182,17 @@ It was a dream, a nightmare. But, of course, you’re dreaming about Benji and t
 
 But I wouldn’t placate myself with lies because it hadn’t been a dream. It was real.
 
-I turned on my tablet and was on untitled’s pause screen. 
+I turned on my tablet and was on untitled’s pause screen.
 
 Benji stared back at me; his eyes were huge and scared, and a dark trickle of blood slowly trailed down his face.
 
 *Ping*
 
-I read the notification on my screen. 
+I read the notification on my screen.
 
 Benji Today at 2:32 AM
 
-Isis stop Isis DE ET EL del tee edt eel Isis delete delete DELETE THE GAME as tay way a awaysty STay away STAY AWAY STAY AWAY I am lost in heaven altai enmesh vino I thrive in hell I thrive I thrive I thrive I 
+Isis stop Isis DE ET EL del tee edt eel Isis delete delete DELETE THE GAME as tay way a awaysty STay away STAY AWAY STAY AWAY I am lost in heaven altai enmesh vino I thrive in hell I thrive I thrive I thrive I
 
 Benji Today at 3:33AM
 
@@ -208,11 +210,10 @@ The monster rotated through its cache of faces until it settled on one.
 
 Benji’s.
 
- Benji stared down at me, and without a word, he gripped the underside of my jaw and tore away my face. Then, he placed it over his own like a mask, and I watched him transform into me. 
+Benji stared down at me, and without a word, he gripped the underside of my jaw and tore away my face. Then, he placed it over his own like a mask, and I watched him transform into me.
 
 I blacked out and when I woke up, I saw the game was still playing. Red text blared across the screen.
 
-4/5 LIFE LEFT
-LIFE ONE LOST 
+4/5 LIFE LEFT LIFE ONE LOST
 
 The thing had not only stolen my face but it had also taken a part of my soul.

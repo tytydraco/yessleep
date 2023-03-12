@@ -12,9 +12,9 @@ As we all settled in the basement, a couple boxes of food and water next to us o
 
 “...civil broadcast from the United States government,” a robotic female voice stated. “As of 9 AM Eastern Standard Time, martial law is being declared for your local area. All emergency services are suspended until further notice. Please stay in your homes and await further instructions. Help is on the way. This is not a test.” Then a loud beeping sound issued from the radio, and the message started to repeat. I tried changing the station, but it was coming through on every one.
 
-Someone started slamming on the door upstairs, and I heard the kitchen window directly above us being smashed. 
+Someone started slamming on the door upstairs, and I heard the kitchen window directly above us being smashed.
 
-“Be quiet,” I whispered to my wife and daughter. They trembled, pale statues in the darkness of the basement. I heard heavy footsteps above us, and the sound of someone dragging something. 
+“Be quiet,” I whispered to my wife and daughter. They trembled, pale statues in the darkness of the basement. I heard heavy footsteps above us, and the sound of someone dragging something.
 
 From further down the street, I heard screaming and wood being smashed, as if someone were kicking in a door. It sounded like a car had driven into the house next door. I heard the shattering glass and rending metal of the car hitting a structure, then a piercing woman’s shriek. The smell of smoke began to permeate the night air.
 
@@ -52,7 +52,7 @@ Tendrils of gray and red roots seemed to grow out of his body, criss-crossing ac
 
 His mouth was opened, letting blood-red vines with spikes shoot out in my direction. Even though I watched the spectacle with open-mouthed horror, my instincts still kicked in enough for me to know I needed to put him down. Without thinking, I fired a shot directly into his head.
 
-He was so small that the exit wound of the slug blew the entire back of his head off. He fell back, as if in slow motion. I saw gray and red tendrils whipping around crazily, moving much faster and more erratically as he died. Some of them morphed at an increased rate, sending thorns and spikes shooting out, and others wrapped around the child’s body, as if trying to protect him from further damage. But it was too late. 
+He was so small that the exit wound of the slug blew the entire back of his head off. He fell back, as if in slow motion. I saw gray and red tendrils whipping around crazily, moving much faster and more erratically as he died. Some of them morphed at an increased rate, sending thorns and spikes shooting out, and others wrapped around the child’s body, as if trying to protect him from further damage. But it was too late.
 
 Within seconds of him laying on the ground, the energy behind the tendrils seemed to weaken. The spikes receded back inside, and they began to fall randomly around and on top of his body, no longer moving. A few new smaller tendrils shot out from the bullet wound, but those also quickly lost energy, instead falling back into the blood and gore of his face.
 
@@ -74,16 +74,20 @@ A robed man with a bone-white face stared down at me. His hands looked skeletal,
 
 “Wait! What’s your name?” I asked, but he ignored my question. I looked at my Beth and Sarah, who were staring at me, open-mouthed. Within seconds, the man’s footsteps faded into nothing.
 
-“I think it’s time we got out of here,” I said to them. “Prepare a few backpacks with some food and water. We will have to split whatever we can carry between the three of us. I need to go get some things from upstairs before we leave, though. I think we might have a long journey ahead of us.” My wife nodded, going through the storage supplies and finding a few bags. I didn’t want to leave them alone for even an instant, so I stayed with them while she packed. We gave Sarah a small bag with a few cans of food and water. Sarah also put Dr. Hoppy in it. 
+“I think it’s time we got out of here,” I said to them. “Prepare a few backpacks with some food and water. We will have to split whatever we can carry between the three of us. I need to go get some things from upstairs before we leave, though. I think we might have a long journey ahead of us.” My wife nodded, going through the storage supplies and finding a few bags. I didn’t want to leave them alone for even an instant, so I stayed with them while she packed. We gave Sarah a small bag with a few cans of food and water. Sarah also put Dr. Hoppy in it.
 
 “Sorry, Dr. Hoppy,” Sarah said, frowning as she zipped up the backpack. “I know you don’t like small spaces, but it is only for a little while.”
 
 Beth and I split heavier bags with more food and water, but we didn’t overload them, as I had the feeling we might need to run.
 
-After we finished preparing in the basement, we went upstairs. I saw bodies all over our kitchen. I recognized the bodies of our neighbors and a couple other people from town. They all had gray and red vines sticking out of their skin, unmoving. Some of them had blood pouring from both eyes, while others had mostly clear faces. 
+After we finished preparing in the basement, we went upstairs. I saw bodies all over our kitchen. I recognized the bodies of our neighbors and a couple other people from town. They all had gray and red vines sticking out of their skin, unmoving. Some of them had blood pouring from both eyes, while others had mostly clear faces.
 
 Regardless, it looked like the robed man had torn them limb from limb. There were arms with red vines coming out of the bones, decapitated heads with gray tendrils loosely hanging down from their throats, and other horrors I don’t want to reflect on here. I covered Sarah’s eyes as we led her past the carnage, going upstairs.
 
 I found a phone up there, a special model with encryption and VPNs installed that I kept for emergencies. My technologically-savvy friend had given it to me, and now I tried turning it on and connecting. I was able to get through some of the government restrictions and connect to a weak internet source. No calls or texts would go through, however.
 
 But I wanted to at least write up my story to let people know what’s happening. The government will almost certainly try to cover up what is happening in our town. I plan on getting my family out and letting the world know the truth, however- no matter the cost.
+
+&#x200B;
+
+Part 2: [https://www.reddit.com/r/nosleep/comments/11pe25h/something\_infested\_the\_water\_supply\_now\_martial/](https://www.reddit.com/r/nosleep/comments/11pe25h/something_infested_the_water_supply_now_martial/)
