@@ -7,7 +7,7 @@ She spoke with elegance and kindness. She had strawberry blonde hair, going up t
 
 Daisy had a large family. 1 sibling and a horde of extended family relatives. I was very close with her family, actually. She had a sister, named Marigold, who usually accompanied us on the many dates we would have. 
 
-Unlike Daisy, however, Marigold was the complete opposite of her. Marigold was rude and snooty, and usually was very moody. Marigold was bipolar. Changed moods like every hour. It was annoying, up until a certain point. Then I realized something. Something critical, and important. 
+Unlike Daisy, however, Marigold was the complete opposite of her. Marigold was rude and snooty, and usually was very moody. Marigold was bipolar. Changed moods a lot. It was annoying, up until a certain point. Then I realized something. Something critical, and important. 
 
 
 You see, a few days before Daisy's death, Marigold went into an episode. She ended up harming her sister during it. My beloved girlfriend was hurt. Her family were being defensive towards Marigold, saying that she couldn't control it, and that it wasn't her fault. But I was beyond angry. I felt numb inside, as I had constant anxiety over whether she would survive or not.
