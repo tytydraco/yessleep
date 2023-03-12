@@ -1,0 +1,33 @@
+I have always had a great relationship with my grandmother. She always loved me, baked her special cookies for me (which were delicious by the way), she helped me with my schoolwork, and she listened to me when I needed to talk with someone. She also loved taking me to the park. We fed stale bread to the ducks and watched the swans swim while a man was playing sweet tunes beside us.
+
+I used to go to sleep at her house on the weekends. Every weekend, nearly without fail, I would go over to her house and spend some time with her. As I grew older, though, I didn't come as frequently. At 18, I moved out of my parent's house into a small flat close to the university. I think my grandmother felt lonely, because she bought a cat. It was a small kitten, all black except for a small white streak on her back. It was barely noticeable, though. Her name was Pepper. It was a sweet kitten, it always loved to rub herself against you to show love. Pepper used to follow me everywhere, and she used to smell of roses because of her shampoo. She was my grandmother's joy, her companion through the long life ahead of her. She would never leave the house without her, and Pepper seemed to enjoy the love, too.
+
+Meanwhile, my life wasn't going well. After university, I had a hard relationship with a past loved one. I got into drinking. I lost most of my money and needed to go back to stay with my parents, but nothing stopped my drinking addiction. Every night, I would pass out at a bar. Sometimes I would go to my grandmother's house and fall asleep there, instead. I remember Pepper, now older and a bit fatter, lying at my feet when I blacked out at my grandma's.
+
+My addiction became intolerable. My temper flared at the slightest provocation, and my relationships and hobbies suffered. I felt trapped and helpless, unable to escape the grip of my addiction. I barely talked to my grandmother, yet I now always found myself back at her house when I woke up. Even Pepper couldn't cheer me up. Every time I woke up with her at my legs, I kicked her off in a fit of rage. One night, I tripped on Pepper while coming home. I can't remember anything else from that night, but, when I got up and went to the kitchen, I found her in the sink. I had killed the cat.
+
+At that point, I didn't even care. I knew I couldn't let my grandmother see, so I buried Pepper, but I did very little to conceal her. After that, whenever I woke up at my grandma's, she was looking at a picture of Pepper sadly. She barely did anything else. I didn't feel any remorse at that point, nor did I feel like I had to change anything.
+
+After a few months, I stopped going to my grandmother's house at all. My parents finally forced me into rehab, where I actually got better. I spent a few months there. Looking back, they weren't that bad, but they seemed like hell while there.
+
+I messaged some friends I had left back, and got back in touch with most people I knew. At the same time, I also started spending time with my grandmother. She still missed Pepper, and kept a photo of her on the wall, but she never knew what happened to her. I got a job, too. It was nothing special; just flipping burgers at some local fast food chain. It didn't pay much, but it gave me some free time and my parents helped through everything.
+
+A year and a bit had passed after that, and I was feeling much better. My life started up again, and I even got a better job. For my grandmother's birthday, I decided to take to an animal shelter to get her another cat. It really cheered both of us up. I don't think I ever saw grandma so happy about anything after the incident with Pepper.
+
+When we got to the shelter, we found no one there. Of course! Silly me. We went on a Sunday. But that didn't stop our plans. My grandmother and I decided to go for a walk around the place, and found ourselves beside a park. While we were there, my grandma noticed something. “Hear that?”, she said, ushering me to be quiet. It was a little cat. A small, black cat with no collar, just hiding in a bush. My grandma immediately felt a strong connection to that cat. She got close to it, and, without hesitance, the cat came up to her. It was like love at first sight.
+
+We went to the vet to check it for diseases and vaccinate it and brought it straight home. When my mother saw it, she noticed the cat had the same white streak as Pepper. Immediately after noticing it, I felt dizzy. Looking at the cat brought back the nightmares and images of the incident. I decided to go to the toilet to not let anyone see that I wasn't feeling well.
+
+We decided to call it Mixa, which means cat in our native language. And I didn't like her. She was too much like the cat I had killed. She followed me around and rubbed herself against me, just like Pepper. And she smelt like roses, just like Pepper.
+
+My disdain for this cat turned into hatred. Whenever I went to my grandma's, it seemed to never leave me alone. It constantly reminded me of Pepper and made me feel even guiltier every day. When I went to sleep at her house, she came over to my bed and slept on my chest, like the weight of the death of the other cat. It seemed like it was torturing me.
+
+I got back into drinking because of Mixa. I couldn't take it any more, so one night I went to the pub I used to go to and started drinking. It felt great. I forgot all about Pepper, and Mixa, and any other problem I had either at work or at home. At the time, I didn't think it would take me back to what happened before, but it did.
+
+The first few times I drank myself to sleep, nothing bad seemed to happen. But then my only escape from reality turned into a nightmare. I kept seeing Pepper, or Mixa, or both, everywhere. In dark alleys, on chairs, shelves… They were everywhere. They scared me to death. The worst thing I remember Pepper – or whatever I was seeing – doing was scaring me on top of the stairs. She jumped out of nowhere and tried to scratch me, but I moved away and fell downstairs. I had a limp for weeks after that.
+
+There came a point where I couldn’t take it. I tried drinking my concerns away again, but it just made it worse. I went absolutely mad. I talked to no one, went nowhere and did nothing. I just stayed in my room and looked around in a frightened way.
+
+It came to a point where my parents were so worried about me, they forced me to the hospital. When there, they deemed me mad and sent me to an insane asylum. But nothing got better. I saw the cat I killed painted on walls, dead on the window sill, trying to scratch me from behind… 
+
+I can’t take it any more. That is why I am writing about my life on this paper while in the asylum. If all goes well, I’ll be in a better place tomorrow.
