@@ -100,7 +100,7 @@ My vision went white with sudden pain, and then everything went black. When I ca
 
 I lay dying on the mansion’s dirty floor, HUNT standing above me, licking its bloodied fingers.
 
-It leaned over me, and its face was Anya.
+It leaned over me, and its face was Anya’s.
 
 Its lips spread in a smile, and in Anya’s voice, it said,
 

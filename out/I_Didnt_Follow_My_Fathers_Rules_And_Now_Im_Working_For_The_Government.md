@@ -1,12 +1,12 @@
 Hello, Travis Marcella here, You should go see other parts before this one so you understand my situation clearly...[Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/).
 
-I woke up to see that nothing had changed. I was still in the same room with no way out. I looked around and glanced up to see a vent that was tightly locked with screws. I searched around for a screwdriver, feeling the books for some secret button, checking under my bed, and searching the desk. I found a toy box in the corner, under my bed. Oddly, I found this strange as I was almost an adult and I thought myself a bit old to be playing with such things. I looked inside and found many useless toys such as action figures and small cars. At the bottom of the toy box i found a toy screwdriver. 
+I woke up to see that nothing had changed. I was still in the same room with no way out. I looked around and glanced up to see a vent that was tightly locked with screws. I searched around for a screwdriver, feeling the books for some secret button, checking under my bed, and searching the desk. I found a toy box in the corner, under my bed. Oddly, I found this strange as I was almost an adult and I thought myself a bit old to be playing with such things. I looked inside and found many useless toys such as action figures and small cars. At the bottom of the toy box i found a toy screwdriver.
 
 "Perfect" I whispered under my breath.
 
-I went to the vent and unhinged the vent cover rather easily. It felt a bit strange that escaping would be so easy but I assumed that they underestimated me. I quickly got into the vent shaft and began moving as slowly as possible to not make any noise. I made it to an intersection that led off in 2 directions, left and right. I chose left and began making my way through the vents again when suddenly I heard a screech below me. 
+I went to the vent and unhinged the vent cover rather easily. It felt a bit strange that escaping would be so easy but I assumed that they underestimated me. I quickly got into the vent shaft and began moving as slowly as possible to not make any noise. I made it to an intersection that led off in 2 directions, left and right. I chose left and began making my way through the vents again when suddenly I heard a screech below me.
 
-I looked into a crack in the vents and saw a large creature being experimented on. It was a dark red color that had no head but a large mouth where it's stomach should be. It had 2 large fangs that reminded me of those giant spiders and other than that, it had a humanoid shape. I assumed it was about 5 feet tall but it was also pretty wide. 
+I looked into a crack in the vents and saw a large creature being experimented on. It was a dark red color that had no head but a large mouth where it's stomach should be. It had 2 large fangs that reminded me of those giant spiders and other than that, it had a humanoid shape. I assumed it was about 5 feet tall but it was also pretty wide.
 
 I continued through the vents as I tried to ignore it's screeching. I made my way to a dead end that had a hatch which led down into a room that seemed empty. I felt uneasy but pressed on and dropped down...
 
@@ -90,4 +90,6 @@ I woke up back in my cell, Bandages wrapped around my head and the door was lock
 
 &#x200B;
 
- I'm writing this as an update to my situation. I'll stay in contact with you all and keep you updated as much as I can. I just hope that Darius is ok...
+I'm writing this as an update to my situation. I'll stay in contact with you all and keep you updated as much as I can. I just hope that Darius is ok...
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/11p1o9e/i_didnt_follow_my_fathers_rules_and_now_im_a/)

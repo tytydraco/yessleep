@@ -38,7 +38,7 @@ But the happiness bubbling inside me was overwriting everything else, I’d have
 
 “There’s nothing you can say to ruin this, in 72 hours, you won’t mean a thing to me, I hope you enjoyed it while it lasted, because we’re done here”, I spat, walking hastily out of the library. I expected him to follow me, to yell an insult back, but he was completely silent.
 
-I didn’t realize it at the time, but that the worst way he could have reacted.
+I didn’t realize it at the time, but that was the worst way he could have reacted.
 
 I never played any sports, but now I wanted to give the coach some farewell flowers for organizing one last practice. My mom had borrowed Noah’s mom’s blender and I had to return it. It would have been awkward to see Noah again after what I had said. I didn’t have a clue how Noah came from his mom; she was nicer than a care bear. Hence why I was persuaded to come inside for a glass of lemonade. 
 
