@@ -214,6 +214,6 @@ Benji stared down at me, and without a word, he gripped the underside of my jaw 
 
 I blacked out and when I woke up, I saw the game was still playing. Red text blared across the screen.
 
-4/5 LIFE LEFT LIFE ONE LOST
+**GAME OVER**
 
-The thing had not only stolen my face but it had also taken a part of my soul.
+**LIFE ONE - YOU HAVE FOUR LIVES LEFT**
