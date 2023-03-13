@@ -1,4 +1,4 @@
-Hi, It's me, Travis Marcella. If you are unaware of my story so far then go here: 
+Hi, It's me, Travis Marcella. If you are unaware of my story so far then go here:
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/), [Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/).
 
@@ -6,7 +6,7 @@ Hi, It's me, Travis Marcella. If you are unaware of my story so far then go here
 
 Last night was really uneventful, except for my overwhelming worry for Darius. I woke up to see that I had not realized that something had smashed my computer screen and prevented me from using it. I saw that my door was unlocked and I was worried that another breach had happened but as I stepped out of my cell, I was greeted by a burly man who seemed completely different from everyone else around here. He didn't follow whatever dress code everyone else followed.
 
- He wore a brightly colored shirt with flowers on it, as well as black shorts. He had blonde hair and had started growing a beard. His eyes were a light brown and he was around 6 feet tall. I looked around to see that there were guards around us. I stared at the man in confusion when he finally decided to speak up.
+He wore a brightly colored shirt with flowers on it, as well as black shorts. He had blonde hair and had started growing a beard. His eyes were a light brown and he was around 6 feet tall. I looked around to see that there were guards around us. I stared at the man in confusion when he finally decided to speak up.
 
 "Hello there, Travis. I am the facility director, Eddie Corville. I'm sure you have many questions but we must discuss the... recent "events" first". He told me.
 
@@ -38,7 +38,7 @@ He led me through a bunch of hallways until i saw a door labelled "Directors Off
 
 "Well, Between you and me... not many breaches happen here, excluding yesterday. You just need to look authentic and someone of authority and power. It's mostly guarding a door all day". He finished.
 
-I was appalled at how this guy was even the director here. He acted as if we were housing puppies not dangerous monsters who would kill us all without a second thought. Well, not all of them but you know what I mean. 
+I was appalled at how this guy was even the director here. He acted as if we were housing puppies not dangerous monsters who would kill us all without a second thought. Well, not all of them but you know what I mean.
 
 I did do some quick training despite Eddie saying it was mostly looks. I learned how to load a rifle, hold a rifle and shoot it with the bare minimum training of less than an hour. I wore some military grade Armour and was sent to a door with a label on it saying " Room 126".
 
@@ -68,9 +68,9 @@ The rules were confusing and hard to simplify for you all to understand easily b
 
 I guarded the door for about 6 hours since it was already noon when I was sent off to work. It was really boring and nothing happened. It's a good thing because I don't have to deal with the stress but I think i'll go stir crazy if I can't find a way to entertain myself.
 
-I was able to talk to some of the guards; Bryson,Rylie,Chris were the only ones that actually talked to me when I tried starting a conversation but it went...really badly. I said hi to Rylie and she immediately looked at me as if I insulted her somehow. She told me to go away and I obliged, Not wanting to annoy her. 
+I was able to talk to some of the guards; Bryson,Rylie,Chris were the only ones that actually talked to me when I tried starting a conversation but it went...really badly. I said hi to Rylie and she immediately looked at me as if I insulted her somehow. She told me to go away and I obliged, Not wanting to annoy her.
 
- I then tried talking to some guy called Chris, He took one look at me and started insulting me faster than I could process what was even happening. He was pretty old and barraged me with stuff like "Oh, I see the facility is now hiring moody teenagers huh?" and "You don't know what it means to be here, Kid". I wanted to give that guy a piece of my mind but I decided it would be better to escape the situation. I immediately ran away from him to reach my cell when I bumped into Bryson. He looked a bit confused and then started talking to me.
+I then tried talking to some guy called Chris, He took one look at me and started insulting me faster than I could process what was even happening. He was pretty old and barraged me with stuff like "Oh, I see the facility is now hiring moody teenagers huh?" and "You don't know what it means to be here, Kid". I wanted to give that guy a piece of my mind but I decided it would be better to escape the situation. I immediately ran away from him to reach my cell when I bumped into Bryson. He looked a bit confused and then started talking to me.
 
 "Are you the new guy"? He asked.
 
@@ -84,14 +84,16 @@ We parted ways and I made my way to my cell... I guess I should start calling it
 
 I left my room and went to find the room that Darius was supposed to be in. I entered a room to find a bunch of floating orbs. I immediately couldn't take my eyes off of them. They looked so majestic that I couldn't take my eyes off of them. I started hearing whispers as I walked closer to them, telling me to let them free and I would see my father again. I knew this was wrong but I still tried. I went to a control panel and went to let them out when I broke eye contact and immediately jumped back and closed my eyes. They kept whispering but it seemed more evil now, Telling me to open my eyes for just a second and see how beautiful they were. I was able to get out of the room and Immediately collapsed from the sheer mental power it took to not gaze upon them again.
 
-I continued walking through the corridors until I saw a familiar door number. I went inside and immediately rushed out when I saw what was inside. It was the Cuspid that breached containment to attack me. It didn't see me and I was able to leave without any problem. 
+I continued walking through the corridors until I saw a familiar door number. I went inside and immediately rushed out when I saw what was inside. It was the Cuspid that breached containment to attack me. It didn't see me and I was able to leave without any problem.
 
-I was about to give up when I saw another familiar door and walked inside. The room was empty but I saw the claw marks and cracks in the floor. I looked at the door frame to see small cracks in the wall. The maintenance workers didn't clean up the room yet but I guess it was enough that everything else looked normal. 
+I was about to give up when I saw another familiar door and walked inside. The room was empty but I saw the claw marks and cracks in the floor. I looked at the door frame to see small cracks in the wall. The maintenance workers didn't clean up the room yet but I guess it was enough that everything else looked normal.
 
-I walked back to the area where my room was to see night guards stationed nearby. I was able to sneak back into my room unnoticed but I need to be more careful. 
+I walked back to the area where my room was to see night guards stationed nearby. I was able to sneak back into my room unnoticed but I need to be more careful.
 
-The following days were more or less the same. I was stationed at a door all day but was not able to check on Darius's room. There were guards stationed at my door, probably because someone saw me on the security footage as I was given a note telling me to not sneak out again. 
+The following days were more or less the same. I was stationed at a door all day but was not able to check on Darius's room. There were guards stationed at my door, probably because someone saw me on the security footage as I was given a note telling me to not sneak out again.
 
 Tomorrow I'm hoping to go to the medical bay to check on Darius. Bryson told me where it was so I have high hopes of seeing my friend. Sorry I didn't post sooner, I am usually exhausted when I finally get into my room after guarding a door all day and I recently had enough energy to post.
 
 I'll keep in touch and update you all when I can...
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/11qhrhp/i_didnt_follow_my_fathers_rules_and_now_im_a/).
