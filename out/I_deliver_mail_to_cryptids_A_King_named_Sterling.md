@@ -114,7 +114,7 @@ Since starting this job, I have not once asked for time off. I’d been forced t
 
 I was so exhausted, I passed out on my couch the moment I got home. I was asleep for a few hours when voices from the kitchen woke me from my uneasy nap. I soon found out Belizas came over to sabotage Sunny’s cooking. I watched them from the doorway for a few minutes as Max kept dragging her away and fought his urges to snatch some uncooked dinner away. Soon they noticed me, and Max brought Belizas over so I could help hold her back.  
 
-I could tell Max wanted to ask what happened during the meeting. I wasn’t really sure how to approach it. With a failing and silently kicking Belizas between us, he carefully brought up the topic.  
+I could tell Max wanted to ask what happened during the meeting. I wasn’t really sure how to approach it. With a flailing and silently kicking Belizas between us, he carefully brought up the topic.  
 
 “What did you and Sterling talk about?” He asked.  
 
