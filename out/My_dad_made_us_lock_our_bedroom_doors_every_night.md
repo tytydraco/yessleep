@@ -82,7 +82,7 @@ Hattie turned, with tears in her eyes, obstructing our father from reaching me. 
 
 “See the window behind you?” She asked.
 
-I twisted to face the window at the end of the landing. We lived in a bungalow, so I knew I could escape directly onto our driveway, but I wasn’t looking at the outside world. As I ran to the window, I watched Hattie’s reflection in the mirror.
+I twisted to face the window at the end of the landing. We lived in a bungalow, so I knew I could escape directly onto our driveway, but I wasn’t looking at the outside world. As I ran to the window, I watched Hattie’s reflection in the glass pane.
 
 She valiantly defended herself against our father, but the monstrous man snapped her weapon like a twig, before wrapping his plastic arms around her like a boa constrictor. I cried, fumbling with the latch for the window, and I’m not sure exactly what I saw. It seemed as if my father were liquifying my sister — turning her into plastic sustenance.
 
