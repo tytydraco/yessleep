@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/11h43z0/my_stint_as_a_fire_lookout_the_first_night/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/11h43z0/my_stint_as_a_fire_lookout_the_first_night/)[Part 3](https://www.reddit.com/r/nosleep/comments/11qbbf6/my_stint_as_a_fire_lookout_death_in_the_valley/)
 
 I shut myself in behind the glass walls of the lookout. My tired eyes fell on a tiny scratch on the floorboards in the far corner. The events of the night and morning played through my head. I stacked them on top of each other and tried to find some sense in it all. The banging on the door. The shadow. The triangles on the door and burnt out tree. What did it all mean? Was someone watching me? Was something hunting me?
 
