@@ -4,7 +4,7 @@ I can still remember it like it was yesterday.
 
 At the time, I was nine years old.
 
-Like other kids, my age was very excited about the upcoming Easter Egg Hunt.
+Like other kids, my age I was very excited about the upcoming Easter Egg Hunt.
 
 That year, I was determined to collect the most eggs and beat Susie Jenkins' previous record.
 
@@ -94,4 +94,4 @@ In the days that followed, the surviving citizens of Pottsville were placed unde
 
 Last night though at approximately 9 PM, a huge meteor landed on the Johnson Egg farm...
 
-The annual Easter Egg Hunt is in 3 weeks so, I'll just wait and see what happens...
+The annual Easter Egg Hunt is in 3 weeks so, in the meantime I'll just wait and see what happens...
