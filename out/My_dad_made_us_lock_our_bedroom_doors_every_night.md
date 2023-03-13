@@ -70,7 +70,7 @@ The horrifying thing, barely visible on the dimly-moonlit landing, snapped its p
 
 At that moment, I heard Hattie’s lock clicking, and her door opened inwards. She sprinted into the corridor with a cricket bat and swung at Alden, catching his chin and sending him sprawling onto the carpet.
 
-He hissed and prepared to pounce at my sister, but a sudden voice stopped him. It came from the darkness, accompanied by footsteps on the stairs.
+He hissed and prepared to pounce at my sister, but a sudden voice stopped him. It came from the darkness, accompanied by clomping footsteps.
 
 “Happy birthday, my son,” My father whispered, stroking Alden’s hair. “Don’t be afraid, girls. Alden has been given *The Gift*. It’s in our blood. Your time would’ve come too...”
 
