@@ -38,7 +38,7 @@ At 8 am I was sent home, exhausted but also sad. The guests were supposed to arr
 
 \--
 
-My second shift started the very next day at precisely 6 am. 
+My second shift started the very next day at precisely 6 pm. 
 
 The sun was slowly going down as I walked through the narrow, cobblestone alleys of the town, past all the shops which were getting ready to close for the day. Most shop owners had made posters and signs to invite people inside. They'd been told there would be tourists after all.  
 
