@@ -12,11 +12,11 @@ For those of you who don't watch tiktok, there's been a trend going around with 
 
   I heard my closet door slowly creak open. My eyes darted toward the door, and my body and limbs trembled in fear, but were unable to move. I watched in horror as I saw a hand begin to creep out from the closet and wrapped itself around the doorframe. 
 
-  My heart began beating faster and my breathing became rapid. The creature slowly started crawling from it's hiding space.The light from the tv illuminated a wide, toothy grin as the face came more into focus. 
+  My heart began beating faster and my breathing became rapid. The creature slowly started crawling from its hiding space.The light from the tv illuminated a wide, toothy grin as the face came more into focus. 
 
    To my horror the person hiding in my closet was a duplicate version of me. Except she had dark circles under her eyes, and a smile too wide to be human. Her eyes were glassy and dead. There was also something off about her. Something dark. 
 
-  She stood at the foot of my bed just smiling and staring down at me. She waved at me, and at that moment I shot up in bed, pouring sweat and gasping for air. My duplicate no loger there. My dog whined and licked my face to try to calm me, but even with her there I didn't feel safe.
+  She stood at the foot of my bed just smiling and staring down at me. She waved at me, and at that moment I shot up in bed, pouring sweat and gasping for air. My duplicate no longer there. My dog whined and licked my face to try to calm me, but even with her there I didn't feel safe.
 
   I told myself it was just sleep paralysis, but I was still disturbed. I tried to go about my day as best as I could. The next morning however, I couldn't explain what I found. 
 
