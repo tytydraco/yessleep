@@ -6,7 +6,7 @@ So I booked this cool little one bed place out in the middle of nowhere that I f
 
 When the night came and I heard the coyotes howl I was excited. I even found some tracks near the  house in the morning and took photos. As an English townie, the most interesting bit of wildlife I’d  been around before was a fox.
 
-I’d visited somewhere like Joshua Tree. It felt otherworldly. Like there were vibrations coming  up through my feet and raising the hair on the back of my neck. I was alone, I knew. But it was as if  I’d stepped under the eye of the desert. An instinctual sense that I was watched, and I was judged.
+I’d never visited somewhere like Joshua Tree. It felt otherworldly. Like there were vibrations coming  up through my feet and raising the hair on the back of my neck. I was alone, I knew. But it was as if  I’d stepped under the eye of the desert. An instinctual sense that I was watched, and I was judged.
 
 In the day I wandered the trails in silence and marvelled at roadrunners and rock formations. Then  every evening the coyotes sang as I decided, once again, that I would leave a nightlight burning.
 
