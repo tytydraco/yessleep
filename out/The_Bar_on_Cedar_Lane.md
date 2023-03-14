@@ -1,4 +1,4 @@
-There is a bar on Cedar Lane. It has been there since before my grandmother was born. No one really knows when the bar was built, but most people think it was made in medieval times and it went undocumented.
+ There is a bar on Cedar Lane. It has been there since before my grandmother was born. No one really knows when the bar was built, but most people think it was made in medieval times and it went undocumented.
 
 &#x200B;
 
