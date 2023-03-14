@@ -2,7 +2,7 @@
 
 I checked the rose bushes that surround the fence in my garden, Nothing was there.
 
-As I was about to go back into my house I heard the rustling again, this time it was closer to me. I stopped moving, a force started gripping at my arms, I grew weak, the everything went dark.
+As I was about to go back into my house I heard the rustling again, this time it was closer to me. I stopped moving, a force started gripping at my arms, I grew weak, then everything went dark.
 
 I woke up in a room, It was too bright to see anything. I think it's a white room. I can just about make out a silhouette of a woman, I think she has long brunette hair. She's wearing a psychiatrist uniform. I'm not crazy. I don't have mental health issues. What is going on?
 
