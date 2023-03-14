@@ -4,13 +4,13 @@ I can still remember it like it was yesterday.
 
 At the time, I was nine years old.
 
-Like other kids, my age I was very excited about the upcoming Easter Egg Hunt.
+Like the other kids my age, I was excited about the upcoming Easter Egg Hunt.
 
 That year, I was determined to collect the most eggs and beat Susie Jenkins' previous record.
 
 Anyway, Pottsville was a small town with a population of 10,000. 
 
-It was your typical midwestern town much like Mayberry, where everybody knew each other and had just enough amenities to get by.
+It's your typical midwestern town much like Mayberry, where everybody knew each other and had just enough amenities to get by.
 
 For about a hundred years or so, Pottsville had been holding its annual Easter Egg Hunt which was often followed by the community potluck.
 
@@ -48,7 +48,7 @@ An awful smell like sulfur, escaped from the egg almost causing me to pass out.
 
 As I steadied myself
 
- I could hear 8-year-old Mary Murphy who was nearby, let out a shriek.
+I could hear 8-year-old Mary Murphy who was nearby, let out a shriek.
 
 Soon the whole park was filled with screaming kids and frantic parents as, all of the Easter Eggs began to burst open revealing what I could only describe as grotesque-looking rats.
 
