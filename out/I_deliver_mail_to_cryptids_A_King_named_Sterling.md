@@ -1,4 +1,4 @@
-( First: https://redd.it/o8vgiw Previous: https://redd.it/11owsnv )
+( First: https://redd.it/o8vgiw Previous: https://redd.it/11owsnv Next: https://redd.it/11rbkdr )
 
 Sunny became pretty clingy after Max and I fell into that Hunter’s trap. He wasn’t dealing well with the idea that I nearly died from being buried under a ton of cement and iron. I knew he was seeing a counsellor and wondered if I now gave him an extra thing to talk about during his sessions. The fact I needed to do extra exercises with my arm to help it recover some feeling didn’t help. He wanted to sleep in my bed every other night. Sharing a bed with another person should have felt weird, but I didn’t have any issues with it. Due to him being made of a transparent substance, I could sort of see his eyes even after they were closed. He'd gotten much better at keeping his shape while sleeping, and so most mornings I woke up with a pair of eyes staring at me. I should have been freaked out by that, but it was oddly comforting.  
 
