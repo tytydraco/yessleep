@@ -148,7 +148,7 @@ Rossi left a Propane heater outside of my apartment. I did as I had told the oth
 
 I jerked awake with a yelp as I heard a rattling at my window. Becca was outside on the fire escape, and for a long second I thought I was having another nightmare because she was wearing a long black dress, and in the six months I had known Becca, I'd never seen her wear a dress once. 
 
-She knocked at the window again and I crossed the room and lifted my window the rest of the way open. 
+She knocked at the window again and I crossed the room and lifted my window the rest of the way open to let her in, and slid it almost shut behind her. 
 
 "Jesus Christ, B, you scared the shit out of me."
 

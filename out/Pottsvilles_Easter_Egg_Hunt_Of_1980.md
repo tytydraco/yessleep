@@ -2,9 +2,7 @@ Aw, the Pottsville Annual Easter Egg Hunt of 1980...
 
 I can still remember it like it was yesterday.
 
-At the time, I was nine years old.
-
-Like the other kids my age, I was excited about the upcoming Easter Egg Hunt.
+At the time, I was nine years old and like the other kids my age, I was excited about the upcoming Easter Egg Hunt.
 
 That year, I was determined to collect the most eggs and beat Susie Jenkins' previous record.
 
