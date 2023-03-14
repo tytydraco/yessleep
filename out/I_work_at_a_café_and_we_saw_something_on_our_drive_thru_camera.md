@@ -50,7 +50,7 @@ Penny hesitated, then clicked the button to speak again. "Okay, order whenever y
 
 That was, depending on the size, two shots of espresso and steamed milk made mostly of foam. No sweetener, no flavors. Just foamy espresso. A café staple. "Yes, we do."
 
-"Oh good because that is what I usually get from Tom Thumb." The customer replied. I sighed loudly. Tom Thumb (well, I guess it is Cumberland Farms now, but I am going to resist that change like the stubborn i is a gas station, for those of you that don't know, and most gas station coffee titles their sweet coffee flavor as "cappuccino." It isn't a cappuccino though, not even close.
+"Oh good because that is what I usually get from Tom Thumb." The customer replied. I sighed loudly. Tom Thumb (well, I guess it is Cumberland Farms now, but I am going to resist that change). Ii is a gas station chain, for those of you that don't know, and most gas station coffee titles their sweet coffee flavor as "cappuccino." It isn't a cappuccino though, not even close.
 
 So the customer did *not* expect a foamy espresso, but a sweet drip coffee of some kind. Penny didn't know that. "Awesome! What size?"
 
@@ -72,7 +72,7 @@ I explained to the customer at the window that he would likely *not* enjoy a cap
 
 Originally I assumed Tall Ben left because of the customer in the drive thru, but he did not return when the car left. Then we all saw where he went. From the shadows around the man in the woods, a figure loomed in the trees. I would have thought it a tree in the wind if it weren't for a large hand that crept from the forest's edge, over the road.
 
-If that was a person, they would be meat for his next "[product](https://www.reddit.com/r/nosleep/comments/znz6xr/im_a_barista_at_a_caf%C3%A9_that_serves_the_odd_and/?utm_source=share&utm_medium=web2x&context=3)." If it wasn't, Tall Ben was about to find out for them.
+If that was a person, they would be meat for his next "[product](https://www.reddit.com/r/nosleep/comments/znz6xr/im_a_barista_at_a_caf%C3%A9_that_serves_the_odd_and/?utm_source=share&utm_medium=web2x&context=3)." If it wasn't, Tall Ben was about to find out for us.
 
 I clicked the drive thru speaker to life, earning a confused glance from the others.
 

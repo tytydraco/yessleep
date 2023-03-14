@@ -50,7 +50,7 @@ I feel really terrible. Right now all I have to go off is his journal. I got him
 
 *Suddenly, everything made sense. As I looked out at the world, I realized that so much of what I had once thought important was now trivial. The things that had once consumed my thoughts and feelings were now mere distractions from the greater questions that the universe posed.*
 
-*As I looked out at the world, I knew that I had a role to play and that my journey was only just beginning. But first, I need to make sure that Sarah, Alex, and Emily are set up with more permanence.*
+*I know that I have a role to play and that my journey is only just beginning. But first, I need to make sure that Sarah, Alex, and Emily are set up with more permanence.*
 
 **March 7**
 
