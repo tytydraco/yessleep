@@ -120,6 +120,12 @@ Then I took out my phone and typed this all out. And now, I’m just sitting her
 
 If I witness any other strange things, or something else of interest happens, [I’ll keep you all updated.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2FRehnWriter)
 
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11rhnu3/i_challenged_myself_to_ride_the_tram_for_an/)
+
+&#x200B;
+
 [YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)
 
 [WS](https://rehnwriter.com/)
