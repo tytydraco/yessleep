@@ -211,3 +211,5 @@ FML.
 But the walking… it was *real.* I swear to you it was real. This is why I moved my post from AITA to here. I need your help. Karen won’t give up playing this game with Boo Boy. And I… is it crazy that I sort of think this might be dangerous? What do I do? If I destroy the doll, WIBTA? Resolving ethical conundrums is supposed to be one of the few things my degree is useful for, but philosophy doesn’t really cover, you know… paranormal puppetry.
 
 [What do I do?](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/11ryj2m/my_roommates_creepy_doll_went_viral_am_i_a_jerk/)
