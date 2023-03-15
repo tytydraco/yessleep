@@ -1,5 +1,3 @@
- 
-
 \-Summon a demon?
 
 \-Yes.
@@ -225,3 +223,5 @@ From the hospital, we contacted our family members, who were overjoyed founding 
 I think about those teenagers I trapped in the dark. Will they keep their sanity until the next poor souls do the ritual again? I hope they are stronger than me.
 
 I never fully recovered the movement of my hand. The constant pain is a reminder of my sins. I´ll never forgive myself for losing my mind, thinking my life was over, and condemning my friend to wander the darkness faceless, blind and mute. Hopefully, if the teenagers got sent to the same place as Alan, they'll think he's a monster and kill him, something I was too much of a coward to do. Every time I think of him sitting in the corner, a pit of flesh, bone and blood for a face, I feel like I've condemned him to suffer for all eternity. As if I were a demon that trapped him in hell.
+
+[X](https://www.wattpad.com/1320484705-insanity-chronometer-chapter-1-fog)
