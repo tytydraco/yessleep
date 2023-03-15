@@ -60,7 +60,7 @@ I screeched and turned to face the monstrosity, which towered over me. Its enorm
 
 I dropped to my knees and rolled to the side before Billy could engulf me. He snarled, snatching at my McDonald’s jacket, but I slipped my arms out of it and fled into the night.
 
-Since that night, I’ve been living on John’s sofa, praying that the alley abomination doesn’t find me. I’m currently researching the world beyond the veil, desperate for a solution. I know Billy is the key to saving me, but I think he’s beyond reason.
+Since that night, I’ve been living on John’s sofa, praying that the alley abomination doesn’t find me. I’m currently researching the world beyond the veil, desperate for a solution. I know Billy is the key to saving me, but I don’t think he’s human anymore.
 
 My soul is doomed.
 
