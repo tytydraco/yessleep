@@ -46,7 +46,7 @@ I was overwhelmed with emotion. It was like a weight had been lifted off of my s
 
 The nurse and doctor approached me with the syringe, and I knew that this was it. This was the moment that would change everything. I closed my eyes and braced myself for the impact.
 
-As the needle pierced my skin, I felt a surge of coldness coursing through my veins. My vision blurred and my mind grew dim. In that moment, I realized that I've- they had not made a grave error. 
+As the needle pierced my skin, I felt a surge of coldness coursing through my veins. My vision blurred and my mind grew dim. In that moment, I realized that they had not made a grave error.
 
 &#x200B;
 

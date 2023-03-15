@@ -174,7 +174,7 @@ I froze, not knowing what to do, too frightened and too appalled by the thought 
 
 At last the child stood, and when I stepped towards the door it followed, allowing me, with a short twitch, to take its clammy hand, little though I wanted to.
 
-It was in the car park that I had my first truly unkind thought towards the stranger. Not of harming it, merely of leaving the child there, where it would be found, and driving away.
+It was in the parking lot that I had my first truly unkind thought towards the stranger. Not of harming it, merely of leaving the child there, where it would be found, and driving away.
 
 But I knew it was impossible. I'd be arrested for child abandonment and endangerment, institutionalised, perhaps. There would be no end to my accountability, for I could not defend myself when the only other being that might have spoken in my favour had uttered not one word, nor seemed remotely capable of doing so.
 
