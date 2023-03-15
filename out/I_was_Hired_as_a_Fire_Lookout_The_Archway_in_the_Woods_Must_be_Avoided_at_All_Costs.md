@@ -1,8 +1,7 @@
 My first week as a fire lookout stationed at Fire Tower 14 had started off okay.  All my life I’d wanted to be a park ranger, and now I was within one day of accomplishing that goal.  After this final day of training, I was to be left on my own.
 
-But something catastrophic had [happened,](
-[Part 1](https://www.reddit.com/r/nosleep/comments/11qdr8t/i_was_hired_as_a_fire_lookout_theres_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
-) derailing all of those plans.  
+But something catastrophic had [happened,](https://www.reddit.com/r/nosleep/comments/11qdr8t/i_was_hired_as_a_fire_lookout_theres_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+derailing all of those plans.  
 
 After seeing two separate fires burning in the distance, my supervisor and I had set off in our Jeep to check out what we assumed were campfires.  He had left me alone to investigate one group of offenders, while he approached the other campsite.  
 
@@ -10,9 +9,9 @@ Everything was going according to plan until I stumbled across a stone archway i
 
 I wish I’d trusted my instincts, and stayed on the other side of the arch.  Because now I'm trapped in another world, with no way home.  The archway disappeared, leaving me stranded here.  And I quickly realized I wasn’t alone.  There were creatures in the forest that looked like people but were not.  They had an extra set of arms, for one thing, and they called back to you if you spoke, but they were not human.    
 
-Despite all odds, I’d been rescued by another park ranger right before getting mauled by the bizarre creatures.  This man, who told me his name was Steve, said he had been trapped in this place for a month.  He had a cave which he managed to camouflage with tree branches, allowing us to hide from the creatures after escaping from them.  
+Despite all odds, I’d been rescued by another park ranger right before getting mauled by the bizarre creatures.  This man, who told me his name was David, said he had been trapped in this place for a month.  He had a cave which he managed to camouflage with tree branches, allowing us to hide from the creatures after escaping from them.  
 
-Steve knew a lot about this place, and he said the creatures avoided a certain part of the forest - so that was where he took me.  He had set up traps, which only he knew the placement of, and his hideout was there, stocked with provisions.  
+David knew a lot about this place, and he said the creatures avoided a certain part of the forest - so that was where he took me.  He had set up traps, which only he knew the placement of, and his hideout was there, stocked with provisions.  
 
 “A lot of the plant life here is the same as in our world,” he told me when we arrived back at his camp.  “I found a patch of shitake mushrooms and I’ve been surviving on those more or less.  I had a few things in my bag - an energy bar, some trail mix, y’know, the usual stuff - but I ran out of that pretty quickly.”
 

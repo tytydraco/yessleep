@@ -291,3 +291,7 @@ Just as the first signs of sunrise appeared in the sky, we arrived back the mote
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 11\]](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)
+
+[\[Part 12\]](https://www.reddit.com/r/nosleep/comments/11mxehf/i_own_an_abandoned_motel_and_i_fear_we_are_in_the/)
+
+[\[Part 13\]](https://www.reddit.com/r/nosleep/comments/11s260c/i_own_an_abandoned_motel_and_ive_listened_to_the/)

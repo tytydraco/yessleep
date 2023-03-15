@@ -1,4 +1,4 @@
-( First: https://redd.it/o8vgiw Previous: https://redd.it/11psg7b )
+( First: https://redd.it/o8vgiw Previous: https://redd.it/11psg7b Next: https://redd.it/11s2ks8)
 
 After meeting Sterling, I honestly wanted to take a break. But I showed up on Monday ready to do whatever job they set in front of me. For some reason, Sal acted a bit nervous when we came in. Max scooped me up in the regular hug, but I could tell he did so to try and take my attention away from his sister. She swiftly grabbed a bag off the desk and shoved it into her pocket. It looked like some balloons. Why was she hiding balloons from me? 
 

@@ -229,3 +229,7 @@ René found a place on a forested hill, just outside of Clayton, the town where 
 *Now at peace.*
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 12\]](https://www.reddit.com/r/nosleep/comments/11mxehf/i_own_an_abandoned_motel_and_i_fear_we_are_in_the/)
+
+[\[Part 13\]](https://www.reddit.com/r/nosleep/comments/11s260c/i_own_an_abandoned_motel_and_ive_listened_to_the/)

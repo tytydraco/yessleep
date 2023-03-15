@@ -1,10 +1,10 @@
- [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new) [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/) [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/) [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/) [\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/) [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/) [\[Part 9\]](https://www.reddit.com/r/nosleep/comments/11dnong/i_own_an_abandoned_motel_and_i_dont_think/) [\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/) [\[Part 11\]](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new) [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/) [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/) [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/) [\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/) [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/) [\[Part 9\]](https://www.reddit.com/r/nosleep/comments/11dnong/i_own_an_abandoned_motel_and_i_dont_think/) [\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/) [\[Part 11\]](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)
 
 The next few days were quiet, as though the release of Muriel’s presence had temporarily endowed the property with a fragile peace. For the three of us, however, peace meant always looking over our shoulders, wondering what price we would pay and when it would be demanded of us.
 
 Often, I found my thoughts drifting back to my great-grandparents, to John and Ellen. What was this place, really? Was it just a dumping ground for those the witch wanted to punish? Some sort of demented zoo with my family as the reluctant keepers? Could this place ever be normal, a place of happiness once more?
 
-And even if we could proceed to each cottage and one by one eliminate each entity, what then? When would the hammer fall? Surely, the witch had some retribution planned, even if it appeared that for now she allowed me to mess with her playthings.  
+And even if we could proceed to each cottage and one by one eliminate each entity, what then? When would the hammer fall? Surely, the witch had some retribution planned, even if it appeared that for now she allowed me to mess with her playthings.
 
 How do you prepare to face a…being like that? Waiting was the only thing that made sense to me. Biding my time until I thought of a solution. Or until my time ran out.
 
@@ -48,11 +48,11 @@ I hadn’t fed in awhile and the prospect of coming across not one, but multiple
 
 ‘You’ve gotten careless, Doyle. Maybe if you had put some of the money into fixing that leaky boat of yours instead of with your bookie, we wouldn’t be in this unfortunate situation.’
 
-I could sense a wave of rancor rise in the men of the boat. One of them was armed. I knew that the man at the dock would not leave there alive, and that gunshots would spoil my chance at a decent meal. Sure enough, the man called Doyle drew a gun on the man at the dock. The man called John took a step back and raised his hands, but his face was resolute. No one paid attention as I crept silently down towards the river. I assessed the distance between me and Doyle. 
+I could sense a wave of rancor rise in the men of the boat. One of them was armed. I knew that the man at the dock would not leave there alive, and that gunshots would spoil my chance at a decent meal. Sure enough, the man called Doyle drew a gun on the man at the dock. The man called John took a step back and raised his hands, but his face was resolute. No one paid attention as I crept silently down towards the river. I assessed the distance between me and Doyle.
 
 With a leap I pushed John to the ground and pounced on Doyle in the boat. Before he could react, I was ripping into his neck and drinking, until all too quickly he dropped to the ground. His accomplice was screaming. He tried to jump out of the boat, but John cut the rope mooring and fled into the night, leaving us out to drift. I grabbed the other boat man’s collar, bit into his artery and he met the same fate as his companion.
 
-I cleared the bodies of any valuable items and shot the corpses with the gun. After some time in the river, the authorities would assume the deaths were “ordinary” homicides. Underneath the vegetables were a couple crates of fine champagne. I decided to let those bottles drift with the boat, treasure for a lucky scavenger to find. 
+I cleared the bodies of any valuable items and shot the corpses with the gun. After some time in the river, the authorities would assume the deaths were “ordinary” homicides. Underneath the vegetables were a couple crates of fine champagne. I decided to let those bottles drift with the boat, treasure for a lucky scavenger to find.
 
 I did not enjoy the swim to the shore, but even though I was soaked, I felt wonderful with the infusion of fresh blood. Between the blood and the cash, I figured I was in good shape for quite some time. I was so exuberant that I completely forgot about the third man, John. He was lying in wait for me with his knife. He plunged it into my side before I could throw him off of me and with a groan, I saw a good deal of that hard earned blood pour out before the wound healed.  John’s every instinct told him to run away, but he stood transfixed at the monster before him, shaking.
 
@@ -60,9 +60,9 @@ I did not enjoy the swim to the shore, but even though I was soaked, I felt wond
 
 ‘What are you?’ He asked.
 
-‘A vampire,’ I said. 
+‘A vampire,’ I said.
 
-Why mince words? He had seen me in action, after all. I could see that this troubled him, of course. Nevertheless, he shocked me by extending his hand. 
+Why mince words? He had seen me in action, after all. I could see that this troubled him, of course. Nevertheless, he shocked me by extending his hand.
 
 ‘Vampire or no, I suppose I’m in your debt.’
 
@@ -102,9 +102,9 @@ I followed him up a rocky hill to a humble white clapboard house. Before he coul
 
 ‘I took care of them,’ I added. Ellen narrowed her eyes.
 
-‘What do you mean?’ she said suspiciously. 
+‘What do you mean?’ she said suspiciously.
 
-I glanced at John who seemed frozen with indecision. My usual practice was secrecy, of course. But I had already revealed myself to John. Ellen had just as much a right to know. I opened my mouth, revealing my fangs. Her eyes widened, and the color drained out of her face. 
+I glanced at John who seemed frozen with indecision. My usual practice was secrecy, of course. But I had already revealed myself to John. Ellen had just as much a right to know. I opened my mouth, revealing my fangs. Her eyes widened, and the color drained out of her face.
 
 ‘You said your name was Allaire?’ she asked.
 
@@ -124,7 +124,7 @@ As we walked up the wooden stairs to their home, one buckled under me. John and 
 
 ‘I can fix it,’ I said. ‘I’m a carpenter.’
 
-Ellen’s face lit up with excitement, but John did not share her enthusiasm. Within moments, we were seated by the fire, my wet and dirty clothes replaced. Ellen handed me a rolled-up piece of paper, spreading it out before me. It was a blueprint for a series of cottages scattered around the land adjacent to the Calnons’ home. 
+Ellen’s face lit up with excitement, but John did not share her enthusiasm. Within moments, we were seated by the fire, my wet and dirty clothes replaced. Ellen handed me a rolled-up piece of paper, spreading it out before me. It was a blueprint for a series of cottages scattered around the land adjacent to the Calnons’ home.
 
 ‘We have some money now,’ John began hesitantly. ‘I’ve always worked as a handy man—jack of all trades, really—for a bunch of the rich folks who have their summer homes around here. Been doing that since I was a kid. Since Prohibition, those rich folks have been antsy. Can’t get the booze they’re accustomed to anymore. That’s where I come in. I go between them and the smugglers. Works well for everyone. Rich people don’t get their hands dirty and I get my cut. It's been very good money for us.’
 
@@ -134,13 +134,13 @@ Ellen’s face lit up with excitement, but John did not share her enthusiasm. Wi
 
 And so, we agreed. It was a fine summer, full of warmth and true companionship. John found me a proper house to live in, owned by his cousin, but often I would find myself staying in the Calnons’ cellar after long nights of work. I embellished Ellen’s design with a few of my own touches and by the time the first cold breezes announced the arrival of autumn, the cottages were nearly completed.
 
-That’s when the trouble began. 
+That’s when the trouble began.
 
 One night, I was finishing up some final tasks. I was returning to the cellar when I passed by one of the recently completed cottages. There was a dull, yet distinctive scratching sound, accompanied by a low humming that felt as though it were coming from under my skin. I put my ear to the cottage’s door and the sound only became louder. I opened the door and out poured a horde of cockroaches. The entire floor was covered with them, a veritable writhing carpet. They crawled out of the door, over my boots and into the dark, leaving exposed on the cottage floor the bones of a cat, picked clean.
 
-I lowered myself to the floor, my head in my hands, stifling a cry of despair and disbelief. I knew that she had found me. For a half of a century, she had left me in peace. No macabre little gifts, no black apparitions in the dead of night, no malevolent laughter. I had truly believed that I was free. How foolish I was, over two hundred years old and still the naïve youth. 
+I lowered myself to the floor, my head in my hands, stifling a cry of despair and disbelief. I knew that she had found me. For a half of a century, she had left me in peace. No macabre little gifts, no black apparitions in the dead of night, no malevolent laughter. I had truly believed that I was free. How foolish I was, over two hundred years old and still the naïve youth.
 
-I decided to not worry Ellen and John, especially given Ellen’s delicate condition. I figured that I could run away, leave them to their lives. The thought of leaving without saying goodbye to the people who had been so kind to me was almost unbearable, but I knew I had to do it. 
+I decided to not worry Ellen and John, especially given Ellen’s delicate condition. I figured that I could run away, leave them to their lives. The thought of leaving without saying goodbye to the people who had been so kind to me was almost unbearable, but I knew I had to do it.
 
 I was too late.
 
@@ -178,11 +178,11 @@ The witch’s mouth peeled into a wide, black grin. John aimed his gun at her wi
 
 “Do we have a deal?”
 
-“Yes. It is done.” A short dagger materialized in her hand. She began to kiss me, and for the sake of the Calnons, I dared not flinch or turn away. She drove the dagger into my gut, my chest, over and over until I staggered and collapsed. She straddled my body and with one swift movement cut my throat. Blood poured out of my many wounds; my body not quick enough to heal them. I was weak, so weak I could barely lift my head. 
+“Yes. It is done.” A short dagger materialized in her hand. She began to kiss me, and for the sake of the Calnons, I dared not flinch or turn away. She drove the dagger into my gut, my chest, over and over until I staggered and collapsed. She straddled my body and with one swift movement cut my throat. Blood poured out of my many wounds; my body not quick enough to heal them. I was weak, so weak I could barely lift my head.
 
 “These mortals I will spare, but this place…” she gestured to the cottages around her. “I quite like it. I have friends of mine, humble servants, who need a home. And as you two seem so fond of monsters,” she said kicking me, causing even more blood to spill out of my mouth, “you will find no trouble extending to them the same hospitality. They require a certain amount of…upkeep. But you will learn and obey the rules.”
 
-She turned towards me, bleeding out before her. 
+She turned towards me, bleeding out before her.
 
 “And as for you, my traitorous lover. I see you delight in your craftsmanship. Did you like playing at the simple carpenter, once more? Perhaps you’d like to stay here forever.”
 
@@ -213,3 +213,5 @@ Just then Jake threw open the cottage door. A look of befuddled amusement crosse
 “I hope I’m not interrupting anything. But there’s a cottage on fire.”
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 13\]](https://www.reddit.com/r/nosleep/comments/11s260c/i_own_an_abandoned_motel_and_ive_listened_to_the/)
