@@ -40,7 +40,7 @@ One of his victims — a bloodied, gutted woman — was still alive.
 
 “Help me…” She croaked.
 
-What could I do but gawp in horror? I continued to back away from the haunting  spectacle unfolding before me, but Billy kept approaching.
+What could I do but gawp in horror? I continued to back away from the haunting spectacle unfolding before me, but Billy kept approaching.
 
 “Hello, Ron,” The man groaned in a demonic voice. “I’ve been looking for you.”
 
