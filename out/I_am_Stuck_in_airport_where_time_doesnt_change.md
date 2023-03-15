@@ -1,0 +1,25 @@
+   
+
+
+**Right now, it's 5:59 but it's been 5:59 for almost 24 hours now. It started when I had arrived from my flight from San Francisco to Chicago. It was like any other airport. I got off my flight, went to get food, then went to my gate. My gate was F11. I haven't forgotten it yet just in case I find it, it might be my only way out. When I got to my gate there was no one there, not even a flight attendant but I had arrived a little early, so I guessed no flight attendant had arrived yet. So, I thought “great I should probably get some sleep” (for context my I had a 2-hour layover in Chicago I thought I could take a little nap) I had fallen asleep at 5:59 am, but when i woke up it was still 5:59 am. I had opened my eyes to see nothing, no lights, no people and no airplanes. I thought it was just a dream or more a nightmare. But this kind of nightmare was one that wasn't normal. It wasn't a nightmare, it was hell. When I awoke, I got up and it was pitch black, so i picked up my phone and turned on my flashlight and it was the airport. But something was off it wasn't that it was pitch black and not that there were no people, but I could feel someone there or something…. The thing is I'm not scared, I'm just wandering I don't know where I'm going but it feels like I'm walking past the same gate every time, I've tried going left instead of right or straight and even just straight up turning around but I always end up in the same place some of the shops have gates over them and some don't the ones that don't usually have food and if they don't have food it's some other essential like water or medicine. It feels like I have searched everywhere but nowhere at the same time. There is no electricity, and my phone is at 30% as I'm writing this, and I'm scared it's going to die soon so I'm going to stop writing for a while to conserve my battery.** 
+
+**UPDATE**
+
+**I heard someone I don't know what it was but it could have been anything it sounded like a laugh, no a cough or even a voice but I haven't heard it before, as soon as I heard it I ran towards it but I ended up in that stupid gate again this gate does not have a number its either too dark and I can't see it or there is just no number, I don't know why but whatever that was I hope it comes back**  
+
+**Boredom** 
+
+**As of right now my phone stands at 25%. I can't tell if that's good or bad. On one hand I have my phone with power but on the other hand I don't know for how long. Right now, I'm searching for a battery pack I'm hopeful I can find one, but I think I'm slowly losing it, oh wait i should probably say the layout so you can get a better idea of where i am. When you first “enter” if that's the right word to use you will see a little gift shop on the left and that is locked but on the right there's a little store, I just call it L.S. For short, the reason I call it L.S. is because I can't see the sign. It's the same reason as the gate number either too high or too dark, once you pass L.S. you get to a burger king, the only reason I can tell it's a burger king is because of a couple wrappers I found in the trash, which I found strange because this is the only place with actual trash inside of the trash cans Maybe it's just a coincidence I don't know. Across from the burger king is a Starbucks. I don't know how to use any of the machines so for now I just drink the water, after those main places. There are a couple of little gift shops and little food stores, but most are locked and some it's just food and medicine that's the best layout I can give you for now, but I have to go because my phone is at 20% so I hope I can talk again soon.**
+
+**Hello again.** 
+
+**Hey, I don't know why I “introduce myself” every time I'm not even talking to anyone. Maybe somewhere in the back of my mind I'm hopeful someone will find this. But you don't know who I am. I don't even know who I am anymore. I've been writing important things on the sticky notes I found in a drawer at L.S. I also found a stuffed bear. I named him Snoopy. Is it weird if I talk to snoopy? I think it is if I was in the normal world but this world is different so who cares you know? Well, I should get to the important stuff before I keep getting sidetracked.** 
+
+* **The food is restocked every day.** 
+* **I have been here for 5 days I think it never turns day or night.** 
+* **I haven't heard that voice in a while, but it stays in my head.** 
+* **I found a back door in the burger king I don't know where it leads but i heard buzzing in there and I'm too scared to open the door.**
+
+**UPDATE**
+
+**I heard it loud and clear this time I was trying to build up the courage to open the back door in the burger king and there it is it came from inside; I know it did I know it did. It was a laugh, this wasn't a sound of something hitting the floor like you think it is, it was a LAUGH. But when I opened the door there was nothing but stairs. My phone is at 10%. I'm starting to think I'll never get out of here. I might just run down those stairs as fast as I can no matter what happens I Will Just Keep Running.**
