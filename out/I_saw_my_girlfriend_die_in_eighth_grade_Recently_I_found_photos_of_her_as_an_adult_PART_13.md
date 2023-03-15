@@ -277,3 +277,5 @@ Later that night, I saw that she had added “Imperial Legate” in brackets bef
 It took a while for her to answer, which made me nervous, but then I heard the “uh-oh!” sound from ICQ and immediately opened our message box.
 
 “It makes sense, trust me.” No smiley. “Every commander will have to add ‘Centurion’ before their names, and their soldiers—the ordinary legionaries—will add their commander’s initials and a number signifying their rank before their names. It’s super simple. Every cohort will have its own centurion who commands a set of soldiers, and together we all form Legion Zero. Anyway, all we have to do now is recruit the first centurions and fill the [ranks](https://www.reddit.com/r/tobiasmalm/comments/112r4le/i_just_released_my_novel_the_cave_to_another/)!”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11rmxgd/i_saw_my_girlfriend_die_in_eighth_grade_recently/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
