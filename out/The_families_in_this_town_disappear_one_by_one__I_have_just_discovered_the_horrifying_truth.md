@@ -4,7 +4,7 @@ As we turned a corner, the village unveiled itself, nestled between gently rolli
 
 "Dad, this place looks amazing!" I exclaimed as we pulled up to our new home.
 
-My father smiled. "Yes, it's a lovely community, isn't it?" 
+My father smiled. "Yes, it's a lovely community, isn't it?"
 
 As we stepped out of the car, our new home towered before us, a gray beauty with intricate, ornate details that belied the sinister feeling that settled within me. The house seemed to hum with an eerie energy, sending shivers down my spine as if a thousand ghostly whispers echoed within its walls.
 
@@ -16,7 +16,7 @@ As we explored our new home, I found myself drawn to a small, dusty room tucked 
 
 I hesitated, my hand outstretched, fingertips inches from the mirror's cold surface. The hairs on the back of my neck stood on end as a voice in the back of my mind screamed at me to turn away, but curiosity got the better of me. The moment my fingertips grazed the glass, a shudder ran through me, as if I had made contact with the very essence of death itself.
 
-Staring at my reflection, I couldn't help but feel as if the house was watching me, its walls concealing a malevolent secret that would soon make itself known. Despite the uneasiness gnawing at me, I tried to dismiss my fears as irrational, the product of an overactive imagination. But the feeling of dread would not abate, and I couldn't shake the sense that the house itself was somehow alive, whispering a tale of sorrow and loss that had been long buried within its walls. 
+Staring at my reflection, I couldn't help but feel as if the house was watching me, its walls concealing a malevolent secret that would soon make itself known. Despite the uneasiness gnawing at me, I tried to dismiss my fears as irrational, the product of an overactive imagination. But the feeling of dread would not abate, and I couldn't shake the sense that the house itself was somehow alive, whispering a tale of sorrow and loss that had been long buried within its walls.
 
 Anyway, the village itself was a lovely place, with buildings constructed of their so-called beloved natural materials and lush greenery everywhere. It seemed like the perfect community for a fresh start.
 
@@ -25,6 +25,8 @@ As we settled into our new home, I couldn't help but notice the faint plume of s
 "Mom, do you know what that smoke is?" I asked.
 
 She glanced up from her work. "Oh, don't worry, James. Ashfield Pines is an environmentally friendly place. The smoke is probably from a nearby factory."
+
+How could they say they were environmentally friendly if there was a factory polluting the air with fumes, I wondered.
 
 During our first week, I saw new houses being built around the village, each one a testament to the community's dedication to sustainable living. The sight piqued my curiosity, but my parents insisted that I focus on adjusting to our new life.
 
@@ -62,13 +64,13 @@ My father continued, "This village has a unique way of achieving sustainability.
 
 I stared at them, disbelief and shock coursing through me. "You mean... you're okay with this? You want me to... to become part of a house?"
 
-My mother reached out and held my hand, her eyes filled with tears. "It's not that we want this for you, James. It's just that we believe in the cause. We believe in creating a better world for future generations, even if it means making the ultimate sacrifice."
+My mother reached out and held my hand, her eyes filled with tears. "It's not that we want this for you, James. It's just that we believe in the cause. We believe in creating a better world for future generations, even if it means making the ultimate sacrifice. We are creating a better future just like those who follow us. We will become part of the roads, the parks, and the buildings. You see in the universe, everything is united and this is what we must represent."
 
 My father nodded solemnly. "We're proud of you, James. And we want you to be proud of yourself, too. This is a noble path, and it will ensure that others can continue to live in harmony with nature."
 
 My family is crazy, or they have been brainwashed, I am not sure but are clearly not themselves.
 
-My voice cracked as I tried to reason with them, my desperation evident. "Mom, Dad, this is insane! We're talking about our lives here, not some abstract concept of sustainability. There has to be a better way to live in harmony with nature without resorting to... to this!"
+My voice cracked as I tried to reason with them, my desperation was evident. "Mom, Dad, this is insane! We're talking about our lives here, not some abstract concept of sustainability. There has to be a better way to live in harmony with nature without resorting to... to this!"
 
 Tears welled up in my eyes as I continued, "Don't you see? This village is killing its people for nothing! We can't just accept this fate without questioning it, without fighting back. We can find other ways to be sustainable without sacrificing ourselves."
 
