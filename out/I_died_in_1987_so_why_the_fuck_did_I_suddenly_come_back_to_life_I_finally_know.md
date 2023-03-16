@@ -64,9 +64,11 @@ Billy shivered on the grass. “What… What have you done?”
 
 “It’s over,” John said. “Come the second hour, Det will save Ron’s soul.”
 
-That brings us to the current moment.
+Billy lay on the grass, snivelling ceaselessly, but he posed no threat. He was too diminished in his human form — he just trembled and sobbed in the darkness, curling into a tight ball. We left him there and wandered over to what remained of the picnic table, sitting down and embracing one another tearily. It was all over.
 
-It’s been a tubular ride, my futuristic readers, but I think I’m finally getting out of here. Back to the world beyond the veil. John’s going to take Billy to the police station when I’m gone. I’ll ask him to finish my story. I wish he’d been around back in my day. I think he totally would’ve loved the ‘80s.
+That brings us to the current moment. I’m typing this final post and preparing to return to the place I left — a place far behind this mortal world. I’m not scared of dying. It’s how things should be. I was never supposed to come back here. I never wanted to be a freaking zombie, dude.
+
+It’s been a tubular ride, my futuristic readers, but I hope and pray that I’m finally getting out of here. Back to the world beyond the veil. John’s going to take Billy to the police station when I’m gone. I’ll ask him to finish my story. I wish he’d been around back in my day. I think he totally would’ve loved the ‘80s.
 
 I’m not gonna miss 2023, but I’ll admit that it wasn’t all bad. Air fryers are rad.
 

@@ -1,4 +1,4 @@
-( First: https://redd.it/o8vgiw Previous: https://redd.it/11rbkdr )
+( First: https://redd.it/o8vgiw Previous: https://redd.it/11rbkdr Next: https://redd.it/11t03h7 )
 
 Recently we’ve made a habit of having Max over for lunch or dinner on Sundays. Sunny always made too much food and Max loved to take care of that for us. He and Sunny got along so well that it was nice to have him by when he could. We planned to see him at lunch but as the minutes ticked by with no Max, we started to get worried. 
 
