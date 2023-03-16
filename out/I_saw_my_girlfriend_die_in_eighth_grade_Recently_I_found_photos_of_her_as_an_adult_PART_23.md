@@ -76,4 +76,7 @@ She said something I didn’t quite understand, something about having to make a
 
 “Our love will conquer the world.”
 
-After this, all I remember are fragments: the cohorts marching up and down the schoolyard; the school choir singing a hymn that I only hear in my dreams but never remember when I wake up; the ASCII eagle put on an actual flag; the blood on the ground after the inexplicable jump from the roof of the school; Julia, dead in my arms… And after all that came the funeral, the collapse of the legion a few months later, and the return of the bullying just as if nothing had happened at [all](https://www.reddit.com/r/tobiasmalm/comments/112r4le/i_just_released_my_novel_the_cave_to_another/).
+After this, all I remember are fragments: the cohorts marching up and down the schoolyard; the school choir singing a hymn that I only hear in my dreams but never remember when I wake up; the ASCII eagle put on an actual flag; the blood on the ground after the inexplicable jump from the roof of the school; Julia, dead in my arms… And after all that came the funeral, the collapse of the legion a few months later, and the return of the bullying just as if nothing had happened at [all](https://www.reddit.com/r/tobiasmalm/comments/112r4le/i_just_released_my_novel_the_cave_to_another/).  
+
+
+[PART 3](https://www.reddit.com/r/nosleep/comments/11skxwm/i_saw_my_girlfriend_die_in_eighth_grade_recently/)
