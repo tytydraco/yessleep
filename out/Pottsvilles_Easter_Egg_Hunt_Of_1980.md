@@ -44,9 +44,7 @@ At this point, the egg was beginning to crack.
 
 An awful smell like sulfur, escaped from the egg almost causing me to pass out.
 
-As I steadied myself
-
-I could hear 8-year-old Mary Murphy who was nearby, let out a shriek.
+As I steadied myself, I could hear 8-year-old Mary Murphy who was nearby, let out a shriek.
 
 Soon the whole park was filled with screaming kids and frantic parents as, all of the Easter Eggs began to burst open revealing what I could only describe as grotesque-looking rats.
 
