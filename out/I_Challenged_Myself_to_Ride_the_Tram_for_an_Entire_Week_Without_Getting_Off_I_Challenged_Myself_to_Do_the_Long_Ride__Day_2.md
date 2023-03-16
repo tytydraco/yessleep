@@ -170,6 +170,12 @@ About half an hour later, the tram started up again, and the ride continued.
 
 That’s day number two, guys. [See you all tomorrow.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2FRehnWriter)
 
+&#x200B;
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/11sgedl/i_challenged_myself_to_ride_the_tram_for_an/)
+
+&#x200B;
+
 [YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)
 
 [WS](https://rehnwriter.com/)

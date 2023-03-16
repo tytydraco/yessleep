@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/11shc82/i_died_in_1987_so_why_the_fuck_did_i_suddenly/?sort=new)
+
 Bear with me because I’m still learning how to use the gnarly gizmos of the twenty-first century. It’s been a hectic month.
 
 Oh, and I guess I’ve, y’know, been trying to overcome the trauma of *returning from the dead*. But that isn’t even the worst part. I’ve scarcely scratched the surface of the past month’s horrors.
@@ -63,5 +65,7 @@ I dropped to my knees and rolled to the side before Billy could engulf me. He sn
 Since that night, I’ve been living on John’s sofa, praying that the alley abomination doesn’t find me. I’m currently researching the world beyond the veil, desperate for a solution. I know Billy is the key to saving me, but I don’t think he’s human anymore.
 
 My soul is doomed.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/11shc82/i_died_in_1987_so_why_the_fuck_did_i_suddenly/?sort=new)
 
 [X](https://www.reddit.com/r/dominiceagle)

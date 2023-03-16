@@ -208,7 +208,7 @@ It wasn't finished. I could still see its progress, the greenish flesh-eating th
 
 I wasn’t sure how much. I vaguely remember being carried down a long hallway which felt like it stretched across the universe. I do remember the woman held me gently, almost like a mother holding her child.
 
-Initially, when I was still human, or at least when I could still breathe without water, I was left inside a tiny room for days, like they were waiting for me my body to reject air—to reject land. Every so often, they would come in and pour a bucket of ice cold water over me so I could breathe. 
+Initially, when I was still human, or at least when I could still breathe without water, I was left inside a tiny room for days, like they were waiting for my body to reject air—to reject land. Every so often, they would come in and pour a bucket of ice cold water over me so I could breathe. 
 
 I stopped reacting when my body started to climatise. Consciousness was cruel. I delved into the dark and prayed to stay there. But once the thing had finished with my legs, or at least what was left of them, it wound its way through my body, purging me from the inside. There was something I couldn’t ignore. I heard it for the first time in the tub, but now it was stronger. Like a physical thing trying to crack my skull open. Screams. Though they didn’t sound like they were coming from anywhere near me, or rooms nearby. They sounded like they were directly inside my head.
 
