@@ -397,3 +397,7 @@ It wasn’t just a mountain, it was as if we were standing in front of the conce
 The  tall man standing at the cave entrance in front of us is dressed in a sharp Armani suit, his teeth are pointed fangs, and his voice is Game show announcer friendly. 
 
 “Welcome to the mountain, now it’s time for your reward… “
+
+Link to finale
+
+https://www.reddit.com/r/nosleep/comments/11sizs8/the_big_rock_candy_mountain_finale/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
