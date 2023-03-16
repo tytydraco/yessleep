@@ -194,7 +194,7 @@ I pulled away from Vicky ready to head towards the next door I just spotted. She
 
 “Wait, here. I got you this. It's a day late though.” 
 
-She held out her hand for me to take something small. She placed an enamel heart-shaped pin in my head. The pin had a band of black, grey, white, and purple. It took me a moment to piece together what the colors meant. I blinked away tears as a happy feeling filled my chest to the point it might burst. 
+She held out her hand for me to take something small. She placed an enamel heart-shaped pin in my hand. The pin had a band of black, grey, white, and purple. It took me a moment to piece together what the colors meant. I blinked away tears as a happy feeling filled my chest to the point it might burst. 
 
 “Happy Birthday Toby.” 
 

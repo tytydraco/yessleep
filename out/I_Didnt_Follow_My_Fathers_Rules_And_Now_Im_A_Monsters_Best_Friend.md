@@ -144,8 +144,10 @@ I woke up in a thick forest, filled to the brim with shadows, all of them lookin
 
 I was about to ask what was going on when Darius put his paw to my mouth and pointed towards the window where we all watched as armed guards entered the motel...
 
-Bryson has an escape plan of jumping out the window but I doubt anyone but Darius could fall that far and still have their legs intact. Darius wants to barge through them all but me and Bryson both know It would most likely fail unless we had a good plan. 
+Bryson has an escape plan of jumping out the window but I doubt anyone but Darius could fall that far and still have their legs intact. Darius wants to barge through them all but me and Bryson both know It would most likely fail unless we had a good plan.
 
-I quickly typed this out to the only computer that was in my room as I think of a plan of escape. 
+I quickly typed this out to the only computer that was in my room as I think of a plan of escape.
 
 Darius said we could escape the window while holding onto him, It sounds like a plan.
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/11sahoe/i_didnt_follow_my_fathers_rules_and_now_im_a/).

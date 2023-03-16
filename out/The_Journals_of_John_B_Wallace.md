@@ -65,3 +65,5 @@ I transferred his consciousness into an artificial chamber made from artificial 
 To my horror, the resurrection went awry. Dr. Canberra's body went into a grotesque dance, and his organs fell out as he tried to escape the cage. Realizing the process was too much for him, I activated my plasma incinerator, completely annihilating his body and disintegrating it at the particulate level. Large parts of my lab caught fire too. What was I thinking, having him only 50 feet away from me? I should have developed a sealed incineration chamber before-hand. Good to keep this in mind for the next time!
 
 Despite the failure of my first human experiment, I remain determined to achieve my ultimate goal: immortality and unfathomable power through this ancient technology I have spent my life studying...I must find a new test subject soon…
+
+\[part 2 to be inserted here\]
