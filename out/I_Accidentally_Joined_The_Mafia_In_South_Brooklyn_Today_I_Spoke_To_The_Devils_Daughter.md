@@ -168,7 +168,7 @@ She sniffed back tears and turned her phone face up again, flipping to her galle
 
 "Demon?" I asked. 
 
-"*Diavolessa di donna che ha rapporti sessuali con maschi addormentati. La succuba.*" She said, in perfectly accented Italian which I have to admit impressed me, because I'd also heard her speaking fluent Korean with her father, Sam.
+"*Diavolessa che ha rapporti sessuali con maschi addormentati. La succuba.*" She said, in perfectly accented Italian which I have to admit impressed me, because I'd also heard her speaking fluent Korean with her father, Sam.
 
 'A female demon that is thought to have sexual intercourse with sleeping men, a succubus.'
 
