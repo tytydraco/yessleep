@@ -124,4 +124,6 @@ It immediately started to go viral.
 
 You may have noticed, if you tried to search for the video, that it’s gone now. Almost as soon as it started racking up views, it got taken down, and she deleted her account.
 
-Well. More specifically, *I* deleted her account. Because of what happened [next.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+Well. More specifically, *I* deleted [her account.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/) Because of what happened [next.](https://www.reddit.com/r/nosleep/comments/11t1v9z/am_i_a_jerk_for_burning_my_roommates_creepy/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/11t1v9z/am_i_a_jerk_for_burning_my_roommates_creepy/)
