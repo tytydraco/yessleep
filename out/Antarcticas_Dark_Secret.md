@@ -27,3 +27,5 @@ Against all odds, we reached the safety of civilization, forever changed by our 
 As for me, I am forever haunted by the nightmares that followed me from the abyss. The things I saw in that forsaken place have left me a broken man, unable to find solace in the mundane comforts of life. I know that I am forever tainted, and that one day, the darkness will come to claim me.
 
 I share my tale not as a warning, for there are others who will undoubtedly be lured by the promise of untold knowledge and the thrill of the unknown. I share my tale as a testament to the fragility of the human spirit, and the unfathomable horrors that lie in wait beneath the ice of the Antarctic. May those who heed my words find solace in the knowledge that there are some mysteries best left unexplored, and some doors that must never be opened.
+
+Lovecraft was right after all...

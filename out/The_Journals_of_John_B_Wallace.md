@@ -38,9 +38,9 @@ Intrigued by these possibilities, I dedicated my life to uncovering the secrets 
 
 As I gathered the materials for the ritual, I faced numerous challenges and setbacks. My own children had me diagnosed with schizophrenia in the 90s, and I became a pariah among my colleagues. I spent years trying to recreate the machinery from scratch, only to fail time and time again. Eventually, I realized that attempting to fully understand the mechanisms behind this was an insurmountable task for a single person.
 
-It was a humungous research mult-decade project which would require immense government funding and possibly hundreds of scientists, engineers and investors. Not to mention the humiliation I had faced from the scientific community either...
+It was a humungous mult-decade research project which would require immense government funding and possibly hundreds of scientists, engineers and investors. Not to mention the humiliation I had previously faced from the scientific community either...
 
-Frustrated and impatient, I decided to focus on my initial goal: using this ancient technology to perform supernatural feats. I planned to revive the dead. The ancients considered it taboo to do so...however, I was sure that it had been attempted several times before.
+Frustrated and impatient, I decided to focus on my initial goal: using this ancient technology to perform supernatural feats. I planned to revive the dead. The ancients considered it taboo to do so...however, I was sure that it had been attempted several times in the past.
 
 I started my experiments in the 90s, successfully resurrecting dead bacteria and later, larger animals. Just a few days ago, I managed to revive a dead deer that I had hunted for sport.
 
@@ -56,11 +56,11 @@ The day of the experiment has finally arrived. I plan to kill Dr. Canberra today
 
 2 parts magnesium. 5 ounces of elf blood, 5 pounds of troll skin, 3 liters of sulphuric acid…, yes; I am ready.
 
-“Goodbye Archie! You were a good assistant…”, I said. He stared at me; his eyes filled with terror, like a dog trapped in a cage. Well, he is **literally** trapped in a cage, after all.
+“Goodbye Archie! You *were* a good assistant…”, I said. He stared at me; his eyes filled with terror, like a dog trapped in a cage. Well, he is **literally** trapped in a cage, after all.
 
 Dr. Canberra shrieked in agony as the machine sucked his soul. I then took my rifle and shot Canberra’s lifeless body in the head 3 times and twice in the heart.
 
-I transferred his consciousness into an artificial chamber made from exotic elements, elements unknown to any modern scientist. I then bound the consciousness back to his lifeless, destroyed body.
+I transferred his consciousness into an artificial chamber made from artificial elements of my design, elements unknown to any modern scientist. I then bound the consciousness back to his lifeless, destroyed body.
 
 To my horror, the resurrection went awry. Dr. Canberra's body went into a grotesque dance, and his organs fell out as he tried to escape the cage. Realizing the process was too much for him, I activated my plasma incinerator, completely annihilating his body and disintegrating it at the particulate level. Large parts of my lab caught fire too. What was I thinking, having him only 50 feet away from me? I should have developed a sealed incineration chamber before-hand. Good to keep this in mind for the next time!
 

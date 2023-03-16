@@ -140,7 +140,7 @@ A flash of movement, footsteps running, a shadow bleeding into view; a shadow I 
 
 He was so close. So close to the door, his fingers gripping onto the side, only for a monstrous arm to whip out and slam a hand over his mouth, muffling his cry and yanking him back violently. When the door slammed behind him, I remembered how to walk. But I… couldn’t. My body felt like it was on fire, and suddenly all I wanted to do was throw myself into the tank with the fake mermaid. I remember my legs giving way. Just like that. One moment I could feel my legs, and the next I couldn’t.
 
-I was lying on my back, blinking rapidly at something squirming under the flesh of my arms, when a shadow loomed over me. I couldn’t concentrate on her words, on her broken English, as my gaze followed a greenish tinge tearing its way up my arm, and like a virus, it was spreading, filling my veins and expanding further and further until I could feel it choking the back of my throat. I felt it writhing up my throat, my body jolting as I choked up mouthfuls of water.
+I was lying on my back, blinking rapidly at something squirming under the flesh of my arms, when a shadow loomed over me. I couldn’t concentrate on her words, on her broken English, as my gaze followed a greenish tinge tearing its way up my arm, and like a virus, it was spreading, filling my veins and expanding further and further until I could feel it choking me,  writhing up my throat, my body jolting as I coughed up mouthfuls of water.
 
 It felt… good. At least for the hazy moment I was trapped in a singularity where time didn’t exist and I was mesmerised by the contortions in my chest. 
 
