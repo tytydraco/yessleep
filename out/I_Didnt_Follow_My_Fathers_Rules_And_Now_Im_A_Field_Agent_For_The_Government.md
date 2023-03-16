@@ -18,7 +18,9 @@ I stared at him. He had the same mentality as the facility.
 
 "Damn it. Look, Travis, I'm sorry, but we need to get out of here". He said, avoiding eye contact.
 
-I didn't change my mind as we all thought of a new way of escape. Darius suggested barraging through the soldiers but I told him that they probably were prepared for us to retaliate. We watched as they kicked down the door and 8 soldiers piled into the room.
+I didn't change my mind as we all thought of a new way of escape. 
+
+Darius suggested barraging through the soldiers but I told him that they probably were prepared for us to retaliate. We watched as they kicked down the door and 8 soldiers piled into the room.
 
 I saw a familiar face enter the room. It was the woman who worked with the director, the one who had  planned a test for me to escape but now I spied a ring on her finger.
 
@@ -54,13 +56,13 @@ Darius let down Rebecca and the soldiers lowered their guns. I stared at Bryson.
 
 "Alright, now that the drama is over. You are to help me and my team explore and track down the "Pilgrim"". Kyle stated.
 
-I just stared at where Kyle once stood, now gone.
+I just stared at where Bryson once stood, now gone.
 
 "What is a pilgrim"? Darius asked.
 
 "Ugh, a pilgrim is someone who travels to places unknown. They wear black clothing that is old fashioned and have hats and buckles". He said in monotone.
 
-"He is some kind of wizard of sorts, a cryptid that is humanoid in shape and looks like a pilgrim. He is pretty powerful but not much is known about him. We are to avoid him but keep watch and figure out if he is dangerous or not". Kyle stated.
+"The cryptid is some kind of wizard of sorts, a cryptid that is humanoid in shape and looks like a pilgrim. He is pretty powerful but not much is known about him. We are to avoid him but keep watch and figure out if he is dangerous or not". Kyle stated.
 
 Darius had nothing else to say and I was still silent. We all then geared up and headed off into the woods. I was assigned with Darius and Kyle while the rest of the team split up into groups of 3 and 4.
 
@@ -104,13 +106,15 @@ Darius could only turn around as it launched a punch into his chest, sending him
 
 It shrieked as it was barraged with bullets but quickly dashed behind a nearby tree.
 
-"You guys are seriously being taken down by this? I mean you are a kid but sti-" He didn't get to finish his sentence when it dashed from it's hiding spot and aimed to crush his head with his claw. It grabbed his head and was about to exert pressure when Darius slammed into the creature, sending them both tumbling down the hill we were climbing.
+"You guys are seriously being taken down by this? I mean you are a kid but sti-" He didn't get to finish his sentence when it dashed from it's hiding spot and aimed to crush his head with his claw. 
+
+It grabbed his head and was about to exert pressure when Darius slammed into the creature, sending them both tumbling down the hill we were climbing.
 
 I tried to get up but I felt a sharp pain in my ribs. I watched as Kyle quickly recovered from the shock and went to aim his gun at me.
 
 "wait- what are you doing"?! I said frantically.
 
-"Look, I used to be all the talk around facility 14 until YOU arrived, causing chaos and security risks but the stupid director was always defending you. That idiot. So I organized a bunch of people to sign a petition to fire the director. It failed but now it doesn't matter, Rebecca will finish the job tonight, and there won't be anyone who cares when one stupid kid is gone". He ranted.
+"Look kid, I used to be all the talk around facility 14 until YOU arrived, causing chaos and security risks but the stupid director was always defending you. That idiot. So I organized a bunch of people to sign a petition to fire the director. It failed, but now? It doesn't matter, Rebecca will finish the job tonight, and there won't be anyone who cares when one stupid kid is gone". He ranted.
 
 I looked behind him and my blood ran cold. I saw an old man who was wearing pilgrim clothing. He walked behind Kyle as he was about to shoot at me and flicked him in his neck.
 
@@ -128,6 +132,8 @@ I headed off in the direction I thought the other teams went and found the remai
 
 I shuddered. I picked up a phone one of the soldiers had and pocketed it and it surprisingly was already on when I found it. I left the scene and went out in search of the other team.
 
-I was able to dial 1001 to get an emergency response to come here and I typed this post out using the phone the soldier had. I watched as the sunset and I swore I heard a shriek in the distance. I immediately went in the opposite direction.
+I was able to dial 1001 to get an emergency response team over here and I typed this post out using the phone the soldier had. I watched as the sun set and I swore I heard a shriek in the distance. I immediately went in the opposite direction. Was that thing still alive?
 
-I'll keep you updated on the situation.
+I quickly ran deeper into the forest, hoping to find the remaining soldiers.
+
+I'll keep you updated on the situation...
