@@ -173,3 +173,7 @@ There was a light on in Cottage 7.
 [\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)
 
 [\[Part 11\]](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)
+
+[\[Part 12\]](https://www.reddit.com/r/nosleep/comments/11mxehf/i_own_an_abandoned_motel_and_i_fear_we_are_in_the/)
+
+[\[Part 13\]](https://www.reddit.com/r/nosleep/comments/11s260c/i_own_an_abandoned_motel_and_ive_listened_to_the/)
