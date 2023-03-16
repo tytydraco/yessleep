@@ -261,3 +261,79 @@ The look on her face said Becca had forgotten all about the little plastic test 
 Her lips were pressed in a thin white line by her teeth. Becca grabbed Tatiana's hand and laid it over her still flat stomach. There was confusion on the woman's face, then disbelief, then the barest bones of hope. 
 
 "I'm pregnant, Mama. Your son is going to be a father."
+
+()()()
+
+The funeral turned to a celebration after that. Becca was plied with food and me with drink. It wasn't entirely my concern for Antoni's family that had led me to push for the announcement of Becca's pregnancy. Carrying Antoni's child meant Becca was untouchable, and as long as I was with her, I was safe. 
+
+Or at least, I thought I was. 
+
+The vodka was wanting out, so I excused myself quietly to the restroom and went about my business. As I was washing my hands, the door opened, but I didn't bother to look up from the sink. It was a mistake.
+
+My vision exploded in white. My ears were ringing. When the world finally swam back into focus behind the shower of white sparks, I realized I was on the floor of the restroom, and at least half of the room lay beneath a wash of red. I touched my face. It seemed to take hours for me to register that there was blood on my hand. Where the hell had that come from? 
+
+Hands bunched in my suit jacket and I was dragged back to my feet. The bathroom mirror was shattered, that was where the blood on my face had come from. Antoni's father was dragging me off the floor. He had removed his suit jacket and button down and was wearing only a white undershirt with his dress pants. I could see the two eight pointed stars and the epaulettes on his shoulders. He held me against the wall with his left hand pressed to my chest, and I nearly lost consciousness completely as my head snapped to the left and slammed into the paper towel dispenser as his right fist slammed into my jaw. It whirred and a length of red spattered brown paper slid out of the mouth of it.
+
+My mouth filled with blood within seconds and I gagged on it, only just managing to turn my head to the side before I spat out a mouthful of ichor and a molar. The man didn't seem to recognize the favor I'd done for him, because his fist sank into my stomach and I lost my breath entirely as I doubled over, only to be dragged upright again. 
+
+"That's enough, Antoni," said a voice I didn't recognize. I groaned and blinked my eyes as I tried to clear the blood out of my vision. 
+
+"It will never be enough, Vadim." 
+
+There was a man standing there, dressed in a rather modest black suit, and Igor stood just behind him, turning the lock on the bathroom door. 
+
+"You're sure this is him?" The man spoke to Igor, and he nodded. 
+
+"He was there in the restaurant when it happened."
+
+The man hummed, adjusting his suit jacket. 
+
+"And what," Vadim spoke to me now. "Chiellini sent you here to gloat?"
+
+I tried to speak, instead I choked as blood came rolling down my throat from my sinuses. My nose was broken. Vadim motioned to Antoni Sr. and the man released me. I stumbled over to the sink and coughed out the blood. I took a ragged gasp and turned the water on, filling my hands and then my mouth. I spat the bloody water into the sink.
+
+"Look, I… I got no part in this. I'm here because I'm Becca's friend, I… I considered Antoni a friend. I mean, Igor, tell him, I used to hang out with youse guys, we used to drink together for Christ's sake."
+
+Igor only stared at me, not saying anything. 
+
+"And now you're working for the Italian," Vadim said solemnly. "We have eyes on that street. We know you helped the Butcher put our boys in bags. Do you know who they were? My nephews.  Not nameless thugs, not trash, men with a family who do not even now have the privilege of burying their dead."
+
+"I ain't got no choice, man. I got a family, too. I got a sister and grandparents, and God knows what happens to them if I don't do what Jimmy says." 
+
+"And where is your family? Hmm? They are elsewhere, and you, you are here now." 
+
+Antoni Sr. grabbed me again, flicked open a large pocket knife as he pinned my left hand to the wall by the wrist. Igor stepped around Vadim and covered my mouth with his hand. The blade sliced at the base of my ring finger. I screamed and at the same time tried my best to speak from behind the hand muffling me.
+
+"Maybe I tell him to take a finger, one for each of his sons. Maybe then we will be even. Oh, would you like to say something?"
+
+"Please don't do this." I blurted out, and Vadim scoffed. "Wait! Just fucking wait. It was her, Bianchi. She killed them." 
+
+Vadim rolled his eyes. "You're not doing yourself any favors. I know who killed my nephews. I know all about Chiellini and his pet devil."
+
+"But I know where she lives! And I know where she's going to be tonight. I'm taking her up to Sapphire's, just me. She's gonna be alone, and if you want to catch her off guard, tonight's the night."
+
+Vadim hummed again, then tilted his head to Antoni Sr. The man let go of my wrist. He looked disappointed, to say the least. I grabbed for the paper towels, ripped them loose, and wrapped them tight around my bleeding finger. I could see the white of my knuckle underneath the blood. 
+
+"What is that address?" 
+
+I told him. The address was burned into my mind by this point.
+
+"I'm picking her up at 10 PM. I'll be driving Jimmy's car. Black Lexus."
+
+The three muttered between themselves, but I couldn't understand any of the words. 
+
+"Clean yourself up," Vadim said to me. "There is no reason to scare the girl."
+
+I sank down to the floor. The tears came hot and fast and they stung in the cuts on my face. I pulled my knees up to my chest and sobbed, cradling my injured hand against my chest. 
+
+"You shouldn't cry like that. It's embarrassing." Came a voice from next to me. 
+
+"Fuck you, you dead asshole." 
+
+Antoni Jr. gave a wet snort, his elbow balanced on his bent knee where he was seated on the floor beside me.
+
+"No reason to be nasty."
+
+"You been here this whole time? You couldn't have stepped in, given a guy a hand?"
+
+"Fresh out of hands," The corpse replied with a grin.
