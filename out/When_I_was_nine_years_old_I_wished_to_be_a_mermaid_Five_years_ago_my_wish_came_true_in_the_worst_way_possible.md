@@ -56,7 +56,7 @@ A voice startled me, and I twisted around to find Kenji three inches from my fac
 
 Now, it was his staple style; a loose ponytail, stark black hair straying in playful eyes, and a dimpled smile I often found myself captivated by. Kenji was the first guy I had met who suited ponytails, and that only attracted me more. Moving in with the guy, however, had made me realise he was more of an annoying  younger brother type. You know, the kind of guy who never cleans up after himself and has an unhealthy obsession with video games. I was expecting him to join me. His facial expression was teasing as usual, brown flecked eyes drinking me in, a brow raised. When I could only frown at him, he shrugged and pointed to a sign stuck to the tank—which I had failed to notice. “I’m not great with Kanji, but I’m pretty sure that means she’s fake.” Kenji nodded to the sticker. “See? It says it right there.”
 
-Turning back to the girl in the tank, I could only protest with a hiss. When I was really looking, though, I noticed her tail wasn’t moving—or it was, but only in intervals. Her face looked real, but her body was more of a mannequin-like form which looked robotically controlled. When the mermaid’s fingers tapped the tank, I had to hold in a hiss. Jeez, I couldn’t believe I thought she was real for a moment. “Her name is Ai.” Kenji’s gaze was on another sticker which I failed to notice.
+Turning back to the girl in the tank, I could only protest with a laugh. When I was really looking, though, I noticed her tail wasn’t moving—or it was, but only in intervals. Her face looked real, but her body was more of a mannequin-like form which looked robotically controlled. When the mermaid’s fingers tapped the tank, I had to hold in a hiss. Jeez, I couldn’t believe I thought she was real for a moment. “Her name is Ai.” Kenji’s gaze was on another sticker which I failed to notice.
 
 “*Nise*,” Kenji translated, poking me in my cheek. “Also, fake. If you could read Japanese, which you can’t,” he shot me a grin. “There’s an explanation right in front of you.” He read it out in Japanese, where I could only understand maybe three words before translating.
 
@@ -66,7 +66,7 @@ He groaned. “Uh, something about her cutting out her own voice box to prove to
 
 Straightening up, Kenji pulled a face. “So, in conclusion? Human’s suck.” He heaved out a sigh. “Buuut, we knew that already.”
 
-I couldn’t resist my gaze flicking back to the mermaid. “They built this to remember the girl they supposedly…” I lowered my voice into a hiss. “Hunted and skinned?”
+I couldn’t resist my gaze flicking back to the mermaid. “They built this to remember the girl they supposedly…” I lowered my voice into a murmur. “Hunted and skinned?”
 
 “They killed her family.” He corrected, pointing to another sticker. “She had two brothers and two sisters. Their voices were ripped out.”
 
@@ -74,7 +74,7 @@ In the corner of my eye, Nate and Sara were manically gesturing us over. “Why 
 
 “You’re kidding.” Kenji arched a brow. “Have you ever heard of a Siren? You know, bloodthirsty fish people who lure fishermen to their death? Why do you think Ursula needed Ariel’s voice?” He knocked on the glass of the tank. “To hypnotise Eric, and like, take the throne, or whatever. I think I fell asleep halfway through the second movie with the other mermaid.”
 
-I couldn’t resist a laugh. “You mean her daughter? You’re strangely knowledgeable on The Little Mermaid lore.”
+I chuckled. “You mean her daughter? You’re strangely knowledgeable on The Little Mermaid lore.”
 
 “Yeah, well, having you as a housemate for the last few years has turned me into a Disney freak.”
 
