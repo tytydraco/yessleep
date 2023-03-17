@@ -60,7 +60,7 @@ We joined a procession of excitably chattering people. Everybody moved towards t
 
 “Mother knows best,” The crowd sang in unison.
 
-I joined some of my school friends, and we meekly joined the choral chanting. It wasn’t much of a song. Just those same three words, repeatedly tirelessly in a dissonant, disjointed melody. As I talked to Brandon, one of my closest friends, about the weirdness of the festival, his mum rushed over to us.
+I walked over to some of my school friends, and we meekly joined the choral chanting. It wasn’t much of a song. Just those same three words, repeatedly tirelessly in a dissonant, disjointed melody. As I talked to Brandon, one of my closest friends, about the weirdness of the festival, his mum rushed over to us.
 
 “Happy Mother’s Day, Marlene!” She jubilantly cried.
 
@@ -188,8 +188,8 @@ And as Lucy trotted along the road out of the village, I felt my eyesight falter
 
 When I woke, I was lying on Lucy’s back, and we were somewhere unrecognisable. Somewhere foreign and futuristic. Shiny cars sat on driveways, and the dawning sun illuminated modern shopfronts. Police officers were keen to question the girl who had entered their quiet, country village on the back of a horse, but I never spoke about what happened.
 
-I ended up in an orphanage, enduring years of counselling, and I eventually adapted to the modern world. I understand why The Valley has been forgotten by outsiders. Mother keeps people away. She plays mind games. But she doesn’t need to use spells to keep me away. I hope she’s forgotten about me.
+I ended up in an orphanage, enduring years of counselling, and I eventually adapted to the modern world. I understand why The Valley has been forgotten by outsiders. Mother keeps people away. She plays mind games. But she doesn’t need to use spells to keep me away.
 
-Still, sometimes, when the moon is particularly bright, I truly believe that I catch glimpses of her eyes.
+I hope she’s forgotten about me. Still, sometimes, when the moon is particularly bright, I truly believe that I catch glimpses of her eyes.
 
 [X](https://www.reddit.com/r/dominiceagle)
