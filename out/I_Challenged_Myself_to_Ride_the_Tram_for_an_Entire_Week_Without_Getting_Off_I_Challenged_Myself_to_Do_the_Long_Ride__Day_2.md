@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/11qsh7g/i_challenged_myself_to_ride_the_tram_for_an/)
+[Part 1](https://www.reddit.com/r/RehnWriter/comments/11tshee/i_challenged_myself_to_ride_the_tram_for_an/)
 
 &#x200B;
 

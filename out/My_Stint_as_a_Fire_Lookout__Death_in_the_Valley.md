@@ -1,6 +1,6 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/11mtodu/my_stint_as_a_fire_lookout_a_couple_of_visitors/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/11mtodu/my_stint_as_a_fire_lookout_a_couple_of_visitors/)   [Part 4](https://www.reddit.com/r/nosleep/comments/11tsl8w/my_stint_as_a_fire_lookout_the_woman_in_blue/)
 
-I lay on the floor, my stomach muscles unclenching after the coughing fit. My wet clothes left damp smudges on the floorboards. Neither Martina nor Roger spoke. Roger, presumed missing, was alive and communicating through the radio meant for contact between the lookouts. But he wasn’t with Martina, and he wasn’t with me. 
+I lay on the floor, my stomach muscles unclenching after the coughing fit. My wet clothes left damp smudges on the floorboards. Neither Martina nor Roger spoke. Roger, presumed missing, was alive and communicating through the radio meant for contact between the lookouts. But he wasn’t with Martina, and he wasn’t with me.
 
 “We need to call the Station,” I said into the radio.
 
@@ -30,11 +30,11 @@ I grabbed the radio that was the link to the Station and tapped the button. I pu
 
 She responded. “We need to trust Roger.”
 
-My eyes fell to the radio on the shelf. I played an imaginary conversation with the Ranger on duty. 
+My eyes fell to the radio on the shelf. I played an imaginary conversation with the Ranger on duty.
 
-*There are monsters and demons up here and the man who went missing is talking to me through the radio. Come and help please.* 
+*There are monsters and demons up here and the man who went missing is talking to me through the radio. Come and help please.*
 
-Even if they came up here, they would only drag me back down off the mountain. In their minds they would assume I had gone full Jack Torrance in a matter of days. 
+Even if they came up here, they would only drag me back down off the mountain. In their minds they would assume I had gone full Jack Torrance in a matter of days.
 
 I talked into the radio for Martina and Roger. “Who was she, the woman outside the lookout?”
 
@@ -60,9 +60,9 @@ I thought back to the shadow from the night before. That was not a woman in a bl
 
 “I’ll be listening. I can rely on you can’t I Tom?”
 
-I paused before answering. “Yes.” I put the radio down and sighed. 
+I paused before answering. “Yes.” I put the radio down and sighed.
 
-I didn’t like it. I didn’t like any of it. I needed time to think. I decided to wait before contacting the Station. I would need to send down my weather report at 9am the next day. Should I tell them something then? I didn’t want to put Roger in danger. 
+I didn’t like it. I didn’t like any of it. I needed time to think. I decided to wait before contacting the Station. I would need to send down my weather report at 9am the next day. Should I tell them something then? I didn’t want to put Roger in danger.
 
 The clouds parted on the horizon and the setting sun glowed yellow and turned the sky crimson. The weather had passed for now. The container for the fire wood was barely half-full. I eyed the enclosure housing the logs outside. It would be better to do it in the light.
 
@@ -72,15 +72,15 @@ In the valley to the east a light glowed in a bare patch between the trees. I sq
 
 I built the fire as the sun dropped below the horizon. In the last of the daylight I looked east and tried to find Rebecca’s tent. The outhouse and wood enclosure blocked my view. I took the binoculars from the shelf and went back outside and to the edge of the peak and found her tent. It was strange, I came up here to be alone and removed from the world, and yet my attention was drawn to the only other person I had seen since Hitch left me on the first day.
 
-The binoculars brought her camp site into focus. Her brown backpack poked out the front of the tent. A light hung from a tree a few paces away. I couldn’t see Rebecca. 
+The binoculars brought her camp site into focus. Her brown backpack poked out the front of the tent. A light hung from a tree a few paces away. I couldn’t see Rebecca.
 
-I lowered the binoculars. To the right of her camp a wisp of light-grey smoke rose into the sky. Almost imperceptible, like the exhale of warm breath on a cold day. Could it be a fire? I lifted the binoculars back to my eyes and scanned up and down trying to pinpoint the smoke. I latched onto it, but could not see a flame. 
+I lowered the binoculars. To the right of her camp a wisp of light-grey smoke rose into the sky. Almost imperceptible, like the exhale of warm breath on a cold day. Could it be a fire? I lifted the binoculars back to my eyes and scanned up and down trying to pinpoint the smoke. I latched onto it, but could not see a flame.
 
-And then something moved. A dark shape pushed through the trees, branches shaking in its wake. The column of smoke shifted with it. It was as if it were a giant lump of black burning coal rolling through the forest. 
+And then something moved. A dark shape pushed through the trees, branches shaking in its wake. The column of smoke shifted with it. It was as if it were a giant lump of black burning coal rolling through the forest.
 
 What the hell?
 
-It made a beeline for the blue tent of Rebecca’s camp. I pulled the binoculars down and surveyed the scene from a distance. The wispy smoke fanned across the forest like the exhaust from a fast-moving train. Rebecca’s tent stood in its path. 
+It made a beeline for the blue tent of Rebecca’s camp. I pulled the binoculars down and surveyed the scene from a distance. The wispy smoke fanned across the forest like the exhaust from a fast-moving train. Rebecca’s tent stood in its path.
 
 I yelled out. I told her to get out of her tent and run, but she was too far away.
 
@@ -98,7 +98,7 @@ Martina’s voice. “I’m here Tom.”
 
 “It took who? What are you talking about? Is there a fire?”
 
-“There’s smoke. I saw smoke. It took her.” 
+“There’s smoke. I saw smoke. It took her.”
 
 “Give me a bearing.”
 
@@ -124,7 +124,7 @@ She was silent for a few seconds. I willed her to answer, squeezing the radio in
 
 “Do you see it now?”
 
-I scanned the forest with the binoculars. Nothing, no smoke or dark shapes. I ran back outside to where I had stood when I first saw it. It wasn’t there. In the last of the light the forest was still and silent. The light hung by Rebecca’s tent shone bright. I trained the binoculars on her tent and waited for movement. Nothing. 
+I scanned the forest with the binoculars. Nothing, no smoke or dark shapes. I ran back outside to where I had stood when I first saw it. It wasn’t there. In the last of the light the forest was still and silent. The light hung by Rebecca’s tent shone bright. I trained the binoculars on her tent and waited for movement. Nothing.
 
 I lifted the radio to my mouth. “It’s gone.”
 
@@ -136,7 +136,7 @@ I lifted the radio to my mouth. “It’s gone.”
 
 “There was something out there.”
 
-In my mind there was now no doubt. The thing that I saw roaming around the forest was the same thing that came to me the night before and banged on the door to the outhouse. It was the warmth I could feel through the door. 
+In my mind there was now no doubt. The thing that I saw roaming around the forest was the same thing that came to me the night before and banged on the door to the outhouse. It was the warmth I could feel through the door.
 
 “There are bear sightings up here every summer.”
 
@@ -144,7 +144,7 @@ In my mind there was now no doubt. The thing that I saw roaming around the fores
 
 “I don’t think so. It’s getting dark. Get back inside.”
 
-In the growing gloom the fireplace inside the lookout burned red hot. I dragged my feet inside, dejected and overcome with a feeling of helplessness. 
+In the growing gloom the fireplace inside the lookout burned red hot. I dragged my feet inside, dejected and overcome with a feeling of helplessness.
 
 “Should I call it in?” I asked into the radio.
 
@@ -156,9 +156,9 @@ In the growing gloom the fireplace inside the lookout burned red hot. I dragged 
 
 “This is a damn nightmare.”
 
-I put the radio down. Outside the black of night closed in. There was nothing for it now but to wait it out until light. 
+I put the radio down. Outside the black of night closed in. There was nothing for it now but to wait it out until light.
 
-I stoked the fire and prepared a plate of food. The task provided a temporary distraction. Roger had said that I should not worry. He had also said that nothing could get inside the lookout. That they had to be invited in. How did he know that was true? Had this thing come to him before he went missing?  
+I stoked the fire and prepared a plate of food. The task provided a temporary distraction. Roger had said that I should not worry. He had also said that nothing could get inside the lookout. That they had to be invited in. How did he know that was true? Had this thing come to him before he went missing?
 
 I resolved to hike down the mountain first thing in the morning. I would radio the station and tell them that I was sick or injured and needed to come down. Hell I might even tell them the truth, that I was scared. That there were things out here I did not want to mess with.
 
@@ -170,9 +170,9 @@ Roger had asked for time. But how much time? How long did he expect me to remain
 
 I ate less than half the pasta and put the leftovers in the fridge. By now it was full dark outside and I lay down on the bed and watched the fire. The heat dried my eyes until it felt like I had sandpaper under my eyelids. I let them stay closed. I was tired. The nap in the morning had tided me over for a while, but now I was flagging again.
 
-The night was still. The only sound was the crackle of the fireplace. My mind drifted. I wished to be back in the office, with its cliques and drab furniture and my supervisor who used me as a place to unload all his frustration. I hated that place, but at least I knew what to expect. Early mornings and boredom and a middle manager drunk on power, doing his best to cut me down so he could puff out his own chest. He was a grown up version of the bullies who chased me into the toilet stall at school. Hell, I’d even take that toilet stall now over this. 
+The night was still. The only sound was the crackle of the fireplace. My mind drifted. I wished to be back in the office, with its cliques and drab furniture and my supervisor who used me as a place to unload all his frustration. I hated that place, but at least I knew what to expect. Early mornings and boredom and a middle manager drunk on power, doing his best to cut me down so he could puff out his own chest. He was a grown up version of the bullies who chased me into the toilet stall at school. Hell, I’d even take that toilet stall now over this.
 
-My head snapped up and I coughed dryly. The once thick log in the fireplace was down to a pile of glowing red embers. I must have dozed off. I got up and put another lump of wood on the fire, if only for the comfort of the light and heat. 
+My head snapped up and I coughed dryly. The once thick log in the fireplace was down to a pile of glowing red embers. I must have dozed off. I got up and put another lump of wood on the fire, if only for the comfort of the light and heat.
 
 The flickering light from the flames danced on the floor. I watched the window, the grime more obvious under the direct glow. A pebble skipped across the ground somewhere outside. I heard the tick-tick-tick clear as day and caught a flash of movement. I listened for anything else. Nothing.
 
@@ -214,17 +214,17 @@ Roger waited before answering. “Stay inside. It won’t come in.”
 
 A pair of feet the colour of the grey ash of a spent fire flirted with the light at the edge of the peak. They looked almost human, the shape of big boots. I almost fell off the bed. I dropped the radio and it clattered to the floor. The feet took deliberate steps towards the light and then retreated again, as if it knew it would expose itself. Thick grey smoke rose off its skin and into the night. It burned hot. This is what had chased down Rebecca out in the forest.
 
-“Leave me alone.” 
+“Leave me alone.”
 
-My voice was meek and small. It was the voice of a fifteen year old kid trapped in the bathroom at school, begging for it to end. It hadn’t worked then. 
+My voice was meek and small. It was the voice of a fifteen year old kid trapped in the bathroom at school, begging for it to end. It hadn’t worked then.
 
 A pair of red eyes glowed like embers in the darkness. They moved around to the northern side of the lookout. It was circling, looking for an opening.
 
-I fumbled for the radio. 
+I fumbled for the radio.
 
 “It’s still there.”
 
-No answer. 
+No answer.
 
 “Is anyone there? I need help.”
 
@@ -240,7 +240,7 @@ I almost shouted into the radio. “I’m calling the Station.”
 
 “Roger isn’t here now is he?”
 
-A shape about the size of a small pot roast tumbled into the light and landed on the deck with a splat. I jumped backwards, afraid to look. My chest tightened and I struggled for breath. 
+A shape about the size of a small pot roast tumbled into the light and landed on the deck with a splat. I jumped backwards, afraid to look. My chest tightened and I struggled for breath.
 
 From behind and somewhere far off came a guttural howl. The creature stopped, the eyes no longer dancing in the dark. Another cry split the silence of the night, closer this time. The eyes disappeared like headlights switching off. A flurry of stones skipped down the slope. It was on the move.
 
@@ -250,7 +250,7 @@ From behind and somewhere far off came a guttural howl. The creature stopped, th
 
 “I don’t know.”
 
-Out in the darkness a series of growls, like two animals fighting. It sounded far off. 
+Out in the darkness a series of growls, like two animals fighting. It sounded far off.
 
 “I think it ran away. I can hear it fighting with something. I think there are two of them. It threw something before it took off.”
 
@@ -278,4 +278,4 @@ The radio shook in my hand. “If you knew something was out there that could do
 
 “It will be over soon. Stay inside.”
 
- [X](https://www.reddit.com/r/SleeplessFromSundown/comments/y3ngzo/welcome_message/)
+[X](https://www.reddit.com/r/SleeplessFromSundown/comments/y3ngzo/welcome_message/)
