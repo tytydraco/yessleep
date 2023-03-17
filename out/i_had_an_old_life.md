@@ -59,4 +59,4 @@ i didn't die, i didn't break the curse, i just felt a huge sharp pain, i was lef
 as i noticed my own body start to break down due to water damage, i felt, i felt, blades going inside of me, and the only thing coming out of the robot's mouth was blood.. i started to lose consciousness, and i don't remember what happened after that, other than, i woke up in a hospital, i was now a child? i cried to try and get the medical staff's attention, but they didn't notice anything wrong.
 
 
-this was A very long time ago and i died, but now I'm re-born as a new child?
+this was A very long time ago and i died, but i was reborn as a new child? i have already grew up and it was very weird.
