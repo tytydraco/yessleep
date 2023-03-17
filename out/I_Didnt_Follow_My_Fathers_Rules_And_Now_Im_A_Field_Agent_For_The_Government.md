@@ -2,6 +2,10 @@ Hi again, Travis Marcella here. If you don't know what has happened previously t
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/), [Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/), [Part 4](https://www.reddit.com/r/nosleep/comments/11p1o9e/i_didnt_follow_my_fathers_rules_and_now_im_a/),[Part 5](https://www.reddit.com/r/nosleep/comments/11qhrhp/i_didnt_follow_my_fathers_rules_and_now_im_a/).
 
+If you wish to see Darius's Perspective then go here:
+
+[Part 1](https://www.reddit.com/r/nosleep/comments/11tfybd/i_am_best_friends_with_travis_marcella_one_of_his/).
+
 Me,Bryson And Darius were all trapped in my room at the motel, desperately thinking of a way out of the situation. We were in Yellowstone National Park and only a couple days have passed and we have been tracked down and blackmailed.
 
 "This is bad..." I said.
@@ -18,7 +22,7 @@ I stared at him. He had the same mentality as the facility.
 
 "Damn it. Look, Travis, I'm sorry, but we need to get out of here". He said, avoiding eye contact.
 
-I didn't change my mind as we all thought of a new way of escape. 
+I didn't change my mind as we all thought of a new way of escape.
 
 Darius suggested barraging through the soldiers but I told him that they probably were prepared for us to retaliate. We watched as they kicked down the door and 8 soldiers piled into the room.
 
@@ -106,7 +110,7 @@ Darius could only turn around as it launched a punch into his chest, sending him
 
 It shrieked as it was barraged with bullets but quickly dashed behind a nearby tree.
 
-"You guys are seriously being taken down by this? I mean you are a kid but sti-" He didn't get to finish his sentence when it dashed from it's hiding spot and aimed to crush his head with his claw. 
+"You guys are seriously being taken down by this? I mean you are a kid but sti-" He didn't get to finish his sentence when it dashed from it's hiding spot and aimed to crush his head with his claw.
 
 It grabbed his head and was about to exert pressure when Darius slammed into the creature, sending them both tumbling down the hill we were climbing.
 
