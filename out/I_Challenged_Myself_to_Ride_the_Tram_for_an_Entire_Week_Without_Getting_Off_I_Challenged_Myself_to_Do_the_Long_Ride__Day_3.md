@@ -120,6 +120,12 @@ Most important of all, however, as scary as these experiences were, they were al
 
 So I guess I’ll keep going for a while longer. [See you all tomorrow.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2FRehnWriter)
 
+&#x200B;
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/11tfibw/i_challenged_myself_to_ride_the_tram_for_an/)
+
+&#x200B;
+
 [YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)
 
 [WS](https://rehnwriter.com/)
