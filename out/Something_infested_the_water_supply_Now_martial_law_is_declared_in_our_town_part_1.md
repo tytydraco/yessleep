@@ -91,3 +91,5 @@ But I wanted to at least write up my story to let people know what’s happening
 &#x200B;
 
 Part 2: [https://www.reddit.com/r/nosleep/comments/11pe25h/something\_infested\_the\_water\_supply\_now\_martial/](https://www.reddit.com/r/nosleep/comments/11pe25h/something_infested_the_water_supply_now_martial/)
+
+Part 3: [https://www.reddit.com/r/nosleep/comments/11u2h9d/something\_infested\_the\_water\_supply\_now\_martial/](https://www.reddit.com/r/nosleep/comments/11u2h9d/something_infested_the_water_supply_now_martial/)
