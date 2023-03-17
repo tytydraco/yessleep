@@ -2,7 +2,7 @@ I’ve never killed anything in my life, until he came into our lives.
 
 Ok, yes, I’ve killed my share of mosquitoes, bees, flies, spiders and other nuisance bugs. I guess to rephrase, I had never killed a living breathing thing. But I’m not sure if he was a living thing, even now it’s unclear.  But I did kill him, I know this because his head’s buried in one corner of our yard and his body in the other.
 
-Every few months when it’s late at night and the kids are asleep, and Janet, my wife watches from our bedroom window. I take shovel to dirt and make sure he’s still buried and dead.
+Every few months when it’s late at night and the kids are asleep, and Janet, my wife, watches from our bedroom window. I take shovel to dirt and make sure he’s still buried and dead.
 
 I nod up to my wife as I pat the earth back down and the look of fear washes from her face.
 
