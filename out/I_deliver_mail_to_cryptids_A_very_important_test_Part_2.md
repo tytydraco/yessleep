@@ -1,4 +1,4 @@
-( First: https://redd.it/o8vgiw Previous: https://redd.it/11s2ks8 )
+( First: https://redd.it/o8vgiw Previous: https://redd.it/11s2ks8 Last: https://redd.it/11txt8l )
 
 I’d gotten halfway to the dome and then found out just how rigged this test was. Max's stepmother must be really angry at to toss this sort of monster our way. The ground rumbled under my feet. From the ruined city came countless bones and bodies pouring out all collecting into one spot in the sky. I’d barely made any progress to the glass dome by the time a true monster formed. It stood higher than any building I’ve seen. The creature a force of nature in the shape of a human skeleton made from the dead. 
 
