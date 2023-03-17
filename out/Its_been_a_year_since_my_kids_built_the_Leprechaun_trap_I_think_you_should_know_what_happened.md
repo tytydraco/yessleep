@@ -1,8 +1,8 @@
-I’ve never killed anything in my life before, until he came into our lives. 
+I’ve never killed anything in my life, until he came into our lives. 
 
 Ok, yes, I’ve killed my share of mosquitoes, bees, flies, spiders and other nuisance bugs. I guess to rephrase, I had never killed a living breathing thing. But I’m not sure if he was a living thing, even now it’s unclear.  But I did kill him, I know this because his head’s buried in one corner of our yard and his body in the other.
 
-Every few months when it’s late at night and the kids are asleep, and Janet my wife watches from our bedroom window. I take shovel to dirt and make sure he’s still buried and dead.
+Every few months when it’s late at night and the kids are asleep, and Janet, my wife watches from our bedroom window. I take shovel to dirt and make sure he’s still buried and dead.
 
 I nod up to my wife as I pat the earth back down and the look of fear washes from her face.
 
@@ -160,7 +160,7 @@ A two-by-four full of nails then swung down and slammed into his face and chest.
 
 His screams filled the air, black colored blood oozed out of him. He fought to get free. I was amazed he was still alive. 
 
-I reached from behind the shed and grabbed the ax. I had read that to kill a Leprechaun you had to sever its head from its body.
+I reached from behind the shed and grabbed the ax. I'd read that to kill a Leprechaun you had to sever its head from its body.
 
 The ax raised and ready to swing down. I paused as the Leprechaun spoke his last words, “You can’t get rid of me, I’ll rise from the dead you see…I also got family.”
 
