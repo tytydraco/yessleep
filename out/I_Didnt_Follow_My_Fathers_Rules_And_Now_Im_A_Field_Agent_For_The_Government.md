@@ -141,3 +141,5 @@ I was able to dial 1001 to get an emergency response team over here and I typed 
 I quickly ran deeper into the forest, hoping to find the remaining soldiers.
 
 I'll keep you updated on the situation...
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/11u3060/i_didnt_follow_my_fathers_rules_and_now_im_being/).
