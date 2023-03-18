@@ -20,7 +20,7 @@ The town library was one of the places where I could have peace.
 
 “I know there’s no music, flowers or signs but…I was wondering if you wanted to go to prom with me?” He said quietly. My heart pounded in my ears, like it was about to burst out of my chest and cartoonishly dance on the counter. I wanted to, I wasn’t even planning on going to prom, my brain was working overtime. I didn’t even have a dress! But my excitement dulled, the reason why I didn’t want to go was bearing his signature smile in my mind. Noah would probably drag me to countless sketchy parties, and if Oliver was with me, who knows what would happen to him?
 
-Noah never hurt me, but it wasn’t a coincidence that the guy who also want to be track captain broke his leg, I just knew it wasn’t.
+Noah never hurt me, but it wasn’t a coincidence that the guy who also wanted to be track captain broke his leg, I just knew it wasn’t.
 
 Oliver spoke up, I’d probably been quiet for a while. “We’d go to your prom, of course, I wouldn’t want you to-“, I perked up, that was perfect.
 
