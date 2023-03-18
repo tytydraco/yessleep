@@ -136,9 +136,11 @@ It was everywhere, an ignition of fire which had started on my arms, moving down
 
 “Hey!” My voice became a panicked yell, and part of my brain which wasn’t choked with fog and cotton candy realised Sara was silent. It took maybe half a second for my vision to be reduced to blurry pinpricks—and when I squinted, grasping the front counter for an anchor, I glimpsed movement through the back room doors. 
 
-A flash of movement, footsteps running, a shadow bleeding into view; a shadow I knew. Kenji. I saw half of his face. His was hair soaking wet, strands plastered over half lidded eyes. It wasn’t until I saw smears of red under his nose, and red tinged water soaking his white shirt, when my brain kicked itself into gear. 
+A flash of movement, footsteps running, a shadow bleeding into view; a shadow I knew. Kenji. I saw half of his face. His hair was  soaking wet, strands plastered over half lidded eyes. It wasn’t until I saw smears of red under his nose, and red tinged water soaking his white shirt, when my brain kicked itself into gear. He was so close. So close to the door, his fingers gripping onto the side, only for a monstrous arm to whip out and slam a hand over his mouth, muffling his cry and yanking him back violently. When the door slammed behind him, I remembered how to walk. 
 
-He was so close. So close to the door, his fingers gripping onto the side, only for a monstrous arm to whip out and slam a hand over his mouth, muffling his cry and yanking him back violently. When the door slammed behind him, I remembered how to walk. But I… couldn’t. My body felt like it was on fire, and suddenly all I wanted to do was throw myself into the tank with the fake mermaid. I remember my legs giving way. Just like that. One moment I could feel my legs, and the next I couldn’t.
+But I… couldn’t. My body felt like it was on fire, and suddenly all I wanted to do was throw myself into the tank with the fake mermaid. I remember my legs giving way. Just like that.
+
+One moment I could feel my legs, and the next I couldn’t.
 
 I was lying on my back, blinking rapidly at something squirming under the flesh of my arms, when a shadow loomed over me. I couldn’t concentrate on her words, on her broken English, as my gaze followed a greenish tinge tearing its way up my arm, and like a virus, it was spreading, filling my veins and expanding further and further until I could feel it choking me,  writhing up my throat, my body jolting as I coughed up mouthfuls of water.
 
@@ -256,7 +258,7 @@ A loud splash sounded from the surface, and I found myself with a face-full of b
 
 “Silly boy.”
 
-He gasped out in my head. But I heard her voice too. It was perfectly clear. It was almost like their voices were intertwined.
+He gasped out in my head. But I heard her voice too. It was perfectly clear, almost like their voices were intertwined.
 
 “You… amuse me,” she chuckled, speaking in both Japanese and English. “Two full days and your lungs still crave air.”
 
