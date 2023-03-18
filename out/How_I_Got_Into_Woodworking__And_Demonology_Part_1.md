@@ -1,8 +1,8 @@
-This is a ghost story.
+This is about a ghost.
 
 Well, sort of.
 
-Not in a haunted house, poltergeist, Ouija board kind of way.  But a ghost story, nonetheless.
+Not in a haunted house, poltergeist, Ouija board kind of way.  But a ghost, nonetheless.
 
 Hmm.  I'm not describing this very well, am I?
 
