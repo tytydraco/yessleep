@@ -28,7 +28,7 @@ He told me to just get off the damned tram and get them myself, but I told him t
 
 We ended up exchanging a few more messages before he yielded and said he’d do it.
 
-I thanked him profusely before I gave him the time my tram would arrive at the mall station.
+I thanked him profusely before I gave [https://www.reddit.com/r/nosleep/comments/11udmre/i\_challenged\_myself\_to\_ride\_the\_tram\_for\_an/](https://www.reddit.com/r/nosleep/comments/11udmre/i_challenged_myself_to_ride_the_tram_for_an/)him the time my tram would arrive at the mall station.
 
 And wouldn’t you know it, there he was, holding two shopping bags in his hands. He noticed me the moment the tram arrived and sat down in the row in front of me.
 
@@ -199,6 +199,12 @@ My head hurt, both from drinking and the noise of the people around me, but also
 Either way, that’s it for today. See you all tomorrow. I know there’s more weird shit to come. The Long Ride continues, and I’m sure the weirdness does as well.
 
 Trying to catch some sleep now. [Wish me luck guys!](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2FRehnWriter)
+
+&#x200B;
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/11udmre/i_challenged_myself_to_ride_the_tram_for_an/)
+
+&#x200B;
 
 [YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)
 

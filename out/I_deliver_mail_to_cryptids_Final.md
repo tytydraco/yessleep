@@ -156,7 +156,7 @@ I’d liked him for a while. But I wanted to ignore my feelings so as not to mak
 
 “Then show me.” He said firmly.
 
-If Sunny wanted, he could have moved out. He had a job that he could support himself with. He knew I would never hold the fact that I paid for him over his head. We may have met in such a way. But he didn't owe me anything. For some reason, he saw something in me I didn’t. My stomach fluttered and I leaned back over to show him how I felt first the first time. And then I showed him a few times...
+If Sunny wanted, he could have moved out. He had a job that he could support himself with. He knew I would never hold the fact that I paid for him over his head. We may have met in such a way. But he didn't owe me anything. For some reason, he saw something in me I didn’t. My stomach fluttered and I leaned back over to show him how I felt for the first time. And then I showed him a few times...
 
 Then the damn of emotions broke. Everything I’ve tried to hold back came flooding out. I held onto him and buried my face into his shoulder to finally cry. Sunny didn’t move away but was glad I could let me face the feelings I’d tried to hide away from.
 
@@ -172,7 +172,7 @@ One day I slept in and didn’t hear someone come crashing through the front doo
 
 I was just messing with her. She crashed down on my bed and grabbed my blankets to roll herself into them. I stared at a monster burrito that crashed my pity party looking very proud of herself.
 
-“Human, I don’t understand your pain. I did not have any kind of creators. I was just an ember that burned in a fire pit that roasted so many living creatures alive. Their split blood and magic within the Earth mixed to create a new life. I’ve been wandering around and growing stronger ever since.”
+“Human, I don’t understand your pain. I did not have any kind of creators. I was just an ember that burned in a fire pit that roasted so many living creatures alive. Their spilled blood and magic within the Earth mixed to create a new life. I’ve been wandering around and growing stronger ever since.”
 
 I wondered about what kind of creature she was. I’d asked around and no one gave me an answer. When it came to creatures, they could have been born in countless different ways. Unless she told us, it would have been impossible to figure out what Belizas was.
 
