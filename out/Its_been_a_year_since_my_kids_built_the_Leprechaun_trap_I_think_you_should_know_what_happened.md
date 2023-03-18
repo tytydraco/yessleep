@@ -1,4 +1,4 @@
-I’ve never killed anything in my life, until he came into our lives. 
+I’ve never killed anything in my life, until he visited my family. 
 
 Ok, yes, I’ve killed my share of mosquitoes, bees, flies, spiders and other nuisance bugs. I guess to rephrase, I had never killed a living breathing thing. But I’m not sure if he was a living thing, even now it’s unclear.  But I did kill him, I know this because his head’s buried in one corner of our yard and his body in the other.
 
@@ -8,11 +8,11 @@ I nod up to my wife as I pat the earth back down and the look of fear washes fro
 
 It was a year ago, and let this be a cautionary story about the truth in the old axiom; that all myths, legends, and folk tales are born out of reality. A sometimes scary and horrific reality.
 
-My twins, Trey and Benji, had just turned five, and came home from school in a whirlwind of excitement. They were given an assignment to build a Leprechaun trap. A device that would catch the diminutive little sprite luring him in with candy.
+My twins, Trey and Benji, had just turned five, and came home from school in a whirlwind of excitement. They were given an assignment to build a Leprechaun trap. A device that would catch the diminutive little sprite, luring him in with candy.
 
-The goal was to hold the Leprechaun hostage, demanding more candy in exchange for his release. When you think about it, you question the message you’re teaching a couple of five-year-olds with the concept of kidnapping and ransom, but it was a fun little project that would tap into their imagination.
+The goal was to hold the Leprechaun hostage, demanding more candy in exchange for his release. When you think about it, the message of teaching a couple of five-year-olds to kidnap and ransom to get what you want, seemed a little hardcore, but it was a fun little project that would tap into their imagination.
 
-The age when young kids believe there’s actual magic in the world, that things like dragons, unicorns, Santa Claus and Tooth Fairies might really exist, is such a short window, you want to keep that belief alive as long as you can.
+It’s such a sliver of time when young kids believe there’s actual magic in the world, that things like dragons, unicorns, Santa Claus and Tooth Fairies might really exist. As parents you try to keep that belief alive as long as you can.
 
 Janet was still at her office when I started working on the Leprechaun trap with my boys. The first and most important hurdle we overcame was them working together to build one trap. 
 
@@ -96,7 +96,7 @@ Alone in their room, I inched to the closet, no baseball bat in hand.
 
 I felt a little vulnerable.
 
-I whisked open the closet door. No Leprechaun. But a bunch of Trey and Benji’s shirts were ripped to shreds, torn with a knife or…fingernails. 
+I whisked open the closet door. No Leprechaun. But a bunch of Trey and Benji’s shirts were ripped to shreds, torn with a knife or fingernails. 
 
 I knew I had to tell Janet what I had seen the night before and the terrifying evidence in the boy’s closet. Whether she believed me or not, didn’t matter, she had to know.
 
@@ -116,7 +116,7 @@ The Leprechaun swung the club and smashed it into one of the posts on our four-p
 
 The twins were wailing in terror. I slowly rose from the bed, calm and cool. I asked him what did he want. 
 
-In a deep voice and with a thick Irish accent muttered out, “What’s mine.” His scraggly finger pointed to Janet. 
+In a deep voice and with a thick Irish accent he muttered out, “What’s mine.” His scraggly finger pointed to Janet. 
 
 She muttered out, “M...m...me?”
 
@@ -136,11 +136,13 @@ And then he was gone.
 
 But like any blackmailer or extortionist, we knew he’d never be satisfied. He’d always be a threat to our lives, our children's lives.
 
-So, we decided we’d build a real Leprechaun trap, and we wouldn’t ask him for more candy. We’d kill it.
+So, we decided we’d build a real Leprechaun trap, and we wouldn’t ask him for more candy when we caught him. 
+
+We’d kill him.
 
 Janet and I called in sick the next day and the boys went to visit their Uncle Jeff the next town over. 
 
-The plans for a snare I had in my head from when I was with Trey and Benji at the kitchen table came to life. A few internet searches on tiger and lion traps as well as Irish folk lore and Janet and I were hammering and sawing away. Two trips to Home Depot and re-purposing our shed as the trap, doubling as a cave, and we were ready.
+The plans for the snare I had in my head when I was with Trey and Benji at the kitchen table days earlier came to life. After a few internet searches on tiger and lion traps as well as Irish folk lore, Janet and I were hammering and sawing away. Two trips to Home Depot and re-purposing our shed as the trap, doubling as a cave, and we were ready.
 
 Janet gathered up each and every piece of jewelry she owned as well as the silver place settings we got as a wedding present. We piled it all in huge plastic bin and stuck it in the middle of the shed.
 
@@ -160,12 +162,12 @@ A two-by-four full of nails then swung down and slammed into his face and chest.
 
 His screams filled the air, black colored blood oozed out of him. He fought to get free. I was amazed he was still alive. 
 
-I reached from behind the shed and grabbed the ax. I'd read that to kill a Leprechaun you had to sever its head from its body.
+I reached behind the shed and grabbed the ax. I'd read that to kill a Leprechaun you had to sever its head from its body.
 
 The ax raised and ready to swing down. I paused as the Leprechaun spoke his last words, “You can’t get rid of me, I’ll rise from the dead you see…I also got family.”
 
 It took three chops, but his head was clear of his body.
 
-It’s now a year later, and we’ve checked his buried remains every month since that night. We always make sure we check today, St. Patrick’s day, the anniversary of when it first happened.
+It’s a year later, and we’ve checked his buried remains every month since that night. We always make sure we check today, St. Patrick’s day, the anniversary of when it first happened.
 
 He hasn’t come back. But we live in fear, terrified of his final words, “…I got family.”
