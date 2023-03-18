@@ -6,9 +6,8 @@ It was exactly this day when I lost my dog. Now I know what you're thinking.. Pe
 
 The thing is.. I can actually still feel him near me, seeking me, I hear him. His paws drag as his nails scrape by followed by the sound of a disoriented whimper. Every time it happens, my heart sinks within my chest and I only get reminded of that horrendous night. It's been three years since my dog vanished, I can still hear him breathing over me...
 
-Have you ever wondered to yourself if something really happened to you? Even though it seems bizarre, you're still convinced it really was real. After 3 years, this trauma still seems to haunt me even though I have no proof to share its existence. The only thing I have are these horrific memories and emotions. The best I can do is just try to move on, and to help with that I feel I must share this experience here on reddit.
+Have you ever wondered to yourself if something really happened to you? Even though it seems bizarre, you're still convinced it really was real. After 3 years, this trauma still seems to haunt me even though I have no proof to share its existence. The only thing I have are these horrific memories and emotions. The best I can do is just try to move on, and to help with that I feel I must share this experience here.
 
-I used to watch quite a bit of creepy story videos back when I worked night security and I figured my experience would be a good addition to this. Maybe, I could find something within myself to help me move on. Either way, I think that's enough prolouge. This is what happened on March, 17 2020. I share this horrendous dark secret that I've been holding away from the public for three years.. Let's begin.
 
 The night of March, 17. I took my beautiful white husky, Cloud on a walk within the mountains of Virginia. Now, I know taking a stroll within the mountains at night in Virginia seem like a very bad idea. But for us it was a normality as we already lived pretty far up the mountains and we always would follow a certain trail that's been around our house since it's been made. I was always prepared if something would happen as well, I came packed with small little snacks, water, matches, a first aid, tourniquet, bear oc and a lot more.
 
@@ -29,7 +28,3 @@ I remember a distinct smell. Something that felt familiar, maybe a scent that wa
 
 I checked over myself to look for cuts or any damages. While checking I was shocked to see all my gear was gone. My bag, food, water, my gun... My chest suddenly felt heavier then anything I've ever felt. Almost like I myself became a statue.. Cloud, my dog was gone. I desperately called out his name and received nothing in return. Silence filled the playground as I sat there taken back by everything. 
 I looked above me to see if I could see where I fell but there was only ceiling. There was nothing broken, no signs of me falling. Absolutely zero.
-
-At this point, things just seem like complete  fantasy. Beyond that actually.. I'm not even sure if I will continue but even so.. The story does NOT end here, this is only the start of these horrendous events that continue to haunt me to this day.
-
-End of ( part 1)
