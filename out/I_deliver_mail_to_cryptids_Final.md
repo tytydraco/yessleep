@@ -160,7 +160,7 @@ If Sunny wanted, he could have moved out. He had a job that he could support him
 
 Then the damn of emotions broke. Everything I’ve tried to hold back came flooding out. I held onto him and buried my face into his shoulder to finally cry. Sunny didn’t move away but was glad I could let me face the feelings I’d tried to hide away from.
 
-Us being together felt right. We already knew what kind of relationship it would be and the expectations that came with it. And we were both fine with that. Somehow, a perfect completely person for me just came into my life. I just needed to accept it.
+Us being together felt right. We already knew what kind of relationship it would be and the expectations that came with it. And we were both fine with that. Somehow, a completely perfect person for me just came into my life. I just needed to accept it.
 
 The breakdown in the bathroom oddly enough helped my mental state. I found myself cleaning the apartment and eating small snacks throughout the day. I wanted to do a shift in the sorting room but was forced to stay home. Sunny was extremely supportive the entire time. He'd never lost his parents due to never having any. But he knew how to deal with trauma. When I started to feel overwhelmed again, he stopped what he was doing so we could take a break holding hands and talk about what was going on at work while I stayed home on stress leave.
 

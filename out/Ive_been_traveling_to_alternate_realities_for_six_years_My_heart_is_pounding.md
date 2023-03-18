@@ -248,3 +248,6 @@ So far, I have traveled to 485 different realities. Many of them were fun, many 
 
 
 I'm typing this out in a restaurant right now. Currently, I'm in your reality. Just a minute ago, three people stormed into the bathroom behind someone. I heard some thuds followed by muffled shouting. It's happening again to somebody else right now. No one seems to be doing anything about it. Although, there is only one other customer here. What are the ambushers doing? Why are they taking multiple people in? My adrenaline is rising. Hopefully it's not what I'm thinking it is. I'm going to take a pause from writing this until I get back home. A waiter is eyeing both me and the other customer, as I can see out of the corner of my eye. None of this is making any sense, which is making whatever is going on creepier. I'll update later with more info about my journey.
+
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11uy7sa/ive_been_traveling_to_alternate_realities_for_six/?)

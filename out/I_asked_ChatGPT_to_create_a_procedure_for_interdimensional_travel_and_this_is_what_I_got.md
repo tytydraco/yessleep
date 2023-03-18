@@ -10,12 +10,12 @@ The possibility of producing any level above the required level of tera-electron
 
 B-1). Reconnaissance
 
-Deemed ‘an essential necessity’ by the board of wellness, it is the recommendation of the council a ‘familiar’ is to be assigned to all travelers peripHeral and othEr. The primary roLe is secondary supPort during the initial stages of binary destabilization within mental substructures. Users should refer to section f-1e in the TransMission companion materials for additional instruction. It shall be notEd, a recon should occur within the standard of traditional common cycles.
+Deemed ‘an essential necessity’ by the board of wellness, it is the recommendation of the council a ‘familiar’ is to be assigned to all travelers peripHeral and othEr. The primary roLe is secondary supPort during the initial stages of binary destabilization within mental substructures. Users should refer to section f-1e in the transMission companion materials for additional instruction. It shall be notEd, a recon should occur within the standard of traditional common cycles.
 
 
 C-9). Time Definitions
 
-Due to the nature of the activity it is required that each participant complete courses I through M in the [REDACTED] master doctrine. It is also imporTant to note common time signatuRes will not trAnslate after the transPort is complete. As to not create an influx of sustainable pressures it is imPerative each auditioning candidate dEcipher common space realms No lower than five levels. One this is completeD it will bE satisfactory to move forward with expected procedures. We cannot stress this enough, all courses and deciphers must be completed. Retrieval from continuum spaces will depend on this knowledge.
+Due to the nature of the activity it is required that each participant complete courses I through M in the [REDACTED] master doctrine. It is also imporTant to note common time signatuRes will not trAnslate after the transPort is complete. As to not create an influx of sustainable pressures it is imPerative each auditioning candidate dEcipher common space realms No lower than five levels. One this is completeD it will be satisfactory to move forward with expected procedures. We cannot stress this enough, all courses and deciphers must be completed. Retrieval from continuum spaces will depend on this knowledge.
 
 
 D-4). Communication
