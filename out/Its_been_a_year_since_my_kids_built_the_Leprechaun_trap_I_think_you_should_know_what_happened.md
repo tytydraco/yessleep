@@ -1,6 +1,8 @@
 I’ve never killed anything in my life, until he visited my family. 
 
-Ok, yes, I’ve killed my share of mosquitoes, bees, flies, spiders and other nuisance bugs. I guess to rephrase, I had never killed a living breathing thing. But I’m not sure if he was a living thing, even now it’s unclear.  But I did kill him, I know this because his head’s buried in one corner of our yard and his body in the other.
+Ok, yes, I’ve killed my share of mosquitoes, bees, flies, spiders and other nuisance bugs. But I had never killed anything like a bird, dog, cat, hell I've never even set down one mouse trap. To think I killed a person, a living breathing human, haunts me to this moment.
+
+The thing is, I’m not sure if he was a human, even now it’s unclear.  But I did kill him, I know this because his head’s buried in one corner of our yard and his body in the other.
 
 Every few months when it’s late at night and the kids are asleep, and Janet, my wife, watches from our bedroom window. I take shovel to dirt and make sure he’s still buried and dead.
 
