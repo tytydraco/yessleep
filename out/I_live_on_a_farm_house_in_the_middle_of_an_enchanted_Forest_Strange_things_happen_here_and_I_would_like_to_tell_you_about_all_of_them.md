@@ -1,4 +1,4 @@
-Have you ever been tail down the side of a mountain by a band of angry machete-wielding onion people with Jack o’lantern  like faces and major territory issues?
+Have you ever been tailed down the side of a mountain by a band of angry machete-wielding onion people with Jack o’lantern  like faces and major territory issues?
 
 
 Have you ever been followed through the woods by a mysterious hooded figure crunching through the brush and stalking your every move from just beyond the tree line?
@@ -10,7 +10,7 @@ Have you ever been stabbed through the center of your palm by a stumpy little de
 Well, if you have experienced any and or all of what I had just mentioned, then you probably already have a good idea of the place and some of the things I am about to tell you.
 
 
-If you haven’t, however, then are you in for one heck of a tail. Because the stories I am going to be sharing with you during my free time moving forward, might just be some of the craziest things you've ever heard. But before that, there are a couple things you should know about me first.
+If you haven’t, however, then are you in for one heck of a tale. Because the stories I am going to be sharing with you during my free time moving forward, might just be some of the craziest things you've ever heard. But before that, there are a couple things you should know about me first.
 
 
 My name is Blake, and I live on a farmhouse.
