@@ -93,3 +93,5 @@ Though, I couldn't sleep. I kept thinking of my father, my friends and that grou
 I woke up in the morning and was led back into the forest with Martin, Tracy and Jayden. Right before we left, I took out the phone I snatched from earlier and made this post.
 
 I'll keep in touch with you all....I-I promise.
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/11vvxnk/i_didnt_follow_my_fathers_rules_and_now_i_think/).
