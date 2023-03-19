@@ -210,7 +210,7 @@ I was taken aback. "What do you mean? We live on the same street. I see you all 
 
 "I'm sorry, I don't remember you," she said again, this time more dismissively.
 
-I felt frustrated and a little hurt. I didn't understand why she was being so unfriendly. 
+I felt frustrated and a little hurt. I didn't understand why she was being so unfriendly.
 
 "Are you sure? Maybe we've met before at a community event or something," I said, trying to jog her memory.
 
@@ -292,9 +292,9 @@ While staying at the shelter, I was grateful to have access to the Internet. I e
 
 Since I was nonexistent, I occasionally took up odd jobs like washing cars or doing dishes in kitchens.
 
-But most of my time was spent watching my own house from a distance in disguise, trying to get a glimpse of my family.
+But most of my time was spent watching my own house from a distance in disguise, trying to get a glimpse of my family. A few times, I was tempted to break in and try to find something like my old belongings if they existed but they installed an expensive security system.
 
-I remember watching my children as they were walking to school with their backpacks on. I couldn't resist the urge to approach them, to see if they would recognize me. I felt like a monster, a complete stranger in my own family's life. I knew I had to keep my distance, to avoid causing any more trouble. I could also see that man as he gave me a kiss to my wife and went to my workplace to my classroom with my students. I couldn't help but feel a surge of anger and jealousy.
+I remember watching my children as they were walking to school with their backpacks on. I couldn't resist the urge to approach them, to see if they would recognize me. I felt like a monster, a complete stranger in my own family's life. I knew I had to keep my distance, to avoid causing any more trouble. I could also see that man as he gave me a kiss to my wife and went to my workplace by my car to my classroom to be with my students. I couldn't help but feel a surge of anger and jealousy.
 
 Then one day, after a week of staying away, I paid another visit to the house. As I was standing at a distance from my house, something strange caught my attention. The husband was outside, standing awkwardly and appearing to be in a state of confusion. He was hiding behind a tree, peering out from time to time at the house, and wearing only a robe. I wasn't sure if he had spotted me, but I felt a knot form in my stomach. What was going on?
 
@@ -302,6 +302,6 @@ As I tried to make sense of the situation, the front door of the house suddenly 
 
 The husband lingered outside for a few moments longer, and that was when he finally seemed to notice me.
 
-Our eyes met, and we were both speechless.
+Our eyes met, and we were just standing there, speechless.
 
 [^(More)](https://www.reddit.com/r/hauntingechoes/)
