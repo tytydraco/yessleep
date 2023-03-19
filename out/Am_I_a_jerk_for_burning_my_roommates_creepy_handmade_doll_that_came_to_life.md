@@ -153,3 +153,5 @@ And there you have it, folks! It’s been one heck of a wild ride, and I’m a d
 Oh, but for continuity’s sake: YTA? NTA? ESH? Let me know in the comments!
 
 I’ll also post my description of the photo there, too, so you know… as with anyplace on the interwebs, read the comments [*at your own risk.*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/11v6pdc/am_i_a_jerk_for_asking_my_roommate_to_pay_half/)
