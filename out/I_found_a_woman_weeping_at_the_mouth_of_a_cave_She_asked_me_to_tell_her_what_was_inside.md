@@ -146,8 +146,8 @@ Then everything went black. Suddenly, I was in an unfamiliar city. It was beauti
 
 I liked the way the tips of buildings held up the blue sky. The flap of trash in the breeze. The cherry of a discarded cigarette. How the gutter water whispered to the concrete.
 
-I didn't know it yet, but I'd never see my friends again, or they'd never see me again, it's hard to tell which. No one had ever heard of them wherever I was. Wherever I am.
+I didn't know it yet, but I'd never see my friends again, or they'd never see me again, it's hard to tell which. No one had ever heard of them. My family, my stuff — it’s all here though. When I left I took a train home, and it was only a few hours from that new city that’s apparently always existed. It’s called Los Angeles. There’s no trace of the forest; not in any books, not online, not on any maps.
 
-But as I laid there, enjoying the sounds and the sights, somewhere — not here, but somewhere — there was a sewer opening in a wall. It's covered in graffiti and sealed off with metal bars. I can feel it.
+Every time I think of that city, I feel that somewhere — I’m not sure where, but somewhere — there’s a sewer opening in a wall. It's covered in graffiti and sealed off with metal bars. I can feel it.
 
 It's dark. As dark as a cave.
