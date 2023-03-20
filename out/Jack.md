@@ -54,7 +54,7 @@ Where’s Sarah? Was she hurt too?
 
 I painfully sit up in bed. My vision is slightly blurry, but I can make out Sarah in her own bed. I grab her shoulder and gently shake her. “Sarah? Are you okay? Please wake up.”
 
-Sarah stirs back to life. She sees my face and immediately gaps. “Jesus kid. That may need stitches.” 
+Sarah stirs back to life. She sees my face and immediately gasps. “Jesus kid. That may need stitches.” 
 
 That’s it? No shock? No shouts? It’s like she already knew what I was going to look like when she woke. And wait, she looks perfectly fine. What’s going on here? My mind starts spinning. Back to the parking lot. Back to Sarah leaving me. Back to the beer….the beer.
 
@@ -98,7 +98,7 @@ I hear something else now. Something…something like music. I crawl towards the
 
 Jack. 
 
-The tune is now more haunting than I ever could have imagined. Do I dare inch any closer to it? But I have to. I have to know. It’s coming from inside the storage bin where I put it so many months ago. I slow open the drawer to see it. That grin. That red nose. 
+The tune is now more haunting than I ever could have imagined. Do I dare inch any closer to it? But I have to. I have to know. It’s coming from inside the storage bin where I put it so many months ago. I slowly open the drawer to see it. That grin. That red nose. 
 
 Jack. 
 

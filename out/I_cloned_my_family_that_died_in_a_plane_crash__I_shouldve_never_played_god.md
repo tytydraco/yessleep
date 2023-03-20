@@ -4,7 +4,7 @@ The clones of my wife and son looked just like my real family, but there was som
 
 I started to regret my decision to clone my family, but I couldn't let go. I finally got my family back, and I thought that with some tampering with the code, all of this would be fixed. As time passed, things started to get even worse. The clones began to show signs of aggression towards each other, and I couldn't figure out why. I tried to modify their programming, but it was no use. They had developed their own personalities, and they were not the kind, loving family I had hoped for.
 
-One day, I was in my lab working on a new project when I heard a scream. It was my son. I rushed out of the lab and found him lying on the floor, with my wife standing over him. He was bleeding, and her eyes were blank. I knew immediately that she was dead. My wife had killed him.
+One day, I was in my lab working on a new project when I heard a scream. It was my son. I rushed out of the lab and found him lying on the floor, with my wife standing over him. He was bleeding, and his eyes were blank. I knew immediately that he was dead. My wife had killed him.
 
 I was horrified, but I knew I had to keep my family together. I couldn't let them be destroyed, so I kept my son's body in the lab and worked on a way to bring him back. But something strange was happening. I started to have flashes of memories that weren't my own. Memories of a life I didn't live.
 
