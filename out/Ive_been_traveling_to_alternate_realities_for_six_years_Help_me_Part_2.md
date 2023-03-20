@@ -527,3 +527,6 @@ I decided to use the time I got to type all this up. Yes, I am going to text my 
 
 
 What the hell do I do?
+
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/11wvede/ive_been_traveling_to_different_realities_for_six/?)
