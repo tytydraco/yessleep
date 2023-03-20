@@ -25,3 +25,5 @@ She tried approaching but got repelled by the line of salt surprisingly still in
 "OUTLANDER!!!" I heard Carla scream behind me with rage in that deep male voice.
 
 Animalistic roars resounded in all the buildings surrounding me as I saw multiple pairs of white shining eyes appearing on the windows. I kept on running, wondering if this night would be my very last in this world.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11w3gu8/every_year_in_my_village_there_is_a_time_during/)

@@ -56,7 +56,7 @@ I was so surprised that I must have agreed.
 
 Despite my best efforts, I actually cared to look nice for him. I text my sister, Anna, who was pretty excited for me to actually be texting, and we set a date to go buy me some new clothes, and, on seeing my straggly, unbrushed, bland, hair almost touching the floor, she said she was going to make me feel special.
 
-Today, on the day of my dinner date, she took me shopping, I got a lovely black, cleavage showing, a push up bra, stilettos, and accessories. To be fair, I did look pretty hot in the dressing room.
+Today, on the day of my dinner date, she took me shopping, I got a lovely black, cleavage showing dress. Also, a push up bra, stilettos, and accessories. To be fair, I did look pretty hot in the dressing room.
 
 She’d had a very good promotion recently, she said.
 
@@ -100,7 +100,7 @@ Next was a proper photo studio and photographer. I was told how to pose for the 
 
 *Flash flash flash flash flash*
 
-One of the stylists let me know that Anna had agreed to do the sister shoots at another time and that she’d send the . My phone buzzed with a text from her saying pretty much the same. As I read it, I noticed the time. It was date time.
+One of the stylists let me know that Anna had agreed to do the sister shoots at another time and that she’d send the pictures later. My phone buzzed with a text from her saying pretty much the same. As I read it, I noticed the time. It was date time.
 
 Doing a little weird dance to myself in my head, I strutted out into the warm summer evening, not too hot or too cold, the wind was a gentle breeze, which worked well to blow my hair in that sexy slow-motion way.
 
@@ -270,8 +270,6 @@ Sat there, alone, was my food.
 
 That was yesterday.
 
-I have to keep repeating, **The salon, Pete, and Anna don’t exist.**
-
 Telling someone, even if you don’t believe me, does make me feel a little better.
 
 I’m back to how I was before. Rarely going outside. I make sure they leave it at the door now. Using a different service.
@@ -297,6 +295,36 @@ I’m not sure what, but... drastic. I don’t just mean deleting this account.
 I’m here to answer questions. It is the 15th of March 2023 as I write this, I’ll schedule the post for in a few days' time, just so I might be more "together" to answer questions.
 
 I'm not really sure how much information or help I can give.
+
+I have to keep repeating, **The salon, Pete, and Anna don’t exist.**
+
+The problem with that is….when I ‘woke up”…
+
+I noticed, I was holding something…
+
+It read “Happier times make great memories!” 
+
+I turned it over and…
+there was a photo…
+
+It….it was…
+Pete & “Erin” ‘s wedding.
+
+I…
+
+It was Pete, in his tuxedo, my body in a white dress….and Anna…
+
+Fucking. ANNA. In between the two of us. All of us smiling. 
+
+Pretty as a picture indeed.
+
+
+IN MY FUCKING HAND.
+
+
+You better believe I fucking shat myself, stood in shock and confusion for a second before I grabbed some matches. I burnt the fucking thing as quickly and intensely as I could, until it was ash.
+
+Then I swept up the ash and chucked that BASTARD into the FUCKING SEA from a cliff.
 
 My name is Erin Fletcher. Erin Fletcher. Fletcher, not Davis. Fletcher.
 
