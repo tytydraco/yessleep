@@ -93,3 +93,5 @@ We quickly prepared ourselves at the bottom of the Watch Tower and I decided to 
 This is my first post. I will probably do a couple more before this phone runs out of battery.
 
 P.S. Can anyone tell me how Travis is doing?
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11wx1kt/i_am_best_friends_with_travis_marcella/)!!!

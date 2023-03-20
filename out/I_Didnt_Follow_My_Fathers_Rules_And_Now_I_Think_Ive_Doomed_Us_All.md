@@ -1,18 +1,18 @@
 Hello again.....I'm still here. Travis Marcella is ok, for now I guess...
 
-A lot Has Happened, So if your unaware of my situation, go here: 
+A lot Has Happened, So if your unaware of my situation, go here:
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/), [Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/), [Part 4](https://www.reddit.com/r/nosleep/comments/11p1o9e/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 5](https://www.reddit.com/r/nosleep/comments/11qhrhp/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 6](https://www.reddit.com/r/nosleep/comments/11sahoe/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 7](https://www.reddit.com/r/nosleep/comments/11u3060/i_didnt_follow_my_fathers_rules_and_now_im_being/).
 
 Darius Also Has Been Posting. If You Want To See His Perspective, go here:
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/11tfybd/i_am_best_friends_with_travis_marcella_one_of_his/).
+[Part 1](https://www.reddit.com/r/nosleep/comments/11tfybd/i_am_best_friends_with_travis_marcella_one_of_his/),[Part 2](https://www.reddit.com/r/nosleep/comments/11wx1kt/i_am_best_friends_with_travis_marcella/).
 
 &#x200B;
 
-Like, I promised, I'm keeping in touch. Me, Martin, Tracy and Jayden were walking through the forest. Martin found some abandoned Shack using his map that we could use to safely figure out a plan. Unbeknownst to me, They were armed to the teeth under their protective armour. 
+Like, I promised, I'm keeping in touch. Me, Martin, Tracy and Jayden were walking through the forest. Martin found some abandoned Shack using his map that we could use to safely figure out a plan. Unbeknownst to me, They were armed to the teeth under their protective armour.
 
-They had grenades, Flash bangs, Rifles, Shotguns, Pistols and a bunch more stuff that seemed like they were not accessible to the public. 
+They had grenades, Flash bangs, Rifles, Shotguns, Pistols and a bunch more stuff that seemed like they were not accessible to the public.
 
 We reached this abandoned Shack and we barely had enough room to sit down in the decaying wooden chairs.
 
@@ -50,7 +50,7 @@ I went to speak but Darius cut everyone off with his loud voice.
 
 "What is it doing at Yellowstone volcano"?! Martin asked.
 
-I remembered Kyle being dragged off with the Pilgrim, along with the pilgrim attacking the teenagers and dragging them away. 
+I remembered Kyle being dragged off with the Pilgrim, along with the pilgrim attacking the teenagers and dragging them away.
 
 "What if it's doing some kind of ritual"? I asked.
 
@@ -72,7 +72,7 @@ We were halfway from Yellowstone Volcano when we were interrupted by a group of 
 
 "Shit". Martin said.
 
-Bryson took out his gun and fired at the wendigo but they were able to hide behind the nearby trees. I took out Bryson's Desert Eagle and fired a shot into a wendigo's skull, sending it crashing to the ground as it pierced the bony exterior. Darius quickly was swarmed by two other wendigo's and was taking serious damage. We couldn't do anything since we would risk hurting Darius so I grabbed one of the wendigo by it's antlers and pushed it off Darius with immense effort. 
+Bryson took out his gun and fired at the wendigo but they were able to hide behind the nearby trees. I took out Bryson's Desert Eagle and fired a shot into a wendigo's skull, sending it crashing to the ground as it pierced the bony exterior. Darius quickly was swarmed by two other wendigo's and was taking serious damage. We couldn't do anything since we would risk hurting Darius so I grabbed one of the wendigo by it's antlers and pushed it off Darius with immense effort.
 
 It lunged at me but Jayden came to the rescue and shot the wendigo several times in its head.  Darius was able to finish off the last wendigo by slamming it into the ground, crushing its bones. The rest of the wendigo ran off into the distance.
 
@@ -100,15 +100,15 @@ The soldiers took aim and shot the pilgrim with the plasma rifles. As the plasma
 
 I watched as Martin, Jayden and Bryson shot at the lava tendrils. Tracy was missing though. I looked around and saw her taking photos of the pilgrim nearby. I saw the tendrils creeping up towards her and yelled out to warn her but it was too late. She screamed as she was dragged into the Caldera and disintegrated by the lava tendrils.
 
-Suddenly, A large gust of black smoke erupted from Yellowstone Volcano. We all watched in horror as the tendrils surrounded the pilgrim and started growing. The pilgrim now was atleast 20 feet tall. It had 10 large tendrils made of lava. It was elevated 50 feet above the ground and a large grin was on the pilgrims face.  We had failed to stop it. I looked into the Caldera and to my horror, I saw the teenagers, Kyle, Daniel, Tracy and a bunch of other people. 
+Suddenly, A large gust of black smoke erupted from Yellowstone Volcano. We all watched in horror as the tendrils surrounded the pilgrim and started growing. The pilgrim now was atleast 20 feet tall. It had 10 large tendrils made of lava. It was elevated 50 feet above the ground and a large grin was on the pilgrims face.  We had failed to stop it. I looked into the Caldera and to my horror, I saw the teenagers, Kyle, Daniel, Tracy and a bunch of other people.
 
-Suddenly a tendril slammed into the ground nearby, blasting all of us with an intense heat. 
+Suddenly a tendril slammed into the ground nearby, blasting all of us with an intense heat.
 
 "FALL BACK"! Martin yelled and led us back through the forest.
 
 I saw some helicopters in the distance. My emergency alert reached the facility but would the reinforcements be able to stop this...Monstrosity? I somehow doubted it.
 
-We reached the motel and we are currently thinking of a new plan. A helicopter just landed nearby. Hopefully the people inside have an idea because at this point. It seems Yellowstone National Park is done for. I feel as if this is my fault. If I didn't fight with Bryson, If I confronted the pilgrim sooner instead of running away like a coward. 
+We reached the motel and we are currently thinking of a new plan. A helicopter just landed nearby. Hopefully the people inside have an idea because at this point. It seems Yellowstone National Park is done for. I feel as if this is my fault. If I didn't fight with Bryson, If I confronted the pilgrim sooner instead of running away like a coward.
 
 As I type out this post with the phone I stole, I can hear the battle raging outside. Many were going to die because of my mistakes. Maybe I should have just chosen to be in an orphanage, then this would have never happened.
 
