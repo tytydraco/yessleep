@@ -48,7 +48,7 @@ The voice overhead rang out again through the store.
 
 **“Do not stay out in the open. Do not make yourself visible. That includes security cameras—please move to a spot that is not visible to any cameras.”**
 
-I looked up at the ceiling, frowning. “What does that have to do with tornadoes?”
+I frowned. “What does that have to do with tornadoes?”
 
 A feeling of unease, in the pit of my stomach. I glanced up, and saw several black globes descending from the ceiling, hiding the cameras within.
 
