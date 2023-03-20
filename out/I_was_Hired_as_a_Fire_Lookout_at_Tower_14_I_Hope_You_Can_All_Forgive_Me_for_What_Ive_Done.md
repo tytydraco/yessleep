@@ -1,4 +1,4 @@
-I stumbled out from the cave, terrified.  My legs didn't seem to work properly.  Everything around me was wrong, the colors, the shadows, the shapes of the trees and the sounds of the singing birds sitting on their branches.  
+I stumbled out from the cave, [terrified.](https://www.reddit.com/r/nosleep/comments/11s0qai/i_was_hired_as_a_fire_lookout_the_archway_in_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)  My legs didn't seem to work properly.  Everything around me was wrong, the colors, the shadows, the shapes of the trees and the sounds of the singing birds sitting on their branches.  
 
 This world was not my own.  And I needed to get out.  
 
