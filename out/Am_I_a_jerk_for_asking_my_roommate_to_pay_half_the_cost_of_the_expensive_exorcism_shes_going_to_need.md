@@ -181,3 +181,5 @@ With the drawing gone, you’d think I’d be able to calm myself down, but…
 Oh, but come on. You’re smart. You can guess as much as I can. I probably could have pinned that picture up on the wall, couldn’t I? I could’ve copied it and pasted a thousand of it all over the house. I could draw Boo Boy myself, in pen and ink or permanent marker or if I wanted to be particularly gothic and authentic about it, in my own blood, with bits of my hair pasted on for good measure. Heck I could make an entirely new Boo Boy, Boo Boy 2.0, and this time give him teeth so he could be 500% more terrifying. It totally wouldn’t matter. None of it would matter, because the *thing* doesn’t need Boo Boy anymore. It’s already attached itself to its new puppet.
 
 Karen is the new [doll in the hall.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[FINAL UPDATE](https://www.reddit.com/r/nosleep/comments/11w4y2f/am_i_a_jerk_for_torching_my_roommates_house_with/)
