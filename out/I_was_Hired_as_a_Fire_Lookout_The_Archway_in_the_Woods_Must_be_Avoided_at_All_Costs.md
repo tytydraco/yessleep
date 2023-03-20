@@ -237,7 +237,7 @@ He took another large bite of whatever it was he’d found scurrying in the cave
 
 His eyes were golden and reflective when they caught me staring at him in the darkness.  
 
-And as I got to my feet I began to [run.](https://youtu.be/5V3obVKO4xA)  
+And as I got to my feet I began to [run.](https://youtu.be/8w2c6JGPHAc)  
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 

@@ -292,7 +292,7 @@ It scares me to think about what I’m becoming, and part of me will always be t
 
 But another part of me is getting used to it. 
 
-A primordial, alien part of me, is starting to very much enjoy the [HUNT.](https://youtu.be/5V3obVKO4xA)  
+A primordial, alien part of me, is starting to very much enjoy the [HUNT.](https://youtu.be/8w2c6JGPHAc)  
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 

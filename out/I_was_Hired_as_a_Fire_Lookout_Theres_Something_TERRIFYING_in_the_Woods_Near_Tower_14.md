@@ -216,9 +216,9 @@ I didn’t have time to ask questions.  I didn’t have time to think about the 
 
 All I could do was run, and soon the sounds of more racing footsteps joined the first creature.  There were several of them, and they were all hungry.  Moving in a pack like humanoid wolves.
 
-I only hoped this man knew where he was going.  And that he had a plan to [survive.](https://www.reddit.com/r/nosleep/comments/11s0qai/i_was_hired_as_a_fire_lookout_the_archway_in_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+I only hoped this man knew where he was going.  And that he had a plan to [survive.](https://youtu.be/8w2c6JGPHAc)
 
-[YT](https://youtu.be/5V3obVKO4xA)  
+[Part 2](https://www.reddit.com/r/nosleep/comments/11s0qai/i_was_hired_as_a_fire_lookout_the_archway_in_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)  
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
