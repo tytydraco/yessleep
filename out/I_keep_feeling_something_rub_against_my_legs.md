@@ -1,4 +1,3 @@
-(Author comment- Tips encouraged, first story I've posted in a while!)
 
 March 15th 2022
 

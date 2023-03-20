@@ -1,4 +1,6 @@
-As you all know, during the height of the pandemic, flights were very scarce, which was precisely why I needed to book a red-eye flight for an important meeting I had the next day.
+As you all know, during the height of the pandemic, flights were very scarce.
+
+This was precisely why I needed to book a red-eye flight for an important meeting I had the next day.
 
 While frantically searching the internet for a flight, I came across this travel agency that I had never heard of before...
 
@@ -8,13 +10,13 @@ I thought for sure, this was a scam or something but that wasn't the case.
 
 It was far worse as you'll later learn...
 
-Anyway, for those of you who are wondering, I won't divulge the name of the travel agency for safety reasons.
+Anyway, for those of you who are wondering about the name of the travel agency, well, I won't divulge the name for safety reasons.
 
 Now, where was I? 
 
 Oh, as I stated before it was far worse than some scam.
 
-See, every person I talked to had never heard of this travel agency.
+See, every person I talked to never heard of this particular travel agency.
 
 On top of that, there were no comments or even ratings online.
 

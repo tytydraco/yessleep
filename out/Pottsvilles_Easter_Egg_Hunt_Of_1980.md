@@ -8,9 +8,9 @@ Like the other kids my age, I was excited about the upcoming Easter Egg Hunt.
 
 That year, I was determined to collect the most eggs and beat Susie Jenkins' previous record.
 
-Anyway, Pottsville was a small town with a population of 10,000. 
+Anyway, Pottsville is a small town with a population of about 10,000. 
 
-It's your typical midwestern town much like Mayberry, where everybody knew each other and had just enough amenities to get by.
+It's your typical midwestern town much like Mayberry, where everybody knows each other and has just enough amenities to get by.
 
 For about a hundred years or so, Pottsville had been holding its annual Easter Egg Hunt which was often followed by the community potluck.
 
