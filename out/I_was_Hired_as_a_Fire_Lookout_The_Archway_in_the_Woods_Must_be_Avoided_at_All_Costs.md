@@ -244,3 +244,7 @@ And as I got to my feet I began to [run.](https://youtu.be/5V3obVKO4xA)
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/11qdr8t/i_was_hired_as_a_fire_lookout_theres_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11s0qai/i_was_hired_as_a_fire_lookout_the_archway_in_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/11wq9oj/i_was_hired_as_a_fire_lookout_at_tower_14_i_hope/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
