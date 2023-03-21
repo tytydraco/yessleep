@@ -100,11 +100,7 @@ The people in the comments were freaked out. Many of them mentioned the chills t
 "I can't imagine standing there. Thinking you'll live, then just seeing that and KNOWING with great certainty you're about to die. Chilling. This is probably the most up close video I've found of this."
 
 
-"I know more videos will surface, especially because the attacks are still going on right now, but this video will be something that always sticks with me"
-
-(I pressed the link and it took me to a YouTube video showing a livestreamer in an office. She tells her viewers she's in the Empire State Building. She aims her camera out the window towards Central Park.
-
-"It's 1 PM right now and…" A giant pops up in the middle of Central Park. I jumped while watching it. Chills ran straight down my spine. "What the hell is that?" The giant walked south, smashing through the buildings along Park Lane. It knocked down the world's skinniest skyscraper, then it smashed its way through some more buildings, including the Museum of Modern Art.
+- "I know more videos will surface, especially because the attacks are still going on right now, but this video will be something that always sticks with me" (I pressed the link and it took me to a YouTube video showing a livestreamer in an office. She tells her viewers she's in the Empire State Building. She aims her camera out the window towards Central Park. "It's 1 PM right now and…" A giant pops up in the middle of Central Park. I jumped while watching it. Chills ran straight down my spine. "What the hell is that?" The giant walked south, smashing through the buildings along Park Lane. It knocked down the world's skinniest skyscraper, then it smashed its way through some more buildings, including the Museum of Modern Art. 
 
 
 "Oh my god," the streamer says with a shaky weak voice.
@@ -123,16 +119,16 @@ Edit: here" (I opened this link and it took me to a YouTube video showing three 
 Further down the thread was something even more terrifying but interesting.
 
 
-I wonder why we haven't seen any videos of creatures attacking people
+"I wonder why we haven't seen any videos of the aftermath of the creature dumps."
 
 
-Those videos are probably very NSFW. They likely haven't made it past content filters.
+- "Those videos are probably very NSFW. They likely haven't made it past content filters."
 
 
-Some pictures were posted to MorbidReality and somebody found a video of a creature attacking somebody's back and legs. If you can't take that kind of stuff do not look at it. It's very gruesome.
+"Some pictures were posted to MorbidReality and somebody found a video of a creature attacking somebody's back and legs. If you can't take that kind of stuff do not look at it. It's very gruesome."
 
 
-There's some on Archive.org, along with many other videos I haven't seen anywhere else. Here's a link to an archive somebody is making.
+- "There's some on Archive.org, along with many other videos I haven't seen anywhere else. Here's a link to an archive somebody is making."
 
 
 I opened the link. I was taken to the page with the archive. The first video was titled Footage From Upper Canada Mall. It began on the roof of the mall. All that was heard were sirens and the sounds of helicopters. The camera operator aimed up at two giants being circled by two military helicopters. The giants appeared to be holding people. The giant on the right was holding two people who I can only describe as looking like a man and a woman, while the giant on the left was holding a woman. The giant on the right tossed the woman. She glided through the air. She hit the roof of the mall with a loud bang and turned into a red mist. I gagged and twitched. The camera operator kept the camera still. He had to have been in shock. He panned to the left a bit and caught the man landing on the roof of the mall with a loud thud while also turning into a red mist. I gagged again. What the hell? The camera was aimed up at the giant on the left, who was getting ready to throw the person it was holding. It tossed them towards the roof of the mall. They too landed with a loud bang while turning into a red mist.
@@ -369,7 +365,7 @@ I froze. They really did have this planned out, didn't they…
 I stared up at the blue morning sky, strangled by dread. I realized I had cold sweats all over me. I pulled out my phone and Googled some more Reddit threads. 20 minutes into reading comments, the news channel on the radio switched to a Pop music station. At first, I assumed alternate me changed the station, but when I went back to the Giant Attacks search results, they had all changed to results about some unrelated game.
 
 
-My hopes went up. Could it be? A slip? I was ready to believe it, even if it was mostly to ease my anxiety. I went to CNN's website. To my relief, the headlines were about… normal topics. [Top news headlines on the day I post this story]
+My hopes went up. Could it be? A slip? I was ready to believe it, even if it was mostly to ease my anxiety. I went to CNN's website. To my relief, the headlines were about job layoffs.
 
 
 I don't know how long I'll be back in our reality. If I even am back here… I guess you will know if you see this update.
