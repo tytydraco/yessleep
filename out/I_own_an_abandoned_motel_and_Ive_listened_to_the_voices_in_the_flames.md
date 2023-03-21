@@ -142,4 +142,6 @@ René lunged towards Jake and for a moment I thought he had him, but just as it 
 
 Jake was gone.
 
-[x](https://www.reddit.com/r/Wine_Dark_Sea_1239/) 
+[x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 14\]](https://www.reddit.com/r/nosleep/comments/11xl60w/i_own_an_abandoned_motel_and_im_ready_to_meet_my/)
