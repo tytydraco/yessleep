@@ -31,7 +31,7 @@ March 29th 2022
 
 It's still watching me. I know it is \[REDACTED\]. It sees me but I can't see it. It's been talking to me, it says it wants to hurt me. I know it will. Save me \[REDACTED\] You can get me out of here the doctors, they don't believe me anymore. They won't let me leave my room because I'll have ‘Psychotic breaks’ if I do, I won't I promise. Please just let me out \[REDACTED\] I promise I won't hurt them again. - \[REDACTED\] / author.
 
-March 32nd 2022
+March 31st 2022
 
 Hello. I have been the one putting \[REDACTED\]’s letters online, as requested. They also requested that I change any and all names to redacted, however, I don’t understand why. The only two names were mine and her. Yesterday, late at night, \[REDACTED\] passed away to so far, unknown causes. The police think it's murder, but I believe what she said. I think it got to her. Of course, I cannot tell the police, they’d put me in there as they did her. I’ll let you all believe what you want from her notes, whether or not you think it's fake, but I believe her. She didn’t lie very often, and never about something so extreme. If it was fake \[REDACTED\] would have never let it get this far.
 
