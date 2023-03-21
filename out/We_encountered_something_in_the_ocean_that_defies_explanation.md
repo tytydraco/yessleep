@@ -18,7 +18,7 @@ Before he could say anything, Josie ran up from behind him and said “Hi boys! 
 
 “Sure thing, dad!” That was Josie’s way of saying *yes, yes, yes, I get it already.*
 
-Josie’s dad gave us a stern look followed by a slight nod as he walked past us. He never really liked me or Frankie, *a bunch of hooligans*, as he’d once called us when we were kids. For the record, me and Frankie didn’t like the guy either, so at least the feeling was mutual.
+Josie’s dad gave us a stern look followed by a slight nod as he walked past us. He never really liked me or Franki, *a bunch of hooligans*, as he’d once called us when we were kids. For the record, me and Franki didn’t like the guy either, so at least the feeling was mutual.
 
 After her dad was out of earshot, Josie yelled “Are you ready kids?!” putting on her damndest pirate voice.
 
@@ -56,7 +56,7 @@ Afterwards we had a little siesta where I almost fell asleep until Josie said �
 
 Through a straw hat laid across his face, Frank mumbled “Aye aye.” 
 
-“You sure you don’t need any help?” I asked Josie one again, but she was already jumping into the helm, excited to get back at it. “You guys just take a chill, I’ll get us where we need to.”
+“You sure you don’t need any help?” I asked Josie once again, but she was already jumping into the helm, excited to get back at it. “You guys just take a chill, I’ll get us where we need to.”
 
 As the motor’s soothing hum returned, I got myself a bag of chips and sat on the deck, watching the horizon. Frank still had the hat on his face, which either meant that he didn’t want to be bothered, or that he’d fallen asleep. Either way, I was happy to just sit under the sun as the boat slowly rolled towards our destination, cutting a line into the flaccid water behind us.
 
