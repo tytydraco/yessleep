@@ -34,4 +34,4 @@ I don't know who or what made that burrow, but I think it's taking people at Rai
 
 I wish that was the end of the story. But it's not. 
 
-This afternoon, I saw something glinting from within the air vent on the floor of my kitchen. I thought maybe my cat had stuck another toy in it. I took the grating off the vent to take the toy out. Instead of a cat toy, I found a polaroid photo, taken low to the ground, of me making breakfast this morning.
+This afternoon, I saw something glinting from within the air vent on the floor of my kitchen. I thought maybe my cat had stuck another toy in it. I took the grating off the vent to take the toy out. Instead of a cat toy, I found a polaroid photo, taken low to the ground, of me making breakfast this [morning](https://www.reddit.com/r/ByAbraxas/).
