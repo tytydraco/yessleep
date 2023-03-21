@@ -10,11 +10,11 @@ When my screams subsided, malevolent laughter filled the uneasy silence. Discord
 
 I felt the rage rise within me, but I was utterly helpless. I knew they had the information we needed, but even if they were willing to speak, they could not be trusted.
 
-Suddenly, their faces changed. Their dead white eyes widened in terror; their smiles had melted. Mina shrieked, a cacophonous cry that sent my hands to my ears. 
+Suddenly, their faces changed. Their dead white eyes widened in terror; their smiles had melted. Mina shrieked, a cacophonous cry that sent my hands to my ears.
 
 It was René. Their eyes were fixed on him. His very presence caused them to tremble in fear.
 
-“What is *he* doing here?” Margery hissed. 
+“What is *he* doing here?” Margery hissed.
 
 “Come back to hurt us again, he has!” Mina shrieked.
 
@@ -42,7 +42,7 @@ René raised his eyebrows, but did not protest.
 
 The sisters looked at each other and began to nod eagerly.
 
-“The girl says she will listen!” They whispered excitedly. I felt a pang of pity. 
+“The girl says she will listen!” They whispered excitedly. I felt a pang of pity.
 
 “Do you agree?”
 
@@ -56,9 +56,9 @@ I stepped inside with René close behind me. The sisters glared at him.
 
 The sisters gestured to the chairs at the table. René and I sat, but I kept my arms tightly crossed. The sisters closed their eyes and moved from side to side rhythmically, putting themselves into a trance. They moaned and their mouths opened, emitting a thick, ectoplasmic mist.
 
-“Gross,” I whispered to René, who smirked in response. 
+“Gross,” I whispered to René, who smirked in response.
 
-The mist enveloped us and our ramshackle surroundings, along with the sisters, vanished. In their place appeared a mid-19th century parlor: a finely carved mantle draped in black crepe, the ornamental mirror on top covered with black cloth. It was night, the heavy damask curtains were drawn, elegant oil lamps were lit on a large oak table, also draped in black. The sisters sat at the table, very much alive, dressed in ostentatious displays of mourning, their wide skirts spread across the chairs they sat in, jet bracelets clattering at their wrists. Human hands wreathed by delicate lace grabbed those of an older man who trembled with emotion. 
+The mist enveloped us and our ramshackle surroundings, along with the sisters, vanished. In their place appeared a mid-19th century parlor: a finely carved mantle draped in black crepe, the ornamental mirror on top covered with black cloth. It was night, the heavy damask curtains were drawn, elegant oil lamps were lit on a large oak table, also draped in black. The sisters sat at the table, very much alive, dressed in ostentatious displays of mourning, their wide skirts spread across the chairs they sat in, jet bracelets clattering at their wrists. Human hands wreathed by delicate lace grabbed those of an older man who trembled with emotion.
 
 A small audience observed the séance, dressed for an evening’s entertainment. There was one man in particular, whose clothing was undoubtedly the finest, with a dazzling silver jacquard waistcoat. Though he wore a pair of blue tinted spectacles, I immediately recognized him as René. His brown hair was longer, combed away from his face and curling just under his ears. He was smiling, that same strange smile I had seen before.
 
@@ -82,9 +82,9 @@ When the audience had shuffled out, René lingered. Margaretta gave him an unctu
 
 René smiled and put on his top hat, taking his leave.
 
-The next night, the sisters eagerly awaited their guest. René arrived with a veiled woman on his arm, wearing lace gloves, matching the sisters in a black silk gown. Mina looked slightly disappointed to see the woman, but the other sisters grinned at her obvious finery, expecting a hefty sum for their services. 
+The next night, the sisters eagerly awaited their guest. René arrived with a veiled woman on his arm, wearing lace gloves, matching the sisters in a black silk gown. Mina looked slightly disappointed to see the woman, but the other sisters grinned at her obvious finery, expecting a hefty sum for their services.
 
-“Ladies, I hope you do not mind I have brought my wife,” he said, almost unable to hide the sinister grin that crept across his face. 
+“Ladies, I hope you do not mind I have brought my wife,” he said, almost unable to hide the sinister grin that crept across his face.
 
 “Of course, of course, welcome, madam!”
 
@@ -92,9 +92,9 @@ The veiled woman made no response. René escorted her to the table and they join
 
 “The spirits are many in the ether tonight,” Margery moaned. “To whom do you wish to speak?”
 
-“I wish to contact the spirit of our deceased child.” René said, watching the sisters carefully. 
+“I wish to contact the spirit of our deceased child.” René said, watching the sisters carefully.
 
-“Ah yes, it is a child who has appeared before me now, a beautiful child!” Margaretta cried. “Child, rap twice for yes, or once for no. Are these your beloved parents before you?” 
+“Ah yes, it is a child who has appeared before me now, a beautiful child!” Margaretta cried. “Child, rap twice for yes, or once for no. Are these your beloved parents before you?”
 
 Two distinct raps were heard on the table. Mina made an exaggerated gasp.
 
@@ -110,7 +110,7 @@ Mina began to speak in that same squeaking voice as the previous evening. René 
 
 “Ask them how much money they’ve bled from the grieving, how they’ve bankrupted their victims in the name of their lost loved ones!” René said, enraged, fangs bared. “Let me finish with them!”
 
-The witch sighed. “Forgive my friend with his tedious sense of justice. Would you *really* do anything? Bind yourselves to me for all time?” 
+The witch sighed. “Forgive my friend with his tedious sense of justice. Would you *really* do anything? Bind yourselves to me for all time?”
 
 “Yes! Yes!” Margery and Margaretta cried.
 
@@ -126,7 +126,7 @@ They chittered angrily and turned their ghoulish heads to me.
 
 “Girl! Have you nothing to say of the crimes of your beau?”
 
-What I had seen had certainly shocked me, but it was something I could not bear to process at the moment. 
+What I had seen had certainly shocked me, but it was something I could not bear to process at the moment.
 
 “He’s right. Show us where they took Jake.”
 
@@ -134,7 +134,7 @@ What I had seen had certainly shocked me, but it was something I could not bear 
 
 The sisters grumbled among themselves, but once again broke into a trance. A vision appeared before us. It was the river, a great gray mist hanging over it. A large, shadowy structure pushed its way through, revealing the towers of an elaborate stone castle. The castle was familiar to me. Around here, we call it Bellevue Castle, an abandoned Gilded Age flight of fancy on a private island that is now our most famous tourist site. During the winter months, it is closed to guests, leaving the island abandoned.  The vision dissolved into smoke.
 
-René stood up to leave. 
+René stood up to leave.
 
 “You’ll never reach him before dawn,” hissed Margery.
 
@@ -158,9 +158,9 @@ He ignored them. I followed him out, feeling their hateful stares at my back, le
 
 “I won’t let it happen,” he said. “I swear to you.”
 
-“I don’t think that’s something you can promise, René.” 
+“I don’t think that’s something you can promise, René.”
 
-I pulled my hands back from his. It was hard to look at him, when Mina’s face flashed before me, eyes filled with terror just before he buried his fangs into her neck. 
+I pulled my hands back from his. It was hard to look at him, when Mina’s face flashed before me, eyes filled with terror just before he buried his fangs into her neck.
 
 “I realize that you have not seen me feed before,” he said quietly.
 
@@ -186,7 +186,7 @@ I was desperate for the warmth of the shower. The cold within me was not merely 
 
 I tried to imagine death. I tried to imagine not existing. Of course, I could not. Who can? I had to hope that there would be peace, that the spirits were not lying to comfort me. After all, I had already witnessed the existence of far more unlikely things.
 
-The sound of the water soothed me. I stepped inside, relishing those first few drops, immersing my body, emptying my mind. The future didn’t matter. At that moment, I was alive and that was glorious. 
+The sound of the water soothed me. I stepped inside, relishing those first few drops, immersing my body, emptying my mind. The future didn’t matter. At that moment, I was alive and that was glorious.
 
 I don’t know how long I had been standing there, when the water began to feel different. Thicker. Metallic tasting. I opened my eyes to find myself covered in blood, it was pouring out of the shower head. My skin began to burn, my hair falling out in clumps, my teeth loosening and I spat them out. I screamed.
 
@@ -202,7 +202,7 @@ René woke me up at sunset. Despite everything, I actually felt well-rested and 
 
 We set sail in silence, the boat’s movements for once not triggering nausea. It was desperately cold on the water, despite the promise of spring in the near future. The cold struck through my gloves and burned my face. René was clearly not bothered by the climate; his coat wasn’t even zipped. He stared ahead with his brows furrowed, scanning all around us for ice and other enemies.
 
-I thought of the summer and of the river crowded with life, with people laughing, speeding past each other on their boats, picnicking under the turrets of our destination, Bellevue Castle.  
+I thought of the summer and of the river crowded with life, with people laughing, speeding past each other on their boats, picnicking under the turrets of our destination, Bellevue Castle.
 
 “Do you know the story of Bellevue Castle, René?” I asked.
 
@@ -218,14 +218,16 @@ I laughed.
 
 It was good to smile with him, even if just for a moment.
 
-As we neared the castle, a mist descended around us, just as in the vision of the sisters. The air felt heavy and old, as though rife with mildew and rot, difficult to inhale. The visibility severely decreased, but René was able to continue to navigate towards our destination, its hulking shadows barely detectible even by his eyes. 
+As we neared the castle, a mist descended around us, just as in the vision of the sisters. The air felt heavy and old, as though rife with mildew and rot, difficult to inhale. The visibility severely decreased, but René was able to continue to navigate towards our destination, its hulking shadows barely detectible even by his eyes.
 
-Our boat was hit by a wave, as though from the wake of a boat. René and I looked at each other, thinking the same thing: there was absolutely no one else on the river. A great creaking sound echoed all around us, the groaning of wood and metal. A veritable flotilla of ships and boats broke the surface all around us, arising from the depths glowing a ghostly green. There were wrecked wooden speed boats, steel-hulled freighters from the turn of the century, coal steamers, massive three-masted schooners, and frigates built for the wars of two hundred years ago. 
+Our boat was hit by a wave, as though from the wake of a boat. René and I looked at each other, thinking the same thing: there was absolutely no one else on the river. A great creaking sound echoed all around us, the groaning of wood and metal. A veritable flotilla of ships and boats broke the surface all around us, arising from the depths glowing a ghostly green. There were wrecked wooden speed boats, steel-hulled freighters from the turn of the century, coal steamers, massive three-masted schooners, and frigates built for the wars of two hundred years ago.
 
-No crew piloted these vessels, which groaned and sighed with the sadness of their years at the bottom.  Something was weaving its way through the wrecks, howling through the air with the screeching of a cyclone. René leaned forward, craning his neck to spot it, when a rotting hand shot out of the water and grabbed his shoulder. He pulled it off, but another joined the attack, and another, until a great host of drowned, rotting corpses were pulling at him, threatening to board the boat. 
+No crew piloted these vessels, which groaned and sighed with the sadness of their years at the bottom.  Something was weaving its way through the wrecks, howling through the air with the screeching of a cyclone. René leaned forward, craning his neck to spot it, when a rotting hand shot out of the water and grabbed his shoulder. He pulled it off, but another joined the attack, and another, until a great host of drowned, rotting corpses were pulling at him, threatening to board the boat.
 
-I grabbed a paddle and whacked at them, but there were too many.  They were pulling him overboard, despite our best efforts. I clutched his arm and with all my strength tried to drag him back in. The cacophony was approaching, my hair whipped around my face as the freezing winds accelerated. Something caught my boot and my grip on René’s hand slipped away. I was hurtled into the swirling air. I saw below me René’s struggling body dipping below the surface of the river, drowned dead glaring up at me lifelessly.  
+I grabbed a paddle and whacked at them, but there were too many.  They were pulling him overboard, despite our best efforts. I clutched his arm and with all my strength tried to drag him back in. The cacophony was approaching, my hair whipped around my face as the freezing winds accelerated. Something caught my boot and my grip on René’s hand slipped away. I was hurtled into the swirling air. I saw below me René’s struggling body dipping below the surface of the river, drowned dead glaring up at me lifelessly.
 
-The whirlwind hummed with the cries of miserable souls.  I was suspended among them, falling upwards and upwards until I could breathe no more. 
+The whirlwind hummed with the cries of miserable souls.  I was suspended among them, falling upwards and upwards until I could breathe no more.
+
+Thus began my final encounter with the witch.
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)

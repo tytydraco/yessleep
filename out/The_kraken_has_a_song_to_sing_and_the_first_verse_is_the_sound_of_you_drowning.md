@@ -9,6 +9,7 @@ When I turned just about 23, I got a job as a diver. My task was to explore the 
 “Are you ready for your next mission?”  
 
 Those were the words of my boss informing me of my task. I needed to explore the area around an area called the “Challenger Deep,” which is located at the southern end of the Mariana Trench. It's pretty deep, and water pressure can be difficult to deal with, but despite my boss insisting that I get a submarine to help with my safety, I promised him that I’d come back in one piece, and even if I die, my research could help a new generation of sea exploration, which he finally agreed and let me go.  
+
 I was sitting on the boat taking me there, and I was slowly approaching the destination. The boat driver slowed down the boat as we were directly above the Challenger Deep. “Just note, I was ordered that once you leave the boat, you aren’t allowed back on until at least an hour. No turning back, are you sure you’re ready?”  
 
 I nodded my head. And after putting on my diver gear so I can see, and attaching a camera (which was waterproof, which should be obvious) to me so I can record my findings, I plunged into the water, and started swimming down.  
