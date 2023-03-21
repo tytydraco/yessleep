@@ -57,3 +57,5 @@ Hah, stupid human, you have no idea how much pain and suffering I put her throug
 ——————————————————————-
 
 The computer suddenly powered off without any hint of what was wrong this time, I just barely had time to copy all that over to here, I feel like there is way more to be found here, I’ll report back when I got the machine running again.
+
+[read next part here](https://www.reddit.com/r/nosleep/comments/11xeuuk/i_found_something_a_name_tag_part_2/)
