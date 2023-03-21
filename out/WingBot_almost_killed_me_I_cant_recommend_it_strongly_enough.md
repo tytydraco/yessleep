@@ -207,3 +207,5 @@ The relief of not having to decide anymore.
 *Me: Yes.*
 
 *JoeTheBro: Good. Because believe me, I’ve got big plans for us. Now let me tell you* [what I’m thinking next…](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/scarymaxx/comments/11xobbk/i_let_wingbot_plan_my_wedding_it_was_beautiful/)
