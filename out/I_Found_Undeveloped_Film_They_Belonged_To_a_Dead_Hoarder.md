@@ -1,4 +1,6 @@
- A year ago, I took a black & white photography class as an elective. In this class we used old cameras to shoot black and white photos, then developed the film with water and chemicals in a special room called the dark room. 
+ Part 1
+
+A year ago, I took a black & white photography class as an elective. In this class we used old cameras to shoot black and white photos, then developed the film with water and chemicals in a special room called the dark room. 
 
 It was actually a pretty cool class. I felt like I did decent. 
 

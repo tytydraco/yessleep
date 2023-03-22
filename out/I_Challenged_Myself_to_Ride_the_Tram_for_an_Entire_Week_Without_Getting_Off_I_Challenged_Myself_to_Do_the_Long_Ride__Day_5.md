@@ -306,6 +306,12 @@ Well, nothing I can do about it now. So instead, I typed out my experiences of d
 
 That’s it for now. See you all tomorrow. [At least, I hope so.](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2FRehnWriter)
 
+&#x200B;
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/11y27ra/i_challenged_myself_to_ride_the_tram_for_an/)
+
+&#x200B;
+
 [YT](https://www.youtube.com/channel/UCXKQbQnB1k_FTnTMyNudIFA/)
 
 [WS](https://rehnwriter.com/)

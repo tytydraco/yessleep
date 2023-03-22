@@ -1,0 +1,15 @@
+As I sit here reading the garbage that reddit provides as reading entertainment I'm subreddits like nosleep and drinking myself into a stupor, I can't help but notice the types of loneliness that occur in every bar in America. 
+
+There's the group of retirees, doing their at least monthly connection where the women all talk about the gossip and shopping deals they've seen since the last connect while Agnes finishes the same drink she's had since they got here 2 hours ago. The husbands waiting under the TV making small talk about who is left in March Madness and how their picks were all knocked out in the first round and one lying about how he picked Duke all the way through. The loneliness being people who force their spouses to get along. And never realizing the connection that brought them together has been gone for years. 
+
+The group of four girls out to celebrate a birthday. All of them in a competition to attract the most attention from any man or woman in the bar and win the evening. The group slowly dwindling down as they accept offers that seem slightly better than sitting in a bar with ten dollar cocktails over drinking piss beer in a studio apartment and having a physical interaction with someone. Which is better than being alone. 
+
+The last two of the group holding out hope for true love, but finding a single drunk guy who was willing to pay for an uber who didn't seem too dangerous. The loneliness being that it's better to be with someone than alone in an apartment you have to work 50 hours a week to afford. 
+
+The same sex couple on their first date. One being totally enamored with the other, and the second wondering if this is something they truly want in life. Both making shows of affection waiting for someone to say something so they can be outraged at the attention or scorn. When that doesn't come because no one cares, they decide to leave, have an awkward hug in the parking lot and go home because they both have an early night and it's not worth a little bit of sleeplessness to find the one. The loneliness is both knowing and not knowing your definition and place in the world. 
+
+The two single men hanging out at the end of the bar, trying to find a woman to go home with. The group of girls celebrating didn't seem to take notice so they make crude joke after they leave because any woman that doesn't melt at their site, must be gay or after after a sugar daddy. The loneliness being waking up alone for millionth time. 
+
+And finally the male mentor and younger female mentee sitting at the corner of the bar. A location that both claims a closeness and distance. Her seeking advice and him looking down her blouse. She's been nursing the same miller lite all night and him seven beers and shots in.  Three hours in and the last call order being shots of Jack Daniels. The loneliness in this "couple" being the sense of something owed to the other. 
+
+And my roll in this Tuesday evening in a shitty bar is wondering whose loneliness is going to end forever. My loneliness is eternal and I'm here to help others.
