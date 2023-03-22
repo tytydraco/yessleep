@@ -1,4 +1,5 @@
   
+The following is a copy of a letter that the NY Police found in a house that was raided in Jersey on March 5th, 2002.  It reads as follows:
 
 So here I am, hiding in the backyard of an abandoned house 4 suburbs away from anything that even remotely resembles home, just me and my friend. 
 
@@ -81,3 +82,7 @@ I have no strength left. I'm tired and we are hurt. We can't continue much longe
 I left this letter so you can understand our story, our journey and who we are so that maybe you might empathize with us or at the very least believe that some werewolves are good and won't hurt you. Maybe the next time you would find another way so that not so many innocent beasts would get hurt. We were always willing to cooperate; you don’t need to be afraid!
 
 We are innocent, we never hurt anyone. If you find this letter, we are either gone or dead but if you see us. Please don't shoot.
+
+End of letter.
+
+The particular individual responsible for this letter was never found

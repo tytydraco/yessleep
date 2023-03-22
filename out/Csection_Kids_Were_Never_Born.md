@@ -46,7 +46,7 @@ Im getting a call. Its Sid . Ill  ontinue writing after i tallk with hin..
 
 ….
 
-sorryy im seeng spots an camt brreath but i havw to warnn evryone . sid comfirmd it. says govetments hiding  tthe trugh by injexting c section babies to brewk the conmection  !! itsa condpiracy! all u  c sevtion kids  check if u beem imjectedd as babies !!!;!! itll savw ur life !;
+sorryy im seeng spots an camt brreath but i havw to warnn evryone . sid comfirmd it. says govetments hiding  tthe trugh and makes hispitals injext c section babies to brewk this conmection  !! all u  c sevtion kids  check if u beem imjectedd as babies! itll savw ur life !
 
 \-----
 
