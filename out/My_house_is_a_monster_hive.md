@@ -1,6 +1,4 @@
-A while back, I posted a story about my brother waking me up at 3 am. Through some research, I discovered a more permanent way to keep the monster out. Little did I know that I did more harm than good. At 3 am, I can hear crawling on my roof and scratching under my bed. Food started going missing, and the trash can emptied out on the floor.
-
-At first my family and I believed we have another stray cat situation since this isn't the first time this happens, however that theory was quickly discarded when we found egg shells the size of my chest laying around in random dark corners. 
+For the past few months, I have been hearing crawling on my roof and scratching under my bed. Food started going missing, and the trash can emptied out on the floor.At first my family and I believed we have another stray cat situation since this isn't the first time this happens, however that theory was quickly discarded when we found egg shells the size of my chest laying around in random dark corners. 
 
 Now I'm a fairly tall person so seeing the shells made my skin crawl.Soon we started hearing the sound of skittering from large insect like creatures on the tile floor and by the sound of it whatever it was, was in a rush. I tried running to where I believe the sound to be coming from, but by the time I get their it was quiet, so quiet in fact that you get the feeling that something is seriously wrong. 
 
@@ -14,6 +12,6 @@ My mom, brother and sister rushed into the back yard while my dad and I was surr
 
 Stopping right infront of us almost sliding on the massacre of abominations it spoke in a voice that made a banshee sound like an opera singer. "Stop murdering my children!" My dad was out of breath so I replied "Leave our house you and your spawn are not welcome here !" It's expression was that of a child not getting its way and it tried to attack while screeching "My hive will feast on your remains!" 
 
-As it charged at me I angled the shovel, I was using as a weapon, in such a way that the momentum of the matriarch would split it in half. Lucky for me it worked perfectly. As the matriarch lay dead the whole house shook as thousands of insects screeched in an ear splitting harmony. Then there was nothing...
+As it charged at me I angled the shovel I was using as a weapon in such a way that the momentum of the matriarch would split it in half. Lucky for me, it worked perfectly. As the matriarch lay dead, the whole house shook as thousands of insects screeched in an ear, splitting harmony. Then there was nothing...
 
-Took a pretty penny to repair the damage that was done and a full weak to clean every corner of the house but there was no sign of the abominations. However ever since then I have the feeling of something watching my every move and that this wasn't the last time something unnatural happens to me...
+Took a pretty penny to repair the damage that was done and a full weak to clean every corner of the house, but there was no sign of the abominations. However, since then, I have the feeling of something watching my every move and that this wasn't the last time something unnatural happens to me...
