@@ -4,17 +4,17 @@ A year ago, boredom found me trying to access my old yahoo email and somehow get
 
 I was hit with a wave of nostalgia upon seeing the updates and notifications of old games like Neopets, Maple Story and Club Penguin.
 
-As I scrolled down, I noticed that there were a bunch of emails in the spam inbox. Curious, I clicked on in and discovered that my brother Jack had sent a bunch of emails to me 19 years ago when he went to the arctic for a research job.
+As I scrolled down, I noticed that there were a bunch of emails in the spam inbox. Curious, I clicked on it and discovered that my brother Jack had sent a bunch of emails to me 19 years ago when he went to the Arctic for a research job.
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 **Date: 4 July 2004**
 
-Hey Squirt,
+Hey squirt,
 
 Surprise, surprise! It's your big bro here. I hope you're reading this on the email I made you and give me a reply.
 
-I bet you don't know how to though :P. Anyway, we might get a kick of this years later, so just be my diary for a while, won't ya?
+I bet you don't know how to though :P. Anyway, we might get a kick out of this years later, so just be my diary for a while, won't ya?
 
 How have you been? I know it's only a few days since I left but I miss you guys.
 
@@ -26,7 +26,7 @@ Peace,
 
 The best big bro evah Jack :)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 **Date: 9 July 2004**
 
@@ -46,7 +46,7 @@ Stay safe,
 
 Genius Jack XD
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 **Date: 14 July 2004**
 
@@ -68,7 +68,7 @@ Catch ya later alligator,
 
 Sherlock Jack :D
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 **Date: 16 July 2004**
 
@@ -88,7 +88,7 @@ Stay safe,
 
 Jack
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 **Date: 19 July 2004**
 
@@ -96,9 +96,9 @@ Hey kiddo,
 
 You alright?
 
-Im typing this with one hand. My arm's not doing too well. The colour's all off and it hurts. I'm worried it might have to get cut off or something... 
+Im typing this with one hand. My arm's not doing too well. The colour's all off and it hurts. I'm worried it might have to get cut off or something...
 
-Kafka's been nursing me but he keeps chanting something under his breath. 
+Kafka's been nursing me but he keeps chanting something under his breath.
 
 Reverend comes by and they whisper to each other. I keep hearing a word that sounded like "Cathauthi" or something. I dunno the language and dunno what it means.
 
@@ -112,7 +112,7 @@ Love you,
 
 Jack
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 **Date: 21 July 2004**
 
@@ -120,11 +120,11 @@ no more
 
 cold.Goodnight.
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-The email dating 21 July 2004 was the last one. My brother came back home in August, safe and sound.
+The email dating 21 July 2004 was the last one. Jack came back home in August, safe and sound.
 
-The emails never left my mind until I saw my brother again at a family gathering today.
+What I read never left my mind until I saw Jack again at a family gathering today.
 
 He was wearing a T-shirt, arms exposed— not a hint of a scar on either of them.
 
@@ -132,7 +132,7 @@ I had to know what happened.
 
 "Is your arm alright?" I asked as we drank beer together on the porch.
 
-He slowly turned his head towards me, lips stretching into a tight smile. At that moment, everything about his face was just \*wrong\* to me.
+He slowly turned his head towards me, lips stretching into a tight smile. At that moment, everything about his face was just *wrong* to me.
 
 "Why wouldn't it be?"
 
@@ -144,6 +144,6 @@ I forced a chuckle, "It's really sunny today, aren't you worried about sunburn? 
 
 He's expressionless and silent for a moment, eyes boring into mine, as if *probing* for something.
 
-I held my breath until his features snap back into a cold smile.
+I didn't realize that I was holding my breath until his features snapped back into a cold smile.
 
 **"I've missed you, little brother."**
