@@ -1,0 +1,13 @@
+In front of our house, at the end of a winding driveway stands a twisted tree. It's been there since I was a child. The winding branches watched me grow up from their vantage point over the yard. They never seemed to have any leaves despite the changing seasons, but the tree is not dead.
+ 
+The bark is black. Far darker than any tree in the area. It is also unnaturally smooth and glossy. We tried to have it cut down, despite my grandfather's objections. The woodcutter's axe didn't so much as leave a mark. And so the tree stood.
+
+When I was a teenager I would stand in the yard, staring at the intertwining patterns of the branches. They hypnotised me. Drew me closer. But I always snapped out of it before I touched the tree itself. The thought of what would happen if I were to touch that smooth, black bark terrified me. I often dreamt about the branches reaching through the house and taking me. Making me part of the tree.
+
+My grandfather loved the tree. He said it had been there since he moved into the house with Grandma. They would sit under it when the weather was nice and read stories to each other from their favourite books. He described it as a place to get out of the sun, even though he said there had never been any leaves.
+
+When I was 19, I walked outside one night to see my grandfather hanged from one of the branches of that thing in our yard. For what felt like hours, I just stood, staring at his body swaying in the breeze. My mother's scream is what snapped me back to reality. We called an ambulance, but it was clearly already too late. They asked us about what could have made him do it, but we never noticed anything wrong with him. After he was buried, the tree seemed to stop shaking in the wind. I think it took part of him.
+
+A few weeks after the funeral, I woke up to a pounding noise from outside. I opened the door to see my mother furiously hacking at the tree with an axe my grandfather used when he was young. She was crying harder than I had ever seen her and screaming incoherently. It was hard to tell in the dark, but the tree appeared to be bleeding. After one of her swings, I felt something in the air change. I think she did too. She stopped swinging. Her eyes widened. And the tree seemed to open and take her into it's trunk. I never saw her again, but the tree has been whispering since. I don't get close enough to hear what it says.
+
+Now, I live alone, and there is a tree in my front yard. I woke up standing next to my bed last Sunday. Every morning I wake up a few steps closer to the tree. I've tried locking my door, tying myself down, anything to keep me away from that tree. Nothing works. This morning I woke up in the yard. I had a rope in my hands. I don't think I will wake up tomorrow.
