@@ -42,7 +42,7 @@ The people here are literal zombies. It's sunny the whole day but they act like 
 
 Anyway, I'm sure that'll change when I make the biggest arctic breakthrough.  They'll be cheering in no time, your brother's a genius after all! :P
 
-Stay safe,
+Cheers,
 
 Genius Jack XD
 
@@ -102,7 +102,7 @@ Kafka's been nursing me but he keeps chanting something under his breath.
 
 Reverend comes by and they whisper to each other. I keep hearing a word that sounded like "Cathauthi" or something. I dunno the language and dunno what it means.
 
-I asked Kafka and he just told me, "the one under the ice". Then he left.
+I asked Kafka what it meant. "The one under the ice" was all he said before leaving the room.
 
 Weird, right?
 
