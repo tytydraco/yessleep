@@ -4,7 +4,7 @@ A year ago, boredom found me trying to access my old yahoo email and somehow get
 
 I was hit with a wave of nostalgia upon seeing the updates and notifications of old games like Neopets, Maple Story and Club Penguin.
 
-As I scrolled down, I noticed that there were a bunch of emails in the spam inbox. Curious, I clicked on it and discovered that my brother Jack had sent a bunch of emails to me 19 years ago when he went to the Arctic for a research job.
+As I scrolled down, I noticed that there were a bunch of emails in the spam inbox. Curious, I clicked on it and discovered that they were sent by my brother Jack 19 years ago when he went to the Arctic for a research job.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
