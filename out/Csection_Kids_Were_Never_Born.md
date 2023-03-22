@@ -46,7 +46,7 @@ Im getting a call. Its Sid . Ill  ontinue writing after i tallk with hin..
 
 ….
 
-sorryy im seeng spots an camt brreath but i havw to warnn evryone . sid comfirmd it. says gocvments hidng  tthe trugh. itsa condpirasy!;!!! all u  c sevtionn nmoms amd kidds  v carwful!!!;!! 
+sorryy im seeng spots an camt brreath but i havw to warnn evryone . sid comfirmd it. says gocvments hidng  tthe trugh by injexting c sectuin babies to brewk the conmectin  !! itsa condpirasy!;!!! all u  c sevtion kidds  check if u beem imjectedd as babbies !!!;!! itll savw ur life !!!!;!
 
 \-----
 
