@@ -1,3 +1,6 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/11s6muw/ive_been_traveling_to_alternate_realities_for_six/)
+
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/11uy7sa/ive_been_traveling_to_alternate_realities_for_six/)
 
 
@@ -372,3 +375,6 @@ I don't know how long I'll be back in our reality. If I even am back here… I g
 
 
 Alternate me is swearing. I think she caught on to what happened… Now she's turning the car around. I'll update again when I'm back.
+
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/11ym5e6/ive_been_traveling_to_different_realities_for_six/)
