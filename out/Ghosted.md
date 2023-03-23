@@ -1,405 +1,473 @@
-[1](https://www.reddit.com/r/nosleep/comments/11aarni/ghosted/?utm_source=share&utm_medium=web2x&context=3)
+[1](https://www.reddit.com/r/nosleep/comments/11aarni/ghosted/?utm_source=share&utm_medium=web2x&context=3) [2](https://www.reddit.com/r/nosleep/comments/11b55k8/ghosted/?utm_source=share&utm_medium=web2x&context=3)
 
-2
+**3**
 
-The television is on when I step into my Briarwood apartment. My roommate Cyrus is sprawled on the couch. He’s watching some crazy reality dating show about a bunch of hot, flirtatious weirdoes trapped on a cruise ship.
+Once again I’m facing the operating table and gearing up to make my first incision into the cadaver. It’s the same body from the day before, the young man who was struck down in his prime.
 
-I wish I had time for junk TV. Cyrus works as a server at a downtown steak house and pulls in so much cash that it makes me question my career ambitions sometimes. Still wearing his black restaurant uniform, he is depressurizing from his shift. He looks over as I go to the fridge and grab a beer.
+“Today we’ll be focusing on head and neck anatomy...” Dr. Wallace says, but I’m not paying attention.
 
-“Not spending the day with your lady today?”
+Lynn reaches for the mask that covers the corpse’s features and begins to remove it. I’m about to see the face of the dead man we’ve carved up in the name of higher education. To my horror, the visage staring back at me is all too familiar.
 
-“Ton of homework. Figured I'd be more productive back at my place.”
+*I’m looking at Josh.*
 
-“I hear ya. The ladies can be distracting.”
+His skin is a darkened mass of burnt tissue but those haunted eyes belong to my brother. It gets worse as the charred death mask turns toward me. I cry out and recoil, dropping the surgical blade. It clatters to floor of the classroom, echoing.
 
-Cyrus should know. The man doesn’t have a girlfriend, he has *girlfriends.* Every time I talk to him he is either chasing or bedding some new girl. He’s tall, built, and has a face that women swoon for, not to mention some serious game.
+Panic explodes in my chest and I’m unable to catch my breath. A hand touches my shoulder. It’s Wallace, our professor. A concerned frown furrows his brows. “Are you okay, son?”
 
-“So did you get to slice and dice some bodies the other day?”
+Good question. If the experiences of the last few days are any indicator, the answer is a resounding no. My eyes drift back to the corpse. The lifeless features are those of a stranger. The stares of Lynn and the other students are mortifying. Their expressions range from pity to surprise to dark amusement.
 
-“Sure did.”
+I trade a quick glance with Lynn. I spot the love and concern in her gaze, and I feel like a shit for my behavior last night. I inhale sharply and eye Dr. Wallace.
 
-I crack open my Miller Lite and take a deep swig. Cyrus is waiting for me to say more, but I don’t want to go into the gruesome details. Instead, I shift the conversation away from me. “How was work?”
+“Take the afternoon off,” he says. “It happens to the best of us.”
 
-“Got stiffed by a couple of tourists.”
+I nod and leave the anatomy classroom. Lynn’s worried gaze follows me all the way. She wants to come after me, but I wave her off.
 
-The bane of any server’s existence. I‘ve heard this one before.
+*Everything’s okay, babe.*
 
-Cyrus observes me in contemplative silence. He senses something is up without me having to say a word. He can be a bit callous, but he’s also a people person — probably one of the reasons he cleans up in his chosen profession.
+I’m lying.
 
-“What's on your mind right now, bro?”
+I head to the cafeteria and order a coffee while I wait for the class to let out. I sip the bitter brew, which goes down like a cup of ashes.
 
-“Lynn asked me to move in with her.” The answer slips out easily, and I realize I was hoping we could talk about this.
+*Or like a kiss from Akasha.*
 
-“And you said yes?”
+Forty minutes later, Lynn joins me.
 
-“I didn’t say no.”
+“What happened?” she asks.
 
-“I guess it’s time for me to look for a new roommate.” Cyrus pauses, having picked up on my hesitation. “Unless you’re having second thoughts?”
+Good question. *What did happen?*
 
-“I love Lynn. So what’s my problem?”
+“I think I need to get some rest. Too many nights of burning the midnight oil. It’s starting to catch up to me.”
 
-“Face it. You’re a guy... that’s your problem.”
+Lynn studies me with a doubtful expression, not quite convinced.
 
-I think Cyrus is right.
+“You sure you’re okay?”
 
-“Lynn is an amazing girl, but...”
+“I’m fine.”
 
-“There are a lot of fish in the sea!”
+“Let’s do something fun tonight,” she says. “How about we plan a real date?”
 
-Cyrus has hit the nail on the head, though I’m ashamed to admit it. Unlike my ladykiller roomie, I’ve had exactly three girlfriends in my life.
+“Sounds like a great idea.”
 
-“Long story short, I love Lynn but I'm just not sure I'm ready to settle down.”
+It’s been way too long since we’ve gone out.
 
-“That sexy Starbucks barista wouldn't have anything to do with this, would she?”
+“I’ll come up with something,“ Lynn says. “Be ready by eight.”
 
-My voice becomes defensive as I answer and it gives me away. “Maria and I are just friends.”
+I relax. Despite a crazy study schedule that doesn’t leave much room for romantic outings, Lynn is going to carve out a window of time. Because she knows we need it.
 
-“Right. Of course you are.”
+God, I love this girl.
 
-Cyrus gets up and grabs himself a beer too. As he toasts my already half-empty can, he says, ”These are the facts of life. This city is full of great girls, you're young and you're going to be a physical therapist or even a doctor one day. You could get laid by a different chick every night of the week.”
+The plan for the rest of the day is simple. I’m going to study my ass off. If I’m going to have fun tonight, I must maintain my focus and clear some work off my plate. I head to the library and find a quiet corner where the world can forget I exist. A place where knowledge and science dominate and the twisted soap opera of my life will seem small and insignificant.
 
-I smile despite myself. “Sounds like you don't think I should do it.”
+For the first two hours I make excellent progress. A quiz is coming up in my biology class, and I want to be prepared. My grade-point average is solid, if not spectacular. I flunk one test and it could jeopardize my academic future. I can’t slack off or use tragedy as an excuse for failure.
 
-“On the contrary, go for it. I hate to lose you as a roomie, dude, but Lynn is a keeper. If you let her go, you’ll regret it for the rest of your life.”
+My cell phone chimes. One glance at it and the events of the last day catch up with me. Akasha is direct messaging me again.
 
-I’m not used to hearing Cyrus talk like that. There’s heartfelt emotion in his voice. For a second he almost sounds like a mature grownup.
+Shit, I totally forgot to delete the Tinder app on my phone.
 
-“Truth is, you’re a nice guy and ill-equipped to deal with all the freaks out there.”
+“*What are you up to?”*
 
-“But you are?”
+I eye the message, phrased innocently enough. I thought that after what happened last night, we’d be done. I guess I was wrong.
 
-A big smile lights up Cyrus’ face as he says, “Hey, I’m one of them.”
+I break down and respond to this latest communication.
 
-It’s my turn to grin. This is why I love my roommate.
+Me: “*Doing homework.”*
 
-\* \* \*
+Akasha: “*Need any help?”*
 
-Falling snow sheets past the window. I’m in my bedroom surrounded by a wall of books and cramming for an upcoming quiz. I try to concentrate, but I’m distracted. My eyes wander toward the Iphone charging on my night stand.
+Cute response, and I almost smile. Akasha waits for a beat before sending the next message.
 
-I don’t feel like myself as I reach for my cell and download Tinder on my phone.
+“*When can I see you again?”*
 
-*What are you up to, buddy?*
+I can no longer sugarcoat this. Better to be honest and direct.
 
-If feels like someone else is in control as I create my first Tinder profile. This is nuts. I’m playing with fire here — no pun intended. If Lynn finds out that I just signed up for Tinder…
+I type: “*I don't think that would be a good idea. I told you, I have a girlfriend.”*
 
-*You’re doing this for Josh*, I remind myself.
+*“Where was your girlfriend when* *you made out with me last night?”*
 
-This thought calms me slightly.
+Akasha logs off, and I stare at my cell in silence.
 
-Armed with my own dating profile, I dive into the digital meat market. The barrage of smiling women becomes numbing as I keep swiping through profiles, hoping to find Akasha.
+Outside it’s snowing again. White clumps of melting ice drift down the glass pane, and I’m glad that I’m indoors. I turn off my phone and plan to get some work done.
 
-How did the saying go? A picture is worth a thousand words. When it came to the mating game, that was certainly true. I instantly grasp the addictive allure of the app. This is pure animal attraction filtered through a SUPER RETINA XDR display.
+Around five I call it quits and brave the weather. I leave the library and catch the F-train back into Queens. It takes another forty minutes to arrive in Briarwood, but I get lucky and manage to snag a seat. I continue to study my flash cards while the train rattles its way through the city.
 
-As I go through the profiles, I realize I can’t search for a specific person on Tinder. There is no way to look up Akasha. Damn, I should have known that.
+I switch on my phone again and am relieved to not find any messages from Akasha. I check in with Lynn and she tells me to meet her at one of her favorite hole-in-wall Thai places in Queens. We’re going to dodge the Manhattan commute and keep things local tonight. I can only stomach one trip into the city per day, especially during the winter months. Rain is coming down in raw, cold sheets as I emerge from the subway station. I make a mad dash for my apartment building which is only a block away from the station. It’s impossible to not get wet, even though I’m moving pretty fast.
 
-This was a dumb idea to begin with.
+When I reach the entrance, I go stock-still.
 
-I’m about to give up and delete the app when another thought occurs to me. Maybe there is another way to find Akasha.
+Someone is waiting for me below the front awning.
 
-I ask Google if there is another way to find someone’s profile on Tinder. I learn that by adjusting age, gender and location to the person you are trying to look for, it’s only a matter of time before they show up in your feed.
+*Akasha.*
 
-I text Peter and ask him for a screenshot of Akasha’s profile.
+Her dress is soaked and pasted to her beautiful figure, leaving little to the imagination. There’s a trace of anger in my voice as I address her. “What the hell are you doing here?”
 
-A moment later my cell pings.
+A sob escapes from Akasha's throat, and I realize tears are mixing with the melted snow on her face. She is hugging herself and shaking in the icy downpour. A pitiful sight.
 
-I study the profile. Take in Akasha’s likes, dislikes, and various other details. Use those details to narrow possible matches in my area.
+Seeing her vulnerable like that dampens my anger, and I feel like a shit for going off on her. I pop the door open and say, “You better come in before you catch pneumonia.”
 
-Once done, I need to keep swiping and hope I eventually get lucky. Google informs me that I could perform a Tinder name search with another site called Social Catfish, but such a reverse search requires another account.
+She faces me from behind a curtain of cold tears and nods. I hold the door open for her, and she brushes past, her wet skin grazing mine.
 
-I will give the first method a try first.
+The contact is electric. Alarm bells go off inside my head, but I choose to ignore them.
 
-I forget how long it takes, the smiling female faces on my phone are starting to become a blur when my efforts are finally rewarded.
+Ten minutes later, Akasha sits in my kitchen, a towel wrapped around her soaked shoulders. A teakettle heats on the stove, and I’m about to make some tea for us.
 
-Akasha’s enigmatic presence is now staring back at me from my phone.
+I eye Akasha with trepidation as I notice the curves outlined under the wet material of her clothes. For a second, Akasha’s eyes fix on me, catching me in the act. But from the way she smiles, it seems she doesn’t mind me checking her out.
 
-*Found you!*
+“I like your place,” she says.
 
-My fingers hover over the app. I study the two symbols below the profile. A heart if you like them, a cross if you don’t. Or you can swipe to the right if you like them, or to the left if you don’t.
+“Thanks.”
 
-Akasha's profile seems to be staring back at me. Those enigmatic are boring into me, almost as if her picture is aware of what I'm about to do. For a crazy moment, it feels like her lips curl up in a mocking smile, almost as if she is daring me to go through with it.
+“You live with a roommate?”
 
-Who is this woman? How is she connected to Josh's death?
+I nod, perhaps a little too quickly. “Yeah.
 
-My stomach knots with a mixture of anxiety and existential dread. A little voice inside my head is warning me not to contact this woman. Akasha is trouble.
+“Where is he?”
 
-But then my eyes come to rest on the framed picture of Josh and me that I scavenged from his apartment. Grief wells up and threatens to overwhelm me.
+“Cyrus is still at work.”
 
-*I'm doing this for you, bro.* Someone needs to find out what really happened to Josh.
+“I guess there's no one here to interrupt us.”
 
-My fear turns to righteous anger. Mind made up, I swipe right.
+“There's nothing to interrupt.”
 
-And wait.
+Akasha rises and the towel drops to the floor. I can see the outline of her breasts under her wet T-shirt and this confirms what I’ve suspected since I first saw her outside my building – she’s not wearing a bra.
 
-This is a bad idea. No guarantee that Akasha will like my profile and swipe right on her end, so that we can chat. And even if she does, what am I getting myself into here? If Akasha is truly connected to what happened to Josh, she might conceivably come after me next. It’s hard to believe that this girl just showed up and torched my brother without him even putting up a fight, or her leaving behind any trace of foul play. She isn’t superhuman. She has a fucking Tinder profile, for God’s sake.
+“I wonder what Lynn would think if she found me here?”
 
-Something just doesn’t add up yet there is no turning back at this point.
+There’s an edge in my voice as I respond. “How do you know my girlfriend's name?”
 
-I try to concentrate on my studies again but keep stealing glances at my phone. After about thirty minutes of this, I drift off and fall into a dreamless sleep.
+“Relax. She doesn't know about us.”
 
-When I finally wake up, sunlight is streaming into my apartment.
+“What are you talking about? There’s no ‘us’ to know about.”
 
-My stomach rumbles. The idea of eggs and coffee makes me almost forget about Akasha and Tinder and all the other crazy shit that has been taking up bandwidth in my head. Nevertheless, I eye my cell phone.
+“You could've fooled me the other night. I loved the way you kissed me.”
 
-To my amazement, a Tinder notification informs me that there is a MATCH.
+She takes another step toward me. The water makes her clothes cling to her shapely figure in a primal way. This is getting out of hand.
 
-A chill travels up my spine, and I’m suddenly wide awake.
+“What are you doing?”
 
-Akasha has liked me back. I can now message her directly.
+“What do you want me to do?”
 
-It feels like I’m still dreaming as I open the message box.
+Mere inches separate us. It would be so easy to reach out, tear those clothes off and take her right here and now. I know she wants me to, but I can’t do this to Lynn.
 
-What to write? How to start the conversation?
+Akasha presses her body into mine. “I know you feel the same way,” she says. “I can see it in your eyes. Why fight it?”
 
-My fingers tap the keyboard almost as if they have a will of their own.
+Why? Because there’s an amazing gal out there who cares about me. And I don’t want to break her heart. I can’t risk my relationship for the sake of a fleeting experience with a hot but emotionally unbalanced girl.
 
-I type: “*Hi there. Not sure what to say here but wanted to get to know you better.”*
+Cyrus’ voice echoes in my head. *Don’t stick your dick in crazy.*
 
-Not the most clever opening line, but it’s the best I can come up with. A final beat of hesitation before I press SEND.
+I grow resolute. I’m not going to succumb to temptation.
 
-I made the first move. The ball was now in Akasha’s court.
+“Listen, you better leave. If you need me to call you a cab, I will.”
 
-What am I getting myself into here?
+I see the stunned look on Akasha’s face and I’m worried. Is this what happened with Josh? Did he push her away after he realized she was bad news? Did he pay the ultimate price for his rejection?
 
-\*\*\*\*
+“Who do you think I am?” There’s an undertone of menace in her voice. “Someone you can just kick out once you're done with me?“
 
-This is all about Josh. I want to get to the bottom of a mystery that is making it difficult for me to concentrate on anything else and move on with my life. I listlessly chew my breakfast while I clutch my phone, waiting for a response from Akasha.
+Her gaze is distant and it feels like she is reliving some other past, talking about another guy, another relationship. How often has this been her story? One-night stands that started hot and heavy but ended with her being shown the door and ghosted?
 
-I almost drop the cell when it finally vibrates in my hand.
+That does it. I snap. My anger is fueled by fear. Something is wrong with this girl, and I can’t stop thinking about Josh’s dying gasp and the terror in his eyes as he mouthed his final message – her name.
 
-I stare at the incoming message from Akasha.
+The reason I contacted Akasha has gotten lost in the course of this seductive game, but I won’t lose sight of it again. “I tried to be a nice guy, but you don't seem to get it. I have a girlfriend. I don't know what your problem is, but I want you out of here. Now.”
 
-“*Hey Mark... How are you?”*
+Her eyes narrow into slits and become intense, blazing with emotion. Beads of perspiration bloom on my face. The heat in the apartment appears to be rising.
 
-I respond slowly.
+Then the moment passes and the same vulnerability I saw earlier, in the rain, creeps back into her face.
 
-Me: *“I'm okay. Thanks for getting back.”*
+“Don't you like me, Mark? Just a little?”
 
-Akasha: *“I like your pictures... You have a warm smile...”*
+Before I can come up with the proper response, the fire alarm goes off. The sound is sharp and shrill. I search the kitchen for a sign of smoke or anything else that could have set off the alarm. I don’t detect any visible cause.
 
-And so our chat begins.
+I rush over to the alarm. Seeing no other choice, I pop out the battery. The noise dies down.
 
-We quickly develop a nice back-and-forth.  This is the first real flirting I’ve done with a woman besides Lynn in quite some time. I hate to admit it but the exchange is… fun. Hard to imagine that the lovely lady on the other end of this conversation might have played a role in my brother’s death.
+I whirl back to Akasha...
 
-Sobering really crashes down on my when Akasha suggests we should meet in person. This is getting real.
+But she is gone. It’s a small apartment so it doesn’t take long to be sure she isn’t hiding somewhere.
 
-Akasha: “*Let’s grab some coffee?”*
-
-I hesitate, then type.
-
-*“Where would you like to meet?”*
-
-Akasha suggest a nearby Starbucks.
-
-I agree.
-
-A voice behind makes me almost spit up my eggs.
-
-It’s Cyrus.
-
-“Hey bro, I can't find my laundry key. Could I borrow yours?”
-
-He stops, having spotted Akasha's Tinder profile and our digital exchange.
-
-*You’re so busted, buddy.*
-
-“What the fuck. How long have you been on Tinder?”
-
-*Here we go. This is what I was afraid of.*
-
-“I'm not.”
-
-A sly smile stretches over Cyrus' face. “Lynn asks you to move in with her and your first reaction is set up a Tinder account?”
-
-I ignore the comment and hand Cyrus my set of laundry keys.
-
-“Gotta run. Make sure not to lose it unless you want us to start using the laundromat down the street.”
-
-I’m out the door before Cyrus can respond.
+I open the front door and poke my head out to peer down the now empty hallway. There is no sign of Akasha.
 
 \*\*\*
 
-I pull into the Starbucks parking lot. I own a beaten-up Honda Civic built in the last century. You don’t need a car in New York, and it’s pretty much madness to drive into Manhattan. Nowadays I only use the car if I’m going somewhere in Queens. The heavy snowfall makes it a bit risky to take the Honda out for a spin, but I don’t feel like braving the public transportation system this evening.
+The Thai restaurant Lynn picked is a hole-in-the-wall in the true sense of the word. The décor is forgettable and the place is cramped and crowded. Small individual tables are so close together we might as well be dining at a communal table. I like meeting new folks, but not while I’m on a date with my girl. But the food makes up for the inconvenience. The joint is a fave among hipsters, artists, musicians and students – in other words, poor people like ourselves who appreciate delectable chow at bargain prices.
 
-I park my car but don't turn off the engine. I peer through the windshield at the people milling around outside the coffee shop, chattering away. Happy, smiling folks whose lives must be untouched by any recent tragedy.
+Lynn is enjoying her dinner and babbling away about her day. She suddenly pauses.
 
-I stare at the key still resting in the ignition. I’m tempted to blow the meeting off.
+“You haven't heard a word I said.”
 
-I give myself a push and head into Starbucks. I scan the crowd of bundled-up caffeine junkies and quickly determine that Akasha isn’t among them. I order a coffee and wait with my red holiday-themed cup.
+I offer her a guilty-as-charged smile.
 
-And wait.
+“I'm sorry, babe. I'm not myself today.”
 
-After thirty minutes, I conclude that I’ve been blown off. I head back into the icy parking lot and walk to my car. In a weird way, I’m relieved.
+“Don't worry about it. I can't imagine how hard this must be. I was hoping a night out might get your mind off what happened...”
 
-I get into the Honda, start the engine and that is when my cell chirps. Incoming direct message from Akasha: “*Sorry for being late.”*
+“And it did,” I say perhaps a little too quickly. “Thanks again, honey.”
 
-A moment. I scan the parking lot for any signs of Akasha rushing toward Starbucks. There is no sign of her.
+I take Lynn’s hand and am leaning forward to kiss her when the candle on our table lights by itself. There’s a flare of light from the other tables as their candles flicker to life in unison.
 
-My confusion deepens, eyes scanning the parking area. I send a reply: “*Where are you?”*
+My perplexed gaze roves around the restaurant, and that’s when I spot Akasha standing at the entrance. Her face is a blank slate, but the jealousy in her unblinking eyes is all too clear.
 
-I receive my answer in the form of another buzzing text. “*Behind you.”*
+I jump to my feet. Lynn stares at me, startled.
 
-I check the rearview mirror again and...
+“What's wrong?”
 
-Akasha is staring back at me.
+I don’t offer an answer but instead turn away from the table. This must end now. With quick strides I cross the restaurant and close in on Akasha.
 
-She lurks right behind the car, black mane of hair cascading to frame her alabaster skin. Beautiful in an almost translucent, darkly heroin-chic way. An ethereal beauty.
+She spins and rushes toward a nearby doorway.
 
-I frown. I could’ve sworn she wasn't there an instant ago.
+I pick up the pace.
 
-Akasha enigmatic gaze haunts me from the rear-view mirror. Her long red nails drum the keypad of her cellphone.
+So does Akasha.
 
-Her next message lights up my phone. “*I’m freezing.”*
+Moments later, she vanishes through the door.
 
-I'm still staring at this message, when my new Internet friend appears at the passenger door and flashes me a tentative smile.
+I’m right behind her.
 
-She wants me to let her into the car.
+I burst through the door and find myself in a dank hallway. At the far end, Akasha disappears through another door into the ladies’ room.
 
-*What are you doing, bro?*
+“Akasha... Wait!”
 
-After a beat, I open the door and let Akasha into my car and into my life.
+I reach the door, hesitate for a second and overcome my social conditioning to enter.
 
-\* \* \*
+“Akasha...”
 
-Heavy snowfall tattoos the windshield of my parked car, erasing the other vehicles in the parking lot from view. Starbucks feels like a blurry silhouette in the far distance.
+A young woman, hair dyed blue, leans over the wash-basin. Working on her makeup, she peers up at me with visible irritation and drops her black lipstick. It rolls on the floor.
 
-For a moment, we sit in uneasy silence inside my parked vehicle. Thankfully my Spotify playlist is playing tunes at a muted volume. The music gives the situation a sheen of normalcy.
+“Dude, what are you doing here?”
 
-I'm acutely aware of Akasha's beauty and closeness. My stomach churns with anxiety.
+I attempt a weak apology.
 
-I hate to admit it, but I'm both drawn to Akasha and scared of her boldness. How many beautiful women would climb into some stranger's car in 2023?
+The disconcerted punk chick doesn't stick around for an explanation and rushes out of the bathroom. She doesn't even bother to scoop up her lipstick.
 
-This girl is reckless.
+I take a deep breath and scan the room. No windows or other exits. *Akasha must still be in here.*
 
-*Or dangerous.*
-
-Deep down, I know this is wrong on so many levels. I weirdly feel like I'm betraying Lynn.
-
-This was a big mistake.
-
-This woman could be connected to two deaths, and I’m letting her into my life. But Akasha’s fragile demeanor is disarming. Somehow she doesn’t strike me as someone who could douse a man on fire. Even if she had the psychotic will to commit such terrible crimes, surely she lacks the sheer physicality to pull them off.
-
-Is her beauty blinding me to her true nature?
-
-"Sorry to ambush you like this, but Starbucks is super-crowded. And loud.  Hard to get to know someone when you can barely hear yourself think."
-
-I nod as if Akasha's explanation makes this whole thing less weird.
-
-She leans closer, and I grip my steering wheel a little harder. My stomach is coiled tight. I can smell her sweet perfume, every fiber of me aware of her physical closeness.
-
-"You seem nervous, Mark. This the first time you met someone off the internet?"
-
-*Shit, is it that obvious.*
-
-“I normally don’t let strangers into my car,” I say.
-
-“I'm glad you made an exception in my case.”
-
-Akasha holds my gaze for a beat.
-
-“Be honest now. How many girls have you met on Tinder?”
-
-She flashes me a playful, seductive smile.
-
-I shrug sheepishly.
-
-“You’re the first.”
-
-Man, after two years of being in a relationship, I have zero game. But Akasha seems weirdly charmed.
-
-“Now that is a refreshing response.” Akasha smiles as she nods.
-
-Akasha shifts her legs, and I can feel a bead of sweat pearl down my neck.
-
-“Listen, I haven’t been quite honest with you.”
-
-“Uh-oh, not sure if I like the sound of this.”
-
-A popular pop song suddenly fills my car.
-
-Akasha lights up. “I love this band.”
-
-She begins to sensually move her body to the rhythm of the music.
-
-I watch her, unable to take his eyes off this beautiful woman. This meeting has completely slipped out of my control.
-
-Akasha suddenly grabs my right hand. Her touch is electric. Her hand feels warm and inviting in mine. As if holding hands with this enigmatic creature was the most natural thing in the world.
-
-I manage to  pull back. Akasha eyes me curiously, surprised by my prudish resistance.
-
-“What’s wrong? Don’t you like me?”
-
-Akasha leans in and gives me a quick kiss on the cheek. It catches me by surprise.  Despite all the weirdness, a part of me is excited by her bold move.
-
-Once again, I pull away but my efforts are becoming more half-hearted.
-
-“Listen, I can’t do this…” The words are meant to discourage her, but she interprets them as an invitation. She comes in for another kiss, ready to take things further.
-
-*Akasha…*
-
-I hear Josh’s words in my mind, and Lynn’s smiling face invades my thoughts. I stiffen and pull away.
-
-“What's wrong?” Akasha asks in a suddenly vulnerable voice.
-
-“I’m sorry, I can't do this...”
-
-I lower my gaze, unable to hold Akasha's unflinching stare. I wipe the sweat off my brow.
-
-*My God, why is it so hot in here all of a sudden?*
-
-I unzip my jacket, reacting to the rising heat in the vehicle. “It's getting kinda hot. Let me turn down the heater...”
-
-I do as promised and roll down my steamed-up window.
-
-It barely helps with the rising heat.
-
-I turn toward Akasha who is staring at me expectantly. Her features now locked in an expressionless mask.
-
-My words lack any real force as speak. “You're beautiful, Akasha, but I’m involved.”
-
-“How involved?”
-
-“I have a girlfriend.”
-
-The truth is out. Time to bring up Josh and explain the real reason for this meeting. But Akasha doesn’t give me a chance. Her stern expression softens.
-
-“Shit, I thought you were going to say you’re married.”
-
-“Listen, I haven’t been completely honest with you. I wanted to talk about my brother Josh—”
-
-Akasha cuts me off with another kiss, almost as if Josh is a taboo subject. And to my own shock, this time I return the affection.
-
-As our make-out session intensifies, Akasha keeps kissing my face and necks. Her lips feel hot to the touch. There is a hunger here, almost a mad desperation.
-
-And that’s when my nostrils fill with an acrid, burning stench. Akasha’s kisses grow ashen, as if she finished smoking a pack of cigarettes before showing up for this date.
-
-Alarmed by an overpowering sensation, I pull back from Akasha.
-
-She eyes me with blank eyes. The woman staring back at me bears little resemblance to the playful gal who first let herself into my car.
-
-There is anger in that gaze. Rage.
-
-Akasha shoots me a final withering glare, and opens the door.
-
-Before I can say anything else, Akasha darts out of my Honda and dashes off into the snowy night.
-
-Despite my growing fear, I decide to go after her. As soon as I get out of my vehicle, blowing ice particles slap my face. Talk about a shock to the system after baking in my toasty car. My eyes try to penetrate the flurry, but there’s no sign of Akasha.
+My attention shifts to the two stalls and I listen intently. The only sound is my breathing.
 
 “Akasha?”
 
-I don’t receive an answer. I’m alone on the edge of the icy road. Cars tear past me on a sporadic basis, rubber splashing along the slippery asphalt.
+No response.
 
-My gaze scans the white surroundings, but Akasha is gone, and I’m left to wonder about what just transpired.
+*Surprise, surprise.*
 
-I can't shake the growing fear in the pit of my stomach.
+I approach the first stall. It turns out to be empty.
 
-Things don't get any better once I'm back inside my car. As my glance fall on the rear-view mirror, something gives me pause.
+I pause. My face is coated in perspiration. It’s not just from my little sprint. Did someone crank up the heater in here? I wipe the sweat from my face and turn to the second stall.
 
-I noticed the three small marks on my neck. The spots where Akasha kissed me, where her hot lips touched my skin.
+*Is Akasha waiting* *behind the door?*
 
-Not hickeys as I first feared but... burn marks. It’s as if my skin made contact with a hot metal surface and donated some skin in the process. How did I sustain these injuries without noticing them sooner?
+“Akasha, I know you're in there...”
 
-And then I'm reminded of the cryptic message on Akasha’s Tinder profile, and I can't help shaking with existential dread.
+Still no answer. *Okay, keep playing this game if you must.*
 
-*Love burns you when it’s hot.*
+I push the door and it swings open, revealing… another empty stall.
 
-[3](https://www.reddit.com/r/nosleep/comments/11bzlg0/ghosted/?utm_source=share&utm_medium=web2x&context=3)
+I catch my dumbfounded reflection in the bathroom mirror. *Where did Akasha go?*
+
+I comb the room but there’s no explanation. Now I’m spooked.
+
+Defeated, I’m about to retreat before some other female enters the washroom when my eyes fall on the exit. A message has been scrawled on the door with the same lipstick the punk-lady dropped a minute earlier.
+
+It reads: “*WHY WERE YOU MAKING OUT WITH THAT WHORE?”*
+
+I swallow hard, mouth dry with fear.
+
+Is Akasha threatening to go after Lynn?
+
+I embarked on this adventure with Akasha for the right reasons.
+
+I wanted to solve my brother’s untimely passing.
+
+But I’m way in over my head at this point.
+
+\*\*\*
+
+I pull up to Lynn's apartment building and kill the engine. Sleet pelts the windshield and streams down the glass. For a moment we just sit there in silence.
+
+“What happened back there at the restaurant? Who were you running after?”
+
+“I thought I saw someone I know.”
+
+Lynn’s brows furrow into a puzzled expression. She’s not buying my story.
+
+“I've never seen you act like that before.”
+
+An awkward beat. The new distance between us is palpable.
+
+I can tell Lynn wants to probe further but backs down. She knows me well enough not to push me into a corner.
+
+“You sure you don't want to stay over?” Lynn asks, changing the subject.
+
+“Got to get up early tomorrow and cram for that anatomy quiz.”
+
+Lynn seems to understand this but is unable to hide her disappointment. She verbalizes what has been eating away at her for the last few days. “Everything is cool between us, right?”
+
+“Of course,“ I say automatically.
+
+Lynn doesn’t seem convinced.
+
+“Mark, I'm here for you if you need me.”
+
+“I know.”
+
+Another beat. We hug.
+
+“You sure you don't want to spend the night? I want to be with you.”
+
+“I’m with you. Just trying to avoid all distractions before the quiz tomorrow.”
+
+*Maybe you should try avoiding Akasha?*
+
+“You better get an A, Dr. Valentine.”
+
+She plants a quick peck on my cheek, gets out of my car and walks up to her apartment building. I stay until I’m convinced she’s safely inside.
+
+\*\*\*\*
+
+It’s past eleven when I park the Honda near my Briarwood pad. I get lucky and find a spot a few feet from the main entrance. My life is a bit of an emotional rollercoaster at the moment, but it seems my parking karma remains solid.
+
+I approach my place and almost expect to find Akasha waiting for me again but the front lobby is deserted.
+
+As soon as I’m in my apartment, I slam a Red Bull and attack the books. Unfortunately, the energy drink only buys me thirty minutes before my concentration wavers and my eyes grow heavy. I decide to catch a power nap. I allow myself only thirty minutes. Setting an alarm on my phone, I  close my eyes.
+
+When I open them again, a quick glimpse at the clock reveals it’s 4 a.m. I’ve been out for four hours. So much for the alarm!
+
+I suddenly sense shadowy movement in the darkness and conclude I’m not alone. I lie on my bed, senses alert, heart thrumming in my chest, uncertain what to do next. A sound from the corner of the room draws my attention.
+
+I bolt upright, adrenaline surging. Wide-awake now. My eyes bore into the dark, and I make out Akasha looming at the foot of the bed, gazing down at me.
+
+“*Why don't you like me?”*
+
+She is crying now. Tears slide down her cheeks and hit the floor in what seems like slow motion. They ignite like napalm upon contact. In a sudden flash, I find myself surrounded by a ring of fire. The flames flicker hungrily.
+
+I’m shocked to discover that my body is paralyzed as the roaring inferno tightens around me. I want to scream for help, but solely manage a croak. This is what must have happened to Josh.
+
+And it’s about to happen to me.
+
+My prediction comes true a beat later as the fire engulfs the bedspread. Within seconds the pillows, comforters and sheets are engulfed in roaring flames.
+
+As the blaze devours my flesh, I let out a piercing scream...
+
+\* \* \*
+
+My eyes snap open and the scream becomes a gasp for air as I jerk awake. I’m covered in sweat, my T-shirt sticking to me like a second skin. My eyes tick back and forth, scanning the room.
+
+There’s no fire.
+
+*No sign of Akasha.*
+
+I shake off the last vestiges of sleep, and it all sinks in. It was just a nightmare.
+
+I take a deep breath, wishing I was at Lynn’s place where I could roll over and cling to the reassuring physicality of another human being. But the bed, like the room, is empty.
+
+It’s barely five o’clock. Great. I have a quiz in a few hours. Might as well just stay up and hit the books.
+
+I climb out of bed and stagger toward my bathroom. I flick on the light and squint under the harsh glare. I lean over the sink to splash water on my face. My body is trembling, still affected by the horror of the dream.
+
+I peer up at my reflection and freeze.
+
+The mirror reveals a disturbing sight. The blackened outline of a hand’s imprint has burned itself into the doorjamb behind me.
+
+I turn and inspect the handprint. The charred wood is still hot to the touch and leaves black ashen marks on my fingertips. A wave of dread washes over me and this time I know it’s not a dream.
+
+\*\*\*
+
+Daylight streams into my bedroom, a sharp reminder that I overslept. My ambitious plan to get some studying done in the early hours of the morning never materialized. Despite my experience in the bathroom, I managed to fall asleep again. A soon as my head hit the pillow, I was out cold. Maybe the world has become too much to handle. Sleep offers a much-needed refuge from the horror.
+
+Now that I’m awake, reality comes crashing down on me with a vengeance. Besides this whole Akasha weirdness, quizzes are coming up and papers are due. I’m going to have to catch up somehow.
+
+I get up and stagger to my desk. I try to resist looking at my phone but fail miserably. I let out a sigh of relief when I find no new direct messages from Akasha. A part of me prays I never hear from her again.
+
+My attention shifts to the latest new stories, hoping the world’s problems will distract me from my own.
+
+Bad move.
+
+I almost immediately come across a local news story that chills me to the bone. A young black man was found burnt to a crisp in his car right outside the Starbucks where I met Akasha. I grip my desk as my heart hammers against my rip cage. Weird coincidence or did Akasha find a new victim?
+
+And this leads to another terrifying thought.
+
+Perhaps John and Steve weren’t the first victims. Perhaps there are others.
+
+I tentatively open my Google search window.
+
+I type "FIRE ACCIDENTS" into the search field.
+
+"*120O ARTICLES FOUND."* All kinds of accidents all across the country.
+
+This won’t work. I decide to modify my search. I add two words into the search box. *"YOUNG MEN.”* This still produces too many results. Then I further narrow it down by specifying the geographic area. I input Astoria Queens and this brings the number down to twenty-two. Still shockingly high but somewhat more manageable.
+
+I spend the next few hours reading through one story after another. Freak accident after another. Some of the young men perished in home fires, some in fiery car accidents. All of them died within a ten mile radius. I don’t want to accept it but the grisly news stories speak for themselves.
+
+After a few hours of this, I’m ready to call it quits. Each story is nearly identical to the last. The only differences are the changing pictures of the dead and slight variations in the facts of the case. Twenty-four men have died in unexplainable fires over the course of the last ten months.
+
+*She got you all*, I think.
+
+And I know who might be next in line.
+
+To save myself, I need to find out more about Akasha.
+
+My eyes turn to one of the news stories open on my screen. The victim in question is Robert May, a junior CPA fresh out of college. Young kid, his whole life ahead of him. Just like the rest of the dead men. But something is different about Robert’s tragedy. Something about his story stands out. His girlfriend was with him when the fire broke out. Jennifer Heitz sustained third degree burns all over her body, but she's still alive.
+
+There's a survivor.
+
+\*\*\*
+
+White sneakers pad down a sterile corridor. A nurse escorts me down the institutional hallway of the NORELL BURN TRAUMA CENTER. The heat in the building forces me to unzip my jacket.
+
+“We keep the temperature inside the facility at eighty-five degrees,” the nurse explains. “Once the skin is compromised, burn victims are incapable of maintaining the necessary body temperature for internal organs to function properly.”
+
+“What are the survival rates?”
+
+“Thirty percent succumb to infection. If they can make it through the first sets of skin grafts, odds improve. Jennifer is one of our success stories. After six surgeries, she should be able to leave the center within a month or so.”
+
+We round a corridor and reach Jennifer’s hospital room. The nurse nods, giving me the go-ahead to enter. I told them I was a college friend of Jennifer’s who heard about her tragedy. They agreed that seeing a friendly face would be good for her, but told me to be prepared. Jennifer’s terrible third-degree burns have drastically altered her appearance.
+
+I wonder once again what I am doing here. How will Jennifer react to my visit? I wouldn’t be surprised if in the next few minutes a bunch of security officers descend on her room and drag me out of here. I hope Jennifer gives me enough time to plead my case before she sets the dogs on me.
+
+I push the grim vision aside and concentrate on the figure sitting in the corner. Facing the window, Jennifer wears an athletic hoodie with the hood up. From this angle, she makes me think of an urban monk.
+
+“Jennifer, you have a visitor. An old friend from college…”
+
+“I have no friends. Not anymore,” the woman in the chair says, without turning around. Outside, snowflakes flutter steadily. The nurse shoots me a “good luck, kid” look and leaves us alone.
+
+I’m unsure how to proceed. How do I bring up Akasha? I’m not a trained interrogator and me being here feels like a bad idea. Before I can say anything, Jennifer speaks. “It's funny. Everyone’s so excited that I'm about to leave this place, but I doubt the world is ready for me. Six surgeries later and my face is a cheap Halloween mask.”
+
+“I'm sorry.”
+
+Still without turning, she says, ”I don’t recognize your voice. Who are you?”
+
+I come clean – the truth shall set me free.
+
+“My name’s Mark. I need your help, Jennifer.”
+
+She tilts her head toward me. Even though I steeled myself for this sight, I still have to stifle a gasp. The face inside the hoodie is an ugly tangle of knotted scars. I perused pictures of her from before the accident, and it’s heartbreaking to see her now. The fire leveled her nose and retracted her eyelids. Her former beauty slashed and burned away, she reminds me of a well-preserved mummy.
+
+“How could I possibly help you?” she asks, her lidless eyes staring out at me from the cratered face.
+
+“My brother died in a fire a few days ago. I don’t think it was an accident.”
+
+Her stare never wavers, her full attention fixed on me. This is my chance and I grab it.
+
+“I think someone murdered my brother. The same person who set the fire that killed your fiancé and nearly killed you.”
+
+“Akasha...” Jennifer says, and I realize I’ve come to the right place.
+
+“Who is she?” I ask.
+
+The question hangs there. Jennifer is withdrawing from me. She shifts her attention back to the window. On some level I’m grateful not to be looking at her face any longer, but our connection is crumbling. I make a final attempt to reach her.
+
+“Please, is there anything you can tell me about her?”
+
+After a long moment, Jennifer responds. “Do you have a girlfriend?”
+
+My heavy silence answers her question.
+
+“Leave her before Akasha destroys you both.”
+
+“Who is she?”
+
+No answer is forthcoming. Jennifer doesn’t stir.
+
+“Jennifer, please talk to me...”
+
+She finally responds. Raspy words slip ominously from her destroyed lips with a chilling air of finality.
+
+“Love is like a flame. It burns you when it’s hot.”
+
+[4](https://www.reddit.com/r/nosleep/comments/11cxd9x/ghosted/?utm_source=share&utm_medium=web2x&context=3)
