@@ -1,0 +1,103 @@
+My obsession began with a humble hangnail on my pinkie finger, a digit whose function, you must agree, is entirely ornamental. The hangnail pulled loops from my sweater and threatened to make worthless my silk shirts. This superfluous shard of my personage would never amount to anything so, I bit it off. I held the keratin splinter between my teeth and touched it with the tip of my tongue. Already it felt dulled, less angry. One swallow—a spark trapped in a bottle—and I was hooked. I dare say the advertisement I put in the Gazette the very next day was more of a provocation than anything else: *Cannibal wanted. No creeps.* 
+
+In all my 42 years, I never was a nail-biter—I simply didn’t have the anxiety for it—but now, I was eager to celebrate the rare perfection when, after delicate nibbling, a full crescent of fingernail pulled away from my cuticle leaving a pleasantly feathered edge. Patience never was my strong suit and fingernails can take a whole month between harvests. I was fortunate, though, in that I have always been blessed with uncommon flexibility and therefore found some comfort in nibbling my toe-nails like a baby newly born. 
+
+Despite my limberness, the contortions necessary and the manner in which I had been leaning to reach the littlest piggy, caused the finger on my left hand to go completely numb. The feeling brought to mind an old friend from school who lost this very same finger to a hungry garbage disposal system. If prompted, he would insert carrots into his gloved hand and, in full view of the substitute teacher, make a big show of cutting them off. It never failed to rouse the class to laughter. I made sure to fess up to having been the one who had goaded the poor lad so he didn’t take the burden of the punishment alone. He always claimed that his missing fingers inconvenienced him not in the slightest, but he was particularly terrible at ten-pin bowling. We never liked bowling, anyway. 
+
+He was a good person, that boy. But, more often than not, people disgust me. You put one small advertisement in the Gazette and it really is amazing how many supposed cannibals want to pleasure themselves while watching someone consume their parts. Perverts! It never was a sexual thing for me. Pure cannibals are hard to find, or maybe they just never read the Gazette. Either way I couldn’t wait so long for a dining companion. Cutting off my finger was an easy decision—as natural and inevitable as cell division. Had I been a starfish my fingers would have grown a whole new me from scratch. What a lark! 
+
+It’s usually the pain that stops ordinary people from achieving anything notable in life. Anything worthy of the Gazette. But pain of the person fades in time. Pain of the mind persists. For example: I don’t recall the pain of crashing my motorcycle into a willow when I was young and foolish, but I recall, with absolute clarity, my sweetheart leaving me while I was still in traction. She said she didn’t want to go to the prom with a cripple. My legs healed in time but my heart was eternally broken. That’s real pain right there. If the most painful thing you ever feel in life is a silly little finger being lopped off then you haven’t really lived. 
+
+Decision. Precision. Incision. All in quick succession. That’s how you do it. 
+
+I tied a rubber band around my pinkie until it was numb and laid it on the bread board then popped it off with a chef’s knife. It came away more easily and with much less sensation than I expected. I inserted the severed digit in my mouth—wider, wider, a little wider—like a dentist might. My real-life dentist was always too insistent, too certain of his ability to enter me. I bit his finger once (okay, maybe more than just once). I caught him off guard—or as off guard as you can when dealing with a man whose entire professional life is spent with his hands in the mouths of beasts. He must surely have seen it coming. Nevertheless, he referred me to another dentist. 
+
+I clamped down hard on my severed finger and ran my tongue over the satisfyingly deep dent left in the flesh by my molars. It had the texture of pig knuckles. Not that I recall that particular dish with much clarity. I’ve been a vegetarian for thirty years. No harm, no fowl—no fish or steak. Eating my own flesh doesn’t hurt anyone. It just makes me a cannibal-vegetarian which is more ethical than most people. 
+
+Take my sister for example: she loves her stupid fox terrier like a child but she still eats meat which makes her both cruel and a terrible hypocrite. Nevertheless, she still insists we get together for Christmas. 
+
+”What the hell is the difference between eating dogs and cows?” I asked her, on the phone. And when I said “dogs” I meant humans. 
+
+“Cow’s don’t have personalities,” was her reply, which is entirely not true. 
+
+“Would you prefer I cook you an animal you hated?” I asked. 
+
+”Yes,” she agreed, and I knew immediately that she regretted her offer of driving all the way to visit me in New Orleans for Christmas dinner.
+
+“What animal do you hate the most?” I asked. “I’m serious.” 
+
+I already knew what she was thinking. I just wanted to hear her say it. She had never hated anyone more than her ex-husband or possibly me. Either way, the animal she hated most was most definitely human but she said, “Pigs, I guess,” and by “pigs” she meant me.
+
+“Good. That settles it. I’ll cook pork with cherry glaze,” I lied.
+
+Now, obviously, a few stray knuckles can’t possibly form the centerpiece of Christmas dinner and, anyway, me-knuckle-and-pea soup had already demonstrated itself as more suitable for an appetizer. Still, I kicked myself for eating my four fingers first because it made it extremely difficult to amputate my leg at the knee. The lower leg: now there is a versatile cut of meat. You can cut along the length of the calf muscle for a juicy loin or cut across the bones for chops if you have a bandsaw, which I didn’t, of course, on account of living in a residential area with strict zoning laws. But that doesn’t prevent you from smoking a loin or make excellent sausages. I had a devil of a time removing my lower leg and none of the perverts who responded to my advertisement in the Gazette had the prerequisite nursing skills to assist with the amputation. I administered the local anesthetic myself and it worked fine enough but the knee joint was tough and rather complicated to cut through and, in spite of my keen interest in anatomy, I was certainly no doctor. Still, I had committed to hosting Christmas lunch and I was determined to harvest a tasty loin. My sister and may have had our differences but, she is my sister after all and you have to make an effort. 
+
+When she arrived, she insisted on bringing with her a special friend named George. Poor George had tried to enliven his wallflower personality with a festive reindeer sweater. I liked him immediately and not just because he worked in Germany as a surgeon, no less. My sister gasped at the sight of my missing fingers and still fresh amputation below the knee. But I told her not to worry about me. I pretended that my old motorcycle accident had effected my circulatory system. I then garnished the white lie with a case of diabetes I never had. It was Christmas, after all. Everyone loves a tall tale. I followed that up with a loin of leg in a cherry glaze. 
+
+“I’m so glad you’re no longer a vegetarian,” she said, while attempting not to pity me. “You need to keep your strength up in your condition.”
+
+“I’m still vegetarian,” I said, as I poured extra cherry glaze on her plate. “Just don’t tell anyone.”
+
+My sister thought the pork/I was a little tough and didn’t mind saying so, but George wanted the recipe before he returned to Cologne. He had never read the Gazette but, when he followed me to the library in search of a recipe book, he insisted on examining my wound in a way that suggested that he might have answered the advertisement himself, had he been a subscriber. He could tell right away there was no hospital involved in the amputation and he said that his grandfather had reared pigs for Schinken ham in the most beautiful little corner of the Black Forest so he knew a thing or two about pork. He wheeled me back to the dining table and helped himself to a third helping of “pork” before we opened presents. My sister said it was a pleasant lunch and George even did the washing up on account of my missing fingers. 
+
+They both left in good spirits. 
+
+When I say “left” I mean George returned the very next day for leftovers. He brought his suitcase and medical kit and examined my limbs with the upmost professionalism. 
+
+“I think it might need to come off,” I suggested, as he scrutinized my legs and arms. He agreed every time. 
+
+“Yes it will. And that too. It will all need to be removed, eventually,” he said. I made sure to leave a copy of the Gazette on the counter so there could be no confusion on the subject.
+
+Judging by how frequently my sister called his cell phone, I think she was in love with poor George. She rang at the most inappropriate hour because she thought he was back in Cologne which he wasn’t. He was usually asleep on the sofa with a belly full of flesh on account of us having turned the second bedroom into an operating room. Eventually George said it would be suspicious if he didn’t answer so we played Kraftwerk and Marlene Dietrich in the background (though not at the same time) to make it sound like he might have been in Cologne. I thought we did a good job of keeping up our little charade, but I only had those two albums and, anyway, I still think it was my sister who eventually called the police. 
+
+After we harvested another “ham’ it was clear that both George’s surgical and culinary skills were far superior to mine. His grandparents must have been true artisans when it came to pork. Throughout the spring, I watched my biceps grow meaty from maneuvering the new wheel chair. I suspect George’s grandfather must have shared the same excitement at watching his sows grow plump and delicious as the slaughter season approached. From the comfort of my Creole townhouse in The Marigny, my body had become my very own Black Forest. We lived in a land of plenty. George, being German and in possession of a rapier wit, named my right arm Hansel and my left Gretel which, of course, made me the wicked witch. 
+
+You might think me worse than wicked—a barbarian perhaps—but I caused no more harm to the world beyond my walls than the old lady who swallowed a fly. 
+
+George wouldn’t harm a fly either, which is exactly what I told the police when they visited. They saw my diminished state and expressed concern about his capacity to care for me. I pointed out that he was a qualified doctor, a surgeon no less, but it was clear they thought he had nefarious intent. The larger of the policemen sat in my most comfortable chair, a recliner, and explained that George had, allegedly, cared for four other men in Cologne who had all undergone unnecessary amputations before their demise. I thanked the officers for their concern and promised to report any unusual behavior but I was shaking inside. My stomach felt hollow and I was in a constant sweat. I had been betrayed: the fact that George had already consumed someone else before our meeting was certainly news to me. 
+
+When he returned with the groceries (vegetables and herbs mainly, for we had all the meat we needed) I beat him with my stumps until the sutures ruptured. I cried and told him I would go no further. He apologized and soothed me by showing me what ordinary people who have never spanked their Frankfurt in public refer to as food-porn. It was this he wanted me to become. He assured me that I was the sweetest of all the men he had had the pleasure of eating. This was, I suspect, a direct result of my cannibal-vegetarian diet. You are what you eat, after all. People eat bad things, generally speaking, and I’m not just referring to junk food. Some make a whole performance of eating cars and trucks and bicycles and all manner of things that simply can’t be eaten for that stupid Guinness book of records. People eat rocks, drywall, cars, soiled diapers, live bees, batteries and light bulbs and bedsprings just because they feel like it. I guess humans are like worms through which the entire world must pass. Me? I am a loop in time: leftovers consuming leftovers. 
+
+And in the end, who needs to leave behind something so ungainly as a body? 
+
+You would be surprised at how many parts of your body you can do without too. I’m a stickler for research—ask anyone. George said that in WWII surgeons performed the first half-ectomy on fighter pilots crushed beneath their instrumentation. Surgeons sliced them in half like a magic act—tadaa! The patients survived and would have survived longer had they not been inclined to bouts of depression and taken their own lives. I guess they couldn’t see the magic in it. But I could. 
+
+Tadaa! 
+
+I must say, if ever there is such a thing as magic in the world then it comes in the form of phantom limb syndrome. After George performed my half-ectomy, I had no hips from which to leap, no shoulder joints from which to hurl a ball and yet I have never felt more active. My phantom limbs ran for miles along Elysen Fields Avenue and north, through the Rocky Mountains, all the way to Alaska. My arms swam down the Mississippi and out to sea and through the hurricanes and didn’t stop until they reached South America and the upper reaches of the Brazilian Rainforest. My phantom limbs were proficient in all manner of sports I never asked them to engage in. But when I looked down there was just air where the pumping limbs might have been. What was the point in all that exercise if my eyes called my body a liar? I had no choice but to ask George to remove them. When I say “them” I mean my eyes. We ate one each, lightly seared in a pan with onions and lemon. The imagination is far more active without sight. My hearing became more acute, my olfactory senses keener. I highly recommend it.
+
+I could tell the police had returned by the weary way they walked, weighed down by radios and guns and the foolishness of their investigation. Unfortunately, this time George was home. I tried to explain away my diminished size and pointed out that my eyes had turned septic (and by “septic” I mean delicious) but they took George away for questioning anyway. He was away a long time.
+
+I am not the nervous sort, but I did indeed start to panic. I called George’s name but the only reply was the gulls keening outside my window. I fell asleep and woke up and was not sure how many hours had passed but there were no more gulls so it was surely night. My ileostomy bag had over-flowed and my flesh was contaminated with the foulest smell. What if George didn’t return? Who would be my dinner companion? I couldn’t eat all this food by myself. When eventually the front door creaked opened and George called my name, his voice was shaking. The police had held him for two days and nights under the pretense of asking questions. As he carried me to the bathroom to clean me up, he was not moving well. He laid me in the tub and I could smell the nervous sweat that had dried on his shirt. He favored his left arm and there was a catch in his breath that told me his ribs were badly bruised.
+
+“Did they beat you?” I asked. 
+
+“Sticks and stones,” he said, but I knew he envied me. You can’t beat a man who isn’t there.
+
+He wiped away the crusted seepage that had spilled from my ileostomy bag and floated me in the fresh water. Had George not been a cannibal he could have found a job drawing baths in the nicest hotel in New Orleans. It’s not as easy as turning the water on, you know. You need to get the humidity of the room just right and the temperature of the water within a precise range. When you do, your body feels weightless and your breath invisible. I heard George open a glass bottle and listened as a few drops of lavender bath oil perfumed the room. It was sublime but there was certainly nothing sexual about the moment. How could there be? My sex had been removed in the half-ectomy along with everything below the navel. Yes, it’s true that George and I had both eaten my penis and testicles but it was far from a meal with erotic overtones. In fact, George had made Zürcher Geschnetzeltes which is a Swiss German dish usually made with veal. Cooked to perfection, he served it with a mushroom and white-wine sauce so aromatic that it made me wish I had testicles growing all over my body like mushrooms from which to harvest. When George eventually lifted me from my bath, he gently laid me on a towel and rubbed lotion into my scar tissue. 
+
+“How much is left?” I asked.
+
+The scales scraped on the tile floor and George folded a towel in quarters for padding. Even after we ate my eyes, George always balanced me upright on my spine so, in my mind’s eye, I could look down and see my weight. 
+
+“Fourty-eight pounds,” he said. “I could check you as luggage.”
+
+He cleaned my teeth with a new brand of toothpaste that tasted like red Tic-Tacs and took me to bed. He no longer slept on the sofa. At two-foot tall, I was smaller than the overpriced teddy bear I used to sleep with as a kid. I could tell he was tired on account of being interrogated by the police without sleep for two days but he wanted to talk about something. Finally he said: “What should I make for my first meal alone?”
+
+I had not kept track of our meals but, from the way we had feasted and the sound of the single bag of flesh clanking around in the chest-freezer, I knew our supply was getting low. Without ever having to leave New Orleans, we had taken a culinary tour of all of Bavaria and the Rhineland. We had eaten bratwurst and liverwurst with senf; königsberger klopse meatballs; sauerbraten pot roast; schweinshaxe and speck; and baked the leftovers into a [leberkäse](https://en.wikipedia.org/wiki/Leberk%C3%A4se)\-style meatloaf. The neighbors must have thought we were opening a restaurant. Ultimately, though, there was one meal I couldn’t share with George: the meal that would finish me . He could eat my beef-heart stew or spread my brains on toast with parsley and lemon but it was Christmas again. The festive season.   
+
+“I don’t want you to eat alone,” I told George. “Take my sister to midnight mass then treat her to a good old-fashioned Réveillon feast.”
+
+It’s a Creole tradition in these parts, to feast until dawn. I wanted to swim in a bouillabaisse with the freshest sea scallops or be pureed with leeks and truffle cream. I imagined the searing heat of applewood smoked bacon against my lightly grilled cheek. I wanted George to swallow the last of me and know me more completely than I ever could.
+
+He called my sister and extended the invite. She seemed distant and nervous which I thought was on account of her still being in love with George, herself. In hindsight there was clearly someone listening.
+
+On Christmas day the house was filled with the aroma of sauce and spice and I was confident that this would be a feast like no other. Then my ears picked out the familiar lumbering step on my porch and I knew something was wrong. The door burst off its hinges and somewhere among the men’s voices I could hear my hysterical sister. She was weeping and swearing and it was clear she was not going to stay for dinner. The police handcuffed George and he cried out in pain. 
+
+“Don’t hurt him!” I yelled, but no one cared to listen. 
+
+A pair of hands transported me to a dog carrier which smelled of piss from frightened animals. The very idea that I might try to escape was completely absurd. I screamed and shouted and called them all manner of names that I am embarrassed to repeat. Someone turned off the stove and took the chest-freezer into evidence. Our Christmas was ruined.
+
+No one listened to me at George’s trial. All they wanted to know was whether I was of sound mind. It was clear to everyone that I was. I even had my lawyer show them the letter I wrote last Christmas when I had hands and was not yet the distillation of my former self. But they didn’t care. They found him guilty and put George on death row where he will never eat anything as delicious as me again. 
+
+I hope beyond hope that when he is served his last meal, that they come for me in my hospital bed and cut out my tongue and give half to him and half to me. No sauce, no salt, no pepper or spice. Just raw and bloody. A final kiss under the cannibal’s mistletoe.
