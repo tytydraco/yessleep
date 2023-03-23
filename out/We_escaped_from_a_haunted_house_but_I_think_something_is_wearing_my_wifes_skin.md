@@ -84,6 +84,6 @@ When I woke this morning, my lips had returned and my children were sleeping saf
 
 I could no longer deny the truth. The thing next to me was not May.
 
-That brings us to the present. I think I have  to get my children out of here and go back to Whitewall House.
+That brings us to the present. I think I have to get my children out of here and go back to Whitewall House.
 
 [X](https://www.reddit.com/r/dominiceagle)
