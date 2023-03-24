@@ -26,7 +26,7 @@ Dad had let me hold a knife, and taught me how to properly hold a gun, and mom g
 
 Our elementary school teacher had told my class as little kids, that The Urge was part of growing up, and if we fought it, if we tried to get out of it, our mind and body would face the consequences. She didn’t elaborate, though I didn’t really want her to. All our teacher had to say was “bleeding from the mouth” and “severe reaction in the brain” and I was already squirming, along with my twelve other classmates. The Urge became something I anticipated instead of fearing. Because, if I got it—if I had my first kill as young as my mom, then my parents would be proud of me. 
 
-When I first middle school, our neighbors were caught killing and cannibalising their children, turning them into bone broth. I knew both of the kids. Clay and Clara. I had played with them in their yard and eaten cookies with them.
+When I started middle school, our neighbors were caught killing and cannibalising their children, turning them into bone broth. I knew both of the kids. Clay and Clara. I had played with them in their yard and eaten cookies with them.
 
 Clara told me she wanted to be a nurse when she grew up, and Clay used to tug on my pigtails to get my attention. They were like siblings to me. No matter what my parents said, or my teacher’s, my gut still twisted at the thought of my neighbors doing something like that. Days after the cops had arrived, I saw Mrs Jenson watering her plants. But when I looked closer, there was no water. She was just holding an empty hose over her prize roses.
 
@@ -202,7 +202,7 @@ Was that normal?
 
 Mom always insisted if it was our time, it was our time. If someone attacked us, even family members, then we accepted it.
 
-I caught the moment her elbow slam into the boy’s mouth, just as he drove the blade of the knife into her skull. Until then, he had been panting and laughing, his eyes lit up with an insanity I only knew from my mom’s tales. 
+I caught the moment her elbow knocked into the boy’s mouth, just as he drove the blade of the knife into her skull. Until then, he had been panting and laughing, his eyes lit up with an insanity I only knew from my mom’s tales. 
 
 She told me stories where her friends had gotten pleasure from killing. As quick as it had come, though, the euphoria of taking someone’s life left the boy’s eyes, and he dropped to the ground, one hand over his mouth, the other slipping from the knife. 
 
@@ -210,7 +210,7 @@ The teacher was already commenting on no murder allowed in class and ordering Ka
 
 And then my gaze was flicking to his expression which was definitely not what I was expecting. Replacing joy and unbridled pleasure was fear. His eyes were wide, frightened, lips twisted.
 
-It was the exact same expression I had seen on Mrs Jason. A cocktail of confusion and pain, followed by a sense of emptiness. Like neither of them could understand where they were, or even who they were. I guessed that was what The Urge did, or the variants which contorted in people and made them reject it. 
+It was the exact same expression I had seen on Mrs Jenson. A cocktail of confusion and pain, followed by a sense of emptiness. Like neither of them could understand where they were, or even who they were. I guessed that was what The Urge did, or the variants which contorted in people and made them reject it. 
 
 Like a wounded animal, Kaz’s frenzied gaze scanned our faces and he blinked, before realising his nose was bleeding. “Fuck.” He muffled under his hand. The boy jumped to his feet, and in three shaky strides, he was pulling open the classroom door and disappearing down the hallway in a stumbled run. The next day, the boy came to class with his usual smile.
 
