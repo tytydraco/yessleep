@@ -1,5 +1,9 @@
 Edit: to remove Vivian’s last name.
 
+Edit 2: Ok. Lua and I talked most of the night. All my intuition is telling me there’s nothing supernatural going on. Viv’s wake is tonight so I really don’t have a ton of time to update but I may write something up after that.
+
+&#x200B;
+
 I found my friend’s journal, it’s really fucked. He got fired from his job this week, I drove by and saw cops outside his house. Apparently police took him away to a mental health facility and he just got back today. He can’t be alone so I’m staying with him but I looked through his journal. I know, spare me. It’s too much I don’t know what to do. Should I get anyone else involved? Her funeral is tomorrow and we/I just need everything calm.
 
 *“I spent last night in a mental ward. I don’t really want to go into why. It involves a suicide attempt, police, an overprotective mother…anyway, this is what I wrote down while I was there. It’s also why I was there.*
