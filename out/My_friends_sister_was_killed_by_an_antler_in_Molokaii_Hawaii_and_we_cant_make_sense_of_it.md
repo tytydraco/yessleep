@@ -1,8 +1,10 @@
-I found my friend’s journal, it’s really fucked. He got fired from his job this week, I drove by and saw cops outside his house. Apparently police took him away to a mental health facility and he just got back today. He can’t be alone so I’m staying with him but I looked through his journal. I know, spare me. It’s too much I don’t know what to do. Should I get anyone else involved? Her funeral is tomorrow and we/I just need everything calm. 
+Edit: to remove Vivian’s last name.
+
+I found my friend’s journal, it’s really fucked. He got fired from his job this week, I drove by and saw cops outside his house. Apparently police took him away to a mental health facility and he just got back today. He can’t be alone so I’m staying with him but I looked through his journal. I know, spare me. It’s too much I don’t know what to do. Should I get anyone else involved? Her funeral is tomorrow and we/I just need everything calm.
 
 *“I spent last night in a mental ward. I don’t really want to go into why. It involves a suicide attempt, police, an overprotective mother…anyway, this is what I wrote down while I was there. It’s also why I was there.*
 
-*“My sister Vivian Jackson, who was alive until Sunday evening of this week, was an environmental scientist working in Moloka’i, Hawaii. Fun fact: on Moloka’i there are more than eight Axis deer for every human being. These are not to be confused with whitetail deer which are found more in the continental United States, but notably not in Hawaii and definitely not on Moloka’i. I make this distinction deliberately.*
+*“My sister Vivian, who was alive until Sunday evening of this week, was an environmental scientist working in Moloka’i, Hawaii. Fun fact: on Moloka’i there are more than eight Axis deer for every human being. These are not to be confused with whitetail deer which are found more in the continental United States, but notably not in Hawaii and definitely not on Moloka’i. I make this distinction deliberately.*
 
 *On Sunday evening Vivian and her husband Harrison were driving down the highway \[which?\] in Moloka’i, or rather up into the hills. Viv’s work involved gathering various samples from the deer population there. Axis deer were introduced into Hawaii as a gift to King Kamehameha I in the late 19th century So they do not occur naturally. They are wreaking havoc on the population there and that’s what Viv’s work was contributing to, although I admittedly and regrettably don’t understand what she was doing as well as I would have hoped. I should have asked.*
 
