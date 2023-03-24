@@ -162,7 +162,7 @@ Absorbing the sudden truth, the emptiness evolved into anger.
 
 “Let me get this straight. We, living our lives down there, are puppets to you? Is that it? Just an endless cycle of digital paradise, kept in the dark of all you’ve just told me? How can you possibly justify this?!”
 
-“Calm down. Having your memories wiped is a luxury I cannot afford. Anyway, that’s only the preface of what I need to talk about. I’m sure you also noticed the tremors, down there?”
+“Calm down. Having your memories wiped is a luxury I myself cannot afford. Anyway, that’s only the preface of what I need to talk about. I’m sure you also noticed the tremors, down there?”
 
 “The tremors? Oh, oh yeah. Sort of ruined my plans, but I guess it doesn’t matter now.”
 
@@ -262,7 +262,7 @@ The twisted buildings coiled toward the sky, gargantuan talons holding captive e
 
 The tsunami came closer, before stopping at the city’s outskirts, leaving only a towering earthen spire of suffering, flaming bolts cracking down upon it.
 
-“Admin, *what is going on?!*”
+“Admin, ***what is going on?!***”
 
 They paused for a moment, then continued working on the several locks barring our entry.
 
