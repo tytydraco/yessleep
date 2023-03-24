@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/1209wv8/we_escaped_from_a_haunted_house_but_the_horror/)
+
 It looks like her, but I don’t think May ever left the unhallowed halls of Whitewall House.
 
 The children hated our new home from the moment they first laid eyes upon it. We drove along a disused gravel driveway, past the dilapidated farm of a long-gone man.
@@ -85,5 +87,7 @@ When I woke this morning, my lips had returned and my children were sleeping saf
 I could no longer deny the truth. The thing next to me was not May.
 
 That brings us to the present. I think I have to get my children out of here and go back to Whitewall House.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/1209wv8/we_escaped_from_a_haunted_house_but_the_horror/)
 
 [X](https://www.reddit.com/r/dominiceagle)
