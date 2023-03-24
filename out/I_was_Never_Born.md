@@ -2,7 +2,7 @@ Like many of you, I read the [story](https://www.reddit.com/r/nosleep/comments/1
 
 I'm a c-section baby. I'm also completely paralyzed. A drunk driver hit me while I was crossing the road. (Don't drink and drive, people.) I live in the hospital now, only able to move my eyes, and my mother is my connection to the world.
 
-I'd never felt that connection when I was healthy. My own senses dominated. But now my days are stale. I can't eat. I can't feel. At night, the only sounds come from the machinery around me.
+I'd never felt that connection when I was healthy. My own senses dominated. But now my days are stale. I can't eat. I can't move. I can't feel. At night, the only sounds come from the machinery around me.
 
 It was at night when I first noticed.
 

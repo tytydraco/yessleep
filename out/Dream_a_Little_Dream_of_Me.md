@@ -1,0 +1,21 @@
+Earlier this year, I was dealing with the fresh aftermath of my breakup and sleep was a stranger. I couldn't find rest since my mind was racing with the questions and confusing answers I got from my ex. In the day, I would find the courage to start writing my manuscript for work, which exhausted me mentally. My eyes wouldn't feel tired but I desperately needed sleep. 
+
+I was dreaming about whispering something to my ex-boyfriend's ear. But I was a speck -- just a silhouette behind him. My senses came alive when my view shifted to my bed. It showed me how I would see my bed if I was lying on my right side, clutching my stuff toy penguin close to my chest. Suddenly, there was movement. It felt off, and right there, I knew I was still dreaming.
+
+My dream mind takes the processing slow, but my surroundings didn't agree. There was someone on the bed beside me. My instincts told me that it was the one with the rapid movement. I looked up and witnessed it. It was a lady sitting skeptically straight and staring down at me. Half of her face was in darkness, and now that I'm writing this, I still couldn't be sure if it was a void or just the room placing shadows.
+
+Feeling stupidly brave and confused, I held up her stare. She didn't move, still shooting daggers at me. People have told me I am able to gauge their current emotions, so I wasn't unsure when I knew how angry the lady was. I could feel her intense emotions as if it wasn't just a dream.
+
+In times like this when my dream gets creepy, I could almost always push myself to wake up. And when I did, I was so terrified of closing my eyes again. The lady might still be there, waiting for me to come back and see her again.
+
+I stayed awake for hours until I could no longer hold it. I don't remember anything about what happened after I closed my eyes. But the dream lady didn't stay quiet for long. My roommate met her just last weekend.
+
+We are four in one unit and we are close with one another, so it's not unusual if we tell each other our dreams sometimes. My other roommate went to sleep very late that night, only to wake up in the middle of the devil's hour. She woke up in the same position that I did. On her side, she saw that she was cuddling something — someone. At first she thought it was her older sister, so she started stroking its hair. But realization dawned on her. She wasn't at home and her sister doesn't live in our apartment unit. It was something else.
+
+Stopped in her tracks, my roommate froze in fear. Who is this entity? She then stopped stroking its hair, terrified of its concealed identity. The lady, or "entity" as we pertain to her, was now growling and struggling. Such an eerie sight, but my roommate managed to wake up in time before the growling gets out of hand.
+
+After recounting her dream, I asked her if the entity was a lady with unruly wavy hair that spans up to her torso. She was livid and shocked as I gave the entire description of the entity she met. Its hair was unkempt, as if she forgot to brush it after taking a bath that it dried on its own unruly way. I wasn't able to touch it, but deep in my mind I know how it is terrifying to hold something eerie while dreaming. The sensation would linger, and you would subconsciously think about it when you see your reflection and brush your hair.
+
+Contrary to hers, I didn't hear any growling in my dream. But I saw her face. It was half a dark shadow and a manifestation of something menacing but almost strange to even exist. It had a blinding white circle for eye that had hurt to look at. As uncomfortable as it was, it still was hard to take your eyes off her face.
+
+I even thought it was my future self getting mad at me for even thinking about seeing my ex in dreams. Now the thought of it sends chills down to my marrow. When one of the roommates saw her too, I know it has nothing to do with the ex. It is something else. We're not sure if this entity lives in our apartment or was just a creation of our exhausted minds trying to get some sleep. To have some sort of safety in any sense, we all agreed to convene once anyone meets the entity, first time or not.
