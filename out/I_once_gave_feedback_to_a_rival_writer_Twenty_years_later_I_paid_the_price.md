@@ -10,7 +10,7 @@ I woke in a well-lit basement covered in wall to wall inspirational quotes. Lite
 
 “So the great Elliot White actually recognizes me after all these years,” he said, a little too impressed with himself. “I guess I shouldn’t be surprised. After all, you did say my story had promise.”
 
-I tried to get up from the chair I was sitting in and realized my hands and feet were ziptied in place. The more I writher, the tighter my bonds became.
+I tried to get up from the chair I was sitting in and realized my hands and feet were ziptied in place. The more I writhed, the tighter my bonds became.
 
 “I said what now?” I asked, trying not to betray my growing sense of panic.
 
@@ -66,7 +66,7 @@ He nodded.
 
 Ever so carefully, he approached me with a pair of scissors. For a second he hesitated, as if considering jabbing me in the throat. Then he snipped free my left wrist and quickly backed away, tossing a stapled printout of the story at me from a safe distance.
 
-The story wasn’t long, maybe four thousand words. It had been over twenty years since I read the original, but the gist was still the same: Joel, a college senior, thinks of himself as a romantic idealist and tries to convince Susa, a high school sophomore to run off with him to Mexico, “where they can get married and live out their days on the beach, surrounded by an army of beautiful children.” The whole thing we pretty vomit-inducing.
+The story wasn’t long, maybe four thousand words. It had been over twenty years since I read the original, but the gist was still the same: Joel, a college senior, thinks of himself as a romantic idealist and tries to convince Susan, a high school sophomore to run off with him to Mexico, “where they can get married and live out their days on the beach, surrounded by an army of beautiful children.” The whole thing was pretty vomit-inducing.
 
 I tried not to show any reaction as I finished the last word.
 
@@ -86,11 +86,11 @@ And in a way, it was true. The story truly was terrifying. If I’d seen it from
 
 But in a deeper way, the story was shit. It had always been shit. It would always be shit. And what he’d been doing for the last decade was polishing shit.
 
-And if I hadn’t been afraid for my life, I might have told him my real advice: to give up on it. This story was for practice. Maybe the next one would be better and than the next one after that. Maybe he’d need to write ten thousand pages, and then finally, on the ten-thousand and first page, he’d actually produce something good.
+And if I hadn’t been afraid for my life, I might have told him my real advice: to give up on it. This story was for practice. Maybe the next one would be better, and then the next one after that. Maybe he’d need to write ten thousand pages, and then finally, on the ten-thousand and first page, he’d actually produce something good.
 
 That wasn’t to say revisions were worthless. Usually, they helped. You could go from okay to good. Even good to great. But sometimes, you just had a fucking trash fire, and no amount of fiddling with the garbage was going to save it.
 
-“Extraordinary,” he muttered to himself, walking over and grabbing his sword. “Extraordinary.” Has I said the wrong thing? I imagined all the places where he might plunge the blade? Was he the sort of man who’d kill me quickly, slashing my throat or burying the steel in my ribcage? Or was he the cruel kind who’d want me to suffer, slicing open my stomach, matching me bleed out slowly.
+“Extraordinary,” he muttered to himself, walking over and grabbing his sword. “Extraordinary.” Has I said the wrong thing? I imagined all the places where he might plunge the blade. Was he the sort of man who’d kill me quickly, slashing my throat or burying the steel in my ribcage? Or was he the cruel kind who’d want me to suffer, slicing open my stomach, watching me bleed out slowly.
 
 “Anthony,” I said, ready to beg. “What I meant was–”
 
