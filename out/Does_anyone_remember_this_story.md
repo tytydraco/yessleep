@@ -1,71 +1,23 @@
-I read this story on some horror forum online… God, it must’ve been 10 years ago now, maybe more.
+It's been about 9 years since I've heard this story and I am in not a very skilled story writer so bear with me. I also may not get all of the details exactly right. 
 
-It always stuck with me. I don’t know why. It wasn’t particularly well-written, and the concept has been done to death. But even now, all these years later, I’ll catch myself thinking about it. Or I’ll see a picture on the wall and I’ll remember.
+I honestly don't even know if this story actually existed and was just made up by the kids I went to school with, but a lot of my classmates used to recite this story an awful lot so I figure it may have come from the internet. All I know is that it used to creep me out. Keep in mind there were a few alternate versions of this story but I'm going to stick to the one I heard the most.
 
-The story went something like this:
+So anyway, it went something along the lines of this:
 
-A guy moves into a house. It’s old, has a lot of history, he gets it cheap. So, he gets settled in, everything is perfect. And then a few weeks later, he discovers there’s a woman in one of the paintings on the walls, a woman who wasn’t there before. It’s a landscape painting, she’s wearing some sort of old-fashioned clothing… maybe Victorian? Probably Victorian. That’s how all these stories go. She’s got long black hair and pale skin and deep, staring eyes. Looking at her sort of creeps him out.
+There is this family of three, a mother, father and daughter. The daughters name was Sally and I don't think the parents were named originally but for the sake of this retelling I will call them Mary and John.  I cannot for the life of me remember accurately the reason why, but there comes a point where Mary and John decide to get rid of their daughter. I may be wrong, but I believe it could have been because of her bad behavioral issues and the fact that she was just a really horrible kid. So anyway, by get rid of I mean they literally take sally to a random location in the middle of nowhere and just leave her there. Again, I'm a little foggy on the details but I'm pretty sure the parents decide to murder her and dump the body somewhere that it won't be found. a bit extreme but to each their own I suppose. So once the body is delt with John and Mary return home and go to bed. 
 
-He thinks he just hadn’t noticed her before, tries to write it off as the fallibility of the human brain, but then she shows up in other painting. And then in family photos, he starts seeing her in the background. It gets worse when she starts showing up in mirrors, and now the guy’s hearing creaks and bumps in the night, feels like he’s being watched, sees things out of place that he can’t account for.
+fast forward about a couple of weeks and the parents are in bed trying to sleep when John is awoken by the faint sound of a voice. Concerned and scared, he gets up to go and check it out. He searches the house but finds nothing and assumes it was just a dream. The following night the same thing occurs but this time the voice is heard by both parents. John explains his experience from the night prior and both him and his wife become increasingly worried that someone may be in their house. Both sit quietly for a moment until they hear the voice again. They begin to realize that the voice is repeating itself every few seconds, though they can't seem to make out what it is saying as it is too quiet. Suddenly the voice stops. John hesitantly scouts the house once again but finds nothing. 
 
-Finally, he wakes up one day, walks downstairs and finds images of the woman sketched over every square inch of the walls, and every drawing seems to stare directly at him.
+The next night Mary is unable to sleep due to her paranoia about what had happened previously. In an attempt to ease her mind, she checks that all the doors and windows in the house are locked. After getting back into bed and hoping to fall asleep she suddenly hears the voice again. terrified, she quickly wakes her husband. Like before, the voice seems to repeat itself with an interval of a few seconds, though this time it's different. This time the voice has become slightly louder and clearer. John and Mary are petrified when they recognize the voice as none other than Sally's. They sit in fear as Sally's voice softly and repeatedly chants the words "Sally is 70 miles away". After speaking these lines for several minutes, the voice stops once again. John and Mary consider calling the police but ultimately come to the conclusion that this would be a risk as it could get them caught.
 
-It was one of those stories that had a picture with it. It was supposedly one of the walls with the woman sketched over and over on it. The sketching wasn’t very good, but there was something unsettling about the picture all the same.
+From that night onward John and Mary would try their best to ignore the horrifying voice of what seemed to be their own daughter chanting each night. Since the police were not an option, there was really nothing they could do but hope that it was some kind of prank or something. They really didn't know what to believe, there was no way that this could be possible, hearing their own deceased daughter's voice. They had noticed that a family with seemingly troublesome children had moved in next door not long after Sally's death. Mary had witnessed these kids messing around with other people's property before, like damaging mailbox's and such. With this in mind Mary and John hoped that they were just being messed with; however, as time went by and the chanting continued, things only got more unsettling. Each night the voice would get louder and seem closer and would say the same thing but with one small difference every time; it would claim to be closer each night. When the voice first became audible to John and Mary it spoke the words "Sally is 70 miles away" and the night after that "Sally is 60 miles away", and then 50, 40, 30 and so on. By this point both parents would refuse to sleep, staying up all night scared and disturbed as to what they were hearing until one night, it stopped. 
 
-Like I said, not the best one out there. We never find out who the woman is or why she’s tormenting the poor narrator. We don’t know why she suddenly appears on the walls. There’s no resolution, and the climax leaves something to be desired.
+Finally, after a week of listening in horror and being deprived of sleep, Mary and John were able to get some sleep. Things returned to normal and though their experience had left them terrified, the couple tried their best to forget both what had happened and what they had done to their daughter. They had moved on and were living their lives normally.
 
-And yet.
+This was until one night, after several weeks, they heard the voice again. This time it was the loudest and closest it had ever been. John and Mary were in complete disbelief as to what they were hearing. Mary on the verge of tears, yelling out for the voice to stop while John sat silent, too scared to talk. Again, the voice would say it's chant but this time it was different, this time it began with "Sally is at your front door". A few moments later the voice would speak again and say, "Sally is in the kitchen". By this time John and Mary were the most scared they had ever been in their lives, with the covers pulled up to their mouths they sat unable to move looking straight ahead waiting and hoping it would go away. After almost a minute of waiting, the voice spoke again, "Sally is at your bedroom door".
 
-I’ve tried to find the story again but I never could. Maybe the author deleted it. I wish they hadn’t. I’d like to see that picture again.
+A few weeks later the parents were found dead in their bed covered in blood.
 
-A few weeks ago, mom asked my help in going through some of great-grandma’s things. We come from a family of packrats with a strong interest in genealogy, meaning that throughout generations, we’ve kept and recorded just about everything, squirreling it away to sit untouched in our attics.
+&#x200B;
 
-My mom inherited a lot of these artefacts of our family history from her mother, and since I’m the only one of us children who’s shown an interest in our ancestry, I’ll inherit them after she dies. So it was in my interest to help her sort through great grandma’s things (and maybe convince her to get rid of some of the more damaged items if I could).
-
-We ended up bringing her photo albums downstairs and spent part of the afternoon just paging through them, mom pointing out the people she knew, which was most of them.
-
-And then we came to this one picture.
-
-It wasn’t in a sleeve – it had been just tucked between two random pages. It was an old black and white polaroid of a woman in a long dress. She was staring impassively at the camera, her mouth twisted into a slight frown. She had this beautiful long hair and piercing eyes. Her hands were folded in front of her.
-
-And something about her just felt familiar.
-
-I asked my mom who she was, but she couldn’t place her. There wasn’t anything written on the back of the photo to give us a clue.
-
-The last time my mom had looked at the album had been years… over a decade, maybe more. She didn’t recall ever having seen the picture, couldn’t imagine she would have left it there, out of place as it was.
-
-I asked her if I could take it with me, on a whim, and she agreed. I couldn’t get that strange sense of familiarity out of my head. It wasn’t until I had gotten all the way home and through my front door that it hit me – she looked like the woman in the story.
-
-Obviously, there hadn’t been any good pictures of the woman in the story. Just drawings. What I mean is that she looked *exactly* like I’d imagined her. Down to the curved wave in her hair and the placement of her hands. That’s when I remembered another detail of the story that I’d long forgotten – the woman had her hands clasped in front of her in every picture, but in the drawings on the walls, she was reaching out as if to grab the narrator.
-
-I called my mom and told her about the story and the picture. I could tell she thought I was reading too much into things – she’s a pretty practical and skeptical person. She did agree to go through great grandma’s writings and papers and see if she could figure out who the woman could be.
-
-The next time I spoke to her was at my brother Nathan’s memorial. It was just a few days after we found the picture. Ten years ago, Nathan was found in his home, his throat cut. He was only 34. Although the police investigation into his death picked up momentum almost immediately, nobody was ever charged for the crime. Our family has thoughts on who might have done it, but we’ve never been able to prove anything. We probably never will. Each year on the anniversary of his death, we have a little family gathering to remember and mourn.
-
-So we were at mom’s house, looking through old pictures of my brother and remembering. Mom had already told me that she hadn’t found any information on the picture we’d found days before. It was about what I had expected. I had decided to just stow the picture away and forget about it when I came across this certain picture of my brother.
-
-It was from his housewarming party, taken just a few months before his death. He was standing with his arm around me and we were both making these stupid faces at the camera. I’ve looked at that photo thousands of times by now, but this was the first time I really noticed the painting in the background. It was a landscape painting, showing rolling hills dotted with trees. And there, standing next to one of the trees was a figure. I had to squint to make it out, but it looked like a person. A woman.
-
-I was distracted for the rest of the memorial. I took the picture with me when I went home and I just sat there and stared at it, wishing I could see the painting a little better.
-
-With that story on my mind and the picture mom and I had found, it was hard not to connect the dots, even though I was half convinced the dots I was connecting didn’t actually exist. Clearly, I was reading too much into it. Nathan’s death was hard on me and I’m always a little off around the anniversary. I was seeing things that weren’t there as a way of coping with the fact that my big brother’s murderer will probably never face justice for what he did.
-
-I put both of the pictures in my bedside drawer and decided to leave well enough alone. Maybe another day when I was feeling more like myself, I’d look at them again. Maybe.
-
-Weeks passed by and gradually my uneasiness faded. It became easier to see it all as a product of my imagination. I’ve always been the imaginative sort, anyway.
-
-And then, yesterday.
-
-I got up to get dressed for work and walked into the bathroom. As I passed by the mirror, I saw someone else standing in there with me. A woman, with dark, wavy hair and piercing eyes, her hands folded primly in front of her.
-
-I whirled around, only to find myself alone. When I turned back to the mirror, her image was gone.
-
-It was her. I’m sure it was her.
-
-I haven’t stopped thinking about her since then. Or that story. Was it a story? Did I get all the details right? Maybe she showed up in the mirror first, was that it? What exactly happened after that? The story ended with her image scrawled all over the walls… but what came after that? Did the person ever write an update?
-
-I need to find the author. I need to know if it was who I think it was, and if so, why he didn’t tell me what was going on. Is it somewhere in his journals?
-
-If you remember this story, please help me find it. Something terrible is about to happen, is *already* happening to me, and I need answers.
-
-And I’m afraid the only one who could give them to me is dead.
+well, that was longer than I thought it was going to be. As I said at the beginning there were a few different versions of this story going around and this one might be pretty modified from the original, but this is the one I was told. Whether this is the actual story or not, it followed the basic premise of this.
