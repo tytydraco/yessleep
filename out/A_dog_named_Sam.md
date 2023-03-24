@@ -18,4 +18,6 @@ Sam was still there, but it was getting late. I wanted to help. I decided to cal
 
 I called the number and an older man politely answered the phone. I explained I had Sam, I gave him water and he's just hanging out with me here but the gas station is closing soon so it would be best for you to come pick up Sam. He seemed perplexed and asked me to describe Sam to him. I did, Sam looked like a mutt/lab mix, darkish brown coat, med-large size dog, very friendly disposition. Just a regular ol' "good boy." What the man said next has been rattling around my brain for the last 24 years. The man said, "**We had a dog named Sam, but he passed away a good 10 years ago**" I was dumbfounded and all I could do was describe Sam again, to which the man said ya that sounds like Sam but no way it could be, it just can't be. He was polite and we talked back and forth a bit more but with no resolution, we hung up.
 
-I was unsure about what to do next. But I quickly realized that there was nothing for me to do... Just like the hippie kids, Sam too was now nowhere to be seen. He just vanished.
+I was unsure about what to do next. But I quickly realized that there was nothing for me to do... Just like the hippie kids, Sam was gone… nowhere to be seen. 
+
+He just vanished.
