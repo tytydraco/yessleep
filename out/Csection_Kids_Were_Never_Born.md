@@ -50,4 +50,8 @@ sorryy im seeing spots an camt breathe but i havw to warn evryone . sid comfirmd
 
 \-----
 
+[More](https://www.reddit.com/r/nosleep/comments/12011ol/i_was_never_born/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+\-----
+
 [SR](https://www.reddit.com/r/Skittishreflections)

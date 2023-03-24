@@ -76,7 +76,7 @@ It didn't take long for everyone to see that we had nothing to do with this inhu
 
 We were freed of suspicion, but not of curiosity. They even got me an electronic board that monitors my eye movements so I could type my replies. I found all the attention exhausting. Thankfully, my mother took care of answering all the questions, sparing me any discomfort. We never told the truth.
 
-Until today. I don't know if every c-section baby is able to nurture this innate connection, or if it's just something unique between my mother and me, but after reading that story yesterday, we agreed to finally share.
+Until today. I don't know if every c-section baby is able to nurture this innate connection, or if it's just something unique between my mother and me, but after reading that story yesterday, we agreed to finally share our experience. As for what will happen after my mother passes, we don't know, so we've decided to remain optimistic.
 
 \-----
 
