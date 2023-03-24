@@ -28,3 +28,5 @@ That was more than enough to snap me out of it and sent me flying back up the st
 ——————————————————————
 
 I just had to stop reading there, my head started pounding really bad, my gut felt like it was ready to turn inside out, and damn I’m tired, it feels like I haven’t slept in days, I’m going to go splash some water on my face and drink something and see if I feel any better after.. I’m also worried that the code this guy is talking about in the log might have snuck its way into the roms, I did see the cycling colors that he was talking about after all…. But this is a commodore not an Atari, it should not be able to run on this machine… like at all… unless… it adapts… I’m going to have to do some research on it, what do you all think this code does ? If I can find it in the machine, will I be able to reverse engineer it ? We will see, first I need some sleep…
+
+For next part check : [Here](https://www.reddit.com/r/nosleep/comments/120wnig/i_found_something_an_eyeball_part_3/)
