@@ -391,3 +391,7 @@ We had a conversation, and I’d almost decided they were full of shit, until a 
 
 
 I don't know if I do.
+
+Link To The Klink
+
+https://www.reddit.com/r/nosleep/comments/11y9h8q/the_klink_mikes_story_part_1/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
