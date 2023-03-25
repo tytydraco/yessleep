@@ -6,7 +6,7 @@
 
 “Everywhere!” she screamed. I tried to get her address, but she was so hysterical that she kept yelling for help. Eventually, she calmed down enough to give me her street. I heard new voices in the background, all shrieking.
 
-“We have a unit on the way,” I said. “Just stay on the line with me. It’s going to be OK.” 
+“We have a unit on the way,” I said. “Just stay on the line with me. It’s going to be OK.”
 
 “No,” she whispered, barely audible over the screaming in the background, “it isn’t.”
 
@@ -32,7 +32,7 @@ A few minutes later, I was in the break room, getting a coffee, trying to stop m
 
 “Oh God, she bit me!” Shea’s partner said. “She bit my fucking thumb off!” I heard another series of gunshots, then the slamming of car doors.
 
-“Go, go, go!” one of them said, and I heard the squealing of tires. 
+“Go, go, go!” one of them said, and I heard the squealing of tires.
 
 “Oh, fuck, what is that?” Shea said, then his voice came in over the radio. “Dispatch, this is Shea, and we have a major obstruction blocking the intersection of Kansas and Main. It looks like… I know this is going to sound batshit insane, but it looks like a pile of bodies. Literally hundreds of them, stacked on top of each other like firewood. Maybe they’re just mannequins, I don’t know, but most of them look like they’re bleeding. We need back-up immediately, and emergency medical services as well. Trooper Ingraham lost a finger when we got surrounded by a dozen drugged-up or sick lunatics back there. One of them bit me on the damn calf through my uniform, but I don’t think it will require medical attention. They were biting, scratching and hissing like snakes… there’s something wrong here, I’m telling you.”
 
@@ -52,7 +52,7 @@ I slammed on the brakes a few feet away from them, but they didn’t stir. I tri
 
 As I looked down from their faces, I realized they were both viciously sawing at their bodies, opening up shallow slice after shallow slice. A waterfall of blood began to run down their skin, soaking into the pavement. I nearly threw up in disgust. I backed up, driving on my neighbor’s lawn to get around them, putting down the window to yell as I passed by.
 
-“What the hell are you doing, Mr. James?” I screamed at him. “Stop this now!” I wondered whether I should jump out and try to stop them, but with their current mental states, I felt they might be just as liable to stab me as not if I got out. 
+“What the hell are you doing, Mr. James?” I screamed at him. “Stop this now!” I wondered whether I should jump out and try to stop them, but with their current mental states, I felt they might be just as liable to stab me as not if I got out.
 
 Suddenly Mr. James’ eyes came down, focusing directly on mine, and the knives stopped moving. The little girl grinned at me, waving the blood-soaked butcher knife back and forth, sending droplets of crimson spraying on my car and on her dress.
 
@@ -68,21 +68,21 @@ Suddenly Mr. James’ eyes came down, focusing directly on mine, and the knives 
 
 “Anthony,” I whispered, looking at him. My head throbbed painfully. “How did you get rid of that *thing*?” I asked. He shrugged.
 
-“I can do weird stuff sometimes,” he said. “Like during my birthday party last year.” I remembered the birthday party clearly. We had a clown who juggled and cartwheeled and did all sorts of tricks for my son and his friends. My son said he could juggle too, and he wanted to show the clown. 
+“I can do weird stuff sometimes,” he said. “Like during my birthday party last year.” I remembered the birthday party clearly. We had a clown who juggled and cartwheeled and did all sorts of tricks for my son and his friends. My son said he could juggle too, and he wanted to show the clown.
 
-He had run into the house, grabbed a few of our knives and started throwing them up in the air. They seemed to slow down as they rose, floating slowly over his head. They fell as if through water, and Anthony grabbed them easily and threw them back up in the air. 
+He had run into the house, grabbed a few of our knives and started throwing them up in the air. They seemed to slow down as they rose, floating slowly over his head. They fell as if through water, and Anthony grabbed them easily and threw them back up in the air.
 
 “How is he *doing* that?” the clown had asked me, breaking character. I had no idea, and simply stood there, speechless. Then I yelled his name, and the knives had all clattered to the lawn.
 
-“She was strong, and I felt her mind. It was so cold, like an icicle going into my head, but I kept her back by building a wall-” he pointed to the backyard where the corpse of the girl had stood- “and kept her there, dad.” I realized he was not talking about a physical wall, but some sort of mental wall that he made in his mind. I nodded. 
+“She was strong, and I felt her mind. It was so cold, like an icicle going into my head, but I kept her back by building a wall-” he pointed to the backyard where the corpse of the girl had stood- “and kept her there, dad.” I realized he was not talking about a physical wall, but some sort of mental wall that he made in his mind. I nodded.
 
 “She was trying to take you. I could feel the words that came out of her head and into yours. I heard everything she was saying. And she was *showing* me things. Really bad, really scary things from where she comes from. She told me that, in her home, all the roads are paved with bones of kids like myself, and that the girls like her have their mouths sewn shut, so that they never have to rely on using their mouths to speak. They use their *brains* somehow. The whole place is run by an insane god who lies by this silver stream. She showed me the god, and I felt it looking at me. It was like insects were looking at me, like insects with huge brains and big, dark, scary eyes.” He shuddered. “What kind of god is that, dad?”
 
-“A god we never want to meet, that’s for sure,” I said, tousling his hair, trying to get him to smile. “The god that we believe in is eternal love and light. Whatever that little girl worships, it isn’t God.” Anthony’s eyes continued to look blankly ahead as he recalled what the eldritch girl had shown him. Then they looked up at me sharply. 
+“A god we never want to meet, that’s for sure,” I said, tousling his hair, trying to get him to smile. “The god that we believe in is eternal love and light. Whatever that little girl worships, it isn’t God.” Anthony’s eyes continued to look blankly ahead as he recalled what the eldritch girl had shown him. Then they looked up at me sharply.
 
 “I don’t understand that stuff about viruses that she was saying. What’s going on? Are we going to be sick?” he asked, looking so little and helpless in his tiny windbreaker and jeans.
 
-“I don’t know what she was talking about, but we need to get out of here right now. I’m sure we will be fine if we can just get past the borders of the town- at least, I think so. And I also think some sort of biological outbreak is causing people to go insane…” 
+“I don’t know what she was talking about, but we need to get out of here right now. I’m sure we will be fine if we can just get past the borders of the town- at least, I think so. And I also think some sort of biological outbreak is causing people to go insane…”
 
 As if on cue, a car sped past, fire leaping out of the shattered windows. I smelled burning rubber, hot metal and roasting meat, a disgusting combination of aromas that the nightmarish scene left in its wake. The driver hit a tree, flying through the windshield and smashing his burned body into the trunk at an incredible speed. I saw by the awkward angle of his neck that he was either dead or dying. He looked like a bird who had flown into a window, the neck snapped and the head lolling weakly at a 45 degree angle on a totally broken spine. I turned to look at him sharply. “Where’s your mother?”
 
@@ -115,3 +115,7 @@ Dozens of bodies were stacked one on top of another, across the road and the sid
 I tried calling for help, but no phone calls would connect. The internet still worked, so I wrote up what had happened. In case my family and I don’t make it out of here, I wanted someone to know what really happened in my town.
 
 Sighing in frustration and despair, grabbing the revolver and handing the butcher knife to my wife, we all got out of the car and started walking.
+
+&#x200B;
+
+Part 2: [https://www.reddit.com/r/nosleep/comments/121623d/i\_was\_a\_911\_operator\_i\_still\_remember\_the\_call/](https://www.reddit.com/r/nosleep/comments/121623d/i_was_a_911_operator_i_still_remember_the_call/)
