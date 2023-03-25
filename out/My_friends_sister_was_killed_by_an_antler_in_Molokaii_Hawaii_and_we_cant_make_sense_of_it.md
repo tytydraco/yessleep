@@ -1,6 +1,8 @@
+Edit FINAL: they’re taking me back this afternoon shit went down at the funeral. We are all in shock. There’s pencil and paper there so I will be able to write. Will update when I can. Nathanael
+
 Edit 4: UPDATE 3/25/23:
 
-[https://www.reddit.com/r/nosleep/comments/121pd26/we\_had\_vivs\_wake\_it\_went\_poorly\_molokai\_antler/](https://www.reddit.com/r/nosleep/comments/121pd26/we_had_vivs_wake_it_went_poorly_molokai_antler/)
+(dead link, will post later)
 
 Edit: to remove Vivian’s last name.
 
