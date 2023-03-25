@@ -22,7 +22,7 @@ I turned my head to the side, and stared into empty eye sockets. Somehow, though
 
 He was naked, just like he'd been found in the river. I could see into the empty gaping hole in his abdomen where his intestines, stomach and liver used to be, the crests of his bare pelvis, and every now and again a puff of smoke seeped out through his exposed ribs, leaving the hanging end of his trachea as there were no lungs in his chest anymore to hold the smoke in. 
 
-"*Dzień dobry, sąsiad*" He said to me, *good morning, neighbor*, just like he said every day as we passed each other on the apartment stairs to the laundry in the basement. I didn't know how he was forming the words because inside of his mouth there was only the very root of his tongue wriggling around behind his lips. 
+"*Dzień dobry, sąsiedzie.*" He said to me, *good morning, neighbor*, just like he said every day as we passed each other on the apartment stairs to the laundry in the basement. I didn't know how he was forming the words because inside of his mouth there was only the very root of his tongue wriggling around behind his lips. 
 
 He gave a gurgling, wet laugh, and nudged me with his elbow like we were sharing an inside joke together. There was a hole in his bicep down to the bone. There used to be the tattoos of three coffins lined up there, a skull and crossbones underneath it, and the initials OOR and SOS, and I knew as I looked at the shiny white ends of his exposed clavicle and the bare ball-sockets of his shoulders, that there used to be an eight-pointed star tattooed on each side, and a pair of epaulettes above them, decorated with three skulls. 
 
