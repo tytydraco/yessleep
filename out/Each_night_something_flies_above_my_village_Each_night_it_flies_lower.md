@@ -52,7 +52,7 @@ The mention of the woodsman had quieted down the table. An uncomfortable topic t
 
 ‘This is not the time to speak about the snakes. None who witnessed them are present and no conclusions can be reached without evidence,’ Halčín decreed, ‘Let us not debate around this table about who heard what. Let us do what should be done in a pub! Drink!’
 
-Then, the mayor summoned the bartender and made sure no man was left without slivovitz. Once the shot glasses were emptied the conversation shifted away from the snakes. Once the shot glasses were filled and emptied again, some of us might have even forgotten about the alleged serpents in the first place.  
+Then, the mayor summoned the bartender and made sure no man was left without slivovitz. Once the shot glasses were emptied the conversation shifted away from the snakes. Once the shot glasses were filled and emptied again, some of us might have even forgotten about the alleged serpents in the first place.
 
 I arrived back at my cottage much drunker than anticipated. The slivovitz in my stomach made the stairs up to my bedroom a mighty climb and when I finally reached my bed the world was spinning far too quickly for me to fall asleep. Half-awake, I managed to crawl my way over to the bathroom and empty my stomach. Too exhausted to make the journey back to bed I took my rest by the toilet bowl.
 
@@ -76,7 +76,7 @@ I had hoped that I would wake up and not remember the affair, or at least that b
 
 For hours I lay in bed, questioning my sanity. When no comforting answers presented themselves, I climbed out of bed, pulled on some fresh clothes and made my way to the pub. I had hoped that someone else had heard the terrible sound, that there would be some simple rural explanation to the phenomena that my upbringing in the city had simply robbed me of — yet in the pub I found no answers.
 
-Instead, I found chaos. 
+Instead, I found chaos.
 
 The pub was much angrier than before. Different stories of snake sightings had spread through the village and were getting aired out in the smokey room. The Veterinarian, who rarely visited the pub, stood in opposition to the rumors with a few sober voices of support. He had seen the stork nesting at the top of the steeple. Others had too. The sightings of exotic serpents, the Veterinarian claimed, were fabulations brought on by religious panic.
 
@@ -88,7 +88,7 @@ His slam on the table sent a glass of wine and one of the ashtrays crashing to t
 
 The sound of broken glass quieted the crowd and the bulging veins on Halčín’s forehead prolonged the silence. On any other occasion I would have stayed silent as well, knowing that I am still an outsider in the village community, yet, driven by fear I spoke up.
 
-I asked the table if anyone had heard the horrible howl last night. 
+I asked the table if anyone had heard the horrible howl last night.
 
 My question was answered with nothing but stares that bounced between me and Halčín. Over the months I had been welcome into the village community as an outsider, yet asking the question about the mysterious night-sound had been a bridge too far.
 
@@ -160,7 +160,7 @@ As she raved, the old woman kept on looking at me; as if I was the source of all
 
 I told the Mayor’s mother that she was wrong. That the sounds in the night weren’t strange thunder, but an airplane. The village was not being punished for some abstract crime of the spirit — there was simply a giant black airbus flying dangerously low through the valley at night.
 
-Even as the farmhand expired within ear shot, my explanation for the *strange thunder* produced some laughs. Most of the crowd, however, became angry. 
+Even as the farmhand expired within ear shot, my explanation for the *strange thunder* produced some laughs. Most of the crowd, however, became angry.
 
 I was speaking out of line and, furthermore, I was speaking nonsense.
 
@@ -220,7 +220,7 @@ For a mere moment I thought I heard a sound of wood cracking, of something falli
 
 It wasn’t until the plane’s roar started to subside that I noticed the flames. Half of the spire had been knocked to the ground below and what was left of the church was on fire. The remnants of the spire were ablaze as well, yet the water-soaked earth had kept their light dim. The only bright fire on the ground was that of the burlap sack stretched across the iron fence.
 
-My hopes of recording the dark machine had proved futile. When the villagers spilled from their homes out onto the road my phone was hot and dark and refused to turn on. 
+My hopes of recording the dark machine had proved futile. When the villagers spilled from their homes out onto the road my phone was hot and dark and refused to turn on.
 
 I had no evidence of the plane knocking down the church’s steeple.
 
@@ -242,4 +242,4 @@ As the stations through which the train passes become familiar, however, I can�
 
 When the steeple first fell, as the villagers dashed up and down the hill with rusty buckets of water — I saw something. Out among the kindling that was once the top of the steeple, with burning straw for company and its white feathers caked in mud and blood — I saw a dead stork.
 
-It had a garden snake in its [mouth](https://www.reddit.com/r/MJLPresents/comments/11k3ds4/morana_air/).
+It had a garden snake in its [mouth](https://www.youtube.com/@Mikejlanger).
