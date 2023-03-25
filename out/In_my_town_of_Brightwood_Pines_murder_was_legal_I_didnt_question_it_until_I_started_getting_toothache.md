@@ -178,9 +178,9 @@ Kaz Issacs was one of the first kids in my class to be hit with The Urge, and al
 
 People argued that there was paranoia, and the local doctor insisted he was fine, though I couldn’t help wondering if it wasn’t paranoia.
 
-Kaz didn’t need The Urge.  Halfway through math class, two years prior, I had been daydreaming about the rain. It rarely rained in Briarwood. Every day was picturesque. I did remember rain. I knew what it felt like hitting my face and dropping into my open mouth and cupped hands. When I asked mom if it was ever going to rain, though, she got a funny look on her face. “Sweetie, it doesn’t rain in Briarwood.” She told me. Which just confused me even more. It’s not like I had imagined the feeling of freezing cold rain, and my own shivering as I splashed through puddles without an umbrella.
+Kaz didn’t need The Urge.  Halfway through math class, two years prior, I had been daydreaming about the rain. It rarely rained in Brightwood. Every day was picturesque. I did remember rain. I knew what it felt like hitting my face and dropping into my open mouth and cupped hands. When I asked mom if it was ever going to rain, though, she got a funny look on her face. “Sweetie, it doesn’t rain in Brightwood.” She told me. Which just confused me even more. It’s not like I had imagined the feeling of freezing cold rain, and my own shivering as I splashed through puddles without an umbrella.
 
-The more I pried into these memories, I realised there were no puddles in Briarwood. It never rained. So, where had I jumped into puddles? Did I really dream of my experiences in the rain, and if so, how? 
+The more I pried into these memories, I realised there were no puddles in Brightwood. It never rained. So, where had I jumped into puddles? Did I really dream of my experiences in the rain, and if so, how? 
 
 How did I know what it felt like? These thoughts came over me pretty much every day, and that day had been no different. 
 
