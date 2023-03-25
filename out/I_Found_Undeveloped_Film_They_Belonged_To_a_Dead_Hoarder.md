@@ -1,4 +1,6 @@
- Part 1
+Part 1 
+
+ 
 
 A year ago, I took a black & white photography class as an elective. In this class we used old cameras to shoot black and white photos, then developed the film with water and chemicals in a special room called the dark room. 
 
@@ -12,7 +14,7 @@ Felix asked me if I could help him clean and throw all this guy's sh\*t away. Pa
 
 Felix and I were discussing the situation and I thought, "well, who knows? Maybe we'll find a box of gold. Or some authentic jewelry. Or a never before opened Nintendo game. First edition Pokémon cards?" Only one way to find out, I guess. 
 
-So, there I was, in the basement, sorting through the boxes and choosing what's trash and what's treasure. By that point, we have already cleared the living room and bedroom upstairs. Unfortunately for us, there wasn't much treasure.  
+So, there I was, in the basement, sorting through the boxes and choosing what's trash and what's treasure. By that point, we have already cleared the living room and bedroom upstairs. Unfortunately for us, there wasn't much treasure. 
 
 The guy was a massive hoarder. He kept some of the weirdest things for whatever reason. Stacks of newspapers from 2002, old broken toys, board games from the 80's with missing pieces and cards, old dirty cassettes and records from the 70's and so much more. I've even seen some real nasty stuff like old diapers and dirty napkins. Felix nearly threw up.  
 
@@ -46,7 +48,7 @@ Developing film can be quite a long process, especially if you haven't done it i
 
 ... 
 
-As soon as I walked into the dark room, I searched for the light switch using my phone's flash as a light source. It's incredibly hard to see in there even with a light.  
+As soon as I walked into the dark room, I searched for the light switch using my phone's flash as a light source. It's incredibly hard to see in there even with a light. 
 
 See, the purpose of a dark room is to develop film in complete darkness. Film cannot be exposed to any light whatsoever when being developed. If even a tiny bit of light exposes the film, then the entire roll could be ruined. Phones and smart watches should be set aside in case it lights up from a call or notification. 
 
@@ -56,12 +58,9 @@ The thing is, I had to do the first step in complete darkness.
 
 I always hated this step because it gets so dark that you can't even see your hand in front of your face. So, imagine trying to grab stuff and put it in places while you can't see. 
 
-I was hesitant to turn the lights off again. I got the chills whenever it got completely dark. It’s not so bad when there’s someone else with you, but this time I was all alone.  
+I was hesitant to turn the lights off again. I got the chills whenever it got completely dark. It’s not so bad when there’s someone else with you, but this time I was all alone. 
 
 Then I figured, "let's just get this over with" and then turned off the lights. In the dark, I walked over to my station while feeling around for stuff to not bump into. Once I knew I was at my station, I quickly found the film rolls and then got to work. 
-
-  
- 
 
 So far, it was going smoothly, and I was starting to calm down. Until it happened. 
 
@@ -69,7 +68,7 @@ I was just about to finish. I had the canister with the film inside in my left h
 
 Something cold was making contact on my neck and I winced. I slapped my neck where I felt it and yet nothing was there. My hair stood on ends, and I had no idea what was happening. I was almost too afraid to move and continue, but I was so close. I didn't want to turn the light on yet because the film would get exposed. 
 
-Then, a few seconds later, I heard a \*HUFF\* and felt a huge gust of air hit the back of my head. It sounded like a horse when it blows air out of its nostrils. The wind blow was so strong it pushed me forward and I dropped my canister and film on the floor.  
+Then, a few seconds later, I heard a \*HUFF\* and felt a huge gust of air hit the back of my head. It sounded like a horse when it blows air out of its nostrils. The wind blow was so strong it pushed me forward and I dropped my canister and film on the floor. 
 
 I quickly dropped to the floor to try to grab the film and canister but then another gust hit me from above. 
 
@@ -83,13 +82,13 @@ It was happening even faster and just wouldn't stop. I didn’t know what to do.
 
 After about a minute of me just sitting there, I felt the floor shake in a rhythm with a boom. Each time the floor shook, it was less intense and quieter than the last. The rhythm got faint until I couldn’t feel it anymore. It was as if the beast thing walked away from me on two legs. 
 
-It took me about a minute to regain my composure and I didn’t want to sit there for a minute longer. At that point, I didn’t care about the film, I just needed to turn those lights on and get out of there. Whatever that thing was, I did not want it to come back.  
+It took me about a minute to regain my composure and I didn’t want to sit there for a minute longer. At that point, I didn’t care about the film, I just needed to turn those lights on and get out of there. Whatever that thing was, I did not want it to come back. 
 
 “Where’s my phone? I need my flashlight”, I thought, but I remembered that it was still on the counter. I had to get up. 
 
 I started with positioning my legs forward. My palms were on the floor as I pushed myself up while making no noise whatsoever. When I was half way up I placed my hand on the counter for balance. Then I placed the other but felt something round. The lid. 
 
-“There you are”, I thought. I now had the lid, but not the canister. It was still on the floor but at least I knew where it was. I reached down and picked it up. I thought, “Finally. I have them both”. Unfortunately, when I tried to put the lid on, I did not account for the noise it would make.  
+“There you are”, I thought. I now had the lid, but not the canister. It was still on the floor but at least I knew where it was. I reached down and picked it up. I thought, “Finally. I have them both”. Unfortunately, when I tried to put the lid on, I did not account for the noise it would make. 
 
 \*POP\* 
 
@@ -97,7 +96,7 @@ Not even a second after, I felt something under my feet. Vibrations. It started 
 
 I walked towards where I thought the light switch was but as soon as I heard those huffs, my walk turned into a full on leap. As I leaped, my hand was stretched in front of me, hoping to find that damn light switch. My hand collided with the cold flat wall and nothing else. 
 
-I started to panic and frantically glided my hand against the wall for the switch. Right as I could feel the wind of the \*HUFF\* right on me, my ring finger caught a bump on the wall, and I violently pushed against it.  
+I started to panic and frantically glided my hand against the wall for the switch. Right as I could feel the wind of the \*HUFF\* right on me, my ring finger caught a bump on the wall, and I violently pushed against it. 
 
 \*CLICK\* 
 
@@ -107,4 +106,6 @@ My eyes were closed but I saw the light piercing through my eyelids. I heard the
 
 I looked around the room. It looked the same as before I turned the lights off the first time. What the hell happened?? I swear I wasn’t the only one in this room when the lights were off. Who or what was with me in the dark? 
 
-The film is ready to be developed. I still don’t know what’s inside and I don’t know if I’m supposed to. Should I continue?
+The film is ready to be developed. I still don’t know what’s inside and I don’t know if I’m supposed to. Should I continue? 
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1214svi/i_found_undeveloped_film_they_belonged_to_a_dead/)

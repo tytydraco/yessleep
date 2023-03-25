@@ -12,7 +12,7 @@ With no rules forbidding murder, you would think a town would tear itself apart.
 
 That is not what happened. 
 
-Murder was legal, yes, but it didn’t happen every day. It happened when people had the urge. Mom explained it to me when I was old enough to understand. “The urge” was a phenomenon which had been affecting town’s people long before I was born, and there was no real way to stop it. So, it didn't stop. Mom told me she had killed her first person at the age if seventeen. Her math teacher. There was no reason or motive. Mom said she just woke up one day and wanted to kill someone.
+Murder was legal, yes, but it didn’t happen every day. It happened when people had the urge. Mom explained it to me when I was old enough to understand. “The urge” was a phenomenon which had been affecting town’s people long before I was born, and there was no real way to stop it. So, it didn't stop. Mom told me she had killed her first person at the age of seventeen. Her math teacher. There was no reason or motive. Mom said she just woke up one day and wanted to kill someone.
 
 Unfortunately, it was her math teacher who had gotten in the way. I always wondered why she described her killing so vividly to me. I was eight years old, and mom spent hours detailing how she had successfully managed to sever his head from his body with nothing but a phone charger, and a knife taken from her kitchen.
 
