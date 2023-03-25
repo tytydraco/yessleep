@@ -149,3 +149,7 @@ I turned to look at Holliman as he was stepping forward to lift Mrs. Graves to h
 This was not according to plan.  This was not in control.  
 
 [And if we didn’t get away from this place and these people, we were all going to die.](https://redd.it/10h9jfw)
+
+****
+
+[Part Seven](https://redd.it/1217u99)

@@ -1,4 +1,4 @@
-\[Part 1\]([https://www.reddit.com/r/nosleep/comments/11m30dm/the\_tree\_with\_blood\_red\_leaves/](https://www.reddit.com/r/nosleep/comments/11m30dm/the_tree_with_blood_red_leaves/))
+[Part 1](https://www.reddit.com/r/nosleep/comments/11m30dm/the\_tree\_with\_blood\_red\_leaves/](https://www.reddit.com/r/nosleep/comments/11m30dm/the_tree_with_blood_red_leaves/)
 
 &#x200B;
 
