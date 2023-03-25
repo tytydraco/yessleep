@@ -52,7 +52,7 @@ She didn’t reply for a moment before seemingly snapping out of it and turning 
 
 Did it really make them feel good? 
 
-Looking at my neighbour, I couldn’t see the joy my mom had described in her eyes. In fact, I couldn’t see anything. Her expression was the kind of blank which scared me. It was oblivion staring back, ripped of real human emotion. Mrs Jenson’s smile stretched across her lips, like she could sense my discomfort. I noticed she was yet to clean her hands. 
+Looking at my neighbor, I couldn’t see the joy my mom had described in her eyes. In fact, I couldn’t see anything. Her expression was the kind of blank which scared me. It was oblivion staring back, ripped of real human emotion. Mrs Jenson’s smile stretched across her lips, like she could sense my discomfort. I noticed she was yet to clean her hands. 
 
 Mrs Jenson’s fingernails were still stained a scary shade of red. Instead of replying, the woman moved towards my fence in slow, stumbling strides. She was dragging herself, like moving caused her pain, agony I couldn’t understand. It was exactly what my mother had insisted didn’t exist when killing. Pain.
 
