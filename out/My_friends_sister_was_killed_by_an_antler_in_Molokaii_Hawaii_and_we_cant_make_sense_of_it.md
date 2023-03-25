@@ -1,3 +1,7 @@
+Edit 4: UPDATE 3/25/23:
+
+[https://www.reddit.com/r/nosleep/comments/121euvr/we\_had\_vivs\_wake\_it\_went\_poorly\_molokai\_antler/](https://www.reddit.com/r/nosleep/comments/121euvr/we_had_vivs_wake_it_went_poorly_molokai_antler/)
+
 Edit: to remove Vivian’s last name.
 
 Edit 2: Ok. Lua and I talked most of the night. All my intuition is telling me there’s nothing supernatural going on. Viv’s wake is tonight so I really don’t have a ton of time to update but I may write something up after that.
