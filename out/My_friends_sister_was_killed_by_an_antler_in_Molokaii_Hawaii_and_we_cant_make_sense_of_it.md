@@ -1,6 +1,6 @@
 Edit 4: UPDATE 3/25/23:
 
-[https://www.reddit.com/r/nosleep/comments/121euvr/we\_had\_vivs\_wake\_it\_went\_poorly\_molokai\_antler/](https://www.reddit.com/r/nosleep/comments/121euvr/we_had_vivs_wake_it_went_poorly_molokai_antler/)
+[https://www.reddit.com/r/nosleep/comments/121pd26/we\_had\_vivs\_wake\_it\_went\_poorly\_molokai\_antler/](https://www.reddit.com/r/nosleep/comments/121pd26/we_had_vivs_wake_it_went_poorly_molokai_antler/)
 
 Edit: to remove Vivian’s last name.
 

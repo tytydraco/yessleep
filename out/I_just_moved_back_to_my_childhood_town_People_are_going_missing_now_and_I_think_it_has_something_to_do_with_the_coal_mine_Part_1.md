@@ -1,4 +1,4 @@
-People have been going missing in my hometown ever since I moved back. And things don't really feel the way they did when I was a kid. I don't know if those two are related. 
+People have been going missing in my hometown ever since I moved back. And things don't really feel the way they did when I was a kid. I don't know if those two are related.
 
 This has been really nagging at me lately. I had no idea where to post it to get some help or peace of mind. I just really need some support right now before I drive myself crazy over it. Maybe I'm overreacting because it's been a stressful few months since my parents died, or maybe someone can shed some light on the events that have been happening and show me that I am just being crazy...
 
@@ -78,8 +78,6 @@ Their moods changed again, they frowned deeply, and went rigid for a minute as i
 
 “She’s fine Jeremy.” One said in a tight-lipped smile. “Just… resting…” her creepy smile widened, her lip twitched at the word ‘Resting’. Then, she shoo’ed me away with her hand without another word. My attempts to ask after were ignored as if I wasn’t even there.
 
-feeling thoroughly unsettled, I left the store, packed my stuff in my truck, and drove it home. I put everything away and pulled out an old phone book my parents had in the house. The only Genie I knew was Genie Carlson. She worked at the school as a nurse for a long time before retiring. I found her number, dialed it, no answer. I dialed it again, same thing. On the third ring, the ringer was cut after 2 rings and flipped to voicemail, like someone had sent the phone to the answering machine. “This is Genie Carlson, Sorry I missed you… Please leave a-” but it cut itself off. The next call didn’t go through, I just got a “The number you dialed is no longer in service…”
-
 Feeling thoroughly unsettled, I left the store, packed my stuff in my truck, and drove it home. I put everything away and pulled out an old phone book my parents had in the house. The only Genie I knew was Genie Carlson. She worked at the school as a nurse for a long time before retiring. I found her number, dialed it, no answer. I dialed it again, same thing. On the third call, the ringer was cut after 2 rings and flipped to voicemail, like someone had sent the phone to the answering machine. “This is Genie Carlson, Sorry I missed you… Please leave a-” but it cut itself off. The next call didn’t go through, I just got a “The number you dialed is no longer in service…” I thought it was odd that her phone would go off after I had just called it three times.
 
 I, at least, remembered where Genie lived from my childhood and decided I’d pay her a small visit before going about the day just to make sure she was okay. I mean, maybe she was sick or something and just stuck in bed, or maybe she fell and needed help? Maybe she didn’t have a life alert, she for sure did not have a cell phone, and I think she was a widow, and all her kid's left town when they turned 18. So, if her friends hadn’t checked in on her she could have been lying there alone for lord knows how long needing help.
@@ -94,7 +92,7 @@ Before I took another step, I called the jail and asked if they could send a cop
 
 Sheriff Nixon showed up about 10 minutes later. He was old, looked like a corpse himself, but he had been the Sheriff in town since before I could even remember. He was always super friendly and had a smile on his face, even now while responding to a potential disappearance.
 
-“Little Jer Coleridge. My, my son, you’ve *grown.*” He patted my shoulder hard, almost threw me off balance. 
+“Little Jer Coleridge. My, my son, you’ve *grown.*” He patted my shoulder hard, almost threw me off balance.
 
 “Hey Pat… I think something happened with Genie Carlson…” I pointed to the door, thinking he would be more surprised than what he was.
 

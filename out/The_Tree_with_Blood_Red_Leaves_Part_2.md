@@ -2,7 +2,7 @@
 
 &#x200B;
 
-The first thing I did was call the police so they could help find Chrissy. I told them that I was worried she would be in the woods outside the park. It was the same officer that had come out when I found the man in the field. She informed me that the man still wasn’t doing so well, but he started shouting “Chrissy” in the middle of the night. She was hoping that Chrissy would be able to come to the hospital to see if she knew him.
+[The first thing I did](https://www.reddit.com/user/tropical_rabbit/comments/121pic0/blood_red_leaf/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button) was call the police so they could help find Chrissy. I told them that I was worried she would be in the woods outside the park. It was the same officer that had come out when I found the man in the field. She informed me that the man still wasn’t doing so well, but he started shouting “Chrissy” in the middle of the night. She was hoping that Chrissy would be able to come to the hospital to see if she knew him.
 
 &#x200B;
 
