@@ -1,299 +1,335 @@
-[1](https://www.reddit.com/r/nosleep/comments/11aarni/ghosted/?utm_source=share&utm_medium=web2x&context=3)
+[1](https://www.reddit.com/r/nosleep/comments/11aarni/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [2](https://www.reddit.com/r/nosleep/comments/11b55k8/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [3](https://www.reddit.com/r/nosleep/comments/11bzlg0/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [4](https://www.reddit.com/r/nosleep/comments/11cxd9x/ghosted/?utm_source=share&utm_medium=web2x&context=3)
 
-4
+**5**
 
-I was hoping Jennifer would tell me more after that cryptic statement, but she clammed up. Damn, my whole visit turned out to be a bust. She did provide me with one insight – I’m not the only who might in danger.
+Whirring Frappuccino machines greet me as I walk into the Starbucks where I was supposed to meet Akasha for the first time. I join the line of caffeine addicts and quickly spot the woman I’m hoping to find – Akasha’s friend Liza, whose picture I saw in the journal.
 
-Akasha could come after Lynn.
+Pierced, with a streak of red dyed in her hair, she strikes me as the type of girl to attain besties status with Akasha. Liza hands a middle-aged man his change, and then her eyes find me.
 
-The thought terrifies me.
+“How can I help you?” she asks.
 
-I couldn’t live with myself if anything happened to her. I conclude that I’m done with this amateur investigator shit and go straight to the cops. An hour later I find myself in a bustling squad room. But now that I’m sitting across from Detective Peterson and feel his scrutinizing gaze on me, I feel like I’ve made a mistake. In his mid-forties and clearly the world-weary kind of cop, he doesn’t suffer fools easily. At the moment he is trying to decide if I belong in the drunk tank.
+I tell her.
 
-“Okay, to sum it up,” he says, checking his notes. “Your brother and his best friend hooked up with the same lady on Tinder, and you think she burned them alive?”
+Fortunately she is open, maybe even eager, to talk about her friend. I use the same story I did with Mrs. Samona – I’m doing a piece about missing teens. It makes my purpose for being here seem more noble and selfless, like I’m trying to make a difference in the world. I hate to lie to people, but I need answers.
 
-*Dammit, I know how it sounds.*
+Liza informs me that she’ll be off work in fifteen minutes. I order a coffee and find a table. I take a deep swig of my scorching hot brew and burn my tongue. I welcome the pain. It reminds me that I’m alive.
 
-“And this cyber-sex version of a black widow killer is now after you?”
+Fifteen minutes turn into half an hour, and time slows. My eagerness to pick Liza’s brain grows with each passing second. I try to distract myself by checking my email but fastidiously avoid Facebook. As I scan my favorite news apps, the irony is not lost on me that all this started with an app. Tinder. Shit, Josh, why couldn’t you stick to the good old-fashioned bar scene?
 
-“She’s been stalking me and my girlfriend! Who knows what this crazy bitch is going to do next?”
+Thinking about my brother drives the loss home. I’ve pushed a lot of my emotions aside but as I wait here for Liza to join me, they sneak up on me full-force. Finally Liza arrives, iced tea in hand. She is still wearing her work uniform as she sits down in front of me.
 
-My raised voice doesn’t earn me any respect from Peterson. “You might want to turn it down a tad.”
+“So you're writing a story about Akasha?”
 
-Detective Peterson peruses some police department records on his laptop. The first file contains pictures of Josh and his burned-up bedroom.
+The lies continue.
 
-“According to the fire department, there was nothing suspicious about the fire that killed your brother. It was an unfortunate accident. Case closed.”
+“Yes, I was hoping you could give me a sense of what she was like. I understand you and Akasha were pretty close.”
 
-“They didn't have all the facts.” Detective Peterson’s patience might be running low, but he’s not the only one.
+“We were best friends,” she confirms. “We had something in common — crazy parents. Only difference is, her folks are loaded and I'm supporting mine.”
 
-I want to shout at the man, tell him about David who was found near the Starbucks parking lot burned to a crisp and all the others. But I lack concrete evidence for any of these assumptions. Keeping the story focused on Josh, Steve and my own experience sounds crazy enough.
+This revelation is communicated in such a casual, offhand manner that it’s easy to ignore the weight behind the words. We’ve barely started this conversation, and I already feel sorry for her.
 
-“So if this girl kills her cyber dates, why did she spare you?”
+Liza wipes a few tears and continues to tell me about her missing friend. Akasha may be destroying my life, but this girl still cares for her.
 
-It’s a good question, one that I’ve been asking myself for the last few hours. Why am I still alive? What separates me from all her other victims?
+“Akasha had a tendency to date guys who weren't available,” Liza explains. “Bad boys, dudes with girlfriends, married men. She’d obsess over people who could never love her back. She’d always get her heart broken.”
 
-“I don’t know,” I say, and that’s actually when the answer hits me. I was spared because I didn’t give Akasha what she wants. Josh and Steve (and all the others, I presume) slept with her. I didn’t. My loyalty to Lynn triggered Akasha’s obsessive, stalker-like behavior, but it also could explain why she hasn’t burned me.
+“Would she meet some of these dates on Tinder?”
 
-Yet.
+“Akasha loved that stupid app. She was addicted to the attention. She’d hook up with guys and then wonder why none of them called her back after getting what they wanted.”
 
-I’m smart enough to keep my mouth shut about this epiphany. Peterson must already think I’m doing drugs. I can imagine what his response would be: “*So this psycho chick is stalking guys who don’t put out?”*
+I consider this. It certainly explains Akasha’s rage.
 
-Sounds crazy. But so does everything else about this case, as Peterson keeps reminding me. How does a nineteen year old woman torch dozens of men over a period of months without ever leaving a trace of forensic evidence? How does she manage to set up elaborate accidents or trigger fires that don’t spread? What am I really dealing with here?
+“Their first date would always be at this Starbucks. I was her lookout. My job was to swoop in and save her if the dude turned out to be a weirdo or some loser who had posted a fake pic.”
 
-Peterson stops his stare-down contest. I guess he’s convinced I’m not high, which makes me either delusional or a skilled prankster. Either way, he wants me out of here so he can move on with his day and work real cases.
+“Where do you think she is now?”
 
-“You’re free to file a complaint if you like,” he explains, “but without any forensic evidence, witnesses or motive, there's not much I can do.”
+“Her mom believes she ran away. That she’s living some crazy party life in Miami or stripping her way across the country.”
 
-That’s it. Case closed. Time for a donut. I can’t even blame the guy.
+“You don't believe that?”
 
-“You have to help me…” My voice shakes with helpless frustration.
+Liza takes a deep gulp from her drink.
 
-“Why don’t you show me this lady’s Tinder profile so I can include it in the report.”
+“I was Akasha's best friend. If she was still around, she’d be in touch.”
 
-I hesitate for a moment before I open up Tinder and find Akasha’s profile. For a split second, I fear that she might have deleted her profile, almost as if she knew I might go to the cops. My fear proves unfounded. Akasha is still on Tinder ,and I share her profile with the grumpy Detective. Not that I think it will do much good.
+“So what do you think happened?”
 
-The detective’s eyes turn into slits as he studies the profile.
+“I think she met the wrong guy.”
 
-Something in Peterson’s expression is different now. Where earlier I could only pick up his impatience, I now recognize a new emotion — suspicion. His next question catches me off guard.
+Liza doesn’t come right out and say it, but the message is clear. She thinks Akasha is dead.
 
-“You sure this is the girl you met up with?”
+I immediately dismiss the idea. I’m a physical therapist student. I believe in science. Ghosts don’t have a place in my perception of the world.
 
-“Yeah.”
+“Who was the last person Akasha met on Tinder before she vanished?”
 
-Peterson nods pensively and says, “Let me show you something.” He indicates for me to follow him, and I oblige. You don’t want to argue with the NYPD.
+“He was some Manhattan lawyer. He picked her up in his BMW. Pretty hot in a late-thirties, GQ kind of way.”
 
-We step outside the bustling office and arrive in an adjacent hallway. Peterson moves to a wall filled with the headshots of missing teens, mostly females. Each passport-style photograph is accompanied by pertinent details. Peterson points at one of the pictures and my breath hitches.
+“Could he be…”
 
-It’s Akasha. She’s got her own missing poster. My mind reels as I try to process this new piece of information.
+“When Akasha first went missing, cops came to talk to me. I told them about the lawyer. Guess what they said?  They already checked out that lead and the attorney, I think his name is Darryl or Derek, turned out to be a dead end. Know why?”
 
-“Akasha Samona,” Peterson says. “Missing for ten months now. No one in her family has seen or heard from her.”
+The question hangs there for a moment, but I can guess the answer.
 
-“I’ve met up with her twice in the last week alone.”
+Liza leans closer, her face masklike as she speaks. “Darryl died in a freak car accident. Lost control of his Porsche, hit a median and the gas tank blew. He was burned to a crisp. They had to identify him with dental records.”
 
-The words earn me another skeptical glance from the detective, and his frustration boils to the surface. He’s wondering what kind of game I’m playing. For a moment, he indulges me, probably hoping I trip myself up and reveal Akasha’s whereabouts. I’ve gone from potential victim to nuisance to suspect in the space of a few minutes.
+A chill travels up my spine. Followed by a question. *Was Darryl/Derek Akasha’s first victim?*
 
-“You sure about this?” he asks.
+“Want to hear the best part? The creep had a wife and kid. Akasha sure knew how to pick them.”
 
-“Why would I be lying to you about something like this?”
+I spin these new facts around in my head, hoping to make sense of the senseless.
 
-I can see that he’s itching to speak his mind, but he keeps it together. He’s a professional.
+Liza takes a final swig of her drink and rises. “Sorry, but I need to get back to work. It was good chatting with you. Email me when the article hits the Web.”
 
-“Normally when someone goes missing for this long, they either don't want to be found or something really bad happened to them.“
+Liza turns away. I stare after her, pensive.
 
-The chilling implication sinks in.
-
-He takes a step closer, and I have to repress the urge to back away. “Any idea where Akasha might be at the moment?”
-
-“I only talked to her online before she started showing up places. I don't even have her number.”
-
-I can tell he doesn’t quite believe me.
-
-I can't take my eyes off the poster, mind consumed with one burning question.
-
-*What happened to Akasha?*
+If Darryl had something to do with Akasha’s disappearance, the knowledge of her fate died with him. I’ve reached an impasse and have no idea what my next move is.
 
 \*\*\*
 
-I’m shaken by what I learned at the police precinct. In a trancelike state, I make my way to the nearest subway station and head back into Manhattan. I’m supposed to meet Lynn at the library, and she expects an explanation for why I skipped out on today’s crucial quiz, especially when my grade-point average is borderline. I’m not sure yet what I’m going to tell her.
+The icy road unfurls before me, as perilous as my own future. I view a news report of Darryl Kelly’s accident and recognize the man. Was he her first victim?
 
-My thoughts cycle back to Akasha. I replay our recent encounters in my mind and all throughout, Peterson’s words haunt me.
+At this point I only have one lead, and it’s a longshot. Darryl’s younger brother Adam works as a freelance editor in Manhattan. I already made up my mind not to approach Darryl’s wife. She’s been through enough already without me digging up a possible infidelity in her late husband’s past. My plan is to pay the brother a visit and see if he can be any more helpful than the other people I’ve interviewed.
 
-*“Normally when someone goes missing for this long, they either don't want to be found or something really bad happened to them.“*
+My chirping cellphone derails this train of thought. I scan the caller ID. It’s Lynn. My heart misses a beat. I’m both relieved and anxious as I press the answer button and Lynn’s voice fills my car.
 
-A theory is forming in the back of my mind. My rational view of the world is fighting the idea, though. It can’t be...
+“Mark, I need to see you. We have to talk.”
 
-By the time I reach downtown Manhattan, a new message waits for me. The text isn’t from Lynn but from Akasha.
+The voice is businesslike, determined. She must’ve rehearsed this call numerous times. “Let’s meet at the diner across from your place in an hour?”
 
-The message sends a shiver down my back.
+“Sure,” I say robotically. Her mission accomplished, Lynn ends the call without further comment.
 
-“*Met your girlfriend. You could do so much better.”*
+My mind is churning. I was hoping Lynn would break the silence and reach out to me, but this chilly communication has unnerved me further. Has Lynn made up her mind about me? Is she about to officially dump me? I take the fact that she is coming to my neighborhood as an ominous sign. Sounds like she’s making sure I don’t get any funny ideas about spending the night at her place. She finds my man cave endearing in an anthropological way — she prefers to experience it from a distance. Sleepovers tend to happen at her place, where we don’t have to worry about Cyrus disturbing our privacy.
 
-Horrified, I call Lynn right away. No response.
+Anxiety spreads from deep inside the pit of my stomach.
 
-I ring again and leave voicemail. I send two texts.
+I can’t let Akasha tear us apart.
 
-Still nothing.
+I can’t lose Lynn.
 
-The eerie, uncharacteristic radio silence continues.
-
-*What have you done, Akasha?*
-
-I know Lynn won’t be waiting for me at the library. My best bet is to head to her apartment in Astoria and hope that’s where I’ll find her.
-
-For a terrible moment I worry that Akasha has harmed Lynn. Jennifer’s destroyed features surface in my mind.
-
-As I hit the road, I try to push my fears aside but fail miserably.
-
-I arrive at Lynn’s place. After letting myself in, I suddenly breathe easily when I realize she’s home. Alive and unharmed.
-
-My relief is short-lived.
-
-She’s been crying and her mascara runs down her cheeks in black streaks. Her open laptop rests in front of her. Before I can utter a word, Lynn cuts me off. “Your new friend looked me up today. She couldn't stop talking about you.”
-
-I step closer. She holds up her cell phone. An unknown number has texted her screen grabs from my Tinder chat with Akasha including a damning shot of my own Tinder profile.  Lynn’s eyes narrow behind the curtain of tears.
-
-“If you don't want to be with me anymore, then break up with me. But don't play games.”
-
-“I swear to you, I can explain…”
-
-“Are you saying you didn't meet up with her the other day?”
-
-It’s a loaded question and I reply slowly. “I did, but here’s why...”
-
-This is all Lynn needs to hear. I realize she’s already made up her mind about this, and who can blame her?
-
-“I know it looks bad, but it's a long story. I needed to talk to her about Josh...“
-
-“Stop lying to me-”
-
-“Lynn, please...”
-
-“Just tell me one thing, and don't lie. Did anything happen between the two of you?”
-
-My little make-out session with Akasha flashes through my mind, and I hesitate. I’m a terrible liar. My wavering gaze confirms my guilt. Fighting back tears, Lynn says, “I think you should leave.”
-
-“Lynn, let me explain... This girl is dangerous. Josh is dead because of her...”
-
-Instead of helping my cause, this comment only makes things worse. Lynn glares at me, her tears making way for a growing rage. “Stop it. This is pathetic. I thought you loved me, Mark. But I guess I was wrong. Just get out. Please!”
-
-I’m about to plead with her when Lynn’s hostile stare stops me cold. Her pain is too fresh and raw for her to listen to my crazy tale of spontaneous combustion. This round goes to you, Akasha.
-
-As I step out of Lynn’s place and head back to the street, I try to console myself by saying things could be worse. Akasha could’ve tried to harm Lynn physically. In a way, Lynn backing away from our relationship might keep her safe — at least in the short term.
-
-I debate my next move.
-
-Part of me is tempted to walk straight into the nearest bar and get loaded. But nothing will be gained from numbing my mind. Forty men died because of this girl, and I need to find out why.
-
-For the moment, I roll with the punches. Something crazy is going on here, and I’d better get to the bottom of this mystery before it’s too late.
+Doing my best to manage my growing unease, I turn the wheel and head to Briarwood.
 
 \*\*\*
 
-My car snakes its way down a winding road. The temperature has dropped and it’s snowing again.
+As I pull into the diner’s parking lot I know I’m running about five minutes late, but Lynn isn’t there yet. This seems out of character for her – not only is she incredibly organized (to an almost scary degree), she’s rarely late for appointments.
 
-I pull up to a middle class, one-family house. A massive snowdrift weighs down the structure. Ominous icicles sprout from the edge of the roof like razor-sharp teeth.
+I seat myself at a comfy booth in the ‘50s style diner and inhale the scent of sizzling comfort food that wafts through the air. The corned beef and hash is amazing here, but my frayed nerves have robbed me of my appetite. This isn’t a date, and I prefer to receive bad news on an empty stomach. I order a Diet Coke but after two sips of my artificial treat, I switch to beer. I don’t want to be drunk when Lynn shows up, but I need something to take the edge off while I wait.
 
-I park my beaten-up Honda and approach the property, which is enclosed by a wooden fence. The only sound comes from my shoes as they crunch the hard-packed snow.
+Thirty minutes and two beers later, I conclude that Lynn has had a change of heart. I pay my check and walk across the street. The cold air diminishes the alcohol’s effects but I still have a buzz going when I step into my apartment. I have the place to myself and the loneliness immediately makes me melancholy. Lynn has been such a big part of my reality for so long that I feel lost without her.
 
-I reach the door and ring the doorbell. Waiting in silence, I watch my breath mist in the cold.
+*Goddammit, I want my old life back.*
 
-Approaching footsteps grow audible. The door opens, revealing Akasha's mother. Mrs. Samona. I located her Flushing Queens address on the Internet while reading up on her missing daughter.
+Who knows what made Lynn blow me off, but I don’t take it as a good sign. I slip off my jacket and decide to take a shower. Moments later, a stream of hot water is warming my frozen limbs. I’m been out and about all day and this winter weather is getting old. I close my eyes and bask in the soothing sensation. That’s when I hear a familiar voice.
 
-I’m a little surprised that I’d never heard about Akasha’s case, as her disappearance made all the local news channels. Of course, this is New York City where people disappear on a daily basis. Media coverage of shootings, robberies and assaults present a ticker tape parade of life in the Big Apple. After a while, the stories blur together and one can’t keep track of the steady stream of human tragedy.
+“Mark…”
 
-Akasha lived with her parents until she disappeared ten months ago. As I take in the mother, I understand where Akasha got her striking looks. Mrs. Samona is middle-aged but well kept. Thanks to diet, exercise and genetics, she has launched a full-out assault against her advancing years. Akasha’s mom wears stylish athletic wear and despite the season she sports a dark complexion, courtesy of a tanning salon.
+Startled, I open my eyes and find Lynn standing behind the shower curtain. The plastic distorts her form. I pull the curtain back a few inches and realize she’s naked. My body immediately responds to the sight of her lithe, shapely figure. *God, she’s beautiful!* I’m flooded with relief. Lynn is back and that’s all that matters.
 
-“Mrs. Samona?”
+Wordlessly she steps into the shower and joins me under the hot stream. Steam wafts around us. We hug and I don’t want the moment to end. What does it mean? Is all forgiven? Has Lynn figured out that Akasha was lying?
 
-Mrs. Samona studies me for a beat. There’s heat in her gaze, an air of sexuality.
+“I’m telling you, Lynn, this girl set me up.” The words sound lame the moment they leave my lips, but I have to explain my actions.
 
-“You must be Mark Valentine. Please come in.”
+I can’t allow Akasha to tear us apart.
 
-I called ahead, so she knows why I’m here. Or she thinks she does, at any rate.
+I have to fight for the woman I love.
 
-A few minutes later, I’m sitting on the couch. The sexual tension in the room cannot be denied. The way she eyes me, smiles, keeps squeezing my hand... For a moment I have a vision of Mr. Samona popping into the living room and suspecting the worst.
+Suddenly, I realize that the shower is becoming hotter...unpleasantly so...
 
-Akasha’s mother pours herself a glass of wine. Must be time for an early happy hour. She offers me a glass, and I quickly decline, but she insists. I promise myself I will only nurse the drink.
+I run my hands down my girlfriend’s bare back, bury my face in her smooth shoulder. Lynn leans forward to kiss me and I gladly accept. Our lips find each other and lock with hunger.
 
-“You wouldn't believe the health benefits of red wine,” she says.
+My passion cools in a hurry.
 
-I take my obligatory sip and say, “Thank you, Mrs. Samona.”
+Something is wrong.
 
-“Call me Jane.” She smiles. “So how can I help you?”
+The woman I’m making out with doesn’t taste like Lynn. I once kissed a girl in high school who was a chain smoker, and this is about ten times worse. It feels like someone emptied out an ashtray in my mouth. As I pull back, my gut clenches with terror and a knot forms in my throat.
 
-“As I told you on the phone, I'm a journalism major and I’m doing a piece on missing teens.”
+*It can’t be...*
 
-The best cover story I could come up with on short notice, it sounded plausible to me at the time but now I’m not so sure. Fortunately, Mrs. Samona doesn’t seem to question my reasons for being here, and I internally sigh in relief.
+The woman staring back at me isn’t Lynn, it’s Akasha. Empty eyes fixed on mine.
 
-“So you want to write about my daughter?”
+I slip in the wet tub and fall backwards. Pain flares up my shoulder as my 180-pound frame hits the fiberglass edge. Hard.
 
-“I'm trying to give the story a human face.”
+Dazed, I squint through the steam and water and realize that I’m alone in the shower.
 
-*Am I laying it on too thick?*
+*Was it all in my mind?*
 
-“Akasha would love this. She has a tendency toward the dramatic. A trait she inherited from her father.”
+I dismiss the thought. I know what I saw. And touched.
 
-“What do you think happened to her?”
+Suddenly the shower-head turns toward me and the hot-water knob turns by itself. Instincts take over and I react without thought. I snatch the shower curtain and pull it off its hooks to shield me. It’s not a moment too soon as a jet of boiling water blasts down on me. The heat singes my fingers and the super-heated tangle of plastic is painful to the touch, but at least it’s deflecting most of the suddenly scalding water.
 
-This is a tricky question and I’m venturing into dangerous emotional territory. Fortunately, Mrs. Samona clearly doesn’t believe anything bad befell her daughter, or at least the armor of her denial doesn’t allow her to go there right now. “She ran away. To spite me. But she'll be back.”
+And then the sizzling spray dies down, becoming a mere trickle.
 
-Mrs. Samona drains her glass and pours herself another one. I begin to see the cracks in the chipper façade she’s constructed for herself. “This is just her way of telling me that I was a bad mother. I know my daughter.”
+I gasp for air and scramble out of the tub. My naked flesh smacks against the cold floor tiles. My body has turned crab-red, skin inflamed from the hot water’s assault. I leave a wet trail on the hardwood floor as I stumble into the kitchen. My gaze locks on the gallon of mineral water sitting on the kitchen table. Without hesitation I pour the bottle’s soothing contents over my body. I remember my first aid training. *Cooling the burn reduces swelling by conducting heat away from the skin.*
 
-*Do you really?*
+Dread bubbles up and I let the truth reach the surface of my mind.
 
-“You tried tracking her down?”
+I’m being stalked by a dead woman.
 
-“Her dad hired a private detective to search for her. He hit pretty much every strip club on the Eastern Seaboard. I hope they threw in a few free lap-dances for his efforts.”
+\*\*\*
 
-I’m beginning to realize that her callous attitude masks a frightened woman who isn’t quite sure that her daughter is all right, after all.
+I do my best to contain my increasing anxiety. Akasha’s advances are growing more insistent, and I sense that time is running out. As I get dressed, I receive a call from Lynn.
 
-“I'm sorry, Mrs. Samona. I mean, Jane... I was wondering if I could look around? To get a sense of who Akasha was...” I break off, cursing inwardly. Fortunately Mrs. Samona – Jane – is too buzzed to register my slip-up or take offense. Instead she says, “Her room is upstairs at the end of the hallway, to your right.”
+“I’m so sorry I stood you up,” she says, and I know she’s fighting back tears. “I got off the train and was all ready to head to the diner—” She breaks off. “I was scared of what I would do if I saw you.”
 
-I wait for Mrs. Samona to escort me to Akasha’s room, but she just keeps gulping down her wine.
+I read between the lines.
 
-*Awkward.*
+Lynn’s plan was to end our relationship. But she couldn’t go through with it. This gives me hope. Hopefully we can fix this and put it all behind us. But first I must resolve the Akasha problem.
 
-I guess she is giving me free rein to explore the house.
+I know I’m grasping for straws here, but I decide to reach out to Darryl’s brother Adam. Adam works as a freelance editor at Visual Aid, a post-production house that cuts commercials and movie trailers. I look up his work number and make the call. The receptionist picks up after a couple of rings and with some prodding, she tells me that Adam quit several weeks ago. I look up his home address online.
 
-I get up and head for the nearby staircase. A minute later I’m standing in front of Akasha’s bedroom. Pushing the door open, I feel like an intruder.
+Adam lives in Greenwich Village – editing must pay well. I arrive around five o’clock just as a cold, gray day becomes an even colder night. As I walk up to the majestic brownstone, I feel like a peasant visiting royalty. A week ago I was thinking I’d have my own sweet pad somewhere in Manhattan, down the road a bit. Now I’m not sure I’ll see tomorrow.
 
-*Like I shouldn’t be here.*
+I’m reaching out to ring the buzzer when an elderly lady emerges from the front lobby, about to take her Cocker Spaniel for a walk around the neighborhood. She’s in her own little world and before the door can close, I slip into the hallway.
 
-I soak in my new surroundings. The bedroom is exactly what you’d expect from a rebellious young woman. Dark art and posters of edgy rock stars abound. I comb the bookshelves and spot various tracts on Eastern religion, anarchist politics, bios of cutting-edge musicians.
+A few minutes later I’ve located Adam’s apartment. I press my ear against the heavy oak door. Based on the muted shuffling of feet and the low drone of the TV, I can conclude that someone’s home.
 
-I zero in on the computer sitting on a small desk. I touch the keyboard, half expecting Tinder to pop up on her desktop. But the screen remains blank.
+I knock on the door.
 
-I continue searching the room and notice a framed photograph on Akasha’s nightstand.
+The television turns off and someone approaches. I go over my pre-rehearsed spiel in my head. Adam and I share something important in common – we’ve both lost our brothers to Akasha. I’m banking on this connection to make Adam talk, assuming he knows anything. The lock snaps back and the door swings opens, revealing Adam.
 
-It shows Akasha with a girlfriend who’s wearing a Starbucks uniform.
+He wears ragged sweats and heavy bags ring his hollow eyes. It looks like he hasn’t shaved, or even bathed, in days. I catch a glimpse of his apartment behind him and it mirrors his sorry state. Empty boxes of takeout and crushed beer cans litter the dwelling. I’m still debating my next move when I notice the burn marks on his hands. They’re identical to the ones Akasha left on my neck a couple days ago.
 
-Shit, I recognize this Starbucks. This is where I first met Akasha. Someone scrawled a message over the picture with a black Sharpie: *Friends forever, Liza.*
+*I’ve come to the right place.*
 
-I make a mental note to ask Jane about her daughter’s friend Liza.
+My presence unnerves Adam and he shoots me a suspicious look. “Who the hell are you?”
 
-Beside the bed I find a journal filled with dark drawings and weird writing. I don’t expect to discover any earth-shattering secrets within, but hopefully it’ll give me a better sense of Akasha’s character.
+I avoid the question and cut to the chase. “We need to talk.”
 
-It doesn’t.
+“Talk about what?”
 
-After a few pages, the drawings and cryptic writing end. I realize that it’s more of a creative book of poetry or lyrics than a diary.
+I had planned to be subtle about this, but instead I just come out and say it. “Akasha.”
 
-This all changes once I turn to the journal’s last page.
+His expression goes from annoyed to outright hostile. But I press on. “Akasha Samona vanished six months ago. I know she was dating your brother Darryl...”
 
-An eerie message stares back at me: *Why don’t you love me, Mark?*
+“News flash, pal — Darryl was married, and he’s dead now. You don’t look like a cop. So why bug me with this shit?”
 
-I drop the journal, gripped by a wave of terror.
+He leans closer. “I told the cops everything I know, which isn’t much. Now get the fuck out of my face.”
 
-How is this possible?
+I remain frozen in place.
 
-For a split second I can’t shake the sensation that Akasha is here in the room with me. My mind is reeling. How could this message exist? Did Mrs. Samona lie to me? Did Akasha come back?
+“What are you waiting for?! Get the hell out of here before I kick your ass!”
 
-I must get out of this room. Out of this house. Away from the madness that has invaded my life. I want things to go back to the way they were before I met Akasha.
+I’m about to comment on the burn marks but decide against it. Instead I grab his arm and push him into the apartment. He’s a big man but too drunk and surprised to put up much of a fight. I’m not sure what has gotten into me. The pressure, anger and loss of the last few days must have made me snap.
 
-As I storm back down the stairs, Mrs. Samona says, “That was quick. Find everything you needed for your story?”
+I’ve lost my brother.
 
-I nod and quickly leave the house. Outside, it’s finally stopped snowing. The looming snowdrifts and frosted trees glitter with ice. Somehow their shapes are now imbued with a sinister quality.
+I might be losing my sanity.
 
-As I stomp across the white expanse, the long winter shadows are heavy and the Samona home slowly recedes behind me. Suddenly I pause, beads of sweat bursting on my forehead.
+But I’m not going to lose Lynn.
 
-*As if the temperature has shot up thirty degrees.*
+I can’t allow Akasha to go after my girl. Adam is hiding something and I will make him talk. One way or another.
 
-I unbutton my jacket and remove my hat. A splashing sound draws my attention. With each step I take, the snow beneath my feet grows more watery. It’s melting at incredible speed...
+I slam Adam against the wall. He catches his bearings, pissed now. He takes a swing at me but his punch is alcohol-sloppy and misses. I fire back, landing two quick punches that topple him onto the couch. My eyes land on a small fire extinguisher resting on the couch. Looks like someone is taking his safety seriously.
 
-I stop dead in my tracks as I pick up another noise.
+A moan escapes Adam’s mouth and he rubs his jaw, spits blood on the floor. After two punches, my hands feel like they’ve been pounding a brick wall. It’s been quite a while since I’ve been in a fight.
 
-*CRACK-CRACK-CRACK.* Slowly, I turn...
+“What the fuck do you want, man?” Adam asks, half confrontational and half afraid.
 
-My eyes lock on the icicles hanging from the Samona house. The ice cracks and flexes...
+“Akasha was seeing Darryl when she disappeared. Tell me what happened.”
 
-Right before my eyes, the snow on the roof evaporates and sheets of water cascade down the side of the house. The small waterfall is a surreal sight.
+Adam only glares at me.
 
-I stare open-mouthed as it dawns on me that I’m now standing in a giant puddle. Part of me wants to start screaming.
+My rage detonates and I pull the collar of my jacket back, exposing burn marks identical to his.
 
-LEAVE ME THE FUCK ALONE!
+“She's been coming after you too, hasn't she? That’s why you quit your job. Why you’re trying to hide in a bottle. What did you and Darryl fucking do to her?”
 
-Instead, I jump into my car and take off.
+Still no response.
 
-I know exactly who I need to talk to next.
+My anger drains and turns into desperation and fear.
 
-I must return to the place where this madness started.
+“Talk to me, goddammit.”
 
-[5](https://www.reddit.com/r/nosleep/comments/11drj5n/ghosted/?utm_source=share&utm_medium=web2x&context=3)
+Adam lets out a deep sob. “She can't hurt you! She can't hurt anyone anymore.”
+
+My eyes bore into him and I say, “Tell me everything.”
+
+Adam does.
+
+\*\*\*
+
+The words come haltingly as Adam dredges up a past he prayed would remain forgotten.
+
+“Darryl was getting antsy during Megan’s pregnancy. Their sex life was suffering, and he started looking at other women.”
+
+“He started hooking up with women on Tinder,” I say.
+
+“It’s my fault. He saw me using the app, meeting new girls all the time. I guess one day he downloaded Tinder and met up with someone.”
+
+I process this. Darryl had money, a cool career, a beautiful wife. But it wasn’t enough.
+
+“How often?”
+
+Adam shakes his head.
+
+“I don’t know. It happened a lot. Darryl was out of control. It became an addiction, I think. Don’t need to be a shrink to know he was trying to destroy his marriage. I told him he was playing with fire.”
+
+*And he finally came too close to the flame.* I keep this thought to myself.
+
+Adam pauses and downs a shot of Jack Daniels before continuing. “He would take his dates to our parents’ cabin in Long Island. Mom passed away a little over a year ago and the place has been empty ever since. We were thinking of putting it on the market, but it needs a lot of work...”
+
+Adam’s voice trails off for a second before he says, “Darryl’s wife was eight months pregnant and he was meeting women online and taking them back to the lakeside cabin we spent our summers at.”
+
+Adam’s voice trembles with anger. “I knew it wouldn’t end well. One night I got a call. Darryl was freaking out on the other end, begging me to come to the house. He refused to go into detail on the phone, but I knew something terrible had happened. The panic in his voice...it wasn’t like anything I’d ever heard before. God, how I wish I’d never answered the phone that night.”
+
+Anger is making way for another emotion: deep remorse. Tears well up in Adam’s eyes. Suddenly I’m not so sure I want to hear the rest of the story. But no turning back now.
+
+“Your brother had murdered Akasha.”
+
+The words slip out because by now I know Akasha must be dead, and I’m tired of Adam dwelling on the details. I want...no, *I need* to know what happened to the woman who has turned my life into a waking nightmare.
+
+“Darryl didn’t say a word when I pulled up. He just walked into the house. I followed him into the living room and that’s where she was. Sprawled out on the floor, her neck twisted... I just knew she was dead.”
+
+I can vividly picture the scene in my mind. I can almost see Darryl’s panicked, ashen features and the numb shock Adam must’ve experienced when he first laid eyes on the woman on the floor.
+
+“Why did he kill her?” I ask.
+
+“He said it was an accident. He was trying to break it off with Akasha. He told her he had a wife and kid.”
+
+*Maybe he should’ve mentioned that before he contacted her online*, I think, but keep my mouth shut.
+
+“Akasha threatened to tell his wife everything. That’s when he snapped. He gave her a shove, she lost her balance... Hit her head on the chimney.”
+
+“Why didn’t you call the cops, if it was an accident?”
+
+“I told him he should. Darryl said nobody would believe him. He figured they’d take one look at a high-paid lawyer with a baby on the way and a dead nineteen–year-old in a remote cabin turned fuckpad... A jury would send him away for good.”
+
+“What then?”
+
+“God forgive me... I decided to help him destroy the evidence.”
+
+Adam wipes away the tears that keep welling up. I know he wants to stop talking about this – reliving that night must be torturous – but I need him to finish his story.
+
+“You became an accomplice to murder.”
+
+“I figured she was dead already. We couldn’t bring her back, couldn’t change what happened. What was done was done. I kept thinking about Darryl’s wife, the baby on the way... Lot of fallout, man. Didn’t want to see more lives be destroyed in the process.”
+
+Adam stares a hole in the carpet, shaking his head. “I felt responsible, you know? I introduced Darryl to that stupid app. If it hadn’t been for all my bragging about banging chicks that I met on Tinder...”
+
+I don’t want to hear apologies and excuses. “What did you do with the body?” I ask, curtly.
+
+“I told Darryl we’d take care of it, and we did. We buried her in the woods a few miles from the house.”
+
+I imagine being dumped into a shallow grave, the world unaware of what happened to me. Just another missing person in a long line of missing people. I know I’d want my story to be told and for the truth to come out.
+
+Will Akasha stop seeking retribution if we find her body? Will she accept that she’s dead and move on to whatever’s next?
+
+I notice a strange look of determination in Adam’s eyes. Then it hits me — he hasn’t finished telling the story. There’s one final part of Akasha’s dark tale that remains untold. Having come this far, he wants to go all the way and get it off his chest.
+
+“Something else happened that night,” I say, to prompt him.
+
+“I was worried that someone might find the body and be able to identify Akasha’s remains. After we put her in the ground, I went back to my Jeep and got the emergency gas tank.”
+
+Dread spikes inside me. I’m about to receive the chilling final piece of the puzzle.
+
+“Darryl dumped the gas all over her body. I was going to use my lighter, but I quit smoking a couple months earlier. There were some matches in the glove box, though...”
+
+Adam takes a deep breath. “Darryl was too much of a mess at that point, so it was up to me. This was a cold, windy night. The first couple of times, the match didn’t stay lit. You know what they say — third time’s the charm.”
+
+Once again I can vividly picture the scene. I see the match catching fire as if I’m standing next to Adam. I see it falling into the open grave. Flames ignite on Akasha’s gasoline-soaked body...
+
+“She went up almost instantaneously.” Adam lets out a heaving sob that shakes his whole body. The next words come sudden and sharp. “All of a sudden she was screaming! I can still hear her. Oh my God, I swear we thought she was dead…”
+
+Adam’s hands are trembling now and his face has turned to marble. A shudder ripples through me as the full horror of what happened that night is finally revealed.
+
+No wonder Akasha is torching men like Darryl.
+
+She was burned alive.
+
+[6](https://www.reddit.com/r/nosleep/comments/11gepv3/ghosted/?utm_source=share&utm_medium=web2x&context=3)
