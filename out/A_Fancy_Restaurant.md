@@ -94,4 +94,4 @@ We got to the ER and nurses and doctors worked on Jerry. I tried explaining to t
 
 But the reason I’m writing this is because I am scared. I heard him make a phone call when I went out to have a smoke. He said 
 
-“They are the hospital. I will take care of it, master.”
+“They are at the hospital. I will take care of it, master.”

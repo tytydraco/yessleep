@@ -459,4 +459,4 @@ Or someone else much [worse?](https://www.reddit.com/r/JGcreepypastas/comments/z
 
 [YT](https://youtube.com/@JordanGrupe)
 
-[TCC]https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
+[TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
