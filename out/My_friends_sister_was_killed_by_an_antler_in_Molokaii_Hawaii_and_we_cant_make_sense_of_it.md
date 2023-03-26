@@ -1,16 +1,52 @@
-Edit FINAL: they’re taking me back this afternoon shit went down at the funeral. We are all in shock. There’s pencil and paper there so I will be able to write. Will update when I can. Nathanael
+Edit 5, 3/26/23: I’m home. Again.
 
-Edit 4: UPDATE 3/25/23:
+I’m just gonna go ahead and edit this post with my write-up from after the wake for now. I will be able to make a separate post in eight hours or so and I’ll format some things a little better then.
 
-(dead link, will post later)
+“PART 2: 3/24/23, originally posted 3/25/23”
 
-Edit: to remove Vivian’s last name.
+Jesus Christ. I don’t even know what to say. We had the wake, technically. It was peaceful for a while. Until Harrison showed up.
+
+The nerve. He couldn’t stay home for one night? Harrison Weyl, the 32-timer indeed. Venerated saint, martyr extraordinaire. You never saw someone so full of shit. On crutches no less. Bravo, encore. Everyone fawned over him. A small crowd formed to witness his penitence. His endless multifacetedness. Of course. Yes he’s so *very* sad. And injured. How fucking awful.
+
+Just like in the movies, Mason, the moves make the man and then the man makes the moves.
+
+But then a man makes moves, and other men. And I’m a fucking man, not what that miserable pale murdering nerd called me.
+
+Harrison Weyl is an bigot, a cheat, and a murderer. He killed my friend Vivian Jackson with a whitetail deer antler on Sunday, March 19, 2023 and tried to cover it up with a rather artful lie about a collision with deer on the highway that was untraceable due to the circumstances and remote location. Unfortunately for him he didn’t even fucking know there weren’t any whitetail in Hawaii so his lie caught up to him very quickly. It was a good performance and he really went for broke on the method acting with the injuries but that’s what happened. When I pressed him on his lies *that’s* when he started to talk about the “man in antlers.” What a fucking joke.
+
+Apparently Harrison had no less than six other “lady friends” in various parts of the world. Lua tracked four down and got in contact with them. He showed me the screenshots. One of these people is, no-shit, sort of high-profile. Of course I’ll confront him about it but tonight was not the night, there was enough going on already.
+
+Part of Harrison’s fabrication involved a condition Viv was studying, CWD or Chronic Wasting Disease. For those who don’t know, it’s a neurological disease that affects deer, elk, moose, etc. They essentially become zombified. Harrison, smart as he is I have to hand it to him, knew about this and concocted the man in antlers story to cover up his murder of Vivian. I won’t even repeat the fiction he told me because it’s so disgusting…both the fact that someone could invent such a thing at all and that, additionally, they would do so to avoid the consequences of their own actions. Harrison WAS driving. I guess. Does it matter?
+
+Ok. Slow down. Tonight was even fuckier than last night but if we can get through the funeral tomorrow then we can focus on bringing charges against Harrison. He’s gonna be there, we know it. He and Lua threatened each other at the bonfire, pretty savagely. We had to separate them.
+
+I’m staying with Lua tonight at their place. They’re still feeling pretty low after the events of this week and apparently the mental ward “helps but also doesn’t.” We’ll probably just play games and hang tight until the morning. I’m into shooters and stuff but Lua likes strategy games. Or if we’re feeling naughty we might go to the park and “trap” something. It’s a public park but abandoned after dark and Lua lives right next to it so we can do whatever we want. I know this is odd but when we were crossfaded once we laid in the tall grass in the dark after a fresh rain, waiting for passersby so that we could reach out and grab at their ankles as they passed, maybe a snarl and a tossing of a rock. We never hurt anybody. We would lay on our sides laughing for solid minutes afterwards every time…Those are precious memories now.
+
+Once we were riding in Viv’s parents SUV, she and Lua and me. I was driving and we decided we wanted to scare someone by running them off the road. We did. It shook up them and us. We all said we would have to take that to our graves. Viv was mortified and didn’t talk to us for weeks but life goes on. Ha ha.
+
+The truth is that scaring people is fun. Having the upper hand, catching someone off guard…it’s a rush. And on the rare opportunities when you can scare lots of folks at once there’s this amazing moment where they all take on the same face…just one after the other, numbers in the audience, rapt with attention to the power of fear and wonder. Awe.
+
+I’m talkative tonight.
+
+Anyway, the funeral is still on for tomorrow yes. I’m not looking forward to it but at least we made it through tonight. Many of us were able to swap Vivrant stories and share a laugh, a memory, an impression…Harry and Lua settled down after the initial animosity. Let’s hope they can keep it up just a little longer.
+
+I should go. Lua hasn’t been sleeping well lately but that’s ok. The stress on the poor boy. Twenty-six years old and already a wrinkled face, crow’s feet…ah but those are laugh lines. I play music for her sometimes, guitar or piano, and sing. Not Q-Tip but Mitski, or Alicia Keys, or even Beyoncé. If not the Mahler. Music calms both her nerves and mine like nothing else. I used to read before bed but the dreams only became more terrifying or unsettling. Even after a Wonderland or a Beanstalk. Now I just listen to music all day. Sometimes the characters in the lyrics almost become real to me. I can see them, touch them. They give me advice. Sometimes I sing back, or I sing to Lua’s stormy eyes flickering with anger behind them even in sleep. Such rage in one small person.
+
+I’m going to sing now. Any requests? It’s best to end the night with just one voice. There can be so many voices vying for our attention throughout the day so let me sing to you. Are there voices in your head right now? What do they say to you? Sit back. Close your eyes. Sing with me now. Softly, until they all fall asleep…
+
+\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
+
+&#x200B;
+
+Edit 4 3/25/23: they’re taking me back this afternoon shit went down at the funeral. We are all in shock. There’s pencil and paper there so I will be able to write. Will update when I can. Nathanael
+
+Edit 1: to remove Vivian’s last name.
 
 Edit 2: Ok. Lua and I talked most of the night. All my intuition is telling me there’s nothing supernatural going on. Viv’s wake is tonight so I really don’t have a ton of time to update but I may write something up after that.
 
 \*\*\*\*
 
-Edit 3: brief update, all I had time to write. Lua and HW are fine. Wake is still on for tonight and funeral for tomorrow. I’m having to update in this post since I made the original post not that long ago.
+Edit 3 (3/24/23): brief update, all I had time to write. Lua and HW are fine. Wake is still on for tonight and funeral for tomorrow. I’m having to update in this post since I made the original post not that long ago.
 
 *“I just went to visit Harrison very briefly. I asked him how he was doing, he was pretty drugged up but he said “never better.” I told him I talked to Lua and that I knew it wasn’t him who was driving and he FLIPPED. Kept saying “stop it, get the fuck out, tell Lua to shut the fuck up too.” I had to leave quickly. These are my friends guys. I’m actually scared now.*
 
@@ -42,7 +78,7 @@ P.S. Going out on a limb here but does anyone have any personal experience witne
 
 \*\*\*\*
 
-Original Post
+Original Post “Part 1”
 
 I found my friend’s journal, it’s really fucked. He got fired from his job this week, I drove by and saw cops outside his house. Apparently police took him away to a mental health facility and he just got back today. He can’t be alone so I’m staying with him but I looked through his journal. I know, spare me. It’s too much I don’t know what to do. Should I get anyone else involved? Her funeral is tomorrow and we/I just need everything calm.
 
