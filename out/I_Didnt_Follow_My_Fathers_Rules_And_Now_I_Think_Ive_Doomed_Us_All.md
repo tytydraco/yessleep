@@ -112,4 +112,7 @@ We reached the motel and we are currently thinking of a new plan. A helicopter j
 
 As I type out this post with the phone I stole, I can hear the battle raging outside. Many were going to die because of my mistakes. Maybe I should have just chosen to be in an orphanage, then this would have never happened.
 
-I'll keep you all updated but at this point, we win.....or we lose.
+I'll keep you all updated but at this point, we win.....or we lose.  
+
+
+[Part 9.](https://www.reddit.com/r/nosleep/comments/122u3yh/i_didnt_follow_my_fathers_rules_and_now_im/).

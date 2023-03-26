@@ -1,335 +1,211 @@
-[1](https://www.reddit.com/r/nosleep/comments/11aarni/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [2](https://www.reddit.com/r/nosleep/comments/11b55k8/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [3](https://www.reddit.com/r/nosleep/comments/11bzlg0/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [4](https://www.reddit.com/r/nosleep/comments/11cxd9x/ghosted/?utm_source=share&utm_medium=web2x&context=3)
+[1](https://www.reddit.com/r/nosleep/comments/11aarni/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [2](https://www.reddit.com/r/nosleep/comments/11b55k8/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [3](https://www.reddit.com/r/nosleep/comments/11bzlg0/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [4](https://www.reddit.com/r/nosleep/comments/11cxd9x/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [5](https://www.reddit.com/r/nosleep/comments/11drj5n/ghosted/?utm_source=share&utm_medium=web2x&context=3)
 
-**5**
+**6**
 
-Whirring Frappuccino machines greet me as I walk into the Starbucks where I was supposed to meet Akasha for the first time. I join the line of caffeine addicts and quickly spot the woman I’m hoping to find – Akasha’s friend Liza, whose picture I saw in the journal.
+I’m behind the wheel of my Honda, Adam riding shotgun. Darkness hangs over the forest as I wind my way up the tree-lined road. As we press deeper into this heavily wooded area of Long Island, there is little left to say. The bizarre happenings of the past few days now make sense to me. I finally understand why all these men perished in fires. In death, Akasha controls the element that took her life.
 
-Pierced, with a streak of red dyed in her hair, she strikes me as the type of girl to attain besties status with Akasha. Liza hands a middle-aged man his change, and then her eyes find me.
+Suddenly Darryl breaks the silence in the car. “I'm so sorry... I never meant to hurt anyone...”
 
-“How can I help you?” she asks.
+Part of me wants to punch him, but I suppress the urge. Adam can’t stand it anymore and asks, “You think this is going to change anything?”
 
-I tell her.
+Good question.
 
-Fortunately she is open, maybe even eager, to talk about her friend. I use the same story I did with Mrs. Samona – I’m doing a piece about missing teens. It makes my purpose for being here seem more noble and selfless, like I’m trying to make a difference in the world. I hate to lie to people, but I need answers.
+“I don’t know,“ I say. “Maybe once the world knows the truth, the killings will stop. Maybe Akasha will find peace.”
 
-Liza informs me that she’ll be off work in fifteen minutes. I order a coffee and find a table. I take a deep swig of my scorching hot brew and burn my tongue. I welcome the pain. It reminds me that I’m alive.
+“If I tell you where she’s buried, I’ll go to jail for life.”
 
-Fifteen minutes turn into half an hour, and time slows. My eagerness to pick Liza’s brain grows with each passing second. I try to distract myself by checking my email but fastidiously avoid Facebook. As I scan my favorite news apps, the irony is not lost on me that all this started with an app. Tinder. Shit, Josh, why couldn’t you stick to the good old-fashioned bar scene?
+“Can you live with yourself, knowing that she’s out there killing anyone who answers her personal ad and is foolish enough to sleep with her? Every one of her victims will be on your conscience.”
 
-Thinking about my brother drives the loss home. I’ve pushed a lot of my emotions aside but as I wait here for Liza to join me, they sneak up on me full-force. Finally Liza arrives, iced tea in hand. She is still wearing her work uniform as she sits down in front of me.
+Adam shakes his head. He senses that I’m offering him the next best thing to absolution.
 
-“So you're writing a story about Akasha?”
+“I can see why she went after Darryl, but why the others?” Adam asks. “They didn’t have anything to do with what happened that night.”
 
-The lies continue.
+It’s a good point, and I’ve already given it some thought. “Akasha always got involved with men who weren’t emotionally available. She was looking for love in all the wrong places. Married men, guys in relationships... They’d use her, discard her, ghost her. But not anymore. No one will ever love her and leave her again. Let the world beware.”
 
-“Yes, I was hoping you could give me a sense of what she was like. I understand you and Akasha were pretty close.”
+“So why did Akasha spare you?”
 
-“We were best friends,” she confirms. “We had something in common — crazy parents. Only difference is, her folks are loaded and I'm supporting mine.”
+I just shake my head. I refuse to share my theory with Adam. What separates me from all her other victims is that I never slept with Akasha. Men betrayed Akasha after they’d gotten what they wanted. Death is allowing her to take revenge. But maybe there are rules she has to play by... I don’t know, but one thing I’m certain of — had I succumbed to her affections, I’d be dead now. Just another name on her ever-growing list of dead Tinder dates.
 
-This revelation is communicated in such a casual, offhand manner that it’s easy to ignore the weight behind the words. We’ve barely started this conversation, and I already feel sorry for her.
+In a fatalistic voice, Adam declares that we’re here. I slow down and kill the engine. We get out of the vehicle and breathe the night air. The snow-laden pines seem alive, sickly moonlight casting a spooky glow on everything.
 
-Liza wipes a few tears and continues to tell me about her missing friend. Akasha may be destroying my life, but this girl still cares for her.
+As we creep deeper into the woods, boots crunching over the ice, I let Adam lead the way. The beam of my flashlight flits through the darkness like a lost soul. The shovel dangles from Adam’s hand and rakes the snow.
 
-“Akasha had a tendency to date guys who weren't available,” Liza explains. “Bad boys, dudes with girlfriends, married men. She’d obsess over people who could never love her back. She’d always get her heart broken.”
+Terrible secrets seem to lurk in this forest. We’re about to unearth one of them. Tonight history is repeating itself, except in reverse. Last time it was Adam and his brother burying the evidence. This time it’s up to us to uncover the truth.
 
-“Would she meet some of these dates on Tinder?”
+Adam stops and raises his arm, pointing at a fat tree. “We buried her over there.”
 
-“Akasha loved that stupid app. She was addicted to the attention. She’d hook up with guys and then wonder why none of them called her back after getting what they wanted.”
+I stare at the vista before us and realize I’ve seen it before. These are the same trees and icy landscape on Akasha’s Tinder cover page. All along, her profile offered clues to her final resting place, but no one was able to put it all together.
 
-I consider this. It certainly explains Akasha’s rage.
+I nod and say, “Start digging.”
 
-“Their first date would always be at this Starbucks. I was her lookout. My job was to swoop in and save her if the dude turned out to be a weirdo or some loser who had posted a fake pic.”
+“Please, don't make me do this.”
 
-“Where do you think she is now?”
+My withering gaze silences Adam. He stabs the shovel into the snow-covered mud and begins the dirty task ahead.
 
-“Her mom believes she ran away. That she’s living some crazy party life in Miami or stripping her way across the country.”
+Half an hour later, Adam is standing in a shallow grave surrounded by a mound of ice-hardened soil. With an expression of mingled disgust and sadness, Adam steps back from the grave. I move closer.
 
-“You don't believe that?”
+The moment I spot the skeletal remains at the bottom of the hole, a chill claws its way down my spine. Up until this point it’s all been words alone. Here is the reality of what happened. This is why Akasha’s spirit isn’t at rest.
 
-Liza takes a deep gulp from her drink.
+Blackened bones protrude from the frozen earth like jagged teeth. A charred skull stares back at me.
 
-“I was Akasha's best friend. If she was still around, she’d be in touch.”
+“Akasha...”
 
-“So what do you think happened?”
+I would swear the stench of burning meat is thickening around me, but it must be my imagination.
 
-“I think she met the wrong guy.”
+Adam regards the remains with deep regret. “I'm so sorry,” he mutters under his breath, seeking forgiveness for his crime.
 
-Liza doesn’t come right out and say it, but the message is clear. She thinks Akasha is dead.
+I’m caught off guard as I spot a pink backpack next to the remains. I fish out the mud-encrusted backpack that Akasha was buried with. Following a hunch, I open the backpack and find… a cell phone.
 
-I immediately dismiss the idea. I’m a physical therapist student. I believe in science. Ghosts don’t have a place in my perception of the world.
+Akasha’s iPhone.
 
-“Who was the last person Akasha met on Tinder before she vanished?”
+The screen and casing are cracked, and the battery should be dead but the screen flickers brightly in the cold night. The phone is running on a force other than electricity.
 
-“He was some Manhattan lawyer. He picked her up in his BMW. Pretty hot in a late-thirties, GQ kind of way.”
+With horror I realize the phone is logged onto Tinder. Adam and Darryl smashed up Akasha’s cellphone pretty good, destroying the technology that would allow it to be geo-tracked, but they never anticipated the symbolic value of the device. Akasha’s destroyed cell phone was a link to the world of the living. A link to her past. A link that allowed her to interact and make connections and haunt our reality from beyond the grave.
 
-“Could he be…”
+Tinder had killed her. But the dating app had also become the instrument of her unearthly vengeance. Her way of luring the living into her deadly curse.
 
-“When Akasha first went missing, cops came to talk to me. I told them about the lawyer. Guess what they said?  They already checked out that lead and the attorney, I think his name is Darryl or Derek, turned out to be a dead end. Know why?”
+As I try to wrap my head around it all, Adam whirls and takes off into the night. For a second I just stand there, too stunned to react, but I shake off my paralysis and tear off after him.
 
-The question hangs there for a moment, but I can guess the answer.
+I storm through the foreboding forest landscape, Akasha’s cell phone clutched in my hand. Part of me wonders how it could be working without power, but this doesn’t seem more fantastical than anything else I’ve experienced recently.
 
-Liza leans closer, her face masklike as she speaks. “Darryl died in a freak car accident. Lost control of his Porsche, hit a median and the gas tank blew. He was burned to a crisp. They had to identify him with dental records.”
+I charge through the thick undergrowth, stumbling over icy rocks and jumping over banks of snow. My breath comes in adrenaline-fueled bursts as I chase after Adam.
 
-A chill travels up my spine. Followed by a question. *Was Darryl/Derek Akasha’s first victim?*
+The forest is flooded with the Honda’s headlights. I spot Adam, a grim silhouette etched blackly against their glow. His words reverberate through the night. “I never meant to hurt anyone!”
 
-“Want to hear the best part? The creep had a wife and kid. Akasha sure knew how to pick them.”
+The tone of his voice worries me, and my concern is validated as I step closer. Adam is holding a jerry can in his hand. Before I can attempt to stop him, he douses himself with gasoline. The acrid-smelling liquid soaks his winter coat and pants, streaming down his face.
 
-I spin these new facts around in my head, hoping to make sense of the senseless.
+“Stay back!”
 
-Liza takes a final swig of her drink and rises. “Sorry, but I need to get back to work. It was good chatting with you. Email me when the article hits the Web.”
+I do, understanding Adam’s intentions. All I can do is appeal to his crumbling sanity. I can’t allow him to succumb to the guilt that has tormented him for all these months. Adam hurls the emptied gas can in the snow and extricates a lighter from his pocket.
 
-Liza turns away. I stare after her, pensive.
+“Adam, please don't.”
 
-If Darryl had something to do with Akasha’s disappearance, the knowledge of her fate died with him. I’ve reached an impasse and have no idea what my next move is.
+“I was just trying to help my brother. I had no idea she was still alive. You gotta believe me!”
 
-\*\*\*
+I take one more cautious step toward Adam.
 
-The icy road unfurls before me, as perilous as my own future. I view a news report of Darryl Kelly’s accident and recognize the man. Was he her first victim?
+“Adam, stop — I do believe you.”
 
-At this point I only have one lead, and it’s a longshot. Darryl’s younger brother Adam works as a freelance editor in Manhattan. I already made up my mind not to approach Darryl’s wife. She’s been through enough already without me digging up a possible infidelity in her late husband’s past. My plan is to pay the brother a visit and see if he can be any more helpful than the other people I’ve interviewed.
+“I've been dreaming of her. Every night I close my eyes and see her burn.”
 
-My chirping cellphone derails this train of thought. I scan the caller ID. It’s Lynn. My heart misses a beat. I’m both relieved and anxious as I press the answer button and Lynn’s voice fills my car.
+“Everything’s gonna be alright...” I say the words even though I’m not convinced. I take two more steps, arms up and palms open.
 
-“Mark, I need to see you. We have to talk.”
+“I'm sorry,” he says with grave finality and I scream, “DON'T!”
 
-The voice is businesslike, determined. She must’ve rehearsed this call numerous times. “Let’s meet at the diner across from your place in an hour?”
+Adam isn't listening. He is beyond my reach.
 
-“Sure,” I say robotically. Her mission accomplished, Lynn ends the call without further comment.
+Beyond help.
 
-My mind is churning. I was hoping Lynn would break the silence and reach out to me, but this chilly communication has unnerved me further. Has Lynn made up her mind about me? Is she about to officially dump me? I take the fact that she is coming to my neighborhood as an ominous sign. Sounds like she’s making sure I don’t get any funny ideas about spending the night at her place. She finds my man cave endearing in an anthropological way — she prefers to experience it from a distance. Sleepovers tend to happen at her place, where we don’t have to worry about Cyrus disturbing our privacy.
+He fires up the lighter.
 
-Anxiety spreads from deep inside the pit of my stomach.
+“NOOO!”
 
-I can’t let Akasha tear us apart.
+Night is turned into day as Adam transforms into a human torch. Flames engulf him the same way they devoured Akasha and her victims.
 
-I can’t lose Lynn.
+I recoil in shock.
 
-Doing my best to manage my growing unease, I turn the wheel and head to Briarwood.
+As the fire melts Adam's body, his screams of agony echo through the haunted forest. A forlorn plea for forgiveness that will go unanswered.
 
-\*\*\*
+I avert my gaze, unable to further bear witness to the horror. Mercifully, Adam’s death cries stop and his burning figure slumps forward. The only sounds now are the fire as it consumes what’s left of his body.
 
-As I pull into the diner’s parking lot I know I’m running about five minutes late, but Lynn isn’t there yet. This seems out of character for her – not only is she incredibly organized (to an almost scary degree), she’s rarely late for appointments.
+Still reeling from the shock, I remember the phone in my hand. The screen has changed. Facebook Live is on and offers me a view of an apartment I’m all too familiar with. It’s Lynn’s place as viewed through the webcam of her desktop computer.
 
-I seat myself at a comfy booth in the ‘50s style diner and inhale the scent of sizzling comfort food that wafts through the air. The corned beef and hash is amazing here, but my frayed nerves have robbed me of my appetite. This isn’t a date, and I prefer to receive bad news on an empty stomach. I order a Diet Coke but after two sips of my artificial treat, I switch to beer. I don’t want to be drunk when Lynn shows up, but I need something to take the edge off while I wait.
+*Akasha is going after my girl.*
 
-Thirty minutes and two beers later, I conclude that Lynn has had a change of heart. I pay my check and walk across the street. The cold air diminishes the alcohol’s effects but I still have a buzz going when I step into my apartment. I have the place to myself and the loneliness immediately makes me melancholy. Lynn has been such a big part of my reality for so long that I feel lost without her.
+**\*\*\***
 
-*Goddammit, I want my old life back.*
+I navigate my car down an icy street, driving as fast as I dare. Getting pulled over or causing an accident won’t do Lynn any good. Before leaving Akasha’s gravesite, I used Adam’s phone to call the cops. I told them about Akasha and where they could find her, then promptly hung up.
 
-Who knows what made Lynn blow me off, but I don’t take it as a good sign. I slip off my jacket and decide to take a shower. Moments later, a stream of hot water is warming my frozen limbs. I’m been out and about all day and this winter weather is getting old. I close my eyes and bask in the soothing sensation. That’s when I hear a familiar voice.
+I made sure to wear my winter gloves to avoid leaving any fingerprints. I’m hoping the cops will think Adam called to confess before he killed himself. There should be nothing linking me to the scene. At least I hope so. Either way, I have more important concerns at the moment. I need to reach Lynn before Akasha attacks her. I fear that I’ll be too late, but I have to try.
 
-“Mark…”
+The drive into Astoria feels like an eternity. I keep checking Akasha’s cell, but it has gone dark. What does that mean? Is it a good sign, or a bad omen? Does she know I found her grave and am now in possession of her phone? What are the rules of engagement for ghosts?!
 
-Startled, I open my eyes and find Lynn standing behind the shower curtain. The plastic distorts her form. I pull the curtain back a few inches and realize she’s naked. My body immediately responds to the sight of her lithe, shapely figure. *God, she’s beautiful!* I’m flooded with relief. Lynn is back and that’s all that matters.
+These are the insane questions that cycle through my mind as I whip down the road, hands clenched white around the steering wheel.
 
-Wordlessly she steps into the shower and joins me under the hot stream. Steam wafts around us. We hug and I don’t want the moment to end. What does it mean? Is all forgiven? Has Lynn figured out that Akasha was lying?
+I arrive at Lynn’s four-story apartment building just as one of the windows explodes. A fireball bursts out, dispersing into the winter night.
 
-“I’m telling you, Lynn, this girl set me up.” The words sound lame the moment they leave my lips, but I have to explain my actions.
+*OH MY GOD!*
 
-I can’t allow Akasha to tear us apart.
+A handful of workers and customers from the fruit and vegetable market across the street look up with shocked disbelief. The fire is spreading. While they gawk at it, I park the car and jump out, rushing toward the burning building.
 
-I have to fight for the woman I love.
+I pass through the main entrance but am met by a wall of fire in the staircase. Thick smoke stings my lungs. There is no way to make it up to the second floor and reach Lynn’s unit.
 
-Suddenly, I realize that the shower is becoming hotter...unpleasantly so...
+Or is there?
 
-I run my hands down my girlfriend’s bare back, bury my face in her smooth shoulder. Lynn leans forward to kiss me and I gladly accept. Our lips find each other and lock with hunger.
+Panic growing, I retreat to the street. There might be another way. I move along the side of the structure with dark urgency. Smoke plumes from the windows. Weakening timbers screech under the fiery assault.
 
-My passion cools in a hurry.
+I round the corner and zero in on the fire escape. Moments later, I’m climbing the rusting steps. As I reach the second floor, out of breath but driven by desperation, I pray I’m not too late. I find the window, wrap my jacket around my balled fist and punch through the glass. Shards slice through the fabric, but I ignore the pain. As I brush pieces of glass aside, I’m hit by a cloud of cloying smoke. I bring up my coat’s collar to cover my nose and mouth, slide the broken window open and climb into the building.
 
-Something is wrong.
+Inside, a howling world of fire awaits me. Flames and smoke are everywhere, the heat searing.
 
-The woman I’m making out with doesn’t taste like Lynn. I once kissed a girl in high school who was a chain smoker, and this is about ten times worse. It feels like someone emptied out an ashtray in my mouth. As I pull back, my gut clenches with terror and a knot forms in my throat.
+“LYNN, WHERE ARE YOU?!”
 
-*It can’t be...*
+I surge down the hallway. My body hums with adrenaline. Every fiber of my being is urging me to run the other way, but my girl is trapped in this building and I’m not leaving without her.
 
-The woman staring back at me isn’t Lynn, it’s Akasha. Empty eyes fixed on mine.
+“Lynn, can you hear me? LYNN!”
 
-I slip in the wet tub and fall backwards. Pain flares up my shoulder as my 180-pound frame hits the fiberglass edge. Hard.
+I close in on Lynn’s unit, eyes ticking back and forth, trying to penetrate the columns of smoke. Tongues of red and orange flame roil over the ceiling, crackling as they spread with supernatural speed.
 
-Dazed, I squint through the steam and water and realize that I’m alone in the shower.
+Suddenly, a voice cuts through the roar of the blaze. “*Mark...”*
 
-*Was it all in my mind?*
+I whirl and spot my girlfriend further down the corridor. Smoke inhalation has taken its toll, and she’s fighting to stay conscious, but she’s otherwise unharmed.
 
-I dismiss the thought. I know what I saw. And touched.
+Two quick strides later, I’m next to her. I give Lynn a quick hug before I grab her hand and pull her along. Her breathing lurches raggedly – who knows how much smoke is in her lungs already. She keeps staring at the burning staircase ahead. Akasha is nowhere to be seen, even though this must be her doing. A crumbling noise draws my attention. The staircase is collapsing. *Oh no.* I hope that everyone else in the building got out.
 
-Suddenly the shower-head turns toward me and the hot-water knob turns by itself. Instincts take over and I react without thought. I snatch the shower curtain and pull it off its hooks to shield me. It’s not a moment too soon as a jet of boiling water blasts down on me. The heat singes my fingers and the super-heated tangle of plastic is painful to the touch, but at least it’s deflecting most of the suddenly scalding water.
+I back away from the conflagration, mind racing. We’ll have to retrace my steps and use the fire escape.
 
-And then the sizzling spray dies down, becoming a mere trickle.
+Good idea, except for one tiny problem. A wall of surging flames now blocks the way I came from. We’re trapped, the relentless ring of heat closing in around us.
 
-I gasp for air and scramble out of the tub. My naked flesh smacks against the cold floor tiles. My body has turned crab-red, skin inflamed from the hot water’s assault. I leave a wet trail on the hardwood floor as I stumble into the kitchen. My gaze locks on the gallon of mineral water sitting on the kitchen table. Without hesitation I pour the bottle’s soothing contents over my body. I remember my first aid training. *Cooling the burn reduces swelling by conducting heat away from the skin.*
+I clutch Lynn to my chest. She is trembling with mortal fear. She knows all too well what is about to happen. Death is approaching fast.
 
-Dread bubbles up and I let the truth reach the surface of my mind.
+A figure grows visible at the center of the inferno. Akasha. Her body is burning, flames swirling around her. Her hellish gaze finds me, and she *surges* toward us, almost as if she is made of fire herself. Her eyes sparkle with a dark yearning as she approaches. One second she is as beautiful as she was in life, another she is a map of bubbling burn scars. Her haunting visage changes back and forth with each step she takes.
 
-I’m being stalked by a dead woman.
+I want to run, but escape has ceased to be an option.
 
-\*\*\*
+I must face Akasha.
 
-I do my best to contain my increasing anxiety. Akasha’s advances are growing more insistent, and I sense that time is running out. As I get dressed, I receive a call from Lynn.
+“I know what happened to you,” I say.
 
-“I’m so sorry I stood you up,” she says, and I know she’s fighting back tears. “I got off the train and was all ready to head to the diner—” She breaks off. “I was scared of what I would do if I saw you.”
+Akasha draws nearer, my words falling on deaf ears.
 
-I read between the lines.
+“I know about Darryl. How he lied to you... Just like all the others.”
 
-Lynn’s plan was to end our relationship. But she couldn’t go through with it. This gives me hope. Hopefully we can fix this and put it all behind us. But first I must resolve the Akasha problem.
+This latest revelation elicits a reaction. Akasha slows her advance.
 
-I know I’m grasping for straws here, but I decide to reach out to Darryl’s brother Adam. Adam works as a freelance editor at Visual Aid, a post-production house that cuts commercials and movie trailers. I look up his work number and make the call. The receptionist picks up after a couple of rings and with some prodding, she tells me that Adam quit several weeks ago. I look up his home address online.
+I forge ahead. “I know how they would promise you love but always leave you afterwards. Akasha, I know what Darryl and Adam did to you.”
 
-Adam lives in Greenwich Village – editing must pay well. I arrive around five o’clock just as a cold, gray day becomes an even colder night. As I walk up to the majestic brownstone, I feel like a peasant visiting royalty. A week ago I was thinking I’d have my own sweet pad somewhere in Manhattan, down the road a bit. Now I’m not sure I’ll see tomorrow.
+Akasha grows still. Encouraged, I continue. “The cops already know what happened. Soon the world will learn the truth. Your story will be told. You can be at peace.”
 
-I’m reaching out to ring the buzzer when an elderly lady emerges from the front lobby, about to take her Cocker Spaniel for a walk around the neighborhood. She’s in her own little world and before the door can close, I slip into the hallway.
+A frozen moment. The fire rages around us. In a matter of seconds it will envelop our flesh and force us to suffer the same terrible fate Akasha was forced to endure.
 
-A few minutes later I’ve located Adam’s apartment. I press my ear against the heavy oak door. Based on the muted shuffling of feet and the low drone of the TV, I can conclude that someone’s home.
+“Akasha, please. We’re innocent.”
 
-I knock on the door.
+Akasha’s features grow masklike again. The old yearning and fury returns. Her blazing gaze daggers into me. A carpet of fire marks her continued approach.
 
-The television turns off and someone approaches. I go over my pre-rehearsed spiel in my head. Adam and I share something important in common – we’ve both lost our brothers to Akasha. I’m banking on this connection to make Adam talk, assuming he knows anything. The lock snaps back and the door swings opens, revealing Adam.
+Despite my best efforts, I wasn’t able to reach her.
 
-He wears ragged sweats and heavy bags ring his hollow eyes. It looks like he hasn’t shaved, or even bathed, in days. I catch a glimpse of his apartment behind him and it mirrors his sorry state. Empty boxes of takeout and crushed beer cans litter the dwelling. I’m still debating my next move when I notice the burn marks on his hands. They’re identical to the ones Akasha left on my neck a couple days ago.
+I swap a glance with Lynn, then meet Akasha’s stare again.
 
-*I’ve come to the right place.*
+“You want me, don't you? If you can have me, will you let her go?”
 
-My presence unnerves Adam and he shoots me a suspicious look. “Who the hell are you?”
+Tears stream down Lynn's cheeks. I turn toward Akasha and approach the fiery apparition before me. Tendrils of flame dance around us as we meet at the end of the hallway.
 
-I avoid the question and cut to the chase. “We need to talk.”
+Akasha’s attention remains fixed on Lynn's sobbing form. She knows that I’m sacrificing my life to save the woman I love.
 
-“Talk about what?”
+Akasha reaches for me but before her burning touch can roast my flesh, she lets out a piercing wail. A horrific sound filled with longing, despair and unrequited emotion.
 
-I had planned to be subtle about this, but instead I just come out and say it. “Akasha.”
+I suddenly I know what I must do.
 
-His expression goes from annoyed to outright hostile. But I press on. “Akasha Samona vanished six months ago. I know she was dating your brother Darryl...”
+I pull out Akasha’s cell-phone from my pocket.
 
-“News flash, pal — Darryl was married, and he’s dead now. You don’t look like a cop. So why bug me with this shit?”
+And I toss it out the nearby window.
 
-He leans closer. “I told the cops everything I know, which isn’t much. Now get the fuck out of my face.”
+My eyes follow the falling phone as it shatters on the streets four stories below.
 
-I remain frozen in place.
+Akasha’s wail intensifies. Her only link to the world of the living destroyed.
 
-“What are you waiting for?! Get the hell out of here before I kick your ass!”
+The wall of flame is sucked inward, balling into a giant fireball that suddenly extinguishes itself in a brilliant flash of light.
 
-I’m about to comment on the burn marks but decide against it. Instead I grab his arm and push him into the apartment. He’s a big man but too drunk and surprised to put up much of a fight. I’m not sure what has gotten into me. The pressure, anger and loss of the last few days must have made me snap.
+Lynn and I are left behind in the gutted ruins of her apartment building. The sirens of an approaching fire engine grow audible. All that matters is that Lynn is safe. Our bodies remain locked in a tight embrace. As we cling to each other, it feels like we’ll never ever let go.
 
-I’ve lost my brother.
-
-I might be losing my sanity.
-
-But I’m not going to lose Lynn.
-
-I can’t allow Akasha to go after my girl. Adam is hiding something and I will make him talk. One way or another.
-
-I slam Adam against the wall. He catches his bearings, pissed now. He takes a swing at me but his punch is alcohol-sloppy and misses. I fire back, landing two quick punches that topple him onto the couch. My eyes land on a small fire extinguisher resting on the couch. Looks like someone is taking his safety seriously.
-
-A moan escapes Adam’s mouth and he rubs his jaw, spits blood on the floor. After two punches, my hands feel like they’ve been pounding a brick wall. It’s been quite a while since I’ve been in a fight.
-
-“What the fuck do you want, man?” Adam asks, half confrontational and half afraid.
-
-“Akasha was seeing Darryl when she disappeared. Tell me what happened.”
-
-Adam only glares at me.
-
-My rage detonates and I pull the collar of my jacket back, exposing burn marks identical to his.
-
-“She's been coming after you too, hasn't she? That’s why you quit your job. Why you’re trying to hide in a bottle. What did you and Darryl fucking do to her?”
-
-Still no response.
-
-My anger drains and turns into desperation and fear.
-
-“Talk to me, goddammit.”
-
-Adam lets out a deep sob. “She can't hurt you! She can't hurt anyone anymore.”
-
-My eyes bore into him and I say, “Tell me everything.”
-
-Adam does.
-
-\*\*\*
-
-The words come haltingly as Adam dredges up a past he prayed would remain forgotten.
-
-“Darryl was getting antsy during Megan’s pregnancy. Their sex life was suffering, and he started looking at other women.”
-
-“He started hooking up with women on Tinder,” I say.
-
-“It’s my fault. He saw me using the app, meeting new girls all the time. I guess one day he downloaded Tinder and met up with someone.”
-
-I process this. Darryl had money, a cool career, a beautiful wife. But it wasn’t enough.
-
-“How often?”
-
-Adam shakes his head.
-
-“I don’t know. It happened a lot. Darryl was out of control. It became an addiction, I think. Don’t need to be a shrink to know he was trying to destroy his marriage. I told him he was playing with fire.”
-
-*And he finally came too close to the flame.* I keep this thought to myself.
-
-Adam pauses and downs a shot of Jack Daniels before continuing. “He would take his dates to our parents’ cabin in Long Island. Mom passed away a little over a year ago and the place has been empty ever since. We were thinking of putting it on the market, but it needs a lot of work...”
-
-Adam’s voice trails off for a second before he says, “Darryl’s wife was eight months pregnant and he was meeting women online and taking them back to the lakeside cabin we spent our summers at.”
-
-Adam’s voice trembles with anger. “I knew it wouldn’t end well. One night I got a call. Darryl was freaking out on the other end, begging me to come to the house. He refused to go into detail on the phone, but I knew something terrible had happened. The panic in his voice...it wasn’t like anything I’d ever heard before. God, how I wish I’d never answered the phone that night.”
-
-Anger is making way for another emotion: deep remorse. Tears well up in Adam’s eyes. Suddenly I’m not so sure I want to hear the rest of the story. But no turning back now.
-
-“Your brother had murdered Akasha.”
-
-The words slip out because by now I know Akasha must be dead, and I’m tired of Adam dwelling on the details. I want...no, *I need* to know what happened to the woman who has turned my life into a waking nightmare.
-
-“Darryl didn’t say a word when I pulled up. He just walked into the house. I followed him into the living room and that’s where she was. Sprawled out on the floor, her neck twisted... I just knew she was dead.”
-
-I can vividly picture the scene in my mind. I can almost see Darryl’s panicked, ashen features and the numb shock Adam must’ve experienced when he first laid eyes on the woman on the floor.
-
-“Why did he kill her?” I ask.
-
-“He said it was an accident. He was trying to break it off with Akasha. He told her he had a wife and kid.”
-
-*Maybe he should’ve mentioned that before he contacted her online*, I think, but keep my mouth shut.
-
-“Akasha threatened to tell his wife everything. That’s when he snapped. He gave her a shove, she lost her balance... Hit her head on the chimney.”
-
-“Why didn’t you call the cops, if it was an accident?”
-
-“I told him he should. Darryl said nobody would believe him. He figured they’d take one look at a high-paid lawyer with a baby on the way and a dead nineteen–year-old in a remote cabin turned fuckpad... A jury would send him away for good.”
-
-“What then?”
-
-“God forgive me... I decided to help him destroy the evidence.”
-
-Adam wipes away the tears that keep welling up. I know he wants to stop talking about this – reliving that night must be torturous – but I need him to finish his story.
-
-“You became an accomplice to murder.”
-
-“I figured she was dead already. We couldn’t bring her back, couldn’t change what happened. What was done was done. I kept thinking about Darryl’s wife, the baby on the way... Lot of fallout, man. Didn’t want to see more lives be destroyed in the process.”
-
-Adam stares a hole in the carpet, shaking his head. “I felt responsible, you know? I introduced Darryl to that stupid app. If it hadn’t been for all my bragging about banging chicks that I met on Tinder...”
-
-I don’t want to hear apologies and excuses. “What did you do with the body?” I ask, curtly.
-
-“I told Darryl we’d take care of it, and we did. We buried her in the woods a few miles from the house.”
-
-I imagine being dumped into a shallow grave, the world unaware of what happened to me. Just another missing person in a long line of missing people. I know I’d want my story to be told and for the truth to come out.
-
-Will Akasha stop seeking retribution if we find her body? Will she accept that she’s dead and move on to whatever’s next?
-
-I notice a strange look of determination in Adam’s eyes. Then it hits me — he hasn’t finished telling the story. There’s one final part of Akasha’s dark tale that remains untold. Having come this far, he wants to go all the way and get it off his chest.
-
-“Something else happened that night,” I say, to prompt him.
-
-“I was worried that someone might find the body and be able to identify Akasha’s remains. After we put her in the ground, I went back to my Jeep and got the emergency gas tank.”
-
-Dread spikes inside me. I’m about to receive the chilling final piece of the puzzle.
-
-“Darryl dumped the gas all over her body. I was going to use my lighter, but I quit smoking a couple months earlier. There were some matches in the glove box, though...”
-
-Adam takes a deep breath. “Darryl was too much of a mess at that point, so it was up to me. This was a cold, windy night. The first couple of times, the match didn’t stay lit. You know what they say — third time’s the charm.”
-
-Once again I can vividly picture the scene. I see the match catching fire as if I’m standing next to Adam. I see it falling into the open grave. Flames ignite on Akasha’s gasoline-soaked body...
-
-“She went up almost instantaneously.” Adam lets out a heaving sob that shakes his whole body. The next words come sudden and sharp. “All of a sudden she was screaming! I can still hear her. Oh my God, I swear we thought she was dead…”
-
-Adam’s hands are trembling now and his face has turned to marble. A shudder ripples through me as the full horror of what happened that night is finally revealed.
-
-No wonder Akasha is torching men like Darryl.
-
-She was burned alive.
-
-[6](https://www.reddit.com/r/nosleep/comments/11gepv3/ghosted/?utm_source=share&utm_medium=web2x&context=3)
+*Love burns you when it’s hot.* But it can also save you.
