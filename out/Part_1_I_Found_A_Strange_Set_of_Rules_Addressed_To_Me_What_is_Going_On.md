@@ -2,7 +2,7 @@ I suppose I should start from the beginning, the very beginning.
 
 The sky was dark as the final hues of the sunset faded away. My return home was imminent. I had finished work particularly late. I walked briskly as my surroundings became darker. I took a quick break, leaning against a lamppost, out of anyone's way.
 
-It was then that I saw a piece of paper, attached to the lamppost with a piece of tape. I was stunned. 
+It was then that I saw a piece of paper, attached to the lamppost with a piece of tape. I was stunned.
 
 '**Rules For Your Survival'**
 
@@ -34,14 +34,14 @@ Rule 8: There is a set of keys inside the safe in your bedroom, the code to it i
 
 Rule 9: If you hear any strange noises, like a heartbeat or whispers with no plausible source, run, *fast.*
 
-Rule 10: After you read this note, **never utter your name again. You may use any other name but your own.**
+Rule 10: After you read this note, **never utter your name again. You may use any other name but your own.** Names are very important things, and to have someone... unideal know yours would be a problem.
 
 Those are the rules, **don't break any single one.**
 
 **What is yours was always theirs**'
 
-I stood there in shock, my mouth gaping open. Pardon my language but, oh shit, fucking hell...  how did this person know about the safe in my bedroom? Who wrote this? Was this some sort of entity? I was never a believer of the supernatural but... this was too strange. 
+I stood there in shock, my mouth gaping open. Pardon my language but, oh shit, fucking hell...  how did this person know about the safe in my bedroom? Who wrote this? Was this some sort of entity? I was never a believer of the supernatural but... this was too strange.
 
-I sprinted home and unlocked the door. Sure enough, a brown rucksack was right in front of me. 
+I grabbed the note, sprinted home and unlocked the door. Sure enough, a brown rucksack was right in front of me.
 
 *This has to be some sort of joke...* ***right?***
