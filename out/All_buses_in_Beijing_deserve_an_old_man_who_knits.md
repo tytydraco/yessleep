@@ -104,9 +104,4 @@ The very next day, I wired him some money, and sent a few gifts for his granddau
 
 Along with that, I asked for a transfer and moved back home.
 
-I stayed in touch with the elderly man for the remainder of his little life and continue to speak with his family and make an effort to assist them occasionally. Advising his now older grand children to stay vigilant and carry pepper spray at all times. You never know what you might run into next, be it a ghost or a human. 
-
-
-Edit: (If anyone feels it was unfair of the MC to accept the sweater)
-If you look closely, the character before the incident was a little materialistic; as a result, she continued to accept it. Along with that it was around 2 and she was in a soup and not in the correct senses at the time. 
-She improved herself as a result of this occurrence, nevertheless and tried helping the old man as well. Without some character development, any story would be lacking, thus, I believe it's fantastic that you were able to recognise her childish attitude in the first Part of the story.
+I stayed in touch with the elderly man for the remainder of his little life and continue to speak with his family and make an effort to assist them occasionally. Advising his now older grand children to stay vigilant and carry pepper spray at all times. You never know what you might run into next, be it a ghost or a human.
