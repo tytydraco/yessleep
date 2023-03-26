@@ -32,7 +32,7 @@ I'll tell you, that's why the only place I'll jog in this city is on the treadmi
 
 I guess the body wasn't all that unusual just… the state of it. It had been mutilated. Eyes removed, tongue removed,missing organs, missing patches of skin and muscle, missing genitals, all the bones there though, perfect and unbroken, just… no teeth, and no feet and no hands. And this was the fourth such body found in this state. NYC officially had a new serial killer on the scene.
 
-NYPD were hoping for DNA to give them some clue as to the identity of the victim, and they had a forensic sketch artist try to recreate his face that had been released at the press conference yesterday. 
+NYPD were hoping for DNA to give them some clue as to the identity of the victim, and they had a forensic sketch artist try to recreate his face in a drawing that had been released at the press conference yesterday. 
 
 Jimmy came by at about this time with a steaming plate of waffles for the blonde, and my mini breakfast buffet balanced between his two hands. He made it look easy, dipping like a dancer to place her plate on the table without ever making my platter of food wobble. He came to me next, and even though I ordered first, I didn't mind. Ladies first, after all.
 
