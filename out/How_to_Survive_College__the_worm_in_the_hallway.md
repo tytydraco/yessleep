@@ -14,7 +14,7 @@ And someone else isn’t.
 
 Let’s start with our conversation with Daniel.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 It went better than I expected.  I was even optimistic when it wrapped up.  We met him on Friday evening, over dinner at the student union.  I thought that was a bad idea, considering how he seemed perfectly willing to blow up at me in public, but Maria insisted.  Clearly she has more confidence in Daniel’s ability to pull himself together than I do.  So we showed up and sat down and Maria did most of the talking.
 
@@ -80,7 +80,7 @@ He was going to do this.
 
 Finally.
 
-We put the handle of the bag holding the gasoline jars over his wrist.  The bag with the molotov cocktail went on the other wrist.  
+We put the handle of the bag holding the gasoline jars over his wrist.  The bag with the molotov cocktail went on the other wrist.
 
 I stepped into the hallway first.  In my free hand I held a jar.  My other hand clutched at Daniel’s hand.  A strange sense of pressure ran over me as I left the safety of the dorm room.  Like trying to step through plastic wrap.  It passed quickly and I was standing in the hallway, one hand stretched behind me to keep hold of Daniel, and my mind was clear.
 
@@ -98,7 +98,7 @@ It didn’t have a face.  It only had a mouth.
 
 The flesh split into four portions, peeling back like a tin can, and the inside jaw was thrust forward.  It ripped free from the flesh holding it in place, tearing away from the skin, and I could see the dripping muscle beneath holding the bones and the teeth in place.  Its saliva became long, stringy loops, dripping from its jaws. The tip of its long tongue flicked the drool around its exposed jaw and where it touched muscle, it solidified into a new layer of ivory flesh.  Like a caterpillar spinning a cocoon.  It was spinning itself new flesh.
 
-This all happened in less than a minute.  Another ripple had started at the rear of its body, rapidly traveling up to the head, and behind it was another and another.  One of the ripples paused and then bulged outwards to either side, and legs split out of the flesh, thin and slick with fluid, reaching down to the floor on needle-like points.  
+This all happened in less than a minute.  Another ripple had started at the rear of its body, rapidly traveling up to the head, and behind it was another and another.  One of the ripples paused and then bulged outwards to either side, and legs split out of the flesh, thin and slick with fluid, reaching down to the floor on needle-like points.
 
 They weren’t actually legs, I realized.  I mean, that’s what they *looked* like, and they were moving like legs, but they were just going through the motions.  They barely touched the ground and they certainly weren’t gaining enough traction to move the worm forward.
 
@@ -136,9 +136,9 @@ I remember the feel of the jar slipping from my hand.  I don’t remember when I
 
 I remember half-turning my head towards Daniel.  Opening my mouth to say something to him.  But he wasn’t there, there was only an open doorway beside me.  A single open door among all of them arrayed down the length of the corridor.  If I could see what lay beyond it, I can’t recall what it was.
 
-I remembered thinking that if it had changed its target, then there was nothing I could do to save myself.  For its jaws were inches away, so close I could see the shine of the droplets of blood and saliva on its teeth.  
+I remembered thinking that if it had changed its target, then there was nothing I could do to save myself.  For its jaws were inches away, so close I could see the shine of the droplets of blood and saliva on its teeth.
 
-Then it slammed into me as it went racing past.  I was thrown against the wall, I felt hot moisture soaking the front of my shirt, and there was an impression of something rushing past me - like a gust of wind.  
+Then it slammed into me as it went racing past.  I was thrown against the wall, I felt hot moisture soaking the front of my shirt, and there was an impression of something rushing past me - like a gust of wind.
 
 My mind was clear.  I was leaning against the hallway wall and the front of my shirt was soaked with fresh blood.  Maria stood opposite me, pale and shaking, her eyes fixed on the doorway that Daniel had escaped through.
 
@@ -183,6 +183,8 @@ I shouldn’t have told him these creatures could switch targets.  I shouldn’t
 The worm has escaped the hallway.  It has a body and it’s loose on campus.  And maybe Daniel isn’t of interest anymore, but I don’t think this is over.  It can’t be.
 
 I don’t know what to do about it. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1227rs1/how_to_survive_college_more_adventures_with/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
