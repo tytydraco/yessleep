@@ -545,3 +545,6 @@ Oh, and if you live in or around Richmond, Virginia… stay safe. The creature m
 
 
 Now I hear three familiar voices. I need to run.
+
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/122mtbw/ive_been_traveling_to_different_realities_for_six/)
