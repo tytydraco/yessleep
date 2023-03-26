@@ -16,7 +16,7 @@ I was astonished, was that my... name? Written on that piece of paper was... my 
 
 I am aware that you have just moved in here, but be alert, as *they* know you are here. There is a limit to what I can do to keep you safe, but here are a few rules that should do the trick: **make sure to follow them closely**.
 
-Rule 1: Once you enter your place of residence, you have exactly **one hour** to gather all of your necessary belongings, there should be a bag by the entrance, but your stuff in there, and never come back.
+Rule 1: Once you enter your place of residence, you have exactly **one hour** to gather all of your necessary belongings, there should be a bag by the entrance, put your stuff in there, and never come back.
 
 Rule 2: Trust no one: everyone is **guilty until proven innocent.**
 
