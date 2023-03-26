@@ -63,6 +63,8 @@ After all, even though the subject experienced the same hallucinations as me, th
 
 Only a mere coincidence.
 
+(Any names, medication names and places have been changed for privacy purposes)
+
 *UPDATE*
 
 Hello, 
