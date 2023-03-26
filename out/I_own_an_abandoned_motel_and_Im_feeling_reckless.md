@@ -34,7 +34,7 @@ My face flushed and I felt the bile race into my throat.
 
 “It’s okay. I’ll keep my eyes open, for sure. Good luck.” I gently guided her out of my motel.  My head was spinning. I reassured myself that the coat was just a coincidence. *Popular brand, popular color*, I repeated like a lame mantra. I decided to refocus myself on organizing the desk drawers.
 
-In the deepest drawer, underneath decades worth of Martina’s meticulously-kept receipts, I found a small, composition book with a faded blue cloth cover, considerably older than anything else. On the inside was the name of my great-grandfather, John Calnon, written with a beautiful hand. Underneath was written the year 1923\*.\* Inside was a journal of sorts, not too detailed, just a few thoughts he must have jotted down here and there, reminders about chores and other mundane things. A line stood out to me.
+In the deepest drawer, underneath decades worth of Martina’s meticulously-kept receipts, I found a small, composition book with a faded blue cloth cover, considerably older than anything else. On the inside was the name of my great-grandfather, John Calnon, written with a beautiful hand. Underneath was written the year 1923.  Inside was a journal of sorts, not too detailed, just a few thoughts he must have jotted down here and there, reminders about chores and other mundane things. A line stood out to me.
 
 *Met with Allaire again today.* *He showed Ellen and I some options for the gable trim.* *Ellen seemed very taken with the ideas.* *We’ll have to see about the cost.*
 
@@ -209,3 +209,5 @@ He emerged with a full thermos, ready to talk. The night was clear and almost un
 [\[Part 12\]](https://www.reddit.com/r/nosleep/comments/11mxehf/i_own_an_abandoned_motel_and_i_fear_we_are_in_the/)
 
 [\[Part 13\]](https://www.reddit.com/r/nosleep/comments/11s260c/i_own_an_abandoned_motel_and_ive_listened_to_the/)
+
+[\[Part 14\]](https://www.reddit.com/r/nosleep/comments/11xl60w/i_own_an_abandoned_motel_and_im_ready_to_meet_my/)

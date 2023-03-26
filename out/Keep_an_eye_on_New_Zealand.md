@@ -1,0 +1,32 @@
+ I have always loved science. I love everything from astronomy to zoology. I have wanted to be a scientist for as long as I can remember. Sadly for me, I did not love studying or taking tests or, you know, any of the things which would make me into a real scientist. I eventually realized that the closest I would come to being a real scientist was to make friends with the nerds. So that's what I did: I'm a pretty, witty girl and I love nerds. I even ended up marrying one of them. Think Penny from Big Bang Theory and you get me. 
+
+  
+  My husband did biological science and he got hired on at a small lab in New Zealand a few months out of college. We were thrilled to move to such a beautiful place and he got me a janitor job at the lab so I could be close to the works. It was wonderful working there and getting to see science happen and advancements being made. The staff was small and, even though they spent their days sequestered in Pods of three or four working on specialty specific projects, they were all friends who ate together in the cafeteria before leaving to go to their homes.   
+
+  
+  It was this camaraderie which made it very peculiar when Pod V started to sit alone at the table in the corner of the caff and whisper to each other, giving everyone else the evil eye if they tried to join. I noticed this odd behavior about three days before my husband came to me and told me that he was going to be consulting for Pod V because they had come up against a problem that the virologists couldn't work out. He was as excited as a kid on Christmas to get started and, a few days later, he was equally excited to tell me that they had figured it out and their experimental treatment was going to work. It would revolutionize medicine and corner the market for “age defying” products. I was a little bit nervous when he said that he'd volunteered to be the human test subject in the trial the next day. He assured me that everything was going to be fine and that I shouldn't worry. 
+
+  
+  So, he did it. He let the folks in Pod V inject him with their new treatment. At first, he was great. He said that his eyesight was sharper, his memory was improving, and his skin felt stronger and firmer. Everyone on Pod V was over the moon about these results. After this success, Pod V rejoined the main populace of the rest of the staff with lots of apologies for the extra focus. My husband was thrilled to have been the one who made the breakthrough.
+
+  
+  It's now a week later, and everything had fallen apart. I went into the lab that Pod V was using to clean up and refill the food and water for the animals who were all sleeping. This was unnerving because they were never all asleep at the same time. I filled the water and food, then restocked the bathroom before beginning to sweep the floor. I was about half way done when I heard a growl. I turned to see a small monkey pressing his face against the glass of his enclosure, staring at me and baring his teeth. Then, I gasped as another monkey leaped up and attacked the first. They screeched and rolled around, scratching and biting each other, never drawing blood or causing any apparent damage to each other. I was mesmerized by this, and had absorbed enough that I understood the import of this. I dropped my broom and ran to the back wall where I pressed the big red button with a thumbs up symbol on it; the panic button would bring Pod V running.   
+
+  
+  The scientists were there in minutes, having run from the cafeteria, and they immediately began bustling around pressing buttons and preparing syringes. I stepped back into the corner of the room, not wanting to get in their way, and I'm glad that I did. I don't remember the technical things they were saying, but the gist of it was that the treatment was having unexpected side effects. It was basically the T virus: they had created zombies.   
+
+  
+  One of them happened to look up and noticed me standing there, probably looking terrified, and I saw the light dawn in his eyes as he remembered my husband. He ran over to me and commanded me to call him and get him to the lab. I wasn't allowed to mention what had happened, though, I was just allowed to ask him to come to Lab V as quickly as he could.   
+
+  
+  His phone rang a worryingly long amount of time before clicking over to voice mail. I shook my head at the scientist beside me as I left a semi-calm message asking him to come to Lab V as soon as possible. He nodded and rushed off to whisper in the ear of another scientist who then darted out the door, presumably to find my husband. We heard the screams when he opened the door. He was so very brave that he ran toward the screams, returning in a moment to tell us that my husband was attacking the others in the cafeteria and they were going to have to find a way to tranquilize or trap him.   
+
+  
+  He must have finished with the rest of the staff when we heard him bellow and then he was rushing toward Lab V. The first scientist grabbed my arm and told me to stand in front of the open door to an empty enclosure and dart out of the way when my husband ran at me. It seemed like a cray plan but I was so panicked that I just did what I was told. I was just lucid enough to dash out of the way when he dove at me and the scientists managed to get the door closed before he spun around to come after me again. Just like the monkey, my husband bared his teeth and pressed his face against the glass. Then he grinned and pressed his thumb against the locking mechanism, opening the door himself.     
+I saw him attack the nearest scientist, a woman we both liked really well, and bite into her cheek before I slipped into the bathroom and locked the door. 
+
+  
+  So that's where I am now. I'm hoping my husband falls asleep the way the monkeys did so I can sneak out of the lab and find help. I don't know how I'll know, though, so I just keep calling out to him or knocking on the door and listening to him bang against the door. I can only pray that he didn't retain enough of that mental aptitude to realize that I'm just waiting him out to escape.   
+
+  
+  Wish me luck and keep an eye on New Zealand. When the zombie apocalypse starts, it will start here.
