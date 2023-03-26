@@ -401,3 +401,7 @@ A small smile stretched across her face. Like she was waiting *forever* to tell 
 [“I know your real mom.”](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [SK](https://www.reddit.com/r/SimbaKingdom/)
+
+***
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/122j3ei/i_dont_think_im_normal_and_im_scared_part_2/)
