@@ -159,3 +159,5 @@ I forced myself to keep my pace steady as I started to walk again, thinking abou
 I didn’t have time to keep fretting over the vaguely recalled instructions, because something crashed through the bushes in front of us. It was - well, I wasn’t sure what it was. It was definitely big, big enough to take up the entire trail. It didn’t look like a bear, but in the dim lighting, I couldn’t seen much more detail. From what I could make out, it almost looked like a fallen log - except it was definitely moving. 
 
 “Run, RUN,” Stan shouted.
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1224mby/my_boyfriend_went_missing_in_glacier_national/?)
