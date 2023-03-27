@@ -41,3 +41,5 @@ I turned and ran, the salt container in mind, when I heard the rapid footsteps g
 Her reply however, reflected her evil intentions and left no doubt in my mind:
 
 "The game is called: red bloody kitchen."
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1234ouu/every_year_in_my_village_there_is_a_time_during/)

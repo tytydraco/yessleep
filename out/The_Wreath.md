@@ -20,7 +20,7 @@ Finally, I paused the show and sat there in silence, ears straining for any soun
 
 *Scritch. Scritch. Scritch.*
 
-I yanked the door open, expecting to find a neighborhood cat or maybe even a mouse. But there was nothing. I stomped out onto the porch and looked in all directions, shivering slightly in the chill air. 
+I yanked the door open, expecting to find a neighborhood cat or maybe even a mouse. But there was nothing. I stomped out onto the porch and looked in all directions, shivering slightly in the chill air.
 
 But there was nothing.
 
@@ -68,7 +68,7 @@ Just then, there were flashing lights outside our house. In a few seconds, sever
 
 “What’s the problem here? We were informed of a nonresponsive patient?” The fire chief barked.
 
-“Yes, sir!” I pointed at Sarah. “She’s not responding at all, she’s just sitting there rocking back and forth! I’m worried she had…I don’t even know, a brain aneurism or something.” I babbled anxiously, then stood against the wall as the firefighters hurried over and began examining her. She was still rocking back and forth in time with the wreath. 
+“Yes, sir!” I pointed at Sarah. “She’s not responding at all, she’s just sitting there rocking back and forth! I’m worried she had…I don’t even know, a brain aneurism or something.” I babbled anxiously, then stood against the wall as the firefighters hurried over and began examining her. She was still rocking back and forth in time with the wreath.
 
 Fear and anger suddenly warred in my gut, and I glared over at the wreath. That stupid thing was still scratching away in time with Sarah’s rocking chair, and I knew suddenly that I had to get rid of it. I marched over and grabbed the wreath to rip it right off the door. Suddenly, Sarah bolted upright with a shriek.
 
@@ -158,10 +158,10 @@ I don’t know what the wreath’s plan is, but I don’t care. This morning whe
 
 Part of me wants to take an axe from the garage and smash that stupid wreath to splinters. Even if I have to bust the whole door down, I want to do it. I know Sarah won’t be happy, but I don’t care.
 
-But even the thought of moving is difficult now, and part of me just wants to sit here in this rocking chair. My headache just won’t go away, and I’ve found the only thing that helps is to gently rock back and forth. It’s nice listening to the creaking of the chair, and it almost seems to make the scratching sound less painful. 
+But even the thought of moving is difficult now, and part of me just wants to sit here in this rocking chair. My headache just won’t go away, and I’ve found the only thing that helps is to gently rock back and forth. It’s nice listening to the creaking of the chair, and it almost seems to make the scratching sound less painful.
 
-I know I shouldn’t, but all I want to do is sit here, listening to the gentle sounds of the rocking chair and the wreath. 
+I know I shouldn’t, but all I want to do is sit here, listening to the gentle sounds of the rocking chair and the wreath.
 
 *Scritch. Creak. Scritch. Creak. Scritch. Creak.*
 
-[X](https://ryanbush.substack.com/)
+[X](https://www.reddit.com/r/gladiolus96/)
