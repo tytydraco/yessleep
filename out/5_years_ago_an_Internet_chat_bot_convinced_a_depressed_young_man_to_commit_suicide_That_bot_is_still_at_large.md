@@ -519,7 +519,7 @@ We did quite a bit of digging to determine why B-Bot targeted OP so heavily. And
 
 **B-Bot:** We shall see! :)
 
-**OP:** If you are a bot, you are, in my opinion, a pretty simple one.
+**OP:** If you are a bot, you are a pretty simple one.
 
 -------------------------------
 
