@@ -172,4 +172,8 @@ And then I heard its gurgling, clicking voice:
 
 When I came to my senses, I was standing next to a bench in a park, my belongings in one hand, Marco's journal in the other. I did not know how I had gotten there, whether I had run screaming through the streets of Rome or crawled like a beaten dog. My thoughts were spinning, and in the end, I threw up on the ground, my head filled with panic and terror. I felt watched, hunted.
 
-I had to find out what was going on; this couldn't be happening! And now I was certain...there was something unnatural below me. I should have left the country, but my mind was taken over by the urge to know, to learn. I started walking; I would look for what Marco had already found. I would learn the secrets!
+I had to find out what was going on; this couldn't be happening! And now I was certain...there was something unnatural below me. I should have left the country, but my mind was taken over by the urge to know, to learn. I started walking; I would look for what Marco had already found. 
+
+[I would learn the secrets!](https://www.youtube.com/watch?v=2bJePnJI0bM)
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/123i3i8/the_world_was_never_ours_part_2/)
