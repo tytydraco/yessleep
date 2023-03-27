@@ -98,7 +98,7 @@ I put up my hand because I knew that one, but Chase had shouted *”Wizard Islan
 
 “That’s right Chase, but let’s raise our hands if we know the answer.”
 
-Lou and I sniggered as Zach continued.
+Lou and I snickered as Zach continued.
 
 “And what about that smaller island all the way over there?”
 
