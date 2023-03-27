@@ -1,4 +1,4 @@
-I’m a fully-formed adult man, and I must be in my late twenties, judging by my physical appearance. My body and mind are ordinary, as far as I can tell. I understand how the world works. My head is filled with knowledge of language, history, and all other things that most people learn over the course of life. I am a human being. I am a person. I don’t doubt either of those things. But I am not like you.
+I’m a fully-formed adult man, and I must be in my late twenties, judging by my physical appearance. My body and mind are ordinary, as far as I can tell. I understand how the world works. I have knowledge of language, history, and all other things that most people learn over the course of life. I am a human being. I am a person. I don’t doubt either of those things. But I am not like you.
 
 I was born yesterday.
 
