@@ -26,7 +26,7 @@ It turned out they were brother and sister. Chase was ten and Lou was eight like
 
 “I think I’ve got it,” she said.
 
-“Okay!” I said excitedly. “Let’s go together from the top. One Two Three Four… Uh-huh, this my shit, all the…”
+“Okay!” I said excitedly. “Let’s go together from the top. One-Two-Three-Four… Uh-huh, this my shit, all the…”
 
 “Rebecca!” my mum yelled from behind. I quickly turned, my face warming up. “Language young lady!” She actually looked like she was trying to stop herself from laughing, and Lou *did* start laughing.
 
@@ -422,7 +422,7 @@ Just then Zach came running from the trees screaming bloody murder.
 
 My hands shook as I pulled the cord, I couldn’t get enough momentum. “I can’t do it!”
 
-“Let me help,” said Chase, putting his left hand over my right. “Three two one pull!”
+“Let me help,” said Chase, putting his left hand over my right. “Three-Two-One *pull!*”
 
 “Nobody leaves Wizard Island alive!” Zach screamed.
 
