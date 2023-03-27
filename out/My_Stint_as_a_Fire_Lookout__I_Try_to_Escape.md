@@ -1,6 +1,6 @@
-[Part 4](https://www.reddit.com/r/nosleep/comments/11tsl8w/my_stint_as_a_fire_lookout_the_woman_in_blue/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/11tsl8w/my_stint_as_a_fire_lookout_the_woman_in_blue/)[Part 6](https://www.reddit.com/r/nosleep/comments/123p41y/my_stint_as_a_fire_lookout_the_cave/)
 
-For everyone that has made it this far, thank you. What happened out in that forest still haunts me to this day, and we just have a little further to go. 
+For everyone that has made it this far, thank you. What happened out in that forest still haunts me to this day, and we just have a little further to go.
 
 I pulled the other radio from my backpack. I called the Station. They answered immediately. It was Hitch, the Ranger who led me up the first day.
 
