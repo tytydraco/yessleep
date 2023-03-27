@@ -2,8 +2,7 @@ Hi! I am Darius. If you saw some of Travis's Posts you should know about me. Thi
 
 If You wish to see Travis's Posts then go here: [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/), [Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/), [Part 4](https://www.reddit.com/r/nosleep/comments/11p1o9e/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 5](https://www.reddit.com/r/nosleep/comments/11qhrhp/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 6](https://www.reddit.com/r/nosleep/comments/11sahoe/i_didnt_follow_my_fathers_rules_and_now_im_a/). [Part 7](https://www.reddit.com/r/nosleep/comments/11u3060/i_didnt_follow_my_fathers_rules_and_now_im_being/), [Part 8](https://www.reddit.com/r/nosleep/comments/11vvxnk/i_didnt_follow_my_fathers_rules_and_now_i_think/).
 
-If you haven't seen my previous post, go here: [Part 1](https://www.reddit.com/r/nosleep/comments/11tfybd/i_am_best_friends_with_travis_marcella_one_of_his/).  
-
+If you haven't seen my previous post, go here: [Part 1](https://www.reddit.com/r/nosleep/comments/11tfybd/i_am_best_friends_with_travis_marcella_one_of_his/).
 
 Me and Bryson trekked through the forest, searching for any vantage point to look for Travis. I tried finding his scent but for some reason... There is this... "Presence" in the air. My sense of smell was practically useless.
 
@@ -15,11 +14,11 @@ Bryson climbed about halfway when we both saw a giant bird getting closer to Bry
 
 I concentrated and thrust myself off the ground to an astounding height. I managed to slightly grab the giant bird's foot and drag it down with me. As we crashed to the ground, the bird's feathers suddenly became extremely spiky and sharp.
 
-I struggled to attack the bird as every time I managed to get close, It would slice me with its feathers. More and more cuts littered my body and I was about to collapse when I heard a loud gunshot. 
+I struggled to attack the bird as every time I managed to get close, It would slice me with its feathers. More and more cuts littered my body and I was about to collapse when I heard a loud gunshot.
 
-Bryson had taken out his rifle and shot the bird in the back of its head while it was distracted. The force of him shooting had made him slip and he started falling out of the tree. I grabbed onto the tree and used my claws to scale the tree as fast as I could and managed to catch Bryson mid-air. 
+Bryson had taken out his rifle and shot the bird in the back of its head while it was distracted. The force of him shooting had made him slip and he started falling out of the tree. I grabbed onto the tree and used my claws to scale the tree as fast as I could and managed to catch Bryson mid-air.
 
-I climbed back down the hill and set Bryson down. 
+I climbed back down the hill and set Bryson down.
 
 "Did you see anything out of the ordinary"? I asked.
 
@@ -77,7 +76,7 @@ I stopped to see a group of wendigo emerge from the shadows.
 
 "Shit". One of the soldiers said.
 
-Bryson took out his gun and fired at the wendigo but they were able to hide behind the nearby trees. Travis took out a Desert Eagle and fired a shot into one of the wendigo's skull, sending it crashing to the ground as it pierced the bony exterior. 
+Bryson took out his gun and fired at the wendigo but they were able to hide behind the nearby trees. Travis took out a Desert Eagle and fired a shot into one of the wendigo's skull, sending it crashing to the ground as it pierced the bony exterior.
 
 I charged at one of the Wendigo's only to be swarmed and I felt immense pain around my body. I could smell their breath. It smelt like rotting corpses.
 
@@ -113,12 +112,14 @@ I tended to my wounds as the solders fired rounds at the Pilgrim to no avail. I 
 
 I was faster but I allowed him to take the lead. I looked up to see some helicopters. A surge of fear washed over me. This situation was getting out of control, how are we supposed to escape facility 14 if we are doing their dirty work and being heavily monitored.
 
-As we reached the motel, I glanced at Travis and something was wrong. He had this odd expression on his face. As he watched a helicopter land, I saw him grit his teeth. I wanted to say something but I was led inside the motel. I walked into the motel and listened to the soldiers bicker and complain. 
+As we reached the motel, I glanced at Travis and something was wrong. He had this odd expression on his face. As he watched a helicopter land, I saw him grit his teeth. I wanted to say something but I was led inside the motel. I walked into the motel and listened to the soldiers bicker and complain.
 
 "Honestly, how did these guys become soldiers". I thought to myself.
 
 I can hear a battle raging outside as Travis walks in. He sat down at the table the soldiers were at and I quickly typed this post before joining them.
 
-I'll keep in touch! 
+I'll keep in touch!
 
 P.S. Travis seems a bit sad, any ideas on how to cheer him up?
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/12442w8/i_am_best_friends_with_travis_marcella_we_are/)!

@@ -1,6 +1,6 @@
 Hello, It's been around a week since I last posted. Sorry for the wait, it's just hard to post this since...Well. I guess you will have to see for yourself.
 
-If you haven't seen previous parts of my story then go here: 
+If you haven't seen previous parts of my story then go here:
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/), [Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/), [Part 4](https://www.reddit.com/r/nosleep/comments/11p1o9e/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 5](https://www.reddit.com/r/nosleep/comments/11qhrhp/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 6](https://www.reddit.com/r/nosleep/comments/11sahoe/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 7](https://www.reddit.com/r/nosleep/comments/11u3060/i_didnt_follow_my_fathers_rules_and_now_im_being/), [Part 8](https://www.reddit.com/r/nosleep/comments/11vvxnk/i_didnt_follow_my_fathers_rules_and_now_i_think/).
 
@@ -22,11 +22,11 @@ The soldiers glanced at Eddie, expecting him to say Just Kidding or something bu
 
 "Yea, what happened at that facility of yer's"? Martin asked.
 
-"Kyle and a couple others have been rallying a secret group to overthrow the facility and use it for their own purposes. They tried to kill me but I escaped and took a helicopter with my trusted guards to Yellowstone so we could finish the job here". Eddie stated, "We need to kill this thing before it escapes the National Park-". Eddie went to say but I cut him off.
+"Kyle and a couple others have been rallying a secret group to overthrow the facility and use it for their own purposes. They tried to kill me but I escaped and took a helicopter with my trusted guards to Yellowstone so we could finish the job here". Eddie stated, "We need to kill this thing before it escapes the National Park-". Eddie went to say but Darius cut him off.
 
 "You want our help NOW?! I'm not gonna do your dirty work and risk me and my friend's lives". Darius snarled.
 
-I watched as his hand twitched, I remembered how my father used to do the same thing. 
+I watched as his hand twitched, I remembered how my father used to do the same thing.
 
 "We will help you, but on one condition Eddie". I stated.
 
@@ -108,11 +108,11 @@ We heard a radio crackle to life around 3 minutes into the battle.
 
 "Guys, you have 1 minute to set off the bomb". Eddie said from the radio.
 
-I quickly handed Bryson my water gun and told him to cover us. I grabbed onto Darius's back as he started running towards the Caldera. Me and Darius were halfway towards the Caldera when a couple of the lava monsters noticed us and chased us. They were getting closer and closer despite Darius's immense speed but we heard a couple shots go off from behind and we were no longer being pursued. We quickly reached the Caldera and Darius leapt into the air, pressing the button and thrusting the bomb into the middle of the Caldera, mid air. 
+I quickly handed Bryson my water gun and told him to cover us. I grabbed onto Darius's back as he started running towards the Caldera. Me and Darius were halfway towards the Caldera when a couple of the lava monsters noticed us and chased us. They were getting closer and closer despite Darius's immense speed but we heard a couple shots go off from behind and we were no longer being pursued. We quickly reached the Caldera and Darius leapt into the air, pressing the button and thrusting the bomb into the middle of the Caldera, mid air.
 
 We landed on the other side of the Caldera and we heard all the lava monsters screeching as they died. We all then heard a loud screech from the Pilgrim as it lost lots of its power.
 
-Bryson ran over but suddenly, as he was halfway around the Caldera to reach us, Lava tendrils erupted from the Caldera and began attacking us. 
+Bryson ran over but suddenly, as he was halfway around the Caldera to reach us, Lava tendrils erupted from the Caldera and began attacking us.
 
 Darius was grabbed and yanked off his feet and I desperately grabbed him and held onto a nearby tree that looked pretty sturdy.
 
@@ -134,7 +134,7 @@ I didn't want to look at the sight anymore and I quickly ran over to help Darius
 
 "Whatever you do, Make sure to hit the LEVER" Darius roared as the lava tendril slammed into him again. He threw all of us forward and towards the lever. Martin was too busy trying to see if Jayden was ok so it was up to me to press the lever. With effort, I ran towards the lever, already exhausted from everything that had happened. I reached out and touched the lever before being grabbed by my other arm from a lava tendril.
 
-I screamed in agony as I held onto the lever for dear life. With enormous effort I pressed the lever down and the motel exploded. 
+I screamed in agony as I held onto the lever for dear life. With enormous effort I pressed the lever down and the motel exploded.
 
 Debri went everywhere, trees collapsed and everyone was blasted back. The pilgrim was currently on top of the motel, using it as a height leverage and to be able to attack more people at once but now the Pilgrim was blasted into the air and collapsed onto the building, The lava tendrils shriveled up and turned into obsidian as the pilgrim was trapped in its own creation. The pilgrim started laughing maniacally as Darius walked towards the Pilgrim cautiously and rammed his claws into the Pilgrim, finally killing him. The Pilgrim let out one last demonic screech.
 
@@ -146,7 +146,7 @@ It's been around a week since that happened. I'm still recovering from my wounds
 
 We are staying with Bryson's family right now. They live in a two story house that has a warehouse that Darius stays in. You might be wondering why and how we found Bryson's family and i'll tell you. On the desert eagle that Bryson threw to me, an address was etched onto the side. I didn't notice it before and when I informed his family what happened, they didn't take it that well but they understood his wishes and allowed us to stay with them for around a month if we wanted to.
 
-As I look out from the balcony I wonder how Bryson and my father think of me right now. Despite everything that happened, me, a 16 year old, has survived despite all odds. 
+As I look out from the balcony I wonder how Bryson and my father think of me right now. Despite everything that happened, me, a 16 year old, has survived despite all odds.
 
 I walked downstairs to see Eddie waiting to talk to me.
 
@@ -168,6 +168,6 @@ Darius walked into the room and accidentally bumped his head against the ceiling
 
 "You said you would help me on the condition that after you helped me you would be free to do whatever you wanted. You're not done helping me yet and the deal isn't complete until we get the facility back under control. So you're helping me or the facility will still hunt you down and kill you and your friends". Eddie stated.
 
-I was appalled at how he was twisting everything. Knowing that I no longer had a choice, I sighed and agreed. 
+I was appalled at how he was twisting everything. Knowing that I no longer had a choice, I sighed and agreed.
 
- I'm not sure what will happen next but i'll be sure to keep in touch... I promise.
+I'm not sure what will happen next but i'll be sure to keep in touch... I promise.
