@@ -1,3 +1,13 @@
+Edit final final - my followup post was rejected for being “not horror.” Mods told me there was “contempt and arrogance” in my writing but not anger Towards Harrison? That’s hilarious.
+
+Anyway, he died at the funeral. We all watched it happen. I won’t bore you with the details.
+
+I won’t be posting from this account again most likely. If I ever write this whole experience up I’ll find a community on this fucking website that likes it. I guess ”Nathanael Dixon” is what you guys call a “burner account?” Ha ha ha Ha ha.
+
+\-ND, 3/27/23
+
+\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
+
 Edit FINAL: they’re taking me back this afternoon, shit went down at the funeral. Harrison is dead. We are all in shock. There’s pencil and paper there so I will be able to write. Will update when I can. Nathanael
 
 Edit 4: UPDATE 3/25/23:
