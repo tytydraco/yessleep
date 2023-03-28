@@ -122,7 +122,7 @@ Micah: Ash, you okay?
 
 &#x200B;
 
-\[camera points at ground outside, crickets sound in the distance\]
+\[camera points at asphalt, crickets sound in the distance\]
 
 Aaron: What the FUCK? What’s wrong with her?
 
