@@ -1,0 +1,95 @@
+ \[//minor nsfw\]
+
+I messed up.
+
+Okay, I won't try to deny things, I messed up. It's my fault things turned out this way, kicked out of the home I helped build, not allowed to see my kids, the woman I loved wishing I was dead, everything. I could blame it on all sorts of things but I won't, it's all my fault. But I know how to fix things. I know how to make them better, and I WILL make things better. I caused all this for myself, so it's only fair.
+
+I'm writing this to clear my head. To get my thoughts in order and to pass the time while I wait. And people deserve to know. They need to know where I'm coming from because then maybe they'll understand. They'll see what I mean, read about what happened and think "yes you did exactly what you needed to do". My methods may be a bit dramatic but they're necessary. Not drastic. A little desperate maybe but what parent wouldn't do anything to see their kids again?
+
+I'll start the story from the beginning, the very beginning, and try to keep an open mind.
+
+I started liking Miranda when I first talked to her. Sophomore year of high school, we had the same Algebra II class, sat directly beside each other. The teacher liked to leave the last 20 minutes of class for everyone to work through the homework after he passed it out, and that was how we met. She always burned through it so one day I turned and asked for her help on it. Two months after that, we began dating, and we were happy, we were content. She was beautiful, dark hair, gray eyes, kind smile, the cutest freckles and cuter dimples - maybe it's creepy to admit but I could already imagine our future children, her smile with my eyes, my hair and her freckles, they were perfect.
+
+We broke up the summer before our senior year, and I was devastated. It was nearly two full years together, thrown away so suddenly. In retrospect, there were definitely signs leading up to it, and maybe I was a bit naive to assume we would be together forever, but a man can dream. I avoided her like the plague after that - her friends were pretty nosy and I did not want to be around when she dirtied up the details of our break up. She and her friends liked to gossip, they cared more about how juicy and entertaining the story was than whether the details were accurate. We spent the school year apart, graduated, and went to different colleges.
+
+Four years later, I graduated from university and got a job a few towns over, and you'll never guess who I ran into in a grocery store.
+
+I thought I had moved on from her, I really did. But with a tap on the shoulder and a "Jonathan? Jonny, is that really you?" suddenly all my old feelings came rushing back, and I blame those damn dimples. She moved to the city where she attended university and as fate would have it, my new apartment was only a mile or two down the road from hers. She showed me a local pastry shop where she always gets a morning donut before work, and before we parted ways, I gave her a kiss on the forehead out of habit. For a second I was worried that she had gotten over me completely, but with the way her face flushed red, I knew I had nothing to worry about. 
+
+A year later we were living together. Two years after that, we were engaged. The year after, we were married, and half a year after that we were expecting our first kid.
+
+My life was perfect. I had my high school sweetheart, I had a good paying job, I had a home that we partially tore down and rebuilt together, and by my mid-30s, my oldest kid was 8, the second was 5, the youngest had just called me "dada" for the first time, and they were all as beautiful as I had pictured. Life could not get better for me. Maybe that’s why it went downhill so fast.
+
+A new batch of interns were hired. Among them was this devilish little thing called Lacey, and with a name like that it's no wonder how she turned out. She was young, a fresh out of high school, starry eyed face, just turned 19, and already a proper whore. Yes, a whore, that’s what she was. She was pure temptation, with her tight clothing - too tight for an office space - and the way she would constantly be dropping things just to bend over and pick them up in front of everyone. 
+
+I want to make it clear I never intended for things to go the way they did with her. Honest to god. I used to scoff and roll my eyes when she put on her little shows. I scowled and glared. I hated her, so I ignored the way my pants would get tighter every time I heard the sound of a file hitting the floor and that tell-tale little "oops". Like a Pavlov reaction. It's only a natural human reaction after all, it didn’t mean anything. I would repeat that like a prayer while I splashed cold water on my face, reminding myself that I am loyal. I only had eyes for my wife, and I would never hurt my kids like that.
+
+I told myself I would never make a move. It's not my fault that she came to me then.
+
+One morning in winter, I sat at my desk, working away, when she came out of nowhere. She leaned over me, resting her chest on my shoulder, right beside my head, as she grabbed a single paperclip and said "just need to borrow this" in that awful giggly tone, then walked off. That was how it started. That kind of behavior continued for months. She would make excuses to come over and press her body, which reeked of too much cheap perfume, close to mine. She would stare at me throughout the day, then giggle and look away when I looked up, as if it was pure coincidence the way our eyes met. She'd wear the most impractical heels to work, ones so high I was almost impressed by the fact she could walk in them, then waltz into the break room while I ate my lunch, whining about how much her feet hurt, and point to my lap asking if she could "have a seat and rest for a quick second". The bright red lipstick, the way she pressed her hand to my chest, the way she would bat those unnaturally long eyelashes, everything about her I tried to resist. 
+
+She was nothing to me. A whore and a harlot. A witch I would have loved to burn at the stake. But I can't deny the things she did to me. That fucking temptress. It was like having a damn pornstar walking around. It felt so unreal, so unbelievable the way I seemed to be the only one who saw it. I swear I was set up. These sorts of things don’t just happen naturally.
+
+Maybe I was exaggerating a little when I said it was all my fault. Certain parts were out of my control. She tempted me, like a fucking demon. A succubus almost. In addition, things weren't exactly perfect at home. Miranda and I, we were driving apart in the recent years of our marriage. The adult versions of all the past reasons we broke up ages ago had some up. She'd say we don't spend enough time together, as if I wasn't working my ass off day in and day out to put food on the table and a roof over our head. She'd say I didn't love her anymore, not like I used to, as if her body hadn't been dragged to hell and back by her pregnancies. As much as I love my children, adore them, to the moon and back, Christ did they do a number to her figure. On the topic of children, she once claimed I didn't pay enough attention to her, that I care "too much" about the children. How fucking selfish is that? Of course I love my kids, of course I'm going to spend a lot of time with them, they're my damn children. Did she want me to neglect them every time she wanted? What kind of father would I be in that case? What kind of mother would think like that?
+
+We weren't just being driven apart, she was pushing me away. With every selfish comment, every damn complaint, it's no wonder I cheated. I needed some kind of relief, something that she just wasn't providing for me.
+
+One day, months ago, I called her. It was already late at night, I was meant to get out of work in just an hour, but I couldn't wait. I missed my kids dearly and just wanted to hear their voices, to tide me over, give me the energy to finish my work, a simple request. On my way into the hallway, I bumped into Lacey. Or more, she bumped into me, purposefully. We regained our balance, and she let out that ugly giggle, that same little "oops", batting those eyelashes that reminded me of caterpillars. She leaned into my ear as we walked off, finally deciding to make a move. I heard a quiet "I bought a hotel room", felt a hand caress my chest, then they were gone.
+
+I did try to disregard her, I truly did. I remembered my family, but I'll admit I did pause to think about it. I was about to tell myself I wouldn't go with her, I'd ignore her, but then my wife picked up the phone, and gave me that final little push I needed. The moment the dial tone stopped, she nearly burst my eardrums with how loud she instantly began to complain. She nagged at me, asking why I hadn't done the dishwasher the night before. Andy wanted to play hide and seek, I forgot, I told her.
+
+"You forgot!" she sighed, exasperated. "Did you see the mess you made last night?!" I did, and I smiled at the memory. I played a cooking show with my daughter in the room and afterwards she wanted to play chef, so I let her rummage around the fridge and pantry, mixing things up in bowls and then plates and glasses when she ran out of bowls. Yes, a mess was made, but the smile on her face was worth it. Miranda didn't care about the fun, however. "I ask one thing of you - ONE - and you can't even do that! I was almost late to work because you left it for me to clean up!" I hummed dully, no longer fully listening as she continued to nag.
+
+I never once told Lacey I was taking her offer, never once said the words "I accept", but we locked eyes as I turned back to glance into the office. The way I told Miranda about a "sudden emergency" that came up, that a random coworker had messed up a few files, and that I would have to stay late to fix it said my entire answer.
+
+"Like having a damn pornstar walking around", I wasn't too far off. She sounded like one, that’s for sure. It made me sick, but *god* she felt amazing. Like my wife hadn’t in decades. The sex was good, great, better than I'd ever had, can you blame me for getting addicted? She sounded like a squealing pig but luckily she liked getting roughed up, didn't mind when I held my hand over her mouth or shoved her head into the pillow. I had to start stealing make-up wipes from my wife to remove every bit of stray lipstick before I went home, and took an extra bottle of cologne in my work bag to drown out the stench of her cheap perfume. It barely did anything to my home life, I still loved my kids as normal and my wife was as much as a nagging bitch as always, nothing seemed out of the ordinary as following her to a hotel room after work became a part of my schedule.
+
+But that whore got cocky. Everything was going so well. And she ruined everything.
+
+She called my wife one night, after four months of this. I had left the hotel and was driving home. I think she got her number out of my phone while I was in the bathroom. She sneered and giggled and told her everything. Told her how much better she was, how much happier I was with her, swore up and down that she's "stealing her man". She even had the guts to say that I loved her more. That we were meant for each other, that my own wife was nothing to me, not compared to her, and that the only reason I hadn't told her sooner was because I was trying to spare her feelings.
+
+I got home that night to an empty house. I panicked for a good few minutes, searched every room and every little space to find nothing, no one. I tried to call my wife but every time it went to voicemail. After about ten minutes, a car finally pulled into the driveway and Miranda stepped out, alone. When she came inside I demanded to know where the kids were but before I could finish asking, she backhanded me across the face, demanding to know who Lacey was, and I knew it was over.
+
+She yelled at me for a full hour, and every time I tried to defend myself, it added another twenty minutes of screaming. During that time, she admitted she dropped the kids off at her sister's, she didn't want them around to hear this, and in my mind I thought that was the smartest thing she's done in years.
+
+I ended up spending the night in a motel room. She kicked me out, said she was calling a lawyer, filing for divorce, even threw her ring at me as she shoved me out the door. Lacey tried to call me, multiple times. At first I didn’t even know it was her, I refused to save her number, but she left voicemails.
+
+That slut.
+
+That filthy fucking slut.
+
+She told me I was finally free. That we could be together at last. That I'm better off with her.
+
+I nearly crashed the car at least three separate times, eyes blurred with tears.
+
+When I finally found a motel, I sobbed. I was going to lose everything that I worked so hard for. My home, my wife, my kids. God, my kids. What would they think of me? How would she explain things to them? She was going to twist around the details, make me look like some heartless beast, make them think I didn’t care about them. No no, I love them dearly, my kids are my life. It's her I didn’t care about. After all, she didn't care about me.
+
+When I got those taunting texts from Miranda's sister, that’s when my worst fears were starting to come true. She told me they would be fighting for full custody, said to "run to your mistress cause clearly you chose her over them". I could never choose her over them. 
+
+I did things I'm not proud of after I got those messages. I showed up at Miranda's workplace when I couldn’t find her at our house. I called her all sorts of things I regret now, a traitorous, selfish bitch, for example. I can say as much as I want that I didn't mean to cause a scene, but the court didn't believe me. And I'll be honest, the idea of her friends and coworkers knowing what kind of person she was was satisfying to me. Maybe I did mean to make a scene. We had to move our fight to the parking lot that day after security escorted me out and I laid out every negative thought I had about her. 
+
+At first I was enraged, demanded to know what the fuck makes her thinks she can take me away from my children, then admitted she was never planning on going for full custody, that her sister was just rubbing salt in the wound for her own fun, but after the show I had just put on in front of everyone in her workplace, maybe it was the best option though. I stopped yelling then as the words sunk in. I was no longer mad, now I was heartbroken. I nearly dropped to my knees and begged her to reconsider. 
+
+By then everyone had stepped away from their station and were watching the commotion in the parking lot. About two dozen people saw me break down in tears, desperately asking "please, please let me see my kids, don't do this to me, please", I told her that I hadn't even spoken to that whore since the day they spoke on the phone, insisted she meant absolutely nothing to me, because it was true, she was mud under my boot, but she didn’t care. She left me there, sobbing into my hands at the thought of never seeing them again.
+
+Someone had recorded the entire thing. Not just my breakdown outside, but the angry storm I was right before it. It may be used in court. I'm terrified. It shows me at my worst, as "emotionally driven and violent". If it gets shown, I'm fucked.
+
+I tried desperately to convince her not to go for full custody. She took away my keys to the house so I had to camp out in the driveway. When she came out of the house to get to work or was just getting back, I'd be there, once again begging her to let me see my kids. Again, she didn't care. No matter what I said, she ignored me. Even when I told her, with full honesty, that we would never have to worry about that goddamn slut again. That I broke things off, got rid of her, she just wouldn’t listen. Then she got a restraining order. A fucking restraining order. I wasn’t allowed within 60 feet of her, unless it was in court. Because of that, she would get everything. The house, the kids, fucking everything. I'd be left with nothing. I'd be ruined. My perfect life, gone.
+
+But hope isn't fully lost. I know how to fix things. Nothing but the restraining order has been finalized, but no one has to know I'm here.
+
+There's still time. I can get to my kids before she fills their heads with lies.
+
+I was exaggerating, I take it back. It wasn't my fault. No, it was both of their faults. It was Lacey's fault, for tempting me like some fucking snake. It was Miranda's fault, for driving me away, pushing me into Lacey's arms. I'm still going to fix things though. I may not be to blame, but it’s the noble thing to do.
+
+I did take care of Lacey. I'll admit, I did get lucky with her. Apparently she had some drunken ex-boyfriend, recently released from where he was locked up for domestic violence charges. When they found her dead beaten body in the very hotel room we spent many nights together, it threw the police off my scent, and it certainly helped the way that drunken bastard didn't even remember what he was doing the night she dropped dead.
+
+My god, was it satisfying. Smacking that happy smile off her face. Her fear filled eyes as I spat about how much I hated her, how she ruined my fucking life. I almost wish I could relieve it, honestly. She begged, of course. Pleaded, told me she loved me, that she "knew" I loved her too, that she was only doing what she thought was best for me. I shut her up with a firm kick to the jaw.
+
+I'll be more careful with Miranda. The ex-boyfriend thing was a lucky break, I acted on impulse with Lacey. Maybe I am emotionally-driven and violent. Maybe.
+
+There's a pair of bolt cutters in the passenger seat of the car I sit in while I type this. On the other side of the road, Miranda's sister's car is parked in front of a bar. I can barely see the two of them through the window, chatting with the bartender, ordering one colorful drink after another. Miranda and her sister have this little quirk about them, they think they can handle more alcohol than they actually can. I've always been forced to be the sober one in the marriage because of this. Someone had to be well enough to drive them home. Miranda drinks until she's blacked out, and doesn't remember a thing. Her sister drinks only a little less, but swears on her life she's fully sober, even when her words are slurred and she's stumbling around barefoot.
+
+I already know what will happen. They'll have some drinks, think they're fine, then drive home, assuming that since they live so close by, it shouldn't be that hard to drive. Granted, this fact by itself could do the job, but I need to be certain they don’t make it back alive. The brakes are cut, and that’s just the extra little push they need. With Miranda gone, the kids and the house will go to me, and I'll have my life back.
+
+So now do you understand? Does it make sense to you now? If you think not, then maybe try becoming a parent, then you'll see that you too, would do anything to get your kids back.
