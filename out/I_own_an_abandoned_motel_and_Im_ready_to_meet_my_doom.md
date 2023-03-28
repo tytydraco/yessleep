@@ -231,3 +231,5 @@ The whirlwind hummed with the cries of miserable souls.  I was suspended among t
 Thus began my final encounter with the witch.
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 15\]](https://www.reddit.com/r/nosleep/comments/124tpz6/i_own_an_abandoned_motel_and_this_is_the_end/)

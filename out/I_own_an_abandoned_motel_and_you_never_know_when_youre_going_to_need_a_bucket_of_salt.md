@@ -235,3 +235,5 @@ René found a place on a forested hill, just outside of Clayton, the town where 
 [\[Part 13\]](https://www.reddit.com/r/nosleep/comments/11s260c/i_own_an_abandoned_motel_and_ive_listened_to_the/)
 
 [\[Part 14\]](https://www.reddit.com/r/nosleep/comments/11xl60w/i_own_an_abandoned_motel_and_im_ready_to_meet_my/)
+
+[\[Part 15\]](https://www.reddit.com/r/nosleep/comments/124tpz6/i_own_an_abandoned_motel_and_this_is_the_end/)
