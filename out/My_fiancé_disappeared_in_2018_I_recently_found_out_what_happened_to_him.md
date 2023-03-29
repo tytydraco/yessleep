@@ -300,7 +300,7 @@ He turned the screen back to me and a video was playing. “I edited this just f
 
 It showed Jimmy and I sitting at our breakfast bar. In the corner of the screen was **Mar 7th 2018, 07:54**.
 
-“Wait!” I said, my heart beating out of my chest. I paused the video. “I don’t think I want to see this.”
+“Wait!” I said, pausing the video. “I don’t think I want to see this.”
 
 “You have to, Jessie. I’m sorry. You’re free to leave once it's over.”
 
