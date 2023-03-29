@@ -632,4 +632,7 @@ I read the page over. It had a quick timeline of historical events, a list of co
 The light surrounded me. I lost my sense of direction, then the light vanished. I was standing in the spot where I last heard the voices of my alternate self and her friends. The trees were the same, the bushes were the same, the patch of grass I pressed flat onto the ground was still flat… I instantly recalled the pain in my neck I felt before waking back up in the Giant Attacks reality. Luckily, I wasn't hearing any voices this time.
 
 
-Good, I'm home… Now all I need to do is figure out what to do next. Again.
+Good, I'm home… Now all I need to do is figure out what to do next. Again. 
+
+
+[Final](https://www.reddit.com/r/nosleep/comments/125xdzv/ive_been_traveling_to_different_realities_for_six/?)
