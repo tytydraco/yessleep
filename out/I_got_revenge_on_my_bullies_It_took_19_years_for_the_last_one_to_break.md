@@ -1,0 +1,15 @@
+I never forget. It's honestly what allowed me success to accomplish what I have done and I honestly look forward to the next chapter of my life now that I have truly beaten my past.
+
+This isn't some fantasy I am writing out, or some pent up therapy. I'm not a hero or some
+
+I was a kid and I never forgot how helpless I felt when I was bullied. If I fought back, I was punished by adults including my parents and my fucking tormentors were seen as the victim. If I went to tell on these pieces of shit, I'd get ostracized and bullied even more. No one stepped up after a while because these two were fucking emotionally and socially intelligent. I realized then, when it comes to the real monsters in human skin, the law and society protects them. To kill these monsters, you have to be smarter. You have to be well equipped. You have to look beyond the bullshit of living a good life is the best revenge.
+
+I'm in my mid thirties now, and I spent my entire life since then planning how to get revenge to return the torment I felt a hundredfold. I look like an average guy with a great job at this point and time, and no one would ever suspect me. I won't go into details, because I'm not fucking stupid, but I will generalize. Everything I am writing this on is a burner, from the username, email, and even the computer I am writing this on.
+
+I will say the first of the two of the pieces of shit that made my life a living hell died of an overdose. That was hard because I took out private student loans and had to learn the intricacies of silk road and how to blend in depending on the scenario. My goal at this time was simple, I wanted her to break his family, the same assholes who raised and defended their shit son.  I wanted their parents to see their cunt son for who he really was. I wanted them to bear the burden of knowing they brought and raised an absolute shit human being into this world. It was perfect he loved to party and go clubbing. 
+
+The next one was amazing in social situations and could bend people's emotion like nothing. It didn't help he was attractive as well. 
+
+Queen Bee was the culmination of all my experience. I had to watch her, since she was the smartest and had the most resources. I originally planned to have her become a junkie as well, but she never touched the anything that could ruin her facade or her body. She was pretty much fucking untouchable, especially as time went on. Her career and her knowledge made her a titan. This bothered me to an extreme amount, since this shit person who didn't fucking change from being a bullying cunt at all, was being rewarded in life. Until she decided to be a mother. An "accidental" death is always a sad one. I made sure to send her a letter letting her know if she wasn't a shit person, this could have been avoided.
+
+It took 19 fucking years, but all 4 of my most hated bullies are either dead or broken and I feel fantastic. In the end, I thank my tormentors. They were truly the muck that I had to rise above to be where I am today.
