@@ -1,0 +1,63 @@
+I don’t even really like antiques, is the thing. My vision for my apartment—the first place I was ever living in on my own, a studio—was an uncluttered, modern kind of vibe. The place I was moving from had enough old shit in it. Not antiques, per se, but it was the kind of roommate share apartment that had been passed down from roommate to roommate since anyone on the lease could remember, and everything was a hand-me-down or something that a former resident had left behind when they upgraded to a new living situation. 
+
+Unfortunately, the cost of the safety deposit and first month’s rent and movers and all the other nonsense that comes with moving had really wiped out my savings, so as much as I wanted to live that Shiny New Apartment Life I was in fact browsing local thrift stores for new furniture. My favorite find was an extremely retro-looking armchair upholstered in green velvet. I didn’t have a couch yet, but since I was living alone it didn’t seem like too much of a priority. At another store, a few weeks later, I found an old 70s stand mixer in the exact same shade of green—convenient since my living room was also my kitchen was also my bedroom. To complete the midcentury vibe, in a third thrift store I found a really cool old mirror. It was big and round, with gold spikes radiating out from it like light from a child’s drawing of the sun. Little did I know at the time—well.
+
+The problem was hanging it up. I admit I’m not much of a handy…woman? Handyperson? My go-to wall art solution is command strips. But this mirror was pretty heavy, and it would also be ideally situated above my tv, so I bought a wall hanging kit and watched about a thousand YouTube videos about drywall anchors. I was feeling very empowered by the end of my home improvement YouTube binge: I was a competent modern woman living in my own apartment! Surely I would be able to tackle any possible hurdle life could throw at me! I got out the little toolkit my dad had gifted me when I first decided to live on my own and pulled out the hammer, feeling the weight of it in my hand while looking resolutely at the spot on the wall where I was going to hang the mirror.
+
+It did not go great. By the end of my efforts I was covered in plaster dust, my fingers were throbbing, and I had busted a half-inch hole directly in the middle of the white wall in a location that would be impossible for the building manager to miss when he was deciding whether to give me my safety deposit back when I eventually moved out. I guess it doesn’t matter whether it’s “handywoman” or “handyperson” because I am not either one. 
+
+I ended up securing the mirror to the wall with about ten command strips, then subsequently realized I hadn’t accounted for the height of my tv stand and I would have to shift the whole thing up the wall by about a foot and a half. 
+
+After having a little cry and some well-deserved takeout, I set the mirror on the floor and abandoned the project for the night, promising myself that the spot on the floor would NOT become the mirror’s permanent home. 
+
+It absolutely did. 
+
+It was summer, the busiest season at my job, and I was working long hours and coming home absolutely exhausted most evenings. On my days off I preferred to curl up in my armchair watching Netflix rather than attempt more home improvement projects. My one living-alone indulgence was that I adopted a cat. 
+
+He’s a dignified older gentleman of a cat, gray and white, with a little marking on his chest like he’s wearing a badge or something. That’s where his name came from: I call him The Admiral. I had meant to call him something else, but that’s what stuck. It amused me to say to my coworkers, “I have to get home to The Admiral,” or, “The Admiral woke me up early this morning.”
+
+The Admiral is a great companion—I still have him, of course. He spent most of his time in the apartment getting fur all over my armchair even though I bought a cat tree for him to climb on. Being a distinguished older gentleman, he doesn’t play with cat toys very much, but when I was living there I noticed that sometimes he would focus on the inner wall of the apartment. He didn’t much care about the walls with windows, that opened onto the courtyard of the building, which I thought was weird, because I could usually see birds flitting between the branches of the trees in the courtyard. No, The Admiral was fixated on the wall of my little apartment that butted up against the rest of the apartment building. The one with the mirror leaning against it. 
+
+The mirror was still propped against the wall, its wide shining surface reflecting nothing in particular: just the empty place where the opposite wall met the ceiling. Sometimes, when I was watching tv, I caught movement there out of the corner of my eye, but I always managed to convince myself it was just shadows. The bigger problem was the noises: sometimes while lying in bed if I strained my hearing I thought there were tiny skittering or scratching noises in the walls. They were quiet enough that I always decided that it was my anxious imagination, coming up with ways to stress about this otherwise amazing living situation. I didn’t know what any of my neighbors’ apartments looked like, only that the building was a prewar one that had been haphazardly renovated over the years. I couldn’t even really tell the dimensions of the apartment that was next to mine. I had been nervous that I would be annoyed by the faint sound of my neighbor playing music or something, but I didn’t ever hear any human noises through the wall, just the scratching. Gross as it was, I figured there were probably mice. 
+
+Spooky mirror and possible mice aside, I truly loved living alone. No roommates waking me up coming back drunk from the bar, no unwashed dishes in the sink, no one moving my stuff without my knowing it. Well… mostly. Every once in a while I would come home with the sense that things in my home were slightly different, my little trinkets disturbed, the piles of half-worn not-quite-dirty-yet clothes disarrayed where they were draped over the back of my chair. Times like this The Admiral was always meowing like crazy, weaving anxiously around my feet and butting his head against my calves, and he would sleep in bed with me afterwards, too, which he usually didn’t like to do. But apart from these few incidents I loved living alone, I loved my cat, and I loved the freedom of never wearing pants in my apartment. 
+
+As the summer came to an end, my job finally stopped being so chaotic and I took a few well-deserved days off. Although initially I had had the vague idea of going on a trip somewhere, all I really wanted to do was watch tv and cuddle my cat so I decided to stock up on snacks and have a staycation. Those first few days were glorious: I slept late, ate junk food, and spoiled the hell out of the Admiral, giving him extra treats all day and not chasing him off my green chair even though he was getting fur all over it. 
+
+I guess that was what I noticed first: even though The Admiral was getting extra treats, he was still spending a lot of time staring at the wall of my apartment that had the mirror leaning against it. It seemed ridiculous that this cat, who didn’t even care about the birds flying just outside the windows, would be so fixated on the mice or whatever was living in the walls. I often found my eyes drawn to the mirror, the unassuming face of it reflecting a simple view of the white wall and ceiling. There was never movement there… at least, not when I was looking directly at it.
+
+Anyone who has ever lived alone with a cat knows that you spend nearly your whole life in one-sided dialogue with the cat. “Do I not feed you enough? Are the expensive organic salmon treats not to your taste, your Admiralship? Are your hunting instincts so refined that you are compelled by the sounds within the wall, even though you are living a luxurious life here?” I would jokingly ask him. Sometimes he would look up at me and meow urgently, his eyes enormous, as though trying desperately to tell me something—but how was I supposed to know what?
+
+I spent most evenings of my little staycation curled up in my chair, watching tv, wearing whatever ugly, comfortable oversized lounge clothes I had lying around. After so much time at work the past few months it was bliss to finally be alone. The Admiral usually laid in his bed next to my chair, close enough that I could reach over and pet his head from time to time. That is—usually. Sometimes he would go full Halloween cat, back arched, tail puffed up, ears flattened back, growling low in his throat. Always while facing that same wall, the one behind the tv, with the mirror leaning against it, marred halfway up by the big hole I had accidentally poked in the drywall. Even though I had attempted to repair the hole the broken bits had eventually all fallen out of the hole, so that its jagged edges framed the inky blackness of the inside of the wall. It embarrassed me to look at evidence of my failure so I usually avoided looking at it, but for whatever reason my eyes were drawn to it this time—and it wasn’t blackness that I saw.
+
+It was a glimpse of white. 
+
+The white of an eye. 
+
+I startled and jumped out of the chair. The Admiral was freaking out, growling with a ferocity I had never heard before. I knew I wasn’t imagining things, because The Admiral was never this upset. But I didn’t know what to do. It seemed silly to call the cops. “Hello, 911, I maybe saw something in a little hole I accidentally poked in my wall trying to hang up a mirror, and also my cat is flipping out, can you send your best officers?” 
+
+Yet there was no way in hell I was staying there that night, so I got the Admiral into his cat carrier and stayed in a god damn hotel room. Yes, I smuggled my cat into a hotel room. What was I supposed to do, leave him there?
+
+It was a miserable night. I was anxious, The Admiral was anxious, and the less said about how I improvised a litter box in a hotel room, the better. The next day I steeled my nerves and asked a friend to come investigate my apartment with me. I apologized, said it was probably nothing and I was being silly, but fortunately he was understanding. 
+
+I realized I looked ridiculous waiting for my friend outside my apartment building. The only clothing I had was the faded and stretched-out old band t-shirt I had been wearing when I fled the night before and the lounge pants I had hastily thrown on before opening the door. I crossed my arms over my chest uncomfortably, very aware that I wasn’t wearing a bra.
+
+Thankfully, when my friend Ben showed up, he looked deadly serious. We had talked on the phone last night, and I guess he had realized from the tone of my voice how scared I truly was. He had brought with him a big flashlight and, to my amusement, a crowbar, as though he was ready to fight any intruder we might encounter. 
+
+The apartment looked the same as ever, not even with that feeling of my stuff being moved that I sometimes had. I clutched the cat carrier to my chest as Ben looked around, shining the flashlight into my kitchen cabinets, under my bed, into my closet. I had just managed to convince myself that The Admiral and I had both been seeing things the night before when Ben went over to the wall with the mirror and leaned over, peering at the hole in the plaster.
+
+“Hey, I don’t want to scare you,” he said, scaring me. 
+
+My grip tightened on the cat carrier as Ben pressed his face against the wall, shining the flashlight at an oblique angle toward the hole so that he could see inside.
+
+“What,” I whispered. 
+
+“It looks like someone’s been… living back here.” 
+
+Well, we did call the cops after that. It was surreal to be sitting on my bed, still holding the cat carrier, with Ben’s sweatshirt draped over my shoulders, as the cops poked around the apartment and said very matter-of-factly that it looked like a human being had indeed been living in the little space beside my wall. There were pillows and blankets and lots of snack food wrappers strewn about. I remembered the scratching noises I had thought I heard while lying in bed and felt sick. It wasn’t a mouse: it was someone peeling the wrappers off candy bars while spying on me. 
+
+The police report did make it easy for me to break my lease without penalty, thank god, and I’ve temporarily moved in with Ben while I try to find a new living situation. It’s not ideal, but The Admiral hasn’t had any freakouts since we moved in here, so I think it’s safe. 
+
+&#x200B;
+
+I’ve been extra careful to check my new room’s walls for holes, though.
