@@ -110,6 +110,6 @@ Inhuman flesh burning beneath the weight of my vision, the Exacter screeched in 
 
 I crawled downstairs, and the canvases were filled with paint once more. Everything was back in its place. And the strangest thing is that I didn’t hang up my hat. I didn’t call it a day. When Miss Andrews came to the gallery at six in the morning, she seemed fully prepared to watch another traumatised guard quit the job.
 
-But I didn’t. I couldn’t. Not after what the Exacter showed me. Too much is at stake.
+But I didn’t. I couldn’t. Not after seeing the Exacter’s apocalyptic desire. Too much is at stake.
 
 [X](https://www.reddit.com/r/dominiceagle)
