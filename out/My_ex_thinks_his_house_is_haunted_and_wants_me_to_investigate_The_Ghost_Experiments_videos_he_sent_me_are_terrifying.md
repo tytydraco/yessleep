@@ -1,3 +1,5 @@
+EDIT: [Link to Part 2.](https://www.reddit.com/r/nosleep/comments/1263zt5/investigating_the_ghost_experiments_with_my_ex/)
+
 I hadn't thought about Jared for five, six years, until yesterday. The only memento I have of our entire relationship is a polaroid photo of the two of us, buried in a box in my closet, somewhere.
 
 As I put my socks away, my mind flashed to Jared, who always stuffed his socks between the bed and the nightstand. One of those cute, weird little memories you have of someone you were in a relationship with. Moments later, my phone buzzed from the nearby dresser. It was an email from Jared.
@@ -141,3 +143,5 @@ A hot shower was exactly what I needed. It felt like all the fear and uncertaint
 Resting on my laptop's keyboard was a polaroid photograph. The photograph that had gotten buried in a box somewhere. The photograph that wasn't there when I left to take a shower.
 
 The photograph of Jared and I from college.
+
+[Link to Part 2.](https://www.reddit.com/r/nosleep/comments/1263zt5/investigating_the_ghost_experiments_with_my_ex/)
