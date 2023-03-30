@@ -198,7 +198,7 @@ This time, she didn’t scream or cry out, only standing in front of me with the
 
 She was smiling, before lifting a finger and pressing it to her lips in a shushing motion.
 
-There was something in her hand, a rectangular device which perfectly melded into her hand pointing directly at me.
+There was something in her hand, a rectangular device which perfectly melded into her palm pointing directly at me.
 
 “Annalise?”
 
