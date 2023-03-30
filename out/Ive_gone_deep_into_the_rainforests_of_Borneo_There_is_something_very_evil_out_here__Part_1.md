@@ -121,3 +121,5 @@ I crawl back onto my mattress, wiping sweat from above my lip.
 I’m not sure if I’ll be able to get to sleep tonight.
 
 My eyes dart to the door which is [blocked by the furniture.](https://www.reddit.com/r/squishycabbage/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/126qzn5/ive_gone_deep_into_the_rainforests_of_borneo/)

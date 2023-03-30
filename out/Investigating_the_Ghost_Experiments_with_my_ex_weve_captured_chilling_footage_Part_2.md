@@ -1,6 +1,6 @@
 [Link to Part 1.](https://www.reddit.com/r/nosleep/comments/122e2yc/my_ex_thinks_his_house_is_haunted_and_wants_me_to/)
 
-(Reposted due to error in the title) 
+(Reposted due to error in the title)
 
 # The Photo
 
@@ -66,7 +66,7 @@ The call ended. I collected myself, pulled up the hood of my jacket, and ran out
 
 # The House
 
-Jared and Jenny’s house is tucked in the back corner of an upper class, surrounded by woods. I pulled up the driveway, feeling very out of place in my crappy sedan. An old woman standing outside in a neighbouring front yard eyed my poor ass with suspicion. I ignored her. The house was modern, bright white with black accents, and completely unassuming. The rain had lifted, and a sliver of sunlight made the house seem positively welcoming. Despite seeing the house in videos and pictures, a part of my brain expected some sort of haunted castle. Which couldn’t be further from the truth.
+Jared and Jenny’s house is tucked in the back corner of an upper class area, surrounded by woods. I pulled up the driveway, feeling very out of place in my crappy sedan. An old woman standing outside in a neighbouring front yard eyed my poor ass with suspicion. I ignored her. The house was modern, bright white with black accents, and completely unassuming. The rain had lifted, and a sliver of sunlight made the house seem positively welcoming. Despite seeing the house in videos and pictures, a part of my brain expected some sort of haunted castle. Which couldn’t be further from the truth.
 
 I had barely gotten out of my car when Jared and Jenny came outside to greet me. It’s always a little awkward sussing out the etiquette when meeting up with your ex after several years. Do we shake hands, or hug, or exchange an explosive fist bump? I was panicking a little, but Jenny cut right through that by springing an enthusiastic hug on me.
 
