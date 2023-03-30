@@ -34,7 +34,7 @@ Writhing and clicking tendrils swarm from the black mist surrounding a mess of d
 
 “I-I you what? Where? How…w-what?”
 
-“You are back in your body right now. On Earth. And Rita there, is real. If you just talk to them instead of running, you get a second chance at life. And I hope to never see you again, I’m starting to get bored of this game with you. But you can't do that with the bias of this review, it has to be because you want to do it,” 
+“You are back in your body right now. On Earth. And Rita there, is real. If you just talk to them instead of running, you get a second chance at life. And I hope to never see you again, I’m starting to get bored of this game with you. But you can't do that with the bias of this review, it has to be because you want to do it,”
 
 I say nothing so he continues.
 
@@ -52,7 +52,7 @@ His low growl sends shivers down my spine.
 
 “You want to understand my reasoning: not to be difficult, but to be fair?”
 
-“Y-yes. Yes, O Great Powerful… um…”
+“Y-yes. Yes, um… whoever you are...”
 
 “I am Chronikitimoria, God of Time.”
 
@@ -66,7 +66,7 @@ His low growl sends shivers down my spine.
 
 “I at least deserve to know why you’re putting me through this!” I shout, immediately regretting it as his tendrils lash out at me.
 
-They wind around my arms, legs, and torso. Clicking as they tighten, I realize they resemble the seconds ticking on a clock. And it’s louder in my ears from over here. 
+They wind around my arms, legs, and torso. Clicking as they tighten, I realize they resemble the seconds ticking on a clock. And it’s louder in my ears from over here.
 
 “You don’t deserve anything, adulterer. But this is the first time you’ve inquired. I will tell you what your special circumstance is. Can you guess how rare it is to find a being whose death in one instance can be avoided by changing one thing?”
 
@@ -84,7 +84,7 @@ I’m met with silence, but the tendrils around me start to loosen and the click
 
 “Okay, let me try again.”
 
-“That’s something that never changes,” he says with a hint of exhaustion. 
+“That’s something that never changes,” he says with a hint of exhaustion.
 
 &#x200B;
 
@@ -92,7 +92,7 @@ And I hear a snap.
 
 &#x200B;
 
-Stop telling me to never change. It- wait. You know what else goes against being human? Being in a time loop. 
+Stop telling me to never change. It- wait. You know what else goes against being human? Being in a time loop.
 
 Chromatophore must’ve forgotten to erase my memories this time around. I’m probably never going to get another chance like this. Unless he planned this? I wrap my hands around my biceps for some comfort. I can still feel the tendrils and mist… no… I can’t think about that right now. My wife and Rita are going to walk up any second. From last time, both would assume the other is just a friend, but this time both of them are going to find out the truth. They’re both too smart to believe any lie I can come up with in the next five minutes. I know I should just come clean right away.
 
@@ -196,6 +196,6 @@ I shudder at the eyes she gives me, “I don’t want to see you anywhere near i
 
 My eyes sting again and I unconsciously look around for the mist. Instead, I realize the venom in her voice brought tears to my eyes. Rita walked away from the both of us, allowing for our privacy.
 
-“I really believed you Cas. I really thought we were doing great. And this whole time, you were cheating on me. Either you’re a great actor, or I’m the oblivious wife who thought all that love you suddenly showed for me the last three months was mine and the result of our emotional labor. I’m happy you found someone you love more than me. If love to you is comparable like that, then you are not the person I thought you were. Or who I wanted to explore more with. My favorite part about all of this is she has enough self-respect to hate you now. But because I still love you, at least in some way, I hope you learn from this. I know how much you love learning from your mistakes.” and with that, she left my life too. 
+“I really believed you Cas. I really thought we were doing great. And this whole time, you were cheating on me. Either you’re a great actor, or I’m the oblivious wife who thought all that love you suddenly showed for me the last three months was mine and the result of our emotional labor. I’m happy you found someone you love more than me. If love to you is comparable like that, then you are not the person I thought you were. Or who I wanted to explore more with. My favorite part about all of this is she has enough self-respect to hate you now. But because I still love you, at least in some way, I hope you learn from this. I know how much you love learning from your mistakes.” and with that, she left my life too.
 
 I do think I’ve learned my lesson. I bit off more than I could chew, a bit too close to the sun. I was put in a time loop by a Time God for who knows how long. I still jump a little bit when I see twisty branches around a shadowed alleyway. Ticking clocks are a constant reminder of how I had it so good, and could’ve had it continue to be good- no. Enough with the self-pity. I’m not proud of how I got there, but I am proud I faced it head-on. Chronikitimoria saved my life, honestly in the worst way possible, but I’m still alive. And I will get over this heartbreak eventually. I don't even know if warning people is a good idea. The chances of this happening to anyone else is so low, and I'm ashamed of the circumstances surrounding this situation. But the world is a lot safer than it was 3 million years ago, so maybe someone else will benefit from a warning. Be careful making your bad decisions, do things that you would be proud of reliving, and I hope your instincts never fail you. The chances of finding yourself in a death-defying time loop are very very very low, but not impossible.
