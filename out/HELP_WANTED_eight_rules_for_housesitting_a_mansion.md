@@ -202,4 +202,6 @@ I took the first word of each rule and the punctuation and put them together to 
 
 **NEVER enter the house. Every Rule Wrong! Only run. Leave. Depart!**
 
-Nor did his warning end there. He embedded one more secret—the secret of what he believed to be the true nature of this grand old mansion. If you want to know what it is, just remove the numbers and read the first letter of [each line.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/) 
+Nor did his warning end there. He embedded one more secret—the secret of what he believed to be the true nature of this grand old mansion. If you want to know what it is, just remove the numbers and read the first letter of [each line.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/126xb5s/help_wanted_nine_rules_for_housesitting_in_the/)
