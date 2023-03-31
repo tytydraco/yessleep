@@ -279,7 +279,7 @@ Another figure nodded grimly. “That would explain the behavioural differences.
 
 “I will interpolate a new implant. This one should not have problems, and the boy should revert to his original state. Kaz Issacs is valuable to Brightwood, and our efforts in creating content people will consume,” he murmured, tugging off blood stained gloves and reapplying new ones. “If men, women, even the youngest of children are watching killing being broadcasted every day, they are not doing it themselves. Say what you want about human nature, it has been statistically proven we kill less when consuming the real thing.” 
 
-He picked up a scalpel this time, and then the drill. “And of course Darkroom influencers bring the views.” 
+The doctor picked up a scalpel this time, and then the drill. “And of course Darkroom influencers bring the views.” 
 
 He poked the boy in the cheek with the butt of the drill. “Especially this kid. If he malfunctions again, put him in the Red Room and release a statement claiming he… I don’t know, he’s taking a break from Darkroom. I’m sure his fans will do some killing of their own and upload it in protest which will bring us a spike in views. After months in the Red Room, he’ll be good as new. Our influencers were born there, after all. They, unfortunately, are behind our success."
 
