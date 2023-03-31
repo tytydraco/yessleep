@@ -170,4 +170,7 @@ Darius walked into the room and accidentally bumped his head against the ceiling
 
 I was appalled at how he was twisting everything. Knowing that I no longer had a choice, I sighed and agreed.
 
-I'm not sure what will happen next but i'll be sure to keep in touch... I promise.
+I'm not sure what will happen next but i'll be sure to keep in touch... I promise.  
+
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/127zs1j/my_best_friend_went_missing_this_was_his_last_post/).
