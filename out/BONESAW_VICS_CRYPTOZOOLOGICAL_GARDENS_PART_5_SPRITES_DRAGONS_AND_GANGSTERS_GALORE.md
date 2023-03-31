@@ -208,7 +208,7 @@ He hustled over to intercept the other man as he was unlocking his van. The guy 
 
 Vic screamed, “*Didja have a good breakfast, cocksucker?*” and he closed the last few steps between them at a dead run.
 
-The target of Vic’s wrath dropped his drink and raised his hands over his face. He had time to shriek, “*Victor, no!*” and then Vic blasted a punch through his flailing arms, hitting him in the mouth with brutal force. The guy bounced off the door of the van and fell to the ground. Vic proceeded to relentlessly kick him as he curled up into the fetal position, grunting in pain as Vic’s Adidas running shoes thudded into his legs and kidneys.
+The target of Vic’s wrath dropped his drink and raised his hands over his face. He had time to shriek, “*Victor, no!*” and then Vic blasted a punch through his flailing arms, hitting him in the mouth with brutal force. The guy bounced off the door of the van and fell to the ground. Vic started to relentlessly kick him as he curled up into the fetal position, grunting in pain as Vic’s Adidas running shoes thudded into his legs and kidneys.
 
 Vic panted, “The *money*, you fat fuck!” and he stomped on the helpless man’s ankle, making him screech in agony. He tried to worm his way under the van, but Vic grabbed his legs and dragged him back. Vic seized the man by the hair and forced him to look up. He balled his free hand into a fist, and he proceeded to emphasize his words with a series of shots to the face.
 
