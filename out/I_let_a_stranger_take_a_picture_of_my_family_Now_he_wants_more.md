@@ -92,7 +92,7 @@ I raised my fist. The man turned around. I gasped. They looked absolutely nothin
 
 I backed away. The man brushed off his jacket. We both nodded at the guard. I apologized again. I turned around to get my bearings and found my entire family staring back at me.
 
-“Nice one, Dad.”
+“Real nice.”
 
 We left the mall together out of embarrassment.
 

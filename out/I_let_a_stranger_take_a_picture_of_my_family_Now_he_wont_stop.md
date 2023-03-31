@@ -48,7 +48,7 @@ Emma needed head-shots for work and remembered to remind me (hah) to send her th
 
 "Hey, hon.."
 
-I pulled up the conversation history. A picture loaded. The four of us cheesed back at the camera from the shade of our umbrella. Luke had a bucket on his head. Sofia put two fingers behind her mom. I scanned through my other texts and there was nothing else out of the ordinary. But it was still, you know, weird. 
+I pulled up the conversation history. A picture loaded. The four of us cheesed back at the camera from the shade of our umbrella. Joe had a bucket on his head. Sofia put two fingers behind her mom. I scanned through my other texts and there was nothing else out of the ordinary. But it was still, you know, weird. 
 
 My first reaction was to call the number. I dialed once and got a busy signal. I hung up and dialed again. Error message. I dialed a third time, got up, and started to pace. 
 
