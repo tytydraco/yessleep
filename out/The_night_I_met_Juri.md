@@ -27,7 +27,7 @@ I spin around, I see a man. He's far off in the distance on the opposite side of
 
 I make note of his presence, and continue to float down the road, Juri on my mind
 
-His dreamy eyes, his throbbbimg... Wait... Why am. I suddenly so scared? 
+His dreamy eyes, his throbbing.. Wait... Why am. I suddenly so scared? 
 
 I look behind me, and my new found aquantance is now on the same side of the road as me. Much closer than he was before. 
 
@@ -58,9 +58,9 @@ I weigh my options, and instead, as his body smacks into the door, I decide to m
 
 As we stand there, palm to palm, face to panting face, my slight stature pressed up against the door, I pretend to lock the deadbolt that isn't there. 
 
-The unimaginable happens then. He believes the pantomime, belives door is locked, without even testing to see if it's true. Nothing but my tiny frame keeping it closed. 
+The unimaginable happens then. He believes the pantomime, believes the door is locked, without even testing to see if it's true. Nothing but my tiny frame keeping it closed. 
 
-He slowly backs away. Goes up to a nearby car, pretending to unlock it's door, then realizing he's probably on camera, sprints off into the night. 
+He slowly backs away. Goes up to a nearby car, pretending to unlock it's door, then realizing he's probably on camera, sprints  off into the night. 
 
 Shaking, I opened the second door, and once I was sure it was locked behind me, I collapsed into the Neo Deco lobby floor. 
 
