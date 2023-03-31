@@ -112,4 +112,6 @@ I crawled downstairs, and the canvases were filled with paint once more. Everyth
 
 But I didn’t. I couldn’t. Not after seeing the Exacter’s apocalyptic desire. Too much is at stake.
 
+[Update - Part II](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/)
+
 [X](https://www.reddit.com/r/dominiceagle)
