@@ -145,3 +145,5 @@ I pulled my phone from the charger. I wanted to message a friend for advice. Tha
 Someone was watching through the back window. 
 
 “See you soon,” it [said.](https://firstbreath1.com/)
+
+[Part two.](https://www.reddit.com/r/nosleep/comments/127vqcn/i_let_a_stranger_take_a_picture_of_my_family_now/)
