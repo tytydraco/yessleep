@@ -1,4 +1,4 @@
-My sense of reality, everything I thought I knew about Brightwood Pines was blurring into nonsensical colors and shapes I was desperately trying to blink away. 
+[My sense of reality, everything I thought I knew about Brightwood Pines was blurring into nonsensical colors and shapes I was desperately trying to blink away.](https://www.reddit.com/r/nosleep/comments/120xf14/in_my_town_of_brightwood_pines_murder_was_legal_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 The sound piercing my skull, the love-child of a dentist drill and a car alarm, was not helping. 
 
@@ -134,7 +134,7 @@ I had another name in this other world where rain fell from the sky, and coffee 
 
 Before I could see more, once again the memory was coming apart—and in the back of my mind, I could sense a foreign presence in my mouth, a narrow finger jabbing at my back incisors. Stars flashed in front of my eyes, agony writhing in my head, exploding across my face. The memory faded away, the smell of coffee and the blurry figure who was glitching, their face almost recognisable, but hidden by the very presence struggling to reattach my tooth once again. When I came to, I was only half awake.  The world was spinning, and I was under bright, intense light shining down on me.
 
-Through foggy vision, I could only make out a small white room. I was lying on my back, my arms strapped down with velcro. I couldn’t move. My body was numb. Something warm ran down my chin. There was a masked figure looming over me. He bent over, stuck two fingers in my mouth, and pried it open before I could bite back. 
+ I couldn’t move. My body was numb. Something warm ran down my chin. There was a masked figure looming over me. He bent over, stuck two fingers in my mouth, and pried it open before I could bite back. 
 
 “Don’t worry, Elle.” The figure pulled back their mask and shot me a flashy smile. 
 
@@ -329,7 +329,7 @@ Kaz’s voice sounded off kilter-- and he himself was swaying from side-to-side 
 
 “You’re…” 
 
-I stared at the splatter of red on his gown, his hands slick scarlet. I wouldn't say he was with it exactly, but there were hints he was at least conscious enough to know what was going on. “It’s not my blood," He slurred. "I don't know whose blood it is! I just woke up, and bam! I'm covered in it!" 
+“It’s not my blood," He slurred. "I don't know whose blood it is! I just woke up, and bam! I'm covered in it!" 
 
 Kaz shook his head, trying to focus on me. Whatever was in his system, he was fighting it. "Also, no time. No time… nooo time…" He kept repeating himself, reminding me of Annalise in the earlier days. "If we’re...if we're going to knock your tooth out we’re doing it now! Like, right now. Before I bleed out. But you need to promise me,” He shook me, his fingernails cutting into my gown. "You can't let them take mine out, Elle." his expression darkened, and I glimpsed coherency. Before he  snickered. "Also. I'm like, reallllllyyyyyy high on anesthesia right now, so we we gotta do this like nowwww. I just gotta aim for the mouth, right?" 
 

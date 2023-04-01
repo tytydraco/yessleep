@@ -344,7 +344,7 @@ His expression crumpled. “I did?”
 
 I noticed Annalise was clingier with him around, sticking to my side. Every time he moved, she flinched, tightening her grip on my arm. She was leading us into the forest, and I swore, the closer we were getting to the clearing, the more town’s people were popping up out of nowhere. An old woman greeted us, followed by a man with a dog, and then a group of kids from school. Annalise entangled her fingers in mine, pulling me through the clearing. 
 
-Kaz followed, hesitantly, biking over rough ground. I caught him fall off balance for a moment before his hands flew out to grasp onto his handlebars. “Once again, I think this is a bad idea,” he said in a sing-song voice. “We should go back.”
+Kaz followed, hesitantly, biking over rough ground. “Once again, I think this is a bad idea,” he said in a sing-song voice. “We should go back.”
 
 When it was too dangerous for his bike, he abandoned it and joined my side.
 
@@ -432,4 +432,4 @@ Instead of answering him, I turned to the startled looking boy when alarm bells 
 
 “Peeking!” Annalise screamed, dropping to her knees, rocking backwards and forwards.
 
-Ignoring her, I focused on Kaz. Or whoever the fuck he was. “You need to knock my tooth out. Now."
+Ignoring her, I focused on Kaz. Or whoever the fuck he was. [“You need to knock my tooth out. Now."](https://www.reddit.com/r/nosleep/comments/126w7sg/murder_was_legal_in_my_town_of_brightwood_pines_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
