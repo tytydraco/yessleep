@@ -92,7 +92,7 @@ I looked at my phone. I had half an hour until the start of my shift. Miss Andre
 
 “Would it make you happier if I were to draw a smiley face on her?” Cara asked.
 
-My wife dipped her finger into her glass of water, and I cried in agony as she drew a crude pair of dots and a pencil-thin smile on Harper’s featureless face. Cara frowned at my hawing mouth when she finished.
+My wife dipped her finger into her glass of water, and I cried in agony as she drew a crude pair of dots and a pencil-thin smile on Harper’s featureless face. Cara frowned at my gawping mouth when she finished.
 
 “Relax. We own it,” She said. “Besides, it’ll dry. Don’t worry.”
 
@@ -148,7 +148,7 @@ I looked at Harper’s painting, and she wasn’t there. In her place, there was
 
 As my hand met the painted canvas within the painted canvas, my body liquified and merged with the exit on the canvas. A blackness, still and serene, enveloped me. And then I found myself lying on a tiled floor. A *real* tiled floor. Choking.
 
-Back in reality, I gazed across the gallery, and my eyes met a terrible sight. The contents of *every*painting had spilled onto the floor. The Exacter stood proudly amidst his minions, plotting in a sharp whisper. I’d expected a cacophonous roar of noise from the apocalyptic demons, but something about the near-silence of their scheming was even more frightening.
+Back in reality, I gazed across the gallery, and my eyes met a terrible sight. The contents of *every* painting had spilled onto the floor. The Exacter stood proudly amidst his minions, plotting in a sharp whisper. I’d expected a cacophonous roar of noise from the apocalyptic demons, but something about the near-silence of their scheming was even more frightening.
 
 Still, in the distance, I could hear human screams again — the apocalyptic sound of mankind being tortured in an endless oblivion. The agonising cries were almost tuneful, in a terribly dissonant way. Choral screaming. Humanity’s horrifying final song.
 
@@ -166,7 +166,7 @@ But the Exacter remained, mouth gaping so wide that it dropped past his shoulder
 
 I caught his wrist before those gnarled, ghastly fingers could wrap around my neck, and the pain was unexplainable. It was a deep burning of the mind, not the body — the Exacter’s last-ditch attempt to incapacitate the guard who was standing between it and the apocalypse.
 
-I saw Cara. She was sitting in our living room, smiling at something on the wall. Her smiled suddenly faded, and I could only watch in unbridled horror as her flesh melted before my very eyes. She continued to scream, even when she’d been reduced to smouldering, bloody meat on the sofa, but then she smiled.
+I saw Cara. She was sitting in our living room, smiling at something on the wall. I could only watch in unbridled horror as her flesh melted before my very eyes. Horrifyingly, she continued to smile, even when she’d been reduced to smouldering, bloody meat on the sofa.
 
 The Exacter showed me what she saw.
 
