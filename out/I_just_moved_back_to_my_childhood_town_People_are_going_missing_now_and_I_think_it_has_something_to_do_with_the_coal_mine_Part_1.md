@@ -1,4 +1,4 @@
-People have been going missing in my hometown ever since I moved back. And things don't really feel the way they did when I was a kid. I don't know if those two are related.
+ People have been going missing in my hometown ever since I moved back. And things don't really feel the way they did when I was a kid. I don't know if those two are related.
 
 This has been really nagging at me lately. I had no idea where to post it to get some help or peace of mind. I just really need some support right now before I drive myself crazy over it. Maybe I'm overreacting because it's been a stressful few months since my parents died, or maybe someone can shed some light on the events that have been happening and show me that I am just being crazy...
 
@@ -30,7 +30,7 @@ Now, let me explain Calkirk a little better before the next piece of my story. L
 
 The town sits a few miles from the highway and has one main road with everything that’s not a house on it. Two gas stations, one on each side of town, two bars barely 3 blocks away from each other, the post office, the fire hall, the grocery store on one side, the K through 12 school on the other, then there are a few buildings with random business scattered between, a small vet clinic, a photo lab, a small coffee shop, stuff like that. The jail sat smack dab in the middle of town between the two bars. The town itself probably wouldn’t be visible from the highway if the factory wasn’t billowing out thick clouds of what I assumed to be coal ash and soot 24/7.
 
-The factory was supplied by the Calkirk Mines and a tunnel delivery system had been made to transport coal to the factory from the mine about 15 miles away. The mine sat in a deep coolie with hundreds of trees around it, near a river, and a few long dirt trails in and out. the tunnel system was a long belt covered most of the way by piping. Inside, there's train cars that run almost constantly to the factory. With only small viewing ports for maintenance every so often. All of this knowledge was thanks to my dad working there for 40 years and a few take-your-child to workdays before he and my mom basically disowned me.
+The factory was supplied by the Calkirk Mines and a tunnel delivery system had been made to transport coal to the factory from the mine about 15 miles away. The mine sat in a deep coolie with hundreds of trees around it, near a river, and a few long dirt trails in and out. The tunnel system was a long belt covered most of the way by piping. Inside, there's train cars that run almost constantly to the factory. With only small viewing ports for maintenance every so often. All of this knowledge was thanks to my dad working there for 40 years and a few take-your-child to workdays before he and my mom basically disowned me.
 
 I should also mention before I get too far, since I came back here about 8 weeks ago, there have been three massive dustings, which the locals call “Ash events”. An Ash event in this town is when the factory spouts out way more of its black smoke than usual and the town gets covered in layers of black soot like material, it’s easily washed away with a hose and the fire department goes around each time and uses a low-pressure hose to rinse basically everything off. I remember these events from when I was a kid, but they never happened this frequently, at least not in my memory, or maybe it was washed off before I noticed.
 
@@ -74,7 +74,7 @@ I tried to divert the conversation back to the missing friend “So Genie…”
 
 “Listen” I said abruptly over their talking. “I’m with the newspaper now. You said your friend is missing, have you gone to her house yet!? Have you checked on her at all?”
 
-Their moods changed again, they frowned deeply, and went rigid for a minute as if they were really mad…  Then they suddenly smiled again, big wide creepy smiles that *really* freaked me out.
+Their moods changed again, they frowned deeply, and went rigid for a minute as if they were really mad… Then they suddenly smiled again, big wide creepy smiles that *really* freaked me out.
 
 “She’s fine Jeremy.” One said in a tight-lipped smile. “Just… resting…” her creepy smile widened, her lip twitched at the word ‘Resting’. Then, she shoo’ed me away with her hand without another word. My attempts to ask after were ignored as if I wasn’t even there.
 
@@ -120,6 +120,74 @@ I shook my head at him, trying to talk some reason into him. That didn’t make 
 
 His voice suddenly dropped into an angry tone “Son, I think you’re meddlin’ in people's personal business too much.” He titled his head closer to me. One of his eyes twitched at me, just like how Ruth's had at the grocery store. “Think you need to take your investigative head and go home, forget what you saw here.” He then smiled brightly as if he didn’t say anything and patted my shoulder again. “Nice seein’ ya Jer.” He walked back to his patrol car then tilted his hat at me “I’m sure I’ll be seein’ you around, son.”
 
-I mean, Am I the crazy one? I seem to be the only one who cares that Genie Carlson is missing... Ruth and Beth Anne don't seem to be bothered, and it seems like Sherrif Nixon *couldn't* be bothered. And that's not even getting into the guy and his girlfriend who went missing a few weeks ago...
+I mean, Am I the crazy one? I seem to be the only one who cares that Genie Carlson is missing... Ruth and Beth Anne don't seem to be bothered, and it seems like Sherrif Nixon *couldn't* be bothered. And that's not even getting into the guy who went missing a few weeks ago whose job I took…
 
-I think I am going to look into it and see if I can track Genie down at least, to make sure she is okay. I have resources at work that could maybe help me. So, I'm going to check those out when I take my next break. In the meantime, I have to get back to work, But I'll post an update if I find anything out.
+The following Monday at work, after finding out Genie Carlson had disappeared, I was typing up an article for a story that broke about a week before. Abby came to my desk, set a cup in front of me while she leaned against the edge and sipped her own. She told me it looked like I hadn’t slept all weekend. I told her I hadn’t.
+
+“Why? What’s up?”
+
+“Well, I saw your grandma and Beth Anne at the store on Saturday, she said that Genie Carlson didn’t meet them this weekend…”
+
+“What? Genie has never missed a Saturday with my grandma…”
+
+“That’s what they said, so I went to check on her, but her house was empty. There were black boot prints in the house and blood on the wall, but when Sheriff Nixon came to look, he said it was nothing and Genie probably moved.”
+
+“She’s 87 years old…”
+
+“That’s what I said… But he didn’t listen to me. He kinda gave me this really weird like… I don’t know, Cheshire Cat sort of smile, and his eye twitched and he just said I was ‘reading too much into this’ and to ‘go home and forget what you saw here’.” I put air quotes around those two. “He brushed it off, like it was some little, petty theft of a candy bar from a kid or something.”
+
+“Sounds like what happened to Jim…” Tom said, walking up to us with his own coffee. He joined Abby leaning against my desk.
+
+“Really?” Our boss had made it seem like Jim and his girlfriend had skipped town.
+
+“Yup. We went to check on him the first day he didn’t come back and there were black smudges all over the place and his house was emptied out, him and his girlfriend gone. Cops told us it was a ‘moving accident’ and told us not to worry.” Abby agreed.
+
+“Isn't that right after the Ash event like a month ago?” Tom asked.
+
+Abby nodded “Yup, He was here on Monday and then just didn’t show up on that Tuesday. We figured maybe he didn’t get his car cleaned and got pulled over or something, but all of our texts went unanswered too… Greg tried to call him for hours. After work, Tom and I went to check in on him and we found their house empty.”
+
+“Don’t you guys think it’s weird? I mean, three people gone, each event their houses were searched by cops who said it was them just moving all the sudden, unexplained blood?”
+
+They shrugged again then Abby sighed heavily. “It is, but we can’t do any research on it. Greg is a hound in the articles, he won’t let even the smallest mention of an ash event or people moving to get published.”
+
+“That’s just weird…”
+
+“Jer, don't worry about it.” Tom said, “If we get caught talking about it we get in trouble.”
+
+There was another half dozen people in the office that were doing whatever it is they all do. If even one heard and snitched on us to Greg we’d all get reprimanded like Tom did when Jim went missing. And I could see Greg heading our way with his morning coffee in his mug. We all gave uncomfortable, knowing looks before we all tightened our lips. He greeted us with a big “Good Morning!” and we responded with the same before we all exchanged another look.
+
+When Greg disappeared around a corner, I turned back to Abby and Tom. “I’m going to look into it a little bit, maybe see if there is something connecting the two…”
+
+“Just don’t let Greg catch you…” Abby shrugged, I nodded.
+
+“I won’t.”
+
+Then they both left to their own workstations and the week continued like normal. Any break I had I would sneak in some research on my phone to avoid Greg being able to look at my history, as well as asking Tom and Abby if they knew anything, trying to see if anything linked Jim Remus, his Girlfriend, who I found out was named Tammy, and Genie Carlson or Bill. I found nothing. No familial relation, they didn’t hang out with the same people, or at the same places. And why would they? Genie was 87, and god knows how old Bill is, and Jim and Tammy are both in their 20s.
+
+It wasn’t until the next Monday that I really started seeing a connection between the disappearances and the Ash Events.
+
+“Did you hear?” Abby asked, setting a coffee on my desk. Tom was close behind her as he scurried to join in on the conversation.
+
+“No?” I questioned. “Hear what?”
+
+“Bill Sanford went missing this weekend.”
+
+“Who?” I asked.
+
+“He was the janitor at the school when we were kids. He worked at the Mine for a while before he had to retire from his RA.” She paused to look around to make sure Greg hadn’t been in the vicinity. When she turned her attention back to us, she looked between Tom and me. “He was supposed to work on Saturday, and he never showed up. My grandma said he is never late or tardy without telling anyone.”
+
+“So… another disappearance.” I sighed and shook my head, crossed my arms over my chest and looked between Abby and Tom. Then I made a thoughtful face. “Has anyone seen him since his last shift?”
+
+“I was just getting there.” Abby agreed. “Grandma said she saw Bill at work on Thursday, and he was acting really strange, like super jumpy and nervous… Then, no one sees him on Friday, and then Saturday? He turns up missing?” She raises an eyebrow expectantly, waiting for me to put together the pieces on my own.
+
+“First Genie, then Bill…” I responded while I scratched my chin.
+
+Then we all turned as Greg screamed down the hall toward us. “Hey! Get back to work!”
+
+“On break!” Abby sneered at him. He tapped his finger on his watch. She turned back to me while Tom left the desk with a nervous look. He was very much the newer guy who would listen to the bosses every command. Whereas Abby had been there long enough that she didn’t care about what Greg told her, she got her work done and she knew he likely wouldn’t fire her or even reprimand her for slacking off for a few minutes. She turned back to me and nodded, “Just figured you’d like to know since you’ve been trying to figure out what happened to Genie…”
+
+“Yeah, Thanks Abby…”
+
+That’s all I have time to type out today, I have to get back to work, But I think I am going to look into it and see if I can track down any information on Genie or Bill. I have resources at work that could maybe help me.
+
+I guess I will post again when and If I find out anything about them. In the meantime, I guess just stay tuned.
