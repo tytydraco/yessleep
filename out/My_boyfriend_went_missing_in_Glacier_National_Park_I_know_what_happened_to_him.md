@@ -113,11 +113,17 @@ I was silent for a moment. When I spoke again, it took me a moment to even reali
 
 “Stan?” I asked. 
 
-He shook his head. “A phone. In the area you were found. We think it might be his - do you think you’d be able to confirm.”
+He shook his head. “A phone and a backpack. We think there's human blood on it. In the area you were found. We think it might be his - do you think you’d be able to confirm.”
 
-“Yeah, yeah, I can do that,” I said. He glanced over at Crystal. There was something unreadable in his eyes. In that moment, I knew that cell phone was going to be the only thing they found of Stan. 
+“Yeah, yeah, I can do that,” I said. He glanced over at Crystal. There was something unreadable in his eyes - I couldn't even begin to decipher what it was. They took me to see the cellphone. It sat neatly in an evidence bag, a sight that seemed in stark contrast to the rusty brown that covered the now cracked screen. I felt my blood run cold. The bag was in much the same condition. I recognized it as Stan's immediately. It was the one he'd taken with us hiking that day. Now, one of the straps was torn, and the same red that covered the phone speckled the backpack. I felt my breath catch in my throat as I looked at it, somehow knowing that was all they would find of Stan. 
 
-After I confirmed that it was indeed his, Alex and Crystal took me back over to my campsite. I had called my parents - I hadn’t spoken to them in ages, so I can only imagine how it felt to receive a call like this out of the blue. Despite that, they were relieved. Both to hear from me and to hear that I was okay. They’d insisted on flying out the next day, to bring me back to our home.
+"I told you it got him," I said, my voice cracking in fear and barely above a whisper. Crystal looked at me sympathetically. 
+
+"Well, it does seem like *something* happened," she said. "But for all we know, he could have just fallen and hurt himself. We might still find him."
+
+I glanced back at the bag, doubt filling my mind, and gave an unsteady nod. I didn't have enough energy left to try to convince anyone of a story that sounded crazy even to me. 
+
+After I confirmed that the phone and backpack was indeed his, Alex and Crystal took me back over to my campsite. I had called my parents - I hadn’t spoken to them in ages, so I can only imagine how it felt to receive a call like this out of the blue. Despite that, they were relieved. Both to hear from me and to hear that I was okay. They’d insisted on flying out the next day, to bring me back to our home.
  
 Home. 
 
@@ -175,6 +181,6 @@ I gave a small nod. Maybe.
 
 “Have a good night,” he said. I closed the door, feeling like I was also opening one to another chance at life - to healing. To freedom. I wouldn’t have thought it started with an empty hotel room, but I guess life always has a way of twisting around itself, like a winding serpent. 
 
-It's been years since Stan went missing now. As I guessed, he was never found, and eventually the search died down, relegating his disappearance to an occasional footnote in stories about tragic things that happened in the park. Penelope is sitting on my lap as I write this - we both have an apartment in my home city now. I haven't been back to the park. Not out of fear, though. It just feels like a chapter that's closed, you know?
+It's been years since Stan went missing now. As I guessed, he was never found, and eventually the search died down, relegating his disappearance to an occasional footnote in stories about tragic things that happened in the park. There's some speculation it might have been a bear attack. Nothing else was ever found to confirm one way or another, though. Penelope is sitting on my lap as I write this - we both have an apartment in my home city now. I haven't been back to the park. Not out of fear, though. It just feels like a chapter that's closed, you know?
 
 Maybe snakes aren't so bad.
