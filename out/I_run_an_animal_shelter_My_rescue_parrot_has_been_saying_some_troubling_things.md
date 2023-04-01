@@ -290,7 +290,7 @@ Tears streamed down my face as my eyes fell on Bertie. But he wasn’t alone. Ju
 
 *It was the inland taipan.*
 
-Why anyone would think keeping a deadly snake as a pet is beyond me, but in the moment I thanked that stupid person who attempted such a thing.
+Why anyone would think it's a good idea to keep a deadly snake as a pet is beyond me, but in the moment I thanked that stupid person who attempted such a thing.
 
 As soon as the man noticed the snake he freaked out, but I’m not sure if he realised just how dangerous it was. His eyes widened as he let me go and threw his arms out, but the snake was quick. It took a jab at the soft flesh of his neck, and then one on his hand for good measure.
 
