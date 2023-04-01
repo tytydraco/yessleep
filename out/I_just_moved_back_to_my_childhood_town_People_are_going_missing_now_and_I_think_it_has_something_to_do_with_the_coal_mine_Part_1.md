@@ -1,4 +1,4 @@
- People have been going missing in my hometown ever since I moved back. And things don't really feel the way they did when I was a kid. I don't know if those two are related.
+People have been going missing in my hometown ever since I moved back. And things don't really feel the way they did when I was a kid. I don't know if those two are related.
 
 This has been really nagging at me lately. I had no idea where to post it to get some help or peace of mind. I just really need some support right now before I drive myself crazy over it. Maybe I'm overreacting because it's been a stressful few months since my parents died, or maybe someone can shed some light on the events that have been happening and show me that I am just being crazy...
 
@@ -191,3 +191,5 @@ Then we all turned as Greg screamed down the hall toward us. “Hey! Get back to
 That’s all I have time to type out today, I have to get back to work, But I think I am going to look into it and see if I can track down any information on Genie or Bill. I have resources at work that could maybe help me.
 
 I guess I will post again when and If I find out anything about them. In the meantime, I guess just stay tuned.
+
+There's something odd happening at the Coal Plant... Here's [My latest update](https://www.reddit.com/r/nosleep/comments/128cwxj/i_just_moved_back_to_my_childhood_town_another/?utm_source=share&utm_medium=web2x&context=3).
