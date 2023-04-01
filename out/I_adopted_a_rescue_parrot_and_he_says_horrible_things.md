@@ -18,7 +18,7 @@ After that he was chatty. Perhaps the reminder of his old life allowed him to op
 
 I was alerted to Scarface’s eccentric imitations by my cleaner. She told she’d been given quite a fright by a man screaming for help, only to find Scarface laughing to himself. He realized it scared her and kept screaming. Not a bird screech, a man’s scream. She told me she heard the bird begging someone to stop, telling them that’s what they got, and laughing. A whole conversation with himself parroting some unknown prior interaction. I assumed the previous owner had exposed Scarface to some action movies and didn’t think much of it.
 
-I only started to find it unnerving when he said “sin cara para ti” (no face for you) while I was brushing my teeth. Then he screamed. Then he laughed. I would think the parrot had multiple personality disorder if he had the mental capacity for such an illness.
+I only started to find it unnerving when he said “sin cara para ti” (no face for you) while I was brushing my teeth. Then he screamed. Then he laughed. I would think the parrot was inhabited by Legion if for some reason Satán found the desire to possess a bird.
 
 My little brother’s teenage son took a fancy to Scarface when I paid him to look after him for the weekend. I was off to Mazatlán for a wedding. I think the idea of being left alone with a whole house to himself also encouraged his engagement with the parrot. I checked in twice. On FaceTime I would say hola to Scarface and he would look around confused before  asking “¿quién es?”. He was a smart bird but didn’t grasp the concept of screens. My nephew promised me he was going to teach Scarface a whole new English vocabulary. He wanted the bird to be bilingual.
 
