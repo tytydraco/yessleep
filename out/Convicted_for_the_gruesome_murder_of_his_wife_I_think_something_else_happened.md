@@ -115,3 +115,46 @@ I nodded, trying to regain my composure.
 I did my best to ignore the figure standing behind her. 
 
 A figure that looks like me, but doesn’t at the same time.
+
+
+I left the prison feeling far more defeated than when I arrived. I’ve had a harsh, dreadful feeling sitting like concrete in the pit of my stomach since I read Teresa’s posts.
+
+At first, I couldn’t even tell that it was supposed to look like me. Apparently, it’s hard to recognize ourselves when we’re not looking at a picture or our reflection. It’s an eerie feeling, knowing that whatever this is - looks familiar. And at the same time, it looks so foreign.
+
+It stays close to me, just close enough that I can feel it’s presence. It’s always staring, but it’s gaze is unsettling.. unnatural. People walk right past it, blissfully blind.
+
+I have investigated murders for the better part of a decade, my mind is not an easy one to break. Level-headed, analytic, calm - all traits you need in order to be successful in this line of work. I don’t believe in paranormal bullshit, demonic or otherwise.
+
+So, you could say it came as a shock when I couldn’t fight off this uneasy wave of fear and dread at the sight of this thing.
+
+A thing - because I don’t know what else to call it. As much as my instinct tries to persuade me differently, I know that this thing isn’t human. Humans don’t stand amongst a crowd, unmoving, without a hint of acknowledgement. Nobody looks twice, nobody makes an effort to interact.
+
+No human stands for hours on end, mouth agape, not blinking. No rise and fall of the chest - no breathing. It seems that it’s sole purpose is to stand there and stare at me until I break down into a state of perpetual psychosis.
+
+Honestly, I would prefer that over what happened to Teresa.
+
+Imagine a corpse, one still rigid with rigor mortis. Now, imagine that corpse standing, head tilted just slightly to the right. A corpse with its eyes pinned wide open, red tinged all around the edges. And it’s mouth…. its jaw unhinged and open wider than what should be possible.
+
+Now imagine that corpse following you around, never leaving you, never letting you out of its site.
+
+That kind of shit wears heavy on a person.
+
+It wasn’t with pride that I took to Google for answers, it was a last resort. Maybe someone has dealt with this before? Maybe there’s something I can do?
+
+So, I stumbled across Teresa’s posts. Initially, my interest was piqued but I had reservations - you simply can’t believe everything you read on the internet. While her story seemed to eat away at that nagging weight in my stomach, it didn’t become real until I searched her name.
+
+Then, it felt like the world around me slowed, my heartbeat thudded angrily in my ears, my breath hitched somewhere between my lungs and mouth. And the pressure on my chest… Fuck, was that pressure intense.
+
+I had peered over to my darkened kitchen, at the figure standing silently beside the empty table, and blinked back tears, not because I was afraid of dying, but because I was afraid of how long I would have to suffer like this. Suffer knowing how it would end.
+
+Meeting with Romero today was my last-ditch effort to find out how to save myself. With that option ripped away, defeat mixed itself into despair.
+
+It won’t be long now. He’s so close to me, I can reach out and touch him. I imagine he feels cold and hollow.
+
+I used to try and focus on the sound of my heartbeat in my ears, tachycardic but steady - human. Now, all I can hear is a low, wicked groan.
+
+And as I sit in my desk chair, it leans over me, like it’s frothing to take me at any moment. It feels eager. Like it’s been starved for years, and it’s finally about to feast.
+
+I imagine it must be ready, because even though I try not to look directly at it - I can still see its gaping mouth begin to turn upwards…
+
+Into a smile.

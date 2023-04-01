@@ -1,16 +1,32 @@
+(This is a second version, after many of you had questions that I had neglected to answer in my original post. Well, here are those answers, and a lot more graphic details.
+
+***Trigger Warning for if you have a phobia of worms or vomiting)
+
 Charlie was a pretty strange kid. I mean, not because he was a loner, or because he had absolutely no friends, but because there was something a little off about him. You see, Charlie ate worms, and I don’t mean like the kid who would pluck one out of the ground and slurp it down to gross everyone out for their own amusement. No, Charlie wasn’t like that. Most kids would say they were afraid to even get near him because they might smell the worm guts on his breath.
 
-Charlie always ate lunch by himself. I remember watching him dig out his thermos and the normal food, you’ll know what I mean by ‘normal’, but the one thing he cherished lay covered in a plastic bowl. He popped the lid off with a big, hungry smile on his face that was so big it lifted his glasses up his face, he dug through the dirt inside the bowl and found a big, plump and juicy worm that he then slurped into his mouth like it was spaghetti. The worm wriggled for dear life as it was sucked into his disgusting orifice. More than once, this little show made a nearby kid hurl all over the floor, prompting a grumpy old janitor to throw sawdust and clean it up with resentment at the weird worm kid.
+Charlie always ate lunch by himself. I remember watching him dig into his plastic lunchbox to pull out his thermos and the normal food, you’ll know what I mean by ‘normal’ in a moment, but the one thing that he cherished lay in a plastic bowl. He popped the lid off with a big, hungry smile on his face that was so big it lifted his glasses up his face, he dug through the dirt inside the bowl and found a big, plump and juicy worm that he then slurped into his mouth like it was spaghetti. The worm wriggled for dear life as it was sucked into his disgusting orifice. More than once, this little show made a nearby kid hurl all over the floor.
 
-There were rumors going around the school that Charlie had been tested by various doctors at various hospitals. Some kids thought maybe he was psychotic, and the religious kids concluded that he was possessed. According to the rumors, the doctors concluded that he had pica, which is a disorder where people crave things they wouldn’t normally want, like rocks, lotion… or even worms. Some friends of mine claimed that their parents knew Charlie’s parents, and their parents had said that Charlie was put on various supplements and vitamins, but he still wanted worms. His cravings were insatiable, to the point of addiction.
+“Shawn’s gonna puke!” I announced loudly, making sure that the entire cafeteria heard.
+
+“Puke! Puke! Puke! Puke!” the other kids would cheer.
+
+The kid would spew their lunch all over the floor, prompting the grumpy old janitor to throw sawdust on the stinking pile and clean it up with resentment toward the weird little worm kid.
+
+There were rumors going around the school that Charlie had been tested by various doctors at various hospitals. Some kids thought maybe he was psychotic, and the religious kids concluded that he was possessed by worm-eating demons because the Bible made some connection with worms and evil. According to the rumors, the doctors concluded that he had pica, which is a disorder where people crave things they wouldn’t normally want, like rocks, lotion… or even worms. Some friends of mine claimed that their parents knew Charlie’s parents, and their parents had said that Charlie was put on various supplements and vitamins, but he still wanted worms. His cravings were insatiable, to the point of addiction.
 
 The school administrators, as grossed out as they were, could do little to Charlie. My friends said that his parents had been infuriated when the principal had made Charlie eat in a room by himself, saying that they were discriminating against poor Charlie because he had an odd craving for snacks. His parents were threatening to get lawyers involved if they didn’t treat Charlie as an equal to the rest of us. Much to our dismay, we had to watch Charlie, from the corner of our eyes, as he dined on his wormy delicacy with the giggling ecstasy as if it were candy.
 
-I believe the following events happened around Christmas of our fifth grade year. One thing that I remember is that it was snowing and Charlie was dining on less and less worms due to frigid weather. My dad had become acquainted with Charlie’s dad through his job, and so, they had arranged a playdate. I fought with my parents about it, to the point that they were threatening to ground me if I didn’t go.
+I believe the following events happened around Christmas of our fifth grade year. One thing that I remember is that it was snowing and Charlie was dining on less and less worms. I concluded it was due to the frigid weather. My dad had become acquainted with Charlie’s dad through his job earlier that year and they had become friends, and so, they had arranged a ‘playdate’. I argued that I was eleven and kids my age don’t do ‘playdates’. I also reminded him about Charlie’s gross habits, but they just threatened to ground me if I didn’t go
 
-I remember thinking, “God I hope the other kids don’t find out.”
+“Oh, come on. He can’t be that bad. So what if he eats worms sometimes? There’s always that kid in class and they are just as normal as you are.”
 
-Sure enough, they did somehow. I’m going to assume that my parents told some other kids’ parents.
+“But you don’t understand dad! It’s every day! Not just sometimes! The other kids will make fun of me too if they know I hung out with him!”
+
+“His dad and I have talked a lot about it, and Charlie sounds like a lonely kid who just needs a friend. Maybe being friends with you will straighten him out?”
+
+I remember thinking, “God, please, I hope the other kids don’t find out.”
+
+Sure enough, they did somehow. I’m going to assume that my parents told some other kids’ parents that they worked with. Living in a small town really sucks that way.
 
 “Brody is a worm eater too!”
 
@@ -53,6 +69,7 @@ Finally, he finished his lunch and pushed himself from the table.
 “Let’s go to my room and play some games.”
 
 I felt relief when he finally said something, and it was normal, but now I began to wonder what his room was like. Was it filled from floor to ceiling with his slimy, red snacks? Was the floor maybe covered in dirt, filled with the worms? We went down the hall where I walked into a pretty normal mid-90s boys bedroom – Power Rangers posters on the wall, a fat TV sitting on a tiny table with a Super Nintendo on the floor, action figures scattered in random places, a bunk bed used by just one kid. I noticed too that his room didn’t smell bad or appear all that gross. A feeling of regret came over me that maybe I had been wrong about Charlie all along and that maybe I should apologize at some point.
+
 “Last year, for my birthday, I asked my parents for a bunk bed for me and a friend to have sleepovers. You’re the first to ever hang out with me.”
 
 That made me feel good but also bad for all the times I had mocked him and acted horribly toward him, for all the rude nicknames, and for alienating him with our cruelty.
@@ -80,34 +97,33 @@ I looked over into one of the bins and saw ordinary looking soil.
 In his hand was a bucket filled with vegetable scraps. He evenly spread them out across the dirt with gentle care.
 
 “But sometimes, they deserve a snack as well.”
-	
+
 Charlie walked over to a shelf and removed a plastic cooler, the type you would take on a picnic. He popped open the lid, to reveal a stench like the one I had been smelling. This is part of the story that is difficult to write and I had to take a few moments before doing so. Here goes.
 
 From the cooler, he pulled out a partially dismembered cat. Its head and back legs were missing, but the rest was there. It was rigid from rigor mortis and had obviously decomposed partially as well. Charlie laid the animal corpse on another shelf, where he produced a large chopping knife and whacked off one of the legs with a swift strike. I was mortified. I had no idea what he was going to do with it, but I was even more scared that I was about to find out.
-
 “Ya know, Brody. You really are the first to come here. I’ve tried and tried the last few months. My parents work with lots of other parents from school and none of them had the backbone to make their kid come over here. Except yours did.”
 
-Charlie then walked over to the left worm bed and laid it down with the same careful way as he had the vegetables. This time though, the worms popped from the earth with a frenzied eagerness that I didn’t even know worms could do. They wriggled and crawled on the corpse with surprising speed, breaking down the leg to bone within a few minutes, then a few more minutes later, the bone was gone as well.
+“I trained them myself, ya know. I bred them specifically for this. When you saw me eating them, I wasn’t eating them for the taste. No. I was eating them so I could understand them. I thought that if I ate them, then I could become like them. I want to control the worms, to have them do as I say!” he began giggling erratically, “You see, Brody. I don’t want to be friends with you or anyone else. In fact, I hate you. You see, I brought you here for something… new.”
 
-“I trained them myself, ya know. I bred them specifically for this. When you saw me eating them, I wasn’t eating them for the taste. No. I was eating them so I could understand them. I thought that if I ate them, then I could become like them,” he began giggling erratically, “You see, Brody. I don’t want to be friends with you or anyone else. In fact, I hate you. You see, I brought you here to start training them for something… new. I thought, why not feed them one of the worst people in the world?”
+I struggled to free myself, but Charlie had bound my arms and legs with so much duct tape that I just couldn’t budge. Screaming proved to be futile as well but I tried like hell to get out of that damned chair. It rocked just slightly as I attempted to free myself, but Charlie, well he just laughed and laughed.
 
-I think that was when he hit me with the flat end of the chopping knife, because the next thing I can remember is waking up to a shocking explosion of pain. I was tied up to an old kitchen chair, my mouth gagged with a rag and sealed with duct tape. My body instantly screamed out in pain, but was muffled by his improvisation. I couldn’t pinpoint the pain immediately and began scanning myself for the source. 
+He started walking toward me, but then he paused by the worm bed. He searched under the table and took out a probe connected to a wire that he stuck into the ground. It was connected to some kind of gadget, and when he pressed a button, thousands of worms immediately came to the surface. Charlie scooped up a handful and then continued walking toward me, now with an enormous, eager grin stretching his face.
 
-The warmth of my blood told me immediately where the pain was originating. My right index finger was gone, blood squirting with every heartbeat from the stub that remained. I looked up and saw him place the finger in another worm bed and the worms eagerly devoured my severed appendage.
+The duct tape ripped off with a vicious rip. It was then that I realized my mouth had been rigged open by some kind of device. That was when it dawned on me what he was about to do. With that sickening grin on his face, Charlie gleefully shoved the handful of worms into my mouth. I immediately could taste the awful bitter sensation of slimy bitterness and earth. But that wasn’t the worst of it. It was feeling these fucking things wriggle around inside my mouth. I tried to vomit, but nothing happened.
 
-“This is the finger that you used to point and laugh at me! You’d call me those awful names! You’d urge other kids to puke at the sight of me! You would point and tell other kids how much you thought my breath stank of worms! Now, you won’t be able to point and laugh at me anymore! I’m going to chop you up, piece by piece and feed you to my children!”
+All of that was nothing compared to the next. When they began to move down my throat, that was when it was much easier to gag. But, even as I could feel the burning bile make its way up my esophagus, Charlie stuffed something in my mouth and taped it over, trapping all of it. I began to choke on everything that was stuck in my mouth and throat, but I could still feel the worms making their way down into my now empty stomach.
 
-I struggled to free myself, but Charlie had bound my arms and legs with so much duct tape that I just couldn’t budge. Screaming proved to be futile as well but I tried like hell. The chair rocked slightly as I attempted to free myself, but Charlie just laughed and laughed.
+Oh God. I can hardly even begin to describe the feeling of worms moving around in my belly. I swear that I could even feel them through my skin working around my insides. That was when Charlie clicked a device in his hand. Suddenly, the worms stopped the adventure in my body and… began to eat. This is also a sensation that I cannot describe. The pain was worse than the time I nearly snapped my leg in half in kindergarten, worse than in second grade when I was hit by a baseball that I’d pitched and it’d broken my nose. This was burning deep within my guts that felt like absolute fire. This was not like people describe various illnesses, oh no… this felt like Hell, like Satan himself had come up from the dark pits of torment to wreak havoc on me.
 
-He started walking toward me, playing with the knife in his hand.
-“Time for the next finger, Brody. My children are so, so hungry.”
-
-Another sickening chop, another explosive burst of pain as he chopped off my middle finger and halfway chopped off the next one. He stood by and watched me cry and writhe in agony. I couldn’t see from the flood of tears constantly pouring from my eyes, but I also didn’t want to witness another finger being fed to those sickening things.
-
-Then, I guess, God decided to have mercy on me. I think it was my tears and snot that loosened the duct tape around my mouth. I screamed for the heavens, Charlie turning around sharply, urging me to shut up. His mother raced down stairs, and when she saw what was going on, she too screamed.
+God must’ve had mercy on me at this point because his mother decided to walk into the basement searching for us.
+“Kids! I’ve been looking for,,,, OH MY GOD!!!!”
 
 Charlie was all over the news for weeks after. They talked about the kid who had murdered countless pets and had been feeding them to his worm farm, then tried to do the same with a classmate. He was even interviewed once and he told the interviewer “He was the first. There were lots more that were on the menu” as he laughed.
 
-I was eventually able to get prosthetic fingers a few years ago and I can type with them as you can tell. My life has been pretty normal since. I had to see a therapist for a few years, but there’s nothing majorly wrong with me, other than my horrific fear of worms. I can’t even fish with live bait, I always use lures or imitation bait. I can’t even stand to see them if I move something in my yard. It just makes me want to vomit.
+His parents were immediately taken into custody, and mine nearly were. His parents were held accountable for neglect because they hadn’t kept a better eye on us. My parents were investigated by Child Protective Services for forcing me to go in the first place. They said they thought they were doing me good by introducing me to the kid of a work friend. Dad said he had planned on coming by later and having a beer with Charlie’s dad. He said he had seen nothing wrong with Charlie's parents but he wishes he had met Charlie beforehand and maybe this whole thing could’ve been avoided. As if what I had told him and complained about wasn’t enough?
+
+For an entire year, I had to live with my grandma a whole state away while the courts investigated my parents. I eventually requested that I stay with my grandma so that I wouldn’t have to be reminded of what Charlie had done, and because I couldn't forgive my parents. The courts obliged and handed my rights over to good ol' grandma. To this day, I still haven’t spoken to my parents.
+
+I had countless surgeries to repair my organs. They had to cut a few feet of intestines, repair my stomach, everything in my throat, and even my nasal passages had been infested with the worms. My life has been difficult at times. I’ve had to have a few surgeries since due to stomach complications, and I have a very strict diet. I also see a therapist every week. My grandma took me to one not long after the incident, who insisted that I forgive my parents as closure. I never saw that quack again. This one though, I like her. She tells me that I have every right to be angry at my parents and everyone involved. I couldn't agree more.
 
 The reason that I decided to write this is because Charlie was recently featured on a popular television series about psychotic family members. His parents starred in it, they’re now gray and wrinkled, and they spoke about how there had been signs of his psychosis but they had chosen to ignore it. They thought it was just a childhood phase. A recent mugshot of Charlie was also shown. He’s now bald and chubby, but the thing that got me was that smile on his face. It looked as if he had been laughing. That smile said he had felt absolutely no guilt for what he had done and that wishes he had been able to feed the rest of me to his children.
