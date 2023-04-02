@@ -106,7 +106,7 @@ I exited the habitat wearing my best poker face. Vic threw his hands up in exasp
 
 I asked him, “Isn’t a Thunderbird supposed to be a demigod or something like that?”
 
-“Nah, that’s a bunch of horseshit. They’re just birds. I mean, they’re really *big* freakin’ birds and they can kill you, but they’re just birds. I swear, people are always saying to me, ‘A Thunderbird is a god or something, right?’ And then I’m like, ‘If it’s a god, why the hell is it locked up in my zoo?’ I swear, there’s so much misinformation going around out there, Billy! I can only shake my head, you know what I mean? People will believe anything.”
+“Nah, that’s a bunch of horseshit. They’re just birds. I mean, they’re really *big* freakin’ birds and they can kill you, but they’re just birds. I swear, people are always saying to me, ‘A Thunderbird is a god or something, right?’ And then I’m like, ‘If it’s a god, why the hell is it locked up in my zoo?’ I'll tell ya, there’s so much misinformation going around out there, Billy! I can only shake my head, you know what I mean? People will believe anything.”
 
 I burst out into a long, shaky fit of giggling. He frowned at me and said, “What’s funny? What did I say?”
 
