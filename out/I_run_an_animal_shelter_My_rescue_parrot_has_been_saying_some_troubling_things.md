@@ -4,7 +4,7 @@ I specialise in and have the facilities for animals of the exotic variety. You w
 
 They tend to fall under three categories: They are illegal to keep in the UK, the previous owners didn’t have the necessary licences to keep them, or the previous owners couldn’t adequately care for them.
 
-Among my current residents I have various spiders, a copperhead, two meerkats, a lemur, and a fennec fox! I keep them during the transition period. They mostly end up in zoos around the country, but sometimes they are released back into their natural habitats and that brings me so much joy. In some cases the animals will spend the rest of their lives with me, and so I make it as comfortable as possible for them.
+Among my current residents I have various spiders and snakes (including an inland taipan, one of the deadliest shakes in the world), two meerkats, a lemur, and a fennec fox! I keep them during the transition period. They mostly end up in zoos around the country, but sometimes they are released back into their natural habitats and that brings me so much joy. In some cases the animals will spend the rest of their lives with me, and so I make it as comfortable as possible for them.
 
 Before I get to the point I’ll just get on my soapbox for a moment. Please think long and hard before you choose to keep an exotic pet. The vast majority of owners don’t have the education or facilities to keep these creatures and that breaks my heart.
 
