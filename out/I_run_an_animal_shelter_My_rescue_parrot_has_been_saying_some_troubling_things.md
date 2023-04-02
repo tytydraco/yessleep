@@ -282,7 +282,7 @@ Bertie flew somewhere behind us as I tried to hold the man down, but that was si
 
 “No!” I screamed, grabbing his arm with both hands. I pushed it to the floor with all I had and the gun slid away from us. I was disoriented as his fist met the side of my face, then his hands were around my neck.
 
-“All over some fucking animals?” he spat. His face was screwed up into a hateful expression as I tried to free myself from his grip. He applied pressure and couldn’t breathe, my windpipe felt like it was being crushed.
+“All over some fucking animals?” he spat. His face was screwed up into a hateful expression as I tried to free myself from his grip. He applied pressure and I couldn’t breathe, my windpipe felt like it was being crushed.
 
 From the corner of my eye I saw Bertie’s bright blue and yellow feathers getting closer, and I quietly appreciated his attempts at playing the hero.
 
