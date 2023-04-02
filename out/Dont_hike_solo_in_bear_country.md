@@ -50,7 +50,7 @@ The bear was closing in quicker, every few flickers from the fire illuminating i
 
 *Five.*
 
-I pulled the flashlight out of my back and whipped around, flashing the bear. As the light hit, the bear seemed to stop in its tracks. I inspected the creature, my bones chilled from the horror I was witnessing.
+I pulled the flashlight out of my backpack and whipped around, flashing the bear. As the light hit, the bear seemed to stop in its tracks. I inspected the creature, my bones chilled from the horror I was witnessing.
 
 A blue fabric of clothing hung out of its mouth, teeth piercing through the middle and making a fabric mouthguard. A scar latched around the top right of its head in a perfect circle, it creased over the eyes which I noticed were different colors. One was a shade of brown, and the other was crystal-white, where the scar looped around. Its bloody vigor was riddled with pink patches of skin all over certain spots of the body and missing a massive chunk of its ear. 
 
@@ -72,7 +72,7 @@ I tried to get up, but couldn’t, my condition forbidding such a thing as my le
 
 *(RrrrrrrrGGGGGG)*
 
-It kicked his foot and started to charge.
+It kicked its foot and started to charge.
 
 *Three.* 
 
@@ -80,15 +80,15 @@ It kicked his foot and started to charge.
 
 *Five.* 
 
-I screamed for help, unable to get up. I was paralyzed *(Six)* in the ground as the bear *(Seven, Eight)* ran at me in (*Nine, Ten)* the isolated woods. It picked up the pace (*Eleven, Twelve, Thirteen*) and before I knew it the monster was right above me. Reflecting now, I noticed how massive he was before he threw himself on me. It was like a 8 foot grandfather clock falling on you, as you were unable to move, unable to scream, unable to fight back. Thing is, this clock had claws and teeth sharper than razors. This bear however, liked to play with its food.
+I screamed for help, unable to get up. I was paralyzed *(Six)* in the ground as the bear *(Seven, Eight)* ran at me in (*Nine, Ten)* the isolated woods. It picked up the pace (*Eleven, Twelve, Thirteen*) and before I knew it the monster was right above me. Reflecting now, I noticed how massive it was before it threw itself onto me. It was like a 8 foot grandfather clock falling on you, as you were unable to move, unable to scream, unable to fight back. Thing is, this clock had claws and teeth sharper than razors. This bear however, liked to play with its food.
 
-He ripped my legs open, blood spilling out like an automatic water fountain. My face turned red with pain, I could feel my forehead vein present itself strongly. The feeling was like no other. When it dug their meaty paws into the tip of my thighs, it felt like 10 butcher knives stuck in you. They wriggled around and scratched itself along the bone like a fork dragging across a plate. Then, it screeched down my legs, and pulled itself out, the pain being immensely worse than before.
+It tore my legs open, blood spilling out like an automatic water fountain. My face turned red with pain, I could feel my forehead vein present itself strongly. The feeling was like no other. When it dug their meaty paws into the tip of my thighs, it felt like 10 butcher knives stuck in you. They wriggled around and scratched itself along the bone like a fork dragging across a plate. Then, it screeched down my legs, and pulled itself out, the pain being immensely worse than before.
 
-I screamed in unbelievable pain, my adams apple feeling like it just came out of my mouth with spit flying onto the bear's nose. That seemed to irritate him, and he lurched up again, and came down with a swipe. 
+I screamed in unbelievable pain, my adams apple feeling like it just came out of my mouth with spit flying onto the bear's nose. That seemed to irritate it, and it lurched up again, and came down with a swipe. 
 
 *(BANG!)*
 
-The bear collapsed on top of me, a large hole through his body. I couldn’t move, and felt the bear being taken off of me. My vision was blurry, threatening to make me pass out, and I noticed a shade of pink through my cracked eyes. It was the man I’d seen on the trail earlier, with a double-barrel shotgun sitting prominently in his clasped hand. He kneel down, waving a hand in my face.
+The bear collapsed on top of me, a large hole through its body. I couldn’t move, and felt the bear being taken off of me. My vision was blurry, threatening to make me pass out, and I noticed a shade of pink through my cracked eyes. It was the man I’d seen on the trail earlier, with a double-barrel shotgun sitting prominently in his clasped hand. He kneel down, waving a hand in my face.
 
 That’s when I passed out.
 
