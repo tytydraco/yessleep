@@ -125,3 +125,5 @@ The house. The fucking house. I asked him why it had to be there, if we could me
 The conversation certainly left a lot to be desired, but I've decided to go anyway. I'll sleep on it first, though. Maybe I'll change my mind in the morning.
 
 But I don't think I'll be satisfied until I get some answers.
+
+UPDATE: [https://www.reddit.com/r/nosleep/comments/1291jp1/i\_found\_a\_strange\_message\_in\_my\_fortune\_cookie/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/1291jp1/i_found_a_strange_message_in_my_fortune_cookie/?utm_source=share&utm_medium=web2x&context=3)
