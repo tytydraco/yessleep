@@ -122,7 +122,7 @@ A concerned couple stopped at the sound of my voice. A few more onlookers joined
 
 “Okay!”
 
-She had a certain giddiness about her that’s hard to describe. Do you know the type? She was just as pretty as the last one. Brown hair. Tanned skin. Designer dress. But she did not stop looking me in the eyes. Crazy eyes, as my friends might have called it, or a thousand-yard stare.
+She had a certain giddiness about her that’s hard to describe. Do you know the type? She was just as pretty as the last one. Brown hair. Tanned skin. Flowing dress. But she did not stop looking me in the eyes. Crazy eyes, as my friends might have called it, or a thousand-yard stare.
 
 “But we’re going to do it anyway.”
 
@@ -175,3 +175,5 @@ They rammed us.
 NOT the other way around.
 
 The car flipped three times with my family inside. We landed somewhere on the side of the road. Even through all of the blood, chaos, and screaming, I could still see them taking pictures before the ambulances arrived.
+
+[Part three.](https://www.reddit.com/r/nosleep/comments/129k9fa/i_let_a_stranger_take_a_picture_of_me/)

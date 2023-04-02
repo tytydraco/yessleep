@@ -147,3 +147,5 @@ Someone was watching through the back window.
 “See you soon,” it [said.](https://firstbreath1.com/)
 
 [Part two.](https://www.reddit.com/r/nosleep/comments/127vqcn/i_let_a_stranger_take_a_picture_of_my_family_now/)
+
+[Part three.](https://www.reddit.com/r/nosleep/comments/129k9fa/i_let_a_stranger_take_a_picture_of_me/)
