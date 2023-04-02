@@ -18,6 +18,8 @@ I ran away from there faster than I knew I could, while frantically dialing my d
 
 &#x200B;
 
-TL;DR
+update (4/2/2023)
 
-I made new friends and one of them faked being my friend to beat me up and threaten to kill me
+joe is returning to my school despite being "expelled". fuck my school system
+
+&#x200B;

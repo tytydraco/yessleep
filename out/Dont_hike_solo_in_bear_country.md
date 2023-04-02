@@ -88,7 +88,7 @@ I screamed in unbelievable pain, my adams apple feeling like it just came out of
 
 *(BANG!)*
 
-The bear collapsed on top of me, a large hole through its body. I couldn’t move, and felt the bear being taken off of me. My vision was blurry, threatening to make me pass out, and I noticed a shade of pink through my cracked eyes. It was the man I’d seen on the trail earlier, with a double-barrel shotgun sitting prominently in his clasped hand. He kneel down, waving a hand in my face.
+The bear collapsed on top of me, a large hole through its body. I couldn’t move, and felt the bear being taken off of me. My vision was blurry, threatening to make me pass out, and I noticed a shade of pink through my cracked eyes. It was the man I’d seen on the trail earlier, with a double-barrel shotgun sitting prominently in his clasped hand. He kneeled down, waving a hand in my face.
 
 That’s when I passed out.
 
