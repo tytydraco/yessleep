@@ -62,7 +62,7 @@ Which, I’m breaking by posting this here. I honestly couldn’t give a damn at
 
 Listen. I’m posting this, both to finally share what happened to them. To me. And to give you a warning. Especially to scuba divers and other researchers. You need to stay away from the wreck of the *Andrea Doria*. Everyone does. It’s not safe. Let it rust and rot away until it’s nothing more than a pile of metal lying on the seabed. And even then, stay far away. Because the ship…still has occupants. And I think that the divers who have lost their lives over the years, didn’t just drown in the nets or get lost inside. Not all of them, at least.
 
-Why do I think that? Because of what I saw out of that porthole, pressed up against the glass. Something which was worse than any sea monster I could have seen, what always wakes me up at night, screaming and covered in sweat.
+Why do I think that? Because of what I saw out of that porthole, pressed up against the glass. Something which was worse than any sea monster I could have seen. Something that causes me to constantly wake up screaming in the middle of the night.
 
 I saw a hand.
 
