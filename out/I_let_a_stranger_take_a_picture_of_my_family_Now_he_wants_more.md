@@ -98,7 +98,7 @@ We left the mall together out of embarrassment.
 
 “You have to calm down,” Emma chided. “Seriously. You’re scaring the kids.”
 
-The wall back to the car was awkward. She was right. I never wanted to be the type of parent (or person) who lost his temper in public. Joey didn’t seem to care but Sofia wouldn’t look at me. I tried to cheer her up with dad jokes and promises to play with all the cool stuff at the hotel. But she wouldn’t budge. The poor kid just wanted to go home. I kept telling her we couldn’t. 
+The walk back to the car was awkward. She was right. I never wanted to be the type of parent (or person) who lost his temper in public. Joey didn’t seem to care but Sofia wouldn’t look at me. I tried to cheer her up with dad jokes and promises to play with all the cool stuff at the hotel. But she wouldn’t budge. The poor kid just wanted to go home. I kept telling her we couldn’t. 
 
 I was distracted. 
 
@@ -172,8 +172,8 @@ I hit the gas. The truck followed. I changed lanes. The truck followed. The next
 
 They rammed us. 
 
-NOT the other way around.
+The car flipped three times with my family inside. And even through all of the blood, chaos, and screaming... 
 
-The car flipped three times with my family inside. We landed somewhere on the side of the road. Even through all of the blood, chaos, and screaming, I could still see them taking pictures before the ambulances arrived.
+I could still see them taking pictures before the ambulances arrived.
 
 [Part three.](https://www.reddit.com/r/nosleep/comments/129k9fa/i_let_a_stranger_take_a_picture_of_me/)

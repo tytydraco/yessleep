@@ -1,10 +1,10 @@
 This story is about an innocent mistake that most people make. The names are all different but the details are the same. I know not everyone has the time to read it to the end. That’s fine. The key takeaway is simple. Never, ever let a stranger borrow your phone to take a picture. Just don’t fucking do it. Please. You’ll soon see why. 
 
-My little family of four woke up early one morning to go to the beach. My daughter and I had this running bet. Every time she slept in her own bed, she got a surprise, you know, a reward for being good. The first night it was ice cream, then a donut, then a toy. I was running out of incentives because she kept fulfilling her end of the deal. So being that it was the weekend, and the weather was nice, I thought it would be cool to get some sun in before the tourists arrived for the holiday.
+My little family of four woke up early one morning to go to the beach. My daughter and I had this running bet. Every time she slept in her own bed, she got a reward, you know, a gift for being good. The first night it was ice cream, then a donut, then a toy. I was running out of incentives because she kept fulfilling her end of the deal. So being that it was the weekend, and the weather was nice, I thought it would be cool to get some sun in before the tourists arrived for the holiday.
 
 Our plan worked like a charm. We got to the sand and pitched a tent in a quiet spot away from commotion. The waves lapped aimlessly against the shore. The water was crystal clear. Sofia built sand castles with pink plastic buckets and Joey gave the seagulls his best t-rex impression. The memory of Emma stretched out in a two-piece is burned so hot it’s like it’s branded. I loved those trips if for nothing else than to stare beneath the cover of my long sleeve SPF-shit swim shirt. I felt about as lucky as any other man in the world. Life was good. 
 
-We stayed there a little while. I thumbed through a book. Em scanned her phone. The kids joined forces to build a moat which kept (some of) the tide away. Eventually, foot traffic picked up along with the opening of a couple shops on the boardwalk. We got ready to leave. I knelt down go corral the toys when an unfamiliar voice called out - 
+We stayed there a little while. I thumbed through a book. Em scanned her phone. The kids joined forces to build a moat which kept (some of) the tide away. Eventually, foot traffic picked up along with the opening of a couple shops on the boardwalk. We got ready to leave. I knelt down to corral the toys when an unfamiliar voice called out - 
 
 “You have a beautiful family,” he exclaimed. “Truly. So blessed.”
 
@@ -18,7 +18,7 @@ We sat there a bit in awkward silence. He smiled. We smiled. He was older, maybe
 
 Emma’s ears perked at the suggestion. 
 
-“Oh yeah, you know Matt, we really haven’t had a good one in ages.”
+“Oh yeah, you know, we really haven’t had a good one in ages.”
 
 I hung my head in solemn agreement. 
 
@@ -26,7 +26,7 @@ I hung my head in solemn agreement.
 
 She groaned.
 
-“My cell’s dead. Can you use yours?”
+“My cell’s dead. Can you use yours, Matt?”
 
 I rummaged through my bag and handed it over. The man quickly gave it back.
 
@@ -76,7 +76,7 @@ Emma rolled her eyes.
 
 I wanted to press the topic. I hated the idea that someone could have access to my phone. I think anyone would. But it was late, and she was skeptical, and we only had minutes to talk before someone wanted a bottle or a juice or a snack or an episode of their favorite show. I pushed it to ‘Matt's future queue’ and fell back into routine. 
 
-The storm brought both kids into our bed sometime around midnight. I woke up to find my daughter climbing over my already snoring son. Sofia snuggled up beside me as rain pattered against the windowsill. I couldn’t say no. The kid had cuteness on her side and she hated bad weather. At least I wouldn’t need another surprise. I held her tight, and just as sleep seemed like it might be a possibility, the doorbell rang. 
+The storm brought both kids into our bed sometime around midnight. I woke up to Sofia climbing over Joey. She snuggled up beside me as rain pattered against the windowsill. I couldn’t say send her back. She hated the cracking sound of thunder. I held her tight, and just as sleep seemed like it might be a possibility, the doorbell rang. 
 
 My heart skipped a beat. 
 
