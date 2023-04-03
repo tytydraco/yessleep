@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/124xmc7/ive_gone_deep_into_the_rainforests_of_borneo/)
+[Part 1](https://www.reddit.com/r/squishycabbage/comments/12aggjw/ive_gone_deep_into_the_rainforests_of_borneo/)
 
 \-  
 
