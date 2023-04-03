@@ -1,6 +1,8 @@
-In [my first post](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/), I revealed the extraordinary demands of my position — keeping a close eye on terrifying things that wish to destroy humanity. In [my second post](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/), I explained that my boss seems to be *actively* working towards ending mankind.
+[Part I](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/) - [Part II](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/) - **Part III**
 
-There was something that I avoided for two years: Harper Andrews. The woman who could provide answers to all of my questions. Yesterday afternoon, I visited her at the local psychiatric ward.
+Harper Andrews.
+
+The woman who could provide answers to all of my questions. Yesterday afternoon, I visited her at the local psychiatric ward.
 
 “I know why you’re here,” Harper said.
 

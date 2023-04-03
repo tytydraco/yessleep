@@ -6,7 +6,7 @@ Plausible deniability is the mantra around here.
 
 I was recruited out of college after graduating with both psychology and a computer coding degrees. The dual majors made me attractive to the dark-colored-suit wearing types with American flag pins on their lapels. 
 
-Lots of folks with those two degrees ended up working at this agency, there are about a fifty of us here.
+Lots of folks with those two degrees ended up working at this agency, there are about a fifty of us in total.
 
 In the 1960s, before I got here, my group was at the forefront of word suggestions to trigger “sleeper agents” in becoming assassins. By using an immersive hypnotic state and mind-altering drugs, my agency was able to create a number of killers. Each set into motion by reading or hearing a series of words strung together in a phrase or sentence. 
 

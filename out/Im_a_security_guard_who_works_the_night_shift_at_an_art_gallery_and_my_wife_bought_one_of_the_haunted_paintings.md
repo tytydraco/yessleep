@@ -1,4 +1,6 @@
-For those of you who missed [the first post](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/), my night shifts as an art gallery’s security guard are more horrifying than anything a person should endure. My job isn’t to protect the paintings — it’s to protect humanity *from* the paintings.
+[Part I](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/) - **Part II** - [Part III](https://www.reddit.com/r/nosleep/comments/12a7tq1/im_a_security_guard_who_works_the_night_shift_at/)
+
+For those of you who missed the first post, my night shifts as an art gallery’s security guard are more horrifying than anything a person should endure. My job isn’t to protect the paintings — it’s to protect humanity *from* the paintings.
 
 Each canvas is a paranormal cell. The artist, Harper Andrews, even contained a terrifying interpretation of her younger self in a portrait as a safeguard. That faceless child isn’t even the worst thing in there. There are paintings of mankind’s doom. Hellfire. Armageddon.
 

@@ -104,7 +104,7 @@ I frowned, “So, she was killed by someone?”
 
 I let out a short laugh and then enquired: “What?!”
 
-Jane chuckled as well, “I know: exploded! Cats don’t simultaneously explode, do they?! I don’t really believe that. Who is to say how she died? I don’t know where that rumour came from.”
+Jane chuckled as well, “I know: exploded! Cats don’t spontaneously explode, do they?! I don’t really believe that. Who is to say how she died? I don’t know where that rumour came from.”
 
 “It sure sounds way too steep to me.”
 

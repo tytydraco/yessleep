@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/) - [Part III](https://www.reddit.com/r/nosleep/comments/12a7tq1/im_a_security_guard_who_works_the_night_shift_at/)
+
 “I want the job,” I said.
 
 It was two years ago, but I can vividly recall every aspect of that interview. The innocence of those four words. The stillness of the gallery. My befuddled reaction to Amy Andrews — the gallery owner whose questions unsettled me. Her composure never waned.
