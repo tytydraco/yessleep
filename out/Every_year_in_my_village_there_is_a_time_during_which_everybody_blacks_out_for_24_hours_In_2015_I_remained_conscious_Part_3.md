@@ -100,3 +100,5 @@ She then quickly put the diary and the watch in her backpack and handed it to me
 Edlynn then turned to the door, hypnotized by an unknown power and walked out of the bathroom, still repeating the same words. I followed her closely, even though she no longer paid any attention to me. Downstairs, I found Nadia or Mrs Robinson if you want walking towards the house entrance door with red glowing eyes too, and also saying the same words over and over again. She broke the door with only one punch and they both exited the house.
 
 When I followed them outside, I found many others in the same condition, ignoring me and walking towards the square from which the sounds of drums came from. Their slow and little steps drew them closer to Redeye, the one behind it all, my nemesis.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/12a9mfo/every_year_in_my_village_there_is_a_time_during/)
