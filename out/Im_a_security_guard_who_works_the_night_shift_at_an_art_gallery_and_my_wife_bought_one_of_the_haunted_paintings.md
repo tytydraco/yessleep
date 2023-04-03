@@ -194,4 +194,6 @@ Something’s wrong with her. Perhaps I should speak to the one person who could
 
 I think I need to visit the local psychiatric ward.
 
+[Update - Part III](https://www.reddit.com/r/nosleep/comments/12a7tq1/im_a_security_guard_who_works_the_night_shift_at/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
 [X](https://www.reddit.com/r/dominiceagle)

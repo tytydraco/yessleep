@@ -24,7 +24,7 @@ She insisted on sleeping in the same room, and declined to take the bed, instead
 
 That night, I struggled to fall asleep. I was used to my privacy, and didn’t know what to do about having someone lying there on the floor. I closed my eyes and tried to sleep, but I couldn’t help hearing Cynthia’s muffled sobs beneath the blanket. My heart went out to her. Whatever she was going through, it must be bad. 
 
-I think I fell asleep around 2am, but I didn’t sleep well. I startled away some time in the night, and lay there in fear for a second, hearing the sound of someone else being in the same room as I was, before I remembered that Cynthia was there. 
+I think I fell asleep around 2am, but I didn’t sleep well. I startled awake some time in the night, and lay there in fear for a second, hearing the sound of someone else being in the same room as I was, before I remembered that Cynthia was there. 
 
 As I let out a quiet sigh of relief, I heard her mumbling, an urgent, desperate whisper that tore at the silence, soft though it was. 
 
