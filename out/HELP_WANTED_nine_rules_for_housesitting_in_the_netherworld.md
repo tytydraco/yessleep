@@ -72,7 +72,7 @@ But even after I made her swear to follow all the rules, I knew I was making a m
 
 “Because you—”
 
-“—talk to much,” we finished at the same time. “Jinx,” she added lightly, strapping on the mask. “How do I look, Mr. Magpie?”
+“—talk too much,” we finished at the same time. “Jinx,” she added lightly, strapping on the mask. “How do I look, Mr. Magpie?”
 
 Looks were irrelevant; the point of the mask was compliance with rule 4. Elena blew a raspberry when I told her this, and instead of following me up to the sitter’s quarters, she insisted on touring the mansion first. I had no choice but to follow—otherwise she’d have opened doors without knocking (rule 2).
 
@@ -280,7 +280,7 @@ A clear figure stepped towards us from out of the pantry. He was so much more te
 
 In the split second it took to look at that photo, something bumped the table.
 
-I shoved Elena behind me. “Go, go!” 
+I shoved Elena behind me. “Go, go!”
 
 Even as she ran, the ominous warning in the caretaker’s journal came to me: *There is no escaping the skinless man…* I doubted grabbing a mask from the cloakroom would be enough now. I had to get her off the estate grounds. But the squeak of the cellar door behind me brought my head whipping round. Elena gasped at something I couldn’t see down in the cellar’s depths. She *hadn’t knocked.*
 
@@ -294,9 +294,9 @@ As the weight lifted, Elena snatched a knife from the rack and took a step forwa
 
 **The Bone Closet**
 
-I’m not sure how much later it was that I woke, gasping, and pushed myself up from the watery murk in which I found myself, a shallow pool of putrescence more viscous than water. It felt like I had tumbled straight into the worst fears of childhood, deep into the closet with its nightmare monsters—only there was nothing dreamlike about the *stench* of the place. Instinct—adrenaline—took over. I did not think of Elena. I did not think of the rules we had broken or the sheer impossibility of everything we’d witnessed in the past hours. I did not think of anything. Sam Miller had shut down, and the only operating system was a primal instinct with only one goal: 
+I’m not sure how much later it was that I woke, gasping, and pushed myself up from the watery murk in which I found myself, a shallow pool of putrescence more viscous than water. It felt like I had tumbled straight into the worst fears of childhood, deep into the closet with its nightmare monsters—only there was nothing dreamlike about the *stench* of the place. Instinct—adrenaline—took over. I did not think of Elena. I did not think of the rules we had broken or the sheer impossibility of everything we’d witnessed in the past hours. I did not think of anything. Sam Miller had shut down, and the only operating system was a primal instinct with only one goal:
 
-*Escape the dark.* 
+*Escape the dark.*
 
 My hands fumbled for my phone, but it was gone—lost in the wet and slick. My fingers groped the walls. Down here, they were ribbed, ridged… *bone* flashed through my head. Walls constructed of bone. There was no light at all—
 
@@ -394,13 +394,13 @@ His hands trembled as he lifted the small box, picked up the lid, and read the w
 
 A small sound came from the back of his throat.
 
-“What happens when you break rule seven?” I wondered. “You never told me about the first and third deliveries.” 
+“What happens when you break rule seven?” I wondered. “You never told me about the first and third deliveries.”
 
 “Thank God it was the first…” Finally Pim exhaled. “The first collection is faces, the third is souls.” Then his magpie mask turned toward me. “I’m afraid the cost is exactly what it sounds like.”
 
 “Guess you’d better pay it then.” I thought of the first caretaker’s disfigured face in the photo. “Seems like a trend among caretakers.”
 
-“Normally, the person who answers the delivery pays the price.” Pim dropped the box and reached into his coat, withdrawing a syringe from an inner pocket. Through the raven mask, his eyes on me were cold. “… But since your sister has already been taken, the debt falls to her *next of kin*.”
+“Normally, the person who answers the delivery pays the price.” Pim dropped the box and reached into his coat, withdrawing a syringe from an inner pocket. Through the magpie mask, his eyes on me were cold. “… But since your sister has already been taken, the debt falls to her *next of kin*.”
 
 I inched further out the door. We were similar in stature, but I had the advantage of youth and vitality. If I sprinted, I was certain I could outrun him. Though when I thought of the ease with which he’d lifted me out of the bone closet, I wondered if he wasn’t much stronger and quicker than he appeared. But then he aimed the point of the syringe at his own aging flesh under the mask and said, dryly, “Don’t think I’m sparing you. I’m really not.” To my shock, he injected himself. Then he slid a knife from somewhere in his sleeve (did he always carry a knife? And other implements?), and he slid it beneath his mask and into his own skin—
 
@@ -412,17 +412,17 @@ I ran. God help me, I ran, and left that madman cutting off his own face—hurtl
 
 I pelted downhill on that bright, ordinary, beautiful street! The fresh scents of recent rain and spring flowers perfumed the air as I scampered past the gardens of the nearby Victorian houses. I raced all the way down to the bus stop, realizing only as I got to the bottom of the hill that without my wallet, I had no way to pay…
 
-… but it did not matter. 
+… but it did not matter.
 
 Confused, I tilted my head. This was the same spot where I had stepped off and gotten onto the bus every day since more than a week ago when I’d first started this job, but there was no bus stop post. I snatched off my magpie mask, panting and out of breath. Peered up the cobblestone street. Cobblestone! Not asphalt!
 
 The only passersby were men in suits much like Pim’s, and women in flowing skirts and wearing enormous hats. A woman pushed a baby-carriage that would not have been out of place in a sepia photograph from the early 1900s. I won’t belabor the point. I’d skipped rule six—setting the grandfather clock to the right time. I could now guess the consequences of that rule, though I spent the better part of the afternoon wandering around, my brain refusing to accept the evidence of the world around me, where I saw as many horses and carriages as automobiles.
 
-It was dark by the time I ascended the driveway back to Kilgore Court. Looming at the crown of the hill, the house was brightly lit, warm with a crowd of people laughing and moving through the garden beyond. Some sort of dinner party. You’d never know the place was haunted. When I rang the bell, the door was answered by a man I recognized immediately by his hulking frame, and I wondered if his face beneath the mask was disfigured yet. 
+It was dark by the time I ascended the driveway back to Kilgore Court. Looming at the crown of the hill, the house was brightly lit, warm with a crowd of people laughing and moving through the garden beyond. Some sort of dinner party. You’d never know the place was haunted. When I rang the bell, the door was answered by a man I recognized immediately by his hulking frame, and I wondered if his face beneath the mask was disfigured yet.
 
 “And who are you, Sir?” the original caretaker demanded, looking me up and down with distaste.
 
-I had been about to introduce myself as Sam Miller and plead—no, *beg* for him to set the grandfather clock to send me back to my own time. But something clicked in my mind as he spoke. Because you see, I gazed beyond him to the vast entrance hall in all its glory, dozens of people in furs and fancy coats, masked and laughing and joking in a masquerade party, all utterly unawares of the unholy ground on which they were standing. And I *knew* that even if I were to travel back through time and drag the authorities into the house, they would find no trace of my sister. The chimes would mask everything. I had been allowed a glimpse beyond the veil only because I’d played the role of the sitter; but to the rest of the world, it was a mad, ludicrous story. One I would eventually chronicle in my notebooks, inked meticulously by hand because I had left my laptop back in 2023—a laptop that, years in the future, I would use to finally complete this account following the handwritten notes from my youth. But at the time, I knew only that even if I could convince him to wind the clock forward—who would ever believe me? Me, Sam Miller, an unsocial, unemployed misfit with no friends or acquaintances, still living in his parents’ basement? 
+I had been about to introduce myself as Sam Miller and plead—no, *beg* for him to set the grandfather clock to send me back to my own time. But something clicked in my mind as he spoke. Because you see, I gazed beyond him to the vast entrance hall in all its glory, dozens of people in furs and fancy coats, masked and laughing and joking in a masquerade party, all utterly unawares of the unholy ground on which they were standing. And I *knew* that even if I were to travel back through time and drag the authorities into the house, they would find no trace of my sister. The chimes would mask everything. I had been allowed a glimpse beyond the veil only because I’d played the role of the sitter; but to the rest of the world, it was a mad, ludicrous story. One I would eventually chronicle in my notebooks, inked meticulously by hand because I had left my laptop back in 2023—a laptop that, years in the future, I would use to finally complete this account following the handwritten notes from my youth. But at the time, I knew only that even if I could convince him to wind the clock forward—who would ever believe me? Me, Sam Miller, an unsocial, unemployed misfit with no friends or acquaintances, still living in his parents’ basement?
 
 The caretaker leaned down toward me. He had noticed the mask under my arm.
 

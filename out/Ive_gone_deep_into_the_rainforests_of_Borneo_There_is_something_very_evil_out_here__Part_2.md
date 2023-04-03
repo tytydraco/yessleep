@@ -153,3 +153,5 @@ I wish I’d managed a better look at it.
 A better look at her.
 
 A better look at the woman with the long black hair and the [pale face.](https://www.reddit.com/r/squishycabbage/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/12akx2q/ive_gone_deep_into_the_rainforests_of_borneo/)

@@ -1,17 +1,67 @@
-It's a foggy Friday evening as I'm walking home and as always, I'm taking the shortcut road through the forest. As I walk the road that I stepped through so many times in my life, I see something strange, I know the forest is empty apart from the trees and the occasional deer I spot, but I swear I see a faint black outline of a house far away through the fog.  I rubbed my eyes in disbelief, it can't be, I know this forest since I was a kid and no one ever lived here, they couldn't just build a house in one day, could they? 
+It was a foggy Friday evening, and as usual, I took the shortcut road through the forest to get home. The path was familiar to me, having walked it many times before, and I never expected to see anything out of the ordinary. But as I trudged through the mist, a strange sight caught my eye. Far in the distance, beyond the trees and the occasional deer, I glimpsed the faint outline of a house.
 
 &#x200B;
 
-The curiosity gets the better of me so I step away from the road and walk towards the house. The weird thing is, it seems like I don't get closer to it and the more I walk in its direction, the more dense the mist is getting, it felt like I'm walking for an hour, or was it just a few minutes, the fog is getting so dense that the trees are disappearing and I can barely see my hands in front of my face and I'm left in a grey void, yet the black outline remains as visible as at the beginning, and I'm finally feeling like it's getting closer.
+I rubbed my eyes in disbelief. There was no way anyone could have built a house in this forest without my knowledge. Yet the outline remained, drawing me in with an irresistible curiosity. Against my better judgment, I stepped away from the road and headed towards the mysterious dwelling.
 
 &#x200B;
 
-I kept walking in a straight line for all this time through this unreal fog yet I never stumped into anything, not even a bush, it feels like there's nothing in here, but just as I'm about to despair I notice something strange, I start seeing tons of small little lights all around through the fog and just as they get as bright as they can, I suddenly step out of the fog like I exited a cloud.
+As I approached, I realized something was amiss. No matter how far I walked, the house never seemed to get any closer. Instead, the fog grew thicker, obscuring my vision until I could barely see my own hand in front of my face. The trees disappeared, and I was left alone in a gray void.
 
 &#x200B;
 
-In front of me there is a very strange house, the eerie house was unlike anything I had ever seen before, it  looks both ancient and futuristic, made out of wood the blackest metal I've ever seen on the edges, but that's not the weirdest part, what I'm sitting on is just a small perfectly circular platform, and all those starts that I saw in front of me, are also below me, there is nothing else here apart from the platform and the house resting on it and all the starts as above so below, like I'm sitting at the edge of the earth and peeking at a crystal clear sky filled with stars and far away galaxies and star dust forming in strange shapes. 
+Just when I thought I had lost my way completely, I spotted something strange. Tiny lights flickered all around me, like stars on the ground. As they grew brighter, I suddenly stepped out of the fog and found myself standing on a small circular platform. The stars were all around me, above and below, and there was nothing else in sight but the platform and the eerie house perched upon it.
 
 &#x200B;
 
-What is this place? How did I get here? Who lives here? Did I drink too much? And what secrets did this bizarre house hold?  So many questions are racing through my mind as I get closer to its wooden structure that was bordered by the blackest metal I had ever laid eyes on and see colorful lights flashing through its windows but just as I get to the black door scribbled with strange yet perfectly shaped symbols, it slides to the side, welcoming me inside...
+The house was unlike anything I had ever seen before. Its wooden structure was bordered by the blackest metal I had ever laid eyes on, and it seemed to emanate an ancient, otherworldly energy. I approached the black door, which was covered in strange symbols, and to my surprise, it slid open, inviting me inside.
+
+&#x200B;
+
+Who lived in this place? How had I gotten here? And what secrets did this bizarre house hold? I didn't know, but I couldn't wait to find out.
+
+ 
+
+As I stepped into the house, the door slid shut behind me, cutting me off from the outside world. The house had a surreal, dreamlike quality. I wandered through the first room, trying to make sense of what I was seeing. The walls were covered in symbols and images that I didn't recognize, and the air had an unusual metallic scent. Suddenly, I heard a voice behind me.
+
+&#x200B;
+
+"Welcome, traveler. I have been expecting you."
+
+&#x200B;
+
+I turned around, but no one was there. I wondered if I was hallucinating or if the voice was just a product of my imagination. But then, a figure materialized out of thin air. It was a woman, tall and slender, with long, flowing hair and piercing blue eyes. She was dressed in a flowing white gown and seemed to glow in the dim light.
+
+&#x200B;
+
+"Who are you?" I asked, my heart racing.
+
+"I am the guardian of this house," she replied. "And you, traveler, are a guest."
+
+&#x200B;
+
+She motioned for me to follow her, and I did, feeling both fascinated and afraid. She led me through a maze of rooms, each more bizarre than the last. Some contained machines that looked like they belonged in a science-fiction movie, while others held vials of strange liquids and powders. At one point, I stumbled upon a room that seemed to contain a miniature sun, radiating intense heat and light.
+
+&#x200B;
+
+As we continued to explore the house, the woman told me stories of its history and the people who had lived there before. Some were scientists and explorers, searching for knowledge beyond the limits of human understanding. Others were artists and philosophers, seeking inspiration from the strange and beautiful world around them. But all of them shared a common bond: a love of discovery and a thirst for the unknown.
+
+&#x200B;
+
+As we approached the end of our tour, the woman turned to me and said, "You are one of us now. You have seen the mysteries of this house and the secrets it holds. Will you keep them to yourself or share them with the world?"
+
+&#x200B;
+
+I thought about it for a moment, feeling the weight of the decision. Finally, I replied, "I will keep them to myself, for now. But I will never forget what I have seen here, and I will always be grateful for the experience."
+
+&#x200B;
+
+The woman smiled and led me back to the entrance. As the door slid open, she handed me a small crystal, glowing with an inner light.
+
+&#x200B;
+
+"Take this with you," she said. "It will guide you on your journey, and remind you of the wonders that exist beyond the boundaries of our world."
+
+&#x200B;
+
+I thanked her and stepped out into the misty forest, feeling changed and transformed by my encounter with the strange house and its mysterious inhabitants. As I walked back towards civilization, I felt the crystal pulsing in my pocket, and I knew that I would never forget the House in the Mist.
