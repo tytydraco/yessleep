@@ -18,7 +18,7 @@ We lived life inside a bubble.
 
 Nobody in, nobody out. 
 
-Our home-base was the hospital. Emma’s routines became the structure. The doctors gave status in the morning before the kids went off to school at nine. I worked off the crappy Wi-Fi while nurses changed bandages and prepared my wife for another day of dancing with the devil. A new normal developed overtime that both disgusted and comforted me at the same time. 
+Our home-base was the hospital. Emma’s routines became the structure. The doctors gave status in the morning before the kids went off to school at nine. I worked off the crappy Wi-Fi while nurses changed bandages and prepared my wife for another day of dancing with the devil. A new normal developed that both disgusted and comforted me at the same time. 
 
 I tried to look at the light at the end of the tunnel. The news improved day-by-day. One scan showed increased activity. Another indicated a dramatic reduction in swelling. After weeks of hell, one hot night, the chief surgeon actually told us to keep our phones on high-volume before bed.
 
@@ -30,9 +30,11 @@ I fell asleep with thoughts of the landscaping back home. I knew Em would give m
 
 I woke up to a picture message. 
 
-The time on my phone said two. Rain pattered the windows. Thunder shook the cabinets. I looked around and realized I was alone. My father had a habit of setting things right at night. 
+The time on my phone said two. Rain pattered the windows. Thunder shook the cabinets. I looked around and realized I was alone. 
 
-I opened up the text. Emma laid serenely in her white hospital gown. Her makeup was done. Her eyes were closed. A hand held hers tight. Another message pinged back immediately after that one.
+I opened up the text. 
+
+Emma laid serenely in her white hospital gown. Her makeup was done. Her eyes were closed. A hand held hers tight. Another message pinged back immediately after that one.
 
 Her eyes were open. 
 

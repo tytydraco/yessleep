@@ -172,7 +172,11 @@ I hit the gas. The truck followed. I changed lanes. The truck followed. The next
 
 They rammed us. 
 
-The car flipped three times with my family inside. And even through all of the blood, chaos, and screaming... 
+Gravity suspended.
+
+The car flipped three times with my family inside. 
+
+And even through all of the blood, chaos, and screaming... 
 
 I could still see them taking pictures before the ambulances arrived.
 
