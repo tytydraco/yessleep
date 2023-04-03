@@ -2,15 +2,15 @@
 
 Ah Jesus, alright, this is the damn story. First thing you need to understand is how much I love my girl, Emberlyn. End of the world and back dawg, no two, three, or even four ways about it. She’s 5’1” and 313 pounds of pure sex and uncut temptation. She’s hardier than the damn Hardy Boys and can nearly take me in a wrestling match (even though I’m a pretty big fella myself). I respect the shit out of that. Mix loin-pounding lust and heartfelt respect like that, you got the world’s crunkest cocktail brother, one swallow and there’s no way you’ll ever see straight again. Listen, she’s got these big green eyes and when she turns those lights on me, I know there’s nothing I wouldn’t do for her. It ain’t just her beauty or her strength, though. You might be surprised to hear this coming from a proud country boy like myself, but I happen to think the world’s full of powerful, gorgeous-ass bitches. Being one of them is only the start of what makes my Ember so special.
 
-Firstwise, she’s always looking out for me. When my stomach’s acting up from too many filet of fish combos or from the stress of my career and I’m glued to the shitter, she’s always there rubbing my big pale basketball belly with one hand and, what’s that she’s holding, oh yeah it’s a fresh liter of Mountain Dew to settle me. When I’m rolling coal out of the N-Mart parking lot, she’s riding shotgun with a “HELL YEAH BABY” on her luscious lips as the big black cloud belches out of the diesel engine of my daddy’s truck. During those dark days when I just couldn’t stop accidentally drinking out of my dip-spit bottle, she’s the one who went out and bought me a proper mud jug.  I made sure to get her one of her own for her birthday, which seemed fair cuz I’m the one who got her hooked on them extra-long cut naturals in the first place. My point is, she’s got my back. I got hers. Don’t you think that’s the way love ought to be?
+Firstwise, she’s always looking out for me. When my stomach’s acting up from too many filet of fish combos or from the stress of my career and I’m glued to the shitter, she’s always there rubbing my big pale basketball belly with one hand and, what’s that she’s holding, oh yeah it’s a fresh liter of Mountain Dew to settle me. When I’m rolling coal out of the N-Mart parking lot, she’s riding shotgun with a “HELL YEAH BABY” on her luscious lips as the big black cloud belches out of the diesel engine of my daddy’s truck. During those dark days when I just couldn’t stop accidentally drinking out of my dip-spit bottle, she’s the one who went out and bought me a proper mud jug.  I made sure to get her one of her own for her birthday, which was only fair cuz I’m the one who got her hooked on them extra-long cut naturals in the first place. My point is, she’s got my back. I got hers. Don’t you think that’s the way love ought to be?
 
-If there’s one thing I’m all about it’s loyalty, the real kind, so it’s normal for me to have my girl on my mind pretty much 24/7 (I’m even loyal in my dreams, dawg) but over the last few months, I got this kind of, what’s the word? Obsession? Fixation? I was fixed, alright. I just couldn’t stop thinking about what was happening behind Emberlyn’s ears. 
+If there’s one thing I’m all about it’s loyalty, the real kind, so it’s normal for me to have my girl on my mind pretty much 24/7 (I’m even loyal in my dreams, dawg) but over the last few months, I got this kind of, what’s the word? Obsession? Fixation? I was fixed, alright. I just couldn’t stop thinking about what was happening behind Emberlyn’s ears.
 
 She’d started taking extra shifts as a fry cook on account of how my moms’ monthly checks couldn’t cover all three of us and my career’s only just started getting off the ground. She’d spent hours hunkered over the deep fryer, the grease in the kitchen air getting trapped real good behind her lobes. She’d started to develop these huge, juicy pockets of cystic acne back there. They hurt her when they’d swell up, but she couldn’t see proper to drain them her own self, even holding her compact mirror up to the one in the bathroom to get the right angle. So she turned to me.
 
 “Baby,” she said to me one day. She was cleaning the wax out of her right ear, a Q-tip stuck most of the way in. “I need your help baaaad.”
 
-“Oh yeah?” I smiled. Usually when she makes her voice go all high and silky like that, it means there’s a good chance I might get some of that good guck-guck. 
+“Oh yeah?” I smiled. Usually when she makes her voice go all high and silky like that, it means there’s a good chance I might get some of that good guck-guck.
 
 She fished the Q-tip out of her canal and handed it to me, coated in thick layers of yellow and green. I popped it in my mouth, my grin growing wider. There ain’t no part of this girl that ain’t heaven for me.
 
@@ -36,7 +36,7 @@ I saw her lip curl happily.
 
 She grabbed my wrist like I was a greedy little boy and brought my hand to her face. Sitting on top of my finger was a damn anaconda of red and white debris. She gave it a good long sniff. Both of us thought we knew all the funky stinks the other’s body could make, but this was a new one. I loved her so much right then and felt her love in return, the both of us realizing we could still surprise each other.
 
-It was a dragon I kept chasing. All day long, when she was at work and I was running errands, shopping, get the materials to support my career, it was in the back of my mind. On the weekends, when my buddies and I were riding our ATVs and shooting footage for our country rap music videos, all I’d be thinking about was getting behind her ears. My boys noticed I was distracted, on account of me not remembering to bring my daddy’s old .45 to use as a prop. I tried to explain but there aren’t really words for this kind of thing, at least not ones that’d bridge the divide, so to speak. I just couldn’t make my mind open its jaws and chew on something else.
+It was a dragon I kept chasing. All day long, when she was at work and I was running errands, shopping, getting the materials to support my career, it was in the back of my mind. On the weekends, when my buddies and I were riding our ATVs and shooting footage for our country rap music videos, all I’d be thinking about was getting behind her ears. My boys noticed I was distracted, on account of me not remembering to bring my daddy’s old .45 to use as a prop. I tried to explain but there aren’t really words for this kind of thing, at least not ones that’d bridge the divide, so to speak. I just couldn’t make my mind open its jaws and chew on something else.
 
 At night, when Emberlyn would come through the door of the little house we share with my moms, I’d basically bum-rush her into the bathroom to get behind her ears. At first she was just as eager as me. I’d get the little blackhead bullets out, some minor eruptions of stinky paste, but there was never a pop to match that first one and every try I made to get that feeling back just seemed to push it away. I’d pinch too hard and tear her skin. My fingers would be too greasy from dinner (extra fish filets she lifted from work) and they’d slide around, making the problem worse. After weeks of this, I was trying even my sweet girl’s patience to its limit.
 
@@ -66,7 +66,7 @@ What I needed was a distraction. I decided to spend the next couple of weeks foc
 
 I would’ve never known about them, or even dreamed such a thing could exist, until Emberlyn showed me. She thought I might be good at it. She even splurged and bought me one of them light rings so that none of my viewers would have to strain to see the food going into my mouth. With my baby’s love lifting me up, I know there’s no way I can fail. The only real challenge is the budget for food. I need to eat A LOT if I’m going to catch up with the big content creators. So we’ve been bulk ordering ramen from the N-Mart. I cook it on camera, mixing in soy sauce or hot sauce or ketchup to show off my skills as one of them fancy type of food making guys. Some of the commentators say watching me prepare the noodles is almost as fun as watching me eat the noodles.
 
-Sometimes I’ll choke down two dozen packets of the stuff in one session. Go big or go home, Ember’s always reminding me. It ain’t always easy, and I pay for it later in all kinds of ways, but you gotta make sacrifices if you want a better life. The sloppier I eat and the more I eat, the more viewers I get. I slurp, slurp, slurp the noodles down, spattering spiced ramen-water all over my face, sometimes all over Ember when she leans into frame (my viewers love it when she “guest stars” in my videos, always commenting about what a fine-ass piece of tail I bagged for myself, and I don’t blame them, no one’s more lovable than my baby). Once I even splattered the camera lens with a greasy spray of noodle chunks and that was a big hit. 
+Sometimes I’ll choke down two dozen packets of the stuff in one session. Go big or go home, Ember’s always reminding me. It ain’t always easy, and I pay for it later in all kinds of ways, but you gotta make sacrifices if you want a better life. The sloppier I eat and the more I eat, the more viewers I get. I slurp, slurp, slurp the noodles down, spattering spiced ramen-water all over my face, sometimes all over Ember when she leans into frame (my viewers love it when she “guest stars” in my videos, always commenting about what a fine-ass piece of tail I bagged for myself, and I don’t blame them, no one’s more lovable than my baby). Once I even splattered the camera lens with a greasy spray of noodle chunks and that was a big hit.
 
 But nothing made my view-count jump more than that time I puked mid-feast. It wasn’t no dainty spit-up neither, but a full throated blast of stringy mostly undigested ramen bits, and I got all of it on video. What really sold it, though, was that I wiped off my mouth and just kept eating. You could see the pile of puke in the background for the rest of the video. The response I got from that, not just from my fans but from Emberlyn, was what finally sold me, in my heart, on this being my calling.
 
@@ -164,7 +164,7 @@ As I squeezed, I could feel something extra chunky working its way to the surfac
 
 **keep going keep going keep going**
 
-**i dont beleev my eyes u r a lier + a bastard + everything wrong with amerika** 
+**i dont beleev my eyes u r a lier + a bastard + everything wrong with amerika**
 
 **DON’T STOP FATTY DON’T STOP TIL SHES INSIDE OUT**
 
@@ -180,7 +180,7 @@ The truth was that I didn’t want to stop either. I kept squeezing. A fleshy bu
 
 **We r so lucky to see this its rly once in a lifetime**
 
-**now THIS is CULTURE** 
+**now THIS is CULTURE**
 
 **This is like sumthing out of hell itself. a sign that Revelations are at hand. Please embrace His Word and His Love b4 its 2 late! Behold the LAMB of GOD, JOHN 1:29**
 
