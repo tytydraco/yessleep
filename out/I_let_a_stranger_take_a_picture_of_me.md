@@ -94,14 +94,22 @@ I lost control of the soda bottle.
 
 I don’t remember stopping. I don’t even remember blinking. This could have gone on for hours and that all would have been just fine with me. But there was a rush of footsteps to my left. Somebody snapped a photo to my right. My arms went limp. 
 
-I was caught.
+We weren’t alone. 
 
-I turned around to find a yuppy guy in board shorts. He had one of those fancy cameras with the strap. He zoomed in on the bloodied remains of the face beside me. He clicked and pursed his lips a few times. Then he looked at me. 
+I turned around to find a lanky guy in board shorts eyeing the scene. In his hands, he held one of those fancy black cameras with the strap. He readied it carefully and zoomed in on the bloody remains of the stranger in the little gray hat. He clicked the button. He smiled wide. 
 
-He smiled wide.
+Then he turned to me. 
 
-“Okay. Okay. This is gonna be perfect. Are you ready?”
+“Picture?”
 
-He pointed his camera. 
+“No.”
+
+“Please?”
+
+He framed the angle. 
+
+“Okay. Okay. This is gonna be perfect. The two of you. Are you ready?”
+
+He adjusted the lens. 
 
 “Say… tangerine!”

@@ -68,7 +68,7 @@ This is the transcript:
 
 *But who was watching the drawings whilst they were buried beneath the earth in Machu Picchu?*
 
-*Nobody. My father’s research seemed to suggest that the Inca artist in Machu Picchu had cleared uncovered a new ritual*  *— something which allowed the Incas to trap the demons more successfully than their predecessors.*
+*Nobody. My father’s research seemed to suggest that the Inca artist in Machu Picchu had uncovered a new ritual*  *— something which allowed the Incas to trap the demons more successfully than their predecessors.*
 
 *If my father had only let it be, you would still be living a normal life, Frank Hull. None of us would be in this mess.*
 
@@ -88,7 +88,7 @@ This is the transcript:
 
 *When I entered the living room, I shuddered. The demons were gone, but my dad was sitting in his rocking chair. His eyes were vacant, and he was… smiling. It was a wicked grin — something beyond your darkest imagination. Blood oozed through finger tears in the fabric of his shirt. He had been clawing at his own flesh. He was still alive, but he didn’t move a muscle or utter a word. He just grinned.*
 
-*Amy, meanwhile, was curled on the sofa in a foetal position. She was bawling her eyes out. And when the police arrived, they discovered disturbing.*
+*Amy, meanwhile, was curled on the sofa in a foetal position. She was bawling her eyes out. And when the police arrived, they discovered something disturbing.*
 
 *Mum never left.*
 
@@ -120,7 +120,7 @@ This is the transcript:
 
 *The Exacter always uses slaves to achieve that goal. It seeps into people’s minds. At its behest, I’m certain my dad must have destroyed whatever Incan tool was used to etch the drawings on the stone slab.*
 
-*So, if Amy were to close her eyes or, better yet, destroy the paintings, it wouldn’t be enough to free the entities. Sounds like watching them might be unnecessary then, eh? As long as I keep the tooth hidden, you can just quit your security role and call it a day. No way the Exacter can fulfil its destiny. Right?*
+*So, even if Amy were to close her eyes or, better yet, destroy the paintings, it still wouldn’t be enough to free the entities. Sounds like watching them might be unnecessary then, eh? As long as I keep the tooth hidden, you can just quit your security role and call it a day. No way the Exacter can fulfil its destiny. Right?*
 
 *The problem is that an unwatched Exacter, whilst unable to end the world, becomes freer and freer with every passing moment. Free enough to find me without Amy’s help, perhaps, and infiltrate my mind to find the tooth’s location. As long as somebody keeps watch, they remain in their paintings.*
 

@@ -32,7 +32,7 @@ A beautiful oak desk sat near the far wall. It had a book open on it, surrounded
 
 The book had opened to a random page in the first chapter. Peering down, I saw it was written in English.
 
-“The secretion of the Golgoths,” it stated, “is used to feed their young. While the larvae of the Golgoths are able to live on meat or blood from any animal or human, they are not able to develop into adults without the secretion laid over the nest by a female.
+“The secretion of the Golgaths,” it stated, “is used to feed their young. While the larvae of the Golgaths are able to live on meat or blood from any animal or human, they are not able to develop into adults without the secretion laid over the nest by a female.
 
 “The secretion appears as a yellowish, gelatinous material covering the nests of the Golgaths. Recent tests have shown that it has various substances unknown on Earth. Among these are alien growth hormones, certain neurotransmitters not found in any natural terrestrial lifeform, and…” At that moment, something smashed into the door- hard. It held, but some of the wood had cracked. The iron reinforcements did a good job of holding it together, however. I kept reading farther down the page.
 
@@ -42,7 +42,7 @@ The book had opened to a random page in the first chapter. Peering down, I saw i
 
 “The secretion is also physically addictive, with a euphoric rush that has been described by many subjects as ‘orgasmic’ with an instantaneous rush, releasing far more dopamine than commonly abused recreational drugs such as heroin, cocaine or methamphetamine…”
 
-The entire time, that monster, which according to the book I was reading was called a Golgath, kept smashing its body against the door. I should have ran rather than standing there reading, but I felt like whatever this book contained was important, perhaps even vital for my survival. And yet the forcefulness and violence the Golgath exhibited was astounding. No human could have damaged such a door by sheer brute strength, but this one creature had already caused the wood to splinter and the iron reinforcements to bend inwards. I knew I couldn’t stay here forever. I grabbed the book, closing it and shoving the thin volume into the back of my pants underneath my belt, taking my shirt and covering it up.
+The entire time, that monster, which according to the book I was reading was called a Golgath, kept smashing its body against the door. I should have run rather than standing there reading, but I felt like whatever this book contained was important, perhaps even vital for my survival. And yet the forcefulness and violence the Golgath exhibited was astounding. No human could have damaged such a door by sheer brute strength, but this one creature had already caused the wood to splinter and the iron reinforcements to bend inwards. I knew I couldn’t stay here forever. I grabbed the book, closing it and shoving the thin volume into the back of my pants underneath my belt, taking my shirt and covering it up.
 
 I looked around the room frantically, finding a small servant’s door on the far side of it, hidden in the corner. I ran for it as the main entrance door came down with a crash. Flinging it open, I flew through it.
 
@@ -50,7 +50,7 @@ Multiple people worked there, cooking and preparing tea and coffee and other dri
 
 The yells of the kitchen staff at seeing an unknown boy turned to horrified screams as the monster slithered in. Disengaging its jaw, it allowed its dozens of tentacles to spring out at once, whipping around in a frenzy. I saw one pick a chef up by his leg, dangling him upside down in the air. Another tentacle went for his jugular vein, biting into him and releasing a spray of blood as it began to feed. I kept running, knowing that I would be next if I didn’t get out of there.
 
-The kitchen connected to a huge dining chamber, a bare table long enough to hold forty or fifty people set up in the middle. And standing on top of it, I saw another Golgoth. It slithered forward towards me. A second one was coming through the main entrance to the dining hall, and the one in the kitchen behind me must have been nearly done feeding, as the screaming of the kitchen staff had all ceased.
+The kitchen connected to a huge dining chamber, a bare table long enough to hold forty or fifty people set up in the middle. And standing on top of it, I saw another Golgath. It slithered forward towards me. A second one was coming through the main entrance to the dining hall, and the one in the kitchen behind me must have been nearly done feeding, as the screaming of the kitchen staff had all ceased.
 
 They began to close in on me. I shut my eyes tight, tears of horror and panic slipping past my eyelids, waiting for the end and hoping it would be quick and relatively painless. And then, just when I assumed everything was lost, a voice came from the front entrance of the dining chamber.
 
