@@ -62,8 +62,8 @@ Grandpa Peter
 ***
 For the record, I never blamed my grandfather for anything, not even the chalk. I knew what kind of man he was, and he never broke my trust. I knew that if he made mistakes there were usually reasons behind them.
 
-In the months after my grandfather gave me the letter, I talked with him a few times about his life, what he’d been through, and what he thought I might go through. I think I might write those conversations down next. I don’t have recordings or anything like that, so I’ll have to write from memory. I think it’ll be a good exercise: my writing, someone else’s story. I hope that might help me feel more comfortable with finally sharing my own story.
+In the months after my grandfather gave me the letter, I talked with him a few times about his life, what he’d been through, and what he thought I might go through. I think I might write those conversations down soon. I don’t have recordings or anything like that, so I’ll have to write from memory. I think it’ll be a good exercise: my writing, someone else’s story. I hope that might help me feel more comfortable with finally sharing my own story.
 
 It seems I lost the sheet of paper that was attached to the letter, where my grandfather wrote down those notes he mentioned. I wish I had it, as it would be helpful to have a little more than just memory to go on.
 
-I can’t promise that I’m going to write more, since this was just the easy part. But I hope that I can.
+Understandably, after the events my grandfather described, he was very strict about keeping me out of trouble. However, [I managed anyway, with catastrophic results](https://www.reddit.com/r/nosleep/comments/12b38jy/when_i_was_a_child_i_decided_to_become_a_monster/)
