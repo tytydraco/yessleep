@@ -1,4 +1,4 @@
-**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/) - [Part III](https://www.reddit.com/r/nosleep/comments/12a7tq1/im_a_security_guard_who_works_the_night_shift_at/)
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/) - [Part III](https://www.reddit.com/r/nosleep/comments/12a7tq1/im_a_security_guard_who_works_the_night_shift_at/) - [Part IV](https://www.reddit.com/r/nosleep/comments/12b8r2i/im_a_security_guard_who_works_the_night_shift_at/)
 
 “I want the job,” I said.
 

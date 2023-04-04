@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/) - **Part II** - [Part III](https://www.reddit.com/r/nosleep/comments/12a7tq1/im_a_security_guard_who_works_the_night_shift_at/)
+[Part I](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/) - **Part II** - [Part III](https://www.reddit.com/r/nosleep/comments/12a7tq1/im_a_security_guard_who_works_the_night_shift_at/) - [Part IV](https://www.reddit.com/r/nosleep/comments/12b8r2i/im_a_security_guard_who_works_the_night_shift_at/)
 
 For those of you who missed the first post, my night shifts as an art gallery’s security guard are more horrifying than anything a person should endure. My job isn’t to protect the paintings — it’s to protect humanity *from* the paintings.
 

@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/) - [Part II](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/) - **Part III**
+[Part I](https://www.reddit.com/r/nosleep/comments/125wj5e/im_a_security_guard_who_works_the_night_shift_at/) - [Part II](https://www.reddit.com/r/nosleep/comments/1278rap/im_a_security_guard_who_works_the_night_shift_at/) - **Part III** - [Part IV](https://www.reddit.com/r/nosleep/comments/12b8r2i/im_a_security_guard_who_works_the_night_shift_at/)
 
 Harper Andrews.
 
@@ -185,5 +185,7 @@ That was three hours ago. I know where she’s going. The good news is that thei
 The bad news is that it’ll take some time for *me* to get there too. I’m currently waiting for a flight.
 
 Tomorrow, the world might end. Cherish your loved ones.
+
+[Update - Part IV](https://www.reddit.com/r/nosleep/comments/12b8r2i/im_a_security_guard_who_works_the_night_shift_at/)
 
 [X](https://www.reddit.com/r/dominiceagle)

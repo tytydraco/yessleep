@@ -4,7 +4,7 @@ That was the phrase I’d had almost ceremoniously drilled into my head from a r
 
 And for a while, I actually believed it. I wasn’t what you would call a stickler for old tech. I moved with the times, adopting new technology as it came along, everything from broadband internet, to smartphones, to smart TVs and cars with self driving capabilities. I was excited about it all as well; hearing about a new leap in progress always excited me greatly, as it meant a step closer to the future I’d seen in cartoons as a kid such as *The Jetsons*. 
 
-That all changed last year. But, I’m jumping the gun a little.
+That all changed last year.
 
 It started small enough. I’d be standing or sitting somewhere, scrolling through social media on my phone, when it would glitch up and freeze on me. I hadn’t done anything wrong, and I had good antivirus software installed on it, so the fact that a less than two year old phone was going on the fritz annoyed me to no end. “Friggin’ piece of crap!” I hissed through gritted teeth as I sat at my desk during a particularly slow shift at work as my phone once again froze, then went black as it shut itself off and rebooted. Vivien, my coworker who sat in the cubicle across from me looked over with mild interest. “Everything all right, Jared?” she asked. I shook my head. “This *stupid* thing did it again to me!” I exclaimed, quietly, so my boss wouldn’t hear I wasn’t working; even on slow shifts, he insisted we keep going to, as he put it, “Prevent paying you to just sit on your lazy asses like you’re back in school”
 
