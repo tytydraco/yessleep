@@ -1,4 +1,4 @@
- When the first photo appears, I only catch a glimpse.
+When the first photo appears, I only catch a glimpse.
 
 That glimpse is enough to send a signal of panic to the core of my very being, a bolus of raw adrenaline that my mind can't make sense of.
 
@@ -347,5 +347,7 @@ The hatchet Richie’s holding clangs to the floor. He turns, says, “Daniel?�
 “I just wish I could remember more clearly. I knew we weren't compatible. We were fighting more and more.” My voice is cracking. “And I'm wondering did she ever even like sleeping with me? She said I hadn't suffered enough. That this was only beginning. I just wanna know what I did. I just wish I could remember.” I can’t stop the tears, can’t stop the crying. Even if I could, I don’t think I’d want to. The only thing is, that Richie stays frozen in place. He’s offering no shoulder to cry on.
 
 “Daniel,” Richie says. “Grace is dead.”
+
+Part 2:   [(3) My Ex-Girlfriend Has Been Sexting Me. She's Been Dead For 2 Years : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/12bxh1c/my_exgirlfriend_has_been_sexting_me_shes_been/) 
 
 [\~\~\~\[ll\]](https://www.reddit.com/r/jonesingforfear/comments/ptf9fz/links_to_purchase_the_rules_of_the_road_the_novel/)
