@@ -1,0 +1,27 @@
+**Full story** [here](https://www.youtube.com/watch?v=ShRUKK8PhAE)  
+On December 2nd, 2022, a family in India began uploading a series of videos documenting strange happenings inside their home. Up until recently, the family hadn't posted these videos out of fear of being shamed by friends and family as they don't believe in the paranormal. But after experiencing an event so disturbing, they deemed it necessary to share their footage. They reasoned that not sharing their videos would prevent them from getting the help they need.
+
+After taking a second look at the so-called imaginary friend whose name is Jerry, their son runs over to the couch in a panicked frenzy as though he'd seen something pretty horrific. After rushing over to safety, he points out Jerry to his father, who seems concerned at first but then later chalks it up to his child's imagination after being unable to see him.
+
+Although somewhat strange, the parents don't think much of this and continue with their usual activities. But in the following days, things would only get stranger. In one incident, the family is having dinner when all of a sudden, a loud knocking sound comes out of nowhere, followed by the smoke detector going off randomly.  
+It was from there on that more disturbances would occur, but it's the following incident that's by far the strangest. The family plays an audio recording of a prayer through a speaker in the hopes that doing so would cleanse their home of the entity that haunts them. As they play the recording.
+
+Oddly enough, playing the recording has led to the sudden emergence of maggots. But even more strange is that according to the family, they came out of nowhere. To this day, they have yet to come up with an explanation for this odd occurrence.
+
+As if that wasn't baffling enough, two nights later, they capture something beyond strange. It's late at night when a loud noise outside the bedroom wakes up the parents.
+
+Without warning, the small chair that's initially seen against the wall mysteriously slides over to the couch in a swift motion as though someone or something had pushed it. The father understandably runs back into the room fearing for his safety. Viewers believe that whatever had slid the chair had done so with the intent of causing harm. Although we don't know if the family agrees with this notion, they most certainly agree that this next incident, which occurred a few nights later, is the creepiest of all.
+
+The sound of running footsteps is heard running towards the father. As anyone would, the father bolts back into the room in full terror. Just like the previous incidents, this one has left the family completely spooked. They have no clue as to what is haunting them.
+
+However, it wasn't until recently that a follow-up video was made by the father commenting on the incidents that have taken place. In this video, the father mentions a certain detail that, according to viewers, could explain why strange things are happening to the family.
+
+"Okay, uh, so this is like around five months ago. We had actually kept a maid over here. I don't want to mention our nationality, but, uh, she had a very strange behavior, and initially, we didn't notice as much, but later on, yeah, it was kind of creepy. She used to prepare food for us, and, like, you can say like she used to make breakfast and dinner for us, and I don't know why, but she never used to eat her own cooked food. You know, we used to eat the food, and my son, and we have never seen her eating the food in front of us. And whenever we used to ask her if she had eaten dinner or something, she used to say, "Yeah, yeah, I've already eaten it," but we used to check the camera to see if she's eaten or not. No, we have never seen her eating food at home. And this is where the maid used to sleep, and through the nanny cam, what we used to see here every night, like one to four a.m., she used to just sit down in the middle over here and just staring at our bedroom door, which was, uh, how can someone have like some kind of insomnia behavior, just sitting still and watching at our bedroom door? We are scared of her. We decided to lay her off, and after she went, and, okay, it was almost for a month there was no...
+
+Viewers believed that the maid, which the family had laid off, is responsible for the strange occurrences. They believe that, in retaliation for being fired, she had placed a curse on the home, which is evident by the dangerous activity encountered by the family. Whether or not that's true, there's no denying that the activity continues to intensify with each new video captured.
+
+The family is once again woken up late at night when this is captured:
+
+It appears that someone or something had mimicked the father's voice. Although pretty terrifying, it's the latest and final incident that has left the family extremely unsettled. This is what was captured:
+
+Mysteriously, someone or something had left the faucet running in both the kitchen and bathroom. After shutting them off, the sound of running footsteps is heard once again. Naturally, the father was shaken up. The family continues to document these strange occurrences in the hopes that someone can explain what's going on. Unfortunately, a definitive explanation has yet to be given, but what are your thoughts on this? Is the maid that was laid off responsible for the activity? Could Jerry, the imaginary friend, be the actual culprit? Or might there be something else that could explain all that's happened?
