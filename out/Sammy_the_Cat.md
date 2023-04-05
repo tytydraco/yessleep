@@ -1,3 +1,5 @@
+ 
+
 I never thought of myself posting here, but I have a story to share with you guys; just promise me that you’re not going to laugh. There’s not a lot I know about this situation, and I can’t process anything, so if I have bad English or anything else, I apologize. I’m shaking right now, so I can hardly write, but here’s a sentence to describe it to you, and it’s not very good.
 
 So, you know those shows we like to watch on television? like SpongeBob SquarePants, The Amazing World of Gumball, and others? I’m bringing these shows up because these are examples of shows that you and I used to watch. Have you never found anything weird or creepy about these shows? Admit it, you certainly did, and I did too, but it wasn't as bad as others think; it was just for the comedy.
@@ -24,6 +26,42 @@ I started questioning this show and the fact that this man didn't even put it in
 
 This is up to you to answer: who was the man in the cat costume, and is the man related to my great aunt, and why was he killing people? I will allow you to figure it out; as for the second DVD, I ended up reporting it to the police as well. Upon again visiting the PD, I found out he was already serving time in prison on unrelated charges. They are now investigating the content of the second DVD of the show.
 
-As for the man, I hope he stays away from me and never steps foot near this house again.
+I feared for my life; I had never seen anything unexplainable and weird until now, and to this day, a feeling of dread is always coming over me, and I feel like I did something wrong. When I tell people about this moment, they always give me strange looks, and they keep assuming I had a bad nightmare when I didn't; at least from the later events, it was a nightmare.
 
-This is the end of this post.
+I'm sorry; this should’ve been prevented, but due to my curiosity, I wanted to watch the show because I wanted to know what it was. I'm now feeling guilty for what just happened, even though I didn't do anything wrong.
+
+I was getting tired, so I went to sleep, but the show stayed on my mind while I tried to sleep, and I eventually went to sleep.
+
+As I was trying to go to sleep to forget about what happened today, I started dreaming, and this dream seemed normal at first. I will share my dream, if you can call it that. To me, I call it a nightmare.
+
+I'm sitting in my chair, my living room is decently furnished, and my TV is running in complete static. When the static ended after 12 minutes, the old Warner Bros. logo flashed on the screen, revealing the text "Sammy the Cat." I knew how this was going to go, but I don't recall seeing Warner Bros. at the beginning. Was this made by Warner Bros.? Perhaps a lost show? I don't know; I continued watching.
+
+The episode started with the camera pressed against Sammy's face with that giant fake smile, and what I could make out was that there were finger holes where the eyes are. The thing I never heard from Sammy was his voice.
+
+"Hello there! "I would like to talk."
+
+His voice was cheerful, deep, and loud, and it sounded like he was old; he spoke out to me; I tried moving, but I'm having those dreams where I can't move at all; he said some sentences that made my heart break.
+
+"Your great-aunt deserved to die."
+
+When that sentence came out of his mouth, it broke my heart, and I held back the urge to cry.
+
+"I loved her, and she left me. When she left me, I was broke. That's why I tried to make my own show to get my money back."
+
+The voice was getting closer from the screen, and it almost sounded like he was whispering in my ear. I began to get chills; I could hold back tears as best I could. Sammy saw me holding back tears, then the camera zoomed in on what appeared to be a shotgun in his hand.
+
+I eventually stopped tearing up, looking blankly at the shotgun, my eyes now shaking. Sammy pulled the trigger, the bullet hitting the camera—possibly the cameraman too—as I heard a bloodcurdling scream and saw drops of blood, with the camera glitching.
+
+The television turned off, and I heard an aggressive knock at the door beside me. I had nowhere to go. I accepted my fate; Sammy barged into the room, holding a sledgehammer; the cat ran towards me and hit me with the sledgehammer; I went to sleep and am now unconscious.
+
+I finally woke up from the nightmare, and I'm finally happy that I'm alive and well, with no bruises or anything. I got the idea to call Warner Bros. Entertainment because I saw the logo on my TV during the nightmare, so it's appropriate to do so.
+
+I dialed the company and asked them if they ever had a show called Sammy the Cat or anything related to it. I was met by an unexpected response: they said yes, much to my shock. The guy who played Sammy was friends with the people behind Warner Bros., commonly known to some people as the "warners." The show was in the works, but the workers noticed that the man was upset about something, so they ended production with Sammy the Cat entirely.
+
+Sammy’s actor was suffering from schizophrenia, anxiety, and depression. If I'm being honest, I kind of feel bad for him, despite the fact that he was a serial killer, but the fact that he was suffering from three things makes me pleased that he's in jail now. The company even told me that some of the crew members rumored that he was responsible for the four Warners' deaths.
+
+Now keep in mind that if you call the company and ask them about Sammy the Cat, they will try to hide the truth by saying, "No, they don't have a show called that." I have the truth now.
+
+We’ve been on the call long, so we hung up, and for the company’s sake, don't call the company and ask them about the show, for goodness sake, and if you’re wondering how I'm doing right now, I'm feeling down as a person, I have depression, and I have anxiety about things now; I do not have schizophrenia, however.
+
+Anyway, thank you for reading about my experience, whoever is reading this. I wanted to get my story out there somewhere. I just want you to be careful and think before you watch the thing. If you want to watch these things, do it at your own risk.
