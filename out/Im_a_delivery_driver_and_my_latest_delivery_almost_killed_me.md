@@ -44,7 +44,7 @@ Looking back, I wish I’d never gone upstairs. I wish I’d just got the hell o
 
 But who knows – maybe I was doomed from the moment I accepted that order.
 
-I complained to myself as I kept climbing upwards, legs burning. At that moment, I was pissed off at everything. I hated the creepy-ass building, I hated the elevator, and I hated the customer for making me walk what would end up being a total of 22 flights of stairs.
+I complained to myself as I kept climbing upwards, legs burning. At that moment, I was pissed off at everything. I hated the creepy-ass building, I hated the elevator, and I hated the customer for making me walk what would end up being a total of 20 sets of stairs.
 
 If I’d known I would be doing that much cardio, I would’ve brought my freaking inhaler.
 
