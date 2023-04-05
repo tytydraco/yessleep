@@ -16,7 +16,7 @@ One more even more sinister.
 
 One even more deadly.
 
-Because to know her is to know that we haven’t the slightest clue what goes on in the corners of the world. It’s there, in the dark side of the mind, where she grows like a wild weed.
+Because to know her is to know that we haven’t the slightest clue what goes on in the corners of our perceived existence. It’s there, in the dark depths of the mind, where she grows like a wild weed.
 
 And she’s not alone. It won’t be long now before everything changes forever.
 
@@ -34,9 +34,9 @@ Other than my makeshift recliner (a wadded-up comforter from my bed in the apart
 
 The dealer had given us some good shit. These people were professional dope fiends and by looking at them you would’ve thought the shit had melted all of the bones in their bodies from within as they all lay there in the grime. I was no different.
 
-I noticed a man a few feet away from me whose back wedged into the corner where the brick walls met. He held his palm out at me in want of what I had in mine, and I gave a lazy toss of the hypodermic toward him. It bounced on its plunger before toppling short of his feet. I heard the metal of the needle scrape filthy asphalt. He picked it up and rolled his sleeve above the elbow without wiping it clean.
+I noticed a man sitting a few feet away from me whose back wedged into the corner where the brick walls met. He held his palm out at me in want of what I had in mine, and I gave a lazy toss of the hypodermic toward him. It bounced on its plunger before toppling short of his feet. I heard the metal of the needle scrape filthy asphalt. He picked it up and rolled his sleeve above the elbow without wiping it clean.
 
-We never exchanged a single word, but his eyes had struck me. Dirt smeared his hard-lined face and a dark, scraggly beard covered much of his gauntness, but those eyes; they held a sharp intelligence in them I hadn’t seen on this low side of the world that was now my own.
+We never exchanged a single word, but his eyes had struck me. Dirt smeared his hard-lined face and a dark, scraggly beard covered much of his gauntness, but those eyes; they held a sharp intelligence in them I hadn’t seen on this low side of the world that I now inhabited.
 
 The dark eyes looked haunted. I'd guessed at the time that was why he was where he was, to fix that glint of despair; to dull some vague knowing of himself or his life he didn’t want to possess. It didn’t much matter.
 
@@ -48,7 +48,7 @@ As I regarded the dead man, the sudden, awful odor of ammonia filled the air. My
 
 Within the fading light of the alleyway, the silhouette of a tall, thin man in a blue suit grew larger as he walked closer to our little den. His shoes clicked echoes with each step that hung in the air. Some of the others had also begun to rouse from their highs, and groggy heads turned to regard the man.
 
-Once their eyes fixed themselves upon him, they rolled to the backs of their heads and their mouths froze open in silent screams. Their hands gnarled and curled at harsh angles before crumbling over rigid like a bunch of dead wasps.
+Once their eyes fixed themselves upon him, they rolled to the backs of their heads and their mouths froze open in silent screams. Their hands gnarled and curled at harsh angles before crumbling over rigid like a bunch of sleeping wasps.
 
 I tried to collect myself; tried to prop myself up on all fours to stand and run, but I was still too scagged to go anywhere.
 
@@ -76,7 +76,7 @@ The disembodied voice croaked: “Holy shit. This one is still awake.”
 
 The man approached me in the dark and knelt. Shadows filled the hollows of his gaunt face. His nose looked prosthetic and was a little off-color in contrast with his manilla skin. Although he didn’t look old, dead maybe but not much more than in his mid-forties, his sheer gauntness carved clear outlines of two sets of dentures around the folds of his lips.
 
-He was horrible -- a nightmare in a bad dream.
+He was horrible -- a walking nightmare.
 
 I blurted an idiot moan of fear and tried to roll away from him.
 
@@ -152,7 +152,7 @@ And hang on to the coin
 
 \*\*
 
-Underneath the writing was a round insignia that stuck out from the paper a few millimeters. In its center was what looked to be at once an upturned, splayed man and a tree.
+Underneath the writing was a round insignia that stuck out from the paper a few millimeters. In its center was the design of what looked to be at once an upturned, splayed man and a tree.
 
 I dropped the card and stammered backward. No words were in my mind. It was too filled with animal panic.
 
