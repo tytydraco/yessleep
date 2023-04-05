@@ -1,10 +1,10 @@
 Okay, yes, I know [you’re all dying to know about Cassie](https://www.reddit.com/r/nosleep/comments/11jo5n3/how_to_survive_college_the_worm_in_the_hallway/).  I swear it’s not as exciting as it initially looked.  I mean.  Yes.  There was a monster there.  It might still be after her.  We’ve taken to barricading the door with our desk chairs at night just in case.  But when I talked to her about it, asking what she knew about her roommate’s disappearance that she hadn’t told me, it turned out… there was almost nothing I didn’t already know.  I’m pretty sure I’ve shared it all with you already, but in case I forgot (I’m trying to keep track of way too many things right now) the gist is: her roommate vanished.  Her roommate’s parents blamed her for reasons???  And then everyone except for her forgot her roommate even existed.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 Cassie just *assumed* that creature was what got her roommate because it was after her and that seemed thematically appropriate.  She figured it wasn’t a coincidence.
 
-I asked her if she considered it was sneaking into our room because of *me.* 
+I asked her if she considered it was sneaking into our room because of *me.*
 
 She stared blankly at me for a moment.  Like this hadn’t even crossed her mind.  That whatever bond was between her and her roommate was strong enough to supersede my presence in her life.
 
@@ -42,7 +42,7 @@ I’m reciting all of this to you pretty calmly, but at the time Cassie was a cr
 
 I didn’t want to drag Cassie’s soul-searching with her feelings towards her roommate or whatever is going on out into the open though, so I admitted that regardless of the reason, we should still be careful.  We’d come up with a plan, I said, and figure out a way to protect her.  I’d ask Tyler back home to send me another one of the campground charm bundles for her to carry around in her backpack.  We’d keep barricading the door at night.  Whatever it took to keep her safe.
 
-I think that reassured her.  And honestly, I thought we had a pretty good plan.  The whole barricading the door thing alone should have been enough, right?  
+I think that reassured her.  And honestly, I thought we had a pretty good plan.  The whole barricading the door thing alone should have been enough, right?
 
 It was not.
 
@@ -94,7 +94,7 @@ She straightened from the washer and stared back at me.  I shifted uneasily from
 
 “No, you don’t want there to be consequences.”  Her eyes narrowed.  “But that’s how we work.  There are *always* consequences when you deal with the inhuman.”
 
-Ominous.  And here I am with a deal with the devil hanging over me.  I tried to shove that out of my head to focus on the conversation at hand.  It seemed I wasn’t getting permission or forgiveness in advance.  That did nothing to calm my nerves.  
+Ominous.  And here I am with a deal with the devil hanging over me.  I tried to shove that out of my head to focus on the conversation at hand.  It seemed I wasn’t getting permission or forgiveness in advance.  That did nothing to calm my nerves.
 
 “You said I got you in trouble,” I said.  “How, exactly?”
 
@@ -162,7 +162,7 @@ But it will not be contained.  It doesn’t *want* to be shackled by something a
 
 And I knew because being confronted with something like that, I *had* to know what it was, I wasn’t given a choice.  I’d heard about it growing up, after all, because I come from a small town and small towns love their stories.
 
-I stood before the master of the gray world.  
+I stood before the master of the gray world.
 
 And as I watched, it ripped away one of those mounds of decaying laundry with another sucking-cracking sound, and it swallowed it whole.
 
@@ -222,11 +222,11 @@ I awkwardly said thank you and I’m not sure what exactly I was thankful for - 
 
 There’s one I fear.  One that I know the answer to and desperately don’t want her to know.
 
-She didn’t ask how the administration had found out about her world.  
+She didn’t ask how the administration had found out about her world.
 
 I know exactly how that happened.
 
-Grayson.  I’d shown it to Grayson. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+[Grayson.  I’d shown it to Grayson.](https://www.reddit.com/r/nosleep/comments/12c7d0f/how_to_survive_college_we_need_to_make_a/) [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 

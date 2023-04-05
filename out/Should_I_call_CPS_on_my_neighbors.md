@@ -1,0 +1,17 @@
+From my hangout spot outside I heard it all. The yelling, the children’s voices crying, the beating of innocent flesh… I considered calling CPS on them in that moment, but I’ve never been one to rock the boat, so I just turned the volume on my music way up and blasted Combichrist’s “WTF is Wrong with You People?” loud enough that I hoped my neighbors would get the message. I decided that if I heard them abusing their children again I’d call the authorities on them, but reasoned myself into believing this was just a one time thing. Maybe it sounded more serious than it is. Maybe everything’s fine and they weren’t actually hurting the kids…
+
+Update: it’s been a week and I haven’t heard much noise from the neighbor’s kids. Normally they’d be playing outside and laughing, but I haven’t heard anything like that for a week. Maybe they’re sick? It’s probably nothing right?
+
+Update 2: it’s been a month now and I still haven’t heard any playing or laughing. The neighbor’s dogs have started howling, all throughout the night… I’ve heard the clinking of glass outside and the sounds of the neighbors laughing, but not their kids. I’m starting to worry…
+
+Update 3: I don’t think I can keep quiet about this anymore. I’m pretty sure I just heard my neighbor murder his wife. There’s no way it could’ve been anything else. The chainsaw, the blood-curdling screams, the drunken yelling… I think I should call the police…
+
+Update 4: I decided to sleep on it, I mean wouldn’t it be super awkward if it turned out I was just hearing things? But this morning, I heard shoveling. I thought back to a couple months ago, the day after I’d heard the commotion with the neighbor’s kids, and recalled that I had also heard shoveling then. At the time I’d assumed there was just yard work being done, but now it finally clicked. This man murdered his wife and children. But that’s a serious accusation, and again I could just be hearing things… maybe I should hold off on calling the authorities for now.
+
+Update 5: The neighbor’s dogs have been howling all day in addition to the night. I wonder when they ever sleep. I’ve also heard them snarling and growling at the neighbor and each other. They sound feral and hungry.
+
+Update 6: The neighbor’s dogs broke through the fence today while I was out running errands. They killed one of my two small dogs and maimed the other. When I found the corpse, it was picked clean to the bone. The neighbor apologized and offered to fix the fence and pay for the surviving dog’s medical bills. I accepted through my tears.
+
+Update 7: Today the neighbor began working on the fence. I kept my dog inside and set up a pee pad for him in the bathroom. I could hear the dogs snarling even from inside my house. It was unnerving. At one point I almost thought I heard a man scream. But it was probably nothing, right?
+
+Update 8: I think the neighbor gave up on fixing the fence. I’ve been meaning to talk to him about it, but I haven’t seen or heard him lately. His dogs have been sounding meaner and meaner, I wonder if he’s fed them recently. They’ve been pacing my property and digging through my trash. I try to stay inside most of the time, to avoid riling them up. I really hope the neighbor gets back to fixing the fence soon.
