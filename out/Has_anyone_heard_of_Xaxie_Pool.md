@@ -92,7 +92,7 @@ As I was preparing to fight, the chubby man started dragging Călin underground,
 
 &#x200B;
 
-Soon enough, it became clear that all was helpless when, from behind us, a group of several people appeared. There were about six men and women, dressed in old fashion clothes, like two centuries ago, but not like it was in Europe, oh no, they looked like they were from a western or something. Or more, they looked like one of those Amish communities that even nowadays dress in XVIIth century attire and live without electricity. One bearded man grabbed Răzvan, who tried to put up a fight. A long thin woman with a black and white hat grabbed me. From up close, I could not make up my mind if I was old or very, very sick. Her pale-greenish face was sucked in and, like in the rest, the bone orbits of her sunken eyes were clearly visible. As she opened her face with a grin, she showed her decayed, partially broken teeth, covered in green tartar. She grabbed my hands fiercely, and started dragging me towards the place Călin and Catinca disappeared.
+Soon enough, it became clear that all was helpless when, from behind us, a group of several people appeared. There were about six men and women, dressed in old fashion clothes, like two centuries ago, but not like it was in Europe, oh no, they looked like they were from a western or something. Or more, they looked like one of those Amish communities that even nowadays dress in XVIIIth century attire and live without electricity. One bearded man grabbed Răzvan, who tried to put up a fight. A long thin woman with a black and white hat grabbed me. From up close, I could not make up my mind if I was old or very, very sick. Her pale-greenish face was sucked in and, like in the rest, the bone orbits of her sunken eyes were clearly visible. As she opened her face with a grin, she showed her decayed, partially broken teeth, covered in green tartar. She grabbed my hands fiercely, and started dragging me towards the place Călin and Catinca disappeared.
 
 &#x200B;
 
@@ -100,7 +100,7 @@ The expression of the eyes of those people (If they were, indeed, people.) was a
 
 &#x200B;
 
-I woke up in a dimly lit chamber, where some sort of yellow light flicked from some kind of torch on the walls, but it was like a fake flame on the shriveled walls, that showed, on parts, the mud brick structure behind the yellow paint that was, perhaps, white a long, long time ago. I dared to look around, some kind of mats, old and scrambled, were on a dry muddy floor. Some broken wood chairs were around and, at the entrance underneath the mud brick arch, there was the woman who grabbed me, looking like a harsh grandma of XVIth century American midwest. Răzvan held me in his arms, Călin and Catinca were also awake. Catinca mumbled something I could not discern, laying on her side, Călin was standing, looking like being under some sort of spell or drug. His left arm had some fresh scratches that showed some sort of occult symbols. He was actually biting his skin to make a new one.
+I woke up in a dimly lit chamber, where some sort of yellow light flicked from some kind of torch on the walls, but it was like a fake flame on the shriveled walls, that showed, on parts, the mud brick structure behind the yellow paint that was, perhaps, white a long, long time ago. I dared to look around, some kind of mats, old and scrambled, were on a dry muddy floor. Some broken wood chairs were around and, at the entrance underneath the mud brick arch, there was the woman who grabbed me, looking like a harsh grandma of XVIIIth century American midwest. Răzvan held me in his arms, Călin and Catinca were also awake. Catinca mumbled something I could not discern, laying on her side, Călin was standing, looking like being under some sort of spell or drug. His left arm had some fresh scratches that showed some sort of occult symbols. He was actually biting his skin to make a new one.
 
 &#x200B;
 
@@ -120,7 +120,7 @@ We did not dare to speak for the next few minutes. Distant un-human voices were 
 
 &#x200B;
 
-They grabbed Călin first, who tried to put up a fight, but he was brought down easily by the two men, who seem to possess an un-human straight. The chubby man took him up, holding him by the back of his head, like you would keep a puppy. The other one took Catinca mercilessly up. She kept on screaming.
+They grabbed Călin first, who tried to put up a fight, but he was brought down easily by the two men, who seem to possess an un-human strenght. The chubby man took him up, holding him by the back of his head, like you would keep a puppy. The other one took Catinca mercilessly up. She kept on screaming.
 
 &#x200B;
 

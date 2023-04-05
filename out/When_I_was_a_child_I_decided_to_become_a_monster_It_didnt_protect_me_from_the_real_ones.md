@@ -1,4 +1,5 @@
-This story is technically the second in a series, but there’s no need to read the [first part](https://www.reddit.com/r/nosleep/comments/1279omg/my_grandfather_gave_me_a_letter_six_months_before/) before this one. I’d actually recommend reading this one first. 
+I've previously posted a 
+[letter from my grandfather](https://www.reddit.com/r/nosleep/comments/1279omg/my_grandfather_gave_me_a_letter_six_months_before/) which describes events which precede the events I'll describe here, but it isn't necessary to read the letter first.
 
 ***
 
@@ -89,6 +90,3 @@ At least, that’s what I would be inclined to think, if it weren’t for a note
 *I like this game, Abby*
 
 ***
-If you want to hear more about my childhood, you can read [the letter my grandfather gave me before his death](https://www.reddit.com/r/nosleep/comments/1279omg/my_grandfather_gave_me_a_letter_six_months_before/)
-
-Rest assured, this isn't the end of my story. I’d be happy to answer any questions as best I can. If the answer is too complicated for a comment, I’ll make sure it gets covered in a future post. Thanks for reading!
