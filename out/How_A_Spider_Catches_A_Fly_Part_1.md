@@ -311,3 +311,7 @@ By the time I made it home, the events of the day had washed off of me in a simi
 *I'm going to visit Sunny Creek again.*
 
 \------------------
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/127i8c5/how_a_spider_catches_a_fly_part_2/)
+
+&#x200B;
