@@ -1,0 +1,52 @@
+I've always been a lonely kind of guy.  I never have had many friends, not so much from lack of effort but because of my lack of social skills.  I live a solitary life coming and going to work and back only interacting with people when needed, never anything more than required.  I longed to have someone in which to share my life with.  I know that most likely will never happen, I'm too broken to salvage.  I'm in my mid-twenties, not unattractive, I'm no Brad Pitt but not too shabby and I take care of myself eating right and getting enough exercise to keep the excess pounds off my body.   Maybe I should get a dog…
+
+On my way to work today as I stopped in the local coffee shop as I did every day, I opened the door and held it for a young couple exiting as I was coming in, they smiled and nodded to me as they passed by me.  I smiled back and nodded to them as I entered the shop.  My eyes were down on the floor as I joined the short line to order my drink.  I heard a sweet sing-song voice that I didn’t recognize.  I looked up, and there she was.  My heart nearly stopped.  My god she was a vision, she was perfect and had a smile that could literally light up a room.  She was very petite and looked to be very fit, athletic even.  As I shuffled slowly forward, I couldn’t take my eyes off her.  My eyes began to sting as I had not blinked in nearly two minutes.  I blinked them rapidly bringing tears to my eyes and spilling out of the corners of my eyes.  My turn was next, I was horrified that it actually looked like I was crying.  I quickly wiped the tears from my eyes and approached the counter.  I saw her nametag, it read Sandy.  It had a little red heart drawn next to her name.
+
+She looked at me with genuine concern in her eyes and asked me if I was alright.  I nodded and ordered my morning drink in as few words I could.  I paid Sandy for my coffee and hurriedly stepped aside.  As I was waiting for my order, I stole glances at Sandy and one time I looked up she was looking at me and she smiled that thousand watt smile and nodded her head at me.  I nearly collapsed, my knees nearly giving out from under me.  Sandy called my name when my order was ready, and I approached her.  She handed me my coffee and whispered to me 
+"Whatever is going on with you this morning, I hope your day gets better" and handed me my coffee placing her hand on top of mine with a gentle squeeze.
+
+The next day was a good day I didn’t tear up and was actually able to hold somewhat of a very short, albeit awkward, conversation with Sandy.  She told me that she was new in town and just started over the weekend and she hoped that she would be making some new friends soon.  I tried my best to banter back and forth but I don’t know how successfully I did that.  As she handed me my coffee, she said 
+"I hope to see you tomorrow" and smiled at me warmly.  "It was nice to see you smile today, yesterday was a rough day, huh?" she asked.  I nodded and quickly turned to leave. 
+
+Did she really mean that?  Did she say that to everyone?  Did she really think that I was crying yesterday?  I walked the few blocks to work, daydreaming of scenarios in which we could share a life together.  All of which would most likely end in her leaving and me being alone again.  I would never work up the nerve to ask her to be my friend or go out with me.  A million thoughts raced through my mind all ending in a slamming door and crushing loneliness.  I was not cut out for this world, I have accepted the fact that I would always be alone.  Maybe I should get a dog, or a cat.
+
+Time passed on and I saw her every day that I went to work. Every time that she saw me come through the door she perked up and turned that smile on to the maximum and waved at me.  She told me stories about how her day had been so far and a few other tid-bits of her life adjusting to a new city.  Her voice was like honey, I stood there and just listened and never wanted it to stop.  She even told me that she had a secret crush on one of her regulars, I felt as if a dagger had been plunged into my heart.  I thanked her for my drink and tipped her a ten spot, and quickly left the shop.  I bet it was that really handsome guy that was always trying to flirt with her, he was always touching her hand as she handed him his drink.  Some guys have all the luck.  She would never consider me as her crush.  Never in a million years.  
+
+As I sat at my desk, working on some stupid spreadsheet, I let my mind wander and thought of planning out following that guy and beating his head in with a baseball bat and shoving his body into a dumpster.  I would heroically proclaim my love for her and tell her that she should be with me instead of that fucking asshole.  She would then tell me that it was me all along that she wanted.  We would live happily ever after, and ride off into the sunset together.  As if…  
+
+I had a vacation scheduled for the next two weeks, I had no plans I just figured that I would sit around in my house and sulk about losing the love of my life.  I cleaned up around my house, organized my basement and attic and did a general spring cleaning from top to bottom of my modest house.  Every day even though I didn’t have work I still went to the coffee shop to see Sandy.  Every day she greeted me with that smile and small talk.  I even worked up the nerve to ask he if she ever asked her crush out.  She told me that she hadn’t worked up the nerve to ask him as he was so shy.  
+
+"That guy wasn’t shy" I told her.   Hitching my thumb at Mr. Pretty Boy as he was leaving.  She laughed, which sounded like an angel's laugh, 
+"him?!?  No way would I ever…"  she continued giggling.
+
+"My guy is more the strong silent type" she whispered to me.  She handed me my coffee with a wink and a smile.  I smiled as best as I could and nodded to her tipping my fake hat to her as I turned and walked towards the door, anger welling up inside me.  Of course, she would never want Mr. Awkward, the social reject, the very definition of someone who was meant to walk the path of life alone.  
+
+I stalked home in a rage, I was totally wrong about that pretty boy, Sandy acted as if she liked someone else other than him. Who was it?  I would find that "Strong, silent guy" and rip his fucking heart out with my bare hands.  I seethed in anger, I would sake out the coffee shop for the next couple days and find him and bring fury and vengeance down upon him.  I would not let someone steal my girl.  She was mine.
+Over the next few days, I sat out across the street and watched every guy that came and went from the shop with suspicion.  One of these guys had to be her secret crush, and I would find out who and make him pay.  Every day I asked Sandy if she asked her crush out and every day, she told me not yet.  She said that she was waiting for him to make the first move.  As I was standing there waiting to get my coffee, I noticed that the schedule was posted on a corkboard behind the register and she always got off at 5pm every day.  Gears started turning in my head, as she handed me my drink, always with that warm smile and big blue eyes looking into my soul.  
+
+I returned to the shop at around 4:45 that evening taking a seat on a bench in front of the store next door to the coffee shop.  At 5:05 the door opened, and I saw Sandy exit the shop and turn in the opposite direction from where I was sitting.  I waited for her to get about 50 or so feet from me and I stood and began to follow her.  She walked for about 3 blocks and turned right and walked a few more blocks finally reaching a small apartment building about 3 stories high. I saw her enter the building not even glancing back.  A few moments later, I saw a light turn on in the window of the third story apartment.  I walked up to the front door of Sandy's building and turned the handle it opened, without having to be buzzed in.  I climbed the steps to the third floor, my anticipation growing with every step, I would finally tell her that it was me she should be with forever, and she would be so happy.
+
+I stopped at her door wondering if what i was about to do was right.  Of course, it was right, she was mine and mine alone I reasoned with myself.  I would finally have someone to be with forever.  I rang her doorbell a few moments later the door opened wide and there she was in all her glory.  She had changed out of her work clothes into a t shirt and shorts.  She was amazing, my heart swelled with pure love for this creature before me.  I couldn’t believe that I was actually going to do this, I really was going to have someone to share my life with after all. 
+"Hey there, how did you know where I lived" Sandy asked smiling at me.  
+
+"I followed you here from work."  I replied taking a step towards her and the doorframe.
+
+Sandy's smile fell from her face, instead turning into a frown.  She closed the door a bit more and slipping her foot behind the door.  Did she really think that that would stop me from coming in I thought to myself.  What a silly thing she is.  I would have to teach her that she can't trust anyone, they are all out to get something.
+
+"Why would you do that?" She asked with a slight tremor in her voice.
+
+I stood silent in front of her door still drinking in the vision before me.  She really was perfect.
+
+"Wwww what do you want?" She asked with genuine fear in her voice as I reached out my arm and pushed the door fully open and stepped into her apartment, closing the door behind me as I stepped in.  She was mine now, I would take good care of her.
+
+I came home from the office later than usual tonight, and she had messed in her cage.  
+
+"Hi honey, I'm so sorry that I was late I would have called, but you know why I couldn’t."  I said to her cheerily.  
+
+"Let's go get you cleaned up and take a nice bubble bath, hmmm?" I said unlocking her cage and offering my hand to her.  
+
+"You really made a mess this time, next time I may have to punish you like I did when I first got you.  You do remember that don’t you."  I chided her sternly.
+
+She whimpered and nodded her head and took my hand gently and crawled out of her cage.
+
+"Maybe I should have gotten a dog, or maybe even a cat."  I said out loud as l led her to the wash tub…
