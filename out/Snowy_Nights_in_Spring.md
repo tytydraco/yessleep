@@ -70,6 +70,6 @@ Sun shines bright in this valley, despite the looming mountains and dark forests
 
 There is life here, but there is also death. 
 
-It lurks in the shadow of the mountain, and in my cousin’s memory. I’ve tried to ignore it, and ignore her. I understand her, somehow, and I don’t want to know the reason, but I can’t keep on pretending like I don’t, because this valley is my home and I want to stay, but something is encroaching, creeping out of the darkness and into the valley. 
+It lurks in the shadow of the mountain, and in my cousin’s memory. I’ve tried to ignore it, and ignore her. I understand her, somehow, and I don’t want to know the reason, but I can’t keep on pretending like I don’t, because this valley is my home and I want to stay, but something is encroaching, creeping out of the darkness and into the light. 
 
 I can hear it, calling out for me, in those same strange buzzing words my cousin speaks, from somewhere deep in the mountain forest.
