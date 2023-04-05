@@ -75,3 +75,5 @@ The photograph was of *me*. Me, sitting on my living room couch, wearing the shi
 I knew instantly where the photo had been taken.
 
 The photo had been taken through the camera in my smart TV.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/12cowy0/i_live_a_lowtech_life_now_for_a_reason_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
