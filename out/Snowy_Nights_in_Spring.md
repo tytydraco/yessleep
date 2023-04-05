@@ -36,7 +36,7 @@ And then, she isn’t cold anymore. She is warm, as if the snow surrounding her 
 
 A strange voice awakens her. Is it a soldier that’s caught up? 
 
-She opens her eyes, no longer frozen, and sees that the thing looming over her it is not a soldier, or a man, nor any earthly beast, though it reminds her of a stag. It also reminds her of a stone cathedral, immense and imposing, with glowing windows and pointed spires. Emanating from it is a heat that melts her snowy bed, and a scent like fresh cut lilacs and rotten meat.
+She opens her eyes, no longer frozen, and sees that the thing looming over her is not a soldier, or a man, nor any earthly beast, though it reminds her of a stag. It also reminds her of a stone cathedral, immense and imposing, with glowing windows and pointed spires. Emanating from it is a heat that melts her snowy bed, and a scent like fresh cut lilacs and rotten meat.
 
 It speaks to her, in strange words that she’s never heard, and yet, she understands. It tells her it’s a friend, and offers to carry her home. She tells it, in those same strange words, that her home was destroyed. It asks if there’s another place for her to go. She tells it her mother was taking her to her uncle’s farm in the valley on the other side of the mountain.
 
@@ -56,7 +56,7 @@ Mama responds with screams and wails. She struggles to break free, but the thing
 
 Looking up to her mother dangling above, she sees that mama’s face is contorted into an expression of absolute terror. A single tear drops from her mother onto her forehead.
 
-Like a butcherbird does to its prey, the thing skewers mama with its crown of antlers. Hot blood rains down on her, soaking into her hair and clothes and warming her skin. She tries to scream, to call to her mother, but her voice is like a beehive. 
+Like a butcherbird does to its prey, the thing skewers mama with its crown of antlers. Hot blood rains down on her, soaking into her hair and clothes, warming her skin. She tries to scream, to call to her mother, but her voice is like a beehive. 
 
 That moment on, everything’s black, until the barn door creaks open, dousing her in morning light and revealing her bewildered uncle. 
 
