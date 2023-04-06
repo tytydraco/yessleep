@@ -1,6 +1,6 @@
 [Part I](https://www.reddit.com/r/nosleep/comments/12c9o2i/a_golden_ticket_to_undehael_part_1_of_3/)
 
-Part II
+# Part II
 
 Dank air filled my lungs as I moved down the ladder.
 

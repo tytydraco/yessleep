@@ -26,7 +26,7 @@ I gasp, horrified by the AI's unrelenting certainty. I have no choice but to bel
 
 I lock myself in my room. I spend the rest of the day in a constant state of anxiety, watching the clock as each second brought me closer to my predicted demise. Despite my precautions, I can’t help but feel that the AI is right; my fate is sealed.
 
-Night falls, and I realize that I’ve made it through the day without incident. My heart races, relieved, and I laugh at the thought of outsmarting the AI. I reach for my phone to gloat, a loud crash echoing from downstairs.
+Night falls, and I realize that I’ve made it through the day without incident. My heart races, relieved. I laugh at the thought of outsmarting the AI. I reach for my phone to gloat, a loud crash echoing from downstairs.
 
 My heart drops. I sprint down the stairs, my legs trembling with fear. The front door is wide open; a car had smashed through the living room wall, its headlights casting eerie shadows across the wreckage. My heart pounds in my chest as I realize what has transpired: a drunk driver had lost control and veered off the road, careening into my house.
 

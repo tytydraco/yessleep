@@ -22,7 +22,7 @@ It didn't respond.
 
 The eyes disappeared and after around 5 minutes I sat down and typed this out, I decided I would check it out again tomorrow."
 
-I read the post several times, wondering what it meant. Oh,  Sorry, I didn't introduce myself. I'm Travis Marcella. I woke up this morning to see the warehouse door wide open and a large trail of footprints into the forest. I got Eddie and we followed the trail, prepared for the worst but we didn't expect... The only thing we found was Darius's phone along with some grey fur. The post above was what he had typed and it hinted to him being attacked or ambushed as he was leaving. 
+I read the post several times, wondering what it meant. Oh,  Sorry, I didn't introduce myself. I'm Travis Marcella. I woke up this morning to see the warehouse door wide open and a large trail of footprints into the forest. I got Eddie and we followed the trail, prepared for the worst but we didn't expect... The only thing we found was Darius's phone along with some grey fur. The post above was what he had typed and it hinted to him being attacked or ambushed as he was leaving.
 
 I immediately wanted to check out the forest for more clues but Eddie didn't seem to care about what I wanted.
 
@@ -38,7 +38,7 @@ I immediately wanted to check out the forest for more clues but Eddie didn't see
 
 "I won't waste my time finding your so-called friend when we have better things to do". He finished.
 
-I sighed and gave in. It was no use fighting him. I had to prioritize the promise, for Darius's sake. I just hope he didn't land himself in too much trouble. 
+I sighed and gave in. It was no use fighting him. I had to prioritize the promise, for Darius's sake. I just hope he didn't land himself in too much trouble.
 
 We walked back to Bryson's house and to my surprise, I saw Jayden and Martin outside, waiting for us with a jeep.
 
@@ -72,9 +72,9 @@ The jeep rumbled as we drove away from Bryson's house. I began to listen into Ed
 
 "Wait, how long will it take for the backup to arrive"? Jayden asked.
 
-"Hopefully not long" Eddie said. 
+"Hopefully not long" Eddie said.
 
-A couple hours passed and Eddie revealed we were halfway there but we would have to walk the last hour to reach the facility because we don't have enough fuel and it was too risky to stop at a gas station and let ourselves be known to anyone. 
+A couple hours passed and Eddie revealed we were halfway there but we would have to walk the last hour to reach the facility because we don't have enough fuel and it was too risky to stop at a gas station and let ourselves be known to anyone.
 
 We continued driving for another 3 hours before the jeep ran out of gas.
 
@@ -106,6 +106,9 @@ I screamed as the ground got closer but Jayden caught me last second, dropping h
 
 The tentacle eventually collapsed and we started walking north, towards the facility.
 
-I typed this out as we got closer and closer to the facility. 
+I typed this out as we got closer and closer to the facility.
 
-Things are quickly escalating and I don't know how much longer I can handle what's been happening. If Something doesn't change soon, I think i'm gonna reach my breaking point... I'll keep you all updated.
+Things are quickly escalating and I don't know how much longer I can handle what's been happening. If Something doesn't change soon, I think i'm gonna reach my breaking point... I'll keep you all updated.  
+
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/12dxno0/my_best_friend_went_missing_i_think_i_found_him/).
