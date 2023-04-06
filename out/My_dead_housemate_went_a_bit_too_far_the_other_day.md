@@ -21,3 +21,5 @@ My legs started working again sometime after the shower turned on. I didn’t wa
 Something had JM hoisted in the air above the bathtub. One of his now engorged hands flailed, making a slapping sound against he wall. The other was engaged in a battle against the shower head that had been wedged into his mouth. A rivulet of light red water poured from a tear in his cheek. His skin continued to stretch, turning shiny and translucent, not unlike a water balloon. 
 
 I pulled the shower curtain shut stepped out.
+
+Final update [here](https://www.reddit.com/r/nosleep/comments/12ctmov/my_dead_housemate_went_a_bit_too_far_the_other/).
