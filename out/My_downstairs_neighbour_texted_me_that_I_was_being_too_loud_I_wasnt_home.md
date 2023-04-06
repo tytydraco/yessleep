@@ -71,3 +71,5 @@ I ran my hand through my hair. I felt disoriented in a way that no amount of alc
 Completely confused, I managed to stutter a quick “oh… okay…” before I heard her hang up the phone. 
 
 Suddenly, I felt something fall onto my head. It was a sock.
+
+UPDATE: This has gotten a lot more attention than I expected. There will be a part 2. Thanks for all of your comments.
