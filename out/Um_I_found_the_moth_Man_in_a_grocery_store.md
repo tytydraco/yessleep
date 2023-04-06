@@ -59,7 +59,7 @@ At the police station, I told them everything I've seen and heard. They were thi
 
 "Now sir, GET OUT OF HERE before I bring you to court as you are messing around with the OPD"
 
-So I just left the police department, guess Daniel is no longer alive, moth Man has annihilated him then. With a face full of fear with all the thing that have happened in a day.  I just went straight to the airport. Get on my plane and fly to California.
+So I just left the police department. With a face full of fear with all the thing that have happened in a day.  I just went straight to the airport. Get on my plane and fly to California.
 
 I opened my computer and see the Reddit post I wrote years ago. I just write the things I experienced to day in it, at the same time reading the lines I wrote before. I relieve as I'm not living there no more by then I, is that moths on the plane wing?
 
@@ -86,4 +86,4 @@ At that moment, I knew I got in a BIG trouble
 
 "Yep"
 
-So the police just tell me I gonna be free until the moment they call me for interview. When they left. I fall into mental breakdown, not be cause I found Daniel died body, but moth man give the box to me before I encounter the man in grocery store. So... Who the dude I met? ...
+So the police just tell me I gonna be free until the moment they call me for interview. When they left, I collapse on the couch, not be cause I found Daniel died body, but moth man give the box to me before I encounter that Daniel in grocery store. So... Who the dude I met? ...

@@ -1,3 +1,13 @@
+&#x200B;
+
+[Part II](https://www.reddit.com/r/nosleep/comments/12dbdmw/a_golden_ticket_to_undehael_part_2_o_3/)
+
+&#x200B;
+
+# Part I
+
+ 
+
 Heroin
 
 The Mistress of Ruin.
@@ -22,11 +32,7 @@ And she’s not alone. It won’t be long now before everything changes forever.
 
 My name is Angelo Moretti, and this is my story of sobriety. From H, and from everything I thought I knew about the world.
 
-&#x200B;
-
 This is how I found the city of Undehael.
-
-&#x200B;
 
 I hadn’t been on the streets for more than a couple of days, and yet I was too high to plan for the negative twenty-degree windshield that had begun to blow in from the Northwest, and the shelters had filled their vacancies long before my eyelashes had begun to freeze. I received a tip about an alley that had a little tucked-away corner that was out of the wind. When I got there, some other homeless smackheads had already nestled in (probably from the same tip – our street dealer) and had lit some trash fires inside a few metal barrels. That way, they could warm their hands enough to guide needles into veins without too much of a fuss.
 
@@ -195,3 +201,9 @@ Visible from the opening was the top rung of a rusted metal ladder, and sweet Je
 They had dismissed me for mad. At the time I had thought they were likely right, but I didn’t much care. The heat I felt on my skin felt real enough, and even if this was my end, it was better than dying in misery.
 
 I crawled into the hatch… and descended.
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
