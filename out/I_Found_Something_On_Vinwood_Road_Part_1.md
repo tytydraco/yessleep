@@ -40,21 +40,21 @@ I stumbled into the kitchen half asleep, and Baron was just facing the back door
 
 Nothing.
 
-It was just pitch black nothingness out there. I started to calm down, and so did Baron while I petted him. I was still so sick, and was so tired. All I needed was just a good night's sleep. I wasn't mad at Baron though. I just assumed that the storm picked back up and that the wind might have knocked a tree limb down on the roof and scared him. I patted him on his head and he finally relaxed. He went to the door and started whining the way he does when he needs to piss again. "Okay...last time for the night."  I said as I unlatched the locks and opened the backdoor. He jetted out past me, off the porch and into the dark again. I was already awake, so I figured I might as well change that busted light. I put the flashlight back in that same kitchen drawer and grabbed a new 100 watt bulb. It was still freezing cold with a terrible chill blowing, and the ice on the porch was freezing my slippers to the bottoms of my feet. Without letting the door shut, I unscrewed the blown bulb and screwed in the new one as the light came on. I went to turn, and out of nowhere, the smell of that rotten dead deer hit me in the face like I was back on Vinwood Road. This time it was worse. What the hell? I said to myself. Then I went to turn and slipped on the ice. I almost fell again before catching myself on the wood railing. Then a blistering cold wind picked up and came through so hard that it pulled the door closed hard enough to slam it shut. The storm just kept getting worse. I caught my balance, and I was pissed off that I said screw it and was going back inside out of this bitter cold.
+It was just pitch black nothingness out there. I started to calm down, and so did Baron while I petted him. I was still so sick, and was so tired. All I needed was just a good night's sleep. I wasn't mad at Baron though. I just assumed that the storm picked back up and that the wind might have knocked a tree limb down on the roof and scared him. I patted him on his head and he finally relaxed. He went to the door and started whining the way he does when he needs to piss again. "Okay...last time for the night."  I said as I unlatched the locks and opened the backdoor. He jetted out past me, off the porch and into the dark again. I was already awake, so I figured I might as well change that busted light. I put the flashlight back in that same kitchen drawer and grabbed a new 100 watt bulb. It was still freezing cold with a terrible chill blowing, and the ice on the porch was freezing my slippers to the bottoms of my feet. Without letting the door shut, I unscrewed the blown bulb and screwed in the new one as the light came on. I went to turn, and out of nowhere, the smell of that rotten dead deer hit me in the face like I was back on Vinwood Road. This time it was worse. What the hell? I said to myself. Then I went to turn and slipped on the ice. I almost fell again before catching myself on the wood railing. Then a blistering cold wind picked up and came through so hard that it pulled the door closed hard enough to slam it shut. The storm just kept getting worse. 
 
 I called for Baron to get his ass back inside. Then I thought about locking him out for the night because it smelled like he must have pulled that stained jacket out of the dumpster. Probably why he didn't come to me earlier, he was smelling that blood.
 
 I turned the door knob and thankfully it wasn't locked or jammed.
 
-Then I thought, if that was the case, then wouldn't have reeked of that horrible odor then?
+Then I thought, if that was the case, then wouldn't Baron have reeked of that horrible odor earlier?
 
 I saw myself in the reflection of the glass, and standing behind me past my right shoulder was a large black mass and big white eyes looking at me.
 
-I was frozen. It was still very dark in my backyard, but I could barely make out the details of it. Those eyes gave it away, like it had finally got curious enough to  get a closer look at me. I was too scared to move. Too scared to think. Seconds went by like minutes as everything I thought I knew about time ceased to make any sense at all. It was just standing there more still than I was. What the hell was it? and what was it doing? It was deathly quiet; I couldn't hear it breathing or anything like that. It was big and tall, definitely taller than I was. I could make out what looked like tree branches coming out of its head. Then I realized they were antlers. This could not have been the same thing I pulled off the road, I thought. And those eyes stared at me wide and bright. Unblinking. Unflinching. Focused.
+I was frozen. It was still very dark in my backyard, but I could barely make out the details of it. Those eyes gave it away, like it had finally got curious enough to get a closer look at me. I was too scared to move. Too scared to think. Seconds went by like minutes as everything I thought I knew about time ceased to make any sense at all. It was just standing there more still than I was. What the hell was it? and what was it doing? It was deathly quiet; I couldn't hear it breathing or anything like that. It was big and tall, definitely taller than I was. I could make out what looked like tree branches coming out of its head. Then I realized they were antlers. This could not have been the same thing I pulled off the road, I thought. And those eyes stared at me wide and bright. Unblinking. Unflinching. Focused.
 
-It might not have realized that I saw it in the glass and was just being still so it could follow me inside. Or maybe It did know, and It was just waiting for me to make a move.
+It might not have realized that I saw it in the glass and was following me inside, and It was just waiting for me to make a move.
 
-Either way, It was plain dumb luck that that strong wind came through and pulled the door shut. That was the only reason I am alive right now.
+Either way, It was plain dumb luck that that strong wind came through and pulled the door shut; maybe it was the only reason I am alive right now.
 
 I had my hand on the doorknob and was getting ready to swing it open.
 
@@ -66,39 +66,35 @@ one...two...
 
 and then I heard a whining from just behind me. I took my eyes off of it for a second, and I saw Baron crawling up the steps. His jaw was broken. And then I looked back at the window, and It was upon me.
 
-I smashed my shoulder into the door and it flung open as I lurched myself through it and somehow got it back shut, and the locks latched with a precision that I didn't know I was capable of.
+I smashed my shoulder into the door and it flung open as I lurched myself through it and somehow got it back shut, and the locks latched.
 
-I grabbed the biggest kitchen knife I owned before looking out the window again. Baron was looking at me through the window, looking to me for help.
+I grabbed the biggest kitchen knife I owned before looking out the window again. Baron was looking at me through the window; looking to me for help.
 
-It seemed like he didn't know where he was. Like he was concussed. My heart ripped in half seeing him like that. He started the door knob to go back out there and get him...and then he was pulled off of the porch steps as he clawed into the wood in vane.
-
-"What the hell..." I said to no one as I turned away.
+It seemed like he didn't know where he was. Like he was concussed. My heart ripped in half seeing him like that. I started to go back out there and get him...and then he was pulled off of the porch steps as he clawed into the wood.
 
 There was no way that thing was just a glint in the glass or some hallucination from hitting my head. Hallucinations don't smell like that, and they definitely don't do that to dogs.
 
-It took Baron right in front of my eyes, and It was going to take me too.
+It just took Baron, right in front of my eyes.
 
-The backyard was only slightly more illuminated from the back porch light.
+The backyard was only slightly more illuminated from the porch light.
 
-I backed away from the door keeping my eyes on the window. Then the porch light went out again at the same time I heard the bulb break. It knew that I couldn't see it as long as it was dark.
+I backed away from the door, keeping my eyes on the window. Then the porch light went out again at the same time I heard the bulb break. It knew that I couldn't see it as long as it was dark.
 
-I was clinching the handle of the knife just waiting for It to break through the door. Then, If my luck wasn't already bad enough, everything  went in my house as all the lights and electricity suddenly shut off. The must storm knocked it out. Or maybe somehow It did it. I don't know for sure. I did my best to not panic while I felt my way around in the dark until I found the drawer with the flashlights. The light came on in my hand and I turned to go down the hall and into my bedroom. I grabbed my emergency bag that had a change of clothes and some other things. I got dressed and grabbed the car keys and I slipped the kitchen knife under my belt. I cracked the front door and peeked out, looking for those eyes somewhere in the dark. The coast seemed clear and I ran through the ice storm that was now in full swing.
+I was clinching the handle of the knife just waiting for It to break through the door. Then, If my luck wasn't already bad enough, all the lights and electricity suddenly shut off. The storm must have knocked it out. Or maybe somehow that thing did it. I don't know for sure. I did my best to not panic while I felt my way around in the dark. I got a flashlight on and I turned to go down the hall and into my bedroom. I grabbed my emergency bag that had a change of clothes and some other things. I got dressed and grabbed the car keys and I slipped the kitchen knife under my belt. I cracked the front door and peeked out, looking for those eyes somewhere in the dark. The coast seemed clear and I ran through the ice storm.
 
-I got to my car and cranked it on. But I couldn't bring myself to leave yet. I had to at least try to call for Baron. I rolled the car window down and called for him, the whole time I was ready to floor it if that thing came running from around the house instead. I was terrified, but I didn't want to leave my best friend here alone with that thing. I was just about to give up. I thought about just coming back with the Cops and that that would be the best thing to do. Then I heard Baron yelping like he was in pain. I couldn't do it. I wasn't leaving him here to die.
+I got to my car and cranked it on. But I couldn't leave yet. I rolled the car window down and called for Baron, but I was ready to floor it if that thing came running from around the house instead. I was terrified, and I was just about to give up. I thought about just coming back with the Cops and that that would be the best thing to do. Then I heard Baron yelping like he was in pain. I couldn't do it. I wasn't leaving him here to die.
 
 I got out of the car and ran as fast as I could back to the house, Yelling at the top of my lungs for him to run away from it. His yelps turned into screams of pure agony. I screamed as hard as I could at whatever that goddamn thing was, “LEAVE MY DOG ALONE YOU SON OF A BITCH!”
 
 The whole time, the wind was blowing hard and I was also hearing loud cracking sounds. I got back inside the front door and closed it behind me. I shined my light, and saw something new. The back door was open. It looked like it had been kicked open. I pulled the knife from my belt and held it up ready to stab anything that came near. I smelled that familiar stink. That thing definitely came inside my house, and I could see the other side of the backdoor was dirty from where It broke in.
 
-I quietly stepped through my living room heading to the kitchen, whispering for Baron the whole time. I got to the kitchen and realized it was the same dead blood and filth from Road smeared on the door.
+I quietly stepped through my living room heading to the kitchen, whispering for Baron the whole time. I got to the kitchen and realized it was the same dead blood and filth from the Road, smeared all over the door.
 
-I can remember that very well. In time, I like to think that I will get over many of the things I saw that night with enough therapy and meds.
+I remember that very well. In time, I like to think that I will get over many of the things I saw that night with enough therapy and meds. But I know that that's not possible anymore. What I found lying in the darkness beyond my back porch, was something that I will never, ever, be able to unsee. I tried to forget. I tried so hard to forget. But I can't. And maybe now, I shouldn't.
 
-But I know that that's not possible anymore. What I found lying in the darkness beyond my back porch, was something that I will never, ever, be able to unsee. I tried to forget. I tried so hard to forget. But I can't. And maybe now, I shouldn't.
+Broken glass crackled under my shoes as I stepped through the doorway. I turned my flashlight on and saw that the new bulb was shattered, and the screw in part was still in the socket. I shined the light in the backyard, and I didn't see any immediate danger. I had to find Baron. So I stepped out further, and then that cheap flashlight went out. I stood petrified. I couldn't see two feet in front of my face. The freezing cold wind settled once more into a silence, and for a moment, it was like I didn't exist anymore. And you know, that has to be what Hell itself is like; just trapped in suspended terror as your loudest most tortured screams reach no one. And you stay like this, forever.
 
-Broken glass crackled under my shoes as I stepped through the doorway. I turned my flashlight on and saw that the new bulb was shattered, and the screw in part was still in the socket. I shined the light in the backyard, and I didn't see any immediate danger. I had to find Baron. So I stepped out further, and then further, and then that damn cheap flashlight went out. I stood petrified. I couldn't see two feet in front of my face. The freezing cold wind settled once more into a silence, and for a moment, it was like I didn't exist anymore. And you know, that has to be what Hell itself is like, now that I think about it: Being trapped in a purgatory, trapped in suspended terror forever, as your loudest most tortured screams, reach no one.
-
-I held the knife high over my head the whole time, stumbling through the dark. Despite no signal, I realized the light of my phone would still work. I pulled it from my pocket and as I turned the led light on, the ice storm picked up fast and brought with it the hardest and most freezing cold wind yet. It was so strong it nearly blew me away as I fell to the ground. I heard something snap really loud and looked all around me with the phone light ready to stab at anything. And then right in front of me was that old tree toppling over onto my house. It crashed right through my bedroom. Ice came raining down all over me as I covered my eyes, and all I could hear was the wind screaming through the woods all around me. It was deafening. I felt I was going insane. I had to get out of there. I crawled on all fours, until I found the steps going up the porch. But then, next to it, was something that I failed to see before, lying on the icey wet ground. It was Baron.
+I held the knife high over my head the whole time, stumbling through the dark. Then it dawned on me that despite not having a good signal to call for help, I realized the light of my phone would still work. I pulled it from my pocket and as I turned the led light on, the ice storm picked up fast and brought with it the hardest and most freezing cold wind yet. It was so strong it nearly blew me away as I fell to the ground. I heard something snap really loud and looked all around me with the phone light, and I was ready to stab at anything. And then right in front of me, it was that old tree toppling over onto my house. It crashed right through my bedroom. Ice came raining down all over me as I covered my eyes, and all I could hear was the wind screaming through the woods all around me. It was deafening. I felt I was going insane. I had to get out of there. I crawled on all fours, until I found the steps going up the porch. But then, next to it, was something that I failed to see before, lying on the icey wet ground. It was Baron.
 
 I cannot describe here exactly what was done to him, because one: I doubt that there is any (none darkweb) blog or forum that would allow it.
 
@@ -124,7 +120,7 @@ He pulled his phone out and showed me pictures of what looked to be dead deer.
 
 He said that his higher ups told his station to try to keep things quiet. He said that none of the dead deer they had found died of blue tongue; they had all been killed by strangulation or blunt trauma to the head. In the pictures, most of the deer looked like the ones I saw in the back of his truck that just had marks around their necks. But then a few of them looked like they had been partially devoured at the throat. And then one of them had been decapitated. We don't have predators like Bears around these parts, and it wasn't legal to hunt game in Vinwood either. Even more, he said there had been 23 animals found dead in Vinwood within the last 2 weeks alone. Mostly deer, a few foxes, some cats, and even stray dogs. All of which were found in varying conditions. Then he said that the description I gave of Baron's body matched the conditions of the stray dogs.
 
-As he said that, I could smell that Thing again like it was in the room with us. Then I realized it was coming from him. He reeked of it.  He wasn't lying. He had encountered it too.
+As he said that, I could smell that Thing again like it was in the room with us. Then I realized it was coming from him. He reeked of it. He wasn't lying; he saw it too.
 
 I was shaking. I spent weeks living in this motel like it was a padded cell in an insane asylum. Finally it was Flint who confirmed my sanity, that there is something out there in Vinwood. I knew that he couldn't say what. But it was real. That night I found it on the road. Then it followed me home. It tried to kill me. And then what it did to Baron...
 
@@ -132,13 +128,13 @@ I told him how I found it in the middle of Vinwood Road. I told him everything. 
 
 "I thought it was dead. I pulled its rotten head off."
 
-Then he said, "No, that wasn’t his...It's head. You see, It likes to wear the deer. Typically the antlered bucks." He seemed so repulsed just thinking about it. He had seen more than what I had. And that pissed me off.
+Then he said, "No, that wasn’t his...It's head. You see, It likes to wear the deer. Typically the antlered bucks." He seemed so repulsed just thinking about it. He had seen more than what I had. 
 
-"Flint, you saw it didn't you...you know that it was out there, and you still let me drive home…How could you not tell me?"
+"Flint, you saw it didn't you...you knew that it was out there, and you still let me drive home…How could you not tell me?"
 
 "Hey I didn't know what the hell it was. I don't know what it is now. And I could lose my job for just telling you that!"
 
-"You called it, He…so what is He?"
+"You called it, 'He'…so what is He?"
 
 He just looked down, unable to look me in the eyes anymore.
 
@@ -146,21 +142,19 @@ He just looked down, unable to look me in the eyes anymore.
 
 He turned to leave again.
 
-"What about the stray dogs? He did the same thing to them that he did to Baron.
-
-Why did he do that to my dog?"
+"What about the stray dogs? He did the same thing to them that he did to Baron. Why did he do that to my dog?"
 
 He opened the door and stepped out.
 
 "Flint!"
 
-He turned around and  finally looked me in the eyes and he said this as he closed the door,
+He turned around and finally looked me in the eyes and said this as he closed the door,
 
 "My guess...He likes dogs in a worse way."
 
 Before I settled down to write this post, I made a few phone calls to my neighbors on Vinwood Road. Our houses weren't very close, but it's possible they might have seen or heard something.
 
-Mrs. Temple was the only one that answered. She was very old and lived alone. Sometimes I'd take her some food whenever I had leftovers. Despite her age she was still pretty coherent and friendly. I asked her if She had seen or heard anything weird around her house within the last few weeks.
+Mrs. Temple was the only one that answered. She was very old, and lived alone. Sometimes I'd take her some food whenever I had leftovers. Despite her age she was still pretty coherent and friendly. I asked her if She had seen or heard anything weird around her house within the last few weeks.
 
 and she said this,
 
@@ -170,13 +164,17 @@ Well hell Anyway...I would come out here on the porch with Harold's old Remingto
 
 "Vince?"
 
-"Ye, that's what she took to callin him. Ya know Tammy, who lives with her husband up on the ridge? Ye, she'd been seeing him too. Longer than I'd been.  Heard her refer to em as Vince, a few times. Ain't too sure as to what that infers, and I ain't too sure that I want to know more bout it than that."
+"Ye, that's what she took to callin him. Ya know Tammy, who lives with her husband up on the ridge? Ye, she'd been seeing him too. Longer than I'd been. Heard her refer to em as Vince more than a few times. Ain't too sure as to what that infers, and I ain't too sure that I want to know more bout it than that."
 
 I'm glad that I called Mrs. Temple. I also got her son's number and texted him that he might want to get his mother out of Vinwood for a while.
 
-Tomorrow, I think I'll pay a visit to Tammy Arnolds. I didn't know her very well, but she had apparently seen enough of Vince, to give It a name.
+Tomorrow, I think I'll pay a visit to Tammy Arnolds. I didn't know her very well, but she had apparently seen enough of "Vince" to give It a name.
 
-Okay...So If the rangers won't do anything about Vince, then I will. For Baron...
+And If the rangers won't do anything about "Vince" then I will. 
+
+For Baron...
+
+&#x200B;
 
 If anyone reads this: Thank you for listening.
 
