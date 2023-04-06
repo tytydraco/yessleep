@@ -1,7 +1,7 @@
 [Link to Part 1](https://www.reddit.com/r/nosleep/comments/122e2yc/my_ex_thinks_his_house_is_haunted_and_wants_me_to/)  
 [Link to Part 2](https://www.reddit.com/r/nosleep/comments/1263zt5/investigating_the_ghost_experiments_with_my_ex/)
 
-Hey everyone! I appreciate your interest, and apologise for taking a few days to get this latest update out. It’s been a crazy few days, and there’s so much to catch you up on. Forgive me, I’m currently writing this at the hospital over their crappy Wi-fi, but I hope to get at least one update out per week.
+Hey everyone! I appreciate your interest, and apologise for taking a while to get this latest update out. It’s been a crazy few days, and there’s so much to catch you up on. Forgive me, I’m currently writing this at the hospital over their crappy Wi-fi, but I hope to get at least one update out per week.
 
 >“Jared,” I stated. “Your house is fucking haunted.”
 
@@ -17,11 +17,9 @@ We know that at 3:24am, without fail, an ear-shattering knocking sound rips thro
 
 My thinking was interrupted by Jared, who had to go to work soon. We worked out a basic initial plan, which goes thusly:
 
-We are going to leave the house for a few days. Jared and Jenny will stay with Simon at Jenny’s sister’s place, and I’ll stay at the motel I mentioned in Part 1. This will act as a control. Does anything occur when we’re not in the house? We’ll be monitoring the security footage remotely.
-
-I’ll be pouring salt around the edges of furniture to mark any movement, and putting thin pieces of thread in every drawer, closet, and door. If they’re opened, the thread should fall to the ground, indicating movement. Thanks to Jenny, we have a lot of thread on hand.
-
-We’ve gone ahead, and ordered several new thermal cameras, of various brands. They’ll take a few days to arrive (No same-day shipping on the Island), but once they do we’ll be setting them up in tandem with our existing thermal camera. This should rule out any camera issues if we’re able to capture the Shadow Man on a variety of different devices.
+1. We are going to leave the house for a few days. Jared and Jenny will stay with Simon at Jenny’s sister’s place, and I’ll stay at the motel I mentioned in Part 1. This will act as a control. Does anything occur when we’re not in the house? We’ll be monitoring the security footage remotely.
+2. I’ll be pouring salt around the edges of furniture to mark any movement, and putting thin pieces of thread in every drawer, closet, and door. If they’re opened, the thread should fall to the ground, indicating movement. Thanks to Jenny, we have a lot of thread on hand.
+3. We’ve gone ahead, and ordered several new thermal cameras, of various brands. They’ll take a few days to arrive (No same-day shipping on the Island), but once they do we’ll be setting them up in tandem with our existing thermal camera. This should rule out any camera issues if we’re able to capture the Shadow Man on a variety of different devices.
 
 Jared left for the day, and I got to work putting the plan into action. After carefully placing threads, and pouring salt, I locked up the home with the spare key, and left for the day. I decided to head to the coffee shop where I FaceTimed Sara in Part 2.
 
@@ -31,7 +29,7 @@ Before carrying on, I’d like to take a beat to answer some common questions. I
 
 **Q: Are you going to show us your YouTube channel, or recent ghost footage?**
 
-A: Not yet. It’s important to remember that I’m a forensic analyst (Albeit one looking for a job), and Jared is a RCMP Corporal who would like to be able to support his family. If we release our findings at this early stage, without peer review or further analysis, that could be commit career suicide.
+A: Not yet. It’s important to remember that I’m a forensic analyst (Albeit one looking for a job), and Jared is a RCMP Corporal who would like to be able to support his family. If we release our findings at this early stage, without peer review or further analysis, we could be committing career suicide.
 
 **Q: Are you going to call a priest, rabbi, imam, medium, psychic, or “real ghost hunters” now that you’re convinced something supernatural is happening?**
 
@@ -57,7 +55,9 @@ A: Great question! As of yet, we don’t know, but that leads me to the next dev
 
 I mentioned previously that I had a friend that specialises in Forensic Audio, let’s call him Owen. Owen and I consulted a number of times at the lab. We had an excellent working relationship because Owen, much like myself, didn’t take himself too seriously. We both respected the importance of the work though, so we got along famously. Shortly after locking up at the house, my phone buzzed. I received an email reply from Owen:
 
-To: MarnieFrom: OwenSubject: Re: Knocking Sounds
+To: Marnie  
+From: Owen  
+Subject: Re: Knocking Sounds
 
 Hey Marnie!
 
@@ -71,7 +71,8 @@ It barely registers inside the house, but if you check the “BackYard2” surve
 
 Hope that helps!
 
-Cheers,Owen
+Cheers,  
+Owen
 
 \---------------------------------
 
@@ -141,7 +142,7 @@ Someone is whispering in Jared’s backyard, in the middle of the night.
 
 # The Motel
 
-After emailing my alarming findings to Jared, I drove to my motel to check in. I was relieved to see a clean, well-kept little building, and a series of connected wooden cabins parked in front of a thick treeline. It’s very Pacific Northwest.
+After emailing my alarming findings to Jared, I drove to my motel to check in. I was relieved to see a clean, well-kept little building, and a series of connected wooden cabins parked in front of a thick tree line. It’s very Pacific Northwest.
 
 I met the motel’s lovely manager, Wendy, an unfiltered, plaid-wearing free spirit of a woman. Wendy was initially concerned as I had connected with her as a part of a safety-escape plan. Once I made it clear that I was safe, she opened up about all sorts of things. She talked about things to do in town, her relationships, and I found out she even knew Jared and Jenny. She called Jared “a fine piece of ass” (again, unfiltered) and told me some things about Jenny’s family I didn’t know. Jenny’s family has lived in town for a few generations, and Wendy used to go to school with Jenny’s mom. Apparently she was a very nice woman, who passed away from cancer a few years ago, leaving the house to Jenny’s older sister Heather.
 
@@ -215,4 +216,4 @@ I don’t remember what I told the first responders, or the RCMP. Jared was take
 
 I am terrified.
 
-EDIT: Formatting.
+EDIT: Formatting. x2 

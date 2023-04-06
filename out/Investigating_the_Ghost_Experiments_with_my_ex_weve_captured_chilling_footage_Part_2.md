@@ -165,3 +165,7 @@ Jared and I stared at each other for a moment. He collected himself.
 “In my professional opinion?” He nodded.
 
 “Jared,” I stated. “Your house is fucking haunted.”
+
+&#x200B;
+
+EDIT: [Link to Part 3](https://www.reddit.com/r/nosleep/comments/12cw0mh/the_ghost_experiments_someone_is_whispering_in/)

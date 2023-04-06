@@ -12,7 +12,7 @@ The hatch slammed shut above me, suddenly and furiously, snatching the grey wint
 
 I rolled over and propped to my knees to get my bearings.
 
-Lamps fixed upon stone walls, their incandescent bulbs offering dim, warm light that revealed both mine and the other side of what seemed to be some sort of canal. Ahead of me about eighty or so feet – a causeway stretched over the water with domed shafts on either side.
+Lamps fixed upon stone walls, their incandescent bulbs offering dim light that revealed both mine and the other side of what seemed to be some sort of canal. Ahead of me about eighty or so feet – a causeway stretched over the water with domed shafts on either side.
 
 *That ticket… it said something about Under-- something, and Waterworks.*
 
@@ -38,7 +38,7 @@ The muffling of the distant echoes made it too hard to decipher their words, I c
 
 “ – Aye, the last time I was back in these ways I was chasing that damned Davies girl. Fuckin’ bitch slipped right out of me webs, she did,” A throaty voice said with an accent that wasn’t quite British.
 
-A tighter, scratchier voice replied, more distilled but still thick with that strange accent. “Been that long? I wonder where the Assembly put her to serve Ol’ Mari for being so naughty?” The voice spasmed an ugly titter that rebounded from the walls more harshly than the rest of their words.
+A tighter, scratchier voice replied, less muddied but still thick with that strange accent. “Been that long? I wonder where the Assembly put her to serve Ol’ Mari for being so naughty?” The voice spasmed an ugly titter that rebounded from the walls more harshly than the rest of their words.
 
 “I know where they put her.”
 
@@ -58,7 +58,7 @@ I pressed my back against the wet stone wall in a dim place that was in between 
 
 They passed the threshold and came into view on the causeway. They weren’t men at all.
 
-One stood large and broad and completely devoid of any hair. With clawed, webbed fingers, he held a strange and ornate lantern made of copper. His grey skin took his lantern light and wore it proudly with the sheen of an amphibian. Little ear holes burrowed in on the sides of his head. Thin lips and mouth much too wide to belong to any man’s rested below two, minor nostril slits.
+One stood large and broad and completely devoid of any hair. With clawed, webbed fingers, he held a strange and ornate lantern made of copper. His grey skin took his lantern light and wore it proudly with the sheen of an amphibian. Little ear holes burrowed in on the sides of his head. Thin lips and mouth much too wide to belong to any man’s hung below two, minor nostril slits.
 
 And above those -- beady, lidless black eyes with rings of flecked gold at their centers. They glimmered from the lantern’s light like ambers.
 
@@ -68,11 +68,11 @@ Both dawned olive-colored trench coats that looked like they were made out of vi
 
 Their long, rudder-like tails flittered from in between the tails of their coat seams and occasionally swept the floor.
 
-The bigger one held the lantern out in front of them and they peered into the dead-end corridor with inquisitive postures. “So, Twas you rubble, or a runner?” The smaller hollered to the dead-end corridor ominously, sealing the words with a mirthy hiss.
+The bigger one held the lantern out in front of them and they peered into the dead-end corridor inquisitively. “So, Twas you rubble, or another of the runners?” The smaller hollered to the dead-end corridor ominously, sealing the words with a mirthy hiss.
 
 Shadows had masked me for the moment, but I knew I didn’t have long. I thought about jumping across the canal, but fifteen feet? And without even a running start?
 
-I could jump in the water, I’d thought, but those creatures - those impossible things that could only exist in a child’s nightmare – seemed to be built for it.
+I could plunge into the water, I’d thought, but those creatures - those impossible things that could only exist in a child’s nightmare – seemed to be built for it.
 
 With nerves wire tight, I decided my best chance was to stay put I had been an impressive force ou I could talk my way out of it.
 
@@ -90,7 +90,7 @@ Upon my revealing myself, they looked at each other with mildly confused glances
 
 “I –don’t know what’s happening.”
 
-I held my palms outward, displaying open hands in an unconscious attempt to try to diffuse what didn’t seem like it was going to be a friendly encounter.
+I held my palms outward, displaying open hands in an unconscious attempt to diffuse what didn’t seem like it was going to be a friendly encounter.
 
 “HOW OLD ARE YE!” Burcher snapped at me with a guttural growl underneath that told me there was as least as much monster beneath the surface as there was man, and that monster was prone to anger.
 
@@ -144,7 +144,7 @@ I nodded.
 
 They straightened again and exchanged glances, looking as though they were deciding whether to be concerned.
 
-The smile that had taken a brief leave from Burcher’s thin lips curled back into place. “He didn’t do ye any favors by sending ye down here. And no, yer not dead. Although ye look like you should have done yer old world a favor. Some bag of shit, are ye. I can smell the stink of poison in those pores.”
+The smile that had taken a brief leave from Burcher’s thin lips curled back into place. “He didn’t do ye any favors by sending ye down here. And no, yer not dead. Although ye look like ye should have done yer old world a favor. Some bag of shit, are ye. I can smell the stink of poison in those pores.”
 
 “There is no death in Undehael, boy nevermore. Not for your kind.” The gold-flecked rings darted back and forth in calculation beneath Danforth’s hat brim. “We ought to take him to the Assembly, so they can figure out what to do with his claims on how he got here.” His hat wobbled for a moment as if something alive stirred underneath it. With a swift, catching grab he fastened it back down again.
 
