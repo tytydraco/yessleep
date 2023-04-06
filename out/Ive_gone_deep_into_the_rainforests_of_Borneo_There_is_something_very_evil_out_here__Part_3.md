@@ -135,3 +135,5 @@ She has bloodshot, wide eyes which stare deep into mine. Her face, her skin, is 
 She lifts Ketill’s her hand to her mouth and eats Ketill's innards. Blood trickles down her chin and drips onto the ground below. She tilts her head to the side, never breaking eye contact, before turning back to face Ketill.
 
 I turn and run back to the house as she stretches her hand back inside of him and [continues to feast.](https://www.reddit.com/r/squishycabbage/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/12dorq8/ive_gone_deep_into_the_rainforests_of_borneo/)
