@@ -308,7 +308,7 @@ It was always interesting to go into an alternate reality and look at the top ne
 At around 1 AM, I heard my name being called by a familiar deep voice.
 
 
-"You were supposed to die!" he said. "How are you still alive!?"
+"You were supposed to die!" Iann said. "How are you still alive!?"
 
 
 "I saw them pop out of nowhere… so I ran like hell."
@@ -320,7 +320,7 @@ At around 1 AM, I heard my name being called by a familiar deep voice.
 "Why not shoot me?" I asked, frustrated. "Why not end my life right now?"
 
 
-"True Nicole said you needed to be weighed down by the stuff going on in this reality," he said, resting his hand on his hip. "Either you are scared of the giants or you are killed by the giants."
+"True Nicole said you needed to be weighed down by the stuff going on in this reality," Iann said, resting his hand on his hip. "Either you are scared of the giants or you are killed by the giants."
 
 
 I stood up, slid my phone into my pocket, and walked away. I didn't think I was going to make it far without confrontation. A couple homes down, a pain hit my neck. Before I could process it, I woke up in the trunk of a car. All I could hear was the news. All I could feel was the car bumping up and down. All I could see, other than the interior of the trunk of course, was a light morning sky. One right before the sun rose above the horizon.

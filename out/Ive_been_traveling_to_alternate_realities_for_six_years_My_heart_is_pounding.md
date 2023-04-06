@@ -112,7 +112,7 @@ I looked around. "Did I really just… walk into another reality?"
 I stared at the spot on the ground my alternate self was just standing on.
 
 
-"He's not there. The police aren't outside…"
+"She's not there. The police aren't outside…"
 
 
 "What the hell? What even was all of that? At least I'm not in his reach. Hopefully, he didn't have a backup plan."
