@@ -2,8 +2,6 @@
 
 [Part II](https://www.reddit.com/r/nosleep/comments/12dbdmw/a_golden_ticket_to_undehael_part_2_o_3/)
 
-&#x200B;
-
 # Part I
 
  
@@ -26,7 +24,7 @@ One more even more sinister.
 
 One even more deadly.
 
-Because to know her is to know that we haven’t the slightest clue what goes on in the corners of our perceived existence. It’s there, in the dark depths of the mind, where she grows like a wild weed.
+Because to know her is to know that we haven’t the slightest clue what goes on in the corners of the world. It’s there, in the dark side of the mind, where she grows like a wild weed.
 
 And she’s not alone. It won’t be long now before everything changes forever.
 
@@ -40,9 +38,9 @@ Other than my makeshift recliner (a wadded-up comforter from my bed in the apart
 
 The dealer had given us some good shit. These people were professional dope fiends and by looking at them you would’ve thought the shit had melted all of the bones in their bodies from within as they all lay there in the grime. I was no different.
 
-I noticed a man sitting a few feet away from me whose back wedged into the corner where the brick walls met. He held his palm out at me in want of what I had in mine, and I gave a lazy toss of the hypodermic toward him. It bounced on its plunger before toppling short of his feet. I heard the metal of the needle scrape filthy asphalt. He picked it up and rolled his sleeve above the elbow without wiping it clean.
+I noticed a man a few feet away from me whose back wedged into the corner where the brick walls met. He held his palm out at me in want of what I had in mine, and I gave a lazy toss of the hypodermic toward him. It bounced on its plunger before toppling short of his feet. I heard the metal of the needle scrape filthy asphalt. He picked it up and rolled his sleeve above the elbow without wiping it clean.
 
-We never exchanged a single word, but his eyes had struck me. Dirt smeared his hard-lined face and a dark, scraggly beard covered much of his gauntness, but those eyes; they held a sharp intelligence in them I hadn’t seen on this low side of the world that I now inhabited.
+We never exchanged a single word, but his eyes had struck me. Dirt smeared his hard-lined face and a dark, scraggly beard covered much of his gauntness, but those eyes; they held a sharp intelligence in them I hadn’t seen on this low side of the world that was now my own.
 
 The dark eyes looked haunted. I'd guessed at the time that was why he was where he was, to fix that glint of despair; to dull some vague knowing of himself or his life he didn’t want to possess. It didn’t much matter.
 
@@ -54,7 +52,7 @@ As I regarded the dead man, the sudden, awful odor of ammonia filled the air. My
 
 Within the fading light of the alleyway, the silhouette of a tall, thin man in a blue suit grew larger as he walked closer to our little den. His shoes clicked echoes with each step that hung in the air. Some of the others had also begun to rouse from their highs, and groggy heads turned to regard the man.
 
-Once their eyes fixed themselves upon him, they rolled to the backs of their heads and their mouths froze open in silent screams. Their hands gnarled and curled at harsh angles before crumbling over rigid like a bunch of sleeping wasps.
+Once their eyes fixed themselves upon him, they rolled to the backs of their heads and their mouths froze open in silent screams. Their hands gnarled and curled at harsh angles before crumbling over rigid like a bunch of dead wasps.
 
 I tried to collect myself; tried to prop myself up on all fours to stand and run, but I was still too scagged to go anywhere.
 
@@ -64,9 +62,7 @@ Helpless to do anything else, I simply watched as he spoke to the dead junkie.
 
 He sighed, knelt to the corpse, and placed a tender hand on his chest. “I’m sorry. I wish you wouldn’t have held onto it for so long, but I’m sorry this is how it ended.”
 
-Another, quite different voice spoke that sounded like it also came from the man, although I couldn’t see his mouth moving as the new words filled the alley. Unlike the soft, slight voice that had come from the man’s mouth, this one was much harsher and much less refined.
-
-“Jee-Zus.” The voice said. “I mean I get it, but *he* had to have known the guy would fold like this. Why did *he* even have us give the ticket to him?”
+Another quite different voice spoke that sounded like it also came from the man, although I couldn’t see his mouth moving as the new words filled the alley. Unlike the soft, slight voice that had come from the man’s mouth, this one was much harsher and much less refined. “Jee-Zus.” The voice said. “I mean I get it, but he had to have known the guy would fold like this. Why did he even have us give the ticket to him?”
 
 The man stood to his feet, gave a sullen downward glance, and shook his head.
 
@@ -82,11 +78,11 @@ The disembodied voice croaked: “Holy shit. This one is still awake.”
 
 The man approached me in the dark and knelt. Shadows filled the hollows of his gaunt face. His nose looked prosthetic and was a little off-color in contrast with his manilla skin. Although he didn’t look old, dead maybe but not much more than in his mid-forties, his sheer gauntness carved clear outlines of two sets of dentures around the folds of his lips.
 
-He was horrible -- a walking nightmare.
+He was horrible -- a nightmare in a bad dream.
 
 I blurted an idiot moan of fear and tried to roll away from him.
 
-“Get the fuck away from me!” I muttered as I kicked my feet out, shuffling my body against the trash-laden wall. The man remained knelt there with one knee on the ground and an arm slung on the other with his hand dangling casually.
+“Get the fuck away from me!” I muttered as I kicked my feet out, shuffling my body against the trash-laden wall. The man remained knelt there with one knee on the ground and an arm propped on the other knee with his hand dangling casually.
 
 He looked deep into my eyes as the dead junkie had before he had sent himself into the endless night. This man's eyes, however, did not match the horror that was the rest of his face. I saw a tenderness in them; a deep sadness; a pity-filled knowing I couldn’t quite understand at the time. He reached a comforting hand out to place it on my ankle. I kicked it away and made a vain attempt to scurry further away.
 
@@ -98,7 +94,7 @@ Terror and confusion had overwhelmed me beyond the point of action. I just lay t
 
 “Alright, Moor. Let’s go home.”
 
-He turned around and walked back down the dark alleyway from the same direction he had come.
+He turned around and walked back down the dark alleyway in the same direction from which he had come.
 
 As he left, the patters of his shoes rang deep into my mind…
 
@@ -158,7 +154,7 @@ And hang on to the coin
 
 \*\*
 
-Underneath the writing was a round insignia that stuck out from the paper a few millimeters. In its center was the design of what looked to be at once an upturned, splayed man and a tree.
+Underneath the writing was a round insignia that stuck out from the paper a few millimeters. In its center was what looked to be at once an upturned, splayed man and a tree.
 
 I dropped the card and stammered backward. No words were in my mind. It was too filled with animal panic.
 
@@ -196,14 +192,8 @@ That’s how bad I was then.
 
 I held the ticket out, not knowing what to do with it. The hatch sprung open with a slow yawn and when I looked back at my hand, the ticket burnt away to ash and all that was left was a coin bearing that same insignia. I put it in my jacket pocket.
 
-Visible from the opening was the top rung of a rusted metal ladder, and sweet Jesus – that warmth again, stronger now and filled with life. A battle raged in my mind for a moment, and when I realized I had no choice, I turned one last time to yell for the others to join me. They offered me no more than a moment’s glance before going back to their terror and misery and doom.
+Visible from the opening was the top rung rusted metal ladder, and sweet Jesus – that warmth again, stronger now and filled with life. A battle raged in my mind for a moment, and when I realized I had no choice, I turned one last time to yell for the others to join me. They offered me no more than a moment’s glance before going back to their terror and misery and doom.
 
 They had dismissed me for mad. At the time I had thought they were likely right, but I didn’t much care. The heat I felt on my skin felt real enough, and even if this was my end, it was better than dying in misery.
 
 I crawled into the hatch… and descended.
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
