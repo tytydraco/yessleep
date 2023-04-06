@@ -141,7 +141,7 @@ He arched a brow, chewing on his straw. "Why do you think I’m here?”
 
 I couldn’t resist my own laugh. “I’m sorry, how old are you?”
 
-“Fifteen.” He rolled his eyes. “I'm literally one year older than you, and it's not like we're different.“ Felix leaned forward. “But I want you to ask me that question again. Think about it, [BLANK]. Why am I here, hmm? After all of my texts you ignored, my calls, even my Insta request.” He pouted. “Honestly, you would think after all I’ve offered, you would at least return my fucking calls."
+“Fifteen.” He rolled his eyes. “I'm literally one year younger than you, and it's not like we're different.“ Felix leaned forward. “But I want you to ask me that question again. Think about it, [BLANK]. Why am I here, hmm? After all of my texts you ignored, my calls, even my Insta request.” He pouted. “Honestly, you would think after all I’ve offered, you would at least return my fucking calls."
 
 He slammed his milkshake down, his smile unwavering. “You think you can upload whenever you want and you won’t get noticed by us?"
 
