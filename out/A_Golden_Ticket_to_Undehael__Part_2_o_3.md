@@ -16,7 +16,7 @@ Lamps fixed upon stone walls, their incandescent bulbs offering dim, warm light 
 
 *That ticket… it said something about Under-- something, and Waterworks.*
 
-Behind me was a dead end, just an algae-caked grating that dark rushes of water flowed through, rushing in the direction of the causeway. I paced back and forth beneath the ladder, trying and failing to come to grips with everything.
+Behind me was a dead end, just an algae-caked grating that dark rushes of water flowed through, headed in the direction of the causeway. I paced back and forth beneath the ladder, trying and failing to come to grips with everything.
 
 I thought about the other words on the card. Something about some kind of chronicles with some weird spelling. I thought about what the strange man had mentioned.
 
@@ -166,9 +166,9 @@ The water was the only place I could go. I knew I was as good as caught if I wen
 
 I knew I had to act now.
 
-*Think Angelo, Think Goddamnit –*
+*Think Angelo. Think Goddamnit –*
 
-The coin I had put in my pocket the insignia of the double image of the splayed man and the tree, that both Billy and that card had told me to hold on to, suddenly felt heavy in my pocket.
+The coin I had put in my pocket with the insignia of the double image of the splayed man and the tree, that both Billy and that card had told me to hold on to, suddenly felt heavy in my pocket.
 
 “It will be your light in the dark…”
 
