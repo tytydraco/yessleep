@@ -40,6 +40,6 @@ I'll be back in a bit, to read any possible comments. Again, I don't think it'll
 
 This shit is just too much, I'm fucking done.
 
-I'm going for a spacewalk.
+I'm going for a [spacewalk](https://www.reddit.com/r/nosleep/comments/12dkbco/i_dont_think_im_making_it_back_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button).
 
 *End of Transmission*
