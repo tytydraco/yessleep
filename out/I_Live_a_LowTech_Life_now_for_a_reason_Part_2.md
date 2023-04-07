@@ -59,3 +59,5 @@ The third was another typed note.
 *Congratulations on surviving, Jared. Enjoy your rest. We’ll see you again soon.*
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/12drbml/i_live_a_lowtech_life_now_for_a_reason_part_3/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Final](https://www.reddit.com/r/nosleep/comments/12eto18/i_live_a_lowtech_life_now_for_a_reason_part_4/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

@@ -79,3 +79,5 @@ The photo had been taken through the camera in my smart TV.
 [Part 2](https://www.reddit.com/r/nosleep/comments/12cowy0/i_live_a_lowtech_life_now_for_a_reason_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/12drbml/i_live_a_lowtech_life_now_for_a_reason_part_3/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Final](https://www.reddit.com/r/nosleep/comments/12eto18/i_live_a_lowtech_life_now_for_a_reason_part_4/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

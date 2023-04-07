@@ -53,3 +53,5 @@ Suddenly, every snap of a twig sounded like someone moving towards me in the dar
 I struggled for a moment, my muffled screams sounding muted in the car’s interior.
 
 And then, everything went black.
+
+[Final](https://www.reddit.com/r/nosleep/comments/12eto18/i_live_a_lowtech_life_now_for_a_reason_part_4/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
