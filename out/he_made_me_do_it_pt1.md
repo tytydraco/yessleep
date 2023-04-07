@@ -6,4 +6,6 @@ Day 3: I was at school when I saw my crush looking as beautiful as always I watc
 
 day 4: I'm going to do it I grabbed the knife and did I kill them Shockton are you pleased I asked when the police showed up, no wait you got it all wrong Shockton forced me to, arrest him "Tell that to the judge."
 
+John is not able to finish this story about who I am and his experience so I will post it for him, I better explain who I am.
+
 My name is Shockton and I just finished my journey of becoming all-powerful now it's time to destroy the Tree of Creation the thing that holds the outer verge which holds the outer verses. I am above all things I know everything to happen or what is happening I created everything for my children.
