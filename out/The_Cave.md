@@ -1,73 +1,37 @@
-There’s nothing like a good game of truth or dare with your friends.
+The Cave
 
-This was our third game, and it took place in the same spot as the last two, underneath the bridge. It would also be our last, unfortunately.
+I got into cave exploring with my buddies a few months ago, it was a blast until last weekend.  I now wish I had never gotten into it at all.
 
-There was me, Carson and Leah. But just like the last two games, we brought someone new to the third. We would walk around our school and ask fellow students if they wanted to participate in our game. The lucky ones would deny. But some were dumb enough to agree. Of course, they don’t know they were making a dumb decision. But we did. And Cameron was one of those kids.
+  At first, we found some local easily findable ones that provided just enough of a challenge to look forward to going again.  None of the ones that we visited at first seemed like there was any cause for concern or even held a whiff of danger.  The first cave we went to is a relatively popular one just about 30 minutes from our town.  We took about 4 hours to complete the unguided tour or the cave system. All the souterrain chambers all well above 8 feet in clearance and nearly impossible to get lost in.  There is also a ranger station nearby that checks the caves and most of the chambers at the close of the day, each day, so that nobody could get left behind the closed and locked gate.  It was a blast.  We had so much fun we all agreed to do it again the next weekend and every weekend that we all could go together barring any family or work commitments.    It continued like this over the next couple of months, we went further and further away from home once even spending the night camping so we could make a weekend of it during the early summer.  That cave was awesome and while it was a bit on the more advanced side of things, we did all the exploring we wanted to with no injuries whatsoever if you don’t count scrapes and minor cuts and bruises.
 
-Me and Carson arrived at the spot early to set up while we waited for Leah to arrive with Cameron. Carson set up the camera while I set up the bottle, rigged to always stop where I wanted it to. Now it was just up to Cameron.
+  Last week I was doing some research on bigger, more complex cave systems in the northeast, and came across a very helpful website plotting all the best ones to visit.  I found that the website did, in fact, have a rating system that should have been followed.  I didn’t follow it.
 
-Him and Leah arrived about 10 minutes later, and the game began.
+  I'm single, the two buddies I usually go caving with are both married with like 5 kids between them.  I wanted to head out to one system that was a few hours away from our town, but neither one of them could make it that weekend.  I told them that I would go up, check it out, and report back to them if it was worth taking a closer look.  The weather was supposed to be spectacular and warm perfect to camp out overnight.  They both told me that it wasn’t a good idea to go alone.  I told them not to worry, I wasn’t gonna do anything stupid, I was barely even gonna go in any of them, just poke my head in, take a look around, jot some notes down, mark some coordinates for easier retracing of steps.  Easy shit…
 
-‘’Ladies first.’’ Carson said.
+  I drove up early, pre-dawn, on Saturday morning, getting to the area indicated on the map parked my Jeep and began setting up a nice comfortable campsite.  I finished around 1030am I didn’t think that anyone would mess with my stuff while I was out exploring, I strapped my pack on and map in hand set off for the base of the small but nevertheless impressive mountain range that I was currently at the base of.
 
-Leah reached over and spun the bottle. It landed on Carson.
+  I was walking down the trail for just over an hour, heading for the indicated entrance to one of the systems I wanted to check out.  I noticed something at the base of a large rock that looks like it had fallen down from somewhere up higher a millennia ago.  It looked out of place to me, like it was deliberately placed at the foot of that giant rock.  I walked over to the spot and began probing around with the handle of my climbing axe, stabbing the sharp spike into the center of the off-color patch of whatever it was.  THUNK!  What the fuck??  I said out loud.  I got down on my haunches and began, in earnest, to probe and lift the cover revealing an entrance descending down into nearly total blackness.  
 
-‘’Truth or dare?’’ Leah asked.
+  Now you might be telling yourself as you read this, you deserve whatever you get for going down there, and you may be right, but nobody deserves what I saw down there…
 
-‘’Ummm…..dare.’’
+  I stood above the hole, hand on my pack straps, staring down into the abyss.  A thousand thought raced through my mind, none of them were helpful in the slightest.  The rational side said rather loudly, DO NOT FUCKING GO DOWN THERE!  The adventurous side said almost in a whisper You only live once… I shrugged off my pack did a quick but thorough inventory of its contents, satisfied, I tied a 50 ft length of climbing rope to the top carry handle of it and slowly lowered it down into the inky blackness.  I tied the rope with a sturdy clove hitch round a tree, cracked a chem light and dropped it into the hole.  It fell for about a second bouncing off the stone floor and skittering off into the darkness barely illuminating my swaying pack in the air.  I got on my belly pulling out my trusty 1000 lumen flashlight, pointing it into the darkness and blasting everything in bright light.  The chamber below me seemed like it was about 35 feet below as my pack was barely swaying just above the floor.  I could see that the chem light I dropped had bounced into what looked like a natural archway and came to a rest against the wall.  I could see it glowing brightly from my current vantage point.  FUCK IT! I said to myself, grabbed the rope and began lowering myself down.
 
-‘’I dare you…to kiss me.’’
+  Once safely on the floor of the chamber, I unzipped my main compartment and pulled out my helmet equipped with a Petzl 500 lumen headlamp.  This baby had cost nearly a hundred bucks, but it could use both a rechargeable battery, of which I had 4 fully charged spares tucked away in my left breast pocket of my adventure vest, but it also took 2 AAA batteries 24 of which I had stored in my pack.  I also kept 4 of them in each front pocket enough of juice to last for nearly 3 days of continuous running.  I also kept a 1000 lumen flashlight clipped to my vest one that took AA batteries and had plenty on had to keep that thing on for hours at a time.  I put my pack back on, snugged it tightly down and began to creep around the chamber looking for any signs of animal life.  I found none and began to sketch a quick little map as I went along in my field notebook, complete with some rough dimensions of the chamber. 
 
-‘’Bet.’’
+  I cracked another chem light placing it directly at the foot of my rope and knowing these things last for a few hours before losing their light completely, I figured that would be a good enough signal beacon to guide me back to my rope just in case.  I had about two dozen chem lights in my side pocket of my pack, easily accessible without having to remove the pack at all.  I cracked one about every 50 or so feet, making sure that the last one could be seen before placing a new one on the floor.  A trail of light breadcrumbs if you will.  I came into a large, spacious cavern.  Looking around with 500 lumens it lit up the chamber quite well, just some dancing shadows lurking in the far reaches of the light's capabilities.  I could hear water dripping or running off to my left and a nice breeze was coming in from behind me just to my right side. That’s when I heard a sound that chilled my blood to the core.
 
-Carson leaned over and planted a kiss on Leah’s lips. Not an unusual thing for boyfriends and girlfriends to do. But Cameron didn’t know that.
+  The sound came from what it seemed like directly ahead of me.  I froze in place barely breathing, straining my ears to hear.  In chambers like the one I currently found myself in, the sounds bounce around like a super ball.  Pinpointing a sound down here is nearly impossible.  The sound sounded animal-like, but not quite.  I keep a Busse fixed blade knife clipped to my belt in the scout carry position.  I reached for and pulled out the well-honed blade from its sheath, gloved hand gripping the comfortable handle tightly.  My head was on a swivel looking about in a near dizzying display of shadows and light.  I had to see the origin of that sound, maybe it was a wounded animal that I would be able to help.
 
-‘’Me next.’’ Carson said. As planned, the bottle landed on me.
+  I crept forward, nearly silent as a cat.  I could begin to see another entrance into another tunnel pass.  I slowly mad my way to the entrance of the passageway.  I had cracked two more chem I lights walking across the nearly 50 ft expanse of the chamber.  I placed one at the entrance to the hallway.  Pulling out my flashlight, I turned it on to the max brightness, and moved on.  The hallway wasn’t as long as I had anticipated, maybe 25 feet or so.  It spilled out into a much smaller chamber with several off-chute hallways leading to God only knows where.  What I saw in the center of that chamber looked to be right out of a horror movie.  Piles of bones, antlers, scraps of hide and rotten flesh.  I stood rooted to the stone floor, unable to move.  I looked around in horror at the several hallways, realizing that they weren’t passages but more like smaller living chambers. You could see to the rear of each of them with my powerful beam of light.  
 
-‘’Truth.’’ I said.
+That is when I heard that sound again, this time much closer.  It came from the far left sub-chamber, I'm sure if it.  My head snapped to the direction of that horrific sound and I could see two, no four glowing yellow eyes blinking back at me.  Less intense light from my helmet was able to make out a rough shape of whatever stood about 20 or so feet directly in front of me.  It was small about 4-feet in height and oddly shaped. It stood upright-ish.  Not fully erect, but close enough.  It didn’t appear to have any fur, it was white like never been in the sun white.  I snapped my more powerful light to the pair.  I wish I hadn’t.  I got a GOOD look at them this time.  I nearly dropped my light from sheer revulsion.  What I saw cant be explained, they were humanoid but clearly not human.  They both had huge oval eyes that squinted and almost closed as my powerful beam focused on them.  The bigger of the two, I can only assume was the male, or whatever, screeched that awful sound and clawed at the air in front of its eyes.  The smaller one, retreated back into the blackness of its chamber whimpering as it did.  At that point, I heard another sound coming from the right of me snapping my head in that direction, I saw three more of them hobble into the larger chamber.  One big one, one smaller one and a very small but equally terrifying child sized one.  This little one made a sound that could break glass when my 1000 lumen light hit its more sensitive eyes.
 
-‘’Is it true, that you wish you could kill someone?’’
+  I don’t know what these things were, maybe an offshoot of evolution, a freak of nature I don’t know.  I began to back out of that smaller chamber forgetting about the pile of bones that was behind me.  I tripped and stumbled over some of the loose bones. And that is when I saw it.  A skull with a gold tooth inlay. Fuck, FUCK, FUCKKKKKK!!!! I began yelling. Gaining my solid footing again.  I swept the light around, seeing only 3 of the 5 previously seen creatures.  I had no idea where they had gone in the few seconds that my light wasn’t trained on them.  I turned and ran towards the big chamber hearing a shriek behind me as I gained speed.  I blasted out of that hallway, only to find that all of the chem lights that I had placed along my short trail had been piled up in the center of the bigger chamber.  They were not just piled up but they were placed in a way that could only show some kind of intelligence. 
 
-‘’I mean I would like to do it again, so yeah. That’s true.’’ I replied while looking straight at Cameron. His eyes went wide. The 3 of us started laughing. After a few seconds of looking at each of us, Cameron started laughing too. Just a joke.
+ Since there was only one way to go, I ran for it.  I could hear slapping of flesh on the stone floor, behind me. I about 6'2" and have a pretty good build.  I take rather long strides while walking and much bigger ones while running.  Those tiny creatures, couldn’t keep up with my much faster legs.  
 
-‘’My turn.’’ I said and spun the bottle. It was time. I reached down and picked up the string attached to the end of the bottle. The string was short enough that when I pulled it, the bottle would stop spinning and point right across from me, where Cameron was placed. He didn’t even notice Carson attaching the string before he spun it.
+  I ran toward the small shaft of light that I could see about 75 feet in front of me coming from the entrance from which I came in.  Shrieking continued behind me as well as slapping foot flesh on stone.  I sprinted towards the light as I entered the first chamber the big male was waiting for me at the entrance its back turned to the light.  I dropped my shoulder and ran full force into its chest area leveling it in one savage blow barely even slowing down.  It got one good swipe in on me.  Furrowing my right forearm, most likely deep enough to require stitches.  The body of the big male slammed into the stone wall and you could hear an audible crack as its head connected with stone.  I leapt up grabbing the rope with both hands, wrapping my feet around the rope and quickly as possible climbed for my life.  The other male entered the chamber as I was about 15 feet off the stone floor it slashed at the rope with talon like claws.  I got high enough to grab the side of the rock and heave myself up into the bright sunny day.  I rolled over to my side and quickly began pulling up my now shredded rope.  I lay there for a few minutes hearing the angered screams and shrieks coming from below.  I got back to my Jeep about 45 minutes later, nearly spent after running the entire way.  I got in my Jeep after the quickest camp tear down in history.
 
-I tugged on the string as I shifted my seated position, as to not make any weird or sudden gestures with just my arm. The bottle stopped at Cameron.
+  I called my buddies and told them what happened.  Of course, they didn’t believe me at first until I showed them the pictures of the wound that the big one gave me.  Three fingers of claws raked across my forearm.  I drove to the nearest hospital to get patched up, 75 stitches in all to close the wounds.  They took some DNA evidence from the wound as well.  I spoke with the local Sheriff's office about the incident.  They took a statement and promised to follow up.  
 
-‘’Truth or dare?’’ I said.
-
-Cameron chuckled nervously.
-
-‘’Umm…dare.’’
-
-*Bad choice* I thought. *For you anyway.*
-
-‘’See that cave over there?’’
-
-‘’Yeah.’’
-
-‘’It's said to be haunted by the students who have gone missing at the school. I dare you to walk over there and shout something into it.’’
-
-Cameron looked at Carson and Leah, who shared the same glare that I did.
-
-‘’Uhm…okay.’’
-
-He stood up and started wandering towards the cave. I smiled at my friends. Carson mouthed the words ‘’*got him’’*.
-
-We followed him and watched as he peered into the entrance, hunched over. It was a small cave, but big enough to fit one person. All we needed.
-
-The three of us walked up behind Cameron and I looked at Carson, then at Leah. She nodded, and I removed the gun from my pocket. Carson threw me the suppressor from his pocket.
-
-As Cameron began to shout into the cave, I lifted the gun and aimed at his head. I fired to two shots. He fell forward, his upper body landing a few feet inside the cave.
-
-‘’Any second now.’’ Leah said.
-
-And she was right. No more than 5 seconds later, it appeared. We didn’t have an actual name for it, because we didn’t know what it was. So, we just called it ‘’The Being.’’ It was hairy, like a dog, but stood like a man. It was thin but strong. Strong enough to drag a human body deep into the cave. We watched as it did just that. Cameron’s body disappeared into the darkness. I’d usually follow that with ‘’never to be seen again’’, but unless The Being got rid of him in last hour, the police would probably find Cameron’s body. But I doubt they’ll find the others.
-
-Anyway, the policeman is back, and I have to finish this confession. They really shouldn’t let you type these things on a laptop. You never know where they might end up.
-
-Samuel Woods.
-
-December 5th, 2022.
-
-NNPS
+It's been two months, I haven’t heard anything for law enforcement, but I did hear back from the hospital earlier this morning.  The DNA found in my wound has no known species associated with it.  The closest relative would be a chimpanzee…
