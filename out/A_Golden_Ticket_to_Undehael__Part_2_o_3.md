@@ -4,7 +4,7 @@
 
 Dank air filled my lungs as I moved down the ladder.
 
-A faint, yellow glow, somewhere below and out of sight, offered my eyes enough light to make out the vague shape of a stone walkway about fifteen feet down. Beside it, I saw golden twinkles from the lantern’s light reflecting off of running water.
+A faint, yellow glow, somewhere below and out of sight, offered my eyes enough light to make out the vague shape of a stone walkway about fifteen feet down. Beside it, I saw golden twinkles from the light reflecting off running water.
 
 I had made it about halfway down when the ladder turned to ash in my hands and beneath my feet, and I fell the rest of the way to damp, cobbled stone.
 
@@ -66,7 +66,7 @@ The other seemed to share the same general features but was smaller and slighter
 
 Both dawned olive-colored trench coats that looked like they were made out of vinyl or something waterproof.
 
-Their long, rudder-like tails flittered from in between the tails of their coat seams and occasionally swept the floor.
+Their long, rudder-like tails flittered from in between their coat seams and occasionally swept the floor.
 
 The bigger one held the lantern out in front of them and they peered into the dead-end corridor inquisitively. “So, Twas you rubble, or another of the runners?” The smaller hollered to the dead-end corridor ominously, sealing the words with a mirthy hiss.
 
@@ -152,7 +152,7 @@ Burcher nodded in agreement. “Ye still wanting to brush up with some time with
 
 Danforth nodded and lifted a sharp smile as his eyes trained on mine.
 
-“Please, I didn’t ask for any of this. I just want to go home!” I began taking slow steps backward. Sick glee lit their faces and their smooth, gray tails twitched like excited worms. They stepped forward with each of my own backward paces.
+“Please, I didn’t ask for any of this. I just want to go home!” I began taking slow steps backward. Sick glee lit their faces and their smooth, grey tails twitched like excited worms. They stepped forward with each of my own backward paces.
 
 “Danforth has brought something for ye, in case we did find a runner down in these parts. Show him, Danny.”
 

@@ -1,0 +1,21 @@
+I come from a small town, it’s not country and it’s not city. It’s quite literally right in between, we’re not a mile walk from one house to the next, but we’re not close enough that we can’t hear what’s going on in their house. Growing up in this town didn’t leave us with much to do, one of the most exciting things to do was to sneak out and walk around at night, other then that we were mostly just a pass-through town. 
+
+Due to this one of my favorite things to do was to go to my grandma and grandpa’s house. I spent just about whenever I could on the weekends spending the night at their house. I had been doing this since I was 5 or 6 and loved it.
+
+One time when I was 8 or 9, I can’t remember, I heard a random chime, like from a clock, it was subtle and quiet so obviously, I didn’t think much of it and carried about my business. That night when I returned to my Mom and Pops house I thought about that chime and how even though my grandparents had that clock for years, probably longer then me, and I had never heard it. I just passed it off as something I had ignored as a younger child due to some naiveness or something. 
+
+Fast forward 4 years or so, after a fight with my parents I had insisted that my older brother drive me to their house, I was too pissed to even think about asking my grandparents if I could come over, (They loved having me over, and insisted I could come over anytime.), so as i arrived to Grandmas house I had essentially brought just about everything over that I had essentially had in front of me, this included the homework from that day.
+
+I truly can’t remember why but for some reason in one of my classes we were studying morse code, presumably this was my homework too. About half way through my homework I heard that chime, just as I’m about to divert my attention back to my homework I notice something. The chime I’d been hearing the past 5 years was… different.
+
+At first I ignore it and looked back at my homework. Then out of pure curiosity I recited the chimes, to try and make out a sentence of the chimes in morse, I knew there was a good chance it would just be total nonsense but I still wanted to try and descramble it. 
+
+As I began putting the chimes into a sentence I got a word out of the first few chimes which genuinely shocked me and I deciphered that the first few chimes stated “We”  as I continued deciphering and reached the end my faced must have been pale as snow. The chimes spelled “We see you, Donnei” seeing as I have such a unique name this sent chills down my spine.
+
+I stood up to try and catch my breath and needed to sit down I was feeling so light headed. I didn’t know what to do, but after rethinking the statement a thousand times over I suddenly realized what the words were saying, someone or something was watching me. I suppose the adrenaline made it hard for the words to convey to me, someone was watching me. I quickly ran to every door made sure it was locked, shut the blinds to every window, I wanted to be quiet though due to the fact everyone was asleep.
+
+After not seeing signs of anyone outside I tried my best to fall asleep but knew I likely wouldn’t. As I basically trembled in terror through the night, alert at every sound. I didn’t see exactly what time but when I last saw a clock it read 4:23 A.M. that was the last I saw before I awoke. 
+
+Though that dreadful night had ended It wasn’t getting better in the Morning. I woke to my grandparents standing over me sleeping, at first this scared the crap out of me due to the night prior but I then saw time, 2:36 P.M. They had simply wondered how I slept that long and were likely about to wake me up, so no harm no foul, I proceeded to make my way into the bathroom.
+
+As I strolled into the bathroom, trying not to think of last night, I saw my grandparents lifeless corpses on the floor of the shower, somebody was impersonating them, Immediately it came to me, somehow, someway, the people impersonating my grandparents were the ones that had watched me last night. They had somehow told me with the clock that their presence was to be known as it would appear. As this came to my realization chills went down my spine. I know there is no way i’m leaving this house alive.
