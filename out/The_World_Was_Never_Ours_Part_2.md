@@ -12,7 +12,7 @@ When I finally managed to turn away from the muscular deity, shuddering, I notic
 
 It did not seem finished, more like a three-dimensional sketch that some artist had made of Cerberus. The three-headed hellhound could only be recognized by some work of imagination, its body being bulky, covered in dents, and in some areas in a shade of grey that made me sick.
 
-I was instantly certain that I had found the right place, as the three stones Marco had written about were without a doubt the heads of this incomplete Cerberus. I quickly started to inspect the ugly statue, slowly running my hand across its granite surface, feeling for irregularities. When my fingers reached the grey areas, I had to suppress a scream of disgust. 
+I was instantly certain that I had found the right place, as the three stones Marco had written about were without a doubt the heads of this incomplete Cerberus. I quickly started to inspect the ugly statue, slowly running my hand across its granite surface, feeling for irregularities. When my fingers reached the grey areas, I had to suppress a scream of disgust.
 
 The surface was solid, but not made from granite. It was slightly slimy, reminding me of jelly or raw muscles that had somehow grown out of the statue. I already wanted to turn away and leave in disgust when I heard a faint rumbling sound, and the sculpture of Pluto slowly moved away from its place.
 
@@ -66,85 +66,85 @@ With a deep breath, I tried to get up and get closer to the murals, but my mind 
 
 \*\*\*
 
-I sat on the floor, leaning against one of the walls, my heart racing, trying to calm down. 
+I sat on the floor, leaning against one of the walls, my heart racing, trying to calm down.
 
-What? 
+What?
 
-What had happened? Where was I? 
+What had happened? Where was I?
 
-The stones next to me were smooth and empty, without murals, though the hall still stretched further into eternal darkness. How had I gotten here? 
+The stones next to me were smooth and empty, without murals, though the hall still stretched further into eternal darkness. How had I gotten here?
 
-What had just happened? 
+What had just happened?
 
 Pain. Confusion. Madness. They all were close.
 
-I felt strange, felt like I had been in my body for the first time in forever. 
+I felt strange, felt like I had been in my body for the first time in forever.
 
-Why had I blacked out? What was this terrible feeling in my stomach, this stinging pain of things I… should remember? My limbs were shaking so much that I did not manage to stand up. My torchlight was still switched on, but occasionally flickered. 
+Why had I blacked out? What was this terrible feeling in my stomach, this stinging pain of things I… should remember? My limbs were shaking so much that I did not manage to stand up. My torchlight was still switched on, but occasionally flickered.
 
-Where the light cone could not reach, darkness. 
+Where the light cone could not reach, darkness.
 
-The blackness surrounded me, having protected this ancient… cradle of forgotten knowledge for unimaginable periods of time. I was clutching my torch like a sword, but the batteries would be used up soon, threatening to leave me alone in the pitch black at any moment. Then, I would have to rely only on the battery of my smartphone. 
+The blackness surrounded me, having protected this ancient… cradle of forgotten knowledge for unimaginable periods of time. I was clutching my torch like a sword, but the batteries would be used up soon, threatening to leave me alone in the pitch black at any moment. Then, I would have to rely only on the battery of my smartphone.
 
-How long had I been… gone? 
+How long had I been… gone?
 
 Slowly, I tried to recollect my thoughts. Strange questions appeared in my mind, as if my inner self wanted to remind me of things better left unrecalled. The questions sent terrible chills down my spine.
 
-Were we really this unimportant in the mechanics of the cosmos? Were all those things Marco had researched real, and not the fabrications of heretics and lunatics? Was there really so much out there, so much we did not know about our planet, about nature, about being? 
+Were we really this unimportant in the mechanics of the cosmos? Were all those things Marco had researched real, and not the fabrications of heretics and lunatics? Was there really so much out there, so much we did not know about our planet, about nature, about being?
 
-Had Marco... 
+Had Marco...
 
-Suddenly, terror started to overwhelm me again. Why had he disappeared from the hotel room? It had to have been after returning from these halls. But why had he not described all of this? Why had he not written about the skinny beings? Had they noticed him? Hunted him down? 
+Suddenly, terror started to overwhelm me again. Why had he disappeared from the hotel room? It had to have been after returning from these halls. But why had he not described all of this? Why had he not written about the skinny beings? Had they noticed him? Hunted him down?
 
-Those creatures depicted on the walls, I now knew, were real. They had been... No, I could not remember anything else... 
+Those creatures depicted on the walls, I now knew, were real. They had been... No, I could not remember anything else...
 
 If my terrible suspicion was true, if they had really gone after Marco... they would certainly chase me down as well! I had to leave, flee, but where to? Where was I? Why had I wanted to know so badly...? I finally got up, trying to stand on my trembling legs. I reeked of sweat, and the arid air made breathing hard work.
 
 The murals had ended here, but I could see one not far away behind me. I must have come from there! The hall was big, but if I just hugged one wall, I might be able to get to the entrance. Turning around, I decided to head back towards the archway, resolved to leave behind the depths of this hell and the unsettlingly empty walls. I prayed that the gateway to this ancient spot of putrid horror was not too far away and started running towards where I suspected the arch to be.
 
-Once or twice, I imagined I heard a whistling, humming sound, closing in on me. But perhaps I was just going mad. What could possibly be in these halls? 
+Once or twice, I imagined I heard a whistling, humming sound, closing in on me. But perhaps I was just going mad. What could possibly be in these halls?
 
-I was alone, definitely! 
+I was alone, definitely!
 
 I listened into the darkness but could not hear it anymore. I had been right, of course! I was alone. Stupid me.
 
-*What could possibly be here...?* 
+*What could possibly be here...?*
 
-I suddenly hated the question. I also hated that I started to feel like I knew... I knew what it could be. I tried to focus on that hunch, but to no avail, it slipped my mind. Still, there it was again, in the distance. This time louder and clearer. 
+I suddenly hated the question. I also hated that I started to feel like I knew... I knew what it could be. I tried to focus on that hunch, but to no avail, it slipped my mind. Still, there it was again, in the distance. This time louder and clearer.
 
 I was not alone, after all!
 
-The walls were full of murals now, but I could not look at them again. I was too afraid, too afraid to remember, too afraid to pass out again and be easy prey for... 
+The walls were full of murals now, but I could not look at them again. I was too afraid, too afraid to remember, too afraid to pass out again and be easy prey for...
 
 Every time I felt like I was almost remembering, nameless horror crept into my mind. Faint memories of terror, pain, and despair, and of loneliness, desperation, and the deep wish to finally die after eternities of suffering, to just let the pain and horror end...
 
-My flashlight flickered more and more frequently. Soon it would go out, soon I would be stuck here for the rest of my life, taking the truth I now carried deep inside with me to the grave. If I was lucky, if I was not... 
+My flashlight flickered more and more frequently. Soon it would go out, soon I would be stuck here for the rest of my life, taking the truth I now carried deep inside with me to the grave. If I was lucky, if I was not...
 
 Then there was rattling and buzzing as well, almost inaudible, but making my hairs stand on end.
 
 I felt something getting closer, was now sure that it was near. My sense of flight finally kicked in. I started hyperventilating as I mindlessly ran hundreds of meters towards what I hoped was the archway that had led me into this hellish underworld, praying that I would not find myself at a fork. I would not have been able to pick a path anymore.
 
-The ground raced past me, and I had to be careful not to stumble while the weight of my backpack exhausted my stamina. When whatever was following me was no longer far away, when I felt it rushing towards me in my stomach, I simply threw my damned pack away, tossing it somewhere into the darkness, and the resulting increase in speed saved me in the end. 
+The ground raced past me, and I had to be careful not to stumble while the weight of my backpack exhausted my stamina. When whatever was following me was no longer far away, when I felt it rushing towards me in my stomach, I simply threw my damned pack away, tossing it somewhere into the darkness, and the resulting increase in speed saved me in the end.
 
-Faint mumbling started to get louder behind me. A creature from untold nightmares was there, hunting me! Wheezing! 
+Faint mumbling started to get louder behind me. A creature from untold nightmares was there, hunting me! Wheezing!
 
-Then, I saw the archway. 
+Then, I saw the archway.
 
-Salvation! The way out! 
+Salvation! The way out!
 
-When I finally reached it, I could hear metallic sounds. Passing through the stony frame, I could not help myself and looked back, despite all rationality and fear that commanded me not to. 
+When I finally reached it, I could hear metallic sounds. Passing through the stony frame, I could not help myself and looked back, despite all rationality and fear that commanded me not to.
 
-In the light of my torch, I could see a big, bulky body of metal darting in my direction, swaying left and right. Uncountable robotic arms and limbs were growing from the ghastly construct and only because of its erratic movements did it not manage to fit through the archway and crashed into one of its sides. 
+In the light of my torch, I could see a big, bulky body of metal darting in my direction, swaying left and right. Uncountable robotic arms and limbs were growing from the ghastly construct and only because of its erratic movements did it not manage to fit through the archway and crashed into one of its sides.
 
-I recognized it. 
+I recognized it.
 
-I had seen it before! But where… when… 
+I had seen it before! But where… when…
 
 A hatch opened at the thing's topside, caused by the force of the collision, and what I experienced because of that almost made me go insane as for a brief moment I remembered how I was being...
 
 I ran away, driven by inhuman fear and bottomless horror, up the stairway and back to the sun that had just started to rise outside. The corridor had collapsed because of the creature's crash into the wall, burying it all beneath tons of rock and soil.
 
-I was in shock and did not know whether to be happy or sad about the destruction of this… historic site. 
+I was in shock and did not know whether to be happy or sad about the destruction of this… historic site.
 
 After I had taken my smartphone out of my pocket and called my friend to tell him about my safe return, I sank down and sat on the grassy floor, weeping uncontrollably. The statues seemed to mock me, and soon I got up and ran away from those unholy monstrosities, hoping to never see them again. From the moment I left the statues till now, I have the feeling, no, I know that I am being watched.
 
@@ -152,8 +152,8 @@ I somehow got home, back to Germany, using some spare money I had found in my wa
 
 I planned on publishing this tale, perhaps on the internet or in some newspaper. I have to get it out there, but who would believe me without proof? But I will make sure it gets out, somehow.
 
-Before I left Rome, I asked a boy from the streets to visit the entrance of the tunnels, but he told me that the statues had disappeared and the ground was covered by tons of rubble, making me leave Italy somewhat relieved. But in the following days, when I was safe at home, nightmares started to tear away at the last bit of sanity I had left. 
+Before I left Rome, I asked a boy from the streets to visit the entrance of the tunnels, but he told me that the statues had disappeared and the ground was covered by tons of rubble, making me leave Italy somewhat relieved. But in the following days, when I was safe at home, nightmares started to tear away at the last bit of sanity I had left.
 
-[They forced me to remember](https://www.youtube.com/watch?v=2bJePnJI0bM)… 
+[They forced me to remember](https://www.youtube.com/watch?v=2bJePnJI0bM)…
 
-\[to be continued\]
+[\[Final Part\]](https://www.reddit.com/r/nosleep/comments/12ehanh/the_world_was_never_ours_part_3/)
