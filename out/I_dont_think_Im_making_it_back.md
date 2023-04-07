@@ -24,6 +24,16 @@ I'm currently orbiting a black hole, where the thrusters fired me towards. It's 
 
 It's just a pit. It's not as horrific as I thought it would be.
 
+I heard something. Something loud. Like a crash.
+
+No! No, please don't let this be!
+
+The life support crashed! An asteroid fragment rammed into it!
+
+The black hole's gravitational pull brought a fragment of a goddamn asteroid right through the hull.
+
+The shuttle's uninhabitable now. If I stay here for longer than a few days, I die.
+
 I...
 
 I can't let this be the end. I just can't.

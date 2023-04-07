@@ -176,3 +176,6 @@ Maybe Randall was lying. They were real. As real as the triangle. The Ziga was p
 
 
 I've gotten myself into something. I don't know what it is exactly, but it's definitely important to these guys, along with Randall. I don't know who's coming to talk to me, but it looks like I'm going to have to deal with them no matter what. Hopefully I'm not about to be tortured or executed.
+
+
+[Update](https://www.reddit.com/r/nosleep/comments/12elmca/my_former_hometown_is_at_the_top_of_a_dangerous/)

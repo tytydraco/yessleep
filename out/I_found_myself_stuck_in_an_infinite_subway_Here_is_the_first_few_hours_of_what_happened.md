@@ -1,6 +1,6 @@
 I woke up to the sound of water dripping right next to me. It was a slow drip, but loud enough that whenever a drop hit the puddle that formed under the seats, it echoed across the cart. Falling asleep in a subway is rarely a good idea, but in that moment I really didn't care. Not like I had anything valuable on me besides my phone, which I keep it in my jacket's inner pocket. Sitting on the plastic chair, my head tilted backwards, the light above me hit me right in the eyes, blinding me for a moment. When I regained my vision a few moments later, I realized that I was alone in the cart.
 
-"Strange," I thought, "it's rush hour. I didn't sleep that much, did I?"
+"Strange," I thought, "its rush hour. I didn't sleep that much, did I?"
 
 Sure enough, when I checked the time, it was 6 pm, and I boarded at around 5:50 pm. I tried switching to Google maps, thinking that perhaps I missed my stop, but it only showed me a blank map and a "GPS signal not found" message.
 
@@ -24,7 +24,7 @@ Great, I thought. He was a junkie. Not wanting to anger him further and risk him
 
 The whistling became louder and louder and I began to notice a shadow growing on the door to the next cart. I hoped that finally there was someone normal around here. 
 
-When the door opened, I wanted to get up and greet them, but what I saw shocked me into staying down. A figure crouched under the doorway, putting a white gloved hand on top of the doorway, unable to enter otherwise. A black head wearing a white hat peered out of the door. If I looked at it's face, it felt like I was looking at darkness itself, engulfing the light around it like a black hole. Slowly getting through the doorway, whistling all the while, he managed to enter on the other side of the cart. Tall as the subway and dressed in a completely white uniform, the thing was walking slowly towards us
+When the door opened, I wanted to get up and greet them, but what I saw shocked me into staying down. A figure crouched under the doorway, putting a white gloved hand on top of the doorway, unable to enter otherwise. A black head wearing a white hat peered out of the door. If I looked at its face, it felt like I was looking at darkness itself, engulfing the light around it like a black hole. Slowly getting through the doorway, whistling all the while, he managed to enter on the other side of the cart. Tall as the subway and dressed in a completely white uniform, the thing was walking slowly towards us
 
 "Don't look at it too long," the man in front of me whispered, "and don't make any sudden movements. Take out your ticket" 
 
@@ -38,7 +38,7 @@ The creature was getting closer.
 
 "Shit," the homeless man said. He scrambled in his pockets until he suddenly stopped. "Here, take this", and then he thew me a crumpled piece of paper. Unfolding it, the paper was just a plain white ticket with a black dot on it.
 
-The whistling stopped. The tall creature was right in front of me. "Tickets please" it said in an echoing voice, sounding like several people were speaking at once. It then extended an abnormally long arm, opening it's palm next to my chest. I put the ticket in his hand. 
+The whistling stopped. The tall creature was right in front of me. "Tickets please" it said in an echoing voice, sounding like several people were speaking at once. It then extended an abnormally long arm, opening it's palm next to my chest. I put the ticket in its hand. 
 
 "Thank you" the creature told me, taking the ticket and putting it in the pocket of its proceeding to do the same thing with the man in front of me. "Have a nice trip", the many voices echoed and then the whistling began. When that thing finally exit the cart, I nearly fainted. 
 
