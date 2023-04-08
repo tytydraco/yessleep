@@ -6,9 +6,9 @@ In my first dream, I found myself on a hill that rose above a wildly sprawling j
 
 Suddenly, it was dazzlingly bright. The sky seemed to shine with the lights of a thousand suns, and the clouds were swept into a vortex of glaring light and distorted, warped air. Only for fractions of a second, I could see the huge stone, surrounded by sparkling streaks, striking the earth and causing everything to fade away in a hot, searing flash.
 
-Slowly, my vision cleared, and I felt as if time were speeding up, as if I could see the site of the impact cooling over centuries and the dust thinning, the molten earth turning back to stone, and a gigantic crater gaping where the object had struck. My thoughts seemed to suddenly dissipate, and vast beaches and deep canyons passed by. The world seemed to change: the climate, the lands, the animals, and the plants... 
+Slowly, my vision cleared, and I felt as if time were speeding up, as if I could see the site of the impact cooling over centuries and the dust thinning, the molten earth turning back to stone, and a gigantic crater gaping where the object had struck. My thoughts seemed to suddenly dissipate, and vast beaches and deep canyons passed by. The world seemed to change: the climate, the lands, the animals, and the plants...
 
-Everything changed. 
+Everything changed.
 
 *Everything… changed.*
 
@@ -22,17 +22,17 @@ It bubbled down there, intruding from far away. Had our world collided with anot
 
 The air was cold and a sulfurous wind whistled around me. I could hear nothing but the wheezing cries of the wind. A force inside me pulled me down, urging me to look at whatever was happening there. The urge to know was back. I hated myself for it, but I just had to know what cruel abnormalities were waiting for me below...
 
-Slowly, I began to descend, the rocks black and frozen like tar. It was several hundred meters to the bottom of the enormous crater, and I proceeded with caution to avoid slipping and falling. 
+Slowly, I began to descend, the rocks black and frozen like tar. It was several hundred meters to the bottom of the enormous crater, and I proceeded with caution to avoid slipping and falling.
 
 Finally, after what felt like hours, I reached the bottom of the crater, where the air shimmered and reflected distorted, warped swirls glistening in the midday sun. I felt as if I was peering behind the veil of the world, gazing upon a distorted elsewhere that was closely interwoven with our reality, everywhere and nowhere at once. It was a miracle! What new lands would await someone who passed through those shimmering patterns? What wisdom, what insights?
 
 Questions flooded my mind. Did the crater still exist, millions of years later in our time? Would I be able to find it? And if I did, could I locate that crack in the fabric of the world and pass through it to the immaterial spheres beyond? Could I become the greatest explorer in human history...?
 
-Like a disease, these thoughts had poisoned my mind. I was still relatively far away, still carefully climbing over the bulging crater walls, but the closer I got, the more I wanted to step through. Suddenly, I felt cold. It was as if all my joy, all my urge to explore, had been stifled and smothered by oppressive terror. 
+Like a disease, these thoughts had poisoned my mind. I was still relatively far away, still carefully climbing over the bulging crater walls, but the closer I got, the more I wanted to step through. Suddenly, I felt cold. It was as if all my joy, all my urge to explore, had been stifled and smothered by oppressive terror.
 
-I began to fear for my life, although I was still aware that I was just dreaming. An old dread welled up inside me, and my eyes wandered around in panic, searching for something unusual, but there was nothing except the warped patterns. 
+I began to fear for my life, although I was still aware that I was just dreaming. An old dread welled up inside me, and my eyes wandered around in panic, searching for something unusual, but there was nothing except the warped patterns.
 
-And then, suddenly, they emerged from the distorted, swirling glimmers. 
+And then, suddenly, they emerged from the distorted, swirling glimmers.
 
 They were tall, very tall, measuring perhaps three or four meters. Their legs were similar to those of a human but thinner and almost gnarled. The upper bodies were unusually skinny as well and almost like ours, though their arms reached down to their knees like rampant, growing white branches, where they sprouted those six-fingered claws that disturbed me more with every additional passing second. Their necks measured about a meter and seemed rigid and alien, as did their melon-sized heads with their two giant black eyes and their wide mouths containing needle-like teeth.
 
@@ -54,15 +54,15 @@ I woke up from my dream, seconds before the being and the others had arrived at 
 
 Drenched in sweat, I sat there trying to comprehend and understand what I had just experienced. That day, I didn't go to work or for a walk to distract myself. Instead, I lay in bed and felt the dreams and memories of those blasphemous walls trying to hypnotize me again. I barely managed to drink a glass of water before I dove into a nightmare-filled sleep once more.
 
-I was torn into strange visions and fragments of past memories told by the murals, forced to remember. I saw the terrible skinny creatures building vast cities and alien factories all across the planet's surface, gradually diving deeper and deeper into the ancient knowledge of the universe. They somehow extracted it from a strange other place by using advanced gadgets and their own minds. 
+I was torn into strange visions and fragments of past memories told by the murals, forced to remember. I saw the terrible skinny creatures building vast cities and alien factories all across the planet's surface, gradually diving deeper and deeper into the ancient knowledge of the universe. They somehow extracted it from a strange other place by using advanced gadgets and their own minds.
 
 They already knew so much! They knew what lifeforms lived on Earth and what flora and fauna the planet housed. They had apparently surveyed Earth for a long time with their sensors and machines in search of a new home. It was a hectic search, feverish, driven by the urge to survive, and they had been terrified because...
 
-Blackness, a nameless void, and fear - unspeakable fear. 
+Blackness, a nameless void, and fear - unspeakable fear.
 
 Their fear.
 
-A disturbing and unsettling sensation grew inside me when I realized that the creatures had fled from something - strange and ungraspable thoughts indicated a cosmic enemy that had ultimately destroyed their home world. 
+A disturbing and unsettling sensation grew inside me when I realized that the creatures had fled from something - strange and ungraspable thoughts indicated a cosmic enemy that had ultimately destroyed their home world.
 
 I don't know whether they had run from another race, a sentient natural disaster, the end of all things, or just an idea bleeding into our world. But they had fled, had run, and so they had come here. The name of their enemy was etched deep into their minds - they called it “Eslud Esmad”.
 
@@ -74,7 +74,7 @@ They had a thirst for exploration, a thirst to know, to know everything. In flas
 
 I suddenly remembered one of the murals in detail, delirious. It showed them encountering another race on one of Jupiter's moons. The beings of that race were so foreign and unnatural that I had to quickly forget their depictions - weird, wavy lines and grotesque shapes within them.
 
-I am not sure who started the war, but soon massive battles were waged on the moon's surface, until the skinny ones… until we… drove the others back and below the ground, eradicating all cities they could find. 
+I am not sure who started the war, but soon massive battles were waged on the moon's surface, until the skinny ones… until we… drove the others back and below the ground, eradicating all cities they could find.
 
 I remembered them killing those moon-dwellers, that vermin, that scum…
 
@@ -82,13 +82,13 @@ Despite being highly advanced as well, the native moon beings did not stand a ch
 
 That… plane… was one of the sources of their knowledge and power. It was a place that was different and alien, a land of ideas, souls, and thoughts. It was the warped space I had seen in the crater. It was the place we move through in our dreams, the place that is everywhere and nowhere, immaterial, and still potent.
 
-As time passed, my dreams started to shift into each other at a more and more rapid pace. They were studying, cataloging, and one day, experimenting. The further my visions took me, the more bizarre and disturbing experiments I was forced to see, experiments conducted on living creatures, and on me. They started to modify some animals by using their advanced biological machineries, producing horrid chimeras. The memory of those suffering misshapen creatures made me yearn to wake up and threatened to rupture the dream I was imprisoned in, but something held me down, something inside me. 
+As time passed, my dreams started to shift into each other at a more and more rapid pace. They were studying, cataloging, and one day, experimenting. The further my visions took me, the more bizarre and disturbing experiments I was forced to see, experiments conducted on living creatures, and on me. They started to modify some animals by using their advanced biological machineries, producing horrid chimeras. The memory of those suffering misshapen creatures made me yearn to wake up and threatened to rupture the dream I was imprisoned in, but something held me down, something inside me.
 
 The part that wanted to know more...
 
 For centuries, they did research on all races they could get their hands on, degenerating and devolving them, and in the end, modifying them to use their brains for data processing. Again and again, my mind inhabited the creatures they used for their experiments, locked away in strange rooms, connected to tubes, and operated on while being fully conscious, taking away my limbs or organs, studying my reactions exposed to poisons, weapons, and the vacuum of space. The pain I felt quickly ripped me away from those moments each time, and for that, I am grateful.
 
-However, in the end, there were a last series of modifications, a last series of experiments. One hall, located in the largest tower and the deepest depths of their laboratories, was where it happened. Where I suffered their curiosity again and again, within smooth and radiant walls, decorated only by black sculptures and statues. 
+However, in the end, there were a last series of modifications, a last series of experiments. One hall, located in the largest tower and the deepest depths of their laboratories, was where it happened. Where I suffered their curiosity again and again, within smooth and radiant walls, decorated only by black sculptures and statues.
 
 In my dream, I entered that hall multiple times, in the bodies of different people and ape-like animals, but always experiencing a similar chain of events. I knew that the statues, with their black coral-like patterns and sharp edges, were technologies beyond comprehension, devices that could rupture and warp flesh and mind into different shapes, shapes that were designed by… them.
 
@@ -98,33 +98,33 @@ We tried to run, but they paralyzed us and took away our limbs so we could not e
 
 I faintly remember how my mind was ripped from my body and placed inside a fleshy grey lump. I saw it through the eyes of other humans nearby who were still in their boxes; the dream was pain, just pain, suffering, desperation, and loneliness. And I could not wake up. The minds were inserted into clunky servicing and building robots, slaving away for thousands of years without being able to feel or scream, just to think. Just to think… Just to remember what being human had been, once. A long time ago, we were locked inside those prisons forever, unable to move or articulate, just being used as hardware, lost in infinite darkness with only our own thoughts.
 
-And sometimes, they fed me with other thoughts. They gave me experimental and constructed thoughts in the darkness, things to think and feel. On some occasions, my mind just dissolved because it could not take the abstract and alien ideas. The dream never let me live through one of those artificial thoughts but tore me away before their heavy, cancerous nature got too close. 
+And sometimes, they fed me with other thoughts. They gave me experimental and constructed thoughts in the darkness, things to think and feel. On some occasions, my mind just dissolved because it could not take the abstract and alien ideas. The dream never let me live through one of those artificial thoughts but tore me away before their heavy, cancerous nature got too close.
 
 I remember the grey substance on the Cerberus statue that had let me enter the halls, making my body shiver in horror.
 
-Could it be... 
+Could it be...
 
 No!
 
-I must have stayed in those bodies for years, repeatedly living through different people and their horrid fates, their fears and suffering, my mind being ripped away again and again into darkness. Every time my dream brought me to another person, made me witness my friends and family and enemies being turned into those grey fleshy lumps before I myself was taken into the eternal dark. The experiences...no, the memories made me go mad, and though it was just a vivid dream, I spaced out and can't remember some of the thoughts I had in the blackness. 
+I must have stayed in those bodies for years, repeatedly living through different people and their horrid fates, their fears and suffering, my mind being ripped away again and again into darkness. Every time my dream brought me to another person, made me witness my friends and family and enemies being turned into those grey fleshy lumps before I myself was taken into the eternal dark. The experiences...no, the memories made me go mad, and though it was just a vivid dream, I spaced out and can't remember some of the thoughts I had in the blackness.
 
 This was not the worst, however. Additional research was conducted, time passed, and one horrible day, I did not wake up in darkness after my mind was taken, but suddenly opened my eyes... I did not feel, had no sense of touch or smell, but I could see... I could see... and speak... They had given me back my eyes and my mouth...
 
-I screamed in pain and horror, seeing them look up at me and my new body, piercing me with their gazes and big dark eyes. I do not know why they did it. Was it for fun? No, curiosity? 
+I screamed in pain and horror, seeing them look up at me and my new body, piercing me with their gazes and big dark eyes. I do not know why they did it. Was it for fun? No, curiosity?
 
-But those were not the only things they did to us, to our ancestors. I could see other experiments in the horrid boxes where they stored us, ruins of flesh like books on a shelf. Some of us they turned into slug-like, grotesque creatures whose bile they used as supplements. They had whole farms of us, human-slugs being kept in lightless pens or, when no longer needed, set free to disappear into cracks and caves underground. I did not even try to imagine some of them still being alive today, living in their horrendously deformed bodies. 
+But those were not the only things they did to us, to our ancestors. I could see other experiments in the horrid boxes where they stored us, ruins of flesh like books on a shelf. Some of us they turned into slug-like, grotesque creatures whose bile they used as supplements. They had whole farms of us, human-slugs being kept in lightless pens or, when no longer needed, set free to disappear into cracks and caves underground. I did not even try to imagine some of them still being alive today, living in their horrendously deformed bodies.
 
-I remember their panicked minds dulled and broken, slithering into holes, into the depths of the Earth, betrayed by their gods. 
+I remember their panicked minds dulled and broken, slithering into holes, into the depths of the Earth, betrayed by their gods.
 
 Despite all this, despite their attempts to advance their civilization, to explore and experiment, despite their vast power, I knew they still feared the thing that had once forced them to leave behind their home.
 
-They still feared Eslud Esmad. 
+They still feared Eslud Esmad.
 
 They monitored space as much as they could, but for a long time, nothing was found. It appeared that the creatures were able to extend their lifespans indefinitely because they possessed an eerie knowledge of death, so some of them must have been looking at the night sky for many centuries, searching for anomalies.
 
 Their immaterial fields of mind, which seemed to be similar to our consciousness, grew to immeasurable sizes. From what I can tell, the magnitude of a field of mind determined a skinny one's social status and power, creating a natural hierarchy.
 
-A word started to flash through my dreamlike state, a word that I had always known deep down. I looked at them and their drive to know...and then it came to me. 
+A word started to flash through my dreamlike state, a word that I had always known deep down. I looked at them and their drive to know...and then it came to me.
 
 Their name.
 
@@ -160,23 +160,23 @@ I don't have any proof. A collapsed tunnel, a missing person, and nothing else. 
 
 I know I will be hunted down as well and might not walk on our earth in the future the way I do now. Because, if they were to catch me like old Marco...
 
-In terror, I remember the moment down in the archives, the moment when the hatch on the machine opened, making it possible to take a look inside the construct that had chased me. I had seen a big grey lump of that terrible substance, although this one was looking disgustingly fresh. 
+In terror, I remember the moment down in the archives, the moment when the hatch on the machine opened, making it possible to take a look inside the construct that had chased me. I had seen a big grey lump of that terrible substance, although this one was looking disgustingly fresh.
 
 However, the most horrifying thing was those distorted eyes staring into mine and the warped mouth, crying out wheezing and humming sounds and words, not being dampened anymore by the metallic prison, making horrid screams echo from the walls: "Where am I? What did they do? What are these... alien thoughts? Did you touch the Cerberus? They feel your curiosity and let you in, the old minds inside the stones...!
 
-Please, where am I? It hurts so much! 
+Please, where am I? It hurts so much!
 
-They let you in, as they did with me! Now they know of you and will find you... 
+They let you in, as they did with me! Now they know of you and will find you...
 
 Where is my body? Please, kill me! Make this alien hell inside my head stop! They use my mind; it is theirs now! I want my body back. My limbs… My freedom. My life! Oh please, kill me! Please, kill me, make it stop... the Ebrugh... the Ebrugh..."
 
-I hope that the collapsing ceiling destroyed the machine, freeing Marco's soul from its hell, though I somehow doubt it. I will never be safe again because of my exploratory drive. 
+I hope that the collapsing ceiling destroyed the machine, freeing Marco's soul from its hell, though I somehow doubt it. I will never be safe again because of my exploratory drive.
 
-When will they take me? Perhaps today? Perhaps tomorrow? The Ebrugh could be everywhere. 
+When will they take me? Perhaps today? Perhaps tomorrow? The Ebrugh could be everywhere.
 
-I am certain that the Ebrugh return to our world occasionally, though likely just out of curiosity. After all, they are explorers. And left behind by them had been our ancestors, now able to thrive and evolve, finally becoming the people of today. 
+I am certain that the Ebrugh return to our world occasionally, though likely just out of curiosity. After all, they are explorers. And left behind by them had been our ancestors, now able to thrive and evolve, finally becoming the people of today.
 
-The stories told by the walls, by my mind, will ignite fierce resistance in pious men, and many will probably call me a liar and think of this as some tasteless joke or the ramblings of a madman. 
+The stories told by the walls, by my mind, will ignite fierce resistance in pious men, and many will probably call me a liar and think of this as some tasteless joke or the ramblings of a madman.
 
 Yes, I am mad.
 
@@ -186,6 +186,8 @@ I hope that I can at least succeed in sending these lines, that someone reads or
 
 Wish me luck...
 
-In moments like these, as I once again walk on the edge of reason and insanity, my thoughts travel back to those empty walls below Rome, still waiting to be filled with additional historical content by the Ebrugh. 
+In moments like these, as I once again walk on the edge of reason and insanity, my thoughts travel back to those empty walls below Rome, still waiting to be filled with additional historical content by the Ebrugh.
 
 [Did they plan on returning… one day?](https://www.youtube.com/watch?v=2bJePnJI0bM)
+
+[<wiki>](https://ebrugh-reports.fandom.com/wiki/The_Ebrugh_Reports#)

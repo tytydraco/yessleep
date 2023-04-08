@@ -1,8 +1,30 @@
-*Oh, I’m headin’ through the valleyWhere the lone road has no endGrizzly bear and mule deer greet meTrapper, hunter ain’t my friend*
+*Oh, I’m headin’ through the valley*
 
-*Take a sip, poor weary trav’lerDon’t join in, don’t rest your headTurn yourself back to your trail nowRavens talk, don’t be misled*
+*Where the lone road has no end*
 
-*I can’t help but miss my darlingIn this lonely place I roamBut the elk and lynx console meBig horned sheep will lead me home*
+*Grizzly bear and mule deer greet me*
+
+*Trapper, hunter ain’t my friend*
+
+&#x200B;
+
+*Take a sip, poor weary trav’ler*
+
+*Don’t join in, don’t rest your head*
+
+*Turn yourself back to your trail now*
+
+*Ravens talk, don’t be misled*
+
+&#x200B;
+
+*I can’t help but miss my darling*
+
+*In this lonely place I roam*
+
+*But the elk and lynx console me*
+
+*Big horned sheep will lead me home*
 
 I sang my grandfather’s old campfire tune as my Subaru cruised along the two-lane highway. There was no FM radio reception this far out into the mountains, so my choices were to sing or enjoy the silence. This song, in particular, felt appropriate: it had been two hours since the road had dipped into this valley, and I couldn’t recall seeing an exit since then, even a small dirt road or campground turnoff.
 
@@ -168,7 +190,9 @@ I nodded a third time.
 
 As we pulled away, I found myself drifting off. As my consciousness slipped away, the driver began to sing quietly:
 
-*Oh, I’m headin’ through the valleyWhere the lone road has no end…*
+*Oh, I’m headin’ through the valley*
+
+*Where the lone road has no end…*
 
 &#x200B;
 

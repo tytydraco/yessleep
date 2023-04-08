@@ -220,4 +220,4 @@ She just keeps staring into the TV.
 
 She hasn’t told me who ‘they’ are.
 
-I don’t know if I want to.
+I don’t know if I want to ask.
