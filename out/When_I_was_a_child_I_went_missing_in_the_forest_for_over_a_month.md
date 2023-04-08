@@ -68,7 +68,7 @@ When my feet moved to step onto them, I felt a strong hand on my shoulder, and t
 
 Once I woke up I remembered where I had seen them. They belonged to an old cabin in the woods.
 
-The cabin was maybe a kilometer out from my grandmother's house, and I decided to go for a hike. I informed my wife that I'd be gone for the majority of the day and apologized to my six-year-old for leaving so early on a Saturday.
+The cabin was maybe a mile out from my grandmother's house, and I decided to go for a hike. I informed my wife that I'd be gone for the majority of the day and apologized to my six-year-old for leaving so early on a Saturday.
 
 My grandmother wasn't a fan of my idea to go out alone, so she decided to accompany me.
 
@@ -124,38 +124,38 @@ My grandmother took me to this house that day I went missing, or whoever was pos
 
 I woke up, tied to a wooden table in the dark basement. My clothes were gone, and it was cold. And I felt a stinging pain in my chest. Despite my best efforts, I couldn't even lift my head, I had no energy. I remember crying then. After my tears dried out and I regained some energy, I suddenly heard some shuffling above.
 
-"Are you here Marc?" 
+"Are you here Marc?"
 
-"Marc where are you?!" 
+"Marc where are you?!"
 
 People were looking for me. I heard footsteps above me.
 
 A woman sighed. "He's not here."
 
-"No, let's go." 
+"No, let's go."
 
-I tried to scream and shout for help, but nothing came out. That's the last thing that I remember. my desperate attempts to cry for help. 
+I tried to scream and shout for help, but nothing came out. That's the last thing that I remember. my desperate attempts to cry for help.
 
-"Marc?" The younger policeman spoke, breaking me out of my daze. 
+"Marc?" The younger policeman spoke, breaking me out of my daze.
 
-"Huh, yeah?" I asked, blinking a couple of times. 
+"Huh, yeah?" I asked, blinking a couple of times.
 
-"Are you okay?" 
+"Are you okay?"
 
-"Yeah, I just remembered something suddenly," I answered truthfully. 
+"Yeah, I just remembered something suddenly," I answered truthfully.
 
-The policeman nodded and walked back over to his partner. I took a deep breath and looked around the forest. Thinking about it, it was a creepy place. 
+The policeman nodded and walked back over to his partner. I took a deep breath and looked around the forest. Thinking about it, it was a creepy place.
 
-For some reason, I had the feeling that we were being watched. I couldn't shake it off. Someone was watching us. "Okay, let's head back, we called in backup, this is beyond us two." 
+For some reason, I had the feeling that we were being watched. I couldn't shake it off. Someone was watching us. "Okay, let's head back, we called in backup, this is beyond us two."
 
-I nodded and followed the policemen out of the forest, the feeling of being watched didn't disappear until we were out. 
+I nodded and followed the policemen out of the forest, the feeling of being watched didn't disappear until we were out.
 
-I hugged my grandmother goodbye and went home that day. I told my wife everything that happened and what we found. 
+I hugged my grandmother goodbye and went home that day. I told my wife everything that happened and what we found.
 
-I had another dream last night. It was completely different from the rest. I was no longer walking in the forest. I was in the basement of that cabin. I could hear footsteps above and for some reason, those footsteps scared me a lot. I was trembling in fear. Eventually, I heard them leave the cabin and relaxed. Then I heard a new pair of footsteps enter, they were lighter, smaller. The secret door to the basement suddenly opened and I saw a disheveled boy with messy brown hair and torn clothes smile at me. "Let's go." 
+I had another dream last night. It was completely different from the rest. I was no longer walking in the forest. I was in the basement of that cabin. I could hear footsteps above and for some reason, those footsteps scared me a lot. I was trembling in fear. Eventually, I heard them leave the cabin and relaxed. Then I heard a new pair of footsteps enter, they were lighter, smaller. The secret door to the basement suddenly opened and I saw a disheveled boy with messy brown hair and torn clothes smile at me. "Let's go."
 
-I woke up after that. I couldn't remember his face. Only his long messy hair, and his smile. Who is he? 
+I woke up after that. I couldn't remember his face. Only his long messy hair, and his smile. Who is he?
 
-I don't know why I'm starting to remember these things now, I don't know what happened to me during that month I spent in the forest, or why I forgot everything. But I want to know. I want to find out. The police called me today. When they went back out to the cabin yesterday, the rest of the cabin had collapsed into the basement, and when they investigated the remains, there were no bodies. No glass jars, or any organs. The only thing that remained was the pungent smell of dead bodies.
+I don't know why I'm starting to remember these things now, I don't know what happened to me during that month I spent in the forest, or why I forgot everything. But I want to know. I want to find out. 
 
 I'll be going back to the forest today to see if I remember anything else. I'll post an update once I figure out something new.
