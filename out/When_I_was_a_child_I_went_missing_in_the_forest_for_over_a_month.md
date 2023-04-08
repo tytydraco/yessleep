@@ -68,7 +68,7 @@ When my feet moved to step onto them, I felt a strong hand on my shoulder, and t
 
 Once I woke up I remembered where I had seen them. They belonged to an old cabin in the woods.
 
-The cabin was maybe a mile out from my grandmother's house, and I decided to go for a hike. I informed my wife that I'd be gone for the majority of the day and apologized to my six-year-old for leaving so early on a Saturday.
+The cabin was maybe a mile out from my grandmother's house, and I decided to go for a hike. I informed my wife that I'd be gone for the majority of the day and apologized to my six-year-old for leaving so early during the holidays, today was a Thursday.
 
 My grandmother wasn't a fan of my idea to go out alone, so she decided to accompany me.
 
@@ -156,6 +156,10 @@ I had another dream last night. It was completely different from the rest. I was
 
 I woke up after that. I couldn't remember his face. Only his long messy hair, and his smile. Who is he?
 
-I don't know why I'm starting to remember these things now, I don't know what happened to me during that month I spent in the forest, or why I forgot everything. But I want to know. I want to find out. 
+I don't know why I'm starting to remember these things now, I don't know what happened to me during that month I spent in the forest, or why I forgot everything. But I want to know. I want to find out.
 
 I'll be going back to the forest today to see if I remember anything else. I'll post an update once I figure out something new.
+
+\--------------
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/12fpfzq/when_i_was_a_child_a_strange_boy_rescued_me_from/)
