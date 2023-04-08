@@ -191,5 +191,3 @@ Then we all turned as Greg screamed down the hall toward us. “Hey! Get back to
 That’s all I have time to type out today, I have to get back to work, But I think I am going to look into it and see if I can track down any information on Genie or Bill. I have resources at work that could maybe help me.
 
 I guess I will post again when and If I find out anything about them. In the meantime, I guess just stay tuned.
-
-There's something odd happening at the Coal Plant... Here's [My latest update](https://www.reddit.com/r/nosleep/comments/128cwxj/i_just_moved_back_to_my_childhood_town_another/?utm_source=share&utm_medium=web2x&context=3).
