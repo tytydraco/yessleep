@@ -6,7 +6,11 @@ I was taken aback and asked her what she was doing. She continued to count down 
 
 "What just happened?" I asked, trying to hide my concern.
 
-"I don't know," she replied, looking bewildered. "I felt like I was in a dream or something."
+"What are you talking about?” she replied, looking bewildered.  
+
+“You were counting down”
+
+“Really? This is a kinda weird joke, you know that?”
 
 I could tell something was wrong, but I didn't want to push her too hard. We finished our dinner, but the strange incident lingered in my mind.
 
@@ -20,13 +24,13 @@ I tried to snap her out of it, but it was like she was in a deep hypnotic trance
 
 "Honey, can you hear me? Wake up!" I shook her gently, but she was unresponsive.
 
-I watched in horror as she counted down, hoping that she would snap out of it soon. When she finally stopped, she looked at me with a blank expression and asked, "What happened?"
+I watched in horror as she counted down, hoping that she would snap out of it soon. When she finally stopped, she looked at me with a blank expression and asked, "Why are you looking at me like that?"
 
 "You were counting down again," I said, my voice quivering with fear. "Are you okay?"
 
-She looked at me with confusion in her eyes and shook her head. "I don't remember anything. What's going on?"
+She looked at me with confusion in her eyes and shook her head. "Jake, please don’t play this joke on me again!"
 
-I didn't know what to say. I felt helpless and scared, wondering what was happening to my beloved wife.
+I didn't know what to say. I felt helpless and scared, wondering what was happening to my beloved wife but I did not want to get into an argument.
 
 The next day, I woke up feeling anxious and frightened. The events of the previous days had taken their toll on me, and I couldn't shake off the feeling of unease. I went to work, but I couldn't concentrate on anything. My colleagues noticed that I was acting strange, and they tried to ask me what was wrong.
 
@@ -40,23 +44,21 @@ When I got home, my wife was already there, and I could tell she had noticed my 
 
 "I'm just worried about you," I admitted, feeling tears welling up in my eyes. "I don't understand why you keep counting down. What happens when you reach zero?"
 
-She looked at me with concern, but also a hint of confusion in her eyes. "I don't know," she said. "I wish I could explain it, but I can't."
+She looked at me with concern, but also a hint of confusion in her eyes. "Jake, you make me feel scared! Please stop this nonsense!"
 
 "I think we should see a doctor," I suggested. "Maybe they can figure out what's going on."
 
-But she was reluctant, insisting that it was just a temporary brain glitch and that it would go away on its own. We agreed to wait until she reached zero, and then we would seek medical help if needed.
+“Stop! Please stop!” she screamed.
+
+That night, she did not talk to me and we slept in separate rooms. I told myself that it was just a temporary brain glitch and that it would go away on its own. I decided to wait until she reached zero, and then I would seek medical help if needed.
 
 That night, during dinner, she counted down again, this time stopping at 69. It was becoming a pattern, and it scared me to think what would happen if she ever reached zero.
 
-"Do you remember anything?" I asked her, hoping for some answers.
-
-"No," she replied, looking frustrated. "I don't know why this keeps happening."
-
-I could see the fear in her eyes, and I knew if it would not go away, we couldn't just wait and hope for the best. We needed to take action if it was necessary.
+When she was done counting, I didn’t say a word but I could tell she saw the fear in my eyes, and I knew if it would not go away. I just waited and hoped for the best. I needed to take action if it was necessary.
 
 So it has been going on for days now and she always stops at random numbers. I cannot even see patterns in those numbers. Yesterday she stopped at number 7. I am expecting that tonight she reaches zero, and we will finally find out what happens. I finished my work in the afternoon, my wife is preparing dinner in the kitchen at the moment. I have to admit, the air is tense, and I can feel my heart racing with anticipation.
 
-I can’t help but wonder what the night will hold. Will my wife experience some sort of cataclysmic event when she reaches zero? Or will something really unexpected happen? We are both anxious to find out.
+I can’t help but wonder what the night will hold. Will we experience some sort of cataclysmic event when she reaches zero? Or will something really unexpected happen? I am anxious to find out.
 
 I will edit this entry soon to let you guys know what happened.
 

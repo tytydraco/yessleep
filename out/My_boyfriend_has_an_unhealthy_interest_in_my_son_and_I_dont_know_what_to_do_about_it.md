@@ -72,6 +72,10 @@ If Darren is capable of aggression (I don’t know if he is), then confronting h
 
 Is this all in my head? Has anyone faced something like this before, or does someone recognize this behavior? Am I overreacting? Any (immediate) advice would be appreciated.
 
+--------------------
+
+[Well *that* was a dumb idea](https://redd.it/12fjcrn)
+
 _____________________________
 
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/).
