@@ -376,3 +376,7 @@ I took a deep breath and screamed into the receiver. My voice was shaking so bad
 [“EMILY! HELP!”](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
 [SK](https://www.reddit.com/r/SimbaKingdom/)
+
+***
+
+[Part 3–FINAL](https://www.reddit.com/r/nosleep/comments/12fotdb/i_dont_think_im_normal_and_im_scared_final/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)

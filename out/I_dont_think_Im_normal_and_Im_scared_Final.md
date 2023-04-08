@@ -1,3 +1,7 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/121irll/i_dont_think_im_normal_and_im_scared_part_1/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/122j3ei/i_dont_think_im_normal_and_im_scared_part_2/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
+
 “THERE’S BUGS EVERYWHERE AND DAD HAS TURNED INTO ONE AND…AND…”
 
 I broke down into tears. Everything was going wrong, so wrong, and spinning out of control. My knees gave way and I collapsed onto the ground, my tears watering the grass.
