@@ -2,11 +2,10 @@
 
 \---------------------
 
-Thank you for all your advice and feedback on my first post. I listened to some of you, and called my best friend, Killian, to come along.
+Thank you for all your advice and feedback on my first post. So I wanted to address some things before I begin, first of all, I am born and raised in Canada. To some of you thinking that my parents passing might somehow be related, it's not. They died in a car crash according to my grandmother.  
+And for people worrying about me going to the forest alone, I won't, I'll be going today, I wasn't able to yesterday, and you're about to find out why. 
 
-To some of you thinking that my parents passing might somehow be related, it's not. They died in a car crash according to my grandmother.
-
-The cops, or I guess I should say the FBI questioned me yesterday. I got a call that went something like this.
+I got a call last morning from the police department that went something like this.
 
 "Hello, this is the police department, am I speaking with Marc?"
 
