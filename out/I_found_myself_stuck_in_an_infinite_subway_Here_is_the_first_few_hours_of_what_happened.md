@@ -125,3 +125,7 @@ When Matt told me that, I had a sudden realization.
 "Come, kid, let's go."
 
 And so I went with Matt to get water. Right now we're still walking but I'm making this post to hopefully get some help. I'll update with new information when I have more time.
+
+----------------------
+
+Part 2: https://www.reddit.com/r/nosleep/comments/12g0b4u/when_in_the_infinite_subway_if_you_smell_salt_run/
