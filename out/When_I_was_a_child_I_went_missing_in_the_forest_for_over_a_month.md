@@ -150,7 +150,7 @@ For some reason, I had the feeling that we were being watched. I couldn't shake 
 
 I nodded and followed the policemen out of the forest, the feeling of being watched didn't disappear until we were out.
 
-I hugged my grandmother goodbye and went home that day. I told my wife everything that happened and what we found.
+I hugged my grandmother goodbye and went home that day. I told my wife everything that happened and what we found. She was mortified. 
 
 I had another dream last night. It was completely different from the rest. I was no longer walking in the forest. I was in the basement of that cabin. I could hear footsteps above and for some reason, those footsteps scared me a lot. I was trembling in fear. Eventually, I heard them leave the cabin and relaxed. Then I heard a new pair of footsteps enter, they were lighter, smaller. The secret door to the basement suddenly opened and I saw a disheveled boy with messy brown hair and torn clothes smile at me. "Let's go."
 

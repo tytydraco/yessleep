@@ -2,8 +2,7 @@
 
 \---------------------
 
-Thank you for all your advice and feedback on my first post. So I wanted to address some things before I begin, first of all, I am born and raised in Canada. To some of you thinking that my parents passing might somehow be related, it's not. They died in a car crash according to my grandmother.  
-And for people worrying about me going to the forest alone, I won't, I'll be going today, I wasn't able to yesterday, and you're about to find out why. 
+Thank you for all your advice and feedback on my first post. So I wanted to address some things before I begin, first of all, I am born and raised in Canada. To some of you thinking that my parents passing might somehow be related, it's not. They died in a car crash according to my grandmother.And for people worrying about me going to the forest alone, I won't, I'll be going today, I wasn't able to yesterday, and you're about to find out why.
 
 I got a call last morning from the police department that went something like this.
 
@@ -263,4 +262,4 @@ I shuddered in fear of what this could mean. Is Liam in danger? Are we all in da
 
 I couldn't sleep last night, thinking about everything that had happened the day prior. Nothing made sense. How could I have bled so much when we ran away, but have no scars now? Why did Liam draw that picture? Where had he seen it? Who is Lucifer? Why does the boy that saved me have his eyes?
 
-I'll be going to the forest as soon as I finish writing this post, I am on the holidays for the duration of easter so I have some time to spare, and for people worrying for my well being, I will ask my best friend to come along, so do not worry.
+I'll be going to wake up Liam as soon as I finish writing this post, I need some answers and his painting might be the key to everything. 
