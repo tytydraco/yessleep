@@ -262,4 +262,8 @@ I shuddered in fear of what this could mean. Is Liam in danger? Are we all in da
 
 I couldn't sleep last night, thinking about everything that had happened the day prior. Nothing made sense. How could I have bled so much when we ran away, but have no scars now? Why did Liam draw that picture? Where had he seen it? Who is Lucifer? Why does the boy that saved me have his eyes?
 
-I'll be going to wake up Liam as soon as I finish writing this post, I need some answers and his painting might be the key to everything. 
+I'll be going to wake up Liam as soon as I finish writing this post, I need some answers and his painting might be the key to everything.
+
+\-----------------
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/12gxs7v/when_i_was_a_child_something_harvested_my_organs/)
