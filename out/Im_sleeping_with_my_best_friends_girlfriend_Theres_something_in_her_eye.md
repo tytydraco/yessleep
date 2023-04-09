@@ -1,6 +1,6 @@
 First of all, yeah. I knows it's not right.
 But hear me out.
-My best friend, who i'm gonna call Dean, and I grew up together. we love the same movies, we went to the same school.
+My best friend, who i'm gonna call Dean, and I grew up together. we loved the same movies, we went to the same school.
 
 He was the smart guy, the one who helped everybody get ready for an exam.
 
@@ -16,18 +16,18 @@ Sad thing is, so did I.
 
 She was a really nice, quirky person. I really loved the way her blue dyed hair fell all the way down to her lower back, or how the little piercing she had on her left nosetril make her hole face glow.
 
-They we're together for almost a four year, and in all that time I never made a mover. I love Dean with al my heart. Of course i wouldn't. 
+They we're together for almost a four year, and in all that time I never made a move. I love Dean with all my heart. Of course i wouldn't. 
 
-But then they decided to take a little trip to San Francisco. They stated at an apartament that usted to belong to Dean's sister.
+But then they decided to take a little trip to San Francisco. They stayed at an apartament that used to belong to Dean's sister.
 
-They stay there for two weeks.
+They stayed there for two weeks.
 Then they came back and everything was different.
 
-Nicole began spending more time with me, or so i thought, but in reality, she just wanted yo stay away from him.
+Nicole began spending more time with me, or so i thought, but in reality, she just wanted to stay away from him.
 
 Both of them changed.
 
-Dean, who usted to be a smartass, always with a quick response, or always with his old camera, filming everything, was nos a distant, cold person.
+Dean, who used to be a smartass, always with a quick response, or always with his old camera, filming everything, was now a distant, cold person.
 He began calling me in the middle of the night, but he didn't said anything. 
 Eventually I faced him and he just said that while in the apartament , both of them "Saw something on the walls" and whatever that was wouldn't let them sleep.
 
@@ -68,7 +68,7 @@ I stay quiet a couple of minutes, trying to figure out te source.
 
 Suddendly I figure where the sound was comimg from and I almost ran away from there. I could swear I got cold and some horrible goosebumps traveled through my skin.
 
-I leaned fowars and presses my ear against the wall.  
+I leaned forward and pressed my ear against the wall.  
 
 I didn't hear anything, but then, a scream.
 It was Nicole.
@@ -100,7 +100,7 @@ Then on another wall.
 And so went on all night.
 I ran to the bathroom as tons of scratching noises filled the room. 
 
-But before I went in i saw her.
+But before I went in I saw her.
 Nicole was sitting on the bed. Waving at me. No eyes on her face, but her smile was all teeth. She kept waving as I locked my self on the bathroom. 
 
 I slept there and for the whole day I didn't went out.
