@@ -91,13 +91,13 @@ Or a version of hell.
 I backed off and only stared as Nicole tear her eyes out with her nails.
 I cried.
 Minutes later she stopped screaming.
-Minutes after that she stopped moving.
+Minutes after that, she stopped moving.
 
 Then I heard the scratching again.
 I went to the living room, shaking and I just stared at the wall. Something was scratching ON the wall. Not inside it.
-There we're small white marks on the wall.
+There were small white marks on the wall.
 Then on another wall.
-And so went on all night.
+And so it went on all night.
 I ran to the bathroom as tons of scratching noises filled the room. 
 
 But before I went in I saw her.
