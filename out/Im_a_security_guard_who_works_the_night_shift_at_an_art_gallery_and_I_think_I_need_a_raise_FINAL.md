@@ -2,7 +2,7 @@
 
 I arrived in Ireland after a short flight, but I was too late.
 
-The dilapidated house harboured secrets. Though I was armed with Harper’s knowledge, the brutish building still intimidated and mystified me. The terror stemmed from more than vines creeping up walls or the graffitied innards of the haunted house. It was the place’s unearthly aura. Lingering evil from the horrors that had unfolded twenty years ago.
+The dilapidated house harboured secrets. Though I was armed with Harper’s knowledge, the brutish building still intimidated and mystified me. The terror stemmed from more than vines creeping up walls or the graffitied innards of the haunted house. It was the place’s unearthly aura. Lingering evil from the horrors that unfolded twenty years earlier.
 
 Why did Harper have to tell me where she’d hidden the tooth? My hypothesis is that the Exacter wormed its way into her mind — maybe it finally succeeded in tricking her.
 

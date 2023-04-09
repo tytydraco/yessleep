@@ -34,7 +34,7 @@ I decided it was best to avoid the topic of Mr. Bighead for now. Establishing tr
 
 We started talking about the family situation and I discovered that Mary had actually been widowed shortly after Jonathon was born, her husband had died in a car accident. A mixture of poor weather conditions and drink driving. I had an inkling that this tragedy perhaps played into the creation of Mr. Bighead but I decided it would be best to leave that particular theory for the next session.
 
-From there we discussed more mundane topics such as her employment with a department store, the stress from increasing mortgage payments and grocery bills, how Mary had to make the choice between Taco Tuesday and Pizza Friday, that little topic got Jon talking for the first time, a good sign. Then we moved onto Jon and how he was finding elementary school, what his friends were like, his life aspirations. 
+From there we discussed more mundane topics such as her employment with a department store, the stress from increasing mortgage payments and grocery bills, how Mary had to make the choice between Taco Tuesday and Pizza Friday, that little topic got Jon talking for the first time, a good sign. Then we moved onto Jon and how he was finding elementary school, what his friends were like, his life aspirations.
 
 All things considered; Jon was a normal little boy…except for this Mr. Bighead character that has his mother worried.
 
@@ -78,7 +78,7 @@ It was dark when I got home. I didn’t even get through the front door of my ho
 
 I lived by myself so there was no lights on waiting for me so I half stumbled in the dark to the kitchen where I could lay down the shopping on the bench. You would think an accredited psychologist like me would have a loving family waiting for me at home, my own rugrats with their own imaginary friends but life just keeps getting in the way you know?
 
-I turned on the light, not that I needed the light really, I had stumbled to the fridge during the middle of the night enough times to know where everything was with my eyes closed. 
+I turned on the light, not that I needed the light really, I had stumbled to the fridge during the middle of the night enough times to know where everything was with my eyes closed.
 
 I sorted the refrigerated groceries first and then walked over to the cupboard when I thought I saw it, the silhouette of a giant head through the window in my backyard. But I stopped and did a double take. If it was there, it was gone now. A cat? Possibly the moonlight? I had played this game enough today and shrugged my shoulders. Not getting carried away that time.
 
@@ -94,7 +94,7 @@ I was scared stiff. Literally. I tried to call out but my throat wouldn’t move
 
 My gaze shifted to my right where the moonlight shone through my bedroom window. There he was. Mr. Bighead, he looked like an ordinary man EXCEPT FOR HIS GIANT HEAD. It honestly looked like somebody had overinflated his head to a comical proportion and his facial features stayed stuck to the front. It would be funny if he hadn’t invaded my home and if I wasn’t frozen still.
 
-“You ain’t going nowhere doc and neither am I, you hear me? I don’t you talking to Jonny, I got a good thing going. A loving home. Do you know how hard those are to come by? Hard, doc. Real hard. Why you gotta interfere in a good thing? Do you think you’re helping people? By getting rid of me? I have a right to exist you know. You ain’t gotta a say in that. Don’t you go getting rid of me. I’m a good guy. You just- you just leave me alone you hear? Consider this a warning doc.”
+“You ain’t going nowhere doc and neither am I, you hear me? I don’t want you talking to Jonny, I got a good thing going. A loving home. Do you know how hard those are to come by? Hard, doc. Real hard. Why you gotta interfere in a good thing? Do you think you’re helping people? By getting rid of me? I have a right to exist you know. You ain’t got a say in that. Don’t you go getting rid of me. I’m a good guy. You just- you just leave me alone you hear? Consider this a warning doc.”
 
 I blinked. My arm threw the blanket across the room and fell on the floor. There was no apparition there. I was the only person in my bedroom. Just me, sitting up, gasping for breath.
 
