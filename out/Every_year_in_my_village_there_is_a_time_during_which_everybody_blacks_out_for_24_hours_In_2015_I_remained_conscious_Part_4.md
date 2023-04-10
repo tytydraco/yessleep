@@ -107,3 +107,5 @@ Her words echoed in my mind with a relaxing effect. I needed to rest indeed. Aid
 Forgetting that I had salt, I took out the gun from the backpack with no idea about how to use it; I was just ready to pull the trigger. I followed the sounds to a cupboard in Adelaide's bedroom. Its door had the symbol resembling a compass that I saw earlier on Redeye's ceremonial cloak.. Upon opening it I discovered the hidden entrance of a secret and very dark basement.
 
 The sounds came from there.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/12h1cbh/every_year_in_my_village_there_is_a_time_during/)
