@@ -86,24 +86,24 @@ He was taller than an average man, maybe by 5 or 6 inches. He was lanky and seem
 
 I began walking quickly, ready to take off running was he to approach me any closer. I looked around. No one was out at such a time. I felt uneasy and began jogging away from the man.
 
-I made the mistake of looking behind myself a few minutes into the race. The man was following me, running quiet fast. His arms were sat awkwardly by his sides and the earth seemed to shake every time he took a step. My heart racing, I began running, turning the corner in an attempt to confuse him.
+I made the mistake of looking behind myself a few minutes into the race. The man was following me, running quiet fast. His arms were sat awkwardly by his sides and the earth seemed to shake every time he took a step. My heart racing, I began running, turning the corner in an attempt to confuse him. My bottle fell out of my hand and clunked to the floor. 
 
-He began running too, the ground shaking thunderously under his feet. His face was even more chilling, I realized, to my horror. He had facial features - just abnormal ones. Skin a little too pale, eyes a little too gaunt, mouth a little too stretched. It made everything a hundred times worse, because not only was I being followed by a man twice my size, but the man also looked like he stepped out of a disturbing, scary movie. 
+He began running too, the ground shaking thunderously under his feet. His face was even more chilling, I realized, to my horror. He had facial features - just abnormal ones. Skin a little too pale, eyes a little too gaunt, mouth a little too stretched. It made everything a hundred times worse, because not only was I being followed by a man twice my size, but the man also looked like he stepped out of a disturbing, scary movie.
 
-I decided it wasn't best to go home and lock the doors. God knows how much strength that man possessed, and how much my locks can really take. Plus, it isn't very smart to have him know my exact address, and so I turned in the other direction, leading him away from my safety. 
+I decided it wasn't best to go home and lock the doors. God knows how much strength that man possessed, and how much my locks can really take. Plus, it isn't very smart to have him know my exact address, and so I turned in the other direction, leading him away from my safety.
 
-The closest police station was a mile away, and I didn't have my phone to call anybody. I tried a few stores - looking behind myself in a hurry to find the man still behind me - but no luck. All doors were locked, all windows closed, all lights off. 
+The closest police station was a mile away, and I didn't have my phone to call anybody. I tried a few stores - looking behind myself in a hurry to find the man still behind me - but no luck. All doors were locked, all windows closed, all lights off.
 
-Every store, every café, every house. No one answered their doors, and I didn't see anyone outside. Very unusual, because normally at this time people would be out walking their dogs, hurrying to bus stops, or going for morning runs. It made my stomach turn, as if everyone was in some horrible joke that I didn't know about. 
+Every store, every café, every house. No one answered their doors, and I didn't see anyone outside. Very unusual, because normally at this time people would be out walking their dogs, hurrying to bus stops, or going for morning runs. It made my stomach turn, as if everyone was in some horrible joke that I didn't know about.
 
-After a while I began feeling seriously afraid. The man was still on my tails, and yet he wouldn't give up. Every few minutes he was bellow in his unbalanced voice, "Hey! Excuse me!" Even the sound of his shrill voice scared me. 
+After a while I began feeling seriously afraid. The man was still on my tails, and yet he wouldn't give up. Every few minutes he was bellow in his unbalanced voice, "Hey! Excuse me!" Even the sound of his shrill voice scared me.
 
 I stopped for a moment to catch my breath. We'd been running for what seemed like hours now. I wondered what he'd do if he reached me, and that kicked in the adrenaline, and I began running again. I cursed myself for leaving my phone at home and even worse, taking out the number card.
 
-Soon, I spotted a KX telephone box by the side of the road, near what seemed to be an empty restaurant. Not daring to look over my shoulder, I ducked into the tiny space just as the man reached me. I locked the door and he began pounding aggressively, his face skeletal and monstrous-looking. 
+Soon, I spotted a KX telephone box by the side of the road, near what seemed to be an empty restaurant. Not daring to look over my shoulder, I ducked into the tiny space just as the man reached me. I locked the door and he began pounding aggressively, his face skeletal and monstrous-looking.
 
 My heart pounded at the sight of him. I grabbed the telephone, dialed 911, and put the phone to my ear, praying. The man was pounding on the glass so hard that I thought it'd shatter right then and there.
 
-I took a deep breath as someone picked up on the second ring. 
+I took a deep breath as someone picked up on the second ring.
 
 "Hi? Who's this?"

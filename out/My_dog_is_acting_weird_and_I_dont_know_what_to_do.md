@@ -17,3 +17,5 @@ When we got home, I didn't even bothered to try and get him down the car. At lea
 I feel like I'm losing my mind right now, I just want him to be okay. I'm trying to find help, but noone is answering the phone. I've gone to my neighbour's and she won't answer the door. I haven't even heard her crazy Yorkshire barking like a madman when I rang, which is definitely bizarre... I just don't think I can stay put waiting. I'm going to grab the car and get to the city, to a vet that actually cares. I feel stupid for not having done this earlier, and if something happens to Captain I'll make sure to let Spencer, the town's vet, that I was here waiting for him like an idiot.
 
 Wish Captain luck, and send some strength for me, because the grunting is giving me shivers...
+
+Part 2: https://www.reddit.com/r/nosleep/comments/12gpvke/my_dog_is_acting_weird_and_its_not_just_him_pt_2/

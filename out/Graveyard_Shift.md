@@ -1,0 +1,13 @@
+I (26M) started a new job as graveyard security for a pretty popular park in North Carolina on the southern edge of the Appalachian Mountains. Everyday, things have seemed pretty normal. My job is to walk around the massive park and make sure there’s nothing around the park after it closes - typical graveyard security duty. Occasionally I'll have people that decide not to follow the rules posted at the entrance. There’s nothing wrong with them hanging out where they are, as long as they leave within the time it takes me to loop back around. As I said, pretty normal. On occasion, I've heard things coming out from the forest. But I’ve brushed them off as being deer or some kind of animal running around.
+
+&#x200B;
+
+However, things changed tonight. At 2:00 a.m. while on my normal route, I ended up walking to one of the seating areas where people can stop, eat lunch, whatever they want. I turned my flashlight on and did my typical scan of the area. All clear. I scanned the marker on my way out of the area and stopped one more time to do a last scan of the front area and the forest near it. As I was scanning, I stopped and my eyes seemed to linger in the forest. Fear started to wash over me as I saw a pair of glowing red eyes staring at me. Every bit of blood flooded from me, and I felt myself frozen where I stood. It must have been 10 minutes that I was just locking eyes with this thing. I couldn't think of anything but fear and "don't take your eyes off of it". I wanted so badly to raise my flashlight to see what it was but I just couldn't move. That is until the feeling went from fear, to survival as I watched it go from about 3 feet off the ground, to slowly rising to roughly 8 feet. I felt my heart racing. Was this thing climbing the tree…or standing up ready to run at me? I wasn't going to take a chance. I began to back up and head back to the guardhouse, my eyes locked to this thing. Not a single moment passed where I took my eyes off of it. Now while typing this I'm realizing… the eyes didn't get any smaller as I got further away. I'm terrified. 
+
+&#x200B;
+
+I am just sitting in this shack with something lurking outside? What was that thing? Why was it just staring at me? Is it waiting for me to go back out?
+
+&#x200B;
+
+ I thought I would post this here to see what you guys think about it. I'm not sure what it could be. Any advice on how to move forward, or what it is would be very apricated.  Right now I'm to scared, I'll probably just end up staying in the shack until my replacement comes. Then get home as fast as I can. I will update if anything more happens tonight.
