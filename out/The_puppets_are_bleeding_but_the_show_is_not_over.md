@@ -1,4 +1,4 @@
- My mother was throwing a party. The Sicklers were over, as were the Wangs, and the Fertidas. That meant me and my sister Madeline were stuck cooped up in the basement with all of their offspring. 
+ My mother was throwing a party. The Sicklers were over, as were the Wangs, and the Fertidas. That meant my sister Madeline and I were stuck cooped up in the basement with their offspring. 
 
 It meant there would be an abundance of junk food at our disposal: large bowls of candy, popcorn, and chocolate were laid out on the coffee table accompanied by every type of soda you could imagine. 
 
@@ -194,6 +194,4 @@ Years later, when I was in high school, I received a direct message from an unkn
 
 The communication medium is different, but the sentiment of the messages is all the same. 
 
-*The show is not over.*
-
-[A.P. Royal](https://www.reddit.com/r/aproyal/comments/kpu2co/please_read_if_you_enjoyed_any_of_my_stories/)
+*The show is not* [over](https://www.reddit.com/r/aproyal/comments/kpu2co/please_read_if_you_enjoyed_any_of_my_stories/)*.*
