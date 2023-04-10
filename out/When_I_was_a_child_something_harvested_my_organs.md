@@ -217,3 +217,7 @@ I search for my phone and call my best friend, Chris.
 It rings for about 15 seconds before he picks up. "Marc, why are you calling me so early?"
 
 "Do you want to accompany me to the forest?"
+
+\----------------------
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/12hyg3k/when_i_was_a_child_i_climbed_the_spiral_stairs_in/)
