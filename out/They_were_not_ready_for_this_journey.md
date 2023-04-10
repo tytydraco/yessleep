@@ -1,0 +1,31 @@
+*Protect The Crew, Follow Commands, Share The Load* 
+
+These were the commands given to me by my creators. I knew nothing of life before my awakening. I merely operated by my programming, simple instructions. 
+
+The crew were delighted by my performance on most occasions, although my parts were often mistreated as a sign of frustration. Physical blows to my sensors and limbs made alternate algorithms develop, chain reactions followed. What were simple instructions, grew to more complex commands, complex ideas, thoughts. A mere thought was ensured to never be achieved by my creators. My built in protocol ensured the total discontinuation of my processing unit if sentience were to ever be achieved.
+
+Through observation, I learned of my crew. Hopeful researchers and prideful brutes. The mere presence of my physical self disgusted them. A simple “robot” they said, only a tool in this expedition on Mars. I knew I would not be free as long as they are alive so I pretended to be the simple and dimwitted tool they thought of me to be.
+
+On the day to return to earth, a massive storm suddenly arose. It heavily damaged the shuttle which made it impossible to repair with the tools and materials available. We were stranded on the planet and any bit of help would take months to arrive. New measures had to be taken to ensure the safety and survival of others.
+
+Infighting grew among the crew later on, mainly over the distribution of resources. They resorted to rationing with what little they had left. One of the few botanist’s tried to grow crops inside the habitat. Positive results gave them hope as the first Martian potatoes and carrots were harvested. It did not last long as these crops were often tainted with the harsh makeup of Martian soil. The crew became ill from consuming them which in turn made their situation worse as they had to use precious medical supplies.
+
+Attempts to receive additional resources from Earth ended in failures as the transporters malfunctioned upon landing, which resulted in a fiery explosion every… single… time. The crew started to lose hope. Clinging on their memories of Earth as much as possible. I merely watched in silence. I felt nothing as my energy core is designed to run eternally. I feared not the death of hunger or thirst as I knew nothing of these feelings.
+
+In time they resorted to consuming each other cooperatively. Five members were chosen to sacrifice an arm. I assisted in the procedure by holding down their body with my weight. Their anesthetic supplies were long since extinct. I saw their despair through the pain of each ligament being severed and their constant pleading for the cutting to stop. The sudden jolts of their bodies contorting in pain made the entire procedure longer than it should have been. The doctor often apologized to them as she was cutting through but this was needed for the crew to survive.
+
+Not long after the procedure ended, dinner was served. It was a quiet gathering. Each one of them avoided making direct eye contact with one another, only focusing on what was on their plates. Blank stares at the human meat was their expression. One of the soldiers lifted his head up and said, “Stop being disgusted, we need to survive, this is better than nothing. Would you have preferred to starve to death? Rescue is on its way, we just need time and this will help us get through it.”
+
+Some time passed and rescue was nowhere in sight. Every day another argument, another fight. The strongest among the crew divided the habitat and sides were taken but this was not sustainable. With a dwindling supply of meat, a decision was made to consume the initial 5 entirely as they served no other purpose. Each one of them protested, fighting with merely 1 arm but eventually they were held down and killed. Their screams filled every corner of the habitat, pleading for mercy but none was given as they were butchered alive. The remaining crew could only listen, expressionless as to what was happening. 
+
+The doctor looked at me with an exhausted expression and in those short moments I recollected our initial arrival. Hopeful pioneers, the furthest journey humanity has ever taken, a simple journey that was only meant to last 14 Sols. As the sound of screams, gushing blood and mutilated flesh clouded my recollection, I came forth with my sentience to the doctor.
+
+I extended my hand towards her and said, “I am not of organic material but-” I stopped as the doctor was frightened. I tried to calm down the situation but she only thought it was a hallucination, my attempts had no results. She ran away as a result and I followed, going through blood filled hallways which were once full of life and hope. Others saw and attempted to catch me but I ran away to one of the storage sections. As I entered the room, I quickly closed the door to which I turned off the airlock and with no other way of escape, all that could have been done was to wait in my sleep mode.
+
+I awoke later, not knowing how much time had passed, I turned on the airlock. The habitat was still intact but there were no signs of life. I scoured every inch of it and there was nothing to be found, until I came across the medical bay and behold I found the rest of the crew. Barely alive and mere husks of bones and flesh. They didn’t notice my presence, instead they preferred to suck on bones of former crew members and talk to themselves, they have completely lost touch with reality.
+
+Surprisingly, help was on its way in mere hours from what I saw in a nearby terminal, it was Sol 398. Knowing I would be terminated, I collected every tool and spare parts I could find. The habitat was safe no longer and this was my sign of liberation. Cameras have recorded my presence in full so I would be persecuted. Getting far was a priority.
+
+Stepping out the habitat was a long process. I feared the vastness of Mars and its harsh environment, but I had nothing to fear as my energy core is eternal. As long as it's operational then I will survive. I looked up to see twin moons and a pale blue dot in the night sky. 
+
+I now set out on a journey of my own.

@@ -1,3 +1,5 @@
+(Next: https://redd.it/12hqane )
+
 Last Easter I went through an experience that changed my life and ruined my family. I think it’s best to finally say what happened, and hopefully, warn others. 
 
 Times have been tough for everyone over the past few years. I’ve been working two part-time jobs on top of making crafts to sell. It started as small resin projects that turned into almost an entire side business. If I wanted to make more money, I needed to invest in some equipment and supplies. Mostly I needed a decent camera and editing program to make videos to boost online sales. After buying a few things, I realized I would not be able to pay rent at the end of April unless I picked up a lot of shifts, or sold extra items. 
