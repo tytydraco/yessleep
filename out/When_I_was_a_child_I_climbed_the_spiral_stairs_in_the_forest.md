@@ -219,3 +219,7 @@ I sighed in relief when I noticed him collapsed just a few feet away from me. Bu
 Through my blurry vision I noticed that the staircase was still there, looming over us. Maybe, just maybe this could work.
 
 I stood, picking up Chris's headless body and began limping towards the stairs. If I survived back then, maybe Chris can survive now.
+
+\---------------------
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/12j0g2q/when_i_was_a_child_my_kidnapper_ripped_out_my/)

@@ -12,7 +12,7 @@ On any other day, that would have been welcome news for me.  While I hadn’t be
 
 “Fuck it,” I said.  I was moving back to England.
 
-Now, I’m not a total asshole.  I didn’t expect a ticker tape parade, or weeping old women coming up to me with homemade treats pinching my cheek, telling me what an adorable golden-curled baby I had been, rejoicing that their prodigal son had returned.  But I did think that since no one moves to this place, *ever*, let alone an American, that people would be mildly intrigued about my arrival.  Not so.  
+Now, I’m not a total asshole.  I didn’t expect a ticker tape parade, or weeping old women coming up to me with homemade treats pinching my cheek, telling me what an adorable golden-curled baby I had been, rejoicing that their prodigal son had returned.  But I did think that since no one moves to this place, *ever*, let alone an American, that people would be mildly intrigued about my arrival.  Not so.
 
 People were committed to keeping themselves to themselves.  Which is totally fine, of course.  I tried to chalk it up to cultural differences, though my English parents had been perfectly amiable, outgoing even.  But I had been here for almost a month and I was lucky to get a blank stare as acknowledgement of my existence.  No greetings, no introductions, nothing.
 
@@ -46,7 +46,7 @@ He chuckled dryly.
 
 “Sure.  Why not?”  I was beginning to feel a little nervous.
 
-“When?” he asked, almost breathlessly. 
+“When?” he asked, almost breathlessly.
 
 “I don’t know.  Maybe if it’s not too wet, I’ll do it this weekend.”  I contemplated asking him why he was so interested, but thought better of it.  Again, this was the first conversation I had had with someone here and I didn’t want to get on anyone’s bad side, least of all the only peddler of booze in town.
 
@@ -58,9 +58,9 @@ A booming shout of joy escaped the man’s lips that nearly toppled me over with
 
 I laughed nervously and freed myself from his grasp.  While free beer is generally something that lifts my spirits, I found myself wishing he’d taken my cash.  My neck burned as I turned and left the pub–-I could feel his overly enthusiastic stare on the back of my neck.  My walk home was only a couple blocks and yet it felt like there were people staring at me from behind every window, hiding just out of sight.
 
-The next morning, the entire village had completely changed.  It was as though overnight, it had turned into the opening scene in *Beauty and the Beast*.  Everyone I passed on High Street waived and said good morning to me, even addressing me by my name.  
+The next morning, the entire village had completely changed.  It was as though overnight, it had turned into the opening scene in *Beauty and the Beast*.  Everyone I passed on High Street waived and said good morning to me, even addressing me by my name.
 
-The middle aged woman checking out my groceries at the shop greeted me with such a bright, deranged smile that I almost left everything at the register and walked out.  
+The middle aged woman checking out my groceries at the shop greeted me with such a bright, deranged smile that I almost left everything at the register and walked out.
 
 “Glad to hear you’re digging up the time capsule, William.”
 
@@ -70,7 +70,7 @@ The lady hadn’t even acknowledged my existence yesterday and now she was actin
 
 Her smile widened even further.
 
-“That’s right, William,” she said.  I paused to allow her to elaborate, but she just kept smiling.  I quickly gathered my purchases and left.  
+“That’s right, William,” she said.  I paused to allow her to elaborate, but she just kept smiling.  I quickly gathered my purchases and left.
 
 That night, I contemplated my garden.  It was a modest affair, with some lovely rose bushes and shrubbery that was due for a good trimming.  Moss-crowned stepping stones led to a wrought iron bench.  A pretty little bird bath sat in the corner, underneath a giant rowan tree adorned with large clumps of mistletoe still dotted with berries.  I realized I had no idea where this time capsule would be.  But I’d dig the whole thing up if it meant people went back to ignoring me.
 
@@ -78,9 +78,9 @@ A banging on my front door shook me out of my reverie.  *Pretty late for a visit
 
 *Under the bench.  Dig it up.*  The message was written in a sprawling, unsteady hand.
 
-“Fine then!”  I shouted into the empty street, fear turning into the kind of anger that leads to hasty action.  I grabbed the shovel and a sweater and immediately went out back, my mind fixed on getting this over and done with.  I scraped away the gravel under the bench and thrusted the shovel into the brown earth, which gave way easily.  It felt good to be digging, working; I felt my fury evaporate into curiosity.  Just as I began to enjoy the sensation of lifting the dirt, I felt the same feeling of being watched that had been plaguing me since my conversation with the barman the night before.  I stopped and leaned against the shovel, looking around me, searching for the source of that feeling, the beginnings of sweat condensing at my brow.  
+“Fine then!”  I shouted into the empty street, fear turning into the kind of anger that leads to hasty action.  I grabbed the shovel and a sweater and immediately went out back, my mind fixed on getting this over and done with.  I scraped away the gravel under the bench and thrusted the shovel into the brown earth, which gave way easily.  It felt good to be digging, working; I felt my fury evaporate into curiosity.  Just as I began to enjoy the sensation of lifting the dirt, I felt the same feeling of being watched that had been plaguing me since my conversation with the barman the night before.  I stopped and leaned against the shovel, looking around me, searching for the source of that feeling, the beginnings of sweat condensing at my brow.
 
-While the house was free-standing, I could see the neighbors on either side from my viewpoint in the garden.  In both houses, the shades were drawn, the windows darkened.  Back beyond my vine-covered fence, there was a large, dormant field bordered by a dilapidated hedge row and walking path that was perfectly charming during the day.  That night, the darkness was overwhelming, but I could see nothing that could have been the source of my unease.  
+While the house was free-standing, I could see the neighbors on either side from my viewpoint in the garden.  In both houses, the shades were drawn, the windows darkened.  Back beyond my vine-covered fence, there was a large, dormant field bordered by a dilapidated hedge row and walking path that was perfectly charming during the day.  That night, the darkness was overwhelming, but I could see nothing that could have been the source of my unease.
 
 I kept digging, pushing away the paranoia.  I had uncovered a couple feet of dirt when I hit something metal.  I threw aside the shovel and bent down to brush away the remaining dirt with my hands.  It was a medium sized tin, the colorful remnants of an illustration for biscuits on the rusted lid.  I opened it, not knowing what to expect.
 
@@ -88,7 +88,7 @@ I removed a pair of postcards.  “The Royal Wedding: Long Years of Happiness,�
 
 Underneath the paper ephemera was something heavy.  I removed the items carefully and found a single horseshoe.
 
-“Huh, for good luck, maybe,” I muttered to myself.  I picked up the horseshoe and turned it over.  There were no markings or engravings.  It was heavy, maybe iron, and seemed more decorative than practical.  My mother had been fond of horseshoes.  She had been a fine equestrian in her youth and had one hanging over the door of our apartment.  “For old time’s sake,” she had said.  *I’ll hang it up for you, Mom,* I thought, eyes stinging.  She hadn’t had much luck in the end.  
+“Huh, for good luck, maybe,” I muttered to myself.  I picked up the horseshoe and turned it over.  There were no markings or engravings.  It was heavy, maybe iron, and seemed more decorative than practical.  My mother had been fond of horseshoes.  She had been a fine equestrian in her youth and had one hanging over the door of our apartment.  “For old time’s sake,” she had said.  *I’ll hang it up for you, Mom,* I thought, eyes stinging.  She hadn’t had much luck in the end.
 
 The last item was a picture of a man in a dapper suit with a flamboyant mustache.  He had the dark hair and the long, plain face of the Catesbys, a face I had, through the miracle of genetics, been spared.  *Another Catesby Crow*, my father would joke while looking at old pictures of his family.  *You see why I had to marry a lady as pretty as your mother?*  I chuckled at the memory.  This Catesby Crow had to have been my great-grandfather Richard.
 
@@ -100,25 +100,25 @@ I pried the piece of paper from the jaw.  There were words scrawled on it, in a 
 
 *You must give them what you owe.*
 
-“Well, that’s fucking ominous,” I said, my teeth clenched.  I pulled the stiletto out of the eye with a groan.  It was a simple knife, maybe something mass-issued to soldiers.  My heart pounding, I hastily shoveled the dirt back over the skull.  From the houses on both sides of me, I heard a rustling.  I swiveled my head just in time to see the swish of curtains, but nothing more.  Shuddering, I took the stiletto, paper, and tin back into the house and placed them on the kitchen counter.  For a moment I stood staring at the items, daring myself to contemplate how and why they had been placed in my garden.  
+“Well, that’s fucking ominous,” I said, my teeth clenched.  I pulled the stiletto out of the eye with a groan.  It was a simple knife, maybe something mass-issued to soldiers.  My heart pounding, I hastily shoveled the dirt back over the skull.  From the houses on both sides of me, I heard a rustling.  I swiveled my head just in time to see the swish of curtains, but nothing more.  Shuddering, I took the stiletto, paper, and tin back into the house and placed them on the kitchen counter.  For a moment I stood staring at the items, daring myself to contemplate how and why they had been placed in my garden.
 
 By then I was tired and filthy and sick of mysteries.  I decided to take a quick shower.  Afterwards, I tried to fall asleep, pulling the quilt over my head as though I were a child afraid of the dark.  I quickly drifted off and immediately found myself in the middle of a vivid dream.  I was standing in the clearing of an ancient wood, before me was a stag, struggling against some invisible force.  The stag bucked his antlers up and down, as though trying to free himself from a net or a web, his eyes wild, his mouth gaping, foaming at the intensity of his effort.  I took a step towards him and at my movement, he was still, eyes now fixed on me.  I could feel the malice emanating from him, as though I had interrupted something important.  It lowered its head, as though aiming its antlers on me and pawed the dirt before him as if preparing to pounce.  I willed myself to run, but I could not move.  The stag lunged at me, burying his antlers into my stomach, throwing me to the ground bleeding.  He reared to bring his hooves down on my head, but just before he could do so a terrible clanging sound echoed around us.
 
-My eyes flew open and it took my brain a few seconds to realize the clanging sound was no dream, but real.  I was on the floor, my feet tangled in the sheet.  It was a bell, a church bell, ringing so loud it was as if I were inside of it, though the only parish church in town was several blocks away.  At every knell, my head throbbed, pain exploded throughout my body.  I stumbled out of my room, my body moving with no purpose beyond the instinctual urge to escape this torture.  
+My eyes flew open and it took my brain a few seconds to realize the clanging sound was no dream, but real.  I was on the floor, my feet tangled in the sheet.  It was a bell, a church bell, ringing so loud it was as if I were inside of it, though the only parish church in town was several blocks away.  At every knell, my head throbbed, pain exploded throughout my body.  I stumbled out of my room, my body moving with no purpose beyond the instinctual urge to escape this torture.
 
-After several minutes of pain that blinded me so badly I could hardly find where I was going, I found myself in the kitchen.  To my horror, every door of every cabinet, every drawer, was opening and closing to the rhythm of the bells.  The objects from the time capsule sat silently on the counter, exactly where I had put them before, as though accustomed to being surrounded by chaos.  
+After several minutes of pain that blinded me so badly I could hardly find where I was going, I found myself in the kitchen.  To my horror, every door of every cabinet, every drawer, was opening and closing to the rhythm of the bells.  The objects from the time capsule sat silently on the counter, exactly where I had put them before, as though accustomed to being surrounded by chaos.
 
 Through my kitchen window, I caught a glimmer of light coming from the garden.  It was some sort of flame suspended in the dark–-no, it was a torch.  A torch carried by a hooded figure, its face obscured.  My judgment dulled by the pounding pain of the bells, I grabbed the nearest object I could find: the horseshoe.  With a frenzied motion, I pulled open the window and lobbed the horseshoe out at the figure, but it was already gone, its flame extinguished, as though it had dissolved into the very night itself.
 
-In that moment, the bells ceased and I collapsed to the floor in relief, the silence so sweet, so perfect.  
+In that moment, the bells ceased and I collapsed to the floor in relief, the silence so sweet, so perfect.
 
-Somehow I managed to sleep the rest of the night on the floor, in that exact position, too weak and tired to carry myself to bed.  In the morning, I woke up groggy, nearly every corner of my body sore and unpleasant.  A shower didn’t help, neither did my coffee.  The sunlight draped the kitchen in an innocent, honey glow, but it wasn’t enough to make me forget that my head had nearly exploded from chiming bells the night before.  
+Somehow I managed to sleep the rest of the night on the floor, in that exact position, too weak and tired to carry myself to bed.  In the morning, I woke up groggy, nearly every corner of my body sore and unpleasant.  A shower didn’t help, neither did my coffee.  The sunlight draped the kitchen in an innocent, honey glow, but it wasn’t enough to make me forget that my head had nearly exploded from chiming bells the night before.
 
 With a sigh I realized I somehow had nothing to eat for breakfast, so I reluctantly headed out, not too excited to see my fellow villagers.  The street was blessedly empty, but my friend, the grocery lady, was waiting for me, still smiling.  I nodded to her and muttered a good morning and had the unfortunate privilege of feeling her eyes on my back as I hurriedly grabbed a loaf of bread and some eggs.
 
 My original plan was to pretend like I had something urgent to read on my phone as I checked out, but I had a million questions swirling around in my head.  I couldn’t help myself.
 
-“So, powerful church bells over at St. Edward’s, right?” I asked, trying to sound as casual as possible.  The woman laughed, a shrill rapid-fire laugh that cut right through me.  
+“So, powerful church bells over at St. Edward’s, right?” I asked, trying to sound as casual as possible.  The woman laughed, a shrill rapid-fire laugh that cut right through me.
 
 “Oh, William!  There are no bells at St. Edwards.  Not since the bell tower caught fire, back nearly a hundred years ago.”
 
@@ -140,8 +140,10 @@ My foot touched something hard and cold.  I looked down.  It was the horseshoe. 
 
 \++
 
-The police were patronizing and disinterested, muttering to me about teenagers and pranks.  They reassured me that the ink could be cleaned easily, as if that was my primary concern in contacting them.  
+The police were patronizing and disinterested, muttering to me about teenagers and pranks.  They reassured me that the ink could be cleaned easily, as if that was my primary concern in contacting them.
 
-That’s when I googled and found this subreddit.  Maybe someone here has a better answer than school kids hazing the new guy.  Because I know something is deeply wrong. 
+That’s when I googled and found this subreddit.  Maybe someone here has a better answer than school kids hazing the new guy.  Because I know something is deeply wrong.
 
 And I fear things are about to get worse.  Much worse.
+
+[x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
