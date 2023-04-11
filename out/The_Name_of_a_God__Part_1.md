@@ -164,7 +164,7 @@ One of the men said they’d already had their fill with the last couple. The ot
 
 No. A normal life wasn’t what I wanted. I wanted the Void to scream. To beg for mercy. Ridiculous, but if there was even a slight possibility of it, I’d take it.
 
-We should dump her with the couple in that old building, one of them said. The others chorused their agreement.
+We should dump them with the couple in that old building, one of them said. The others chorused their agreement.
 
 I was pulled to my feet. One of the men pushed me backwards, told me to empty my pockets. I did. They’d seen all they need to see. Rifles raised in unison. Faces sweating with excitement.
 
