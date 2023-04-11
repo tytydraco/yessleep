@@ -8,7 +8,7 @@ Glowing circles appeared on the ground around us. They looked a lot like the one
 
 I turned my head away for a second as other monsters came up from the ground. At least five of the larger ones, all missing parts, and yet still moved around. A small hoard of regular rabbits came bursting from the barn. They would reach us in a minute or so. I knew they carried the same disease that infected my family. If one took a bite out of us, it would be all over. 
 
-I reached down to pull out the blade from the scabbard, hand trembling. This was all too much for me. I don’t know what I was thinking about insisting on coming here. At least Jan didn’t appear worried in the slightest. He pulled out another package of chocolate-covered biscuit sticks. I expected him to start fighting. At least none of the monsters came at us just yet. The man I met at the market pulled himself up from the last glowing circle. A hatred as hot as the hilt in my hand came to my chest. I’d never wanted to kill someone as must I did at that moment. 
+I reached down to pull out the blade from the scabbard, hand trembling. This was all too much for me. I don’t know what I was thinking about insisting on coming here. At least Jan didn’t appear worried in the slightest. He pulled out another package of chocolate-covered biscuit sticks. I expected him to start fighting. At least none of the monsters came at us just yet. The man I met at the market pulled himself up from the last glowing circle. A hatred as hot as the hilt in my hand came to my chest. I’d never wanted to kill someone as much I did at that moment. 
 
 I try to be understanding when it comes to people. Even if they show some sort of unjust hatred towards me, I want to understand their reasoning and why they felt like they did. I simply could not figure out why this person sold rabbits to punish people buying them at Easter. 
 
@@ -158,7 +158,7 @@ Oh, I didn’t think about the fact Agents got paid. This was a job after all. W
 
 I needed to sit down. I blankly stared at Jan expecting this to be a joke. His neutral expression never dropped. Agents got paid well for saving the world, but how the hell did one company have so much to just give away like this? He ignored my reaction and kept speaking. 
 
-“People who encounter supernatural creatures are at a higher risk of being killed by one. There is a good chance you’ll come across something dangerous in the future. Keep my number. Call me if something happened.” 
+“People who encounter supernatural creatures are at a higher risk of being killed by one. There is a good chance you’ll come across something dangerous in the future. Keep my number. Call me if something happens.” 
 
 His golden eyes landed on me, and I felt my face flush. He noticed that reaction and needed to turn away to hide a smile. 
 
