@@ -2,7 +2,7 @@
 
 &#x200B;
 
-\--------------------------------------------------------------------------------------------------------------
+\-------------------------------------------------------------------------------
 
 ‘Joshua A. Jameson,
 
@@ -80,7 +80,7 @@ Yet when I turned my head I still saw something familiar. The same battered meta
 
 At the top of the steps prevailed someone that had been plucked straight from my memory. A scraggly looking scientist. A tall frail man that looked like he hadn’t aged more than 10 years.
 
-A man that I spurned. Dr. Grant Hargrove.
+A man that had unintentionally spurned me. Dr. Grant Hargrove.
 
 He was giving orders to several other researchers from his little rostrum up high. His expression was as dour and damning as ever. At least until his eyes reached mine.
 
